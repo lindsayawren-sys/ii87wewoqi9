@@ -1,60 +1,46 @@
-# 牢记初心使命 奋进复兴征程丨绿色从柯柯牙萌发，铺展天山南北
+<h1>美国爱达荷州一空军基地发生空中撞机 飞行员弹射逃生</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>新华社旧金山5月17日电(记者吴晓凌)美国爱达荷州芒廷霍姆空军基地17日举行飞行表演时，两架飞机在空中相撞并坠毁，机组人员弹射逃生。 据当地媒体报道，芒廷霍姆空军基地发言人证实，事故发生在飞行表演期间。现场可见坠机地点附近升起黑烟，4顶降落伞出现在空中。现场播报说，机组人员已弹射逃生。 一些当地媒体称，发生空中相撞的是美国海军两架E/A-18G型“咆哮者”舰载电子战飞机。 应急</p><br>
+<h2>正文</h2><br>
+<p>新华社旧金山5月17日电(记者吴晓凌)美国爱达荷州芒廷霍姆空军基地17日举行飞行表演时，两架飞机在空中相撞并坠毁，机组人员弹射逃生。</p><br>
+<p>据当地媒体报道，芒廷霍姆空军基地发言人证实，事故发生在飞行表演期间。</p><br>
+<p>现场可见坠机地点附近升起黑烟，4顶降落伞出现在空中。</p><br>
+<p>现场播报说，机组人员已弹射逃生。</p><br>
+<p>一些当地媒体称，发生空中相撞的是美国海军两架E/A-18G型“咆哮者”舰载电子战飞机。</p><br>
+<p>应急人员已赶赴现场，事故原因正在调查中。</p><br>
+<p>尚无人员伤亡报告。</p><br>
+<h2>相关推荐</h2><br>
+<h3>速度与激情9</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md</p><br>
+<h3>GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md</p><br>
+<h3>低智商犯罪三江口团建来了</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md</p><br>
+<h3>如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md</p><br>
+<h3>有哪些值得一提的生活窍门？</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md</p><br>
+<h3>美加墨世界杯：亚洲足球的得意与失意</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md</p><br>
+<h3>武磊：巴西队赢的并不轻松</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md</p><br>
+<h3>老外对中国cosplay竟这样评价…</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md</p><br>
+<h3>有人见过武则天的画像吗，非常好奇？</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md</p><br>
+<h3>王源近几年没有路演了</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md</p><br>
+<h3>周冬雨多次说演不了话剧文城</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md</p><br>
+<h3>人民锐评网红诋毁袁隆平造谣企业家</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md</p><br>
+<h3>德国连续三届世界杯无缘16强</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md</p><br>
+<h3>一生一世</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md</p><br>
 
-从阿克苏地区柯柯牙纪念馆的瞭望塔上望去，托木尔峰下，百万亩林海郁郁葱葱，绵延至天际。谁能想到，40年前，这里黄沙蔽日、寸草不生。 柯柯牙是阿克苏地区风沙危害的主要策源地，风沙肆虐严重影响了当地的生产生活。40年里，数代人接力，硬是在茫茫黄沙间筑起一道“绿色长城”，创造了绿色奇迹。 风沙逼城：打响生存之战 20世纪80年代，柯柯牙年降水量仅为60毫米左右，蒸发量却高达2600毫米
-
-## 正文
-
-从阿克苏地区柯柯牙纪念馆的瞭望塔上望去，托木尔峰下，百万亩林海郁郁葱葱，绵延至天际。
-
-谁能想到，40年前，这里黄沙蔽日、寸草不生。
-
-柯柯牙是阿克苏地区风沙危害的主要策源地，风沙肆虐严重影响了当地的生产生活。
-
-40年里，数代人接力，硬是在茫茫黄沙间筑起一道“绿色长城”，创造了绿色奇迹。
-
-风沙逼城：打响生存之战 20世纪80年代，柯柯牙年降水量仅为60毫米左右，蒸发量却高达2600毫米。
-
-阿克苏市和温宿县被沙漠戈壁包围，更为棘手的，是沙漠距城市最近处只有6公里，并且以每年5米的速度逼近城市。
-
-当地群众一年中有近100天要在黄沙弥漫中度过。
-
-生活在沙区周边的村民回忆：“风一来，天就黑了，房子里的灯要点一整天。
-
-## 相关推荐
-
-- 2026-06-30 09:24 - 可以细成这样？1600万预算，颠覆我认知的改造！<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md
-- 2026-06-30 09:12 - 高质量发展看新疆<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md
-- 2026-06-30 09:16 - 德国巴拉圭 折磨<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md
-- 2026-06-30 09:07 - 【硬核拆解】汽车人到底离我们有多远？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md
-- 2026-06-30 09:03 - 金鹰奖视后提名预测<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md
-- 2026-06-30 09:14 - 法总统候选人：拒绝与中国激烈对抗<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md
-- 2026-06-30 09:13 - 国务院：稳步推进研究生考试招生改革<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md
-- 2026-06-30 09:25 - 男子造谣东鹏老板不喝自家饮料被拘<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md
-- 2026-06-30 09:17 - 第3集丨“柠檬茶能换怀表？”<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md
-- 2026-06-30 09:27 - 恐怖世界 第三集 埃温霍姆村<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md
-- 2026-06-30 09:16 - 卡塞米罗头球破门<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md
-- 2026-06-30 09:08 - 张月收到黄灿灿辣货两眼发光<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md
-- 2026-06-30 09:16 - 花少8要去世界杯举办国<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md
-- 2026-06-30 09:15 - 考入南大计算机，复读考清北值吗？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md
-
-## 延伸阅读
-
-- 2026-06-30 09:18 - 萨内 看笑了<br><br> | ??:http://www.share.minike.top/Article/details/1268980.shtml
-- 2026-06-30 09:04 - 德国罚丢3粒点球<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/9952388.shtml
-- 2026-06-30 09:23 - 四川宜宾地震瞬间鱼群乱跳<br><br> | ??:https://www.share.minike.top/Article/details/092247.shtml
-- 2026-06-30 09:02 - 王楚钦孙颖莎晋级混双八强<br><br> | ??:https://www.share.kurohicncr.top/Article/details/8268761.shtml
-- 2026-06-30 09:27 - 为什么香港的冲厕水是咸的？<br><br> | ??:http://www.blog.minike.top/Article/details/35889515311.shtml
-- 2026-06-30 09:06 - 《共患难》<br><br> | ??:http://www.share.kurohicncr.top/Article/details/587403.shtml
-- 2026-06-30 09:08 - 披荆斩棘的哥哥<br><br> | ??:https://www.share.minike.top/Article/details/63909296.shtml
-- 2026-06-30 09:23 - 女子遭下药退赔偿拟追刑责<br><br> | ??:http://www.share.kurohicncr.top/Article/details/0792945.shtml
-- 2026-06-30 09:06 - 有什么好的高中网课推荐吗？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/5088160027.shtml
-- 2026-06-30 09:20 - 2026年WTT美国大满贯，国乒自带球桌是真实的吗？<br><br> | ??:http://www.share.minike.top/Article/details/5754401.shtml
-- 2026-06-30 09:27 - 城市规划有可能成为「屎山代码」吗？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/3760481.shtml
-- 2026-06-30 09:25 - 内马尔安慰日本球员<br><br> | ??:https://www.share.kurohicncr.top/Article/details/0850829214.shtml
-- 2026-06-30 09:11 - 【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸<br><br> | ??:http://www.share.minike.top/Article/details/9327231.shtml
-- 2026-06-30 09:29 - 曝娱乐圈大部分明星失业<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/952521.shtml
-- 2026-06-30 09:10 - HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/760803118966.shtml
+<h2>延伸阅读</h2><br>
+<h3>爱直接对嘴喝饮料的人天塌了</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.blog.minike.top/Article/details/997628911.shtml</p><br>
+<h3>哪部作品、哪本书、哪首歌，值得被一直传下去？</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/68011430.shtml</p><br>
+<h3>媒体：手机测评该挤挤水分了</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:http://www.share.minike.top/Article/details/97819081.shtml</p><br>
+<h3>2021湖南卫视跨年演唱会</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:http://www.share.minike.top/Article/details/45778.shtml</p><br>
+<h3>未来的飞机可能会用电吗？</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/35660417387.shtml</p><br>
+<h3>一切民族英雄都是中华民族的脊梁</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/4423804.shtml</p><br>
+<h3>点球淘汰德国 巴拉圭首都陷入疯狂</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/9995736243.shtml</p><br>
+<h3>领克900大型SUV值得购买吗?</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/955852.shtml</p><br>
+<h3>道友？你来真的啊？【凡人官方二创大会】</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/239608.shtml</p><br>
+<h3>本科毕业生为何涌入专科学校</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://www.share.minike.top/Article/details/86870474090.shtml</p><br>
+<h3>全网说丑的玫瑰空调卖了5万台</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/161734476.shtml</p><br>
+<h3>咕嘎万能小摊1：沉浸式制作惠灵顿牛排</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://www.blog.minike.top/Article/details/707444338693.shtml</p><br>
+<h3>高考填志愿父亲和女儿产生分歧</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/7451830869.shtml</p><br>
+<h3>第一次对自信的力量有了实感</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/93481527.shtml</p><br>
+<h3>如何评价DeepSeek 提出的 DSpark 推理加速方案？</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/1607462.shtml</p><br>

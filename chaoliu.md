@@ -1,58 +1,47 @@
-# 端午节侨乡广东台山粽香飘海内外
+<h1>戴假肢跑出三金传奇 成都“刀锋战士”盼站上残奥会赛场</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>中新网成都5月17日电 题：戴假肢跑出三金传奇 成都“刀锋战士”盼站上残奥会赛场 记者 岳依桐 擦拭干净右腿残端，确保没有汗水残留，四川省残疾人田径队队员胡玉涛再次仔细穿戴好形似弯刀的运动假肢，然后使劲蹬地，将接受腔内的剩余空气排出。确保假肢吸附牢固后，胡玉涛再次走上塑胶跑道，准备继续训练——这是他每日训练的常态，也是他向命运不断发起冲刺的日常。 胡玉涛今年将满33岁，这并非运</p><br>
+<h2>正文</h2><br>
+<p>中新网成都5月17日电 题：戴假肢跑出三金传奇 成都“刀锋战士”盼站上残奥会赛场 记者 岳依桐 擦拭干净右腿残端，确保没有汗水残留，四川省残疾人田径队队员胡玉涛再次仔细穿戴好形似弯刀的运动假肢，然后使劲蹬地，将接受腔内的剩余空气排出。</p><br>
+<p>确保假肢吸附牢固后，胡玉涛再次走上塑胶跑道，准备继续训练——这是他每日训练的常态，也是他向命运不断发起冲刺的日常。</p><br>
+<p>胡玉涛今年将满33岁，这并非运动员的黄金年龄。</p><br>
+<p>但去年，他在全国第十二届残疾人运动会暨第九届特殊奥林匹克运动会上斩获男子100米、200米、400米T64级项目的三枚金牌。</p><br>
+<p>尤其在100米比赛中，他以11.84秒的惊人成绩率先冲过终点，将该项目15.36秒的原全国纪录大幅提前了3.52秒。</p><br>
+<p>因亮眼的成绩脱颖而出的胡玉涛，也成为被大众熟知的“刀锋战士”。</p><br>
+<p>实际上，胡玉涛的田径生涯并不长。</p><br>
+<p>2017年他因血管疾病截肢，从此失去了右小腿。</p><br>
+<h2>相关推荐</h2><br>
+<h3>致敬！中国首批缉毒警已全体退休</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md</p><br>
+<h3>内马尔替补</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md</p><br>
+<h3>如何改变自己太负责任的性格?</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md</p><br>
+<h3>巴西替补奇兵读秒绝杀</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md</p><br>
+<h3>杨紫被质疑未使用原名纯属误解</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md</p><br>
+<h3>歌剧老师锐评歌手第6期</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md</p><br>
+<h3>重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md</p><br>
+<h3>本科毕业生为何涌入专科学校</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md</p><br>
+<h3>7月1日起 一批新规即将落地</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md</p><br>
+<h3>“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md</p><br>
+<h3>DeepSeek启动成立来最大规模招聘</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md</p><br>
+<h3>男子P图现任妻子照片冒充前妻</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md</p><br>
+<h3>美股</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md</p><br>
+<h3>世界杯：荷兰vs摩洛哥</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md</p><br>
 
-中新网江门6月20日电 题：端午节侨乡广东台山粽香飘海内外 作者 李晓春 郭军 端午节前后，侨乡台山的街巷里飘满粽叶与红蓝叶交织的独特香气。 “台山粽，咸香、料足，最有识别度的是粽子中间放入用红蓝叶(药名‘红丝线’)拌匀稍作腌制的猪肉，吃起来肥而不腻，值得大家一试！”临近端午，广东台山市融媒体中心官方自营直播间首次开启台山粽端午专场直播带货，活动携手两家本土粽子生产厂家，目前直
-
-## 正文
-
-中新网江门6月20日电 题：端午节侨乡广东台山粽香飘海内外 作者 李晓春 郭军 端午节前后，侨乡台山的街巷里飘满粽叶与红蓝叶交织的独特香气。
-
-“台山粽，咸香、料足，最有识别度的是粽子中间放入用红蓝叶(药名‘红丝线’)拌匀稍作腌制的猪肉，吃起来肥而不腻，值得大家一试！
-
-”临近端午，广东台山市融媒体中心官方自营直播间首次开启台山粽端午专场直播带货，活动携手两家本土粽子生产厂家，目前直播订单以珠三角为主，并已辐射至湖南、江西等地区。
-
-直播间介绍的台山粽，特指台山的咸肉粽，属广府白粽分支，又名“扭角粽”，通过传统手工包裹与水草(或榔鼓带)捆扎制成。
-
-台山粽制作技艺2023年入选台山市第六批县级非物质文化遗产代表性项目名录。
-
-今年端午前，新西兰网红迈克(Michael)抵达台山市台城街道西门墟，在街边小店品尝到馅料丰富的台山粽，他尝试着用新学的台山方言跟卖粽子的人说“我又返来咯，你们的粽好好吃”，并把这段探店视频发到网上社交平台，用英语向外国网友介绍台山粽：“台山这边的粽子有很多不同的口味，里面还有咸蛋黄。
-
-我最喜欢广东的美食，因为它比较清淡，味道不会特别重，像台山粽这种，经常吃也不会吃腻。
-
-” “我今年端午向大家介绍的是台山粽。
-
-## 相关推荐
-
-- 2026-06-30 09:10 - DeepSeek启动成立来最大规模招聘<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md
-- 2026-06-30 09:01 - 扬名立万<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md
-- 2026-06-30 09:07 - 城市规划有可能成为「屎山代码」吗？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md
-- 2026-06-30 09:13 - 巴西足球能否再现昔日荣光<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md
-- 2026-06-30 09:11 - 日本遭读秒绝杀 森保一：我水平不够<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md
-- 2026-06-30 09:27 - 我觉得你是在无中生友<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md
-- 2026-06-30 09:03 - 孙颖莎王楚钦晋级8强<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md
-- 2026-06-30 09:03 - 法总统候选人：拒绝与中国激烈对抗<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md
-- 2026-06-30 09:05 - 宜宾地震食客避难后折返 无人逃单<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md
-- 2026-06-30 09:05 - 请回答王牌2019<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md
-- 2026-06-30 09:04 - 穆祉丞回应获年度人气艺人<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md
-- 2026-06-30 09:06 - 有什么好的高中网课推荐吗？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md
-
-## 延伸阅读
-
-- 2026-06-30 09:06 - 锐评T1战胜KC<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/268424744170.shtml
-- 2026-06-30 09:11 - 大学生遇地震裹被子从5楼冲下<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/059112117624.shtml
-- 2026-06-30 09:15 - 女儿从清华毕业 爸爸晒出17年对比照<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/63388372.shtml
-- 2026-06-30 09:15 - 感动全网的699分女生想报考清华<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/29481.shtml
-- 2026-06-30 09:04 - 千万不要随便扣肚脐<br><br> | ??:http://www.share.minike.top/Article/details/559375.shtml
-- 2026-06-30 09:02 - 天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】<br><br> | ??:http://www.blog.minike.top/Article/details/2884570.shtml
-- 2026-06-30 09:20 - 庆祝中国共产党成立105周年大会将举行<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/4598301835.shtml
-- 2026-06-30 09:29 - 名记：灰熊将莫兰特交易至开拓者<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/3465352.shtml
-- 2026-06-30 09:22 - 女子用家人生日买彩票中1032万<br><br> | ??:http://www.blog.minike.top/Article/details/860626617.shtml
-- 2026-06-30 09:23 - 美股深夜大反弹 特斯拉飙涨8%<br><br> | ??:http://www.share.minike.top/Article/details/9028129.shtml
-- 2026-06-30 09:00 - 诺伊尔尽力了<br><br> | ??:https://www.blog.minike.top/Article/details/1053991.shtml
-- 2026-06-30 09:12 - 手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】<br><br> | ??:http://www.blog.minike.top/Article/details/41304.shtml
-- 2026-06-30 09:28 - Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？<br><br> | ??:https://www.share.minike.top/Article/details/68978.shtml
-- 2026-06-30 09:09 - 泰山景区建135公里刀片刺绳隔离网<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/800839210736.shtml
-- 2026-06-30 09:14 - 藤森庆子赢得秘鲁总统选举<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/283161995.shtml
+<h2>延伸阅读</h2><br>
+<h3>孙颖莎王楚钦晋级8强</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://www.share.minike.top/Article/details/551820154.shtml</p><br>
+<h3>索马里女大使：想和中国一起搞事业</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://www.share.minike.top/Article/details/45668160461.shtml</p><br>
+<h3>巴西vs日本</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:http://www.share.minike.top/Article/details/83781.shtml</p><br>
+<h3>为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/22961468.shtml</p><br>
+<h3>马宁怒怼巴拉圭教练组</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/67197.shtml</p><br>
+<h3>"超算小姐，这一次，我一定要带你出去..."</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:http://www.blog.minike.top/Article/details/384053042107.shtml</p><br>
+<h3>Melo向柳智敏张元英道歉</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:http://www.share.minike.top/Article/details/46971335.shtml</p><br>
+<h3>王楚钦孙颖莎混双对手产生</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:http://www.share.minike.top/Article/details/36257869.shtml</p><br>
+<h3>欧洲民众抢购空调降温</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:http://www.share.minike.top/Article/details/4753267435.shtml</p><br>
+<h3>iPhoneUltra黑色机模</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://www.blog.minike.top/Article/details/305238440747.shtml</p><br>
+<h3>卖菜老人获博主帮助后遇车祸去世</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/1547015415.shtml</p><br>
+<h3>日本球员说被绝杀非常不甘心</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/3780017.shtml</p><br>
+<h3>第一次对自信的力量有了实感</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://www.blog.minike.top/Article/details/34870593.shtml</p><br>
+<h3>手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/76367.shtml</p><br>
+<h3>存储芯片龙头提示风险</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/68885876.shtml</p><br>

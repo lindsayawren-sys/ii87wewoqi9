@@ -1,58 +1,46 @@
-# 龙舟竞渡齐奋进 粽叶飘香情谊浓 新疆各地多彩活动庆端午
+<h1>（乡村行·看振兴）贵州遵义：辣椒移栽正当时 科研育种助增收</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>中新网贵州遵义5月15日电 (陈海东 张伟)初夏时节，在贵州省遵义市汇川区团泽镇和平村，遵义市农科院科研基地内田垄上，十几位村民在科研人员指导下手持特制木棍，弯腰、打孔、放苗、拢土……动作一气呵成。这里是遵义市农科院辣椒研究所的种质资源创新与利用核心基地，也是该院辣椒新品种选育的“心脏”。 “这可不是普通的移栽。”辣椒研究所副所长任朝辉蹲在地头，手里拿着一根前端削尖的木棍，向记</p><br>
+<h2>正文</h2><br>
+<p>中新网贵州遵义5月15日电 (陈海东 张伟)初夏时节，在贵州省遵义市汇川区团泽镇和平村，遵义市农科院科研基地内田垄上，十几位村民在科研人员指导下手持特制木棍，弯腰、打孔、放苗、拢土……动作一气呵成。</p><br>
+<p>这里是遵义市农科院辣椒研究所的种质资源创新与利用核心基地，也是该院辣椒新品种选育的“心脏”。</p><br>
+<p>“这可不是普通的移栽。</p><br>
+<p>”辣椒研究所副所长任朝辉蹲在地头，手里拿着一根前端削尖的木棍，向记者演示起来，“这叫辣椒井窖式移栽方法。</p><br>
+<p>” 只见他利落地用木棍在覆膜的土地上戳出一个深约10厘米的洞，旁边的科研人员迅速将一株辣椒苗放入洞中，随手从四周拢过土来轻轻围住苗茎。</p><br>
+<p>“你看，这样移栽速度快，天气好的时候，一天能栽好几亩。</p><br>
+<p>封土的环节可以往后放，把集中操作拆成几个步骤，效率一下就上来了。</p><br>
+<p>” 不远处，几位科研人员正在另一垄地里忙碌。</p><br>
+<h2>相关推荐</h2><br>
+<h3>iPhoneUltra黑色机模</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md</p><br>
+<h3>如何看待武亮说大学生生活费1500就够用这一言论？</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md</p><br>
+<h3>“柠檬茶能换怀表？”</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md</p><br>
+<h3>这一刀 会很帅</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md</p><br>
+<h3>巴西vs日本</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md</p><br>
+<h3>警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md</p><br>
+<h3>「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md</p><br>
+<h3>免费试吃发差评被店家挂店门避雷</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md</p><br>
+<h3>孙兴慜道歉</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md</p><br>
+<h3>藤森庆子赢得秘鲁总统选举</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md</p><br>
+<h3>日本进球</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md</p><br>
+<h3>扬名立万</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md</p><br>
+<h3>吴启华卖肖像权拍AI电影</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md</p><br>
 
-粽香漫染天山阔，各族同心庆端阳。 今年端午节，为弘扬中华优秀传统文化，丰富群众精神文化生活，营造欢乐祥和的节日氛围，铸牢中华民族共同体意识，我区各地开展了一系列主题鲜明、形式多样的群众文化活动，各族群众在尽享“端午文化大餐”的同时，感受到了优秀传统文化的软实力、同心筑梦的聚合力、乡村振兴的新活力。 端午节的重要文化习俗活动中，赛龙舟是最具视觉冲击力与精神凝聚力的项目之一。与往年
-
-## 正文
-
-粽香漫染天山阔，各族同心庆端阳。
-
-今年端午节，为弘扬中华优秀传统文化，丰富群众精神文化生活，营造欢乐祥和的节日氛围，铸牢中华民族共同体意识，我区各地开展了一系列主题鲜明、形式多样的群众文化活动，各族群众在尽享“端午文化大餐”的同时，感受到了优秀传统文化的软实力、同心筑梦的聚合力、乡村振兴的新活力。
-
-端午节的重要文化习俗活动中，赛龙舟是最具视觉冲击力与精神凝聚力的项目之一。
-
-与往年不同的是，在人们印象中缺水的新疆，很多地方的旱龙舟变成了水龙舟，且龙舟赛规模在变大。
-
-“以前我从来没有想过，在我们家门口就能看到像电视里才有的龙舟赛。
-
-”6月19日端午节当天，沙雅县沙雅镇团结社区居民古丽皮耶·麦麦提，和家人聊起两天前在沙雅县举办的2026年阿克苏地区“托峰杯”全疆龙舟邀请赛时，心情依然激动。
-
-这场龙舟邀请赛，由阿克苏地区及新疆生产建设兵团第一师阿拉尔市、新疆理工学院的十余支龙舟队参加。
-
-古丽皮耶看到，在平静的金雁河‌水域，随着发令声响，每一艘龙舟都像离弦的箭往前冲，龙舟上不同民族的划手随着铿锵鼓点奋力挥桨，鼓声、号子声以及岸上的加油声交织在一起，整齐而有力。
-
-## 相关推荐
-
-- 2026-06-30 09:02 - 全新问界M9现身美国街头<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md
-- 2026-06-30 09:26 - 城市规划有可能成为「屎山代码」吗？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md
-- 2026-06-30 09:01 - 2021江苏卫视跨年演唱会<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md
-- 2026-06-30 09:04 - 巴拉圭门将<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md
-- 2026-06-30 09:14 - 日本主帅：未能夺冠深感抱歉<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md
-- 2026-06-30 09:18 - 陈小春人老了干什么也不心酸<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md
-- 2026-06-30 09:17 - 高考填志愿父亲和女儿产生分歧<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md
-- 2026-06-30 09:16 - 古代人对纳妾的态度是什么样的？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md
-- 2026-06-30 09:19 - 国务院：稳步推进研究生考试招生改革<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md
-- 2026-06-30 09:02 - 现在叛逆期的孩子最怕的是什么？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md
-- 2026-06-30 09:22 - 天道<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md
-- 2026-06-30 09:15 - 7月1日起 一批新规即将落地<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md
-
-## 延伸阅读
-
-- 2026-06-30 09:10 - 齐思钧回复张月<br><br> | ??:http://www.blog.minike.top/Article/details/961485137.shtml
-- 2026-06-30 09:16 - 点球大战 残酷<br><br> | ??:https://www.share.kurohicncr.top/Article/details/360560536602.shtml
-- 2026-06-30 09:02 - 曝灰熊将莫兰特交易至开拓者<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/39650.shtml
-- 2026-06-30 09:23 - “荒唐”背后的韩国足球<br><br> | ??:https://www.share.minike.top/Article/details/83208837.shtml
-- 2026-06-30 09:27 - 周冬雨多次说演不了话剧文城<br><br> | ??:https://www.blog.minike.top/Article/details/4566555.shtml
-- 2026-06-30 09:23 - 警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/4635650.shtml
-- 2026-06-30 09:14 - 我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎<br><br> | ??:https://www.share.kurohicncr.top/Article/details/46117838.shtml
-- 2026-06-30 09:19 - 日本将帅赛后采访纷纷哽咽落泪<br><br> | ??:https://www.share.minike.top/Article/details/82968196.shtml
-- 2026-06-30 09:12 - 如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/288074921494.shtml
-- 2026-06-30 09:29 - 被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】<br><br> | ??:http://www.share.kurohicncr.top/Article/details/39797739.shtml
-- 2026-06-30 09:20 - 欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？<br><br> | ??:https://www.share.minike.top/Article/details/52405355.shtml
-- 2026-06-30 09:08 - 马宁怒怼巴拉圭教练组<br><br> | ??:http://www.share.minike.top/Article/details/715574.shtml
-- 2026-06-30 09:27 - 男子在非洲务工死亡 公司不认可工亡<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/19781204.shtml
-- 2026-06-30 09:21 - 韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/8475067.shtml
-- 2026-06-30 09:15 - 德国巴拉圭进入点球大战<br><br> | ??:http://www.share.minike.top/Article/details/8292813.shtml
+<h2>延伸阅读</h2><br>
+<h3>如何把斧兵改造成精英怪？提高攻速移速！！！</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/51373.shtml</p><br>
+<h3>租房时你会更看重「住得舒服」，还是「每天通勤更方便」？</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/905935617425.shtml</p><br>
+<h3>韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://www.blog.minike.top/Article/details/2431217.shtml</p><br>
+<h3>未来的飞机可能会用电吗？</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/1515934012.shtml</p><br>
+<h3>网瘾賊大的阿嬷</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://www.share.minike.top/Article/details/232478034694.shtml</p><br>
+<h3>法媒点赞中国小区楼顶“人工降雨”</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:http://www.share.minike.top/Article/details/13470.shtml</p><br>
+<h3>天道</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:http://www.share.minike.top/Article/details/078384355701.shtml</p><br>
+<h3>森保一致歉：世界第一目标没能实现</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://www.share.minike.top/Article/details/335451081.shtml</p><br>
+<h3>德国巴拉圭 折磨</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/31333706.shtml</p><br>
+<h3>巴西2-1绝杀日本</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://www.share.minike.top/Article/details/149969635.shtml</p><br>
+<h3>泰山景区建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://www.blog.minike.top/Article/details/847870.shtml</p><br>
+<h3>欧洲空调卖疯了 下一个爆款是储能吗</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/94267133163.shtml</p><br>
+<h3>日本队5进世界杯淘汰赛0胜</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/7206385384.shtml</p><br>
+<h3>如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:http://www.blog.minike.top/Article/details/07228108362.shtml</p><br>
+<h3>国务院：稳步推进研究生考试招生改革</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:http://www.blog.minike.top/Article/details/1183991815.shtml</p><br>

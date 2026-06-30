@@ -1,58 +1,43 @@
-# 端午节厦金“小三通”客流持续攀升 两岸同胞跨海共度佳节
+<h1>雅马哈发动机一季度净利润飙升34.5% 摩托车业务强势增长</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>核心财务数据 雅马哈发动机公司近日公布了2026财年第一季度财报。报告期内，营收同比增长16.6%至7301.21亿日元，较市场预测的6867亿日元高出约6%。归属于母公司股东的净利润达412.60亿日元，同比增长34.5%，远超市场预期的255.67亿日元。GAAP每股收益为42.49日元，上年同期为31.45日元。营业利润同比增长43.8%至626亿日元，显示出强劲的盈利动</p><br>
+<h2>正文</h2><br>
+<p>核心财务数据 雅马哈发动机公司近日公布了2026财年第一季度财报。</p><br>
+<p>报告期内，营收同比增长16.6%至7301.21亿日元，较市场预测的6867亿日元高出约6%。</p><br>
+<p>归属于母公司股东的净利润达412.60亿日元，同比增长34.5%，远超市场预期的255.67亿日元。</p><br>
+<p>GAAP每股收益为42.49日元，上年同期为31.45日元。</p><br>
+<p>营业利润同比增长43.8%至626亿日元，显示出强劲的盈利动能。</p><br>
+<p>摩托车业务成增长主力 业绩飙升的核心驱动力来自Land Mobility部门，尤其是摩托车业务。</p><br>
+<p>该部门营收同比增长23.7%，利润大幅增长。</p><br>
+<p>其中，欧美市场需求旺盛，以越南为代表的新兴市场出现复苏。</p><br>
+<h2>相关推荐</h2><br>
+<h3>美加墨世界杯：亚洲足球的得意与失意</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md</p><br>
+<h3>武磊：巴西队赢的并不轻松</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md</p><br>
+<h3>湖北云南这些涉汛信息都是假的</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md</p><br>
+<h3>亚洲球队全部告别世界杯</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md</p><br>
+<h3>黄晓明晒和周杰伦的合照</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md</p><br>
+<h3>庆祝建党105周年特别节目</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md</p><br>
+<h3>你这一辈子有没有为进山姆拼过命？</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md</p><br>
+<h3>女子健身不当 居然“脑子漏水”了</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md</p><br>
+<h3>荷兰vs摩洛哥</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md</p><br>
+<h3>日本队被绝杀后鞠躬致谢观众</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md</p><br>
 
-中新网厦门6月19日电 (吴冠标 罗嘉伟)6月19日是中国传统节日端午节，当天厦金“小三通”客运航线客流持续走高，全天出入境旅客总量预计超7100人次，厦门五通客运码头一片繁忙景象。 19日清晨7点45分，首班前往金门的出境客轮开启检票，大厅里排起长队，许多在厦工作生活的台胞搭乘早班船回乡团圆。出境大厅内，不少旅客行囊满满，干货海产、特色点心、端午礼袋堆满手推车。 来自台南的林
-
-## 正文
-
-中新网厦门6月19日电 (吴冠标 罗嘉伟)6月19日是中国传统节日端午节，当天厦金“小三通”客运航线客流持续走高，全天出入境旅客总量预计超7100人次，厦门五通客运码头一片繁忙景象。
-
-19日清晨7点45分，首班前往金门的出境客轮开启检票，大厅里排起长队，许多在厦工作生活的台胞搭乘早班船回乡团圆。
-
-出境大厅内，不少旅客行囊满满，干货海产、特色点心、端午礼袋堆满手推车。
-
-来自台南的林水树一家，日前到厦门观光旅游，今天从五通码头搭船返台。
-
-谈及台湾的端午习俗，林水树表示，两岸同根同俗，端午节庆氛围与饮食习俗皆大同小异。
-
-“台湾粽子的口味与大陆相近，大致分为咸粽和甜粽两类，台南地区偏爱咸粽，馅料扎实、风味浓郁。
-
-” 当天也有不少台胞旅客趁着端午节来厦门探亲访友，带上家乡特产与厦门亲友互换品尝，还计划逛逛当地端午市集、观赏龙舟赛事。
-
-他们表示，如今厦金“小三通”客运航线班次密集、往来便捷，不用特意凑长假，小长假就能前来观光散心，走亲访友、短途游玩两相宜。
-
-## 相关推荐
-
-- 2026-06-30 09:23 - 好像看到了人类带孩子崩溃的样子<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md
-- 2026-06-30 09:00 - 大学生遇地震裹被子从5楼冲下<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md
-- 2026-06-30 09:16 - 一直以为方便面汤是要倒掉的<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md
-- 2026-06-30 09:10 - 荀彧和曹操反目成仇的根本原因是什么？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md
-- 2026-06-30 09:00 - 金鹰奖视后提名预测<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md
-- 2026-06-30 09:16 - 为什么小组赛出局会让韩国人破防<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md
-- 2026-06-30 09:03 - 内马尔中场休息积极鼓励队友<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md
-- 2026-06-30 09:06 - 中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md
-- 2026-06-30 09:26 - 巴西vs日本<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md
-- 2026-06-30 09:13 - 巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md
-- 2026-06-30 09:15 - 巴拉圭点球大战淘汰德国进16强<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md
-- 2026-06-30 09:08 - 小娘惹<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md
-
-## 延伸阅读
-
-- 2026-06-30 09:19 - 法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？<br><br> | ??:https://www.blog.minike.top/Article/details/90210561439.shtml
-- 2026-06-30 09:07 - 网友写差评被店家“挂”门口避雷<br><br> | ??:http://www.blog.minike.top/Article/details/106745.shtml
-- 2026-06-30 09:14 - 欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？<br><br> | ??:https://www.share.minike.top/Article/details/02222466.shtml
-- 2026-06-30 09:24 - 爱直接对嘴喝饮料的人天塌了<br><br> | ??:http://www.share.minike.top/Article/details/1828827338.shtml
-- 2026-06-30 09:07 - “柠檬茶能换怀表？”<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/140573601704.shtml
-- 2026-06-30 09:11 - 12人以护剧为名敲诈剧组艺人被抓<br><br> | ??:https://www.share.kurohicncr.top/Article/details/576318257.shtml
-- 2026-06-30 09:23 - 81岁老人被男子买光菜回家车祸去世<br><br> | ??:http://www.share.minike.top/Article/details/29048213.shtml
-- 2026-06-30 09:03 - 王楚钦孙颖莎vs皮斯特耶库库洛娃<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/53799870.shtml
-- 2026-06-30 09:28 - 要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活<br><br> | ??:https://www.share.minike.top/Article/details/6601162.shtml
-- 2026-06-30 09:23 - 中国新一轮出口管制直指日本命脉<br><br> | ??:http://www.share.minike.top/Article/details/46309.shtml
-- 2026-06-30 09:09 - 杨紫获白玉兰视后为何争议难平<br><br> | ??:https://www.blog.minike.top/Article/details/103438421413.shtml
-- 2026-06-30 09:00 - 全球芯片巨头史诗级扩产<br><br> | ??:http://www.share.kurohicncr.top/Article/details/491444235181.shtml
-- 2026-06-30 09:16 - 送你一朵小红花<br><br> | ??:http://www.share.kurohicncr.top/Article/details/0435185766.shtml
-- 2026-06-30 09:04 - 杨紫大银幕成绩单如何<br><br> | ??:http://www.share.minike.top/Article/details/870468840.shtml
-- 2026-06-30 09:05 - 如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？<br><br> | ??:http://www.share.minike.top/Article/details/141791099.shtml
+<h2>延伸阅读</h2><br>
+<h3>檀健次王楚然吻戏看热了</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/14665913147.shtml</p><br>
+<h3>女子遭下药退赔偿拟追刑责</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:http://www.blog.minike.top/Article/details/2945031.shtml</p><br>
+<h3>男子P图现任妻子照片冒充前妻</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://www.blog.minike.top/Article/details/86205.shtml</p><br>
+<h3>全新问界M9现身美国街头</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:http://www.share.minike.top/Article/details/569007.shtml</p><br>
+<h3>名记：灰熊将莫兰特交易至开拓者</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/84644740.shtml</p><br>
+<h3>董卿母亲癌症去世</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/98543.shtml</p><br>
+<h3>普京为何将俄乌谈判时间表与伊朗挂钩</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/52746.shtml</p><br>
+<h3>如何评价《龙之家族》第三季第二集？</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/8523536798.shtml</p><br>
+<h3>2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://www.share.minike.top/Article/details/1130731674.shtml</p><br>
+<h3>房价什么时候能涨</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/81476992331.shtml</p><br>
+<h3>女子发现孩子非现任亲生状告前任索赔</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/416556222.shtml</p><br>
+<h3>男子诋毁袁隆平科研成果被刑拘</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://www.blog.minike.top/Article/details/626305620251.shtml</p><br>
+<h3>青春环游记第三季</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/632333958552.shtml</p><br>
+<h3>世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://www.blog.minike.top/Article/details/860098504.shtml</p><br>
+<h3>健全中小学教师工资长效联动机制</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/732025024467.shtml</p><br>

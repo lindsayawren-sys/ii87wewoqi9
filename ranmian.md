@@ -1,50 +1,45 @@
-# 香格里拉：闲置藏房变身民宿 沉浸式体验藏地生活
+<h1>文脉华章丨四川的博物馆太夯了！1年1.06亿人次认证</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>川观新闻记者 吴晓铃 视频剪辑 周芷冰 四川的博物馆究竟有多热？5月15日，四川省文物局、重庆市文旅委与四川省博物馆学会、重庆市博物馆协会联合发布《2025年川渝博物馆事业发展报告》。报告显示，过去一年，川渝两地博物馆共接待观众超1.51亿人次，其中四川全年累计接待观众就达1.06亿人次，同比增长23.54%，创下历史新高。备案博物馆数量达459家，全年推出的临展特展达到了13</p><br>
+<h2>正文</h2><br>
+<p>川观新闻记者 吴晓铃 视频剪辑 周芷冰 四川的博物馆究竟有多热？</p><br>
+<p>5月15日，四川省文物局、重庆市文旅委与四川省博物馆学会、重庆市博物馆协会联合发布《2025年川渝博物馆事业发展报告》。</p><br>
+<p>报告显示，过去一年，川渝两地博物馆共接待观众超1.51亿人次，其中四川全年累计接待观众就达1.06亿人次，同比增长23.54%，创下历史新高。</p><br>
+<p>备案博物馆数量达459家，全年推出的临展特展达到了1384之多。</p><br>
+<p>1.06亿人次 观众人次再创历史新高 很多喜欢逛博物馆的观众，都亲身体会过四川博物馆的热度。</p><br>
+<p>三星堆博物馆的门票抢到算运气、成都博物馆几层楼的展厅里总是人头涌动，要是春节去成都武侯祠博物馆逛一下大庙会，更是热闹到接踵摩肩的程度。</p><br>
+<p>观众“体感”绝对真实。</p><br>
+<p>数据显示，过去一年，四川各大博物馆全年累计接待观众1.06亿人次，同比增长23.54%，再创历史新高。</p><br>
+<h2>相关推荐</h2><br>
+<h3>啊啊啊</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md</p><br>
+<h3>【硬核拆解】汽车人到底离我们有多远？</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md</p><br>
+<h3>宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md</p><br>
+<h3>法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md</p><br>
+<h3>勇士续约波尔津吉斯</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md</p><br>
+<h3>美人鱼</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md</p><br>
+<h3>金鹰奖视后提名预测</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md</p><br>
+<h3>美股深夜大反弹 特斯拉飙涨8%</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md</p><br>
+<h3>日本队5进世界杯淘汰赛0胜</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md</p><br>
+<h3>日本博主：日本足球真的垃圾</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md</p><br>
+<h3>日本队5进世界杯淘汰赛0胜</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md</p><br>
+<h3>极端热浪席卷欧洲多国，热一热百姓让领导先凉快？</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md</p><br>
 
-发布时间：2026年06月21日 18:56 来源：中国新闻网 近年来，云南省迪庆藏族自治州香格里拉市小中甸镇联合村，全力推进农村人居环境整治提升，一批传统藏式老宅通过活化利用重焕生机。 当地传统民居为土木结构碉房，过去村民一楼圈养牲畜、二楼居住生活。随着生活方式转变，大量老宅闲置、利用率偏低。当地立足藏房资源，将承载乡愁与文化记忆的藏式老宅改造为高品质特色民宿，串联千湖山、碧
-
-## 正文
-
-发布时间：2026年06月21日 18:56 来源：中国新闻网 近年来，云南省迪庆藏族自治州香格里拉市小中甸镇联合村，全力推进农村人居环境整治提升，一批传统藏式老宅通过活化利用重焕生机。
-
-当地传统民居为土木结构碉房，过去村民一楼圈养牲畜、二楼居住生活。
-
-随着生活方式转变，大量老宅闲置、利用率偏低。
-
-当地立足藏房资源，将承载乡愁与文化记忆的藏式老宅改造为高品质特色民宿，串联千湖山、碧古天池、小中甸花海等自然景观，着力打造藏文化深度体验、高原生态观光、户外徒步休闲于一体的农文旅融合发展示范区。
-
-(陆星羽） 责任编辑：【李季】
-
-## 相关推荐
-
-- 2026-06-30 09:17 - 商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md
-- 2026-06-30 09:08 - 小娘惹<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md
-- 2026-06-30 09:07 - 主人解开狗绳2只狗将路人撕咬致死<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md
-- 2026-06-30 09:21 - 锐评T1战胜KC<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md
-- 2026-06-30 09:00 - 亚洲球队全部告别世界杯<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md
-- 2026-06-30 09:12 - 恋与深空道歉声明<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md
-- 2026-06-30 09:14 - 一切民族英雄都是中华民族的脊梁<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md
-- 2026-06-30 09:28 - 日耳曼拖拉机<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md
-- 2026-06-30 09:16 - 道友？你来真的啊？【凡人官方二创大会】<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md
-- 2026-06-30 09:13 - 奔跑吧·黄河篇第二季<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md
-
-## 延伸阅读
-
-- 2026-06-30 09:01 - 世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/166810711.shtml
-- 2026-06-30 09:05 - 苗族银饰<br><br> | ??:https://www.share.minike.top/Article/details/8033864530.shtml
-- 2026-06-30 09:21 - 男子醉酒溺水获救后同行人拒协助抬人<br><br> | ??:https://www.share.minike.top/Article/details/54819.shtml
-- 2026-06-30 09:15 - 王楚钦孙颖莎vs皮斯特耶库库洛娃<br><br> | ??:https://www.blog.minike.top/Article/details/60133.shtml
-- 2026-06-30 09:08 - “错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】<br><br> | ??:https://www.share.kurohicncr.top/Article/details/73360985.shtml
-- 2026-06-30 09:10 - 2021江苏卫视跨年演唱会<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/62900948.shtml
-- 2026-06-30 09:03 - 快递到家不能这样拆<br><br> | ??:https://www.share.kurohicncr.top/Article/details/756231729.shtml
-- 2026-06-30 09:12 - 普京为何将俄乌谈判时间表与伊朗挂钩<br><br> | ??:http://www.share.kurohicncr.top/Article/details/4054783990.shtml
-- 2026-06-30 09:03 - 这几秒成世界杯最值钱广告位<br><br> | ??:http://www.share.kurohicncr.top/Article/details/17213447054.shtml
-- 2026-06-30 09:17 - 有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/872343.shtml
-- 2026-06-30 09:23 - 收到补税提醒尽快办理 明起有滞纳金<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/6329027.shtml
-- 2026-06-30 09:19 - 全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/497182685.shtml
-- 2026-06-30 09:04 - 疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！<br><br> | ??:http://www.share.minike.top/Article/details/30541.shtml
-- 2026-06-30 09:29 - 巴西2-1绝杀日本<br><br> | ??:https://www.share.minike.top/Article/details/423739486.shtml
-- 2026-06-30 09:22 - 【Reaction】女生最少的5款游戏<br><br> | ??:https://www.blog.minike.top/Article/details/6940861.shtml
+<h2>延伸阅读</h2><br>
+<h3>徐亮怒斥世界杯踢假球</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/38536.shtml</p><br>
+<h3>如何看待武亮说大学生生活费1500就够用这一言论？</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:https://www.share.minike.top/Article/details/815045038184.shtml</p><br>
+<h3>黄晓明夸昆凌引杨颖对比</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:http://www.blog.minike.top/Article/details/92308484277.shtml</p><br>
+<h3>iPhoneUltra黑色机模</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/201353194.shtml</p><br>
+<h3>2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/2760429457.shtml</p><br>
+<h3>日本球迷输球后集体捡垃圾</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://www.share.minike.top/Article/details/84994105.shtml</p><br>
+<h3>上市央企地产商 两年换了三任董事长</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/49471.shtml</p><br>
+<h3>巴拉圭点球大战淘汰德国进16强</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://www.blog.minike.top/Article/details/6625080.shtml</p><br>
+<h3>如何看待武亮说大学生生活费1500就够用这一言论？</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:http://www.blog.minike.top/Article/details/3608502074.shtml</p><br>
+<h3>这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:http://www.blog.minike.top/Article/details/2715856.shtml</p><br>
+<h3>2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/49470208.shtml</p><br>
+<h3>日本主帅：未能夺冠深感抱歉</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://www.blog.minike.top/Article/details/811861244262.shtml</p><br>
+<h3>王健林甩卖超80座万达广场</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/77262845751.shtml</p><br>
+<h3>当我知道豆包有后台审核人员</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:http://www.share.minike.top/Article/details/25668874543.shtml</p><br>
+<h3>巴拉圭率先破门</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://www.share.minike.top/Article/details/633606391758.shtml</p><br>

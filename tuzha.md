@@ -1,59 +1,43 @@
-# 包粽品茗编龙舟 悉尼谊园端午味正浓
+<h1>重庆举行水库大坝安全管理应急示范演练 机器狗、水下机器人齐上阵</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>中新网重庆5月16日电 (记者 刘相琳)重庆市2026年度水库大坝安全管理应急示范演练15日在云阳县太地水库举行。演练以强降雨引发水库险情为背景，动用无人机、无人船、机器狗、水下机器人等智能装备，构建“水陆空”一体化应急处置体系，为重庆水库安全度汛提供实战示范。 本次演练模拟杉树沟流域发生强降雨、太地水库可能发生险情的情景，聚焦极端天气情况下可能出现的重大风险挑战，涵盖监测预报</p><br>
+<h2>正文</h2><br>
+<p>中新网重庆5月16日电 (记者 刘相琳)重庆市2026年度水库大坝安全管理应急示范演练15日在云阳县太地水库举行。</p><br>
+<p>演练以强降雨引发水库险情为背景，动用无人机、无人船、机器狗、水下机器人等智能装备，构建“水陆空”一体化应急处置体系，为重庆水库安全度汛提供实战示范。</p><br>
+<p>本次演练模拟杉树沟流域发生强降雨、太地水库可能发生险情的情景，聚焦极端天气情况下可能出现的重大风险挑战，涵盖监测预报、会商研判、动态预警、风险分析、高新技术支撑、应急转移等关键环节，并设置智能巡查分析、应急救援、大坝管涌封堵、群众转移、紧急泄洪和反恐处置等典型险情处置场景，为全市水库应急演练提供蓝本和示范。</p><br>
+<p>水利、气象、应急、公安、镇政府等多部门协同作战，科学应对流域洪水、水库失事、山洪灾害“三大风险”。</p><br>
+<p>云阳县副县长吴大伦表示，云阳地处三峡库区腹心，共有注册登记水库178座，位居重庆第4位，安全管理任务艰巨。</p><br>
+<p>近年来，云阳县严格落实水库安全“三个责任人”，构建全员参与、全程管控、全域覆盖的人防体系；145座乡镇水库实现国企统一管理，115座完成标准化达标创建；同时构建“天空地水工”立体监测体系，配备无人机、无人船、水下机器人等智能设备和视频监控系统496套，监测在线率稳定在99%以上，以水利新质生产力提升安全管控效能。</p><br>
+<p>云阳县将以此次演练为契机，进一步压实责任、补齐短板，全力守护群众生命财产安全和一库碧水安澜。</p><br>
+<p>重庆市水利局副局长黄明忠在点评中强调，重庆各区县要充分运用“水利工程运行智管”应用，强化汛期“四预”管理，做实水库抢险预案，明确非常溢洪道开挖、群众转移组织等关键环节，病险水库和小型土石坝要提前在现场储备铺盖彩条布、编织袋、砂石料等抢险物资，切实保障极端情况下“拿得出、用得上”。</p><br>
+<h2>相关推荐</h2><br>
+<h3>想问一下学日语的大佬，自学日语要怎么学？</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md</p><br>
+<h3>德国爆冷点球大战不敌巴拉圭</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md</p><br>
+<h3>蔚来回应高压水枪洗车掉漆</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md</p><br>
+<h3>又一家县级医院关停门诊输液大厅</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md</p><br>
+<h3>【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md</p><br>
+<h3>韩国道歉完日本道歉</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md</p><br>
+<h3>德国身价是巴拉圭6倍</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md</p><br>
+<h3>为什么纣王似乎对周文王的扩张完全无动于衷？</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md</p><br>
+<h3>杨紫大银幕成绩单如何</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md</p><br>
+<h3>男子醉酒溺水获救后同行人拒搭手</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md</p><br>
 
-中新社悉尼6月21日电 (记者 薄雯雯)为庆祝中国传统端午佳节，“茶和天下——悉尼端午游园会”于20日至21日在澳大利亚悉尼谊园举行，吸引超2000名当地民众和游客参与。 谊园位于悉尼市中心，全称“中国友谊花园”(Chinese Garden of Friendship)。活动期间，古色古香的园林内粽香四溢、茶香袅袅，洋溢着浓厚的节日氛围。 本次活动由悉尼中国文化中心、中国驻悉
-
-## 正文
-
-中新社悉尼6月21日电 (记者 薄雯雯)为庆祝中国传统端午佳节，“茶和天下——悉尼端午游园会”于20日至21日在澳大利亚悉尼谊园举行，吸引超2000名当地民众和游客参与。
-
-谊园位于悉尼市中心，全称“中国友谊花园”(Chinese Garden of Friendship)。
-
-活动期间，古色古香的园林内粽香四溢、茶香袅袅，洋溢着浓厚的节日氛围。
-
-本次活动由悉尼中国文化中心、中国驻悉尼旅游办事处与天津市文化和旅游局共同主办。
-
-包粽子、品香茗、竹编龙舟等互动体验区前人头攒动，天津端午特色“老虎耷拉”布艺制作、天津茉莉花茶拼配工艺等非遗项目也备受欢迎。
-
-来自中国广州的刘丽君与法国籍丈夫在悉尼定居近十年。
-
-得知谊园举办端午活动，她专程带着11岁的儿子刘皓俊(Clement)前来体验。
-
-“他只会说一点中文，但一直对中国文化很感兴趣。
-
-## 相关推荐
-
-- 2026-06-30 09:09 - 有哪些值得一提的生活窍门？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md
-- 2026-06-30 09:28 - 7月1日起 一批新规即将落地<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md
-- 2026-06-30 09:06 - 马杜罗账号在纽约发文致谢各国援助<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md
-- 2026-06-30 09:07 - 《恋与深空》被指触碰民族伤痛红线<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md
-- 2026-06-30 09:18 - 荀彧和曹操反目成仇的根本原因是什么？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md
-- 2026-06-30 09:18 - 如何改变自己太负责任的性格?<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md
-- 2026-06-30 09:06 - 巴拉圭先进球了<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md
-- 2026-06-30 09:29 - “以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md
-- 2026-06-30 09:14 - 7月1日起 一批新规即将落地<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md
-- 2026-06-30 09:03 - 挪威国家队紧急从本土订购大批海鲜<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md
-- 2026-06-30 09:13 - 我把队友的7连跪剪成了艺术<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md
-- 2026-06-30 09:20 - 【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md
-- 2026-06-30 09:17 - 国务院：稳步推进研究生考试招生改革<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md
-
-## 延伸阅读
-
-- 2026-06-30 09:17 - 德国爆冷点球大战不敌巴拉圭<br><br> | ??:http://www.share.minike.top/Article/details/4925681.shtml
-- 2026-06-30 09:09 - 千与千寻<br><br> | ??:https://www.blog.minike.top/Article/details/702376356.shtml
-- 2026-06-30 09:18 - 曝老詹对自由市场态度与以往截然不同<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/690239.shtml
-- 2026-06-30 09:10 - 千万不要随便扣肚脐<br><br> | ??:http://www.blog.minike.top/Article/details/803332592160.shtml
-- 2026-06-30 09:08 - 我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎<br><br> | ??:http://www.share.minike.top/Article/details/0334799025.shtml
-- 2026-06-30 09:27 - 欧盟分楼层开空调惹争议<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/5914112245.shtml
-- 2026-06-30 09:19 - 恋与深空回应争议<br><br> | ??:https://www.share.kurohicncr.top/Article/details/24354573.shtml
-- 2026-06-30 09:22 - 《共患难》<br><br> | ??:https://www.share.kurohicncr.top/Article/details/85693954899.shtml
-- 2026-06-30 09:19 - 极限挑战第一季<br><br> | ??:https://www.share.minike.top/Article/details/441028624.shtml
-- 2026-06-30 09:18 - 发明linux、python、redis、nginx、sqlite的人算不算天才？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/46925814.shtml
-- 2026-06-30 09:05 - 有哪些值得一提的生活窍门？<br><br> | ??:http://www.blog.minike.top/Article/details/666335925.shtml
-- 2026-06-30 09:04 - 感动全网的699分女生想报考清华<br><br> | ??:http://www.share.minike.top/Article/details/67116719.shtml
-- 2026-06-30 09:10 - 金牌调解<br><br> | ??:https://www.share.minike.top/Article/details/5068122.shtml
-- 2026-06-30 09:26 - 本届世界杯已有5名球员被控强奸<br><br> | ??:http://www.share.minike.top/Article/details/649806801731.shtml
-- 2026-06-30 09:20 - 人类...完蛋了...<br><br> | ??:https://www.share.kurohicncr.top/Article/details/7320357.shtml
+<h2>延伸阅读</h2><br>
+<h3>杨紫获白玉兰视后为何争议难平</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:http://www.blog.minike.top/Article/details/69060776.shtml</p><br>
+<h3>国内最大沙漠发洪水意味着什么</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/877646.shtml</p><br>
+<h3>国内最大沙漠发洪水意味着什么</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/675810733.shtml</p><br>
+<h3>孙兴慜道歉</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/7041172.shtml</p><br>
+<h3>如何评价杨紫白玉兰获奖</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/769427691.shtml</p><br>
+<h3>为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/6855917.shtml</p><br>
+<h3>全球芯片巨头史诗级扩产</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/73828297899.shtml</p><br>
+<h3>内马尔安慰日本球员</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/663294.shtml</p><br>
+<h3>流金岁月</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.share.minike.top/Article/details/74077.shtml</p><br>
+<h3>吴启华卖肖像权拍AI电影</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/2146405.shtml</p><br>
+<h3>泰山建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/2019644.shtml</p><br>
+<h3>Melo向柳智敏张元英道歉</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/230009396059.shtml</p><br>
+<h3>法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://www.share.minike.top/Article/details/47281164.shtml</p><br>
+<h3>这种关系可能正在悄悄“催老”你</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://www.share.minike.top/Article/details/1235487306.shtml</p><br>
+<h3>爱直接对嘴喝饮料的人天塌了</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://www.share.minike.top/Article/details/6102517342.shtml</p><br>

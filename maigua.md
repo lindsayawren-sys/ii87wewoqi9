@@ -1,52 +1,45 @@
-# 交通运输部：7省份地区连续降雨，公路交通存在高风险
+<h1>515投资者保护 | 27期漫画36万阅读！银华《投资者避坑宝典》系列投保栏目荣获2026年度投教项目优秀实践奖</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>专题：515投资者保护！新浪财经2026年度投教案例评选结果公布 5月15日，新浪财经2026年度基金投教案例评选结果正式揭晓。银华基金凭借《投资者避坑宝典》系列投保栏目，荣获2026年度“投教项目优秀实践奖”。 据悉，银华基金依托自有官方微信公众号等媒体矩阵，打造了聚焦投资者保护的趣味漫画科普专栏——《投资者避坑宝典》 该专栏以投资者保护为核心，采用趣味漫画形式，将理财知识、</p><br>
+<h2>正文</h2><br>
+<p>专题：515投资者保护！</p><br>
+<p>新浪财经2026年度投教案例评选结果公布 5月15日，新浪财经2026年度基金投教案例评选结果正式揭晓。</p><br>
+<p>银华基金凭借《投资者避坑宝典》系列投保栏目，荣获2026年度“投教项目优秀实践奖”。</p><br>
+<p>据悉，银华基金依托自有官方微信公众号等媒体矩阵，打造了聚焦投资者保护的趣味漫画科普专栏——《投资者避坑宝典》 该专栏以投资者保护为核心，采用趣味漫画形式，将理财知识、投资诈骗套路、合规注意事项等内容，转化为通俗易懂的作品，让投资者轻松掌握知识、增强风险防范能力。</p><br>
+<p>专栏每月定期发布，公司依托自有官方微信公众号等媒体矩阵，同步联动银行渠道、理财通、蚂蚁财富、同花顺、天天基金、京东金融等主流线上平台矩阵广泛传播；截至目前，专栏自2025年上线以来已稳定连载发布27期，内容持续更新、常态化输出。</p><br>
+<p>总阅读量累计突破36.5w次。</p><br>
+<p>内容先后被证券业协会、基金业协会等多个监管自律组织积极转发，其中7篇内容被证券业协会官方指定媒体中国投资者网转载刊发，3篇获中国基金业协会官方转发，1篇获得中国证券业协会官方平台展示，专业内容获得监管及行业权威机构高度肯定。</p><br>
+<p>责任编辑：江钰涵</p><br>
+<h2>相关推荐</h2><br>
+<h3>国务院：鼓励行业龙头企业举办职校</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md</p><br>
+<h3>巴西在进攻三区完成210脚传球</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md</p><br>
+<h3>消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md</p><br>
+<h3>教育部披露：高考生篡改7名同学志愿</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md</p><br>
+<h3>为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md</p><br>
+<h3>董卿父亲报纸上发文悼念亡妻</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md</p><br>
+<h3>如何看待武亮说大学生生活费1500就够用这一言论？</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md</p><br>
+<h3>城市规划有可能成为「屎山代码」吗？</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md</p><br>
+<h3>你这一辈子有没有为进山姆拼过命？</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md</p><br>
+<h3>这几秒成世界杯最值钱广告位</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md</p><br>
+<h3>日本队5进世界杯淘汰赛0胜</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md</p><br>
+<h3>流金岁月</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md</p><br>
 
-中新网6月19日电 据交通运输部官方微信消息，根据交通运输部与中国气象局会商研判，结合气象部门降雨数据，截至6月19日，安徽、江西、广东、广西、重庆、贵州、云南等7个省份的10个县区出现了降水天数15天以上、累计降雨量300毫米且超过常年同期水平2倍以上的情况，公路交通存在高风险。 交通运输部要求相关省份交通运输部门在地方人民政府领导下，做好连续降雨高风险区域的公路安全风险管控
-
-## 正文
-
-中新网6月19日电 据交通运输部官方微信消息，根据交通运输部与中国气象局会商研判，结合气象部门降雨数据，截至6月19日，安徽、江西、广东、广西、重庆、贵州、云南等7个省份的10个县区出现了降水天数15天以上、累计降雨量300毫米且超过常年同期水平2倍以上的情况，公路交通存在高风险。
-
-交通运输部要求相关省份交通运输部门在地方人民政府领导下，做好连续降雨高风险区域的公路安全风险管控工作，严格落实灾害风险隐患排查和公路巡查要求，提高力量预置的精准性和针对性，细化主动防御管控措施，切实保障连续降雨期间人民群众公路出行安全。
-
-交通运输部提醒，近期，上述地区出现连续降雨，公路沿线灾害风险较高，如您有上述地区出行计划，请提前关注天气及路况信息，合理规划路线，尽量避让灾害易发路段。
-
-驾车出行时，请谨慎驾驶、观察路况，注意公路沿线情报板、告警阻拦设施等提示信息。
-
-如遇灾害突发事件，第一时间及时停靠安全区域并拨打救援电话，等待专业处置。
-
-## 相关推荐
-
-- 2026-06-30 09:07 - 输球后日本球迷被强行披上巴西国旗<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md
-- 2026-06-30 09:13 - 巴西2-1绝杀日本<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md
-- 2026-06-30 09:07 - 日本将帅赛后采访纷纷哽咽落泪<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md
-- 2026-06-30 09:23 - 金鹰奖视后提名预测<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md
-- 2026-06-30 09:29 - 全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md
-- 2026-06-30 09:00 - 莫兰特被交易到开拓者<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md
-- 2026-06-30 09:26 - 收到补税提醒尽快办理 明起有滞纳金<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md
-- 2026-06-30 09:18 - 刘宇宁高情商化解谁站C位<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md
-- 2026-06-30 09:26 - 世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md
-- 2026-06-30 09:19 - 有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md
-- 2026-06-30 09:17 - 房价什么时候能涨<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md
-- 2026-06-30 09:13 - 杨紫大银幕成绩单<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md
-
-## 延伸阅读
-
-- 2026-06-30 09:08 - 世界杯欧洲队7战南美仅1胜<br><br> | ??:http://www.share.kurohicncr.top/Article/details/664180144.shtml
-- 2026-06-30 09:08 - 人民锐评：网红不能困在无底线逐利里<br><br> | ??:http://www.blog.minike.top/Article/details/169196787.shtml
-- 2026-06-30 09:03 - 第一炉香<br><br> | ??:https://www.share.minike.top/Article/details/28709.shtml
-- 2026-06-30 09:11 - 千香<br><br> | ??:http://www.share.kurohicncr.top/Article/details/6928962.shtml
-- 2026-06-30 09:29 - 德国身价是巴拉圭6倍<br><br> | ??:https://www.share.minike.top/Article/details/971762704.shtml
-- 2026-06-30 09:23 - 媒体评泰山建135公里刀片刺绳隔离网<br><br> | ??:https://www.share.kurohicncr.top/Article/details/93766257.shtml
-- 2026-06-30 09:18 - 国务院：探索延长义务教育年限<br><br> | ??:https://www.share.kurohicncr.top/Article/details/3000248146.shtml
-- 2026-06-30 09:14 - 青春环游记第三季<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/03195329.shtml
-- 2026-06-30 09:07 - 豆包收费了，你还会用吗？<br><br> | ??:https://www.share.minike.top/Article/details/77678.shtml
-- 2026-06-30 09:08 - 德国进球被吹<br><br> | ??:http://www.share.minike.top/Article/details/43153682.shtml
-- 2026-06-30 09:16 - 委内瑞拉地震死亡人数升至1719人<br><br> | ??:http://www.share.kurohicncr.top/Article/details/54697.shtml
-- 2026-06-30 09:00 - 把毒品藏在哪里，60秒内不会被发现？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/68831299.shtml
-- 2026-06-30 09:23 - HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/36320.shtml
-- 2026-06-30 09:12 - 警方介入洪明甫死亡威胁<br><br> | ??:https://www.share.kurohicncr.top/Article/details/00344643820.shtml
-- 2026-06-30 09:04 - 美股收盘 热门中概股普涨<br><br> | ??:http://www.blog.minike.top/Article/details/74942376.shtml
+<h2>延伸阅读</h2><br>
+<h3>低智商犯罪三江口团建来了</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/98643.shtml</p><br>
+<h3>开电动汽车真的很省钱吗？</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/304107.shtml</p><br>
+<h3>男子P图现任妻子照片冒充前妻</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.blog.minike.top/Article/details/2345025.shtml</p><br>
+<h3>“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:https://www.share.minike.top/Article/details/82172024420.shtml</p><br>
+<h3>iPhone18e曝光</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://www.share.minike.top/Article/details/1321917.shtml</p><br>
+<h3>如何评价《龙之家族》第三季第二集？</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://www.blog.minike.top/Article/details/904319727618.shtml</p><br>
+<h3>美团、淘宝闪购、京东外卖达成共识</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/322627714.shtml</p><br>
+<h3>巴西2比1日本</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:http://www.share.minike.top/Article/details/6770201141.shtml</p><br>
+<h3>如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:http://www.blog.minike.top/Article/details/36961667.shtml</p><br>
+<h3>蔚来回应高压水枪洗车掉漆</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/050461150207.shtml</p><br>
+<h3>极端热浪席卷欧洲多国，热一热百姓让领导先凉快？</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://www.share.minike.top/Article/details/868821782.shtml</p><br>
+<h3>毒液2</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://www.share.minike.top/Article/details/79329845.shtml</p><br>
+<h3>本届世界杯已有5名球员被控强奸</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:http://www.blog.minike.top/Article/details/873566.shtml</p><br>
+<h3>奔跑吧·黄河篇第二季</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:http://www.share.minike.top/Article/details/96766375.shtml</p><br>
+<h3>第一次对自信的力量有了实感</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/95841265.shtml</p><br>

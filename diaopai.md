@@ -1,60 +1,44 @@
-# 纪念中国前驻法大使吴建民逝世十周年研讨会在巴黎举办
+<h1>中俄皮划艇邀请赛举行 开启2026年中俄体育交流周活动</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>中新网哈尔滨5月16日电(记者 王妮娜)2026年中俄体育交流周5月16日在哈尔滨市呼兰河口湿地公园开幕。作为第十届中俄博览会、第三十五届哈尔滨国际经济贸易洽谈会的重要配套人文品牌活动，本届交流周共设五大精品赛事，项目数量创历届之最。 开幕式当天，呼兰河口湿地公园气氛热烈。中俄两国体育界嘉宾、参赛运动员齐聚一堂。俄方阿穆尔州、滨海边疆区体育部门领导应邀出席，共同见证这一体育交流</p><br>
+<h2>正文</h2><br>
+<p>中新网哈尔滨5月16日电(记者 王妮娜)2026年中俄体育交流周5月16日在哈尔滨市呼兰河口湿地公园开幕。</p><br>
+<p>作为第十届中俄博览会、第三十五届哈尔滨国际经济贸易洽谈会的重要配套人文品牌活动，本届交流周共设五大精品赛事，项目数量创历届之最。</p><br>
+<p>开幕式当天，呼兰河口湿地公园气氛热烈。</p><br>
+<p>中俄两国体育界嘉宾、参赛运动员齐聚一堂。</p><br>
+<p>俄方阿穆尔州、滨海边疆区体育部门领导应邀出席，共同见证这一体育交流盛事。</p><br>
+<p>本届交流周主题为“体育赋能合作、交流共筑未来”，赛事规模与项目数量均创历届新高，共设中俄皮划艇邀请赛、中俄手球比赛、中俄跳绳交流训练营、中俄国际象棋青少年团体赛、中俄橄榄球邀请赛五项赛事，兼具竞技性、互动性与群众性。</p><br>
+<p>当天开幕式后，在哈尔滨的呼兰河口湿地公园水域，中俄皮划艇邀请赛率先鸣笛开赛。</p><br>
+<p>两国运动员劈波斩浪，在竞技中增进了解、加深友谊。</p><br>
+<h2>相关推荐</h2><br>
+<h3>峡谷事故团队组队时有人提醒会下雨</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md</p><br>
+<h3>湖北云南这些涉汛信息都是假的</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md</p><br>
+<h3>金鹰奖视后提名预测</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md</p><br>
+<h3>蜘蛛侠:英雄归来</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md</p><br>
+<h3>德国巴拉圭进入点球大战</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md</p><br>
+<h3>点球大战</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md</p><br>
+<h3>未来五年，教育强国这样建设</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md</p><br>
+<h3>张碧晨一开口梦回逐玉</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md</p><br>
+<h3>国务院：探索延长义务教育年限</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md</p><br>
+<h3>赛博朋克边缘行者2预告片</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md</p><br>
+<h3>吴启华卖肖像权拍AI电影</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md</p><br>
 
-中新网巴黎6月20日电 当地时间6月17日，为纪念中国前驻法国大使吴建民逝世十周年，法国“吴建民之友”协会、法国中法友谊互助协会在巴黎索邦大学共同举办“吴建民大使与我们”专题研讨会，中法各界逾百人出席。 法国前总理拉法兰、前外长韦德里纳、前驻华大使白林，法国文化部文化事务督察员鲁丽杰等分别在研讨会上致辞。吴建民女儿吴捷出席研讨会。 拉法兰表示，通过吴建民，让我们看到外交的真正本
-
-## 正文
-
-中新网巴黎6月20日电 当地时间6月17日，为纪念中国前驻法国大使吴建民逝世十周年，法国“吴建民之友”协会、法国中法友谊互助协会在巴黎索邦大学共同举办“吴建民大使与我们”专题研讨会，中法各界逾百人出席。
-
-法国前总理拉法兰、前外长韦德里纳、前驻华大使白林，法国文化部文化事务督察员鲁丽杰等分别在研讨会上致辞。
-
-吴建民女儿吴捷出席研讨会。
-
-拉法兰表示，通过吴建民，让我们看到外交的真正本源。
-
-他始终践行通过对话促进和平的理念。
-
-韦德里纳表示，吴建民离开我们十年，世界已发生巨大变化，但他的思想依然具有现实意义。
-
-白林认为，吴建民具有非凡的倾听能力和与法国各界人士沟通的能力。
-
-中国前外交官汪华，法国展望与创新基金会副主席卡泽纳夫，“吴建民中法青年创新创业奖学金”获得者、巴黎市议员陈家辉等与会者回顾了吴建民在推动中法文化交流、经贸合作和青年交往等方面所作努力，认为其倡导的开放包容、对话协商与合作共赢精神，对当前国际社会增进理解互信、促进共同发展仍具有重要启示意义。
-
-## 相关推荐
-
-- 2026-06-30 09:06 - 全网说丑的玫瑰空调卖了5万台<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md
-- 2026-06-30 09:28 - 这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md
-- 2026-06-30 09:29 - 这些7月新规影响你我<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md
-- 2026-06-30 09:26 - 男子中医院拔火罐致浅2度烧伤<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md
-- 2026-06-30 09:07 - 【硬核拆解】汽车人到底离我们有多远？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md
-- 2026-06-30 09:21 - 送你一朵小红花<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md
-- 2026-06-30 09:13 - 欧洲装一台空调有多难<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md
-- 2026-06-30 09:11 - 穆祉丞回应获年度人气艺人<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md
-- 2026-06-30 09:10 - 德国爆冷点球大战不敌巴拉圭<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md
-- 2026-06-30 09:02 - 首届《哈基米歌王争霸赛》总决赛<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md
-- 2026-06-30 09:12 - 郑钦文温网一轮游<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md
-- 2026-06-30 09:28 - 恋与深空<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md
-- 2026-06-30 09:02 - 《共患难》<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md
-- 2026-06-30 09:01 - 德国 传控<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md
-
-## 延伸阅读
-
-- 2026-06-30 09:05 - 日本淘汰<br><br> | ??:http://www.blog.minike.top/Article/details/82811904.shtml
-- 2026-06-30 09:25 - 奔跑吧·黄河篇第二季<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/207764291523.shtml
-- 2026-06-30 09:20 - 德国队回应爆冷淘汰<br><br> | ??:http://www.blog.minike.top/Article/details/105434756779.shtml
-- 2026-06-30 09:12 - 大学生遇地震裹被子从5楼冲下<br><br> | ??:http://www.share.minike.top/Article/details/01164910.shtml
-- 2026-06-30 09:22 - 第一次对自信的力量有了实感<br><br> | ??:https://www.share.kurohicncr.top/Article/details/883406.shtml
-- 2026-06-30 09:02 - 2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？<br><br> | ??:https://www.blog.minike.top/Article/details/781541368242.shtml
-- 2026-06-30 09:04 - 刘宇宁高情商化解谁站C位<br><br> | ??:http://www.blog.minike.top/Article/details/40989.shtml
-- 2026-06-30 09:03 - 网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？<br><br> | ??:http://www.blog.minike.top/Article/details/975991016691.shtml
-- 2026-06-30 09:05 - 世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/9299639.shtml
-- 2026-06-30 09:04 - 杨紫大银幕成绩单<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/363247714.shtml
-- 2026-06-30 09:15 - 欧洲民众抢购空调降温<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/57684697808.shtml
-- 2026-06-30 09:00 - 美股<br><br> | ??:https://www.blog.minike.top/Article/details/24213310387.shtml
-- 2026-06-30 09:29 - 全网说丑的格力玫瑰空调卖了5万台<br><br> | ??:https://www.blog.minike.top/Article/details/819342736151.shtml
-- 2026-06-30 09:22 - 董卿父亲报纸上发文悼念亡妻<br><br> | ??:http://www.blog.minike.top/Article/details/725258.shtml
-- 2026-06-30 09:21 - 杨紫大银幕成绩单如何<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/817426.shtml
+<h2>延伸阅读</h2><br>
+<h3>输球后日本球迷被强行披上巴西国旗</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/5683155.shtml</p><br>
+<h3>巴拉圭率先破门</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://www.blog.minike.top/Article/details/51808552965.shtml</p><br>
+<h3>泰山景区建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:http://www.blog.minike.top/Article/details/600430853399.shtml</p><br>
+<h3>全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://www.blog.minike.top/Article/details/1904183.shtml</p><br>
+<h3>尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/2486620.shtml</p><br>
+<h3>如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/270664.shtml</p><br>
+<h3>巴西足球能否再现昔日荣光</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/10554597829.shtml</p><br>
+<h3>为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:http://www.share.minike.top/Article/details/44041.shtml</p><br>
+<h3>男子诋毁袁隆平科研成果被刑拘</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/3287464.shtml</p><br>
+<h3>董卿父亲报纸上发文悼念亡妻</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:http://www.share.minike.top/Article/details/60071.shtml</p><br>
+<h3>金牌调解</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/898534.shtml</p><br>
+<h3>我吃遍了西安最強的街頭小吃，第九家強得離譜！</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://www.blog.minike.top/Article/details/92235.shtml</p><br>
+<h3>男子醉酒溺水获救后同行人拒搭手</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:http://www.blog.minike.top/Article/details/15198371274.shtml</p><br>
+<h3>有什么好的高中网课推荐吗？</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/3611645.shtml</p><br>
+<h3>【硬核拆解】汽车人到底离我们有多远？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://www.blog.minike.top/Article/details/392773440071.shtml</p><br>

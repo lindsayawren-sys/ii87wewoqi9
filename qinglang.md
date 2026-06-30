@@ -1,61 +1,41 @@
-# 首届“同心圆梦·欧华和声”高峰论坛在巴黎举办
+<h1>中国闽台缘博物馆开馆二十周年 数千家书见证两岸血脉亲情</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>发布时间：2026年05月17日 18:15 来源：中国新闻网 2026年是中国闽台缘博物馆正式开馆的第二十个年头。近日，以“博物馆：联结世界的桥梁”为主题，2026年“5·18国际博物馆日”福建主会场系列活动在泉州举行，集中展现福建文博事业成果与闽台文化交融特色。 据了解，中国闽台缘博物馆开馆二十年来，累计接待观众超1770万人次，其中台胞逾103.8万人次。截至目前，博物馆</p><br>
+<h2>正文</h2><br>
+<p>发布时间：2026年05月17日 18:15 来源：中国新闻网 2026年是中国闽台缘博物馆正式开馆的第二十个年头。</p><br>
+<p>近日，以“博物馆：联结世界的桥梁”为主题，2026年“5·18国际博物馆日”福建主会场系列活动在泉州举行，集中展现福建文博事业成果与闽台文化交融特色。</p><br>
+<p>据了解，中国闽台缘博物馆开馆二十年来，累计接待观众超1770万人次，其中台胞逾103.8万人次。</p><br>
+<p>截至目前，博物馆已协助360多对两岸宗亲成功查谱寻根。</p><br>
+<p>依托闽台寻根溯源服务交流中心，中国闽台缘博物馆接下来将举办各类丰富的活动，持续推动两岸宗亲交流交往。</p><br>
+<p>(柯宁） 责任编辑：【刘湃】</p><br>
+<h2>相关推荐</h2><br>
+<h3>终于把好哥们处成了情侣!</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md</p><br>
+<h3>豆包收费了，你还会用吗？</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md</p><br>
+<h3>马耳他著名拱门坍塌致中国男子身亡</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md</p><br>
+<h3>巴西2比1日本</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md</p><br>
+<h3>国务院：鼓励行业龙头企业举办职校</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md</p><br>
+<h3>世界杯</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md</p><br>
+<h3>世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md</p><br>
+<h3>巴拉圭进球</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md</p><br>
+<h3>四川宜宾地震为何震感明显</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md</p><br>
+<h3>王欣瑜连续4年晋级温网第二轮</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md</p><br>
 
-中新网巴黎6月18日电 首届“同心圆梦·欧华和声”高峰论坛当地时间17日在法国巴黎举行。来自中国和平统一促进会代表团、欧洲26国的中国和平统一促进会代表以及法国侨界代表等200余人参会。 本次论坛由法国中国和平统一促进会与欧洲各国的中国和平统一促进会主办。与会代表围绕促进祖国和平统一、加强欧洲统促组织协作、推动中欧民间友好往来等议题交流研讨。 论坛期间发布《巴黎宣言》，呼吁坚持
-
-## 正文
-
-中新网巴黎6月18日电 首届“同心圆梦·欧华和声”高峰论坛当地时间17日在法国巴黎举行。
-
-来自中国和平统一促进会代表团、欧洲26国的中国和平统一促进会代表以及法国侨界代表等200余人参会。
-
-本次论坛由法国中国和平统一促进会与欧洲各国的中国和平统一促进会主办。
-
-与会代表围绕促进祖国和平统一、加强欧洲统促组织协作、推动中欧民间友好往来等议题交流研讨。
-
-论坛期间发布《巴黎宣言》，呼吁坚持一个中国原则，反对“台独”分裂活动，推动欧洲统促力量深化交流合作。
-
-中国和平统一促进会副秘书长许友滋在致辞中呼吁欧洲统促力量做好民间使者。
-
-他表示，实现两岸和平统一不仅是中华民族和中国人民之福，也是国际社会和世界人民之福。
-
-中国驻法国大使馆公使沈钢表示，实现祖国完全统一，是包括海外华侨华人在内的全体中华儿女的共同愿望，希望法国及欧洲各国和平统一促进会广泛团结凝聚海外爱国友好力量，为实现中华民族伟大复兴的中国梦作出新的更大贡献。
-
-## 相关推荐
-
-- 2026-06-30 09:00 - 郑钦文温网一轮游<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md
-- 2026-06-30 09:02 - 人类...完蛋了...<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md
-- 2026-06-30 09:28 - 商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md
-- 2026-06-30 09:01 - 如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md
-- 2026-06-30 09:11 - 12人以护剧为名敲诈剧组艺人被抓<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md
-- 2026-06-30 09:08 - 欧盟分楼层开空调惹争议<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md
-- 2026-06-30 09:12 - 亚洲球队全部告别世界杯<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md
-- 2026-06-30 09:21 - 全网说丑的格力玫瑰空调卖了5万台<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md
-- 2026-06-30 09:16 - 当我知道豆包有后台审核人员<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md
-- 2026-06-30 09:11 - 人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md
-- 2026-06-30 09:20 - iPhoneUltra黑色机模<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md
-- 2026-06-30 09:06 - 未来五年，教育强国这样建设<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md
-- 2026-06-30 09:05 - 曝娱乐圈大部分明星失业<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md
-- 2026-06-30 09:25 - HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md
-- 2026-06-30 09:25 - 【涤墨作战7人870】望：我从地狱杀回来了！<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md
-
-## 延伸阅读
-
-- 2026-06-30 09:08 - 王楚钦孙颖莎晋级混双八强<br><br> | ??:https://www.share.minike.top/Article/details/3242707863.shtml
-- 2026-06-30 09:15 - 日本博主：日本足球真的垃圾<br><br> | ??:http://www.share.kurohicncr.top/Article/details/771867165.shtml
-- 2026-06-30 09:09 - 四川凉山落石砸毁车辆 3人遇难<br><br> | ??:https://www.blog.minike.top/Article/details/10613846.shtml
-- 2026-06-30 09:29 - 女子用家人生日买彩票中1032万<br><br> | ??:http://www.share.kurohicncr.top/Article/details/62350.shtml
-- 2026-06-30 09:22 - 谢依霖说杨幂是聚会第一把张罗手<br><br> | ??:http://www.share.kurohicncr.top/Article/details/58025.shtml
-- 2026-06-30 09:21 - 武磊：巴西队赢的并不轻松<br><br> | ??:https://www.share.kurohicncr.top/Article/details/214150.shtml
-- 2026-06-30 09:02 - 请回答王牌2019<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/901585822743.shtml
-- 2026-06-30 09:12 - 上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶<br><br> | ??:https://www.blog.minike.top/Article/details/01875471471.shtml
-- 2026-06-30 09:06 - 消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/68419549.shtml
-- 2026-06-30 09:03 - 《贺子珍》<br><br> | ??:http://www.blog.minike.top/Article/details/5011636.shtml
-- 2026-06-30 09:26 - 为什么纣王似乎对周文王的扩张完全无动于衷？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/301026516381.shtml
-- 2026-06-30 09:16 - 人类...完蛋了...<br><br> | ??:http://www.share.minike.top/Article/details/24993408.shtml
-- 2026-06-30 09:24 - HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/8516005695.shtml
-- 2026-06-30 09:15 - 失明的我带老妈去了趟“火星”<br><br> | ??:https://www.blog.minike.top/Article/details/55441389555.shtml
-- 2026-06-30 09:04 - 女儿从清华毕业 爸爸晒出17年对比照<br><br> | ??:https://www.share.kurohicncr.top/Article/details/833919085.shtml
+<h2>延伸阅读</h2><br>
+<h3>健全中小学教师工资长效联动机制</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/392619.shtml</p><br>
+<h3>德国巴拉圭 折磨</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:http://www.blog.minike.top/Article/details/057734314893.shtml</p><br>
+<h3>超神人辉夜姬 第二集</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://www.share.minike.top/Article/details/216003.shtml</p><br>
+<h3>斗破苍穹</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/62510403.shtml</p><br>
+<h3>这几秒成世界杯最值钱广告位</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:http://www.share.minike.top/Article/details/895953833145.shtml</p><br>
+<h3>齐思钧回复张月</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://www.blog.minike.top/Article/details/18109.shtml</p><br>
+<h3>4000美元是黄金新一轮下跌的开始吗</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/71059343755.shtml</p><br>
+<h3>博世们还在犹豫 美的们已经卖断货</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://www.share.minike.top/Article/details/65425341.shtml</p><br>
+<h3>点球大战</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://www.share.minike.top/Article/details/684439419.shtml</p><br>
+<h3>你的妻子大喷菇—《植物娘大战僵尸》特别篇</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:http://www.share.minike.top/Article/details/419469.shtml</p><br>
+<h3>未来的飞机可能会用电吗？</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://www.share.minike.top/Article/details/97181.shtml</p><br>
+<h3>四川宜宾地震瞬间鱼群乱跳</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/2927378952.shtml</p><br>
+<h3>巴西醒醒 这是淘汰赛</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:http://www.share.minike.top/Article/details/60871663101.shtml</p><br>
+<h3>收到补税提醒尽快办理 明起有滞纳金</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/4913373.shtml</p><br>
+<h3>郑钦文温网一轮游</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/13082723.shtml</p><br>

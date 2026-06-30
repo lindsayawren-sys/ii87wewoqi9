@@ -1,50 +1,43 @@
-# 封关半年，海南按下开放“加速键”
+<h1>切勿出借个人外汇额度！400余名老人被当换汇“黄牛”工具人</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>近日，上海警方通报一起非法汇兑案，不法分子拉拢400余名老年人充当换汇“黄牛”工具人，涉案金额达4500余万元。 去年12月，上海市部分银行向警方反映，出现大量老年人集中换汇情况。经核查，这些老人多虚构个人出国旅游理由购汇，实际并无出境记录。后经警方调查，嫌疑人唐某、张某以给好处费为诱饵，组织老人在小微、郊区银行网点违规购汇，再倒卖牟利。 二人作案手法不同，唐某唆使老人骗购外汇</p><br>
+<h2>正文</h2><br>
+<p>近日，上海警方通报一起非法汇兑案，不法分子拉拢400余名老年人充当换汇“黄牛”工具人，涉案金额达4500余万元。</p><br>
+<p>去年12月，上海市部分银行向警方反映，出现大量老年人集中换汇情况。</p><br>
+<p>经核查，这些老人多虚构个人出国旅游理由购汇，实际并无出境记录。</p><br>
+<p>后经警方调查，嫌疑人唐某、张某以给好处费为诱饵，组织老人在小微、郊区银行网点违规购汇，再倒卖牟利。</p><br>
+<p>二人作案手法不同，唐某唆使老人骗购外汇，张某指使老人兑换外币。</p><br>
+<p>为突破每人每年5万美元购汇限额，他们在公园、老年社群招募人员，涉案老人达400余名。</p><br>
+<p>今年4月，警方抓获唐某、张某等6名嫌疑人。</p><br>
+<p>目前，唐某涉嫌骗购外汇罪、张某涉嫌非法经营罪被批捕，其余4人被采取刑事强制措施。</p><br>
+<h2>相关推荐</h2><br>
+<h3>有哪些被认为是现代才有的东西其实古代就有了？</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md</p><br>
+<h3>7月1日起 一批新规即将落地</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md</p><br>
+<h3>沉睡花园</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md</p><br>
+<h3>卡塞米罗头球破门</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md</p><br>
+<h3>为什么会有「念旧」的心理？</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md</p><br>
+<h3>高考填志愿父亲和女儿产生分歧</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md</p><br>
+<h3>未来五年，教育强国这样建设</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md</p><br>
+<h3>手底下人带不动怎么办？</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md</p><br>
+<h3>马航MH370传来最新消息</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md</p><br>
+<h3>巴拉圭先进球了</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md</p><br>
 
-发布时间：2026年06月18日 18:15 来源：三里河 封关运作后，海南自贸港开放成果密集落地：首批“零关税”游艇入境，累计减免税款超2700万元；免签入境外籍旅客同比增长超五成，86国游客“说走就走”；超千家外资企业注册落地，多功能自由贸易账户业务量达5820亿元；口岸货物申报简化超六成，低风险货物“秒速放行”。当全球保护主义抬头，海南用一项项可感政策，跑出开放加速度。
-
-## 正文
-
-发布时间：2026年06月18日 18:15 来源：三里河 封关运作后，海南自贸港开放成果密集落地：首批“零关税”游艇入境，累计减免税款超2700万元；免签入境外籍旅客同比增长超五成，86国游客“说走就走”；超千家外资企业注册落地，多功能自由贸易账户业务量达5820亿元；口岸货物申报简化超六成，低风险货物“秒速放行”。
-
-当全球保护主义抬头，海南用一项项可感政策，跑出开放加速度。
-
-责任编辑：【张舰元】
-
-## 相关推荐
-
-- 2026-06-30 09:10 - 恋与深空回应争议<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md
-- 2026-06-30 09:15 - 本科毕业生为何涌入专科学校<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md
-- 2026-06-30 09:11 - 黄晓明晒和周杰伦的合照<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md
-- 2026-06-30 09:13 - 网瘾賊大的阿嬷<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md
-- 2026-06-30 09:16 - 收到补税提醒尽快办理 明起有滞纳金<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md
-- 2026-06-30 09:05 - 沉睡花园<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md
-- 2026-06-30 09:17 - 不开心就去看三年前的购物订单<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md
-- 2026-06-30 09:02 - 老外对中国cosplay竟这样评价…<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md
-- 2026-06-30 09:06 - 日本队被绝杀后鞠躬致谢观众<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md
-- 2026-06-30 09:04 - 日耳曼拖拉机<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md
-- 2026-06-30 09:26 - 王欣瑜连续4年晋级温网第二轮<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md
-- 2026-06-30 09:01 - 日耳曼拖拉机<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md
-- 2026-06-30 09:29 - 阿娇瘦了10斤<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md
-- 2026-06-30 09:22 - 德国队世界杯点球大战首败<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md
-
-## 延伸阅读
-
-- 2026-06-30 09:21 - 逃狱兄弟<br><br> | ??:http://www.blog.minike.top/Article/details/6032921.shtml
-- 2026-06-30 09:00 - 泰山景区建135公里刀片刺绳隔离网<br><br> | ??:https://www.blog.minike.top/Article/details/54265.shtml
-- 2026-06-30 09:03 - 网友写差评被店家“挂”门口避雷<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/912702.shtml
-- 2026-06-30 09:29 - 女子健身不当 居然“脑子漏水”了<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/326154.shtml
-- 2026-06-30 09:07 - 流金岁月<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/6414729.shtml
-- 2026-06-30 09:11 - 小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？<br><br> | ??:http://www.blog.minike.top/Article/details/84800898249.shtml
-- 2026-06-30 09:09 - 日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？<br><br> | ??:https://www.blog.minike.top/Article/details/7229802.shtml
-- 2026-06-30 09:28 - 日耳曼拖拉机<br><br> | ??:http://www.blog.minike.top/Article/details/323809665.shtml
-- 2026-06-30 09:01 - 美股收盘 热门中概股普涨<br><br> | ??:https://www.blog.minike.top/Article/details/45620.shtml
-- 2026-06-30 09:27 - 高考结束，该不该外出打工体验？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/64244357187.shtml
-- 2026-06-30 09:28 - 第一炉香<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/14803991824.shtml
-- 2026-06-30 09:13 - 勇敢的心第二部<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/48544870.shtml
-- 2026-06-30 09:27 - 【涤墨作战7人870】望：我从地狱杀回来了！<br><br> | ??:http://www.blog.minike.top/Article/details/2282936.shtml
-- 2026-06-30 09:01 - 勇士续约波尔津吉斯<br><br> | ??:http://www.blog.minike.top/Article/details/95555498.shtml
-- 2026-06-30 09:14 - 我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？<br><br> | ??:https://www.share.minike.top/Article/details/27684141.shtml
+<h2>延伸阅读</h2><br>
+<h3>孙颖莎王楚钦晋级8强</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://www.blog.minike.top/Article/details/26317019.shtml</p><br>
+<h3>女子发现孩子非现任亲生状告前任索赔</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://www.share.minike.top/Article/details/2966048.shtml</p><br>
+<h3>郑钦文 四年一轮游</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:http://www.blog.minike.top/Article/details/82051857565.shtml</p><br>
+<h3>日本进球</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.share.minike.top/Article/details/88880.shtml</p><br>
+<h3>董卿父亲报纸上发文悼念亡妻</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:http://www.blog.minike.top/Article/details/812090.shtml</p><br>
+<h3>德国队连续三届世界杯无缘16强</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/6551649851.shtml</p><br>
+<h3>4种红薯的满分吃法！有手就会…但能让你大为震撼！</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://www.share.minike.top/Article/details/916306797.shtml</p><br>
+<h3>世界杯：荷兰vs摩洛哥</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/61891297720.shtml</p><br>
+<h3>檀健次王楚然吻戏看热了</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:http://www.share.minike.top/Article/details/95631075.shtml</p><br>
+<h3>iPhoneUltra黑色机模</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/596486.shtml</p><br>
+<h3>英语考了145的人竟然教数学</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:http://www.blog.minike.top/Article/details/14355.shtml</p><br>
+<h3>全球芯片巨头史诗级扩产</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://www.blog.minike.top/Article/details/36731105479.shtml</p><br>
+<h3>电影抓特务上映11天破亿</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/524768408.shtml</p><br>
+<h3>男生180+，有腹肌是什么体验？</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/53457530300.shtml</p><br>
+<h3>国务院：鼓励行业龙头企业举办职校</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/150582490.shtml</p><br>

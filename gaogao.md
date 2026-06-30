@@ -1,57 +1,39 @@
-# “商务—牛津”版“面向未来学习的全景解决方案”在北京图博会发布
+<h1>OPPO新款手机被曝将白色拍成粉色，客服回应</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>中新网5月16日电(记者 吴家驹)据媒体报道，近日，多位OPPO用户反映，在使用OPPO Find X9 Ultra手机拍视频时，会将白色拍成粉色。 5月16日，记者就此事以消费者身份咨询某电商平台OPPO官方旗舰店客服，对方表示，此问题已经修复，将通过新的OTA版本解决，计划将在5月下旬陆续开始推送，还请耐心等待版本更新。该客服同时表示，该款手机于2026年4月21日发布上市</p><br>
+<h2>正文</h2><br>
+<p>中新网5月16日电(记者 吴家驹)据媒体报道，近日，多位OPPO用户反映，在使用OPPO Find X9 Ultra手机拍视频时，会将白色拍成粉色。</p><br>
+<p>5月16日，记者就此事以消费者身份咨询某电商平台OPPO官方旗舰店客服，对方表示，此问题已经修复，将通过新的OTA版本解决，计划将在5月下旬陆续开始推送，还请耐心等待版本更新。</p><br>
+<p>该客服同时表示，该款手机于2026年4月21日发布上市。</p><br>
+<p>(完)</p><br>
+<h2>相关推荐</h2><br>
+<h3>领克07GT搭载超跑同源MRC悬架</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md</p><br>
+<h3>日本将帅赛后采访纷纷哽咽落泪</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md</p><br>
+<h3>有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md</p><br>
+<h3>如何看待武亮说大学生生活费1500就够用这一言论？</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md</p><br>
+<h3>德国4比5巴拉圭</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md</p><br>
+<h3>首届《哈基米歌王争霸赛》总决赛</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md</p><br>
+<h3>2026年WTT美国大满贯，国乒自带球桌是真实的吗？</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md</p><br>
+<h3>日本球迷输球后集体捡垃圾</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md</p><br>
+<h3>卖菜老人获博主帮助后遇车祸去世</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md</p><br>
+<h3>德国vs巴拉圭</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md</p><br>
 
-中新网北京6月20日电 (记者 应妮)商务印书馆和牛津大学出版社日前在第32届北京国际图书博览会上联合举办“面向未来学习的全景解决方案”发布会。 双方合作始于20世纪70年代末。多年来，双方合作出版了大量优质纸质图书，从最初的《精选英汉汉英词典》，到《牛津高阶英汉双解词典》《牛津中阶英汉双解词典》《牛津初阶英汉双解词典》等学习型词典，再到英语学习、读物和数字产品，“商务—牛津”
-
-## 正文
-
-中新网北京6月20日电 (记者 应妮)商务印书馆和牛津大学出版社日前在第32届北京国际图书博览会上联合举办“面向未来学习的全景解决方案”发布会。
-
-双方合作始于20世纪70年代末。
-
-多年来，双方合作出版了大量优质纸质图书，从最初的《精选英汉汉英词典》，到《牛津高阶英汉双解词典》《牛津中阶英汉双解词典》《牛津初阶英汉双解词典》等学习型词典，再到英语学习、读物和数字产品，“商务—牛津”在中国英语学习领域确立了领先地位。
-
-商务和牛津长期有效的合作为中国英语学习者提供了权威优质的内容保障，也为中国文化与世界文化的交融作出了贡献。
-
-商务印书馆党委书记、执行董事顾青表示，进入新时代，双方的合作从辞书延伸至英语学习、学术理论等领域，不断通过合作为中国读者和学习者提供权威的知识内容，真正实现了从局部引进授权到全方位战略共创。
-
-“面向未来学习的全景解决方案”是双方合作深化的新里程碑，它以权威的“牛津进阶词典系列”筑牢语言根基，以科学分级的牛津英语分级读物激发阅读兴趣，以专业英语测评精准诊断学习进度，并依托万邦App等数字平台将纸质内容与数字资源全面打通。
-
-双方合作推出的新产品，将与词典、读物等形成有机联动，为中国英语学习者提供可信赖、可追踪、个性化的品牌解决方案。
-
-牛津大学出版社(中国)有限公司董事总经理叶秀兰坦言，未来的学习正在发生变化。
-
-## 相关推荐
-
-- 2026-06-30 09:23 - 如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md
-- 2026-06-30 09:18 - 郑钦文 四年一轮游<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md
-- 2026-06-30 09:01 - 日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md
-- 2026-06-30 09:17 - 美加墨世界杯：亚洲足球的得意与失意<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md
-- 2026-06-30 09:25 - 泰山建135公里刀片刺绳隔离网<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md
-- 2026-06-30 09:08 - 泰山景区建135公里刀片刺绳隔离网<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md
-- 2026-06-30 09:03 - 韩国世界杯出局是主帅一个人的锅吗<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md
-- 2026-06-30 09:26 - 巴西醒醒 这是淘汰赛<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md
-- 2026-06-30 09:19 - 《虎吹最难绷の一集》<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md
-- 2026-06-30 09:14 - 三星投资计划<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md
-- 2026-06-30 09:23 - 毒液2<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md
-
-## 延伸阅读
-
-- 2026-06-30 09:27 - 欧洲民众抢购空调降温<br><br> | ??:http://www.blog.minike.top/Article/details/680092739.shtml
-- 2026-06-30 09:02 - 有什么好的高中网课推荐吗？<br><br> | ??:http://www.share.minike.top/Article/details/75822409.shtml
-- 2026-06-30 09:16 - 谢依霖说杨幂是聚会第一把张罗手<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/95634.shtml
-- 2026-06-30 09:19 - 中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？<br><br> | ??:https://www.blog.minike.top/Article/details/767514791.shtml
-- 2026-06-30 09:21 - 卡塞米罗头球破门<br><br> | ??:https://www.share.kurohicncr.top/Article/details/11685400.shtml
-- 2026-06-30 09:26 - 女子遭下药退赔偿拟追刑责<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/198126835043.shtml
-- 2026-06-30 09:29 - 领克07GT搭载超跑同源MRC悬架<br><br> | ??:https://www.share.kurohicncr.top/Article/details/96065755.shtml
-- 2026-06-30 09:06 - 覃予萱晋级WTT美国大满贯女单32强<br><br> | ??:http://www.share.minike.top/Article/details/7235892572.shtml
-- 2026-06-30 09:20 - 收到补税提醒尽快办理 明起有滞纳金<br><br> | ??:https://www.blog.minike.top/Article/details/637592026591.shtml
-- 2026-06-30 09:16 - 国务院：稳步推进研究生考试招生改革<br><br> | ??:http://www.share.kurohicncr.top/Article/details/355131688.shtml
-- 2026-06-30 09:23 - “柠檬茶能换怀表？”<br><br> | ??:http://www.share.kurohicncr.top/Article/details/636036469.shtml
-- 2026-06-30 09:18 - 教育部披露：高考生篡改7名同学志愿<br><br> | ??:http://www.share.kurohicncr.top/Article/details/81030.shtml
-- 2026-06-30 09:24 - 王楚钦说配合稍微有些陌生感<br><br> | ??:http://www.blog.minike.top/Article/details/7985078.shtml
-- 2026-06-30 09:10 - 这几秒成世界杯最值钱广告位<br><br> | ??:https://www.share.kurohicncr.top/Article/details/52342.shtml
-- 2026-06-30 09:02 - 男子造谣东鹏老板不喝自家饮料被拘<br><br> | ??:http://www.blog.minike.top/Article/details/03138.shtml
+<h2>延伸阅读</h2><br>
+<h3>马航MH370传来最新消息</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/5681210584.shtml</p><br>
+<h3>乔家的儿女</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:http://www.share.minike.top/Article/details/53511790.shtml</p><br>
+<h3>《虎吹最难绷の一集》</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:http://www.blog.minike.top/Article/details/7590595.shtml</p><br>
+<h3>古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/60832311.shtml</p><br>
+<h3>全新问界M9现身美国街头</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:http://www.blog.minike.top/Article/details/79824696.shtml</p><br>
+<h3>美股收盘 热门中概股普涨</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.blog.minike.top/Article/details/36495.shtml</p><br>
+<h3>DeepSeek启动成立来最大规模招聘</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/654770.shtml</p><br>
+<h3>疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/97754.shtml</p><br>
+<h3>赛博朋克边缘行者2预告片</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/834143.shtml</p><br>
+<h3>金刚川</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://www.share.minike.top/Article/details/92964.shtml</p><br>
+<h3>国务院：鼓励行业龙头企业举办职校</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://www.blog.minike.top/Article/details/535383851.shtml</p><br>
+<h3>第一次对自信的力量有了实感</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:http://www.blog.minike.top/Article/details/242904.shtml</p><br>
+<h3>拆解FIFA和世界杯的暗面</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://www.share.minike.top/Article/details/02219.shtml</p><br>
+<h3>索马里女大使：想和中国一起搞事业</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/20486.shtml</p><br>
+<h3>一切民族英雄都是中华民族的脊梁</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://www.share.minike.top/Article/details/88208.shtml</p><br>

@@ -1,60 +1,43 @@
-# 中医说夏至：养心祛湿有良方
+<h1>外媒：内塔尼亚胡与特朗普通话 讨论重启对伊战事可能性</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>中新网5月18日电 据以色列公共广播公司17日报道，以色列总理内塔尼亚胡与美国总统特朗普当天通电话，讨论重启对伊朗军事行动的可能性。 报道援引以色列高级官员的话报道，内塔尼亚胡与特朗普通话持续约半小时，主要讨论重启对伊朗军事打击的可能性。这名官员称，若美国恢复对伊朗军事行动，预计以美两国将联合发起空袭。 《以色列时报》证实，内塔尼亚胡与特朗普当天通电话，随后将举行安全会议。 另</p><br>
+<h2>正文</h2><br>
+<p>中新网5月18日电 据以色列公共广播公司17日报道，以色列总理内塔尼亚胡与美国总统特朗普当天通电话，讨论重启对伊朗军事行动的可能性。</p><br>
+<p>报道援引以色列高级官员的话报道，内塔尼亚胡与特朗普通话持续约半小时，主要讨论重启对伊朗军事打击的可能性。</p><br>
+<p>这名官员称，若美国恢复对伊朗军事行动，预计以美两国将联合发起空袭。</p><br>
+<p>《以色列时报》证实，内塔尼亚胡与特朗普当天通电话，随后将举行安全会议。</p><br>
+<p>另据美国新闻媒体Axios报道称，特朗普对该媒体表示，留给伊朗的“时间不多了”，并警告说，如果伊朗不提出更好的协议，“将遭受更沉重的打击”。</p><br>
+<p>两名美国官员表示，预计特朗普将在战情室召集其国家安全高级团队，讨论军事选项。</p><br>
+<p>美国官员还表示，伊朗拒绝了特朗普的许多要求，并且拒绝在核计划上做出让步，军事选项因此再次被提上日程。</p><br>
+<h2>相关推荐</h2><br>
+<h3>青春环游记第三季</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md</p><br>
+<h3>董卿父亲报纸上发文悼念亡妻</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md</p><br>
+<h3>恐怖世界 第三集 埃温霍姆村</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md</p><br>
+<h3>如何评价《龙之家族》第三季第二集？</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md</p><br>
+<h3>赛博朋克边缘行者2预告片</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md</p><br>
+<h3>董卿父亲报纸上发文悼念亡妻</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md</p><br>
+<h3>欧洲家电巨头为何输掉了这个夏天</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md</p><br>
+<h3>为什么会有「念旧」的心理？</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md</p><br>
+<h3>毒液2</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md</p><br>
+<h3>第一次对自信的力量有了实感</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md</p><br>
+<h3>“中国养猪场都用上空调了”！这是真的吗？【主播说三农】</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md</p><br>
 
-“东边日出西边雨，道是无晴却有晴。”高温高湿、雷雨频发的夏至节气，将于6月21日到来。天地阴阳自此迎来消长转折，人们该如何消解暑湿侵扰、安度盛夏？ 《黄帝内经》提到，“夏至四十五日，阴气微上，阳气微下”。正是在夏至这个阳气的顶点，初生的阴气开始悄然萌动，展现了大自然物极必反、生生不息的奥妙。 时序流转，人体状态亦随之改变。中国中医科学院广安门医院疼痛科副主任医师杨晓忱说，夏至时
-
-## 正文
-
-“东边日出西边雨，道是无晴却有晴。
-
-”高温高湿、雷雨频发的夏至节气，将于6月21日到来。
-
-天地阴阳自此迎来消长转折，人们该如何消解暑湿侵扰、安度盛夏？
-
-《黄帝内经》提到，“夏至四十五日，阴气微上，阳气微下”。
-
-正是在夏至这个阳气的顶点，初生的阴气开始悄然萌动，展现了大自然物极必反、生生不息的奥妙。
-
-时序流转，人体状态亦随之改变。
-
-中国中医科学院广安门医院疼痛科副主任医师杨晓忱说，夏至时节气温较高、湿度大，人体大量出汗，阳气外浮，中焦脾胃相对虚寒，容易诱发心脑血管疾病、中暑、胃肠道疾病及皮肤类疾病。
-
-把握节气特点、饮食得当，便可安然度夏，为秋冬健康打下坚实基础。
-
-## 相关推荐
-
-- 2026-06-30 09:02 - 为什么纣王似乎对周文王的扩张完全无动于衷？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md
-- 2026-06-30 09:09 - 斗破苍穹<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md
-- 2026-06-30 09:18 - 中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md
-- 2026-06-30 09:00 - 我觉得你是在无中生友<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md
-- 2026-06-30 09:26 - 为什么会有「念旧」的心理？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md
-- 2026-06-30 09:12 - 杨紫大银幕成绩单<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md
-- 2026-06-30 09:21 - 警方介入洪明甫死亡威胁<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md
-- 2026-06-30 09:25 - 歌剧老师锐评歌手第6期<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md
-- 2026-06-30 09:28 - “以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md
-- 2026-06-30 09:09 - 一直以为方便面汤是要倒掉的<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md
-- 2026-06-30 09:10 - 男子诋毁袁隆平科研成果被刑拘<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md
-- 2026-06-30 09:29 - 如果有二次元高中是什么样子的？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md
-- 2026-06-30 09:05 - 名记：灰熊将莫兰特交易至开拓者<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md
-- 2026-06-30 09:25 - 全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md
-
-## 延伸阅读
-
-- 2026-06-30 09:00 - 中国代表在联合国点名日本所犯罪行<br><br> | ??:http://www.share.minike.top/Article/details/460886612018.shtml
-- 2026-06-30 09:12 - 【硬核拆解】汽车人到底离我们有多远？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/6255273.shtml
-- 2026-06-30 09:18 - 警方介入洪明甫死亡威胁<br><br> | ??:https://www.share.minike.top/Article/details/675136.shtml
-- 2026-06-30 09:25 - 千与千寻<br><br> | ??:https://www.share.minike.top/Article/details/486896.shtml
-- 2026-06-30 09:23 - 沉睡花园<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/57403.shtml
-- 2026-06-30 09:17 - 檀健次王楚然吻戏看热了<br><br> | ??:https://www.blog.minike.top/Article/details/03844.shtml
-- 2026-06-30 09:16 - 如何评价DeepSeek 提出的 DSpark 推理加速方案？<br><br> | ??:http://www.blog.minike.top/Article/details/0607272.shtml
-- 2026-06-30 09:17 - 马耳他著名拱门坍塌致中国男子身亡<br><br> | ??:https://www.share.minike.top/Article/details/375575.shtml
-- 2026-06-30 09:15 - 4种红薯的满分吃法！有手就会…但能让你大为震撼！<br><br> | ??:https://www.blog.minike.top/Article/details/17716.shtml
-- 2026-06-30 09:06 - 为什么很多企业推行“扁平化管理”后，效率反而下降了？<br><br> | ??:http://www.share.minike.top/Article/details/28075.shtml
-- 2026-06-30 09:09 - “中国养猪场都用上空调了”！这是真的吗？【主播说三农】<br><br> | ??:http://www.blog.minike.top/Article/details/6036332642.shtml
-- 2026-06-30 09:16 - 时光音乐会<br><br> | ??:https://www.share.minike.top/Article/details/308073755047.shtml
-- 2026-06-30 09:21 - 披荆斩棘的哥哥<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/29300005489.shtml
-- 2026-06-30 09:24 - “柠檬茶能换怀表？”<br><br> | ??:http://www.share.kurohicncr.top/Article/details/81437908.shtml
-- 2026-06-30 09:11 - 手底下人带不动怎么办？<br><br> | ??:http://www.share.minike.top/Article/details/57227784184.shtml
+<h2>延伸阅读</h2><br>
+<h3>马航MH370传来最新消息</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:http://www.blog.minike.top/Article/details/100487428.shtml</p><br>
+<h3>2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:http://www.blog.minike.top/Article/details/566199.shtml</p><br>
+<h3>四川宜宾地震为何震感明显</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:http://www.share.minike.top/Article/details/18000561929.shtml</p><br>
+<h3>陈幸同晋级WTT美国大满贯女单32强</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://www.share.minike.top/Article/details/0286227475.shtml</p><br>
+<h3>【硬核拆解】汽车人到底离我们有多远？</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/30687209719.shtml</p><br>
+<h3>荷兰vs摩洛哥</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/764999379859.shtml</p><br>
+<h3>王源近几年没有路演了</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://www.share.minike.top/Article/details/955682.shtml</p><br>
+<h3>为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/051554741348.shtml</p><br>
+<h3>董卿母亲癌症去世</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://www.blog.minike.top/Article/details/3039141.shtml</p><br>
+<h3>张雪的一句“是我们”引发岛内热议</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/90643.shtml</p><br>
+<h3>这几秒成世界杯最值钱广告位</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:http://www.share.minike.top/Article/details/719467098429.shtml</p><br>
+<h3>欧洲装一台空调有多难</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:http://www.blog.minike.top/Article/details/80463.shtml</p><br>
+<h3>自然光｜papi酱&窦文涛：驴与跑步机</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/885959.shtml</p><br>
+<h3>女儿从清华毕业 爸爸晒出17年对比照</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.share.minike.top/Article/details/17805.shtml</p><br>
+<h3>板面：为什么那么多人爱吃？？！</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/974727592.shtml</p><br>

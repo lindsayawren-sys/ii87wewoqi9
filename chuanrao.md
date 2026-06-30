@@ -1,51 +1,47 @@
-# 南方高山草原马背节来了 策马驰骋不用去北方
+<h1>华尔街巨头呼吁监管Hyperliquid，指其威胁全球油价定价体系</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>传统交易所齐声警告 芝加哥商业交易所和洲际交易所近日联合向美国监管机构施压，呼吁加强对链上衍生品平台Hyperliquid的联邦监管。这两家掌控着全球基准油价定价权的传统交易所巨头警告称，Hyperliquid的匿名交易环境可能被用于操纵市场、规避制裁，其不断增长的石油相关衍生品交易量已开始影响全球原油的价格发现机制。 全天候交易模式冲击传统市场 Hyperliquid的核心优</p><br>
+<h2>正文</h2><br>
+<p>传统交易所齐声警告 芝加哥商业交易所和洲际交易所近日联合向美国监管机构施压，呼吁加强对链上衍生品平台Hyperliquid的联邦监管。</p><br>
+<p>这两家掌控着全球基准油价定价权的传统交易所巨头警告称，Hyperliquid的匿名交易环境可能被用于操纵市场、规避制裁，其不断增长的石油相关衍生品交易量已开始影响全球原油的价格发现机制。</p><br>
+<p>全天候交易模式冲击传统市场 Hyperliquid的核心优势在于其“7x24小时”不间断交易模式。</p><br>
+<p>在地缘政治紧张、传统市场休市期间，该平台已成为交易者对冲风险的关键场所。</p><br>
+<p>例如，在2月底美伊冲突升级后的周末，其WTI原油永续合约实时反映了价格冲击，比芝加哥商业交易所市场开盘早了近48小时。</p><br>
+<p>这种“全天候”的流动性吸收了巨额资金，两家传统交易所巨头认为其规模已足以反过来影响常规交易时段的定价。</p><br>
+<p>平台反驳：称其为“无端担忧” Hyperliquid对此回应称，其链上交易记录完全公开透明，反而能杜绝传统市场中存在的隐藏操纵行为。</p><br>
+<p>该平台近期设立了华盛顿政策中心，显示出接受监管的意愿。</p><br>
+<h2>相关推荐</h2><br>
+<h3>奔跑吧·黄河篇第二季</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md</p><br>
+<h3>德国4比5巴拉圭</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md</p><br>
+<h3>要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md</p><br>
+<h3>周冬雨多次说演不了话剧文城</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md</p><br>
+<h3>内马尔替补</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md</p><br>
+<h3>欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md</p><br>
+<h3>杨紫获白玉兰视后争议不止</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md</p><br>
+<h3>男子醉酒溺水获救后同行人拒搭手</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md</p><br>
+<h3>恋与深空道歉声明</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md</p><br>
+<h3>有人见过武则天的画像吗，非常好奇？</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md</p><br>
+<h3>不开心就去看三年前的购物订单</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md</p><br>
+<h3>日本进球</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md</p><br>
+<h3>美人鱼</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md</p><br>
+<h3>怕iPhone涨价的用户已紧急换新</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md</p><br>
 
-发布时间：2026年06月21日 17:30 来源：中国新闻网 连日来，湖南郴州，仰天湖大草原第五届马背节在端午假期上演，60名表演者身着全套明制甲胄，化身明代将士列阵草原，以明代传世经典《出警入跸图》为蓝本，再现明代军阵、骑兵、齐射等经典场景。六万亩高山草原绿意绵延、云浪翻涌，错落的风车与无垠草场相映成趣，游客可以近距离感受南方高山草原骑射文化，领略铁骑驰骋草原的雄风。(付敬
-
-## 正文
-
-发布时间：2026年06月21日 17:30 来源：中国新闻网 连日来，湖南郴州，仰天湖大草原第五届马背节在端午假期上演，60名表演者身着全套明制甲胄，化身明代将士列阵草原，以明代传世经典《出警入跸图》为蓝本，再现明代军阵、骑兵、齐射等经典场景。
-
-六万亩高山草原绿意绵延、云浪翻涌，错落的风车与无垠草场相映成趣，游客可以近距离感受南方高山草原骑射文化，领略铁骑驰骋草原的雄风。
-
-(付敬懿 海浪 肖胜男 制作 王佳琪） 责任编辑：【李季】
-
-## 相关推荐
-
-- 2026-06-30 09:02 - 全网说丑的格力玫瑰空调卖了5万台<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md
-- 2026-06-30 09:23 - 我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md
-- 2026-06-30 09:05 - 有哪些被认为是现代才有的东西其实古代就有了？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md
-- 2026-06-30 09:22 - 网友写差评被店家“挂”门口避雷<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md
-- 2026-06-30 09:20 - 李准基参加文彩元婚礼<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md
-- 2026-06-30 09:28 - 金价跳水 水贝市场显现出“两重天”<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md
-- 2026-06-30 09:16 - 第一次对自信的力量有了实感<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md
-- 2026-06-30 09:06 - 日本主帅赛后回应淘汰出局<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md
-- 2026-06-30 09:00 - 勇士续约波尔津吉斯<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md
-- 2026-06-30 09:10 - 对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md
-- 2026-06-30 09:16 - 未来的飞机可能会用电吗？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md
-- 2026-06-30 09:24 - 开电动汽车真的很省钱吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md
-- 2026-06-30 09:22 - 首届《哈基米歌王争霸赛》总决赛<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md
-- 2026-06-30 09:19 - 我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md
-- 2026-06-30 09:02 - 吴易昺不敌德约科维奇 止步温网首轮<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md
-
-## 延伸阅读
-
-- 2026-06-30 09:00 - 找到了10年前跪舔b站的视频<br><br> | ??:https://www.blog.minike.top/Article/details/93286046528.shtml
-- 2026-06-30 09:28 - 萨内 看笑了<br><br> | ??:http://www.blog.minike.top/Article/details/84463.shtml
-- 2026-06-30 09:24 - 把毒品藏在哪里，60秒内不会被发现？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/9676643.shtml
-- 2026-06-30 09:08 - 赛博朋克边缘行者2预告片<br><br> | ??:https://www.share.kurohicncr.top/Article/details/487547533123.shtml
-- 2026-06-30 09:07 - 王楚钦说配合稍微有些陌生感<br><br> | ??:https://www.share.minike.top/Article/details/72332.shtml
-- 2026-06-30 09:14 - 如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/70686536.shtml
-- 2026-06-30 09:06 - 日本将帅赛后采访纷纷哽咽落泪<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/92041.shtml
-- 2026-06-30 09:06 - 如何评价杨紫白玉兰获奖<br><br> | ??:http://www.share.minike.top/Article/details/430651700507.shtml
-- 2026-06-30 09:10 - 《鸣潮》玄方主题曲 MV | 定玄<br><br> | ??:http://www.share.kurohicncr.top/Article/details/149919242.shtml
-- 2026-06-30 09:12 - 网红峡谷5人溺亡 有人提醒会下雨<br><br> | ??:https://www.share.minike.top/Article/details/727908.shtml
-- 2026-06-30 09:14 - 第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！<br><br> | ??:http://www.blog.minike.top/Article/details/8828380.shtml
-- 2026-06-30 09:22 - 为什么纣王似乎对周文王的扩张完全无动于衷？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/791536.shtml
-- 2026-06-30 09:23 - 泰山建135公里刀片刺绳隔离网<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/77302082.shtml
-- 2026-06-30 09:19 - 有什么好的高中网课推荐吗？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/52452265801.shtml
-- 2026-06-30 09:27 - 承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？<br><br> | ??:http://www.blog.minike.top/Article/details/038398133.shtml
+<h2>延伸阅读</h2><br>
+<h3>你这一辈子有没有为进山姆拼过命？</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/259125.shtml</p><br>
+<h3>点球大战</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://www.blog.minike.top/Article/details/72420254.shtml</p><br>
+<h3>首届《哈基米歌王争霸赛》总决赛</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/929062474673.shtml</p><br>
+<h3>警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/7738295548.shtml</p><br>
+<h3>央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://www.share.minike.top/Article/details/61601.shtml</p><br>
+<h3>黄晓明夸昆凌引杨颖对比</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:http://www.blog.minike.top/Article/details/473494951.shtml</p><br>
+<h3>王灿兮被烫伤两年后维权成功</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://www.share.minike.top/Article/details/810237729810.shtml</p><br>
+<h3>赵今麦因“瘦而不柴”的体态出圈</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/13698.shtml</p><br>
+<h3>诺伊尔尽力了</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:http://www.blog.minike.top/Article/details/9994304294.shtml</p><br>
+<h3>杨紫大银幕成绩单</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/059721963750.shtml</p><br>
+<h3>考入南大计算机，复读考清北值吗？</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/7420975573.shtml</p><br>
+<h3>急先锋</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/268690.shtml</p><br>
+<h3>勇敢的心第二部</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/20657.shtml</p><br>
+<h3>女儿从清华毕业 爸爸晒出17年对比照</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:http://www.blog.minike.top/Article/details/282782375137.shtml</p><br>
+<h3>黄晓明夸昆凌引杨颖对比</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/144944639515.shtml</p><br>

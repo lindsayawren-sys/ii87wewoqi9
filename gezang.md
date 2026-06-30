@@ -1,60 +1,45 @@
-# 一条黑帖挣6块钱，网络水军何以久治不绝
+<h1>沃什时代开启，鲍威尔留下丰厚遗产</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>美联储正式迎来权力交接。在成功带领美国经济度过百年一遇的疫情冲击和随后四十年最严重的通胀风暴之后，杰罗姆·鲍威尔卸任美联储主席一职，但他将继续以理事身份留在美联储董事会。接替他的是前布什政府官员、曾长期担任美联储理事的凯文·沃什。沃什上任伊始便面临严峻挑战：美联储内部在货币政策方向上分歧严重，物价压力依然顽固，汽油价格因中东局势持续高企。此外，特朗普总统多次公开施压要求降息，使</p><br>
+<h2>正文</h2><br>
+<p>美联储正式迎来权力交接。</p><br>
+<p>在成功带领美国经济度过百年一遇的疫情冲击和随后四十年最严重的通胀风暴之后，杰罗姆·鲍威尔卸任美联储主席一职，但他将继续以理事身份留在美联储董事会。</p><br>
+<p>接替他的是前布什政府官员、曾长期担任美联储理事的凯文·沃什。</p><br>
+<p>沃什上任伊始便面临严峻挑战：美联储内部在货币政策方向上分歧严重，物价压力依然顽固，汽油价格因中东局势持续高企。</p><br>
+<p>此外，特朗普总统多次公开施压要求降息，使央行的独立性面临考验。</p><br>
+<p>鲍威尔留下的最大遗产是在不引发经济衰退的情况下遏制了高通胀，实现了所谓的“软着陆”。</p><br>
+<p>责任编辑：张俊 SF065</p><br>
+<h2>相关推荐</h2><br>
+<h3>失明的我带老妈去了趟“火星”</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md</p><br>
+<h3>索马里女大使：想和中国一起搞事业</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md</p><br>
+<h3>我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md</p><br>
+<h3>赛博朋克边缘行者2预告片</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md</p><br>
+<h3>曝娱乐圈大部分明星失业</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md</p><br>
+<h3>《名肘探科比》：科比大战裂口女</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md</p><br>
+<h3>徐亮怒斥世界杯踢假球</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md</p><br>
+<h3>勇敢的心第二部</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md</p><br>
+<h3>金牌调解</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md</p><br>
+<h3>男子在京东买到“同仁堂”假药</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md</p><br>
+<h3>穆祉丞回应获年度人气艺人</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md</p><br>
+<h3>日本队5进世界杯淘汰赛0胜</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md</p><br>
+<h3>美加墨世界杯：亚洲足球的得意与失意</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md</p><br>
 
-撰稿 / 流水（媒体人） 编辑 / 迟道华 校对 / 李立军 近段时间，互联网上的两件事，再次把网络水军暴露在公众视野中。 一则是，在国家网信办指导下，重点网站平台共同制定《整治涉企侵权信息 优化营商网络环境自律公约》，明确网站平台要及时清理侵犯企业家个人权益信息，主动清除已核实的涉企虚假不实信息，杜绝涉企负面信息“投流”行为等。 另一件事是，影石宣布启动“正义的6块钱”倡议活
-
-## 正文
-
-撰稿 / 流水（媒体人） 编辑 / 迟道华 校对 / 李立军 近段时间，互联网上的两件事，再次把网络水军暴露在公众视野中。
-
-一则是，在国家网信办指导下，重点网站平台共同制定《整治涉企侵权信息 优化营商网络环境自律公约》，明确网站平台要及时清理侵犯企业家个人权益信息，主动清除已核实的涉企虚假不实信息，杜绝涉企负面信息“投流”行为等。
-
-另一件事是，影石宣布启动“正义的6块钱”倡议活动。
-
-自6月17日起，影石在全国部分线下门店分批派发6元红包及《绿色上网倡议书》，以此提醒公众关注网络黑产问题。
-
-据影石相关负责人微博显示，一名热心用户在黑水军群里卧底一周，结果发现他们发一条黑帖就挣6块钱。
-
-为此，影石还线上悬赏征集线索，甚至设立价值10万元的“纯金拖鞋”作为终极奖励，高调向网络黑水军宣战。
-
-从国家机关、到平台、再到企业，相关表态和举措，恰恰构成了治理网络水军的一个切面。
-
-涉事企业的维权举措，不仅是对企业自身合法权益的捍卫，补上了网络水军“打击链”的最后一环，也向社会传递出打击网络水军和黑灰产，净化网络环境的明确信号。
-
-## 相关推荐
-
-- 2026-06-30 09:16 - 美人鱼<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md
-- 2026-06-30 09:07 - 披荆斩棘的哥哥<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md
-- 2026-06-30 09:00 - 莫兰特被交易到开拓者<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md
-- 2026-06-30 09:25 - 欧洲装一台空调有多难<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md
-- 2026-06-30 09:18 - 《共患难》<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md
-- 2026-06-30 09:03 - 电影抓特务上映11天破亿<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md
-- 2026-06-30 09:10 - 为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md
-- 2026-06-30 09:07 - 蜘蛛侠:英雄归来<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md
-- 2026-06-30 09:18 - 如何把斧兵改造成精英怪？提高攻速移速！！！<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md
-- 2026-06-30 09:02 - F1奥地利站赛后复盘<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md
-- 2026-06-30 09:03 - 金鹰奖视后提名预测<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md
-- 2026-06-30 09:06 - 王濛回复黄灿灿<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md
-- 2026-06-30 09:07 - 锐评T1战胜KC<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md
-- 2026-06-30 09:18 - 本届世界杯已有5名球员被控强奸<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md
-
-## 延伸阅读
-
-- 2026-06-30 09:24 - 恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/082377938.shtml
-- 2026-06-30 09:14 - 豆包收费了，你还会用吗？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/00480256.shtml
-- 2026-06-30 09:16 - 美股深夜大反弹 特斯拉飙涨8%<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/04663940.shtml
-- 2026-06-30 09:02 - 王欣瑜连续4年晋级温网第二轮<br><br> | ??:http://www.share.kurohicncr.top/Article/details/386485263172.shtml
-- 2026-06-30 09:23 - 日本球迷输球后集体捡垃圾<br><br> | ??:http://www.share.minike.top/Article/details/93430530053.shtml
-- 2026-06-30 09:07 - 我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......<br><br> | ??:https://www.share.minike.top/Article/details/1100860.shtml
-- 2026-06-30 09:12 - 孙兴慜道歉<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/84476.shtml
-- 2026-06-30 09:08 - 恋与深空道歉声明<br><br> | ??:http://www.share.kurohicncr.top/Article/details/629393.shtml
-- 2026-06-30 09:11 - 如何把斧兵改造成精英怪？提高攻速移速！！！<br><br> | ??:https://www.blog.minike.top/Article/details/6394870.shtml
-- 2026-06-30 09:12 - 董路：谁赢谁是“正路子”<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/7702942.shtml
-- 2026-06-30 09:11 - 王欣瑜连续4年晋级温网第二轮<br><br> | ??:https://www.blog.minike.top/Article/details/46824599485.shtml
-- 2026-06-30 09:18 - 委内瑞拉地震死亡人数升至1719人<br><br> | ??:http://www.blog.minike.top/Article/details/31790013101.shtml
-- 2026-06-30 09:20 - 中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/5672349419.shtml
-- 2026-06-30 09:21 - 主人解开狗绳2只狗将路人撕咬致死<br><br> | ??:http://www.share.kurohicncr.top/Article/details/819824.shtml
-- 2026-06-30 09:16 - 2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/502452850.shtml
+<h2>延伸阅读</h2><br>
+<h3>名记：灰熊将莫兰特交易至开拓者</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/01329665454.shtml</p><br>
+<h3>女子健身不当 居然“脑子漏水”了</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:https://www.blog.minike.top/Article/details/327421233.shtml</p><br>
+<h3>萨内 看笑了</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/0889175.shtml</p><br>
+<h3>如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:https://www.share.minike.top/Article/details/0094166541.shtml</p><br>
+<h3>网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:http://www.blog.minike.top/Article/details/093091.shtml</p><br>
+<h3>逃狱兄弟</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://www.blog.minike.top/Article/details/45372108479.shtml</p><br>
+<h3>金刚川</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://www.blog.minike.top/Article/details/345993402506.shtml</p><br>
+<h3>美团、淘宝闪购、京东外卖达成共识</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/39151298.shtml</p><br>
+<h3>这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://www.share.minike.top/Article/details/75462247.shtml</p><br>
+<h3>为什么纣王似乎对周文王的扩张完全无动于衷？</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://www.share.minike.top/Article/details/9338426.shtml</p><br>
+<h3>李准基参加文彩元婚礼</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/09690533.shtml</p><br>
+<h3>勇士续约波尔津吉斯</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://www.blog.minike.top/Article/details/112954.shtml</p><br>
+<h3>【硬核拆解】汽车人到底离我们有多远？</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:http://www.share.minike.top/Article/details/52515809672.shtml</p><br>
+<h3>美团、淘宝闪购、京东外卖达成共识</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/8483450.shtml</p><br>
+<h3>荀彧和曹操反目成仇的根本原因是什么？</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/5286409540.shtml</p><br>

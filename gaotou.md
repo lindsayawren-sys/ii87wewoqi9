@@ -1,56 +1,48 @@
-# 华文作家戴小华携力作北京分享两岸故事
+<h1>东西问｜美国记者，在北京看到了怎样的中国？</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>中新社北京5月16日电 题：美国记者，在北京看到了怎样的中国？ 中新社记者 贺劭清 “30年后再次回到北京，这里已经建起高楼大厦，高速公路上车流不断，中国制造会让你意识到，这里已经发展到了什么程度。”近日，美国资深新闻主播比尔·海默(Bill Hemmer)在访谈节目中感慨，重返北京见到的景象令他无比震撼——中国的发展速度远超想象。 5月13日至15日，美国总统特朗普对中国进行</p><br>
+<h2>正文</h2><br>
+<p>中新社北京5月16日电 题：美国记者，在北京看到了怎样的中国？</p><br>
+<p>中新社记者 贺劭清 “30年后再次回到北京，这里已经建起高楼大厦，高速公路上车流不断，中国制造会让你意识到，这里已经发展到了什么程度。</p><br>
+<p>”近日，美国资深新闻主播比尔·海默(Bill Hemmer)在访谈节目中感慨，重返北京见到的景象令他无比震撼——中国的发展速度远超想象。</p><br>
+<p>5月13日至15日，美国总统特朗普对中国进行国事访问。</p><br>
+<p>多家美国知名新闻机构的记者提前或同机来到北京。</p><br>
+<p>连日来，这些美国记者不仅见证了两国元首会晤，还走进胡同品尝豆汁与烧饼，在便利店向机器人下单烤肠，和北京大爷比拼乒乓技艺，并通过镜头向海外网友证实“百里月季花环”并非AI生成。</p><br>
+<p>在一家便利店，美国福克斯首席政治新闻主播布雷特·拜尔(Bret Baier)通过麦克风，用英语对机器人说，“我要一根烤肠”。</p><br>
+<p>随后机器人用英语回答：“OK，烤肠8.8元。</p><br>
+<h2>相关推荐</h2><br>
+<h3>2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md</p><br>
+<h3>詹姆斯 勇士</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md</p><br>
+<h3>Melo向柳智敏张元英道歉</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md</p><br>
+<h3>五哈和他们的朋友</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md</p><br>
+<h3>男子诋毁袁隆平科研成果被刑拘</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md</p><br>
+<h3>德国 传控</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md</p><br>
+<h3>武磊：巴西队赢的并不轻松</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md</p><br>
+<h3>F1奥地利站赛后复盘</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md</p><br>
+<h3>【硬核拆解】汽车人到底离我们有多远？</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md</p><br>
+<h3>德国淘汰</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md</p><br>
+<h3>酒店推行“24小时退房”引热议</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md</p><br>
+<h3>为什么很多企业推行“扁平化管理”后，效率反而下降了？</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md</p><br>
+<h3>日本反击率先破门</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md</p><br>
+<h3>日本队主帅道歉</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md</p><br>
+<h3>点球大战 残酷</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md</p><br>
 
-中新社北京6月19日电 (张杨彬 姜姿屹)马来西亚华文作家戴小华19日在北京举办分享会，就其纪实作品《忽如归》与散文新作《情随心旅踏歌行》，与读者分享作品创作经历和两岸故事。 2017年，《忽如归》即已在中国大陆文学界引起关注。 戴小华祖籍河北沧州，生于台湾，定居马来西亚吉隆坡。她说，因三地都有亲人，对“家”的理解更为深刻。“家不是地域的概念，它属于精神范畴。”她认为，中华文化
-
-## 正文
-
-中新社北京6月19日电 (张杨彬 姜姿屹)马来西亚华文作家戴小华19日在北京举办分享会，就其纪实作品《忽如归》与散文新作《情随心旅踏歌行》，与读者分享作品创作经历和两岸故事。
-
-2017年，《忽如归》即已在中国大陆文学界引起关注。
-
-戴小华祖籍河北沧州，生于台湾，定居马来西亚吉隆坡。
-
-她说，因三地都有亲人，对“家”的理解更为深刻。
-
-“家不是地域的概念，它属于精神范畴。
-
-”她认为，中华文化是可以连结全球华人的精神纽带。
-
-戴小华回忆，童年时期，母亲常与同样从大陆迁台的邻里相聚，众人凭借手中发黄的旧照片遥寄对大陆亲人的思念。
-
-1999年母亲在台去世后，戴小华经多方努力，将她安葬于河北沧州。
-
-## 相关推荐
-
-- 2026-06-30 09:18 - 郑钦文温网三连败西尼亚科娃<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md
-- 2026-06-30 09:23 - 卡塞米罗头球破门<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md
-- 2026-06-30 09:07 - 庆祝中国共产党成立105周年大会将举行<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md
-- 2026-06-30 09:14 - GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md
-- 2026-06-30 09:06 - 收到补税提醒尽快办理 明起有滞纳金<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md
-- 2026-06-30 09:23 - 国内最大沙漠发洪水意味着什么<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md
-- 2026-06-30 09:23 - 怕iPhone涨价的用户已紧急换新<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md
-- 2026-06-30 09:08 - 安切洛蒂 换人<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md
-- 2026-06-30 09:27 - 德国队世界杯点球大战首败<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md
-- 2026-06-30 09:29 - 我设置了全宇宙最安全的密码<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md
-
-## 延伸阅读
-
-- 2026-06-30 09:29 - 张月收到黄灿灿辣货两眼发光<br><br> | ??:https://www.share.minike.top/Article/details/671535961.shtml
-- 2026-06-30 09:08 - 歌剧老师锐评歌手第6期<br><br> | ??:http://www.share.minike.top/Article/details/0977235585.shtml
-- 2026-06-30 09:18 - 内马尔中场休息积极鼓励队友<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/14172918996.shtml
-- 2026-06-30 09:24 - 杨紫获白玉兰视后争议不止<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/4873855.shtml
-- 2026-06-30 09:08 - 【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/47803.shtml
-- 2026-06-30 09:29 - 如何评价DeepSeek 提出的 DSpark 推理加速方案？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/0990740.shtml
-- 2026-06-30 09:09 - 三星投资计划<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/52174.shtml
-- 2026-06-30 09:28 - 【涤墨作战7人870】望：我从地狱杀回来了！<br><br> | ??:https://www.blog.minike.top/Article/details/2610985892.shtml
-- 2026-06-30 09:24 - 科学备孕男女都要上心<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/979660606.shtml
-- 2026-06-30 09:00 - 不开心就去看三年前的购物订单<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/4060006.shtml
-- 2026-06-30 09:23 - 第3集丨“柠檬茶能换怀表？”<br><br> | ??:http://www.share.kurohicncr.top/Article/details/0193433663.shtml
-- 2026-06-30 09:03 - 开电动汽车真的很省钱吗？<br><br> | ??:https://www.share.minike.top/Article/details/145259.shtml
-- 2026-06-30 09:16 - 现在叛逆期的孩子最怕的是什么？<br><br> | ??:https://www.blog.minike.top/Article/details/749316592.shtml
-- 2026-06-30 09:05 - Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/932282386302.shtml
-- 2026-06-30 09:27 - 韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？<br><br> | ??:http://www.blog.minike.top/Article/details/28444.shtml
+<h2>延伸阅读</h2><br>
+<h3>恋与深空回应争议</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/17657876624.shtml</p><br>
+<h3>王濛回复黄灿灿</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.blog.minike.top/Article/details/14646.shtml</p><br>
+<h3>女子遭家暴逃跑致丈夫身亡二审细节</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:http://www.share.minike.top/Article/details/34799228.shtml</p><br>
+<h3>大蒜晒外面被路过女子连盆端走</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/5929010353.shtml</p><br>
+<h3>有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/400576.shtml</p><br>
+<h3>毕业以后，你最怀念的大学记忆是什么？</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/96504810.shtml</p><br>
+<h3>明星大侦探第四季</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/5150509149.shtml</p><br>
+<h3>左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/808662786.shtml</p><br>
+<h3>陈小春人老了干什么也不心酸</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/576762832.shtml</p><br>
+<h3>张雪的一句“是我们”引发岛内热议</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://www.share.minike.top/Article/details/022793028.shtml</p><br>
+<h3>如何改变自己太负责任的性格?</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/1631195.shtml</p><br>
+<h3>博世们还在犹豫 美的们已经卖断货</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://www.share.minike.top/Article/details/17705490.shtml</p><br>
+<h3>发明linux、python、redis、nginx、sqlite的人算不算天才？</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://www.blog.minike.top/Article/details/256513986324.shtml</p><br>
+<h3>本科毕业生为何涌入专科学校</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/239074765.shtml</p><br>
+<h3>“草莓月亮”浪漫现身</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/4811488.shtml</p><br>

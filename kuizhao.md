@@ -1,60 +1,45 @@
-# 6月20日外盘头条：美伊核谈尚未开始即因黎巴嫩问题陷入停滞 伊朗提出“保险费” 交易员提高美联储加息押注
+<h1>美联储，重磅来袭！降息，突变！</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>美联储的最新动向，备受市场关注！ 5月18日当周，美联储会议纪要将成为关注焦点。 美联储4月会议纪要将于北京时间周四凌晨2点公布，投资者希望从中寻找在能源价格高企的背景下，降息甚至加息前景的可能性。 美联储理事会15日表示，已任命杰罗姆·鲍威尔担任临时主席，直至其继任者凯文·沃什正式宣誓就职。接下来，沃什将对美联储的货币政策以及美股市场带来哪些影响呢？ 美联储会议纪要即将公布</p><br>
+<h2>正文</h2><br>
+<p>美联储的最新动向，备受市场关注！</p><br>
+<p>5月18日当周，美联储会议纪要将成为关注焦点。</p><br>
+<p>美联储4月会议纪要将于北京时间周四凌晨2点公布，投资者希望从中寻找在能源价格高企的背景下，降息甚至加息前景的可能性。</p><br>
+<p>美联储理事会15日表示，已任命杰罗姆·鲍威尔担任临时主席，直至其继任者凯文·沃什正式宣誓就职。</p><br>
+<p>接下来，沃什将对美联储的货币政策以及美股市场带来哪些影响呢？</p><br>
+<p>美联储会议纪要即将公布 定于当地时间周三公布的美联储4月会议纪要，可能为利率前景提供线索。</p><br>
+<p>在4月会议上，美联储维持利率不变，但有三位持反对意见的官员反对在声明中继续保留“偏向降息”的措辞。</p><br>
+<p>投资者将关注，委员会整体上是否因通胀压力上升而愈发认为降息不太可能。</p><br>
+<h2>相关推荐</h2><br>
+<h3>博世们还在犹豫 美的们已经卖断货</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md</p><br>
+<h3>挪威国家队紧急从本土订购大批海鲜</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md</p><br>
+<h3>李在明向韩国两大财阀90度鞠躬</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md</p><br>
+<h3>"超算小姐，这一次，我一定要带你出去..."</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md</p><br>
+<h3>荷兰VS摩洛哥</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md</p><br>
+<h3>如何评价杨紫白玉兰获奖</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md</p><br>
+<h3>巴西绝杀</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md</p><br>
+<h3>浪姐成团夜爆笑吐槽</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md</p><br>
+<h3>金刚川</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md</p><br>
+<h3>蔚来回应高压水枪洗车掉漆</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md</p><br>
+<h3>有哪些被认为是现代才有的东西其实古代就有了？</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md</p><br>
+<h3>人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md</p><br>
 
-全球财经媒体昨夜今晨共同关注的头条新闻主要有： 1、美伊核谈因黎巴嫩问题未能举行 尚未启动便陷入停滞 2、伊朗提出“保险费” 宣示对霍尔木兹海峡的控制权 3、SpaceX IPO诞生数千位百万富翁 有高管持股市值超10亿美元 4、特朗普：Anthropic曾构成国家安全威胁 5、伊朗相关忧虑和沃什鹰派立场之下 交易员提高美联储加息押注 6、机构：霍尔木兹海峡重启商业航运以来已有
-
-## 正文
-
-全球财经媒体昨夜今晨共同关注的头条新闻主要有： 1、美伊核谈因黎巴嫩问题未能举行 尚未启动便陷入停滞 2、伊朗提出“保险费” 宣示对霍尔木兹海峡的控制权 3、SpaceX IPO诞生数千位百万富翁 有高管持股市值超10亿美元 4、特朗普：Anthropic曾构成国家安全威胁 5、伊朗相关忧虑和沃什鹰派立场之下 交易员提高美联储加息押注 6、机构：霍尔木兹海峡重启商业航运以来已有至少20艘油轮通航 美伊核谈尚未开始即因黎巴嫩问题陷入停滞 伊朗推迟与美国就持久和平协议启动谈判，此前黎巴嫩南部战事激化。
-
-这可能使唐纳德·特朗普结束战争、遏制德黑兰核计划的努力受挫。
-
-两位知情人士透露，原定周五在瑞士举行的谈判因以色列与伊朗支持的真主党武装之间的冲突而推迟。
-
-一名美国官员表示，以色列和真主党周五晚些时候同意停火。
-
-双方均表示，如果对方也遵守停火，己方将承诺停火，否则将作出回应。
-
-伊朗坚持要求将黎巴嫩停火纳入本周与美国敲定的临时和平协议，并因新一轮敌对行动而没有派代表团参加谈判。
-
-原定代表华盛顿出席的美国副总统JD·万斯也未成行。
-
-目前尚无新的磋商启动日期。
-
-## 相关推荐
-
-- 2026-06-30 09:22 - 全网说丑的格力玫瑰空调卖了5万台<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md
-- 2026-06-30 09:03 - 中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md
-- 2026-06-30 09:16 - 蔚来回应高压水枪洗车掉漆<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md
-- 2026-06-30 09:18 - 收到补税提醒尽快办理 明起有滞纳金<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md
-- 2026-06-30 09:26 - ⚡逼尔摩斯教你玩球⚡<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md
-- 2026-06-30 09:16 - 王楚钦说配合稍微有些陌生感<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md
-- 2026-06-30 09:15 - 扬名立万<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md
-- 2026-06-30 09:27 - 覃予萱晋级WTT美国大满贯女单32强<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md
-- 2026-06-30 09:22 - 如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md
-- 2026-06-30 09:12 - 韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md
-- 2026-06-30 09:15 - 《恋与深空》被指触碰民族伤痛红线<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md
-- 2026-06-30 09:16 - 这种关系可能正在悄悄“催老”你<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md
-- 2026-06-30 09:12 - 网瘾賊大的阿嬷<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md
-- 2026-06-30 09:05 - GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md
-
-## 延伸阅读
-
-- 2026-06-30 09:27 - 张月收到黄灿灿辣货两眼发光<br><br> | ??:http://www.share.minike.top/Article/details/85019364278.shtml
-- 2026-06-30 09:26 - 我和我的家乡<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/41265918547.shtml
-- 2026-06-30 09:04 - 杨紫被质疑未使用原名<br><br> | ??:https://www.share.kurohicncr.top/Article/details/59595.shtml
-- 2026-06-30 09:22 - 巴西足球能否再现昔日荣光<br><br> | ??:http://www.share.kurohicncr.top/Article/details/7223165.shtml
-- 2026-06-30 09:14 - 有什么好的高中网课推荐吗？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/4394129.shtml
-- 2026-06-30 09:22 - 泰山建135公里刀片刺绳隔离网<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/65912.shtml
-- 2026-06-30 09:08 - 杨紫大银幕成绩单如何<br><br> | ??:https://www.share.kurohicncr.top/Article/details/3341271.shtml
-- 2026-06-30 09:07 - 德国队世界杯点球大战首败<br><br> | ??:https://www.blog.minike.top/Article/details/7476749.shtml
-- 2026-06-30 09:09 - 国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/16239021471.shtml
-- 2026-06-30 09:08 - 日本将帅赛后采访纷纷哽咽落泪<br><br> | ??:http://www.share.kurohicncr.top/Article/details/17226097687.shtml
-- 2026-06-30 09:20 - 一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/1651287.shtml
-- 2026-06-30 09:10 - 被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】<br><br> | ??:http://www.blog.minike.top/Article/details/253907030326.shtml
-- 2026-06-30 09:25 - 马耳他著名拱门坍塌致一中国男子身亡<br><br> | ??:http://www.share.minike.top/Article/details/0074045.shtml
-- 2026-06-30 09:02 - 美股深夜大反弹 特斯拉飙涨8%<br><br> | ??:https://www.blog.minike.top/Article/details/30371183.shtml
-- 2026-06-30 09:25 - 吴启华卖肖像权拍AI电影<br><br> | ??:https://www.share.kurohicncr.top/Article/details/74193976130.shtml
+<h2>延伸阅读</h2><br>
+<h3>勇敢的心第二部</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:http://www.share.minike.top/Article/details/1446498.shtml</p><br>
+<h3>韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:https://www.blog.minike.top/Article/details/70389.shtml</p><br>
+<h3>拆解FIFA和世界杯的暗面</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://www.blog.minike.top/Article/details/321374806240.shtml</p><br>
+<h3>一生一世</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://www.blog.minike.top/Article/details/87255204168.shtml</p><br>
+<h3>沉睡花园</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/42645107.shtml</p><br>
+<h3>覃予萱晋级WTT美国大满贯女单32强</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://www.share.minike.top/Article/details/84720.shtml</p><br>
+<h3>欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/8397459661.shtml</p><br>
+<h3>「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:http://www.blog.minike.top/Article/details/8670061648.shtml</p><br>
+<h3>我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/962202938866.shtml</p><br>
+<h3>杨紫大银幕成绩单如何</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/1828318549.shtml</p><br>
+<h3>日本主帅：未能夺冠深感抱歉</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://www.blog.minike.top/Article/details/79589713.shtml</p><br>
+<h3>有人见过武则天的画像吗，非常好奇？</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://www.share.minike.top/Article/details/3273869899.shtml</p><br>
+<h3>齐思钧回复张月</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.blog.minike.top/Article/details/4597380.shtml</p><br>
+<h3>日本队5进世界杯淘汰赛0胜</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.blog.minike.top/Article/details/056378.shtml</p><br>
+<h3>2021江苏卫视跨年演唱会</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://www.blog.minike.top/Article/details/79721875.shtml</p><br>

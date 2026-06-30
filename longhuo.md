@@ -1,60 +1,46 @@
-# 美伊局势缓和推低油价 押注供应过剩的交易再度活跃
+<h1>红霉素软膏是皮肤问题的“万能药”？警惕细菌耐药</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>红霉素软膏是皮肤问题的“万能药”？ 医生：滥用场景较多，警惕细菌耐药 气温逐渐升高，又到了皮肤问题高发的季节。被蚊虫咬了个大包，涂点红霉素软膏；脸上长了痘痘，抹点红霉素软膏；孩子得了尿布疹，还是红霉素软膏……在不少家庭的“小药箱”里，似乎都少不了红霉素软膏这个“万能皮肤药”。但南京江北医院皮肤科副主任孔玉龙在接受采访时指出，红霉素软膏本质上是一种抗生素，只对细菌感染引起的皮肤问</p><br>
+<h2>正文</h2><br>
+<p>红霉素软膏是皮肤问题的“万能药”？</p><br>
+<p>医生：滥用场景较多，警惕细菌耐药 气温逐渐升高，又到了皮肤问题高发的季节。</p><br>
+<p>被蚊虫咬了个大包，涂点红霉素软膏；脸上长了痘痘，抹点红霉素软膏；孩子得了尿布疹，还是红霉素软膏……在不少家庭的“小药箱”里，似乎都少不了红霉素软膏这个“万能皮肤药”。</p><br>
+<p>但南京江北医院皮肤科副主任孔玉龙在接受采访时指出，红霉素软膏本质上是一种抗生素，只对细菌感染引起的皮肤问题有效，盲目长期使用还可能导致细菌耐药。</p><br>
+<p>“首先，蚊虫叮咬引起的皮肤瘙痒、局部红肿等，本质上是一种过敏反应。</p><br>
+<p>红霉素是一种抗生素，它的作用是杀灭细菌，而不是抗过敏。</p><br>
+<p>”孔玉龙解释说，如果只是单纯的蚊虫叮咬，没有抓破皮肤，指望涂抹红霉素软膏缓解瘙痒和消除红肿，完全是“药不对症”。</p><br>
+<p>“如果痒得厉害，不小心把皮肤抓破了，这时可以在抗过敏治疗的同时，加用红霉素软膏来预防细菌感染。</p><br>
+<h2>相关推荐</h2><br>
+<h3>湖北云南的这些涉汛信息都是假的</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md</p><br>
+<h3>森保一致歉：世界第一目标没能实现</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md</p><br>
+<h3>GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md</p><br>
+<h3>女儿从清华毕业 爸爸晒出17年对比照</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md</p><br>
+<h3>天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md</p><br>
+<h3>王楚钦说配合稍微有些陌生感</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md</p><br>
+<h3>巴西把自己踢晕了</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md</p><br>
+<h3>古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md</p><br>
+<h3>王菲谢霆锋十指紧扣好甜</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md</p><br>
+<h3>赛博朋克边缘行者2预告片</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md</p><br>
+<h3>日本队主帅道歉</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md</p><br>
+<h3>日本队5进世界杯淘汰赛0胜</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md</p><br>
+<h3>《赛博朋克：边缘行者 2》｜官方预告片</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md</p><br>
 
-随着美伊达成谅解备忘录后原油期货大跌，一批几乎被遗忘、押注原油供应过剩的小众期权头寸又重新活跃起来。 在美国对伊朗发动军事行动之前，一些交易员曾押注原油供应过剩将导致近月价格跌破远月期货价格，这种市场结构也被称为升水。然而，袭击发生后，对供应短缺的担忧推动即期价格飙升。4月下旬，8月交割的WTI原油期货一度较9月合约高出每桶5美元，而9月合约又比10月合约高出4美元。 油价大涨
-
-## 正文
-
-随着美伊达成谅解备忘录后原油期货大跌，一批几乎被遗忘、押注原油供应过剩的小众期权头寸又重新活跃起来。
-
-在美国对伊朗发动军事行动之前，一些交易员曾押注原油供应过剩将导致近月价格跌破远月期货价格，这种市场结构也被称为升水。
-
-然而，袭击发生后，对供应短缺的担忧推动即期价格飙升。
-
-4月下旬，8月交割的WTI原油期货一度较9月合约高出每桶5美元，而9月合约又比10月合约高出4美元。
-
-油价大涨意味着，超过2万份（相当于每月2000万桶）押注这些价差将跌破零的看跌期权合约，变得几乎一文不值。
-
-如今，随着价差回到1美元以下，这些期权再次变得具有意义。
-
-当然，如果和平协议破裂，油价可能会再度反弹。
-
-霍尔木兹海峡的船舶通行量可能需要一段时间才能恢复到正常水平，而且也无法立即填满过去几个月被抽干的储油罐，这或许能遏制油价下行空间。
-
-## 相关推荐
-
-- 2026-06-30 09:15 - 中国对日本再出重拳<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md
-- 2026-06-30 09:28 - 手底下人带不动怎么办？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md
-- 2026-06-30 09:00 - 为什么香港的冲厕水是咸的？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md
-- 2026-06-30 09:26 - 美团、淘宝闪购、京东外卖达成共识<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md
-- 2026-06-30 09:14 - 庆祝建党105周年特别节目<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md
-- 2026-06-30 09:05 - 媒体评泰山建135公里刀片刺绳隔离网<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md
-- 2026-06-30 09:08 - 为什么会有「念旧」的心理？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md
-- 2026-06-30 09:05 - 德国连续三届世界杯无缘16强<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md
-- 2026-06-30 09:28 - 板面：为什么那么多人爱吃？？！<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md
-- 2026-06-30 09:12 - 日本队5进世界杯淘汰赛0胜<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md
-- 2026-06-30 09:18 - 千与千寻<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md
-- 2026-06-30 09:20 - 点球大战 残酷<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md
-- 2026-06-30 09:10 - 我把队友的7连跪剪成了艺术<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md
-- 2026-06-30 09:20 - 这一刀 会很帅<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md
-
-## 延伸阅读
-
-- 2026-06-30 09:20 - 有人见过武则天的画像吗，非常好奇？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/080772879443.shtml
-- 2026-06-30 09:23 - 被巴西绝杀后 日球员田中碧跪地痛哭<br><br> | ??:https://www.share.minike.top/Article/details/921018.shtml
-- 2026-06-30 09:24 - 日本球迷输球后集体捡垃圾<br><br> | ??:https://www.share.kurohicncr.top/Article/details/23970577003.shtml
-- 2026-06-30 09:24 - 巴西绝杀<br><br> | ??:http://www.share.minike.top/Article/details/92631775.shtml
-- 2026-06-30 09:27 - 好像看到了人类带孩子崩溃的样子<br><br> | ??:https://www.share.kurohicncr.top/Article/details/52853131951.shtml
-- 2026-06-30 09:21 - 手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】<br><br> | ??:http://www.share.kurohicncr.top/Article/details/1123942714.shtml
-- 2026-06-30 09:08 - 2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？<br><br> | ??:http://www.share.minike.top/Article/details/041850068916.shtml
-- 2026-06-30 09:21 - 德国连续三届世界杯无缘16强<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/6436818.shtml
-- 2026-06-30 09:03 - 索马里女大使：想和中国一起搞事业<br><br> | ??:http://www.share.minike.top/Article/details/6130741136.shtml
-- 2026-06-30 09:09 - 徐亮怒斥世界杯踢假球<br><br> | ??:http://www.blog.minike.top/Article/details/50641.shtml
-- 2026-06-30 09:24 - 外国游客开始涌入中国农村<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/47839.shtml
-- 2026-06-30 09:16 - 尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」<br><br> | ??:https://www.blog.minike.top/Article/details/4757632717.shtml
-- 2026-06-30 09:17 - 金刚川<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/404972669.shtml
-- 2026-06-30 09:29 - 王楚钦说配合稍微有些陌生感<br><br> | ??:https://www.share.kurohicncr.top/Article/details/048254.shtml
-- 2026-06-30 09:17 - 未来的飞机可能会用电吗？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/1257046847.shtml
+<h2>延伸阅读</h2><br>
+<h3>刘宇宁是去进货了吗</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:http://www.share.minike.top/Article/details/643304529.shtml</p><br>
+<h3>詹姆斯 勇士</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:http://www.share.minike.top/Article/details/527662299054.shtml</p><br>
+<h3>【硬核拆解】汽车人到底离我们有多远？</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/9404172.shtml</p><br>
+<h3>日本遭读秒绝杀 森保一：我水平不够</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:http://www.blog.minike.top/Article/details/5649626189.shtml</p><br>
+<h3>巴西2-1绝杀日本</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/316756606809.shtml</p><br>
+<h3>如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:http://www.blog.minike.top/Article/details/25945900.shtml</p><br>
+<h3>恋与深空回应争议</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/4179912291.shtml</p><br>
+<h3>诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:http://www.share.minike.top/Article/details/856126985597.shtml</p><br>
+<h3>商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/098149.shtml</p><br>
+<h3>我觉得你是在无中生友</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:http://www.share.minike.top/Article/details/50490.shtml</p><br>
+<h3>承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:http://www.share.minike.top/Article/details/562702404034.shtml</p><br>
+<h3>如果有二次元高中是什么样子的？</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://www.blog.minike.top/Article/details/677864845815.shtml</p><br>
+<h3>日本队主帅道歉</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:http://www.share.minike.top/Article/details/920011169937.shtml</p><br>
+<h3>人可以极简主义到什么程度？</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/408437265.shtml</p><br>
+<h3>收到补税提醒尽快办理 明起有滞纳金</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:http://www.blog.minike.top/Article/details/18540477545.shtml</p><br>

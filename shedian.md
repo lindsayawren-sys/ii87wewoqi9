@@ -1,60 +1,47 @@
-# 活力中国调研行丨一条协同创新链这样“活”起来
+<h1>国家统计局：2025年城镇单位就业人员工资平稳增长</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>中新网5月15日电 据国家统计局网站消息，国家统计局人口和就业统计司副司长肖宁解读2025年城镇单位就业人员平均工资数据时指出，2025年，各地区各部门深入贯彻落实党中央、国务院决策部署，坚定不移贯彻新发展理念，实施更加积极有为的宏观政策，国民经济运行总体平稳、稳中有进，高质量发展取得新成效，城镇单位就业人员年平均工资平稳增长。一、城镇单位就业人员年平均工资平稳增长 2025年</p><br>
+<h2>正文</h2><br>
+<p>中新网5月15日电 据国家统计局网站消息，国家统计局人口和就业统计司副司长肖宁解读2025年城镇单位就业人员平均工资数据时指出，2025年，各地区各部门深入贯彻落实党中央、国务院决策部署，坚定不移贯彻新发展理念，实施更加积极有为的宏观政策，国民经济运行总体平稳、稳中有进，高质量发展取得新成效，城镇单位就业人员年平均工资平稳增长。</p><br>
+<p>一、城镇单位就业人员年平均工资平稳增长 2025年，全国城镇非私营单位就业人员年平均工资为129441元，比上年名义增长4.3%，增速高于上年1.5个百分点，扣除价格因素实际增长4.2%；城镇私营单位就业人员年平均工资为71590元，名义增长3.0%，增速高于上年1.3个百分点，扣除价格因素实际增长2.9%；规模以上企业就业人员年平均工资为106080元，名义增长3.5%，扣除价格因素实际增长3.4%。</p><br>
+<p>这里的工资是指全部劳动报酬，既包括就业人员从单位实际领取的工资、奖金、津补贴等，还包括单位从个人工资中代扣代缴的个人所得税、社会保险基金及住房公积金等。</p><br>
+<p>二、大多数行业年平均工资继续增长 分行业门类看，城镇非私营单位和私营单位大多数行业的就业人员平均工资继续增长。</p><br>
+<p>新动能持续壮大，引领工业经济向优发展，制造业，电力、热力、燃气及水生产和供应业就业人员平均工资增长较快，制造业中城镇非私营单位和私营单位就业人员年平均工资分别比上年增长5.2%和6.4%，电力、热力、燃气及水生产和供应业中城镇非私营单位和私营单位就业人员年平均工资分别增长7.1%和4.5%。</p><br>
+<p>第三产业中交通运输、仓储和邮政业，教育行业就业人员平均工资增长较快，交通运输、仓储和邮政业中城镇非私营单位和私营单位就业人员年平均工资分别增长4.8%和7.6%，教育行业中城镇非私营单位和私营单位就业人员年平均工资分别增长5.8%和5.3%。</p><br>
+<p>三、专业技术人员年平均工资较快增长 规模以上企业中，中层及以上管理人员年平均工资为210016元、专业技术人员为155491元、办事人员和有关人员为94936元、社会生产服务和生活服务人员为79857元、生产制造及有关人员为80739元。</p><br>
+<p>随着技能导向的薪酬分配制度的建立健全，提高待遇与提升技能的良性互动机制逐步形成，专业技术人员平均工资保持了较快增长，2025年规模以上企业专业技术人员年平均工资比上年增长5.0%，高于规模以上企业全部就业人员年平均工资增速1.5个百分点。</p><br>
+<h2>相关推荐</h2><br>
+<h3>爱直接对嘴喝饮料的人天塌了</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md</p><br>
+<h3>iPhoneUltra黑色机模</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md</p><br>
+<h3>F1奥地利站赛后复盘</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md</p><br>
+<h3>流金岁月</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md</p><br>
+<h3>男子诋毁袁隆平科研成果被刑拘</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md</p><br>
+<h3>【Reaction】女生最少的5款游戏</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md</p><br>
+<h3>巴西醒醒 这是淘汰赛</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md</p><br>
+<h3>宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md</p><br>
+<h3>国内最大沙漠发洪水意味着什么</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md</p><br>
+<h3>恋与深空道歉声明</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md</p><br>
+<h3>女子遭家暴逃跑致丈夫身亡二审细节</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md</p><br>
+<h3>吴易昺不敌德约科维奇 止步温网首轮</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md</p><br>
+<h3>孙颖莎王楚钦晋级8强</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md</p><br>
+<h3>古代人对纳妾的态度是什么样的？</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md</p><br>
 
-6月17日，科技日报记者跟随2026年“活力中国调研行”天津主题采访活动，走进天津市东丽区两家龙头企业。在天津爱思达航天科技股份有限公司与中国汽车技术研究中心有限公司新能源汽车科技创新基地，记者深切感受到，科技创新正成为激活区域高质量发展的核心引擎。走进爱思达展厅，一组商业航天发射入轨记录格外醒目。这家国家级专精特新“小巨人”企业，凭借碳纤维复合材料火箭整流罩等核心产品，已助力
-
-## 正文
-
-6月17日，科技日报记者跟随2026年“活力中国调研行”天津主题采访活动，走进天津市东丽区两家龙头企业。
-
-在天津爱思达航天科技股份有限公司与中国汽车技术研究中心有限公司新能源汽车科技创新基地，记者深切感受到，科技创新正成为激活区域高质量发展的核心引擎。
-
-走进爱思达展厅，一组商业航天发射入轨记录格外醒目。
-
-这家国家级专精特新“小巨人”企业，凭借碳纤维复合材料火箭整流罩等核心产品，已助力商业航天火箭成功入轨46次。
-
-“整流罩每减重1公斤，省下的载重就能多搭载更多卫星设备奔赴太空。
-
-”爱思达董事长兼CTO张毅指着展品介绍，为更高效地减重，研发团队夜以继日攻坚克难，自主研制的碳纤维复合材料成功将整流罩减重25%—30%。
-
-不仅如此，企业还实现了整流罩多种分离方式，且至今所有抛罩动作保持零故障纪录。
-
-凭借持续自主创新，爱思达迅速成长为年产值数亿元的行业龙头，在民营火箭整流罩市场的份额高达90%以上。
-
-## 相关推荐
-
-- 2026-06-30 09:27 - 送你一朵小红花<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md
-- 2026-06-30 09:02 - 杨紫肖战余生请多指教拍立得<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md
-- 2026-06-30 09:06 - 《鸣潮》玄方主题曲 MV | 定玄<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md
-- 2026-06-30 09:15 - 陈幸同晋级WTT美国大满贯女单32强<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md
-- 2026-06-30 09:19 - 乔家的儿女<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md
-- 2026-06-30 09:02 - 庆祝建党105周年特别节目<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md
-- 2026-06-30 09:11 - 曝詹姆斯即将与勇士会面<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md
-- 2026-06-30 09:04 - 尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md
-- 2026-06-30 09:20 - 美股<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md
-- 2026-06-30 09:13 - 曝詹姆斯即将与勇士会面<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md
-- 2026-06-30 09:05 - 左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md
-- 2026-06-30 09:10 - 我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md
-- 2026-06-30 09:04 - 德国巴拉圭加时<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md
-- 2026-06-30 09:17 - 点球大战<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md
-
-## 延伸阅读
-
-- 2026-06-30 09:00 - 这几秒成世界杯最值钱广告位<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/972169120040.shtml
-- 2026-06-30 09:23 - 女子健身不当 居然“脑子漏水”了<br><br> | ??:https://www.share.minike.top/Article/details/019722.shtml
-- 2026-06-30 09:19 - 峡谷事故团队组队时有人提醒会下雨<br><br> | ??:https://www.share.kurohicncr.top/Article/details/47592832.shtml
-- 2026-06-30 09:21 - 覃予萱晋级WTT美国大满贯女单32强<br><br> | ??:http://www.blog.minike.top/Article/details/56916409.shtml
-- 2026-06-30 09:05 - 阿娇瘦了10斤<br><br> | ??:http://www.share.kurohicncr.top/Article/details/3179307368.shtml
-- 2026-06-30 09:15 - 高考结束了，你会让孩子在家玩手机吗？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/67278.shtml
-- 2026-06-30 09:12 - 英语考了145的人竟然教数学<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/117902.shtml
-- 2026-06-30 09:03 - 德国vs巴拉圭<br><br> | ??:http://www.share.minike.top/Article/details/0874282.shtml
-- 2026-06-30 09:01 - 如何改变自己太负责任的性格?<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/15818.shtml
-- 2026-06-30 09:03 - 87克大金链到老庙黄金维修少了11克<br><br> | ??:http://www.blog.minike.top/Article/details/11130977863.shtml
-- 2026-06-30 09:23 - 警方介入洪明甫死亡威胁<br><br> | ??:https://www.blog.minike.top/Article/details/154648.shtml
-- 2026-06-30 09:19 - 失明的我带老妈去了趟“火星”<br><br> | ??:http://www.share.kurohicncr.top/Article/details/09890114470.shtml
-- 2026-06-30 09:12 - 球评巴西绝杀逆转日本<br><br> | ??:https://www.share.minike.top/Article/details/873624.shtml
-- 2026-06-30 09:12 - 日本进球<br><br> | ??:http://www.share.minike.top/Article/details/50719104226.shtml
-- 2026-06-30 09:18 - 阿娇瘦了10斤<br><br> | ??:http://www.share.kurohicncr.top/Article/details/570626653.shtml
+<h2>延伸阅读</h2><br>
+<h3>这一刀 会很帅</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/486781795.shtml</p><br>
+<h3>热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:http://www.blog.minike.top/Article/details/26883396.shtml</p><br>
+<h3>恋与深空回应争议</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:http://www.blog.minike.top/Article/details/29548.shtml</p><br>
+<h3>如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://www.blog.minike.top/Article/details/2382473.shtml</p><br>
+<h3>泰山景区建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/318347.shtml</p><br>
+<h3>被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/11412.shtml</p><br>
+<h3>蜘蛛侠:平行宇宙</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/272852730404.shtml</p><br>
+<h3>“中国养猪场都用上空调了”！这是真的吗？【主播说三农】</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/21247400942.shtml</p><br>
+<h3>巴拉圭进球</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:http://www.share.minike.top/Article/details/2413234380.shtml</p><br>
+<h3>扬名立万</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://www.blog.minike.top/Article/details/9716261392.shtml</p><br>
+<h3>马杜罗账号在纽约发文致谢各国援助</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/26045286.shtml</p><br>
+<h3>承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/331190254.shtml</p><br>
+<h3>第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/091391.shtml</p><br>
+<h3>81岁老人被男子买光菜回家车祸去世</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://www.share.minike.top/Article/details/9789294.shtml</p><br>
+<h3>hanser X 赖美云《室内系的Track Maker》</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/6029237086.shtml</p><br>

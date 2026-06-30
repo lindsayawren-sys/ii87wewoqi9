@@ -1,61 +1,44 @@
-# “AI 教父”痛批马斯克旗下xAI堪称失败，警示AI将迎巨大泡沫破裂
+<h1>巴西3月服务业环比下降1.2%，跌幅远超市场预期</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>巴西国家地理统计局（IBGE）周五公布的最新数据显示，受运输业表现疲软拖累，巴西3月服务业活动指数环比出现显著下滑，跌幅远超市场此前预期。 数据显示，作为拉美最大经济体，巴西3月服务业指数环比下降1.2%，而此前受访经济学家普遍预期降幅仅为0.1%。 在受访的五个主要行业组别中，3月产出均录得收缩，其中运输业跌幅最为显著。 从同比口径看，3月服务业产出增长3.0%，同样大幅低于</p><br>
+<h2>正文</h2><br>
+<p>巴西国家地理统计局（IBGE）周五公布的最新数据显示，受运输业表现疲软拖累，巴西3月服务业活动指数环比出现显著下滑，跌幅远超市场此前预期。</p><br>
+<p>数据显示，作为拉美最大经济体，巴西3月服务业指数环比下降1.2%，而此前受访经济学家普遍预期降幅仅为0.1%。</p><br>
+<p>在受访的五个主要行业组别中，3月产出均录得收缩，其中运输业跌幅最为显著。</p><br>
+<p>从同比口径看，3月服务业产出增长3.0%，同样大幅低于4.5%的预期增速。</p><br>
+<p>责任编辑：龙运翔</p><br>
+<h2>相关推荐</h2><br>
+<h3>赛博朋克边缘行者2预告片</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md</p><br>
+<h3>阿娇瘦了10斤</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md</p><br>
+<h3>刘宇宁是去进货了吗</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md</p><br>
+<h3>国务院：鼓励行业龙头企业举办职校</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md</p><br>
+<h3>德国爆冷点球大战不敌巴拉圭</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md</p><br>
+<h3>杨紫大银幕成绩单</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md</p><br>
+<h3>FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md</p><br>
+<h3>欧洲家电巨头为何输掉了这个夏天</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md</p><br>
+<h3>网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md</p><br>
+<h3>我吃遍了西安最強的街頭小吃，第九家強得離譜！</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md</p><br>
+<h3>恋与深空道歉声明</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md</p><br>
+<h3>沉睡花园</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md</p><br>
+<h3>一生一世</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md</p><br>
+<h3>《名肘探科比》：科比大战裂口女</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md</p><br>
 
-核心要点 AMI 实验室创始人扬・勒丘恩在接受美国消费者新闻与商业频道采访时表示，埃隆・马斯克旗下的 xAI 注定难以在人工智能前沿赛道立足，本质上已是一次失败布局。他同时阐述了自己对行业即将出现巨大泡沫破裂风险的看法。 勒丘恩此番表态，让他与马斯克之间由来已久的口水战再度升级，也让市场开始质疑全球头部人工智能企业的估值合理性。 曾任 Meta 首席人工智能科学家的勒丘恩，过去
-
-## 正文
-
-核心要点 AMI 实验室创始人扬・勒丘恩在接受美国消费者新闻与商业频道采访时表示，埃隆・马斯克旗下的 xAI 注定难以在人工智能前沿赛道立足，本质上已是一次失败布局。
-
-他同时阐述了自己对行业即将出现巨大泡沫破裂风险的看法。
-
-勒丘恩此番表态，让他与马斯克之间由来已久的口水战再度升级，也让市场开始质疑全球头部人工智能企业的估值合理性。
-
-曾任 Meta 首席人工智能科学家的勒丘恩，过去数年多次和马斯克产生观点交锋，争论话题既有人工智能技术路线，也包括他口中这位特斯拉 CEO 在社交媒体上宣扬的各类 “阴谋论”。
-
-而马斯克则反击称，勒丘恩早已脱离人工智能行业一线，对行业现状缺乏认知。
-
-凭借在人工智能早期发展阶段做出的开创性贡献，勒丘恩被业界冠以 “AI 教父” 的称号。
-
-“坦白来说，xAI 算是一次失败，核心原因就是创始团队成员相继离职。
-
-” 勒丘恩表示。
-
-## 相关推荐
-
-- 2026-06-30 09:01 - 沙丘<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md
-- 2026-06-30 09:02 - 警方介入洪明甫死亡威胁<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md
-- 2026-06-30 09:29 - 点球大战<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md
-- 2026-06-30 09:17 - 如果有二次元高中是什么样子的？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md
-- 2026-06-30 09:20 - 世界杯<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md
-- 2026-06-30 09:26 - 俄乌双方伤亡近180万人<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md
-- 2026-06-30 09:14 - 蜘蛛侠:平行宇宙<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md
-- 2026-06-30 09:01 - 曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md
-- 2026-06-30 09:24 - 英语考了145的人竟然教数学<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md
-- 2026-06-30 09:19 - 扫黑风暴<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md
-- 2026-06-30 09:07 - 领克07GT搭载超跑同源MRC悬架<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md
-- 2026-06-30 09:24 - 我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md
-- 2026-06-30 09:11 - 这一刀 会很帅<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md
-- 2026-06-30 09:08 - 苗族银饰<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md
-- 2026-06-30 09:05 - 日本进球<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md
-
-## 延伸阅读
-
-- 2026-06-30 09:01 - 这几秒成世界杯最值钱广告位<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/6088493.shtml
-- 2026-06-30 09:05 - 这几秒成世界杯最值钱广告位<br><br> | ??:http://www.blog.minike.top/Article/details/1296783256.shtml
-- 2026-06-30 09:11 - 金鹰奖视后提名预测<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/181283450.shtml
-- 2026-06-30 09:26 - 日本反击率先破门<br><br> | ??:https://www.share.kurohicncr.top/Article/details/824728723.shtml
-- 2026-06-30 09:10 - 快递到家不能这样拆<br><br> | ??:http://www.blog.minike.top/Article/details/87551552.shtml
-- 2026-06-30 09:29 - 库尼亚赛后伸五指嘲讽日本<br><br> | ??:http://www.blog.minike.top/Article/details/919256031.shtml
-- 2026-06-30 09:01 - 爱直接对嘴喝饮料的人天塌了<br><br> | ??:http://www.share.minike.top/Article/details/318717053377.shtml
-- 2026-06-30 09:24 - 周生如故<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/8434452432.shtml
-- 2026-06-30 09:24 - 对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来<br><br> | ??:https://www.share.kurohicncr.top/Article/details/002242803.shtml
-- 2026-06-30 09:26 - 名记：灰熊将莫兰特交易至开拓者<br><br> | ??:https://www.share.kurohicncr.top/Article/details/23550768965.shtml
-- 2026-06-30 09:00 - 快递到家不能这样拆<br><br> | ??:http://www.share.kurohicncr.top/Article/details/149524834607.shtml
-- 2026-06-30 09:11 - 宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？<br><br> | ??:https://www.blog.minike.top/Article/details/1025854905.shtml
-- 2026-06-30 09:24 - 【Reaction】女生最少的5款游戏<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/17976317.shtml
-- 2026-06-30 09:24 - 荷兰VS摩洛哥<br><br> | ??:https://www.share.kurohicncr.top/Article/details/58789571.shtml
-- 2026-06-30 09:27 - 欧洲空调卖疯了 下一个爆款是储能吗<br><br> | ??:https://www.share.minike.top/Article/details/46861178.shtml
+<h2>延伸阅读</h2><br>
+<h3>“中国养猪场都用上空调了”！这是真的吗？【主播说三农】</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/071409324.shtml</p><br>
+<h3>点球大战和诺伊尔都救不回德国队</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/030370625.shtml</p><br>
+<h3>如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/38004.shtml</p><br>
+<h3>如果有二次元高中是什么样子的？</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://www.blog.minike.top/Article/details/01550670429.shtml</p><br>
+<h3>又一家县级医院关停门诊输液大厅</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://www.share.minike.top/Article/details/60673818489.shtml</p><br>
+<h3>美人鱼</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/301781090310.shtml</p><br>
+<h3>全新问界M9现身美国街头</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:http://www.blog.minike.top/Article/details/89168.shtml</p><br>
+<h3>补时绝杀 巴西2-1淘汰日本</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:http://www.blog.minike.top/Article/details/884948.shtml</p><br>
+<h3>世界杯欧洲队7战南美仅1胜</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:http://www.blog.minike.top/Article/details/21026905715.shtml</p><br>
+<h3>电子游戏中有哪些关于武器的“刻板印象”？</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/0517432.shtml</p><br>
+<h3>重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:http://www.share.minike.top/Article/details/740487.shtml</p><br>
+<h3>被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://www.share.minike.top/Article/details/658922887.shtml</p><br>
+<h3>法媒点赞中国小区楼顶“人工降雨”</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/7266204.shtml</p><br>
+<h3>追梦拒绝2770万美元球员选项</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://www.share.minike.top/Article/details/26737285.shtml</p><br>
+<h3>点球淘汰德国 巴拉圭首都陷入疯狂</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:http://www.share.minike.top/Article/details/066011.shtml</p><br>

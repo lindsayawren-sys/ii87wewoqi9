@@ -1,57 +1,43 @@
-# Rokos基金考虑从外部搜集选股思路 效仿部分同行的做法
+<h1>外交部：中美双方就保持经贸关系的稳定达成了重要共识</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>中新网北京5月15日电(记者 曾玥)中国外交部发言人郭嘉昆15日主持例行记者会。有记者就中美经贸关系提问。 郭嘉昆：在这次访问当中，中美双方就保持经贸关系的稳定达成了重要共识。我们愿同美方一道，落实好两国元首的重要共识，本着平等、尊重、互惠的原则，不断拉长合作清单，实现互利共赢。(完)</p><br>
+<h2>正文</h2><br>
+<p>中新网北京5月15日电(记者 曾玥)中国外交部发言人郭嘉昆15日主持例行记者会。</p><br>
+<p>有记者就中美经贸关系提问。</p><br>
+<p>郭嘉昆：在这次访问当中，中美双方就保持经贸关系的稳定达成了重要共识。</p><br>
+<p>我们愿同美方一道，落实好两国元首的重要共识，本着平等、尊重、互惠的原则，不断拉长合作清单，实现互利共赢。</p><br>
+<p>(完)</p><br>
+<h2>相关推荐</h2><br>
+<h3>杨紫获白玉兰视后为何争议难平</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md</p><br>
+<h3>手底下人带不动怎么办？</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md</p><br>
+<h3>黄晓明夸昆凌引杨颖对比</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md</p><br>
+<h3>毒液2</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md</p><br>
+<h3>木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md</p><br>
+<h3>沉睡花园</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md</p><br>
+<h3>急先锋</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md</p><br>
+<h3>想问一下学日语的大佬，自学日语要怎么学？</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md</p><br>
+<h3>如何改变自己太负责任的性格?</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md</p><br>
+<h3>好像看到了人类带孩子崩溃的样子</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md</p><br>
+<h3>王灿兮被烫伤两年后维权成功</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md</p><br>
+<h3>【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md</p><br>
+<h3>我和我的家乡</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md</p><br>
 
-知情人士称，由Chris Rokos创立的基金公司正在考虑从外部吸收选股情报，加入Marshall Wace和城堡等一批同行的行列。 知情人士表示，Rokos Capital Management正考虑建立一项所谓“阿尔法捕捉”计划，从卖方信息提供者那里获取有关股票的思路。其中一人称，相关讨论仍处于早期阶段，计划可能有变。 业内一些大型机构已经或正在考虑建立所谓“阿尔法捕捉”计
-
-## 正文
-
-知情人士称，由Chris Rokos创立的基金公司正在考虑从外部吸收选股情报，加入Marshall Wace和城堡等一批同行的行列。
-
-知情人士表示，Rokos Capital Management正考虑建立一项所谓“阿尔法捕捉”计划，从卖方信息提供者那里获取有关股票的思路。
-
-其中一人称，相关讨论仍处于早期阶段，计划可能有变。
-
-业内一些大型机构已经或正在考虑建立所谓“阿尔法捕捉”计划，支付一定费用来从外部搜集交易数据或想法。
-
-Marshall Wace二十多年前率先采用这一模式，传统上主要接收卖方市场参与者提供的观点，例如银行分析师的看法，并基于海量数据生成交易信号。
-
-近来，这类项目也演变为吸纳买方机构观点的模式。
-
-肯·格里芬旗下城堡正准备推出一项新计划，从其他对冲基金收集交易洞见，以用于自身量化策略；Point72 Asset Management也在考虑采取类似举措。
-
-责任编辑：丁文武
-
-## 相关推荐
-
-- 2026-06-30 09:12 - 中国代表在联合国点名日本所犯罪行<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md
-- 2026-06-30 09:27 - 德国淘汰<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md
-- 2026-06-30 09:19 - 未来的飞机可能会用电吗？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md
-- 2026-06-30 09:18 - ASMR 千禧年百货大楼初代柜姐给你化大头贴妆<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md
-- 2026-06-30 09:05 - 为什么很多企业推行“扁平化管理”后，效率反而下降了？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md
-- 2026-06-30 09:02 - 《贺子珍》<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md
-- 2026-06-30 09:26 - 电子游戏中有哪些关于武器的“刻板印象”？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md
-- 2026-06-30 09:19 - 德国 传控<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md
-- 2026-06-30 09:10 - 日本球迷被强行披上巴西国旗<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md
-- 2026-06-30 09:08 - 重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md
-- 2026-06-30 09:14 - 想问一下学日语的大佬，自学日语要怎么学？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md
-
-## 延伸阅读
-
-- 2026-06-30 09:22 - 名记：灰熊将莫兰特交易至开拓者<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/9287189316.shtml
-- 2026-06-30 09:25 - 国务院：鼓励行业龙头企业举办职校<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/8207179.shtml
-- 2026-06-30 09:00 - 首届《哈基米歌王争霸赛》总决赛<br><br> | ??:http://www.share.minike.top/Article/details/24169245724.shtml
-- 2026-06-30 09:06 - IGN评测电影版后室<br><br> | ??:https://www.share.kurohicncr.top/Article/details/68071.shtml
-- 2026-06-30 09:16 - 沉睡花园<br><br> | ??:http://www.share.minike.top/Article/details/793475575682.shtml
-- 2026-06-30 09:21 - 日本队主帅道歉<br><br> | ??:http://www.share.minike.top/Article/details/623405779359.shtml
-- 2026-06-30 09:07 - 库尼亚赛后伸五指嘲讽日本<br><br> | ??:http://www.share.minike.top/Article/details/691279091.shtml
-- 2026-06-30 09:03 - 小娘惹<br><br> | ??:http://www.share.minike.top/Article/details/516457351.shtml
-- 2026-06-30 09:16 - 人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？<br><br> | ??:http://www.blog.minike.top/Article/details/2268305563.shtml
-- 2026-06-30 09:18 - 内马尔中场休息积极鼓励队友<br><br> | ??:http://www.blog.minike.top/Article/details/412918014281.shtml
-- 2026-06-30 09:30 - 极限挑战第一季<br><br> | ??:https://www.blog.minike.top/Article/details/41360504.shtml
-- 2026-06-30 09:22 - 这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆<br><br> | ??:http://www.share.minike.top/Article/details/0661005253.shtml
-- 2026-06-30 09:19 - 王曼昱被突如其来的话筒逗笑了<br><br> | ??:http://www.blog.minike.top/Article/details/191646948.shtml
-- 2026-06-30 09:00 - 德国罚丢3粒点球<br><br> | ??:http://www.share.kurohicncr.top/Article/details/15424733690.shtml
-- 2026-06-30 09:23 - 网瘾賊大的阿嬷<br><br> | ??:https://www.share.kurohicncr.top/Article/details/73723940856.shtml
+<h2>延伸阅读</h2><br>
+<h3>内马尔未登场 安切洛蒂赛后回应</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.share.minike.top/Article/details/75894495.shtml</p><br>
+<h3>天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/72025.shtml</p><br>
+<h3>2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://www.blog.minike.top/Article/details/83814538484.shtml</p><br>
+<h3>歌剧老师锐评歌手第6期</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:https://www.share.minike.top/Article/details/661152867062.shtml</p><br>
+<h3>马宁怒怼巴拉圭教练组</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/31476.shtml</p><br>
+<h3>陈小春人老了干什么也不心酸</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:http://www.blog.minike.top/Article/details/183159.shtml</p><br>
+<h3>追梦拒绝2770万美元球员选项</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/0214897671.shtml</p><br>
+<h3>点球淘汰德国 巴拉圭首都陷入疯狂</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/697639494706.shtml</p><br>
+<h3>《赛博朋克：边缘行者 2》｜官方预告片</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/70485294738.shtml</p><br>
+<h3>我们看到的星星是不是有些已经不存在了？</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/5091125.shtml</p><br>
+<h3>美股收盘 热门中概股普涨</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/783397173282.shtml</p><br>
+<h3>花少8要去世界杯举办国</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/4424058814.shtml</p><br>
+<h3>乔家的儿女</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:http://www.blog.minike.top/Article/details/62029892.shtml</p><br>
+<h3>荀彧和曹操反目成仇的根本原因是什么？</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/04033.shtml</p><br>
+<h3>如何评价《龙之家族》第三季第二集？</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/493103.shtml</p><br>

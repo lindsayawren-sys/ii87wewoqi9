@@ -1,56 +1,48 @@
-# 兆易创新解禁股人均盈利达1928万！本周A股解禁市值达549亿 多只科技牛股迎考验
+<h1>缺油少墨持续发酵 日本可果美番茄酱改用透明包装</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>5月15日，据央视新闻，由于中东局势持续紧张导致印刷油墨原料短缺，日本食品企业可果美（KAGOME）公司被迫决定将旗下多款番茄酱包装改为透明包装，并大幅删减原包装所印的西红柿图案。 当地时间5月15日，可果美对外公布包装调整方案，这款拥有四十余年经典设计的番茄酱产品，即将告别沿用多年的白色底色、密集西红柿图案的彩色外观。自5月下旬起，产品包装将全面更换为透明样式，仅保留少量核心</p><br>
+<h2>正文</h2><br>
+<p>5月15日，据央视新闻，由于中东局势持续紧张导致印刷油墨原料短缺，日本食品企业可果美（KAGOME）公司被迫决定将旗下多款番茄酱包装改为透明包装，并大幅删减原包装所印的西红柿图案。</p><br>
+<p>当地时间5月15日，可果美对外公布包装调整方案，这款拥有四十余年经典设计的番茄酱产品，即将告别沿用多年的白色底色、密集西红柿图案的彩色外观。</p><br>
+<p>自5月下旬起，产品包装将全面更换为透明样式，仅保留少量核心图案，大幅削减彩色油墨使用量，经测算可直接节约近一半印刷油墨。</p><br>
+<p>公司对此向消费者致歉，称此举是在油墨供应持续紧张、难以找到稳定替代原料的背景下，为优先保障市场供货做出的无奈调整，产品本身配方、口味、规格均不发生改变，后续包装能否恢复原样，将根据全球原料供应形势动态调整。</p><br>
+<p>可果美是日本拥有超百年历史的国民级食品企业，1899年正式创立，深耕番茄制品、果蔬饮品领域，总部位于日本名古屋，1903年便开启番茄酱生产业务，如今稳居日本番茄酱市场龙头地位，番茄酱品类市场占有率超58%，番茄汁市场份额超63%，品牌影响力覆盖全日本，同时业务辐射亚洲多国市场。</p><br>
+<p>此次调整包装的经典番茄酱产品，是可果美核心王牌单品，也是日本国民调味选择，沿用数十年的彩色番茄图案包装，早已成为消费者熟知的品牌视觉符号。</p><br>
+<p>这是继休闲食品巨头卡乐比宣布多款产品由彩色包装改为黑白印刷后，日本又一食品生产商启用透明简化包装，以此应对印刷油墨短缺问题，保障商品持续供应。</p><br>
+<p>5月12日，日本零食巨头卡乐比（Calbee）通知其供应商，由于中东局势持续紧张，作为印刷油墨原料的石脑油（石化原料）供应趋于不稳定，公司计划从本月下旬开始，将部分薯片、虾条、水果麦片等主力商品包装，临时调整为仅使用黑白两色的简化设计。</p><br>
+<h2>相关推荐</h2><br>
+<h3>覃予萱晋级WTT美国大满贯女单32强</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md</p><br>
+<h3>扬名立万</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md</p><br>
+<h3>啥比桑吉尔夫排位练蓝防（最不抽象的一集）</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md</p><br>
+<h3>本届世界杯已有5名球员被控强奸</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md</p><br>
+<h3>孙兴慜道歉</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md</p><br>
+<h3>曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md</p><br>
+<h3>城市规划有可能成为「屎山代码」吗？</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md</p><br>
+<h3>马航370搜寻最新消息</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md</p><br>
+<h3>领克07GT搭载超跑同源MRC悬架</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md</p><br>
+<h3>第一炉香</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md</p><br>
+<h3>诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md</p><br>
+<h3>毕业以后，你最怀念的大学记忆是什么？</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md</p><br>
+<h3>这种关系可能正在悄悄“催老”你</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md</p><br>
+<h3>披荆斩棘的哥哥</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md</p><br>
+<h3>杨某诋毁袁隆平院士科研成果被刑拘</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md</p><br>
 
-【相关阅读】7只半导体个股股东减持套现逾67亿，多路资金集体兑现 来源：中国基金报 数据显示，本周（6月22日至26日）A股将有49家公司有限售股份解禁，合计解禁数量27.63亿股，以最新收盘价计算（下同），总解禁市值达549.08亿元。 其中，有15家公司解禁市值超10亿元，合计解禁市值约485.93亿元。珠城科技、新恒汇解禁市值均超过50亿元，位居前列。 四家公司解禁占比超
-
-## 正文
-
-【相关阅读】7只半导体个股股东减持套现逾67亿，多路资金集体兑现 来源：中国基金报 数据显示，本周（6月22日至26日）A股将有49家公司有限售股份解禁，合计解禁数量27.63亿股，以最新收盘价计算（下同），总解禁市值达549.08亿元。
-
-其中，有15家公司解禁市值超10亿元，合计解禁市值约485.93亿元。
-
-珠城科技、新恒汇解禁市值均超过50亿元，位居前列。
-
-四家公司解禁占比超50% 从解禁比例来看，本周共有16家公司解禁数量占总股本比例超10%。
-
-其中，珠城科技、广信科技、威士顿、开创电气四家公司解禁占比均超过50%，解禁后流通盘将大幅扩容。
-
-珠城科技（证券代码：301280）本周解禁规模最大，6月26日将有1.31亿限售股解禁，占总股本比例达68.24%，解禁市值为66.41亿元，解禁股份类型为首发原股东限售股份。
-
-珠城科技是一家专注于电子连接器的研发、生产及销售，并具备电子连接器精密模具的设计、制造和组装能力的高新技术企业，产品主要应用于消费类家电，同时以汽车、新能源、工业、通讯领域作为重要发展方向。
-
-2022年上市以来，公司业绩保持稳健增长，净利润从2022年的1.1亿元增至2025年的2.09亿元。
-
-## 相关推荐
-
-- 2026-06-30 09:06 - 《名肘探科比》：科比大战裂口女<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md
-- 2026-06-30 09:02 - 披荆斩棘的哥哥<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md
-- 2026-06-30 09:29 - 湖北云南的这些涉汛信息都是假的<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md
-- 2026-06-30 09:25 - GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md
-- 2026-06-30 09:00 - 道友？你来真的啊？【凡人官方二创大会】<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md
-- 2026-06-30 09:05 - 有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md
-- 2026-06-30 09:02 - 如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md
-- 2026-06-30 09:15 - 又一家县级医院关停门诊输液大厅<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md
-- 2026-06-30 09:03 - 国务院：鼓励行业龙头企业举办职校<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md
-- 2026-06-30 09:18 - 如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md
-
-## 延伸阅读
-
-- 2026-06-30 09:24 - 又一家县级医院关停门诊输液大厅<br><br> | ??:http://www.share.minike.top/Article/details/13731413.shtml
-- 2026-06-30 09:29 - 王菲谢霆锋十指紧扣好甜<br><br> | ??:http://www.share.kurohicncr.top/Article/details/750663377.shtml
-- 2026-06-30 09:29 - 网红不能困在无底线逐利里<br><br> | ??:https://www.share.minike.top/Article/details/63184.shtml
-- 2026-06-30 09:20 - 网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？<br><br> | ??:http://www.blog.minike.top/Article/details/69773386.shtml
-- 2026-06-30 09:07 - 李在明90度鞠躬感谢韩国两大财阀<br><br> | ??:https://www.share.minike.top/Article/details/14994797.shtml
-- 2026-06-30 09:25 - 日本五次世界杯淘汰赛全败<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/76131853.shtml
-- 2026-06-30 09:07 - 有人见过武则天的画像吗，非常好奇？<br><br> | ??:https://www.blog.minike.top/Article/details/312664196506.shtml
-- 2026-06-30 09:16 - 郑钦文温网一轮游<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/577779179857.shtml
-- 2026-06-30 09:09 - 科学备孕男女都要上心<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/948449841363.shtml
-- 2026-06-30 09:19 - 深扒韩国队淘汰背后原因<br><br> | ??:https://www.blog.minike.top/Article/details/552675.shtml
-- 2026-06-30 09:05 - 巴西2-1绝杀日本<br><br> | ??:https://www.blog.minike.top/Article/details/43357.shtml
-- 2026-06-30 09:07 - 高考结束，该不该外出打工体验？<br><br> | ??:https://www.blog.minike.top/Article/details/3907622243.shtml
-- 2026-06-30 09:29 - 锐评T1战胜KC<br><br> | ??:http://www.share.minike.top/Article/details/887736712590.shtml
-- 2026-06-30 09:05 - 杨紫肖战余生请多指教拍立得<br><br> | ??:http://www.blog.minike.top/Article/details/80260120586.shtml
-- 2026-06-30 09:07 - 如何评价《龙之家族》第三季第二集？<br><br> | ??:http://www.share.minike.top/Article/details/515614127653.shtml
+<h2>延伸阅读</h2><br>
+<h3>奔跑吧·黄河篇第二季</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://www.blog.minike.top/Article/details/9141440912.shtml</p><br>
+<h3>科学备孕男女都要上心</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://www.share.minike.top/Article/details/59913.shtml</p><br>
+<h3>曝灰熊将莫兰特交易至开拓者</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/846329067972.shtml</p><br>
+<h3>为什么会有「念旧」的心理？</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/483319602141.shtml</p><br>
+<h3>4000美元是黄金新一轮下跌的开始吗</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://www.blog.minike.top/Article/details/99408.shtml</p><br>
+<h3>GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://www.share.minike.top/Article/details/10198304960.shtml</p><br>
+<h3>巴西替补奇兵读秒绝杀</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/3650229477.shtml</p><br>
+<h3>2021江苏卫视跨年演唱会</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/366355.shtml</p><br>
+<h3>手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/5290502026.shtml</p><br>
+<h3>四川宜宾地震为何震感明显</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://www.share.minike.top/Article/details/8635525.shtml</p><br>
+<h3>卢卡申科发布解放军仪仗队视频</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/95019961893.shtml</p><br>
+<h3>网瘾賊大的阿嬷</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/1364729.shtml</p><br>
+<h3>蔚来回应高压水枪洗车掉漆</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://www.share.minike.top/Article/details/63616070.shtml</p><br>
+<h3>"超算小姐，这一次，我一定要带你出去..."</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/943655896468.shtml</p><br>
+<h3>郑钦文 四年一轮游</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/18964113.shtml</p><br>

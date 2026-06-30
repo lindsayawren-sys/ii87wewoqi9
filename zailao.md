@@ -1,58 +1,45 @@
-# 拨康视云-B拟向Abraham Dominguez Cinta发行认购股份
+<h1>OpenAI可能需要更多资金 其在AI计算能力和资本方面的需求不断扩大</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>OpenAI表示，人工智能计算需求仍在迅速加速增长。 即使已经完成了其首席财务官所称的史上最大规模私募融资，微软支持的OpenAI可能仍不会很快停止筹集资金，这凸显出全球人工智能竞赛正变得多么昂贵。 OpenAI首席财务官Sarah Friar在接受电视采访时表示，该公司近期完成的1220亿美元融资轮为这家人工智能公司提供了“很大的选择空间”，但她也明确表示，随着人工智能计算能</p><br>
+<h2>正文</h2><br>
+<p>OpenAI表示，人工智能计算需求仍在迅速加速增长。</p><br>
+<p>即使已经完成了其首席财务官所称的史上最大规模私募融资，微软支持的OpenAI可能仍不会很快停止筹集资金，这凸显出全球人工智能竞赛正变得多么昂贵。</p><br>
+<p>OpenAI首席财务官Sarah Friar在接受电视采访时表示，该公司近期完成的1220亿美元融资轮为这家人工智能公司提供了“很大的选择空间”，但她也明确表示，随着人工智能计算能力需求持续激增，未来继续融资的可能性依然很大。</p><br>
+<p>Friar表示，公司未来的资本需求将在很大程度上取决于人工智能需求的增长速度相对于OpenAI确保足够计算基础设施的能力。</p><br>
+<p>可用的AI计算资源与OpenAI实际需求之间的差距正日益成为整个行业面临的关键挑战之一。</p><br>
+<p>Friar还暗示，公开市场最终可能在OpenAI的融资策略中扮演更重要的角色。</p><br>
+<p>她指出，公开市场“规模远超”私募市场，随着时间的推移，可以为公司提供更广泛、更灵活的融资选择。</p><br>
+<p>这些言论突显了人工智能热潮已经变得多么资本密集。</p><br>
+<h2>相关推荐</h2><br>
+<h3>法媒点赞中国小区楼顶“人工降雨”</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md</p><br>
+<h3>俄乌双方伤亡近180万人</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md</p><br>
+<h3>巴西vs日本</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md</p><br>
+<h3>沉睡花园</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md</p><br>
+<h3>考入南大计算机，复读考清北值吗？</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md</p><br>
+<h3>韩国道歉完日本道歉</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md</p><br>
+<h3>宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md</p><br>
+<h3>乔家的儿女</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md</p><br>
+<h3>租房时你会更看重「住得舒服」，还是「每天通勤更方便」？</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md</p><br>
+<h3>我吃遍了西安最強的街頭小吃，第九家強得離譜！</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md</p><br>
+<h3>女子遭家暴逃跑致丈夫身亡二审细节</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md</p><br>
+<h3>泰山景区建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md</p><br>
 
-拨康视云-B（02592）发布公告，于2026年6月18日（交易时段后），本公司与投资者ARC Group International Limited订立股份认购协议，本公司有权（受限于股份认购协议的条款）不时向投资者配发及发行股份，而投资者则须向本公司认购最多1500万美元（相当于约1.17亿港元）的股份。 据悉，ARC Group International Limited
-
-## 正文
-
-拨康视云-B（02592）发布公告，于2026年6月18日（交易时段后），本公司与投资者ARC Group International Limited订立股份认购协议，本公司有权（受限于股份认购协议的条款）不时向投资者配发及发行股份，而投资者则须向本公司认购最多1500万美元（相当于约1.17亿港元）的股份。
-
-据悉，ARC Group International Limited是一间于香港注册成立的有限责任公司，为ARC Group Limited的直接全资附属公司。
-
-ARC Group Limited是一间深根于亚洲的全球金融服务及顾问公司，十多年来在投资银行、资产管理、财富管理及管理注询等领域表现卓越。
-
-投资者的最终实益拥有人为Abraham Dominguez Cinta先生。
-
-董事认为，认购事项乃透过减少本集团的负债、提供额外营运资金以应对未来发展及履行义务，以及扩大股东基础，从而强化本集团的财务状况的机会。
-
-本公司已探讨多个筹资方案，并认为于本公告日期，认购事项是本公司进一步支持本集团持续发展及业务增长的最合适且最高效的融资选择。
-
-董事认为，股份认购协议乃参考市场状况及现行市场而厘定，并由本公司与投资者按公平基准及一般商业条款订立，且该协议的条款（包括但不限于认购价及承诺费）属公平合理，并符合本公司及股东的整体利益。
-
-责任编辑：卢昱君
-
-## 相关推荐
-
-- 2026-06-30 09:24 - 日本反击率先破门<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md
-- 2026-06-30 09:12 - 中国代表在联合国点名日本所犯罪行<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md
-- 2026-06-30 09:14 - 乔家的儿女<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md
-- 2026-06-30 09:25 - 网瘾賊大的阿嬷<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md
-- 2026-06-30 09:28 - 如果有二次元高中是什么样子的？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md
-- 2026-06-30 09:07 - 有人见过武则天的画像吗，非常好奇？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md
-- 2026-06-30 09:12 - 7月1日起 一批新规即将落地<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md
-- 2026-06-30 09:14 - 木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md
-- 2026-06-30 09:06 - 杨紫大银幕成绩单<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md
-- 2026-06-30 09:28 - 有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md
-- 2026-06-30 09:19 - 人类...完蛋了...<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md
-- 2026-06-30 09:06 - 12人以护剧为名敲诈剧组艺人被抓<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md
-
-## 延伸阅读
-
-- 2026-06-30 09:20 - 日本球员说被绝杀非常不甘心<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/27476743596.shtml
-- 2026-06-30 09:06 - 我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/8652671090.shtml
-- 2026-06-30 09:29 - 毒液2<br><br> | ??:https://www.blog.minike.top/Article/details/869965671.shtml
-- 2026-06-30 09:21 - 男子醉酒溺水获救后同行人拒协助抬人<br><br> | ??:https://www.share.minike.top/Article/details/52124696.shtml
-- 2026-06-30 09:23 - 巴西2-1绝杀日本<br><br> | ??:http://www.share.minike.top/Article/details/62840142293.shtml
-- 2026-06-30 09:21 - 要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活<br><br> | ??:https://www.share.minike.top/Article/details/975852405.shtml
-- 2026-06-30 09:29 - 马宁怒怼巴拉圭教练组<br><br> | ??:https://www.blog.minike.top/Article/details/15623718741.shtml
-- 2026-06-30 09:18 - 如何看待武亮说大学生生活费1500就够用这一言论？<br><br> | ??:https://www.share.minike.top/Article/details/4328789.shtml
-- 2026-06-30 09:09 - 德国淘汰<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/252704628753.shtml
-- 2026-06-30 09:29 - 教育部披露：高考生篡改7名同学志愿<br><br> | ??:https://www.share.minike.top/Article/details/8987141730.shtml
-- 2026-06-30 09:12 - 萨内 看笑了<br><br> | ??:http://www.blog.minike.top/Article/details/9149676.shtml
-- 2026-06-30 09:05 - 老人卖菜获博主帮助后遇车祸去世<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/63145167.shtml
-- 2026-06-30 09:18 - 【Reaction】女生最少的5款游戏<br><br> | ??:http://www.share.kurohicncr.top/Article/details/666270.shtml
-- 2026-06-30 09:02 - 金价跳水 水贝市场显现出“两重天”<br><br> | ??:http://www.share.kurohicncr.top/Article/details/836706.shtml
-- 2026-06-30 09:16 - 这一刀 会很帅<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/6674393.shtml
+<h2>延伸阅读</h2><br>
+<h3>世界杯</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/445488.shtml</p><br>
+<h3>为什么会有「念旧」的心理？</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://www.share.minike.top/Article/details/025413651.shtml</p><br>
+<h3>国务院：探索延长义务教育年限</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/75053.shtml</p><br>
+<h3>如何看待武亮说大学生生活费1500就够用这一言论？</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/9822317271.shtml</p><br>
+<h3>小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:http://www.share.minike.top/Article/details/3113302120.shtml</p><br>
+<h3>《贺子珍》</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://www.blog.minike.top/Article/details/58626254.shtml</p><br>
+<h3>一生一世</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:http://www.blog.minike.top/Article/details/83572748.shtml</p><br>
+<h3>德国4比5巴拉圭</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/83046.shtml</p><br>
+<h3>黄晓明晒和周杰伦的合照</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:http://www.blog.minike.top/Article/details/372767331.shtml</p><br>
+<h3>王楚钦孙颖莎晋级混双八强</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:http://www.share.minike.top/Article/details/75868339512.shtml</p><br>
+<h3>勇敢的心第二部</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/542822507993.shtml</p><br>
+<h3>德国巴拉圭进入点球大战</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/1234974528.shtml</p><br>
+<h3>2026年WTT美国大满贯，国乒自带球桌是真实的吗？</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/22354225952.shtml</p><br>
+<h3>金鹰奖视后提名预测</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/41725939394.shtml</p><br>
+<h3>巴西vs日本</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://www.blog.minike.top/Article/details/66009.shtml</p><br>

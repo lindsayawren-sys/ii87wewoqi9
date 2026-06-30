@@ -1,50 +1,43 @@
-# 美国和伊朗将于周五会晤 就协议执行进行初步磋商
+<h1>打破感官壁垒 视障人士在浙江省博物馆“看见”历史</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>中新网杭州5月16日电(曹丹)5月16日，在第三十六个全国助残日与“5·18国际博物馆日”来临之际，“触摸文明”视障人士体验活动在浙江省博物馆举行。来自杭州市淳安县的26位视障人士走进博物馆，通过触摸、聆听与交流，沉浸式感受中华文明的温度与魅力。 在人文探索体验馆，视障人士用手依次触摸浙江省博物馆9件镇馆之宝的仿制品。 志愿者董臻讲解良渚玉琮王时，鼓励大家将手探到玉琮中间的孔洞</p><br>
+<h2>正文</h2><br>
+<p>中新网杭州5月16日电(曹丹)5月16日，在第三十六个全国助残日与“5·18国际博物馆日”来临之际，“触摸文明”视障人士体验活动在浙江省博物馆举行。</p><br>
+<p>来自杭州市淳安县的26位视障人士走进博物馆，通过触摸、聆听与交流，沉浸式感受中华文明的温度与魅力。</p><br>
+<p>在人文探索体验馆，视障人士用手依次触摸浙江省博物馆9件镇馆之宝的仿制品。</p><br>
+<p>志愿者董臻讲解良渚玉琮王时，鼓励大家将手探到玉琮中间的孔洞中——这件中国最早的微雕作品之一，孔洞以竹管加解玉砂上下对钻而成，因两端未完全对齐，孔壁留有一道棱。</p><br>
+<p>“这是工艺的不完美性，也是唯有触摸方能感知的细节。</p><br>
+<p>”董臻感慨道，“步入博物馆，面对未知的历史，视力健全者与视障者其实没有区别，我们都在'摸黑'前行。</p><br>
+<p>” 现场，教育员用生动语言描述文物的时代背景与使用场景，并引导视障人士用双手细细感知文物的纹饰、形状与材质。</p><br>
+<p>有人轻轻摩挲战国伎乐铜屋模型仿制品中乐师的乐器，有人反复感受唐落霞式“彩凤鸣岐”七弦琴仿制品边缘灵动起伏的线条，还有人用手指勾勒以《富春山居图·剩山图》为蓝本的浮雕线条。</p><br>
+<h2>相关推荐</h2><br>
+<h3>我吃遍了西安最強的街頭小吃，第九家強得離譜！</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md</p><br>
+<h3>明星大侦探第一季</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md</p><br>
+<h3>有什么好的高中网课推荐吗？</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md</p><br>
+<h3>日耳曼拖拉机</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md</p><br>
+<h3>女儿从清华毕业 爸爸晒出17年对比照</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md</p><br>
+<h3>左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md</p><br>
+<h3>速度与激情9</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md</p><br>
+<h3>金价跳水 水贝市场显现出“两重天”</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md</p><br>
+<h3>人可以极简主义到什么程度？</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md</p><br>
+<h3>锐评T1战胜KC</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md</p><br>
 
-瑞士外交部在声明中表示，美国和伊朗将在巴基斯坦和卡塔尔等调解人以及其他相关国家的参与下，于周五在Bürgenstock会晤，就落实该协议进行初步磋商。 瑞士外交部未提供会议议程和详情等资讯。责任编辑：刘明亮
-
-## 正文
-
-瑞士外交部在声明中表示，美国和伊朗将在巴基斯坦和卡塔尔等调解人以及其他相关国家的参与下，于周五在Bürgenstock会晤，就落实该协议进行初步磋商。
-
-瑞士外交部未提供会议议程和详情等资讯。
-
-责任编辑：刘明亮
-
-## 相关推荐
-
-- 2026-06-30 09:17 - 我觉得你是在无中生友<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md
-- 2026-06-30 09:28 - 重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md
-- 2026-06-30 09:03 - 杨紫大银幕成绩单如何<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md
-- 2026-06-30 09:28 - 领克900大型SUV值得购买吗?<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md
-- 2026-06-30 09:22 - 卢卡申科发布解放军仪仗队视频<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md
-- 2026-06-30 09:01 - 巴西2比1日本<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md
-- 2026-06-30 09:20 - 如何看待武亮说大学生生活费1500就够用这一言论？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md
-- 2026-06-30 09:09 - 张月收到黄灿灿辣货两眼发光<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md
-- 2026-06-30 09:11 - 安切洛蒂 换人<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md
-- 2026-06-30 09:21 - 上市央企地产商 两年换了三任董事长<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md
-- 2026-06-30 09:08 - 韩国球迷凌晨4点接机怒骂主教练<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md
-- 2026-06-30 09:20 - 第一次对自信的力量有了实感<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md
-- 2026-06-30 09:28 - 董卿父亲在报纸上发文悼念亡妻<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md
-- 2026-06-30 09:05 - 商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md
-
-## 延伸阅读
-
-- 2026-06-30 09:17 - HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/30880230.shtml
-- 2026-06-30 09:26 - 法媒点赞中国小区楼顶“人工降雨”<br><br> | ??:http://www.share.minike.top/Article/details/16374566485.shtml
-- 2026-06-30 09:14 - 急先锋<br><br> | ??:https://www.blog.minike.top/Article/details/76379995431.shtml
-- 2026-06-30 09:25 - 赛博朋克边缘行者2预告片<br><br> | ??:https://www.share.minike.top/Article/details/66140517498.shtml
-- 2026-06-30 09:14 - 高考结束，该不该外出打工体验？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/642761.shtml
-- 2026-06-30 09:23 - 《共患难》<br><br> | ??:http://www.share.kurohicncr.top/Article/details/80335690.shtml
-- 2026-06-30 09:01 - 全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」<br><br> | ??:https://www.share.kurohicncr.top/Article/details/74491.shtml
-- 2026-06-30 09:04 - 美股深夜大反弹 特斯拉飙涨8%<br><br> | ??:http://www.share.minike.top/Article/details/17266198.shtml
-- 2026-06-30 09:17 - 杨紫被质疑未使用原名<br><br> | ??:http://www.share.kurohicncr.top/Article/details/132820.shtml
-- 2026-06-30 09:09 - 泰山建135公里刀片刺绳隔离网<br><br> | ??:https://www.blog.minike.top/Article/details/837329912.shtml
-- 2026-06-30 09:19 - 恋与深空道歉声明<br><br> | ??:https://www.share.minike.top/Article/details/284453.shtml
-- 2026-06-30 09:29 - 收到补税提醒尽快办理 明起有滞纳金<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/6616493267.shtml
-- 2026-06-30 09:21 - 咕嘎万能小摊1：沉浸式制作惠灵顿牛排<br><br> | ??:https://www.share.kurohicncr.top/Article/details/00970.shtml
-- 2026-06-30 09:20 - 未来的飞机可能会用电吗？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/837486510.shtml
-- 2026-06-30 09:09 - 大蒜晒外面被路过女子连盆端走<br><br> | ??:http://www.blog.minike.top/Article/details/9470262049.shtml
+<h2>延伸阅读</h2><br>
+<h3>明星大侦探第一季</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://www.blog.minike.top/Article/details/6803252.shtml</p><br>
+<h3>韩国道歉完日本道歉</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://www.blog.minike.top/Article/details/58777506536.shtml</p><br>
+<h3>博世们还在犹豫 美的们已经卖断货</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/74906063.shtml</p><br>
+<h3>一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/7197593.shtml</p><br>
+<h3>哈弗茨头球破门</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/09380.shtml</p><br>
+<h3>马宁怒怼巴拉圭教练组</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://www.blog.minike.top/Article/details/76176.shtml</p><br>
+<h3>欧洲家电巨头为何输掉了这个夏天</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/178729091.shtml</p><br>
+<h3>人民锐评：网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://www.share.minike.top/Article/details/0775743088.shtml</p><br>
+<h3>女子健身不当 居然“脑子漏水”了</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/042176439172.shtml</p><br>
+<h3>疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/1529425963.shtml</p><br>
+<h3>法媒点赞中国小区楼顶“人工降雨”</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/38384627725.shtml</p><br>
+<h3>欧洲民众抢购空调降温</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/77977.shtml</p><br>
+<h3>蜘蛛侠:英雄归来</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.blog.minike.top/Article/details/91154656.shtml</p><br>
+<h3>妻子撞死家暴丈夫案二审案情反转</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:http://www.share.minike.top/Article/details/1740890.shtml</p><br>
+<h3>木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/4081781222.shtml</p><br>

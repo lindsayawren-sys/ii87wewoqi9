@@ -1,60 +1,43 @@
-# “赛事+”新场景释放端午消费蓬勃活力 “新中式”成热点吸睛年轻消费者
+<h1>巴西瑞安商会会馆揭牌</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>中新网圣保罗5月17日电 (记者 林春茵)5月16日，中国驻圣保罗副总领事谢炎村与巴西瑞安商会会长娄建权在巴西圣保罗市为巴西瑞安商会会馆揭牌。娄建权说，旅巴瑞安的华侨华人们在巴西，有了一个“团结之家、交流之家、合作之家”。 中国驻圣保罗副总领事谢炎村、领侨处主任荣强、侨务领事梁荣乾，圣保罗州议员André Bueno、圣保罗市议员Sargento Nantes、巴西联邦卫生部长</p><br>
+<h2>正文</h2><br>
+<p>中新网圣保罗5月17日电 (记者 林春茵)5月16日，中国驻圣保罗副总领事谢炎村与巴西瑞安商会会长娄建权在巴西圣保罗市为巴西瑞安商会会馆揭牌。</p><br>
+<p>娄建权说，旅巴瑞安的华侨华人们在巴西，有了一个“团结之家、交流之家、合作之家”。</p><br>
+<p>中国驻圣保罗副总领事谢炎村、领侨处主任荣强、侨务领事梁荣乾，圣保罗州议员André Bueno、圣保罗市议员Sargento Nantes、巴西联邦卫生部长特别助理Fábio Manzini，以及巴西华人协会会长叶周永、巴西温州同乡联谊会会长朱轩初近百名嘉宾出席并剪彩。</p><br>
+<p>巴西瑞安商会秘书长葛海勇主持。</p><br>
+<p>谢炎村在致辞中说，“走遍千山万水、说尽千言万语、想尽千方百计、吃尽千辛万苦”的“四千精神”，是瑞安侨胞在海外奋斗的真实写照。</p><br>
+<p>新会馆是所有在巴西瑞安人的海外家园，希望商会以此为新起点，在凝聚侨胞、促进合作、讲好中国故事和推动中巴民心相通方面不断迈上新台阶。</p><br>
+<p>娄建权在致辞中表示，新会址是旅巴瑞安乡贤的精神家园，也是以“侨”为“桥”，搭建中巴经贸合作的平台，未来商会将继续凝聚侨心侨力，助力“瑞安智造”进入巴西市场，推动中巴经贸与文化交流。</p><br>
+<p>叶周永表示，新会馆启用是巴西瑞安商会发展的重要里程碑，将进一步为侨社发展注入活力。</p><br>
+<h2>相关推荐</h2><br>
+<h3>全网说丑的玫瑰空调卖了5万台</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md</p><br>
+<h3>网瘾賊大的阿嬷</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md</p><br>
+<h3>免费试吃发差评被店家挂店门避雷</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md</p><br>
+<h3>如果有二次元高中是什么样子的？</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md</p><br>
+<h3>荀彧和曹操反目成仇的根本原因是什么？</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md</p><br>
+<h3>苗族银饰</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md</p><br>
+<h3>三星投资计划</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md</p><br>
+<h3>本科毕业生为何涌入专科学校</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md</p><br>
+<h3>日本16强魔咒</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md</p><br>
+<h3>为什么小组赛出局会让韩国人破防</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md</p><br>
 
-央视网消息：又是一年端午时。今年的假日消费市场正悄然发生着一些变化。兼具国风美感与祈福寓意的艾草花束火爆出圈，文旅行业依托民俗和体育赛事赋能持续升温，传统端午正以多元新业态不断激活消费活力。 “赛旅融合”成端午出行新风向 赛龙舟是端午节的“重头戏”。这个端午假期，全国多地百余场龙舟赛事人气爆棚，一场龙舟赛带火的，不只是一座城。在广东佛山叠滘龙船漂移大赛现场，岸边河堤、民居露台、
-
-## 正文
-
-央视网消息：又是一年端午时。
-
-今年的假日消费市场正悄然发生着一些变化。
-
-兼具国风美感与祈福寓意的艾草花束火爆出圈，文旅行业依托民俗和体育赛事赋能持续升温，传统端午正以多元新业态不断激活消费活力。
-
-“赛旅融合”成端午出行新风向 赛龙舟是端午节的“重头戏”。
-
-这个端午假期，全国多地百余场龙舟赛事人气爆棚，一场龙舟赛带火的，不只是一座城。
-
-在广东佛山叠滘龙船漂移大赛现场，岸边河堤、民居露台、河畔步道挤满了观赛人群。
-
-每一次惊险过弯都引得岸边游客齐声呐喊。
-
-不少海外游客也专程奔赴现场。
-
-## 相关推荐
-
-- 2026-06-30 09:15 - 巴西绝杀日本：漫画般结局换了主角<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md
-- 2026-06-30 09:00 - 日本博主：日本足球真的垃圾<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md
-- 2026-06-30 09:21 - 【大鸣王潮1566】真拿你没办法<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md
-- 2026-06-30 09:22 - 大学生遇地震裹被子从5楼冲下<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md
-- 2026-06-30 09:26 - 杨紫被质疑未使用原名纯属误解<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md
-- 2026-06-30 09:27 - 吴易昺不敌德约科维奇 止步温网首轮<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md
-- 2026-06-30 09:01 - 日本主帅赛后回应淘汰出局<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md
-- 2026-06-30 09:00 - 荷兰VS摩洛哥<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md
-- 2026-06-30 09:18 - 韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md
-- 2026-06-30 09:23 - 诺伊尔尽力了<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md
-- 2026-06-30 09:10 - 巴西醒醒 这是淘汰赛<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md
-- 2026-06-30 09:03 - 这些7月新规影响你我<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md
-- 2026-06-30 09:00 - 卡塞米罗头球破门<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md
-- 2026-06-30 09:09 - 《贺子珍》<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md
-
-## 延伸阅读
-
-- 2026-06-30 09:20 - 孙兴慜发长文致歉<br><br> | ??:http://www.share.kurohicncr.top/Article/details/6960758037.shtml
-- 2026-06-30 09:21 - 湖北云南的这些涉汛信息都是假的<br><br> | ??:https://www.blog.minike.top/Article/details/076764.shtml
-- 2026-06-30 09:26 - 【Reaction】女生最少的5款游戏<br><br> | ??:https://www.share.kurohicncr.top/Article/details/322179182.shtml
-- 2026-06-30 09:17 - 覃予萱晋级WTT美国大满贯女单32强<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/24414111.shtml
-- 2026-06-30 09:14 - 韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？<br><br> | ??:https://www.blog.minike.top/Article/details/531438534.shtml
-- 2026-06-30 09:09 - 如何看待武亮说大学生生活费1500就够用这一言论？<br><br> | ??:http://www.share.minike.top/Article/details/44833.shtml
-- 2026-06-30 09:13 - 谢依霖说杨幂是聚会第一把张罗手<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/9435062700.shtml
-- 2026-06-30 09:25 - 美股收盘 热门中概股普涨<br><br> | ??:http://www.share.kurohicncr.top/Article/details/42474.shtml
-- 2026-06-30 09:07 - 把毒品藏在哪里，60秒内不会被发现？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/862000961.shtml
-- 2026-06-30 09:02 - DeepSeek启动成立来最大规模招聘<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/62790.shtml
-- 2026-06-30 09:06 - 请回答王牌2019<br><br> | ??:https://www.share.kurohicncr.top/Article/details/775048.shtml
-- 2026-06-30 09:16 - 低智商犯罪三江口团建来了<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/80561328.shtml
-- 2026-06-30 09:23 - 爱直接对嘴喝饮料的人天塌了<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/2392725732.shtml
-- 2026-06-30 09:26 - 荷兰VS摩洛哥<br><br> | ??:http://www.share.kurohicncr.top/Article/details/817604.shtml
-- 2026-06-30 09:26 - 商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/094749949087.shtml
+<h2>延伸阅读</h2><br>
+<h3>内马尔未登场 安切洛蒂赛后回应</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/86474040.shtml</p><br>
+<h3>王源近几年没有路演了</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:http://www.blog.minike.top/Article/details/0239208176.shtml</p><br>
+<h3>爱直接对嘴喝饮料的人天塌了</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:http://www.share.minike.top/Article/details/3886976.shtml</p><br>
+<h3>送你一朵小红花</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/10215787.shtml</p><br>
+<h3>中国猪圈装空调让欧洲网友破防</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://www.blog.minike.top/Article/details/61757205.shtml</p><br>
+<h3>日本主帅赛后回应淘汰出局</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/17996377.shtml</p><br>
+<h3>想问一下学日语的大佬，自学日语要怎么学？</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/680600683.shtml</p><br>
+<h3>马宁怒怼巴拉圭教练组</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/02889.shtml</p><br>
+<h3>日本博主：日本足球真的垃圾</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/206715025.shtml</p><br>
+<h3>俄乌双方伤亡近180万人</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:http://www.share.minike.top/Article/details/5181625566.shtml</p><br>
+<h3>找到了10年前跪舔b站的视频</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/4429185842.shtml</p><br>
+<h3>FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/99402643491.shtml</p><br>
+<h3>DeepSeek启动成立来最大规模招聘</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/8829488945.shtml</p><br>
+<h3>内马尔未登场 安切洛蒂赛后回应</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:http://www.share.minike.top/Article/details/258089066159.shtml</p><br>
+<h3>内马尔未登场 安切洛蒂赛后回应</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://www.share.minike.top/Article/details/091248737530.shtml</p><br>

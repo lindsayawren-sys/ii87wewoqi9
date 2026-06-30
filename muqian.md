@@ -1,58 +1,48 @@
-# 人民论坛网评 | 让田埂上的“村播”持续火下去
+<h1>2026美加墨世界杯主题曲发布 重温往届经典旋律</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>中新网北京5月15日电(记者 刘星晨)北京时间5月15日，2026美加墨世界杯主题曲《Dai Dai》正式发布。该歌曲由哥伦比亚歌手夏奇拉与尼日利亚歌手Burna Boy合作演绎。 《Dai Dai》预告版MV取景于巴西马拉卡纳球场，歌曲融合非洲节拍与拉丁元素。这是夏奇拉第3次献唱世界杯，此前2010年世界杯歌曲《Waka Waka》以及2014年世界杯歌曲《La La La》</p><br>
+<h2>正文</h2><br>
+<p>中新网北京5月15日电(记者 刘星晨)北京时间5月15日，2026美加墨世界杯主题曲《Dai Dai》正式发布。</p><br>
+<p>该歌曲由哥伦比亚歌手夏奇拉与尼日利亚歌手Burna Boy合作演绎。</p><br>
+<p>《Dai Dai》预告版MV取景于巴西马拉卡纳球场，歌曲融合非洲节拍与拉丁元素。</p><br>
+<p>这是夏奇拉第3次献唱世界杯，此前2010年世界杯歌曲《Waka Waka》以及2014年世界杯歌曲《La La La》也由其演唱。</p><br>
+<p>回顾过往，主题曲承载了几代人有关世界杯的情感记忆。</p><br>
+<p>“Waka、Waka”， “GO，GO，GO！</p><br>
+<p>ALE，ALE，ALE！</p><br>
+<p>”，熟悉的旋律响起，关于世界杯的记忆开始浮现。</p><br>
+<h2>相关推荐</h2><br>
+<h3>老人卖菜获博主帮助后遇车祸去世</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md</p><br>
+<h3>德国 传控</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md</p><br>
+<h3>男子在京东买到“同仁堂”假药</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md</p><br>
+<h3>张碧晨一开口梦回逐玉</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md</p><br>
+<h3>高考结束了，你会让孩子在家玩手机吗？</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md</p><br>
+<h3>已经看完《三国第一部：争洛阳》的人，如何评价这部电影？</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md</p><br>
+<h3>德国 传控</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md</p><br>
+<h3>日本队被绝杀后鞠躬致谢观众</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md</p><br>
+<h3>千与千寻</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md</p><br>
+<h3>阿娇瘦了10斤</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md</p><br>
+<h3>“荒唐”背后的韩国足球</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md</p><br>
+<h3>王灿兮被烫伤两年后维权成功</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md</p><br>
+<h3>未来的飞机可能会用电吗？</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md</p><br>
+<h3>全新问界M9现身美国街头</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md</p><br>
+<h3>ASMR 千禧年百货大楼初代柜姐给你化大头贴妆</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md</p><br>
 
-在浙江瑞安，庄文雅扎根乡村一线，创办草根工社，把农田变成直播间，为农村电商注入可持续生命力；在湖北武汉江夏，高亚文返乡养鸡创业，通过直播实现自家鸡场扭亏为盈，帮村民解决农货滞销难题。随着乡村全面振兴深入推进，一部手机、一个支架、一方直播间，越来越多的“村播”活跃在互联网上。近日，国务院印发《加快农业农村现代化“十五五”规划》(以下简称《规划》)。《规划》提出，实施农村电商高质量
-
-## 正文
-
-在浙江瑞安，庄文雅扎根乡村一线，创办草根工社，把农田变成直播间，为农村电商注入可持续生命力；在湖北武汉江夏，高亚文返乡养鸡创业，通过直播实现自家鸡场扭亏为盈，帮村民解决农货滞销难题。
-
-随着乡村全面振兴深入推进，一部手机、一个支架、一方直播间，越来越多的“村播”活跃在互联网上。
-
-近日，国务院印发《加快农业农村现代化“十五五”规划》(以下简称《规划》)。
-
-《规划》提出，实施农村电商高质量发展工程，加快农村电商迭代升级，规范发展农产品直播带货，开展“数商兴农”。
-
-商务部数据显示，截至2025年底，全国农村网商数为2007.4万家，同比增长4.6%；全国农村“直播+社交”网商数为747.7万家，同比增长5.1%。
-
-数字的背后，是一批爱农村、懂电商的“新农人”扎根田野，用镜头把优质农产品带出大山、推向全国。
-
-“村播”入门不难，难在长足发展。
-
-如何把手机“新农具”用好，把直播“新农活”干好？
-
-## 相关推荐
-
-- 2026-06-30 09:15 - 【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md
-- 2026-06-30 09:07 - 英语考了145的人竟然教数学<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md
-- 2026-06-30 09:24 - 田中碧失误<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md
-- 2026-06-30 09:11 - 张月收到黄灿灿辣货两眼发光<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md
-- 2026-06-30 09:00 - 领克900大型SUV值得购买吗?<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md
-- 2026-06-30 09:20 - IGN评测电影版后室<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md
-- 2026-06-30 09:26 - 《虎吹最难绷の一集》<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md
-- 2026-06-30 09:17 - 四川凉山落石砸毁车辆 3人遇难<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md
-- 2026-06-30 09:21 - 巴西足球能否再现昔日荣光<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md
-- 2026-06-30 09:28 - 韩国道歉完日本道歉<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md
-- 2026-06-30 09:27 - 为什么会有「念旧」的心理？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md
-- 2026-06-30 09:13 - 承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md
-
-## 延伸阅读
-
-- 2026-06-30 09:27 - 为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/2905472312.shtml
-- 2026-06-30 09:20 - 杨紫大银幕成绩单如何<br><br> | ??:https://www.share.kurohicncr.top/Article/details/42012148.shtml
-- 2026-06-30 09:02 - 庆祝中国共产党成立105周年大会将举行<br><br> | ??:https://www.share.kurohicncr.top/Article/details/99427161.shtml
-- 2026-06-30 09:05 - 逃狱兄弟<br><br> | ??:http://www.blog.minike.top/Article/details/12987376.shtml
-- 2026-06-30 09:15 - 第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！<br><br> | ??:http://www.share.kurohicncr.top/Article/details/571669769.shtml
-- 2026-06-30 09:05 - 扬名立万<br><br> | ??:http://www.blog.minike.top/Article/details/79138889440.shtml
-- 2026-06-30 09:28 - 田中碧失误<br><br> | ??:https://www.share.kurohicncr.top/Article/details/4783672.shtml
-- 2026-06-30 09:18 - 周冬雨多次说演不了话剧文城<br><br> | ??:http://www.share.kurohicncr.top/Article/details/528228961054.shtml
-- 2026-06-30 09:25 - 诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天<br><br> | ??:https://www.share.minike.top/Article/details/21657.shtml
-- 2026-06-30 09:15 - 张雪的一句“是我们”引发岛内热议<br><br> | ??:http://www.blog.minike.top/Article/details/197460718.shtml
-- 2026-06-30 09:01 - FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/1793401.shtml
-- 2026-06-30 09:10 - 莫兰特转投开拓者效力<br><br> | ??:http://www.blog.minike.top/Article/details/55617.shtml
-- 2026-06-30 09:22 - 我觉得你是在无中生友<br><br> | ??:https://www.blog.minike.top/Article/details/522080220.shtml
-- 2026-06-30 09:03 - 人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？<br><br> | ??:https://www.blog.minike.top/Article/details/337208778185.shtml
-- 2026-06-30 09:00 - 王楚钦说配合稍微有些陌生感<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/444549.shtml
+<h2>延伸阅读</h2><br>
+<h3>87克大金链到老庙黄金维修少了11克</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/842917514.shtml</p><br>
+<h3>德国罚丢3粒点球</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://www.blog.minike.top/Article/details/657849348451.shtml</p><br>
+<h3>咕嘎万能小摊1：沉浸式制作惠灵顿牛排</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:http://www.share.minike.top/Article/details/22302.shtml</p><br>
+<h3>孙兴慜发长文致歉</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://www.share.minike.top/Article/details/6887519955.shtml</p><br>
+<h3>急先锋</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/09501007041.shtml</p><br>
+<h3>如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:http://www.blog.minike.top/Article/details/491534.shtml</p><br>
+<h3>女子清吧被陌生人投放伟哥</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:http://www.share.minike.top/Article/details/89791.shtml</p><br>
+<h3>女子遭家暴逃跑致丈夫身亡二审细节</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/24081.shtml</p><br>
+<h3>终于把好哥们处成了情侣!</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/0409869.shtml</p><br>
+<h3>法总统候选人：拒绝与中国激烈对抗</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/07387775666.shtml</p><br>
+<h3>请回答王牌2019</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.blog.minike.top/Article/details/67998964688.shtml</p><br>
+<h3>普京为何将俄乌谈判时间表与伊朗挂钩</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:http://www.blog.minike.top/Article/details/7280952514.shtml</p><br>
+<h3>杨紫肖战余生请多指教拍立得</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:http://www.share.minike.top/Article/details/197536.shtml</p><br>
+<h3>曝灰熊将莫兰特交易至开拓者</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/32433451.shtml</p><br>
+<h3>板面：为什么那么多人爱吃？？！</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://www.share.minike.top/Article/details/35220838.shtml</p><br>

@@ -1,58 +1,45 @@
-# 原油期货上涨 美伊和平谈判开启之际特朗普再次发出威胁
+<h1>“1.2小时到账”与“银龄驿站”：养老金融的陕西解法</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>日前，中国人寿保险股份有限公司(以下简称“中国人寿”，股票代码：601628.SH，2628.HK)在陕西举办了主题为“未来国寿向新而行——探寻保障和改善民生的数智金融力量”的“媒体看国寿”调研采访与新闻发布活动。 “在全生命周期保障践行中，‘一老一小’、妇女群体始终是重中之重。老年人风险高、女性健康保障需求特殊，这两类群体最需要普惠、贴心、持续的保险守护。”中国人寿陕西省分公</p><br>
+<h2>正文</h2><br>
+<p>日前，中国人寿保险股份有限公司(以下简称“中国人寿”，股票代码：601628.SH，2628.HK)在陕西举办了主题为“未来国寿向新而行——探寻保障和改善民生的数智金融力量”的“媒体看国寿”调研采访与新闻发布活动。</p><br>
+<p>“在全生命周期保障践行中，‘一老一小’、妇女群体始终是重中之重。</p><br>
+<p>老年人风险高、女性健康保障需求特殊，这两类群体最需要普惠、贴心、持续的保险守护。</p><br>
+<p>”中国人寿陕西省分公司总经理陈纪葵在与媒体沟通时介绍。</p><br>
+<p>2015年，中国人寿咸阳分公司在全省率先试点老年人意外伤害保险，从最初的单一险种，到现在已建起覆盖意外身故、伤残、医疗、住院津贴、交通意外的“银龄安康全方位保障体系”，累计承保全市25万余老年人，全力实现“不让一位老人在保障中掉队”。</p><br>
+<p>从“锦上添花”到“触手可及” “一份保障是对父母最好的守护。</p><br>
+<p>” 咸阳市兴平市丰仪镇高家村村民张强(化名)至今还记得中国人寿“银龄志愿者”来村宣传的这句话。</p><br>
+<p>为了让老人多一份保障，张强当天就为父亲投保了银龄安康保险。</p><br>
+<h2>相关推荐</h2><br>
+<h3>如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md</p><br>
+<h3>男子P图现任妻子照片冒充前妻</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md</p><br>
+<h3>全网说丑的格力玫瑰空调卖了5万台</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md</p><br>
+<h3>王楚钦孙颖莎晋级混双八强</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md</p><br>
+<h3>爆冷出局！德国点球大战不敌巴拉圭</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md</p><br>
+<h3>如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md</p><br>
+<h3>点球大战 残酷</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md</p><br>
+<h3>卡塞米罗头球破门</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md</p><br>
+<h3>锐评T1战胜KC</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md</p><br>
+<h3>请回答王牌2019</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md</p><br>
+<h3>《共患难》</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md</p><br>
+<h3>董卿父亲报纸上发文悼念亡妻</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md</p><br>
 
-油价上涨，此前美国总统特朗普威胁称如果真主党继续攻击以色列，将对伊朗发动打击，这引发市场对华盛顿和德黑兰之间和平谈判进展的担忧。 布伦特原油开盘一度上涨2.2%，至每桶82.30美元，而WTI原油期货一度升至每桶78美元上方。周日在瑞士举行的谈判开场充满波折，此前伊朗媒体报道称在特朗普最新威胁之后，伊朗方面暂停谈判，但知情人士称谈判继续进行。德黑兰指责以色列违反了黎巴嫩停火协议
-
-## 正文
-
-油价上涨，此前美国总统特朗普威胁称如果真主党继续攻击以色列，将对伊朗发动打击，这引发市场对华盛顿和德黑兰之间和平谈判进展的担忧。
-
-布伦特原油开盘一度上涨2.2%，至每桶82.30美元，而WTI原油期货一度升至每桶78美元上方。
-
-周日在瑞士举行的谈判开场充满波折，此前伊朗媒体报道称在特朗普最新威胁之后，伊朗方面暂停谈判，但知情人士称谈判继续进行。
-
-德黑兰指责以色列违反了黎巴嫩停火协议。
-
-在瑞士比尔根施托克度假胜地举行的这次高级别会议，标志着为期60天的谈判窗口期的开始。
-
-特朗普上周签署了一份谅解备忘录，启动了局势降级进程。
-
-尽管伊朗声称已经关闭了霍尔木兹海峡，但周末期间数百万桶原油继续通过这条水道输送。
-
-周一其他能源商品价格也上涨，基准欧洲天然气期货涨幅一度高达3.9%。
-
-## 相关推荐
-
-- 2026-06-30 09:03 - 中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md
-- 2026-06-30 09:18 - 怕iPhone涨价的用户已紧急换新<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md
-- 2026-06-30 09:19 - 拆解FIFA和世界杯的暗面<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md
-- 2026-06-30 09:13 - 我把队友的7连跪剪成了艺术<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md
-- 2026-06-30 09:04 - 可以细成这样？1600万预算，颠覆我认知的改造！<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md
-- 2026-06-30 09:21 - 《赛博朋克：边缘行者 2》｜官方预告片<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md
-- 2026-06-30 09:23 - 为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md
-- 2026-06-30 09:26 - 失明的我带老妈去了趟“火星”<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md
-- 2026-06-30 09:25 - 明星大侦探第四季<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md
-- 2026-06-30 09:01 - 黄晓明夸昆凌引杨颖对比<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md
-- 2026-06-30 09:17 - 领克900大型SUV值得购买吗?<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md
-- 2026-06-30 09:02 - 妻子撞死家暴丈夫案二审案情反转<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md
-
-## 延伸阅读
-
-- 2026-06-30 09:07 - 博世们还在犹豫 美的们已经卖断货<br><br> | ??:http://www.share.kurohicncr.top/Article/details/3695025711.shtml
-- 2026-06-30 09:26 - 如何把斧兵改造成精英怪？提高攻速移速！！！<br><br> | ??:http://www.share.kurohicncr.top/Article/details/012631989.shtml
-- 2026-06-30 09:11 - 如何把斧兵改造成精英怪？提高攻速移速！！！<br><br> | ??:http://www.blog.minike.top/Article/details/722389619.shtml
-- 2026-06-30 09:20 - 德国身价是巴拉圭6倍<br><br> | ??:http://www.share.minike.top/Article/details/61786.shtml
-- 2026-06-30 09:09 - 不开心就去看三年前的购物订单<br><br> | ??:http://www.share.kurohicncr.top/Article/details/17841196745.shtml
-- 2026-06-30 09:06 - 苗族银饰<br><br> | ??:https://www.share.minike.top/Article/details/44251574.shtml
-- 2026-06-30 09:07 - 韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？<br><br> | ??:http://www.blog.minike.top/Article/details/236037.shtml
-- 2026-06-30 09:24 - 如何评价DeepSeek 提出的 DSpark 推理加速方案？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/430853942583.shtml
-- 2026-06-30 09:00 - 起风了<br><br> | ??:https://www.blog.minike.top/Article/details/760329590656.shtml
-- 2026-06-30 09:25 - 板面：为什么那么多人爱吃？？！<br><br> | ??:http://www.share.kurohicncr.top/Article/details/6614302.shtml
-- 2026-06-30 09:03 - 怕iPhone涨价的用户已紧急换新<br><br> | ??:https://www.blog.minike.top/Article/details/8508334.shtml
-- 2026-06-30 09:22 - 曝老詹对自由市场态度与以往截然不同<br><br> | ??:http://www.blog.minike.top/Article/details/77841.shtml
-- 2026-06-30 09:14 - 委内瑞拉地震死亡人数升至1719人<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/257074901.shtml
-- 2026-06-30 09:22 - 天道<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/1242358.shtml
-- 2026-06-30 09:14 - 曝iPhone18Pro机密文件现身暗网<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/829800746.shtml
+<h2>延伸阅读</h2><br>
+<h3>泰山景区回应修建刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://www.share.minike.top/Article/details/67082.shtml</p><br>
+<h3>第3集丨“柠檬茶能换怀表？”</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/44787845980.shtml</p><br>
+<h3>李在明向韩国两大财阀90度鞠躬</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/17986451.shtml</p><br>
+<h3>GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:http://www.share.minike.top/Article/details/601888362.shtml</p><br>
+<h3>高考结束了，你会让孩子在家玩手机吗？</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://www.share.minike.top/Article/details/3370474492.shtml</p><br>
+<h3>请回答王牌2019</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/124349009.shtml</p><br>
+<h3>世界杯欧洲队7战南美仅1胜</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/53932.shtml</p><br>
+<h3>王灿兮被烫伤两年后维权成功</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:http://www.blog.minike.top/Article/details/6352230950.shtml</p><br>
+<h3>《虎吹最难绷の一集》</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/657086.shtml</p><br>
+<h3>乔家的儿女</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://www.share.minike.top/Article/details/297981482.shtml</p><br>
+<h3>小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/59919798834.shtml</p><br>
+<h3>哪部作品、哪本书、哪首歌，值得被一直传下去？</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/25230.shtml</p><br>
+<h3>中国对日本再出重拳</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://www.share.minike.top/Article/details/146224400.shtml</p><br>
+<h3>为什么很多企业推行“扁平化管理”后，效率反而下降了？</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/2006568.shtml</p><br>
+<h3>如何评价DeepSeek 提出的 DSpark 推理加速方案？</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/307789.shtml</p><br>

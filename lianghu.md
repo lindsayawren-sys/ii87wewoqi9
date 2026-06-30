@@ -1,59 +1,46 @@
-# 特朗普试图解雇美联储官员莉萨・库克，后者法律与安保支出超100万美元
+<h1>应用材料业绩超预期却股价走低 市场陷入“卖事实”模式</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>财报表现亮眼 半导体设备供应商应用材料公布了2026财年第二季度财报，各项核心指标均超出市场预期。数据显示，公司当季营收达到79.1亿美元，同比增长11%，高于分析师预期的76.5亿美元；调整后每股收益为2.86美元，同样超越市场预期的2.68美元。毛利率更是触及50.0%大关，创下逾25年新高。 AI需求驱动增长 公司首席执行官Gary Dickerson在财报中表示：“应用</p><br>
+<h2>正文</h2><br>
+<p>财报表现亮眼 半导体设备供应商应用材料公布了2026财年第二季度财报，各项核心指标均超出市场预期。</p><br>
+<p>数据显示，公司当季营收达到79.1亿美元，同比增长11%，高于分析师预期的76.5亿美元；调整后每股收益为2.86美元，同样超越市场预期的2.68美元。</p><br>
+<p>毛利率更是触及50.0%大关，创下逾25年新高。</p><br>
+<p>AI需求驱动增长 公司首席执行官Gary Dickerson在财报中表示：“应用材料实现了创纪录的季度业绩，我们现在预计半导体设备业务在2026年将增长超过30%。</p><br>
+<p>”他指出，全球AI运算基础设施的快速扩张，加上公司在先进逻辑芯片、DRAM与先进封装领域的领先地位，为未来多年的持续增长奠定了坚实基础。</p><br>
+<p>公司还宣布与台积电、SK海力士、美光等行业巨头建立新的合作伙伴关系。</p><br>
+<p>乐观指引难阻股价回调 尽管业绩亮眼，应用材料股价却在盘后交易中下跌约2%。</p><br>
+<p>分析人士指出，这可能是典型的“卖事实”行情——公司股价年初至今已累计上涨约七成，强劲的AI需求预期已被提前消化。</p><br>
+<h2>相关推荐</h2><br>
+<h3>沉睡花园</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md</p><br>
+<h3>Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md</p><br>
+<h3>索马里女大使：想和中国一起搞事业</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md</p><br>
+<h3>中国猪圈装空调让欧洲网友破防</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md</p><br>
+<h3>为什么很多企业推行“扁平化管理”后，效率反而下降了？</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md</p><br>
+<h3>中国对日本再出重拳</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md</p><br>
+<h3>泰山景区建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md</p><br>
+<h3>速度与激情9</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md</p><br>
+<h3>《贺子珍》</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md</p><br>
+<h3>全网说丑的玫瑰空调卖了5万台</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md</p><br>
+<h3>深扒韩国队淘汰背后原因</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md</p><br>
+<h3>王楚钦孙颖莎混双对手产生</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md</p><br>
+<h3>FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md</p><br>
 
-核心要点 美国联邦储备理事会理事莉萨・库克的最新伦理申报文件于本周四披露：去年 8 月，特朗普总统试图将其从美联储理事会解职，此后库克累计支出超过 130 万美元用于法律维权与个人安保。 申报文件显示，上述全部费用均由其他个人及非营利机构承担支付。 美国最高法院预计将在未来数周内作出裁定，判定特朗普依据其给出的理由解雇库克是否具备合法权限。 时任联邦住房金融局局长的比尔・普尔特
-
-## 正文
-
-核心要点 美国联邦储备理事会理事莉萨・库克的最新伦理申报文件于本周四披露：去年 8 月，特朗普总统试图将其从美联储理事会解职，此后库克累计支出超过 130 万美元用于法律维权与个人安保。
-
-申报文件显示，上述全部费用均由其他个人及非营利机构承担支付。
-
-美国最高法院预计将在未来数周内作出裁定，判定特朗普依据其给出的理由解雇库克是否具备合法权限。
-
-时任联邦住房金融局局长的比尔・普尔特提出相关指控，特朗普据此宣称库克涉嫌抵押贷款欺诈，并试图将其逐出美联储理事会。
-
-库克否认存在任何违规行为，并提起诉讼阻止自身被解雇，在该案判决出炉前，她一直留任美联储理事一职。
-
-一位不愿具名、熟悉库克相关财务细节的知情人士表示：“最高法院的诉讼成本十分高昂。
-
-” 在美国政府公开对库克发起多项指控后，她的私人住址被公之于众。
-
-该知情人士称：“遭到总统与普尔特接连公开、不间断的攻击，她必须采取一系列安保措施保障自身人身安全。
-
-## 相关推荐
-
-- 2026-06-30 09:08 - 国务院：稳步推进研究生考试招生改革<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md
-- 2026-06-30 09:15 - 委内瑞拉地震死亡人数升至1719人<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md
-- 2026-06-30 09:20 - 81岁老人被男子买光菜回家车祸去世<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md
-- 2026-06-30 09:12 - 逃狱兄弟<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md
-- 2026-06-30 09:08 - 金牌调解<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md
-- 2026-06-30 09:21 - 我们看到的星星是不是有些已经不存在了？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md
-- 2026-06-30 09:28 - 曝灰熊将莫兰特交易至开拓者<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md
-- 2026-06-30 09:05 - 德国巴拉圭加时<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md
-- 2026-06-30 09:18 - 人类...完蛋了...<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md
-- 2026-06-30 09:27 - 被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md
-- 2026-06-30 09:12 - 安切洛蒂 换人<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md
-- 2026-06-30 09:20 - 【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md
-- 2026-06-30 09:17 - 天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md
-
-## 延伸阅读
-
-- 2026-06-30 09:17 - 开电动汽车真的很省钱吗？<br><br> | ??:https://www.share.minike.top/Article/details/37518004017.shtml
-- 2026-06-30 09:23 - 全网说丑的格力玫瑰空调卖了5万台<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/1379796.shtml
-- 2026-06-30 09:01 - 萨内 看笑了<br><br> | ??:http://www.blog.minike.top/Article/details/4159366.shtml
-- 2026-06-30 09:20 - 致敬！中国首批缉毒警已全体退休<br><br> | ??:http://www.share.minike.top/Article/details/5404639.shtml
-- 2026-06-30 09:00 - 日本16强魔咒<br><br> | ??:http://www.blog.minike.top/Article/details/328534042.shtml
-- 2026-06-30 09:11 - 巴西醒醒 这是淘汰赛<br><br> | ??:http://www.blog.minike.top/Article/details/07160982461.shtml
-- 2026-06-30 09:09 - 明星大侦探第四季<br><br> | ??:https://www.share.minike.top/Article/details/82911.shtml
-- 2026-06-30 09:19 - 日本博主：日本足球真的垃圾<br><br> | ??:https://www.share.kurohicncr.top/Article/details/712611594.shtml
-- 2026-06-30 09:02 - 起风了<br><br> | ??:http://www.share.kurohicncr.top/Article/details/1129374602.shtml
-- 2026-06-30 09:05 - 巴西2比1日本<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/346594860.shtml
-- 2026-06-30 09:13 - 青春环游记第三季<br><br> | ??:https://www.share.kurohicncr.top/Article/details/83790.shtml
-- 2026-06-30 09:10 - 一切民族英雄都是中华民族的脊梁<br><br> | ??:https://www.blog.minike.top/Article/details/08611582104.shtml
-- 2026-06-30 09:14 - 存储芯片龙头提示风险<br><br> | ??:https://www.share.minike.top/Article/details/2134802939.shtml
-- 2026-06-30 09:19 - 美加墨世界杯：亚洲足球的得意与失意<br><br> | ??:http://www.blog.minike.top/Article/details/78959989.shtml
-- 2026-06-30 09:14 - 为什么会有「念旧」的心理？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/204699.shtml
+<h2>延伸阅读</h2><br>
+<h3>张碧晨一开口梦回逐玉</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:http://www.blog.minike.top/Article/details/00043985.shtml</p><br>
+<h3>世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://www.share.minike.top/Article/details/1358169734.shtml</p><br>
+<h3>巴西vs日本</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/97892018.shtml</p><br>
+<h3>网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:http://www.share.minike.top/Article/details/312692248641.shtml</p><br>
+<h3>德国爆冷点球大战不敌巴拉圭</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://www.share.minike.top/Article/details/8936269881.shtml</p><br>
+<h3>日本主帅赛后回应淘汰出局</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:http://www.share.minike.top/Article/details/207223917.shtml</p><br>
+<h3>女儿从清华毕业 爸爸晒出17年对比照</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:http://www.share.minike.top/Article/details/13731228200.shtml</p><br>
+<h3>输球后日本球迷被强行披上巴西国旗</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://www.share.minike.top/Article/details/727349.shtml</p><br>
+<h3>锐评：网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/72515632667.shtml</p><br>
+<h3>乔家的儿女</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://www.share.minike.top/Article/details/291563.shtml</p><br>
+<h3>莫兰特转投开拓者效力</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://www.share.minike.top/Article/details/9567688.shtml</p><br>
+<h3>德国身价是巴拉圭6倍</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/960665082.shtml</p><br>
+<h3>巴西足球能否再现昔日荣光</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:http://www.blog.minike.top/Article/details/839855608381.shtml</p><br>
+<h3>莫兰特被交易到开拓者</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:http://www.share.minike.top/Article/details/5704181504.shtml</p><br>
+<h3>主人解开狗绳2只狗将路人撕咬致死</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://www.blog.minike.top/Article/details/9691133.shtml</p><br>

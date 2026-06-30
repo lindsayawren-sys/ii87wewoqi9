@@ -1,57 +1,45 @@
-# “更有信心将资本配置到中国”，满怀期待！外资与中国合作空间广阔 前景令人振奋
+<h1>财经早报：中美经贸磋商达成五个方面初步成果，特朗普就台湾问题明确表态丨2026年5月18日</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>登录新浪财经APP 搜索【信披】查看更多考评等级 【重磅】立即开户，跟进“芯片牛市”>> 【头条要闻】 商务部：中美经贸磋商达成五个方面初步成果 问：5月14日，中美两国元首举行会晤，宣布中美经贸团队达成了总体平衡积极的成果。请问商务部能否介绍经贸磋商成果更多情况？ 答：中美两国元首在北京举行会晤，深入讨论经贸问题，为两国经贸关系发展进一步指明了航向，提供了战略指引。习近平主席</p><br>
+<h2>正文</h2><br>
+<p>登录新浪财经APP 搜索【信披】查看更多考评等级 【重磅】立即开户，跟进“芯片牛市”>> 【头条要闻】 商务部：中美经贸磋商达成五个方面初步成果 问：5月14日，中美两国元首举行会晤，宣布中美经贸团队达成了总体平衡积极的成果。</p><br>
+<p>请问商务部能否介绍经贸磋商成果更多情况？</p><br>
+<p>答：中美两国元首在北京举行会晤，深入讨论经贸问题，为两国经贸关系发展进一步指明了航向，提供了战略指引。</p><br>
+<p>习近平主席指出，中美经贸关系的本质是互利共赢，两国经贸团队达成了总体平衡积极的成果，这对两国老百姓、对世界都是好消息，双方应一道维护好当前来之不易的良好势头。</p><br>
+<p>特朗普就台湾问题表态 美国总统特朗普结束访华后，就台湾问题明确表态，不希望看到有人走向“独立”。</p><br>
+<p>特朗普回国途中，高市早苗打来电话 据CCTV4，特朗普的中国之行在日本引发极大关注。</p><br>
+<p>在特朗普回国途中，日本首相高市早苗迫不及待与其通电话，以重申同盟关系的重要性。</p><br>
+<p>事实上，日本一直对中美关系稳定后，自己被“晾在一边”心存担忧。</p><br>
+<h2>相关推荐</h2><br>
+<h3>人民锐评：网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md</p><br>
+<h3>大货车掉落螺丝扎进骑手护目镜</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md</p><br>
+<h3>美股收盘 热门中概股普涨</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md</p><br>
+<h3>明星大侦探第四季</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md</p><br>
+<h3>87克大金链到老庙黄金维修少了11克</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md</p><br>
+<h3>湖北云南的这些涉汛信息都是假的</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md</p><br>
+<h3>哪部作品、哪本书、哪首歌，值得被一直传下去？</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md</p><br>
+<h3>如果有二次元高中是什么样子的？</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md</p><br>
+<h3>这一刀 会很帅</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md</p><br>
+<h3>陈幸同晋级WTT美国大满贯女单32强</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md</p><br>
+<h3>金价跳水 水贝市场显现出“两重天”</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md</p><br>
+<h3>扬名立万</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md</p><br>
 
-央视网消息：在2026陆家嘴论坛上，中国经济成为嘉宾热议的话题。不少参会的外国嘉宾表示，中国经济韧性十足，对外开放持续深化，将为世界带来更多机遇。 论坛上多位外国嘉宾表示，在当前世界充满不确定性的大背景下，中国经济持续向好，让深耕中国市场的外资企业信心倍增。 品浩总裁施礼诚表示，当前，全球各类现实风险层出不穷，包括关税壁垒、贸易摩擦，再到能源供给冲击等一系列问题。即便在多重外部
-
-## 正文
-
-央视网消息：在2026陆家嘴论坛上，中国经济成为嘉宾热议的话题。
-
-不少参会的外国嘉宾表示，中国经济韧性十足，对外开放持续深化，将为世界带来更多机遇。
-
-论坛上多位外国嘉宾表示，在当前世界充满不确定性的大背景下，中国经济持续向好，让深耕中国市场的外资企业信心倍增。
-
-品浩总裁施礼诚表示，当前，全球各类现实风险层出不穷，包括关税壁垒、贸易摩擦，再到能源供给冲击等一系列问题。
-
-即便在多重外部压力叠加之下，中国经济依旧韧性十足，贸易收支表现稳健，出口竞争力尤为突出，这也是当下外界普遍看到的经济优势与发展机遇所在。
-
-高盛亚太区总裁施南德表示，他们的信心主要来源于中国强劲的制造业实力，尤其是在出口方面这种势头仍在继续。
-
-无论是在太阳能还是汽车电池领域，这些产品现在在全球范围内需求强劲，这将为中国经济提供很大一部分动力，而这正是他们充满信心的原因。
-
-英国伦敦金融城政策与资源委员会主席贺凯思表示，中国经济增长势头强劲、成效显著，每次他来到中国，中国的创新和增长速度都让他印象深刻。
-
-## 相关推荐
-
-- 2026-06-30 09:27 - 赵今麦因“瘦而不柴”的体态出圈<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md
-- 2026-06-30 09:14 - 乔家的儿女<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md
-- 2026-06-30 09:14 - 爱很美味<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md
-- 2026-06-30 09:10 - iPhoneUltra黑色机模<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md
-- 2026-06-30 09:12 - 中国猪圈装空调让欧洲网友破防<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md
-- 2026-06-30 09:08 - 蜘蛛侠:平行宇宙<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md
-- 2026-06-30 09:12 - 如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md
-- 2026-06-30 09:13 - 苗族银饰<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md
-- 2026-06-30 09:09 - 蔚来回应高压水枪洗车掉漆<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md
-- 2026-06-30 09:04 - 爱直接对嘴喝饮料的人天塌了<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md
-- 2026-06-30 09:01 - 2021江苏卫视跨年演唱会<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md
-
-## 延伸阅读
-
-- 2026-06-30 09:22 - 央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/255820122975.shtml
-- 2026-06-30 09:10 - 日本将帅赛后采访纷纷哽咽落泪<br><br> | ??:https://www.share.minike.top/Article/details/967998.shtml
-- 2026-06-30 09:13 - 德国巴拉圭加时<br><br> | ??:https://www.share.minike.top/Article/details/9072370979.shtml
-- 2026-06-30 09:02 - 可以细成这样？1600万预算，颠覆我认知的改造！<br><br> | ??:http://www.share.kurohicncr.top/Article/details/150650516.shtml
-- 2026-06-30 09:10 - 杨紫获白玉兰视后为何争议难平<br><br> | ??:https://www.share.kurohicncr.top/Article/details/10596212625.shtml
-- 2026-06-30 09:26 - 我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......<br><br> | ??:http://www.share.kurohicncr.top/Article/details/28292993797.shtml
-- 2026-06-30 09:04 - 马耳他著名拱门坍塌致一中国男子身亡<br><br> | ??:https://www.share.kurohicncr.top/Article/details/50814543945.shtml
-- 2026-06-30 09:14 - 国务院：稳步推进研究生考试招生改革<br><br> | ??:https://www.share.minike.top/Article/details/209051.shtml
-- 2026-06-30 09:23 - 感动全网的699分女生想报考清华<br><br> | ??:http://www.blog.minike.top/Article/details/5903119.shtml
-- 2026-06-30 09:15 - 健全中小学教师工资长效联动机制<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/91707.shtml
-- 2026-06-30 09:04 - 陈幸同晋级WTT美国大满贯女单32强<br><br> | ??:https://www.blog.minike.top/Article/details/96832836694.shtml
-- 2026-06-30 09:12 - 青春环游记第三季<br><br> | ??:https://www.share.kurohicncr.top/Article/details/98215969456.shtml
-- 2026-06-30 09:20 - 武磊：巴西队赢的并不轻松<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/949885260880.shtml
-- 2026-06-30 09:03 - 徐亮怒斥世界杯踢假球<br><br> | ??:http://www.share.kurohicncr.top/Article/details/26590.shtml
-- 2026-06-30 09:09 - 巴西绝杀日本：漫画般结局换了主角<br><br> | ??:https://www.share.kurohicncr.top/Article/details/16997074612.shtml
+<h2>延伸阅读</h2><br>
+<h3>宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/6488829317.shtml</p><br>
+<h3>王欣瑜连续4年晋级温网第二轮</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://www.share.minike.top/Article/details/51973877.shtml</p><br>
+<h3>欧盟分楼层开空调惹争议</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/46192030.shtml</p><br>
+<h3>警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/30816077819.shtml</p><br>
+<h3>为什么会有「念旧」的心理？</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/41941702510.shtml</p><br>
+<h3>如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:https://www.blog.minike.top/Article/details/6668632.shtml</p><br>
+<h3>赵今麦因“瘦而不柴”的体态出圈</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:http://www.share.minike.top/Article/details/205552253.shtml</p><br>
+<h3>失明的我带老妈去了趟“火星”</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:http://www.blog.minike.top/Article/details/9315969.shtml</p><br>
+<h3>佐野海舟远射破门</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.share.minike.top/Article/details/5176306.shtml</p><br>
+<h3>卡塞米罗头球破门</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:http://www.blog.minike.top/Article/details/185700339025.shtml</p><br>
+<h3>网瘾賊大的阿嬷</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/98524041462.shtml</p><br>
+<h3>恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:http://www.blog.minike.top/Article/details/1082579869.shtml</p><br>
+<h3>上市央企地产商 两年换了三任董事长</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/532469466.shtml</p><br>
+<h3>王楚钦孙颖莎晋级混双八强</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://www.share.minike.top/Article/details/815787316255.shtml</p><br>
+<h3>德国队世界杯点球大战首败</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/9285109543.shtml</p><br>

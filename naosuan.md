@@ -1,51 +1,43 @@
-# 兴业科技拟斥资5500万元收购磷化铟衬底相关业务资产
+<h1>滇藏公路沿线：从“蔓菁当菜”到果蔬满市</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>中新社云南迪庆5月18日电 题：滇藏公路沿线：从“蔓菁当菜”到果蔬满市 中新社记者 缪超 刘冉阳 杜潇潇 清晨7时，红星小吃店老板卓玛央宗已准时来到香格里拉金桥市场。菠菜、青笋、西红柿、南瓜、牦牛肉……为备齐餐厅菜单上的26道菜，她轻车熟路地在各摊位间穿梭。 “小时候，家里是把蔓菁当蔬菜。”今年61岁的卓玛央宗，出生在云南迪庆藏族自治州香格里拉市建塘镇一个藏族村庄。童年的夏天，</p><br>
+<h2>正文</h2><br>
+<p>中新社云南迪庆5月18日电 题：滇藏公路沿线：从“蔓菁当菜”到果蔬满市 中新社记者 缪超 刘冉阳 杜潇潇 清晨7时，红星小吃店老板卓玛央宗已准时来到香格里拉金桥市场。</p><br>
+<p>菠菜、青笋、西红柿、南瓜、牦牛肉……为备齐餐厅菜单上的26道菜，她轻车熟路地在各摊位间穿梭。</p><br>
+<p>“小时候，家里是把蔓菁当蔬菜。</p><br>
+<p>”今年61岁的卓玛央宗，出生在云南迪庆藏族自治州香格里拉市建塘镇一个藏族村庄。</p><br>
+<p>童年的夏天，卓玛央宗的阿妈将蔓菁切成丝晒干，冬天当作蔬菜吃。</p><br>
+<p>“蔓菁，牛吃，人也吃。</p><br>
+<p>” 位于横断山脉腹地的迪庆，平均海拔3300米，传统上属高原高寒半农半牧地区。</p><br>
+<p>早年，这里的高原土地只能种出青稞、土豆和蔓菁。</p><br>
+<h2>相关推荐</h2><br>
+<h3>《虎吹最难绷の一集》</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md</p><br>
+<h3>如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md</p><br>
+<h3>为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md</p><br>
+<h3>卢卡申科发布解放军仪仗队视频</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md</p><br>
+<h3>老外对中国cosplay竟这样评价…</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md</p><br>
+<h3>四川凉山落石砸毁车辆 3人遇难</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md</p><br>
+<h3>考入南大计算机，复读考清北值吗？</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md</p><br>
+<h3>马杜罗账号在纽约发文致谢各国援助</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md</p><br>
+<h3>致敬！中国首批缉毒警已全体退休</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md</p><br>
+<h3>补时绝杀 巴西2-1淘汰日本</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md</p><br>
 
-6月21日，兴业科技（002674.SZ）发布公告称，公司已与青岛立昂晶电半导体科技有限公司签署框架协议，拟以现金方式出资5500万元收购青岛立昂旗下磷化铟衬底及半导体电子材料业务相关资产，涵盖该业务线全部资产、运营团队、知识产权等。本次收购目前仅为意向性约定，后续尚需提交公司董事会审议，预计不会对公司当期业绩产生实质性影响。（文章来源：央广财经）
-
-## 正文
-
-6月21日，兴业科技（002674.SZ）发布公告称，公司已与青岛立昂晶电半导体科技有限公司签署框架协议，拟以现金方式出资5500万元收购青岛立昂旗下磷化铟衬底及半导体电子材料业务相关资产，涵盖该业务线全部资产、运营团队、知识产权等。
-
-本次收购目前仅为意向性约定，后续尚需提交公司董事会审议，预计不会对公司当期业绩产生实质性影响。
-
-（文章来源：央广财经）
-
-## 相关推荐
-
-- 2026-06-30 09:01 - 【Reaction】女生最少的5款游戏<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md
-- 2026-06-30 09:27 - 世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md
-- 2026-06-30 09:14 - 内马尔未登场 安切洛蒂赛后回应<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md
-- 2026-06-30 09:17 - 男生180+，有腹肌是什么体验？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md
-- 2026-06-30 09:21 - 我觉得你是在无中生友<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md
-- 2026-06-30 09:14 - 《赛博朋克：边缘行者 2》｜官方预告片<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md
-- 2026-06-30 09:11 - hanser X 赖美云《室内系的Track Maker》<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md
-- 2026-06-30 09:05 - 郑钦文 四年一轮游<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md
-- 2026-06-30 09:21 - 「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md
-- 2026-06-30 09:27 - 周冬雨多次说演不了话剧文城<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md
-- 2026-06-30 09:12 - MSI应援曲 如果季中成回忆<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md
-- 2026-06-30 09:11 - 流金岁月<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md
-- 2026-06-30 09:13 - 四川凉山落石砸毁车辆 3人遇难<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md
-- 2026-06-30 09:29 - 杨紫大银幕成绩单<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md
-- 2026-06-30 09:05 - 泰山景区建135公里刀片刺绳隔离网<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md
-
-## 延伸阅读
-
-- 2026-06-30 09:18 - 千与千寻<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/777730014388.shtml
-- 2026-06-30 09:21 - 送你一朵小红花<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/116933.shtml
-- 2026-06-30 09:14 - 一直以为方便面汤是要倒掉的<br><br> | ??:http://www.blog.minike.top/Article/details/8056890600.shtml
-- 2026-06-30 09:27 - 吴易昺不敌德约科维奇 止步温网首轮<br><br> | ??:http://www.share.kurohicncr.top/Article/details/70381.shtml
-- 2026-06-30 09:14 - 电影抓特务上映11天破亿<br><br> | ??:http://www.share.minike.top/Article/details/36260013.shtml
-- 2026-06-30 09:21 - 明星大侦探第一季<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/579781.shtml
-- 2026-06-30 09:04 - 有哪些值得一提的生活窍门？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/05579.shtml
-- 2026-06-30 09:06 - 被巴西绝杀后 日球员田中碧跪地痛哭<br><br> | ??:http://www.share.minike.top/Article/details/9826562.shtml
-- 2026-06-30 09:08 - 法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/4183620617.shtml
-- 2026-06-30 09:29 - 中国代表在联合国点名日本所犯罪行<br><br> | ??:http://www.share.kurohicncr.top/Article/details/9659963.shtml
-- 2026-06-30 09:16 - 普京为何将俄乌谈判时间表与伊朗挂钩<br><br> | ??:https://www.share.kurohicncr.top/Article/details/84526.shtml
-- 2026-06-30 09:28 - 美股<br><br> | ??:https://www.share.kurohicncr.top/Article/details/407575.shtml
-- 2026-06-30 09:06 - 王楚钦孙颖莎晋级混双八强<br><br> | ??:https://www.blog.minike.top/Article/details/3340138497.shtml
-- 2026-06-30 09:19 - 五哈和他们的朋友<br><br> | ??:http://www.blog.minike.top/Article/details/6019397.shtml
-- 2026-06-30 09:02 - 挪威国家队紧急从本土订购大批海鲜<br><br> | ??:https://www.share.minike.top/Article/details/207004722339.shtml
+<h2>延伸阅读</h2><br>
+<h3>荷兰vs摩洛哥</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/085389.shtml</p><br>
+<h3>如何把斧兵改造成精英怪？提高攻速移速！！！</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/209175164069.shtml</p><br>
+<h3>王楚钦孙颖莎混双对手产生</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:http://www.share.minike.top/Article/details/395865489467.shtml</p><br>
+<h3>大蒜晒外面被路过女子连盆端走</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://www.blog.minike.top/Article/details/73174295.shtml</p><br>
+<h3>德国4比5巴拉圭</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/90321085537.shtml</p><br>
+<h3>城市规划有可能成为「屎山代码」吗？</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://www.share.minike.top/Article/details/999639.shtml</p><br>
+<h3>世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/3807582.shtml</p><br>
+<h3>iPhoneUltra黑色机模</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:http://www.share.minike.top/Article/details/7887290782.shtml</p><br>
+<h3>韩国球迷凌晨4点接机怒骂主教练</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:http://www.share.minike.top/Article/details/7871562.shtml</p><br>
+<h3>《名肘探科比》：科比大战裂口女</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/491362592.shtml</p><br>
+<h3>终于把好哥们处成了情侣!</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/2417474928.shtml</p><br>
+<h3>德国队回应爆冷淘汰</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/872409.shtml</p><br>
+<h3>男子醉酒溺水获救后同行人拒协助抬人</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://www.blog.minike.top/Article/details/331793118.shtml</p><br>
+<h3>蔚来回应高压水枪洗车掉漆</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://www.share.minike.top/Article/details/704469238563.shtml</p><br>
+<h3>郑钦文温网三连败西尼亚科娃</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/08955.shtml</p><br>

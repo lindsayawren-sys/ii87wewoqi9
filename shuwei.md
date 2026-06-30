@@ -1,60 +1,48 @@
-# 光大期货：6月22日矿钢煤焦日报
+<h1>中国第12批援埃塞俄比亚军医专家组出征</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>中新网重庆5月16日电 (梁钦卿)陆军军医大学第一附属医院16日透露，当日凌晨，中国第12批援埃塞俄比亚军医专家组正式出征，前往埃塞俄比亚首都亚的斯亚贝巴，执行为期一年的医疗援助任务。 此次出征的中国第12批援埃塞俄比亚军医专家组共13人，由陆军军医大学第一附属医院牵头抽组。军医专家组成员涵盖骨科、感染病科、眼科、呼吸内科、泌尿外科、普通外科、中医科等多个学科，具备丰富的临床经</p><br>
+<h2>正文</h2><br>
+<p>中新网重庆5月16日电 (梁钦卿)陆军军医大学第一附属医院16日透露，当日凌晨，中国第12批援埃塞俄比亚军医专家组正式出征，前往埃塞俄比亚首都亚的斯亚贝巴，执行为期一年的医疗援助任务。</p><br>
+<p>此次出征的中国第12批援埃塞俄比亚军医专家组共13人，由陆军军医大学第一附属医院牵头抽组。</p><br>
+<p>军医专家组成员涵盖骨科、感染病科、眼科、呼吸内科、泌尿外科、普通外科、中医科等多个学科，具备丰富的临床经验。</p><br>
+<p>执行任务期间，军医专家组将根据埃塞俄比亚的医疗需求和实际情况，围绕临床诊疗、人员培训、技术帮带等方面开展医疗援助，持续提升埃军总医院医疗保障能力，推进埃塞俄比亚国防军高技术医院新技术新业务开展，为当地医疗卫生事业发展提供支持。</p><br>
+<p>自2015年以来，陆军军医大学已累计选派12批、100余名医疗专家赴埃塞俄比亚执行医疗援助任务。</p><br>
+<p>在埃期间，军医专家组创新性开展了胰十二指肠切除术、肝门部胆管癌根治术等新技术，赢得当地民众的信任和依赖。</p><br>
+<p>此外，军医专家组以临床带教、手术演示、学术交流、健康讲座、远程指导等多种方式，为埃方填补了多项技术空白，并深耕人才与技术“传帮带”，为埃方培养了一大批学科骨干，努力为当地留下一支带不走的医疗队。</p><br>
+<p>同时，军医专家组还因地制宜建立中医理疗室，传授理疗技术，把中国传统医学的智慧和魅力带到海外，以实际行动传播中华传统文化。</p><br>
+<h2>相关推荐</h2><br>
+<h3>沙丘</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md</p><br>
+<h3>《共患难》</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md</p><br>
+<h3>啊啊啊</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md</p><br>
+<h3>送你一朵小红花</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md</p><br>
+<h3>杨紫学位证上就是杨紫</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md</p><br>
+<h3>2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md</p><br>
+<h3>王健林甩卖超80座万达广场</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md</p><br>
+<h3>中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md</p><br>
+<h3>一见倾心</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md</p><br>
+<h3>泰山景区回应修建刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md</p><br>
+<h3>杨紫获白玉兰视后争议不止</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md</p><br>
+<h3>披荆斩棘的哥哥</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md</p><br>
+<h3>欧盟分楼层开空调惹争议</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md</p><br>
+<h3>本届世界杯已有5名球员被控强奸</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md</p><br>
+<h3>本科毕业生为何涌入专科学校</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md</p><br>
 
-钢材：投资增速全面下行，钢价仍将震荡偏弱 （邱跃成，从业资格号：F3060829；交易咨询资格号：Z0016941） 螺纹方面，本周全国螺纹产量环比回升4.14万吨至218.73万吨，同比增加6.55万吨；社库环比回落5.19万吨至473.97万吨，同比增加105.22万吨；厂库环比增加3.12万吨至184.92万吨，同比增加2.6万吨；螺纹表需环比回升13.48万吨至220.
-
-## 正文
-
-钢材：投资增速全面下行，钢价仍将震荡偏弱 （邱跃成，从业资格号：F3060829；交易咨询资格号：Z0016941） 螺纹方面，本周全国螺纹产量环比回升4.14万吨至218.73万吨，同比增加6.55万吨；社库环比回落5.19万吨至473.97万吨，同比增加105.22万吨；厂库环比增加3.12万吨至184.92万吨，同比增加2.6万吨；螺纹表需环比回升13.48万吨至220.8万吨，同增加1.61万吨。
-
-螺纹产量继续回升，库存略有下降，表需回升，供需数据表现偏中性。
-
-据国家统计局数据，1-5月固定资产投资同比下降4.1%，较1-4月降幅扩大2.5个百分点。
-
-其中基建投资同比增长0.6%，较1-4月回落3.7个百分点；制造业投资同比下降0.4%，较1-4月回落1.6个百分点，2021年以来首次转负；房地产开发投资同比下降16.2%，降幅较1-4月扩大2.5个百分点。
-
-房地产分项指标中，1-5月销售面积同比下降10.8%，降幅较1-4月扩大0.6个百分点；新开工面积同比下降22.6%，降幅较1-4月扩大0.6个百分点；施工面积同比下降12.3%，降幅较1-4月扩大0.2个百分点；竣工面积下降23.4%，降幅较1-4月收窄0.6个百分点。
-
-5月地产、基建、制造业投资增速全面回落，钢材市场需求表现低迷，是压制当前钢价的主要因素。
-
-同时，铁矿价格弱势下跌，煤焦也高位有所回落，钢材价格成本支撑减弱。
-
-预计短期螺纹盘面整体仍将呈现震荡偏弱运行态势。
-
-## 相关推荐
-
-- 2026-06-30 09:17 - 贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md
-- 2026-06-30 09:10 - “错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md
-- 2026-06-30 09:19 - 美股<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md
-- 2026-06-30 09:22 - 国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md
-- 2026-06-30 09:27 - 曝iPhone18Pro机密文件现身暗网<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md
-- 2026-06-30 09:28 - 湖北云南这些涉汛信息都是假的<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md
-- 2026-06-30 09:29 - 詹姆斯 勇士<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md
-- 2026-06-30 09:08 - 豆包收费了，你还会用吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md
-- 2026-06-30 09:16 - 郑钦文温网首轮出局<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md
-- 2026-06-30 09:17 - 日本遭读秒绝杀 森保一：我水平不够<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md
-- 2026-06-30 09:20 - 爆冷出局！德国点球大战不敌巴拉圭<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md
-- 2026-06-30 09:25 - 蜘蛛侠:英雄归来<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md
-- 2026-06-30 09:02 - 高考结束了，你会让孩子在家玩手机吗？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md
-- 2026-06-30 09:17 - 啥比桑吉尔夫排位练蓝防（最不抽象的一集）<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md
-
-## 延伸阅读
-
-- 2026-06-30 09:19 - 斗破苍穹<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/448375.shtml
-- 2026-06-30 09:01 - 如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？<br><br> | ??:https://www.share.minike.top/Article/details/566879.shtml
-- 2026-06-30 09:11 - 木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/677581.shtml
-- 2026-06-30 09:01 - 高质量发展看新疆<br><br> | ??:http://www.share.minike.top/Article/details/749256181407.shtml
-- 2026-06-30 09:24 - 未来的飞机可能会用电吗？<br><br> | ??:https://www.share.minike.top/Article/details/57869746171.shtml
-- 2026-06-30 09:20 - 藤森庆子赢得秘鲁总统选举<br><br> | ??:https://www.blog.minike.top/Article/details/58776678.shtml
-- 2026-06-30 09:03 - 女子健身不当 居然“脑子漏水”了<br><br> | ??:https://www.blog.minike.top/Article/details/092577.shtml
-- 2026-06-30 09:23 - 如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？<br><br> | ??:http://www.blog.minike.top/Article/details/3212364762.shtml
-- 2026-06-30 09:13 - 急先锋<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/268209275206.shtml
-- 2026-06-30 09:18 - 国内最大沙漠发洪水意味着什么<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/054021.shtml
-- 2026-06-30 09:06 - 女子清吧被陌生人投放伟哥<br><br> | ??:https://www.blog.minike.top/Article/details/50237.shtml
-- 2026-06-30 09:09 - 不开心就去看三年前的购物订单<br><br> | ??:http://www.blog.minike.top/Article/details/661234133.shtml
-- 2026-06-30 09:10 - 泰山景区回应修建刀片刺绳隔离网<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/40743.shtml
-- 2026-06-30 09:06 - 刘宇宁高情商化解谁站C位<br><br> | ??:https://www.blog.minike.top/Article/details/767513232.shtml
-- 2026-06-30 09:24 - 如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？<br><br> | ??:https://www.blog.minike.top/Article/details/9994358424.shtml
+<h2>延伸阅读</h2><br>
+<h3>五哈和他们的朋友</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:http://www.blog.minike.top/Article/details/414541893525.shtml</p><br>
+<h3>日本淘汰</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:http://www.share.minike.top/Article/details/43330616976.shtml</p><br>
+<h3>科学备孕男女都要上心</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://www.blog.minike.top/Article/details/80862.shtml</p><br>
+<h3>未来的飞机可能会用电吗？</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://www.blog.minike.top/Article/details/08523246309.shtml</p><br>
+<h3>诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:http://www.blog.minike.top/Article/details/308548744915.shtml</p><br>
+<h3>为什么会有「念旧」的心理？</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:http://www.share.minike.top/Article/details/080158.shtml</p><br>
+<h3>有哪些值得一提的生活窍门？</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/0107891.shtml</p><br>
+<h3>德国北部枪击事件致5死</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/796516.shtml</p><br>
+<h3>急先锋</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/77818519.shtml</p><br>
+<h3>巴西替补奇兵读秒绝杀</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/6813819.shtml</p><br>
+<h3>巴西2比1日本</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/19791.shtml</p><br>
+<h3>老人卖菜获博主帮助后遇车祸去世</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://www.blog.minike.top/Article/details/64202296704.shtml</p><br>
+<h3>【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/79523532.shtml</p><br>
+<h3>浪姐成团夜爆笑吐槽</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://www.share.minike.top/Article/details/6279548.shtml</p><br>
+<h3>请回答王牌2019</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:http://www.blog.minike.top/Article/details/276983639.shtml</p><br>

@@ -1,59 +1,47 @@
-# 688802联手09880，在英伟达阵地上“开了一枪”！
+<h1>2026年前4月云南清水河口岸进出口总值27.1亿元</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>中新网云南临沧5月17日电(杨晓婕)17日，孟定海关发布统计数据显示，2026年前4个月，云南孟定清水河口岸(含芒卡通道)外贸进出口势头强劲，货物贸易进出口总值达27.1亿元(人民币，下同)，同比增长107.5%，实现翻倍增长，口岸已连续17个月保持进出口正增长。 清水河口岸位于云南省临沧市耿马傣族佤族自治县，是中国通往缅甸、连接南亚东南亚的重要陆路通道。 据统计，前4个月该口</p><br>
+<h2>正文</h2><br>
+<p>中新网云南临沧5月17日电(杨晓婕)17日，孟定海关发布统计数据显示，2026年前4个月，云南孟定清水河口岸(含芒卡通道)外贸进出口势头强劲，货物贸易进出口总值达27.1亿元(人民币，下同)，同比增长107.5%，实现翻倍增长，口岸已连续17个月保持进出口正增长。</p><br>
+<p>清水河口岸位于云南省临沧市耿马傣族佤族自治县，是中国通往缅甸、连接南亚东南亚的重要陆路通道。</p><br>
+<p>据统计，前4个月该口岸进口总值11.7亿元，同比增长160.9%；出口总值15.3亿元，同比增长79.4%。</p><br>
+<p>贸易结构持续优化，各类贸易业态协同发力。</p><br>
+<p>其中，边境小额贸易表现亮眼，进出口11.9亿元，同比增长129%；边民互市贸易增速迅猛，进出口2.8亿元，增幅达296.9%。</p><br>
+<p>与此同时，来料加工、市场采购、进料对口出口均实现净增长，跨境电商(9710)出口2029.6万元，同比大幅增长482.5%，新增物流中心进出境货物出口实现突破，新业态成为口岸外贸增长新引擎。</p><br>
+<p>外贸经营主体活力持续迸发。</p><br>
+<p>前4个月，口岸有进出口实绩的企业达839家，同比增长183.4%，其中规模超百万元的企业286家。</p><br>
+<h2>相关推荐</h2><br>
+<h3>欧盟分楼层开空调惹争议</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md</p><br>
+<h3>高考结束了，你会让孩子在家玩手机吗？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md</p><br>
+<h3>全网说丑的玫瑰空调卖了5万台</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md</p><br>
+<h3>失明的我带老妈去了趟“火星”</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md</p><br>
+<h3>主人解开狗绳2只狗将路人撕咬致死</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md</p><br>
+<h3>爆冷出局！德国点球大战不敌巴拉圭</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md</p><br>
+<h3>板面：为什么那么多人爱吃？？！</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md</p><br>
+<h3>周生如故</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md</p><br>
+<h3>⚡逼尔摩斯教你玩球⚡</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md</p><br>
+<h3>【Reaction】女生最少的5款游戏</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md</p><br>
+<h3>中国代表在联合国点名日本所犯罪行</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md</p><br>
+<h3>第一炉香</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md</p><br>
+<h3>郑钦文温网三连败西尼亚科娃</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md</p><br>
+<h3>男子P图现任妻子照片冒充前妻</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md</p><br>
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！中经记者 李玉洋 上海报道 沪上明星GPU企业沐曦股份（688802.SH）近日有两大动作。 6月12日，该公司发布公告称，拟发行境外上市外资股（H股）股票，并申请在香港联合交易所有限公司主板挂牌上市；6月11日，其已与“人形机器人第一股”优必选（09880.HK）正式签订战略合作协议，合资成立曦选创智科技
-
-## 正文
-
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
-
-中经记者 李玉洋 上海报道 沪上明星GPU企业沐曦股份（688802.SH）近日有两大动作。
-
-6月12日，该公司发布公告称，拟发行境外上市外资股（H股）股票，并申请在香港联合交易所有限公司主板挂牌上市；6月11日，其已与“人形机器人第一股”优必选（09880.HK）正式签订战略合作协议，合资成立曦选创智科技（无锡）有限公司（以下简称“曦选创智”），聚焦具身智能端侧芯片及整体解决方案研发与量产。
-
-在外界看来，此次合作是国内“算力龙头”与“机器人龙头”的强强联合，而沐曦股份在科创板上市半年后筹划赴港上市，也需要“机器人芯片”这一高成长性故事作为估值支撑。
-
-毕竟，作为全球AI行业版本“答案”的英伟达也多次表示，人形机器人会是AI的下一个浪潮。
-
-《中国经营报》记者注意到，沐曦股份公告称此次赴港上市是“为满足公司业务发展的需要，进一步提升公司治理水平和核心竞争力，深入推进公司全球化战略”。
-
-对于创立曦选创智，沐曦股份方面对记者表示：“我们选择在此时切入具身智能端侧芯片赛道，是基于对市场趋势、产业政策和自身能力的综合判断。
-
-” “具身智能是人工智能从数字世界走向物理世界的关键一跃，而芯片正是这场跃迁的‘大脑’。
-
-## 相关推荐
-
-- 2026-06-30 09:26 - 《名肘探科比》：科比大战裂口女<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md
-- 2026-06-30 09:10 - 如何评价DeepSeek 提出的 DSpark 推理加速方案？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md
-- 2026-06-30 09:28 - 索马里女大使：想和中国一起搞事业<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md
-- 2026-06-30 09:22 - 内马尔安慰日本球员<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md
-- 2026-06-30 09:03 - 87克大金链到老庙黄金维修少了11克<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md
-- 2026-06-30 09:15 - 欧洲民众抢购空调降温<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md
-- 2026-06-30 09:29 - 中国新一轮出口管制直指日本命脉<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md
-- 2026-06-30 09:01 - 德国爆冷点球大战不敌巴拉圭<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md
-- 2026-06-30 09:12 - 人类...完蛋了...<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md
-- 2026-06-30 09:04 - 一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md
-- 2026-06-30 09:19 - ASMR 千禧年百货大楼初代柜姐给你化大头贴妆<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md
-- 2026-06-30 09:09 - 杨某诋毁袁隆平院士科研成果被刑拘<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md
-- 2026-06-30 09:01 - 张月收到黄灿灿辣货两眼发光<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md
-
-## 延伸阅读
-
-- 2026-06-30 09:21 - 点球大战<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/307170538.shtml
-- 2026-06-30 09:10 - 2026年WTT美国大满贯，国乒自带球桌是真实的吗？<br><br> | ??:https://www.share.minike.top/Article/details/859156.shtml
-- 2026-06-30 09:08 - 郑钦文温网一轮游<br><br> | ??:http://www.blog.minike.top/Article/details/457167076506.shtml
-- 2026-06-30 09:02 - 本科毕业生为何涌入专科学校<br><br> | ??:https://www.blog.minike.top/Article/details/010366.shtml
-- 2026-06-30 09:09 - 覃予萱晋级WTT美国大满贯女单32强<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/99795.shtml
-- 2026-06-30 09:26 - 欧洲民众抢购空调降温<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/52627.shtml
-- 2026-06-30 09:29 - 巴西vs日本<br><br> | ??:https://www.share.kurohicncr.top/Article/details/83397430.shtml
-- 2026-06-30 09:26 - 领克07GT搭载超跑同源MRC悬架<br><br> | ??:http://www.blog.minike.top/Article/details/28416252956.shtml
-- 2026-06-30 09:04 - 人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？<br><br> | ??:https://www.blog.minike.top/Article/details/657951642022.shtml
-- 2026-06-30 09:16 - 德国进球被吹<br><br> | ??:https://www.share.minike.top/Article/details/7473340076.shtml
-- 2026-06-30 09:27 - 你人生中最艰难的时候是怎么熬过来的？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/178288011.shtml
-- 2026-06-30 09:07 - 我觉得你是在无中生友<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/81997025612.shtml
-- 2026-06-30 09:21 - 女儿从清华毕业 爸爸晒出17年对比照<br><br> | ??:https://www.share.minike.top/Article/details/997549512.shtml
-- 2026-06-30 09:15 - 【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸<br><br> | ??:https://www.share.kurohicncr.top/Article/details/329302195.shtml
-- 2026-06-30 09:06 - 2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/4324175345.shtml
+<h2>延伸阅读</h2><br>
+<h3>《恋与深空》被指触碰民族伤痛红线</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://www.blog.minike.top/Article/details/575150336159.shtml</p><br>
+<h3>人民锐评网红诋毁袁隆平造谣企业家</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/927150114.shtml</p><br>
+<h3>荀彧和曹操反目成仇的根本原因是什么？</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:http://www.blog.minike.top/Article/details/78651113035.shtml</p><br>
+<h3>世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://www.blog.minike.top/Article/details/512003379.shtml</p><br>
+<h3>爱很美味</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/46096864372.shtml</p><br>
+<h3>日本球迷输球后集体捡垃圾</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/73563113.shtml</p><br>
+<h3>卢卡申科发布解放军仪仗队视频</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/57406.shtml</p><br>
+<h3>马航370搜寻最新消息</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:http://www.blog.minike.top/Article/details/69917206962.shtml</p><br>
+<h3>日本队被绝杀后鞠躬致谢观众</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.share.minike.top/Article/details/5535264561.shtml</p><br>
+<h3>网友写差评被店家“挂”门口避雷</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/5448852.shtml</p><br>
+<h3>诺伊尔尽力了</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:http://www.share.minike.top/Article/details/06910.shtml</p><br>
+<h3>日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/55572819457.shtml</p><br>
+<h3>首届《哈基米歌王争霸赛》总决赛</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/708401515.shtml</p><br>
+<h3>爱直接对嘴喝饮料的人天塌了</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/48312.shtml</p><br>
+<h3>iPhoneUltra黑色机模</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/5797135.shtml</p><br>

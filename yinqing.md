@@ -1,56 +1,38 @@
-# 全城皆是舞台 2026南京艺术节打造全民共享文化空间
+<h1>格鲁吉亚议长将访华</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>中新社北京5月16日电 应全国人大常委会委员长赵乐际邀请，格鲁吉亚议长帕普阿什维利将于5月18日至20日率团访华。(完)</p><br>
+<h2>正文</h2><br>
+<p>中新社北京5月16日电 应全国人大常委会委员长赵乐际邀请，格鲁吉亚议长帕普阿什维利将于5月18日至20日率团访华。</p><br>
+<p>(完)</p><br>
+<h2>相关推荐</h2><br>
+<h3>快递到家不能这样拆</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md</p><br>
+<h3>德国 传控</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md</p><br>
+<h3>诺伊尔尽力了</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md</p><br>
+<h3>卡塞米罗头球破门</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md</p><br>
+<h3>男子造谣东鹏老板不喝自家饮料被拘</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md</p><br>
+<h3>四川宜宾地震为何震感明显</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md</p><br>
+<h3>恋与深空回应敖尹来源</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md</p><br>
+<h3>亚洲球队全部出局</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md</p><br>
+<h3>豆包收费了，你还会用吗？</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md</p><br>
+<h3>荷兰vs摩洛哥</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md</p><br>
+<h3>沉睡花园</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md</p><br>
 
-中新网南京6月20日电(记者 泱波)19日晚，2026南京艺术节闭幕式暨大众文化“创享”项目发布活动在南京保利大剧院举办，南京市越剧团建团70周年新创大戏《虎踞龙盘》作为闭幕剧目精彩上演。 为期一个月的2026南京艺术节以“文化赋能城市，艺术融入生活”为主题，设置七大板块、百余场活动，打通专业剧场与城市街巷边界，推动艺术从殿堂走向百姓生活。活动期间引进6部国内外高水平剧目，推出
-
-## 正文
-
-中新网南京6月20日电(记者 泱波)19日晚，2026南京艺术节闭幕式暨大众文化“创享”项目发布活动在南京保利大剧院举办，南京市越剧团建团70周年新创大戏《虎踞龙盘》作为闭幕剧目精彩上演。
-
-为期一个月的2026南京艺术节以“文化赋能城市，艺术融入生活”为主题，设置七大板块、百余场活动，打通专业剧场与城市街巷边界，推动艺术从殿堂走向百姓生活。
-
-活动期间引进6部国内外高水平剧目，推出6部本土原创精品剧目，10所高校带来10部原创戏剧作品。
-
-10处城市地标落地沉浸式互动演出，带动商圈客流提升30%，发放万余张文旅消费券，实现以文促旅、以旅兴商。
-
-从紫金山麓、秦淮河畔到明城墙下、新街口商圈，南京整座城市变身开放式流动剧场，NPC实景演绎、街区即兴表演、街巷城市微展、高校博物馆联展、青少年导览体验等多元形式让市民从文艺看客变身参与者、共创者。
-
-艺术节升级“长江民乐汇”城市文化品牌，融合专业院团底蕴与国风乐团年轻化表达，兼顾传统文化底色与当代大众审美。
-
-依托南京50余所高校、众多校园戏剧社团的青年文艺资源，闭幕式发布三项举措，搭建人才、空间、内容一体化体系，构筑青年戏剧生态闭环。
-
-南京大学生戏剧联盟正式成立，统筹高校戏剧社团资源，实现人才系统化培育；打造新街口小剧场集聚区，整合商圈核心演艺空间，让戏剧融入日常消费场景；启动“剧·金陵”原创戏剧展演品牌，搭建全国剧目孵化平台，为创作者提供资金、场地、宣发全链条支持。
-
-## 相关推荐
-
-- 2026-06-30 09:29 - 世界杯：荷兰vs摩洛哥<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md
-- 2026-06-30 09:04 - 如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md
-- 2026-06-30 09:18 - 杨紫被质疑未使用原名<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md
-- 2026-06-30 09:17 - 尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md
-- 2026-06-30 09:20 - 德国队连续三届世界杯无缘16强<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md
-- 2026-06-30 09:23 - 人可以极简主义到什么程度？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md
-- 2026-06-30 09:03 - 我们看到的星星是不是有些已经不存在了？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md
-- 2026-06-30 09:13 - 巴西替补奇兵读秒绝杀<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md
-- 2026-06-30 09:13 - 黄晓明晒和周杰伦的合照<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md
-- 2026-06-30 09:24 - 法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md
-
-## 延伸阅读
-
-- 2026-06-30 09:07 - 速度与激情9<br><br> | ??:http://www.share.minike.top/Article/details/7956133.shtml
-- 2026-06-30 09:18 - 《恋与深空》被指触碰民族伤痛红线<br><br> | ??:http://www.blog.minike.top/Article/details/744476.shtml
-- 2026-06-30 09:29 - 把毒品藏在哪里，60秒内不会被发现？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/010343998139.shtml
-- 2026-06-30 09:09 - 杨紫大银幕成绩单<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/209735691.shtml
-- 2026-06-30 09:25 - 送你一朵小红花<br><br> | ??:https://www.share.minike.top/Article/details/48462317.shtml
-- 2026-06-30 09:29 - 韩国道歉完日本道歉<br><br> | ??:https://www.blog.minike.top/Article/details/65894462961.shtml
-- 2026-06-30 09:00 - 董路：谁赢谁是“正路子”<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/881463305.shtml
-- 2026-06-30 09:22 - 亚洲球队全部告别世界杯<br><br> | ??:http://www.share.kurohicncr.top/Article/details/64716.shtml
-- 2026-06-30 09:00 - 致敬！中国首批缉毒警已全体退休<br><br> | ??:http://www.share.kurohicncr.top/Article/details/25030203.shtml
-- 2026-06-30 09:06 - 网红不能困在无底线逐利里<br><br> | ??:http://www.blog.minike.top/Article/details/53240609185.shtml
-- 2026-06-30 09:25 - 要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/48100078.shtml
-- 2026-06-30 09:14 - 人民锐评网红诋毁袁隆平造谣企业家<br><br> | ??:http://www.share.kurohicncr.top/Article/details/10334294781.shtml
-- 2026-06-30 09:10 - 把毒品藏在哪里，60秒内不会被发现？<br><br> | ??:https://www.blog.minike.top/Article/details/34368.shtml
-- 2026-06-30 09:04 - 如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？<br><br> | ??:http://www.blog.minike.top/Article/details/81014.shtml
-- 2026-06-30 09:09 - 王濛回复黄灿灿<br><br> | ??:https://www.share.kurohicncr.top/Article/details/4061207.shtml
+<h2>延伸阅读</h2><br>
+<h3>巴西绝杀</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/44542.shtml</p><br>
+<h3>【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://www.blog.minike.top/Article/details/8835448.shtml</p><br>
+<h3>承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/11515736.shtml</p><br>
+<h3>马航370搜寻最新消息</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://www.share.minike.top/Article/details/769870358566.shtml</p><br>
+<h3>莫兰特转投开拓者效力</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/2705972.shtml</p><br>
+<h3>爱很美味</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/1788949.shtml</p><br>
+<h3>我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/344180590.shtml</p><br>
+<h3>为什么香港的冲厕水是咸的？</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://www.share.minike.top/Article/details/6062116.shtml</p><br>
+<h3>【涤墨作战7人870】望：我从地狱杀回来了！</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://www.blog.minike.top/Article/details/2411061694.shtml</p><br>
+<h3>斗破苍穹</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://www.share.minike.top/Article/details/88272838284.shtml</p><br>
+<h3>2021江苏卫视跨年演唱会</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://www.share.minike.top/Article/details/916313.shtml</p><br>
+<h3>金鹰奖视后提名预测</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/69052387.shtml</p><br>
+<h3>我把队友的7连跪剪成了艺术</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:http://www.blog.minike.top/Article/details/17854952.shtml</p><br>
+<h3>男子在京东买到“同仁堂”假药</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://www.blog.minike.top/Article/details/130846969.shtml</p><br>
+<h3>上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/94877743.shtml</p><br>

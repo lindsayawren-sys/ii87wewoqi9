@@ -1,57 +1,44 @@
-# （文化中国行）“Z世代”创客让敦煌壁画融入市井
+<h1>（乡村行·看振兴）湖北宜昌：科技助农“慧种田”</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>中新网宜昌5月16日电 题：湖北宜昌：科技助农“慧种田” 作者 李阳 范玉峰 郭晓莹 “三夏”农忙时节，湖北省宜昌市的丘陵山地与平原沃野间，微耕机“爬”上坡坎，无人机“飞”出大山，数字技术赋能田间管理，呈现出一幅科技兴农的生动图景。 宜昌是三峡工程和葛洲坝工程所在地，地处长江中上游结合部，有山地、丘陵和平原多种地貌。该市因地制宜、精准施策，以科技赋能农业生产，让智慧农机“扛”起</p><br>
+<h2>正文</h2><br>
+<p>中新网宜昌5月16日电 题：湖北宜昌：科技助农“慧种田” 作者 李阳 范玉峰 郭晓莹 “三夏”农忙时节，湖北省宜昌市的丘陵山地与平原沃野间，微耕机“爬”上坡坎，无人机“飞”出大山，数字技术赋能田间管理，呈现出一幅科技兴农的生动图景。</p><br>
+<p>宜昌是三峡工程和葛洲坝工程所在地，地处长江中上游结合部，有山地、丘陵和平原多种地貌。</p><br>
+<p>该市因地制宜、精准施策，以科技赋能农业生产，让智慧农机“扛”起繁重农活，有效破解“谁来种地”的现实难题，为农业现代化增动力、添活力。</p><br>
+<p>在远安县洋坪镇的玉米田里，气吸式精量播种机高效运转。</p><br>
+<p>该县农村项目服务中心主任田俊伟介绍，丘陵地区对农机的农艺适配能力要求更高，气吸式排种器实现一穴一粒精准播种，同步完成施肥作业，彻底改变了传统人工撒种不均、费工伤苗的难题。</p><br>
+<p>当地还大力推广中小型专用农机，接入省级监管平台，作业数据实时上传，以数字化标准保障耕种质量，为粮食丰产打下坚实基础。</p><br>
+<p>当阳是湖北夏粮主产区，褚家湖粮食专业合作社北斗智慧平台覆盖2万多亩农田，新款农用无人机协同智能设备开展巡检、植保，作业效率较传统方式提升60%，人力投入更是大规模减少。</p><br>
+<p>在枝江市百里洲镇麦田里，飞手李金元操控无人机开展植保，两小时即可完成140亩作业。</p><br>
+<h2>相关推荐</h2><br>
+<h3>巴拉圭进球</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md</p><br>
+<h3>MSI应援曲 如果季中成回忆</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md</p><br>
+<h3>「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md</p><br>
+<h3>泰山景区建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md</p><br>
+<h3>男生180+，有腹肌是什么体验？</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md</p><br>
+<h3>王菲谢霆锋十指紧扣好甜</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md</p><br>
+<h3>上市央企地产商 两年换了三任董事长</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md</p><br>
+<h3>毒液2</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md</p><br>
+<h3>首届《哈基米歌王争霸赛》总决赛</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md</p><br>
+<h3>存储芯片龙头提示风险</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md</p><br>
+<h3>四川凉山落石砸毁车辆 3人遇难</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md</p><br>
 
-中新社甘肃敦煌6月19日电 题：“Z世代”创客让敦煌壁画融入市井 作者 戴文昌 端午小长假，中国甘肃文旅持续升温，敦煌莫高窟一票难求。“很多游客想近距离接触敦煌壁画，但洞窟内却只能远观。”在敦煌汉塞壁画研习室内，1999年出生的创业者朱俊峰一边调试颜料，一边指导游客勾勒壁画线条，以临摹体验让千年壁画融入市井烟火。 自幼与壁画结缘的朱俊峰，初中便跟随本土画师研习壁画技法，大学主修
-
-## 正文
-
-中新社甘肃敦煌6月19日电 题：“Z世代”创客让敦煌壁画融入市井 作者 戴文昌 端午小长假，中国甘肃文旅持续升温，敦煌莫高窟一票难求。
-
-“很多游客想近距离接触敦煌壁画，但洞窟内却只能远观。
-
-”在敦煌汉塞壁画研习室内，1999年出生的创业者朱俊峰一边调试颜料，一边指导游客勾勒壁画线条，以临摹体验让千年壁画融入市井烟火。
-
-自幼与壁画结缘的朱俊峰，初中便跟随本土画师研习壁画技法，大学主修国画专业，在校期间依托创业项目探索敦煌非遗手工落地。
-
-毕业后他留在天津创业，业余时间尝试将经典壁画纹样融入DIY手工，独特的创意收获良好口碑，让他萌生了返乡创业的念头。
-
-“故土有最优质的壁画资源，与其远走他乡，不如留下来让壁画走出洞窟，走进大众生活。
-
-”朱俊峰19日接受中新社记者采访时如是说。
-
-2022年，他辞掉外地工作回到敦煌，开启壁画体验门店创业之路。
-
-## 相关推荐
-
-- 2026-06-30 09:17 - 热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md
-- 2026-06-30 09:10 - 低智商犯罪三江口团建来了<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md
-- 2026-06-30 09:20 - 免费试吃发差评被店家挂店门避雷<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md
-- 2026-06-30 09:22 - 本科毕业生为何涌入专科学校<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md
-- 2026-06-30 09:27 - 锐评：网红不能困在无底线逐利里<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md
-- 2026-06-30 09:15 - 刘宇宁高情商化解谁站C位<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md
-- 2026-06-30 09:19 - 人民锐评：网红不能困在无底线逐利里<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md
-- 2026-06-30 09:14 - 王曼昱被突如其来的话筒逗笑了<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md
-- 2026-06-30 09:26 - 日本球员说被绝杀非常不甘心<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md
-- 2026-06-30 09:13 - 这种关系可能正在悄悄“催老”你<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md
-- 2026-06-30 09:28 - 日本反击率先破门<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md
-
-## 延伸阅读
-
-- 2026-06-30 09:02 - 曝老詹对自由市场态度与以往截然不同<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/761453462.shtml
-- 2026-06-30 09:26 - 我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......<br><br> | ??:https://www.share.kurohicncr.top/Article/details/1519291112.shtml
-- 2026-06-30 09:24 - 女子健身不当 居然“脑子漏水”了<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/17310.shtml
-- 2026-06-30 09:29 - 手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/4166403.shtml
-- 2026-06-30 09:06 - 重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！<br><br> | ??:http://www.share.kurohicncr.top/Article/details/497962562206.shtml
-- 2026-06-30 09:01 - 庆祝中国共产党成立105周年大会将举行<br><br> | ??:http://www.share.minike.top/Article/details/7436198.shtml
-- 2026-06-30 09:20 - 全新问界M9现身美国街头<br><br> | ??:https://www.share.kurohicncr.top/Article/details/38970423.shtml
-- 2026-06-30 09:09 - 时光音乐会<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/19215898084.shtml
-- 2026-06-30 09:28 - 恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/973072948.shtml
-- 2026-06-30 09:28 - 如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？<br><br> | ??:https://www.blog.minike.top/Article/details/65646923.shtml
-- 2026-06-30 09:28 - 如何改变自己太负责任的性格?<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/0115835.shtml
-- 2026-06-30 09:28 - 日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/24217686965.shtml
-- 2026-06-30 09:15 - 重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！<br><br> | ??:http://www.share.kurohicncr.top/Article/details/21312080.shtml
-- 2026-06-30 09:14 - 主人解开狗绳2只狗将路人撕咬致死<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/0101201391.shtml
-- 2026-06-30 09:20 - 高考填志愿父亲和女儿产生分歧<br><br> | ??:https://www.blog.minike.top/Article/details/362425648611.shtml
+<h2>延伸阅读</h2><br>
+<h3>人民锐评网红诋毁袁隆平造谣企业家</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/01372515623.shtml</p><br>
+<h3>hanser X 赖美云《室内系的Track Maker》</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:https://www.blog.minike.top/Article/details/98152.shtml</p><br>
+<h3>花少8要去世界杯举办国</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/320130838.shtml</p><br>
+<h3>亚洲球队全部出局</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/53545.shtml</p><br>
+<h3>郑钦文温网三连败西尼亚科娃</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/664349.shtml</p><br>
+<h3>韩国世界杯出局是主帅一个人的锅吗</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/87659557.shtml</p><br>
+<h3>GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:http://www.blog.minike.top/Article/details/78599082.shtml</p><br>
+<h3>王灿兮被烫伤两年后维权成功</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://www.share.minike.top/Article/details/3674502.shtml</p><br>
+<h3>租房时你会更看重「住得舒服」，还是「每天通勤更方便」？</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://www.blog.minike.top/Article/details/772345.shtml</p><br>
+<h3>三星投资计划</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/40148.shtml</p><br>
+<h3>我们看到的星星是不是有些已经不存在了？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/084110321074.shtml</p><br>
+<h3>木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/11051150833.shtml</p><br>
+<h3>韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/9886518.shtml</p><br>
+<h3>高考结束了，你会让孩子在家玩手机吗？</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/80041581.shtml</p><br>
+<h3>美团、淘宝闪购、京东外卖达成共识</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.blog.minike.top/Article/details/4636772.shtml</p><br>

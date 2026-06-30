@@ -1,61 +1,46 @@
-# 机械韵律交织千年汉韵 秦巴腹地催热“夏日经济”
+<h1>第12届黑龙江省科普讲解大赛举办 104位选手同台竞技</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>中新网哈尔滨5月16日电 (记者 姜辉)15日，由黑龙江省科技厅、黑龙江省委宣传部、黑龙江省总工会、黑龙江省科协联合主办的第十二届黑龙江省科普讲解大赛在哈尔滨市深哈产业园举办。大赛以奋进“十五五”科技谱新篇为主题，汇聚黑龙江省35家推荐单位、104位参赛选手同台竞技。 比赛现场，来自黑龙江省各市地、省直部门及基层单位的选手们围绕前沿科技、生态保护、生命健康、龙江特色产业、生活科</p><br>
+<h2>正文</h2><br>
+<p>中新网哈尔滨5月16日电 (记者 姜辉)15日，由黑龙江省科技厅、黑龙江省委宣传部、黑龙江省总工会、黑龙江省科协联合主办的第十二届黑龙江省科普讲解大赛在哈尔滨市深哈产业园举办。</p><br>
+<p>大赛以奋进“十五五”科技谱新篇为主题，汇聚黑龙江省35家推荐单位、104位参赛选手同台竞技。</p><br>
+<p>比赛现场，来自黑龙江省各市地、省直部门及基层单位的选手们围绕前沿科技、生态保护、生命健康、龙江特色产业、生活科学等多元领域，用通俗语言拆解专业知识，以多媒体手段增强传播效果，将严谨科学知识转化为生动有趣的“科学故事会”。</p><br>
+<p>我秀科普环节中，选手们结合科普实践感悟创意展示，尽显个人风采与科普情怀；我讲科学环节里，选手们紧扣主题、逻辑严谨，兼具科学性与普及性；总决赛评委问答环节，进一步检验选手知识储备与应变能力，现场高潮迭起、精彩纷呈。</p><br>
+<p>经过半决赛、总决赛的激烈角逐，最终来自齐齐哈尔市公安局富拉尔基分局陈智豪、哈尔滨工业大学冯浩凯、黑龙江农业经济职业学院肖子恒等3名选手荣获特等奖，来自黑龙江省科学技术馆倪爽、哈尔滨工业大学邱月、双鸭山市公安局四方台分局孙澳、抚远海关牛磊、双鸭山市人民医院孙宁、鹤岗市公安局反恐与巡特警支队李泽林、鸡西市树梁中学王欣宇等7名选手荣获一等奖，以上10名选手同时摘得2026年“十佳科普使者”桂冠。</p><br>
+<p>大赛还评出二等奖20名、三等奖74名及优秀组织奖若干。</p><br>
+<p>下一步，黑龙江省科技厅将从参赛选手中择优遴选参与黑龙江省重大科普示范活动，持续搭建科普交流展示平台，推动科技创新与科学普及两翼齐飞。</p><br>
+<p>(完)</p><br>
+<h2>相关推荐</h2><br>
+<h3>当我知道豆包有后台审核人员</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md</p><br>
+<h3>四川凉山落石砸毁车辆 3人遇难</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md</p><br>
+<h3>世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md</p><br>
+<h3>法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md</p><br>
+<h3>“荒唐”背后的韩国足球</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md</p><br>
+<h3>2021湖南卫视跨年演唱会</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md</p><br>
+<h3>日本将帅赛后采访纷纷哽咽落泪</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md</p><br>
+<h3>内马尔未登场 安切洛蒂赛后回应</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md</p><br>
+<h3>马航370搜寻最新消息</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md</p><br>
+<h3>明星大侦探第四季</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md</p><br>
+<h3>陈幸同晋级WTT美国大满贯女单32强</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md</p><br>
+<h3>【Reaction】女生最少的5款游戏</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md</p><br>
+<h3>王楚钦孙颖莎vs皮斯特耶库库洛娃</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md</p><br>
 
-中新网陕西汉中6月20日电 (杨英琦)伴随着激昂的乐曲与鼓点，10台机器人整齐舞动，游人与穿着汉服的机器人互动……19日，2026汉中市“智汇天汉·舞动未来”端午文旅嘉年华在陕西汉中启幕。 据悉，汉中市以文聚力、以科技赋能，创新融合汉文化底蕴、陕南民俗特色、前沿智能科技三大核心元素，打造文商体旅端午假日消费新热点，推进“人气流量”向“经济增量”转化。 科技与传统文化巧妙链接，让
-
-## 正文
-
-中新网陕西汉中6月20日电 (杨英琦)伴随着激昂的乐曲与鼓点，10台机器人整齐舞动，游人与穿着汉服的机器人互动……19日，2026汉中市“智汇天汉·舞动未来”端午文旅嘉年华在陕西汉中启幕。
-
-据悉，汉中市以文聚力、以科技赋能，创新融合汉文化底蕴、陕南民俗特色、前沿智能科技三大核心元素，打造文商体旅端午假日消费新热点，推进“人气流量”向“经济增量”转化。
-
-科技与传统文化巧妙链接，让观众在机械韵律与千年汉中风韵的交织中，沉浸式感受“科技+文化”的端午视听盛宴。
-
-机器人与汉调桄桄等传统文化深度联动，复刻传统民俗身段与经典动作，人机同台默契共舞。
-
-机械韵律交织千年汉中风韵，以科技新形式展示传统文化底蕴。
-
-机器人还化身专属文旅推荐官，通过智能语音生动讲述城市风光，轮番推介汉中茶叶、腊肉、鲜果、文创等特色好物，用AI新视角向市民游客传递地道风味与文旅风采。
-
-现场通过AI互动展示区、传统文化传承体验区、特色商品展销区、地方美食品鉴区四大特色体验区域，集中展示展销文创、旅游商品、名优特产、中医康养等产品，让游客感受到千年汉韵的新生机。
-
-新场景、新业态、新体验将覆盖整个端午假期，全面激活秦巴腹地的“夏日经济”。
-
-## 相关推荐
-
-- 2026-06-30 09:27 - 日本反击率先破门<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md
-- 2026-06-30 09:10 - 道友？你来真的啊？【凡人官方二创大会】<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md
-- 2026-06-30 09:20 - 田中碧失误<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md
-- 2026-06-30 09:28 - 恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md
-- 2026-06-30 09:12 - 日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md
-- 2026-06-30 09:04 - 李准基参加文彩元婚礼<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md
-- 2026-06-30 09:09 - 《恋与深空》被指触碰民族伤痛红线<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md
-- 2026-06-30 09:24 - 巴拉圭率先破门<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md
-- 2026-06-30 09:06 - 如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md
-- 2026-06-30 09:01 - 重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md
-- 2026-06-30 09:08 - 苗族银饰<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md
-- 2026-06-30 09:24 - 杨紫被质疑未使用原名纯属误解<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md
-- 2026-06-30 09:05 - 孙颖莎王楚钦晋级8强<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md
-- 2026-06-30 09:09 - 我和我的家乡<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md
-- 2026-06-30 09:19 - 《名肘探科比》：科比大战裂口女<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md
-
-## 延伸阅读
-
-- 2026-06-30 09:11 - 郑钦文温网三连败西尼亚科娃<br><br> | ??:https://www.blog.minike.top/Article/details/7495303712.shtml
-- 2026-06-30 09:09 - 网瘾賊大的阿嬷<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/3039428281.shtml
-- 2026-06-30 09:27 - 覃予萱晋级WTT美国大满贯女单32强<br><br> | ??:https://www.share.kurohicncr.top/Article/details/24356285611.shtml
-- 2026-06-30 09:21 - 重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！<br><br> | ??:https://www.share.kurohicncr.top/Article/details/29970430287.shtml
-- 2026-06-30 09:06 - 蜘蛛侠:平行宇宙<br><br> | ??:https://www.share.kurohicncr.top/Article/details/64174616.shtml
-- 2026-06-30 09:21 - 哈弗茨头球破门<br><br> | ??:http://www.share.minike.top/Article/details/863495.shtml
-- 2026-06-30 09:19 - 健全中小学教师工资长效联动机制<br><br> | ??:https://www.blog.minike.top/Article/details/4758162.shtml
-- 2026-06-30 09:27 - 考入南大计算机，复读考清北值吗？<br><br> | ??:https://www.blog.minike.top/Article/details/6585182.shtml
-- 2026-06-30 09:10 - 荷兰VS摩洛哥<br><br> | ??:http://www.share.minike.top/Article/details/963744.shtml
-- 2026-06-30 09:24 - 有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/464153.shtml
-- 2026-06-30 09:23 - 《赛博朋克：边缘行者 2》｜官方预告片<br><br> | ??:https://www.share.minike.top/Article/details/045790.shtml
-- 2026-06-30 09:17 - F1奥地利站赛后复盘<br><br> | ??:https://www.share.kurohicncr.top/Article/details/19214.shtml
-- 2026-06-30 09:02 - 哈弗茨头球破门<br><br> | ??:https://www.share.minike.top/Article/details/2647382.shtml
-- 2026-06-30 09:08 - 当我知道豆包有后台审核人员<br><br> | ??:http://www.share.minike.top/Article/details/909412120242.shtml
-- 2026-06-30 09:25 - 世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/36405061337.shtml
+<h2>延伸阅读</h2><br>
+<h3>日耳曼拖拉机</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://www.share.minike.top/Article/details/0903474007.shtml</p><br>
+<h3>荀彧和曹操反目成仇的根本原因是什么？</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:http://www.blog.minike.top/Article/details/06144.shtml</p><br>
+<h3>男生180+，有腹肌是什么体验？</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/470759513771.shtml</p><br>
+<h3>点球大战 残酷</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:http://www.share.minike.top/Article/details/838088540891.shtml</p><br>
+<h3>千与千寻</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://www.share.minike.top/Article/details/98189537.shtml</p><br>
+<h3>巴西2比1日本</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:http://www.share.minike.top/Article/details/32543.shtml</p><br>
+<h3>欧洲空调卖疯了 下一个爆款是储能吗</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/402681.shtml</p><br>
+<h3>普京为何将俄乌谈判时间表与伊朗挂钩</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:http://www.share.minike.top/Article/details/771261.shtml</p><br>
+<h3>有哪些被认为是现代才有的东西其实古代就有了？</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/6226034.shtml</p><br>
+<h3>老人卖菜获博主帮助后遇车祸去世</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:http://www.share.minike.top/Article/details/144857411904.shtml</p><br>
+<h3>法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:http://www.blog.minike.top/Article/details/019882593.shtml</p><br>
+<h3>王濛回复黄灿灿</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:http://www.blog.minike.top/Article/details/94830.shtml</p><br>
+<h3>女子遭家暴逃跑致丈夫身亡二审细节</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://www.blog.minike.top/Article/details/5321092.shtml</p><br>
+<h3>城市规划有可能成为「屎山代码」吗？</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://www.blog.minike.top/Article/details/186435258.shtml</p><br>
+<h3>免费试吃发差评被店家挂店门避雷</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/87802574.shtml</p><br>

@@ -1,61 +1,44 @@
-# 二十四节令鼓擂响深圳大沙河 海内外龙舟队竞渡
+<h1>离职的基金名将，都去哪儿了？</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>【导读】离职基金经理最新迁徙图全景：一半去头部公募、一半选择“奔私”见习记者 闫军A股市场持续向好，公募基金行业“抢人大战”愈演愈烈，近期甚至传出某头部公募出手挖人反被其他公司“截胡”的消息。薪酬改革之下的人才挤出、头部平台的“虹吸效应”同时发力，再次勾勒出一幅“人往高处”的基金经理迁徙图。这一波的人才流动依然是两个方向，公募之间的横向平移与追逐更高收益的“奔私”。所不同的是，</p><br>
+<h2>正文</h2><br>
+<p>【导读】离职基金经理最新迁徙图全景：一半去头部公募、一半选择“奔私”见习记者 闫军A股市场持续向好，公募基金行业“抢人大战”愈演愈烈，近期甚至传出某头部公募出手挖人反被其他公司“截胡”的消息。</p><br>
+<p>薪酬改革之下的人才挤出、头部平台的“虹吸效应”同时发力，再次勾勒出一幅“人往高处”的基金经理迁徙图。</p><br>
+<p>这一波的人才流动依然是两个方向，公募之间的横向平移与追逐更高收益的“奔私”。</p><br>
+<p>所不同的是，人才聚集的“马太效应”更加明显。</p><br>
+<p>有公募基金人士调侃：“半个基金圈的离职基金经理都跑到易方达、天弘、广发、富国、中欧、永赢了。</p><br>
+<p>”玩笑的背后，是当下公募行业人才的深度洗牌。</p><br>
+<p>绩优基金经理流向公募大厂和特色化公司人才流动成为常态，基金公司投研人员的争夺已经白热化。</p><br>
+<p>观察这一波行情启动之前和当下的基金经理流动，易方达、天弘、广发、富国、中欧、永赢等公司的吸引力尤为明显。</p><br>
+<h2>相关推荐</h2><br>
+<h3>王灿兮被烫伤两年后维权成功</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md</p><br>
+<h3>奔跑吧·黄河篇第二季</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md</p><br>
+<h3>湖北云南的这些涉汛信息都是假的</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md</p><br>
+<h3>王楚钦孙颖莎晋级混双八强</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md</p><br>
+<h3>巴西vs日本</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md</p><br>
+<h3>巴西绝杀日本</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md</p><br>
+<h3>沙丘</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md</p><br>
+<h3>马耳他著名拱门坍塌致中国男子身亡</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md</p><br>
+<h3>斛珠夫人</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md</p><br>
+<h3>孙颖莎王楚钦晋级8强</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md</p><br>
+<h3>张雪的一句“是我们”引发岛内热议</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md</p><br>
 
-中新网深圳6月19日电 (记者 索有为)作为2026年深圳龙舟文化嘉年华的序章，6月19日上午的深圳市南山区大沙河上，一场二十四节令鼓为“华为坤灵·2026年大沙河国际龙舟邀请赛”拉开帷幕，在鹏城激荡出传统与现代交融的璀璨浪花。 清晨的大沙河畔，晨光洒落，沿河观赛区早已聚满市民。一声浑厚的鼓槌落下，十二面大鼓依次排开，鼓手们身姿挺拔，齐声击鼓，第一记重击，震落晨露；第二记合鸣，
-
-## 正文
-
-中新网深圳6月19日电 (记者 索有为)作为2026年深圳龙舟文化嘉年华的序章，6月19日上午的深圳市南山区大沙河上，一场二十四节令鼓为“华为坤灵·2026年大沙河国际龙舟邀请赛”拉开帷幕，在鹏城激荡出传统与现代交融的璀璨浪花。
-
-清晨的大沙河畔，晨光洒落，沿河观赛区早已聚满市民。
-
-一声浑厚的鼓槌落下，十二面大鼓依次排开，鼓手们身姿挺拔，齐声击鼓，第一记重击，震落晨露；第二记合鸣，惊起水鸟；第三记群鼓齐发，整座大沙河仿佛被唤醒。
-
-激昂错落的鼓点，如惊蛰春雷滚过原野，如夏至骤雨倾泻江河，如秋分金风横扫稻浪，如冬至寒霜凝铸冰河，将自然时序的流转演绎得淋漓尽致，尽显中华传统文化的磅礴气势与南粤鼓乐艺术的魅力。
-
-雄浑铿锵的鼓声沿着大沙河传开，惊起浅滩边觅食的白鹭，也点燃了沿岸市民观众的热情。
-
-孩子们跟着鼓点拍手跳跃，老人们屏息凝神频频点头，年轻人们纷纷举起手机记录这震撼人心的表演。
-
-待最后一声鼓点落下，人群中爆发出雷鸣般的掌声与喝彩声。
-
-鼓声渐收，余韵未绝。
-
-## 相关推荐
-
-- 2026-06-30 09:27 - 日本五次世界杯淘汰赛全败<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md
-- 2026-06-30 09:19 - 日本进球<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md
-- 2026-06-30 09:18 - 挪威国家队紧急从本土订购大批海鲜<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md
-- 2026-06-30 09:05 - 千万不要随便扣肚脐<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md
-- 2026-06-30 09:26 - 徐亮怒斥世界杯踢假球<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md
-- 2026-06-30 09:28 - 日本反击率先破门<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md
-- 2026-06-30 09:06 - 歌剧老师锐评歌手第6期<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md
-- 2026-06-30 09:07 - Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md
-- 2026-06-30 09:07 - 高考填志愿父亲和女儿产生分歧<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md
-- 2026-06-30 09:09 - 巴西足球能否再现昔日荣光<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md
-- 2026-06-30 09:18 - 人类...完蛋了...<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md
-- 2026-06-30 09:07 - 国务院：探索延长义务教育年限<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md
-- 2026-06-30 09:22 - 韩国世界杯出局是主帅一个人的锅吗<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md
-- 2026-06-30 09:15 - 中国猪圈装空调让欧洲网友破防<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md
-- 2026-06-30 09:05 - 张雪的一句“是我们”引发岛内热议<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md
-
-## 延伸阅读
-
-- 2026-06-30 09:13 - 网红不能困在无底线逐利里<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/9244318.shtml
-- 2026-06-30 09:29 - 极限挑战第一季<br><br> | ??:https://www.share.kurohicncr.top/Article/details/23342722.shtml
-- 2026-06-30 09:10 - 开电动汽车真的很省钱吗？<br><br> | ??:https://www.share.minike.top/Article/details/852258974.shtml
-- 2026-06-30 09:17 - 杨紫大银幕成绩单<br><br> | ??:http://www.blog.minike.top/Article/details/8835620878.shtml
-- 2026-06-30 09:24 - iPhone18e曝光<br><br> | ??:https://www.blog.minike.top/Article/details/73180.shtml
-- 2026-06-30 09:08 - hanser X 赖美云《室内系的Track Maker》<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/0293239.shtml
-- 2026-06-30 09:06 - 马杜罗账号在纽约发文致谢各国援助<br><br> | ??:https://www.blog.minike.top/Article/details/021437338880.shtml
-- 2026-06-30 09:01 - 有人见过武则天的画像吗，非常好奇？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/04779906.shtml
-- 2026-06-30 09:15 - 把毒品藏在哪里，60秒内不会被发现？<br><br> | ??:https://www.blog.minike.top/Article/details/6145027.shtml
-- 2026-06-30 09:07 - 我设置了全宇宙最安全的密码<br><br> | ??:http://www.share.kurohicncr.top/Article/details/06604601.shtml
-- 2026-06-30 09:13 - 金鹰奖视后提名预测<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/64605771518.shtml
-- 2026-06-30 09:20 - 爱很美味<br><br> | ??:https://www.share.kurohicncr.top/Article/details/23799709350.shtml
-- 2026-06-30 09:24 - 欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/218202789.shtml
-- 2026-06-30 09:15 - 德国巴拉圭进入点球大战<br><br> | ??:http://www.share.kurohicncr.top/Article/details/2029903.shtml
-- 2026-06-30 09:05 - 张雪的一句“是我们”引发岛内热议<br><br> | ??:http://www.share.minike.top/Article/details/327038.shtml
+<h2>延伸阅读</h2><br>
+<h3>发明linux、python、redis、nginx、sqlite的人算不算天才？</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://www.blog.minike.top/Article/details/8739294101.shtml</p><br>
+<h3>四川宜宾地震瞬间鱼群乱跳</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://www.blog.minike.top/Article/details/9663708.shtml</p><br>
+<h3>送你一朵小红花</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/61042.shtml</p><br>
+<h3>媒体评泰山建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/610699.shtml</p><br>
+<h3>欧盟分楼层开空调惹争议</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://www.share.minike.top/Article/details/4639157.shtml</p><br>
+<h3>四川宜宾地震为何震感明显</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:http://www.share.minike.top/Article/details/477364585.shtml</p><br>
+<h3>你人生中最艰难的时候是怎么熬过来的？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:http://www.share.minike.top/Article/details/07676036.shtml</p><br>
+<h3>巴拉圭点球大战淘汰德国进16强</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/711755.shtml</p><br>
+<h3>德国vs巴拉圭</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/4300022056.shtml</p><br>
+<h3>MSI应援曲 如果季中成回忆</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:http://www.share.minike.top/Article/details/19438770536.shtml</p><br>
+<h3>找到了10年前跪舔b站的视频</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/09693.shtml</p><br>
+<h3>《恋与深空》被指触碰民族伤痛红线</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/343172.shtml</p><br>
+<h3>【Reaction】女生最少的5款游戏</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/3065791.shtml</p><br>
+<h3>高考填志愿父亲和女儿产生分歧</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/251001.shtml</p><br>
+<h3>美团、淘宝闪购、京东外卖达成共识</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://www.blog.minike.top/Article/details/7720707147.shtml</p><br>

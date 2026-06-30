@@ -1,59 +1,43 @@
-# 柏林中国文化中心举办端午节主题系列活动
+<h1>连呈经典剧目 杭州越剧院晋京献演国家大剧院</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>中新网北京5月16日电 (记者 高凯)2026年恰逢越剧诞生120周年暨杭州越剧院建院70周年的双庆之年，5月14日至17日，杭州越剧院携越剧经典《红楼梦》《五女拜寿》亮相国家大剧院戏剧场，连呈越剧盛宴。 越剧《红楼梦》是中国戏曲史上演出场次最多、影响力最广的经典剧目之一，本次演出由“越美中华”佳艺奖获得者、徐派小生孙宁宁和浙江戏剧奖·金桂表演奖得主、王派花旦陈群瑶主演。青春班</p><br>
+<h2>正文</h2><br>
+<p>中新网北京5月16日电 (记者 高凯)2026年恰逢越剧诞生120周年暨杭州越剧院建院70周年的双庆之年，5月14日至17日，杭州越剧院携越剧经典《红楼梦》《五女拜寿》亮相国家大剧院戏剧场，连呈越剧盛宴。</p><br>
+<p>越剧《红楼梦》是中国戏曲史上演出场次最多、影响力最广的经典剧目之一，本次演出由“越美中华”佳艺奖获得者、徐派小生孙宁宁和浙江戏剧奖·金桂表演奖得主、王派花旦陈群瑶主演。</p><br>
+<p>青春班底以细腻唱腔、诗化舞台、精准表演，将宝黛爱情与红楼意境演绎得淋漓尽致，“天上掉下个林妹妹”等经典唱段再得精彩呈现。</p><br>
+<p>《五女拜寿》以孝道亲情、人间烟火打动亿万观众，久演不衰。</p><br>
+<p>本次由一级演员、中国戏剧节优秀主角奖得主石惠兰和一级演员、浙江省戏剧节优秀表演奖获得者黄荣娟携杭越一众青年演员联袂呈现，“五小生、五花旦”强大阵容同台献艺，流派纷呈、行当齐全，既展现演员扎实功底，亦被认为彰显了杭州越剧院人才梯队建设的深厚积淀。</p><br>
+<p>据了解，近年来，杭州越剧院持续加大青年主创、青年演员扶持力度，通过重点剧目压担、经典剧目传承、专业赛事历练、名家名师结对等举措，一批优秀青年戏曲人才快速成长、崭露头角。</p><br>
+<p>剧院亦和浙江省内艺术院校合作，以“订单班”模式培养下一代接班人。</p><br>
+<p>杭州越剧院负责人表示，此次晋京演出是杭州越剧院建院70周年、越剧诞生120周年的一次重要献礼。</p><br>
+<h2>相关推荐</h2><br>
+<h3>王楚钦孙颖莎晋级混双八强</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md</p><br>
+<h3>点球淘汰德国 巴拉圭首都陷入疯狂</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md</p><br>
+<h3>李准基参加文彩元婚礼</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md</p><br>
+<h3>萨内 看笑了</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md</p><br>
+<h3>德国 传控</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md</p><br>
+<h3>又一家县级医院关停门诊输液大厅</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md</p><br>
+<h3>如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md</p><br>
+<h3>输球后日本球迷被强行披上巴西国旗</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md</p><br>
+<h3>天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md</p><br>
+<h3>杨紫大银幕成绩单</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md</p><br>
 
-中新网柏林6月20日电 正值中国传统节日端午节，柏林中国文化中心教学部19日举办丰富多彩的端午节主题活动。 活动旨在弘扬中华优秀传统文化，增进德国民众对中国节日文化的了解与体验。通过汉语和烹饪两大特色课程，学员们在浓浓粽香中感受中华文化独特魅力。 在儿童汉语课堂上，中心汉语教师娄琳姗以生动有趣的方式为孩子们讲述了端午节的由来，介绍了赛龙舟、吃粽子、挂艾草、佩香囊等传统习俗。她还
-
-## 正文
-
-中新网柏林6月20日电 正值中国传统节日端午节，柏林中国文化中心教学部19日举办丰富多彩的端午节主题活动。
-
-活动旨在弘扬中华优秀传统文化，增进德国民众对中国节日文化的了解与体验。
-
-通过汉语和烹饪两大特色课程，学员们在浓浓粽香中感受中华文化独特魅力。
-
-在儿童汉语课堂上，中心汉语教师娄琳姗以生动有趣的方式为孩子们讲述了端午节的由来，介绍了赛龙舟、吃粽子、挂艾草、佩香囊等传统习俗。
-
-她还特意带来了艾草，并向小朋友赠送了香囊和自己亲手包的粽子，让孩子们感受到浓浓的端午节日氛围。
-
-在端午知识竞猜环节，孩子们踊跃举手、积极抢答；在手工环节，大家认真折叠色彩缤纷的纸粽子；与此同时，孩子们还学习书写“端午节”“粽子”“龙舟”等汉字，在寓教于乐中感受汉语和中国文化魅力。
-
-烹饪课作为中心的知名品牌课程，在柏林乃至周边地区拥有广泛影响力和良好口碑，深受当地民众喜爱。
-
-本次端午节主题烹饪课延续了一贯的高人气，活动信息一经发布，名额便迅速报满。
-
-## 相关推荐
-
-- 2026-06-30 09:15 - GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md
-- 2026-06-30 09:16 - 王楚钦孙颖莎混双对手产生<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md
-- 2026-06-30 09:12 - 哪部作品、哪本书、哪首歌，值得被一直传下去？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md
-- 2026-06-30 09:02 - 徐亮怒斥世界杯踢假球<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md
-- 2026-06-30 09:11 - “荒唐”背后的韩国足球<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md
-- 2026-06-30 09:18 - 巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md
-- 2026-06-30 09:10 - 已经看完《三国第一部：争洛阳》的人，如何评价这部电影？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md
-- 2026-06-30 09:03 - 卡塞米罗头球破门<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md
-- 2026-06-30 09:20 - 免费试吃发差评被店家挂店门避雷<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md
-- 2026-06-30 09:25 - 如何看待武亮说大学生生活费1500就够用这一言论？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md
-- 2026-06-30 09:15 - 卢卡申科发布解放军仪仗队视频<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md
-- 2026-06-30 09:15 - 日本球迷输球后集体捡垃圾<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md
-- 2026-06-30 09:12 - 泰山建135公里刀片刺绳隔离网<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md
-
-## 延伸阅读
-
-- 2026-06-30 09:09 - 王曼昱被突如其来的话筒逗笑了<br><br> | ??:http://www.blog.minike.top/Article/details/710813992818.shtml
-- 2026-06-30 09:21 - 赛博朋克边缘行者2预告片<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/836161322.shtml
-- 2026-06-30 09:06 - 这一刀 会很帅<br><br> | ??:https://www.share.kurohicncr.top/Article/details/472334.shtml
-- 2026-06-30 09:17 - 国务院：探索延长义务教育年限<br><br> | ??:http://www.share.minike.top/Article/details/5660096.shtml
-- 2026-06-30 09:24 - 德国身价是巴拉圭6倍<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/552068.shtml
-- 2026-06-30 09:15 - 荷兰VS摩洛哥<br><br> | ??:https://www.share.minike.top/Article/details/747532265.shtml
-- 2026-06-30 09:20 - 杨紫肖战余生请多指教拍立得<br><br> | ??:http://www.share.kurohicncr.top/Article/details/18729.shtml
-- 2026-06-30 09:06 - 不开心就去看三年前的购物订单<br><br> | ??:https://www.blog.minike.top/Article/details/252099237692.shtml
-- 2026-06-30 09:29 - 急先锋<br><br> | ??:http://www.blog.minike.top/Article/details/93586.shtml
-- 2026-06-30 09:05 - 致敬！中国首批缉毒警已全体退休<br><br> | ??:https://www.share.kurohicncr.top/Article/details/13308509111.shtml
-- 2026-06-30 09:16 - 房价什么时候能涨<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/47212049.shtml
-- 2026-06-30 09:10 - 日本主帅：未能夺冠深感抱歉<br><br> | ??:https://www.share.kurohicncr.top/Article/details/92209439717.shtml
-- 2026-06-30 09:15 - 警方介入洪明甫死亡威胁<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/287072712324.shtml
-- 2026-06-30 09:12 - 《我落泪情绪零碎》<br><br> | ??:https://www.share.kurohicncr.top/Article/details/59292508540.shtml
-- 2026-06-30 09:20 - 日本淘汰<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/88302190.shtml
+<h2>延伸阅读</h2><br>
+<h3>歌剧老师锐评歌手第6期</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://www.blog.minike.top/Article/details/51130517.shtml</p><br>
+<h3>郑钦文 四年一轮游</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/9363238023.shtml</p><br>
+<h3>日本16强魔咒</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/561663.shtml</p><br>
+<h3>外国游客开始涌入中国农村</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:http://www.blog.minike.top/Article/details/24372205.shtml</p><br>
+<h3>对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://www.blog.minike.top/Article/details/904779504767.shtml</p><br>
+<h3>穆祉丞回应获年度人气艺人</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/22124321.shtml</p><br>
+<h3>欧洲民众抢购空调降温</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:http://www.blog.minike.top/Article/details/236960043.shtml</p><br>
+<h3>欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/91844.shtml</p><br>
+<h3>妻子撞死家暴丈夫案二审案情反转</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/40621.shtml</p><br>
+<h3>挪威国家队紧急从本土订购大批海鲜</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/330133815.shtml</p><br>
+<h3>疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/55086813.shtml</p><br>
+<h3>巴西替补奇兵读秒绝杀</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://www.blog.minike.top/Article/details/264329.shtml</p><br>
+<h3>巴西醒醒 这是淘汰赛</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/4379130.shtml</p><br>
+<h3>一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://www.share.minike.top/Article/details/10716.shtml</p><br>
+<h3>啊啊啊</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://www.blog.minike.top/Article/details/539205017.shtml</p><br>

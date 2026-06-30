@@ -1,57 +1,47 @@
-# 中外选手南宁邕江竞渡迎端午
+<h1>第二十五届“汉语桥”巴西赛区决赛里约热内卢启幕</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>中新社里约热内卢5月17日电 (记者 林春茵)当地时间16日，第二十五届“汉语桥”世界大学生中文比赛暨第十九届世界中学生中文比赛巴西赛区决赛在里约热内卢开幕。 此次活动由中国驻巴西大使馆主办，里约热内卢天主教大学孔子学院承办，来自巴西多所高校、中学师生及15所孔院代表约两百人出席。 中国驻里约热内卢总领事田敏致辞表示，近年来汉语学习持续升温，巴西15所孔院在促进两国人民相知相亲</p><br>
+<h2>正文</h2><br>
+<p>中新社里约热内卢5月17日电 (记者 林春茵)当地时间16日，第二十五届“汉语桥”世界大学生中文比赛暨第十九届世界中学生中文比赛巴西赛区决赛在里约热内卢开幕。</p><br>
+<p>此次活动由中国驻巴西大使馆主办，里约热内卢天主教大学孔子学院承办，来自巴西多所高校、中学师生及15所孔院代表约两百人出席。</p><br>
+<p>中国驻里约热内卢总领事田敏致辞表示，近年来汉语学习持续升温，巴西15所孔院在促进两国人民相知相亲方面发挥着不可替代的重要作用。</p><br>
+<p>2026年正值中巴文化年，期许选手们通过比赛增进理解、提升跨文化沟通能力，成为促进中巴友好的青年使者。</p><br>
+<p>里约热内卢天主教大学副校长米格尔说，汉语是一座连接巴中友谊的“活的”桥梁。</p><br>
+<p>评委代表、里约热内卢联邦大学孔子学院中方院长姜全红勉励选手们，“无论最终结果如何，站在‘汉语桥’舞台上，你们已经是胜利者。</p><br>
+<p>” 多位往届参赛者录制视频，分享学习汉语经历。</p><br>
+<p>有的因“汉语桥”广交全世界好友，有的通过“汉语桥”赴华深造，还有的“秀”起了中国方言。</p><br>
+<h2>相关推荐</h2><br>
+<h3>俄乌双方伤亡近180万人</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md</p><br>
+<h3>杨紫肖战余生请多指教拍立得</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md</p><br>
+<h3>孙颖莎王楚钦晋级8强</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md</p><br>
+<h3>如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md</p><br>
+<h3>德国身价是巴拉圭6倍</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md</p><br>
+<h3>人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md</p><br>
+<h3>美股收盘 热门中概股普涨</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md</p><br>
+<h3>俄乌双方伤亡近180万人</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md</p><br>
+<h3>花少8要去世界杯举办国</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md</p><br>
+<h3>美团、淘宝闪购、京东外卖达成共识</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md</p><br>
+<h3>上市央企地产商 两年换了三任董事长</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md</p><br>
+<h3>FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md</p><br>
+<h3>高考结束了，你会让孩子在家玩手机吗？</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md</p><br>
+<h3>“荒唐”背后的韩国足球</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md</p><br>
 
-中新网南宁6月20日电(记者 黄艳梅)“龙舟是一项很好玩的运动。通过比赛我体会到了同舟共济、团结拼搏的精神，我喜欢划龙舟。”广西交通职业技术学院刚果(金)籍留学生包爽19日接受中新网记者采访时说。 2026年南宁龙舟公开赛当日在广西南宁“母亲河”邕江擂鼓开赛，来自海内外的48支龙舟队伍劈波斩浪，让民众在端午佳节近距离感受传统龙舟的速度与激情。 南宁龙舟赛始于1978年。本届赛事
-
-## 正文
-
-中新网南宁6月20日电(记者 黄艳梅)“龙舟是一项很好玩的运动。
-
-通过比赛我体会到了同舟共济、团结拼搏的精神，我喜欢划龙舟。
-
-”广西交通职业技术学院刚果(金)籍留学生包爽19日接受中新网记者采访时说。
-
-2026年南宁龙舟公开赛当日在广西南宁“母亲河”邕江擂鼓开赛，来自海内外的48支龙舟队伍劈波斩浪，让民众在端午佳节近距离感受传统龙舟的速度与激情。
-
-南宁龙舟赛始于1978年。
-
-本届赛事设公开组22人龙舟、公开组12人龙舟和校园U18组12人龙舟三个大组，均进行200米直道赛和300米直道赛。
-
-本届赛事，青年群体表现活跃，35岁及以下人群占比近六成，让传统民俗在青春力量的加入中焕发新的活力。
-
-当日正值中国端午节，南宁围绕“龙舟竞渡、文旅融合、消费惠民”推出系列文旅体商活动，覆盖非遗展演、文艺演出、文旅体验等。
-
-## 相关推荐
-
-- 2026-06-30 09:12 - 明星大侦探第一季<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md
-- 2026-06-30 09:29 - 媒体评泰山建135公里刀片刺绳隔离网<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md
-- 2026-06-30 09:27 - 千万不要随便扣肚脐<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md
-- 2026-06-30 09:12 - 杨紫被质疑未使用原名纯属误解<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md
-- 2026-06-30 09:22 - 中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md
-- 2026-06-30 09:07 - 被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md
-- 2026-06-30 09:09 - 王源近几年没有路演了<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md
-- 2026-06-30 09:16 - “草莓月亮”浪漫现身<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md
-- 2026-06-30 09:04 - 日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md
-- 2026-06-30 09:22 - 补时绝杀 巴西2-1淘汰日本<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md
-- 2026-06-30 09:12 - 【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md
-
-## 延伸阅读
-
-- 2026-06-30 09:04 - 德国 传控<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/2674497797.shtml
-- 2026-06-30 09:15 - 把毒品藏在哪里，60秒内不会被发现？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/65013213024.shtml
-- 2026-06-30 09:12 - 恋与深空已删除锅里洗澡文案<br><br> | ??:http://www.share.kurohicncr.top/Article/details/767213.shtml
-- 2026-06-30 09:01 - 王楚钦孙颖莎晋级混双八强<br><br> | ??:http://www.share.minike.top/Article/details/313879.shtml
-- 2026-06-30 09:00 - 齐思钧回复张月<br><br> | ??:http://www.blog.minike.top/Article/details/67362.shtml
-- 2026-06-30 09:27 - 浪姐成团夜爆笑吐槽<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/565912556.shtml
-- 2026-06-30 09:02 - 网瘾賊大的阿嬷<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/600566.shtml
-- 2026-06-30 09:29 - 人民锐评网红诋毁袁隆平造谣企业家<br><br> | ??:https://www.share.minike.top/Article/details/95310.shtml
-- 2026-06-30 09:12 - 王菲谢霆锋十指紧扣好甜<br><br> | ??:http://www.blog.minike.top/Article/details/4489871.shtml
-- 2026-06-30 09:27 - 酒店推行“24小时退房”引热议<br><br> | ??:http://www.share.kurohicncr.top/Article/details/85590923.shtml
-- 2026-06-30 09:13 - 世界杯<br><br> | ??:https://www.share.kurohicncr.top/Article/details/61999246.shtml
-- 2026-06-30 09:22 - 我觉得你是在无中生友<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/2863654.shtml
-- 2026-06-30 09:18 - 佐野海舟远射破门<br><br> | ??:http://www.blog.minike.top/Article/details/80422827.shtml
-- 2026-06-30 09:15 - 郑钦文温网一轮游<br><br> | ??:https://www.share.minike.top/Article/details/9368025595.shtml
-- 2026-06-30 09:16 - 张雪的一句“是我们”引发岛内热议<br><br> | ??:http://www.blog.minike.top/Article/details/74971.shtml
+<h2>延伸阅读</h2><br>
+<h3>日本16强魔咒</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/1196590305.shtml</p><br>
+<h3>爆冷出局！德国点球大战不敌巴拉圭</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/154040.shtml</p><br>
+<h3>租房时你会更看重「住得舒服」，还是「每天通勤更方便」？</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:http://www.share.minike.top/Article/details/6130371046.shtml</p><br>
+<h3>女子清吧被陌生人投放伟哥</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/18609.shtml</p><br>
+<h3>荷兰vs摩洛哥</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/9440793341.shtml</p><br>
+<h3>全网说丑的玫瑰空调卖了5万台</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/056549.shtml</p><br>
+<h3>城市规划有可能成为「屎山代码」吗？</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/50466838063.shtml</p><br>
+<h3>FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:http://www.share.minike.top/Article/details/56813257.shtml</p><br>
+<h3>王楚钦说配合稍微有些陌生感</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:http://www.share.minike.top/Article/details/291189.shtml</p><br>
+<h3>一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://www.share.minike.top/Article/details/0547447.shtml</p><br>
+<h3>国务院：探索延长义务教育年限</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/518289473715.shtml</p><br>
+<h3>如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:http://www.share.minike.top/Article/details/2707471.shtml</p><br>
+<h3>德国北部枪击事件致5死</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/950020998.shtml</p><br>
+<h3>这一刀 会很帅</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:http://www.blog.minike.top/Article/details/06037.shtml</p><br>
+<h3>Melo向柳智敏张元英道歉</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/842990972.shtml</p><br>

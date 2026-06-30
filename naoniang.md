@@ -1,56 +1,45 @@
-# “扶老携幼”如何便利乘车？端午铁路出行攻略来了
+<h1>华尔街老将Yardeni敦促美联储放弃宽松倾向 否则或失去对利率的控制权</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>据Yardeni Research称，美联储需要迎头赶上债券市场的脚步，否则，随着投资者越来越担心通胀，美联储可能会失去对借贷成本的控制权。 该公司总裁兼首席投资策略师Ed Yardeni表示，鉴于当前市场环境“不再”适合采取宽松政策，美联储应在6月的会议上取消宽松倾向。 “如果美联储不取消，投资人会认为该央行应对通胀的步伐落后于通胀曲线，将要求更高的通胀风险溢价，”Yarde</p><br>
+<h2>正文</h2><br>
+<p>据Yardeni Research称，美联储需要迎头赶上债券市场的脚步，否则，随着投资者越来越担心通胀，美联储可能会失去对借贷成本的控制权。</p><br>
+<p>该公司总裁兼首席投资策略师Ed Yardeni表示，鉴于当前市场环境“不再”适合采取宽松政策，美联储应在6月的会议上取消宽松倾向。</p><br>
+<p>“如果美联储不取消，投资人会认为该央行应对通胀的步伐落后于通胀曲线，将要求更高的通胀风险溢价，”Yardeni在一份报告中写道。</p><br>
+<p>“预计美联储将在6月份的会议上维持利率不变，并转向收紧的政策立场。</p><br>
+<p>” 互换市场目前预期，美联储将在3月前升息25个基点，相较之下，伊朗战争爆发前，外界预期美联储年底前将降息两次以上，每次降息幅度25个基点。</p><br>
+<p>Yardeni发表此番言论之际，30年期美国公债收益率已升至5%以上，接近 2007年以来的最高水平，对政策较为敏感的2年期公债收益率也接近15个月来的最高水平。</p><br>
+<p>不仅美国，欧洲与日本等全球主要市场的收益率同样攀升，反映市场对通胀的担忧升温。</p><br>
+<p>据Yardeni称，海外利率走高，正削弱长期以来支撑美债需求的重要资金来源，使美国政府在庞大财政赤字与持续通胀压力下，必须更加努力吸引买盘。</p><br>
+<h2>相关推荐</h2><br>
+<h3>承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md</p><br>
+<h3>王楚钦孙颖莎vs皮斯特耶库库洛娃</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md</p><br>
+<h3>天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md</p><br>
+<h3>卢卡申科发布解放军仪仗队视频</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md</p><br>
+<h3>日本球迷输球后集体捡垃圾</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md</p><br>
+<h3>日本将帅赛后采访纷纷哽咽落泪</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md</p><br>
+<h3>媒体评泰山建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md</p><br>
+<h3>金价跳水 水贝市场显现出“两重天”</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md</p><br>
+<h3>这一刀 会很帅</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md</p><br>
+<h3>巴西在进攻三区完成210脚传球</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md</p><br>
+<h3>如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md</p><br>
+<h3>男生180+，有腹肌是什么体验？</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md</p><br>
 
-6月19日，全国铁路和公路迎来出行高峰。端午假期，铁路出行有哪些小技巧？亲子出行时，“扶老携幼”如何便利乘车？ 总台央视记者 孙继文：假期出行，有娃家庭选择“亲子行”的概率比较大，偶尔还有家中长辈一起，一大家子再加上多人份行李，出行体验上难免有些不太轻松。 这时候，铁路部门的“重点旅客服务预约”就派上大用场了。线上、线下都可申请老弱病残孕幼专属引导、优先检票、站台接送站，大件行
-
-## 正文
-
-6月19日，全国铁路和公路迎来出行高峰。
-
-端午假期，铁路出行有哪些小技巧？
-
-亲子出行时，“扶老携幼”如何便利乘车？
-
-总台央视记者 孙继文：假期出行，有娃家庭选择“亲子行”的概率比较大，偶尔还有家中长辈一起，一大家子再加上多人份行李，出行体验上难免有些不太轻松。
-
-这时候，铁路部门的“重点旅客服务预约”就派上大用场了。
-
-线上、线下都可申请老弱病残孕幼专属引导、优先检票、站台接送站，大件行李帮扶，完全免费无门槛。
-
-北京西站“036候车室”值班员李宸介绍： ·线上预约其实很便捷的，打开12306，填写乘车信息，提交相关材料。
-
-也可以通过拨打电话的方式，拨打12306人工客服，工作人员会帮助或指导提交预约。
-
-## 相关推荐
-
-- 2026-06-30 09:20 - 莫兰特转投开拓者效力<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md
-- 2026-06-30 09:19 - 吴启华卖肖像权拍AI电影<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md
-- 2026-06-30 09:25 - 2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md
-- 2026-06-30 09:07 - 哈弗茨头球破门<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md
-- 2026-06-30 09:06 - 董卿母亲癌症去世<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md
-- 2026-06-30 09:02 - 杨紫大银幕成绩单如何<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md
-- 2026-06-30 09:17 - 领克900大型SUV值得购买吗?<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md
-- 2026-06-30 09:29 - 任素汐舞台上唱《王招君》<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md
-- 2026-06-30 09:16 - 卢卡申科发布解放军仪仗队视频<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md
-- 2026-06-30 09:15 - 峡谷事故团队组队时有人提醒会下雨<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md
-
-## 延伸阅读
-
-- 2026-06-30 09:18 - “荒唐”背后的韩国足球<br><br> | ??:https://www.blog.minike.top/Article/details/00582.shtml
-- 2026-06-30 09:08 - 有什么好的高中网课推荐吗？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/060443034.shtml
-- 2026-06-30 09:22 - 亚洲球队全部出局<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/638921260040.shtml
-- 2026-06-30 09:11 - 女子遭下药退赔偿拟追刑责<br><br> | ??:http://www.blog.minike.top/Article/details/287768952549.shtml
-- 2026-06-30 09:27 - 郑钦文温网一轮游<br><br> | ??:http://www.blog.minike.top/Article/details/07457.shtml
-- 2026-06-30 09:10 - 被巴西绝杀后 日球员田中碧跪地痛哭<br><br> | ??:https://www.blog.minike.top/Article/details/1656882332.shtml
-- 2026-06-30 09:27 - 董卿母亲癌症去世<br><br> | ??:https://www.blog.minike.top/Article/details/194747.shtml
-- 2026-06-30 09:03 - 毕业以后，你最怀念的大学记忆是什么？<br><br> | ??:http://www.blog.minike.top/Article/details/7425103910.shtml
-- 2026-06-30 09:21 - ASMR 千禧年百货大楼初代柜姐给你化大头贴妆<br><br> | ??:https://www.blog.minike.top/Article/details/204992426964.shtml
-- 2026-06-30 09:04 - 未来的飞机可能会用电吗？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/796026.shtml
-- 2026-06-30 09:17 - 中国猪圈装空调让欧洲网友破防<br><br> | ??:https://www.share.minike.top/Article/details/3096590.shtml
-- 2026-06-30 09:18 - 曝老詹对自由市场态度与以往截然不同<br><br> | ??:http://www.share.kurohicncr.top/Article/details/2719936599.shtml
-- 2026-06-30 09:21 - 美股收盘 热门中概股普涨<br><br> | ??:http://www.share.minike.top/Article/details/5697989927.shtml
-- 2026-06-30 09:07 - 德国队连续三届世界杯无缘16强<br><br> | ??:http://www.share.minike.top/Article/details/13971331.shtml
-- 2026-06-30 09:10 - 第一炉香<br><br> | ??:http://www.blog.minike.top/Article/details/407742058.shtml
+<h2>延伸阅读</h2><br>
+<h3>全网说丑的玫瑰空调卖了5万台</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://www.share.minike.top/Article/details/760389.shtml</p><br>
+<h3>四川宜宾地震瞬间鱼群乱跳</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/438499106.shtml</p><br>
+<h3>荀彧和曹操反目成仇的根本原因是什么？</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/654304413.shtml</p><br>
+<h3>卢卡申科发布解放军仪仗队视频</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/558831917.shtml</p><br>
+<h3>男子醉酒溺水获救后同行人拒搭手</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/923699327.shtml</p><br>
+<h3>日本主帅赛后回应淘汰出局</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/3316681.shtml</p><br>
+<h3>这几秒成世界杯最值钱广告位</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/661354744.shtml</p><br>
+<h3>巴西足球能否再现昔日荣光</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/469139664.shtml</p><br>
+<h3>苗族银饰</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/457855215454.shtml</p><br>
+<h3>人类...完蛋了...</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/32767.shtml</p><br>
+<h3>中国猪圈装空调让欧洲网友破防</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://www.share.minike.top/Article/details/653260395.shtml</p><br>
+<h3>巴西2比1日本</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/720188891.shtml</p><br>
+<h3>巴拉圭门将</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/136493.shtml</p><br>
+<h3>一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/341779.shtml</p><br>
+<h3>2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:http://www.share.minike.top/Article/details/9689242922.shtml</p><br>

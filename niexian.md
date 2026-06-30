@@ -1,58 +1,46 @@
-# 山城重庆完成两江四岸低空航线验证试飞 探索三大应用场景
+<h1>今年前4个月欧盟非法入境人次同比下降40%</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>中新社布鲁塞尔5月15日电 (记者 德永健)欧盟边境与海岸警卫局15日通报，由于中地中海一线、东地中海一线、西非一线等非法入境人次明显回落，今年前4个月欧盟非法入境人次较去年同期下降40%。 欧盟边境与海岸警卫局当日在一份公告中称，初步统计数据显示，今年前4个月，欧盟非法入境累计2.85余万人次，较去年同期下降40%。 具体而言，在“重灾区”中地中海一线(目的地意大利)，今年前</p><br>
+<h2>正文</h2><br>
+<p>中新社布鲁塞尔5月15日电 (记者 德永健)欧盟边境与海岸警卫局15日通报，由于中地中海一线、东地中海一线、西非一线等非法入境人次明显回落，今年前4个月欧盟非法入境人次较去年同期下降40%。</p><br>
+<p>欧盟边境与海岸警卫局当日在一份公告中称，初步统计数据显示，今年前4个月，欧盟非法入境累计2.85余万人次，较去年同期下降40%。</p><br>
+<p>具体而言，在“重灾区”中地中海一线(目的地意大利)，今年前4个月非法入境近8500人次，较去年同期下降46%，非法入境人员主要来自孟加拉国、索马里和苏丹，利比亚是主要中转站。</p><br>
+<p>在东地中海一线(目的地希腊等国)，今年前4个月非法入境逾8400人次，较去年同期下降32%，非法入境人员主要来自阿富汗、苏丹和也门，从利比亚至希腊克里特岛的非法入境路线依然活跃。</p><br>
+<p>在西非一线，得益于毛里塔尼亚、塞内加尔、冈比亚等国加大边境管控力度，今年前4个月非法入境逾2300人次，较去年同期下降78%，非法入境人员主要来自冈比亚、塞内加尔和几内亚。</p><br>
+<p>在西巴尔干一线，今年前4个月非法入境逾2800人次，较去年同期下降19%，非法入境人员主要来自土耳其、埃及和阿富汗。</p><br>
+<p>在欧盟东部陆地边境，今年前4个月非法入境逾1100人次，较去年同期下降49%，非法入境人员主要来自乌克兰、俄罗斯和黎巴嫩。</p><br>
+<p>与上述路线相反，在西地中海一线(目的地西班牙等国)，今年前4个月非法入境近5200人次，较去年同期增加50%，非法入境人员主要来自阿尔及利亚、马里和摩洛哥，阿尔及利亚是主要中转站。</p><br>
+<h2>相关推荐</h2><br>
+<h3>女子遭下药退赔偿拟追刑责</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md</p><br>
+<h3>美人鱼</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md</p><br>
+<h3>我设置了全宇宙最安全的密码</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md</p><br>
+<h3>恋与深空已删除锅里洗澡文案</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md</p><br>
+<h3>德国进球被吹</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md</p><br>
+<h3>《名肘探科比》：科比大战裂口女</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md</p><br>
+<h3>黄晓明晒和周杰伦的合照</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md</p><br>
+<h3>手底下人带不动怎么办？</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md</p><br>
+<h3>美人鱼</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md</p><br>
+<h3>浪姐成团夜爆笑吐槽</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md</p><br>
+<h3>欧盟分楼层开空调惹争议</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md</p><br>
+<h3>徐亮怒斥世界杯踢假球</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md</p><br>
+<h3>韩国道歉完日本道歉</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md</p><br>
 
-中新社重庆6月18日电 (张旭)中共重庆市委军民融合发展委员会办公室18日发布消息称，近日，山城重庆两江四岸低空航线验证试飞活动顺利完成，实现了重庆中心城区低空多元化应用场景的系统性落地探索。 据介绍，本次验证试飞航空域管控标准严苛、飞行运行要求极高。试飞航线全面覆盖解放碑、来福士、洪崖洞、江北嘴大剧院、南滨路等两江四岸核心地标集群，涉及重庆中心城区低空场景落地的重点、难点区域
-
-## 正文
-
-中新社重庆6月18日电 (张旭)中共重庆市委军民融合发展委员会办公室18日发布消息称，近日，山城重庆两江四岸低空航线验证试飞活动顺利完成，实现了重庆中心城区低空多元化应用场景的系统性落地探索。
-
-据介绍，本次验证试飞航空域管控标准严苛、飞行运行要求极高。
-
-试飞航线全面覆盖解放碑、来福士、洪崖洞、江北嘴大剧院、南滨路等两江四岸核心地标集群，涉及重庆中心城区低空场景落地的重点、难点区域。
-
-试飞过程严格遵循民航飞行安全规范，圆满完成航线勘测、空域适配、飞行环境核验、运行流程测试、应急保障演练等全科目验证工作，全面摸清重庆中心城区核心区空域运行条件、飞行适配标准与场景落地可行性，所有试飞数据、运行指标均达到规范要求。
-
-此次验证试飞由重庆文化旅游集团有限公司、重庆玖洲低空产业发展集团有限公司、甘肃航空产业投资有限公司合作完成。
-
-接下来，三方将以重庆两江四岸核心航线为载体，重点落地低空文旅观光、城市空中摆渡、应急医疗救援三大应用场景。
-
-(完)
-
-## 相关推荐
-
-- 2026-06-30 09:02 - 租房时你会更看重「住得舒服」，还是「每天通勤更方便」？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md
-- 2026-06-30 09:07 - 内马尔安慰日本球员<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md
-- 2026-06-30 09:09 - 马耳他著名拱门坍塌致中国男子身亡<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md
-- 2026-06-30 09:01 - 郑钦文 四年一轮游<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md
-- 2026-06-30 09:29 - 《虎吹最难绷の一集》<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md
-- 2026-06-30 09:04 - 想问一下学日语的大佬，自学日语要怎么学？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md
-- 2026-06-30 09:23 - 沙丘<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md
-- 2026-06-30 09:12 - 为什么很多企业推行“扁平化管理”后，效率反而下降了？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md
-- 2026-06-30 09:23 - 自然光｜papi酱&窦文涛：驴与跑步机<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md
-- 2026-06-30 09:01 - 爱直接对嘴喝饮料的人天塌了<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md
-- 2026-06-30 09:16 - 如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md
-- 2026-06-30 09:25 - 杨紫大银幕成绩单如何<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md
-- 2026-06-30 09:02 - 德国vs巴拉圭<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md
-- 2026-06-30 09:19 - 巴西绝杀<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md
-
-## 延伸阅读
-
-- 2026-06-30 09:14 - 泰山建135公里刀片刺绳隔离网<br><br> | ??:http://www.share.kurohicncr.top/Article/details/499161.shtml
-- 2026-06-30 09:15 - F1奥地利站赛后复盘<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/51633324188.shtml
-- 2026-06-30 09:06 - 王楚钦孙颖莎混双对手产生<br><br> | ??:https://www.share.kurohicncr.top/Article/details/0897647270.shtml
-- 2026-06-30 09:02 - 披荆斩棘的哥哥<br><br> | ??:https://www.share.minike.top/Article/details/809710285.shtml
-- 2026-06-30 09:13 - 日本遭读秒绝杀 森保一：我水平不够<br><br> | ??:https://www.blog.minike.top/Article/details/29950593617.shtml
-- 2026-06-30 09:21 - 拆解FIFA和世界杯的暗面<br><br> | ??:https://www.share.kurohicncr.top/Article/details/93781.shtml
-- 2026-06-30 09:24 - 巴西绝杀<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/2103118.shtml
-- 2026-06-30 09:26 - 如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/343884994.shtml
-- 2026-06-30 09:29 - 男子醉酒溺水获救后同行人拒协助抬人<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/1807841103.shtml
-- 2026-06-30 09:23 - 德国巴拉圭加时<br><br> | ??:https://www.blog.minike.top/Article/details/54905253.shtml
-- 2026-06-30 09:05 - 王楚钦说配合稍微有些陌生感<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/0875883.shtml
-- 2026-06-30 09:21 - 这种关系可能正在悄悄“催老”你<br><br> | ??:https://www.share.kurohicncr.top/Article/details/8633845.shtml
-- 2026-06-30 09:22 - 啥比桑吉尔夫排位练蓝防（最不抽象的一集）<br><br> | ??:https://www.share.minike.top/Article/details/65896945.shtml
-- 2026-06-30 09:13 - 男子在非洲务工死亡 公司不认可工亡<br><br> | ??:https://www.share.minike.top/Article/details/85092411.shtml
-- 2026-06-30 09:08 - 日本进球<br><br> | ??:https://www.share.minike.top/Article/details/30914.shtml
+<h2>延伸阅读</h2><br>
+<h3>巴拉圭进球</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://www.blog.minike.top/Article/details/85815939.shtml</p><br>
+<h3>点球大战和诺伊尔都救不回德国队</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.share.minike.top/Article/details/92289330933.shtml</p><br>
+<h3>斛珠夫人</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/02363.shtml</p><br>
+<h3>德国巴拉圭进入点球大战</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://www.blog.minike.top/Article/details/14668409.shtml</p><br>
+<h3>曝灰熊将莫兰特交易至开拓者</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/2574993404.shtml</p><br>
+<h3>世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/677073.shtml</p><br>
+<h3>徐亮怒斥世界杯踢假球</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://www.blog.minike.top/Article/details/04838.shtml</p><br>
+<h3>领克900大型SUV值得购买吗?</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://www.blog.minike.top/Article/details/337629086419.shtml</p><br>
+<h3>电影抓特务上映11天破亿</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://www.share.minike.top/Article/details/87116432.shtml</p><br>
+<h3>为什么香港的冲厕水是咸的？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/669611717106.shtml</p><br>
+<h3>收到补税提醒尽快办理 明起有滞纳金</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:http://www.blog.minike.top/Article/details/688483554229.shtml</p><br>
+<h3>沙丘</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:http://www.blog.minike.top/Article/details/86042.shtml</p><br>
+<h3>Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:http://www.share.minike.top/Article/details/80769860875.shtml</p><br>
+<h3>巴西醒醒 这是淘汰赛</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:http://www.blog.minike.top/Article/details/71814552340.shtml</p><br>
+<h3>一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:http://www.blog.minike.top/Article/details/245622006.shtml</p><br>

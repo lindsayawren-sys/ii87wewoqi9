@@ -1,56 +1,47 @@
-# 云南彝良通报县医院女职工生育津贴未及时发放情况：成立调查组进驻相关部门
+<h1>海内外文旅专家香港共探文旅品牌出海之路</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>中新网香港5月16日电 (记者 刘玥晴)“无论我们走到哪里，乡音是根，歌声是桥。愿中国民歌从乡村走向世界，让世界通过音乐读懂中国。”知名歌唱家、中国新艺术音乐创始人龚琳娜15日在香港出席“文韵中外·智旅全球”文旅品牌国际论坛，作主旨演讲时如是说。 当天，第四届香港国际文化创意博览会在香港亚洲国际博览馆开幕，“文韵中外·智旅全球”文旅品牌国际论坛同期举办，海内外文旅专家与行业精英</p><br>
+<h2>正文</h2><br>
+<p>中新网香港5月16日电 (记者 刘玥晴)“无论我们走到哪里，乡音是根，歌声是桥。</p><br>
+<p>愿中国民歌从乡村走向世界，让世界通过音乐读懂中国。</p><br>
+<p>”知名歌唱家、中国新艺术音乐创始人龚琳娜15日在香港出席“文韵中外·智旅全球”文旅品牌国际论坛，作主旨演讲时如是说。</p><br>
+<p>当天，第四届香港国际文化创意博览会在香港亚洲国际博览馆开幕，“文韵中外·智旅全球”文旅品牌国际论坛同期举办，海内外文旅专家与行业精英齐聚一堂，共探文旅品牌出海之路。</p><br>
+<p>香港国际文化创意博览会组委会执行主席、香港国际AI电影节组委会执行主席皮取兵致辞指出，香港是文旅国际化交流无可替代的战略支点，在数字时代，应“以文为魂、以旅为媒、以智为翼”，助力中国文化走向世界。</p><br>
+<p>他强调，AI(人工智能)技术正在重塑文旅传播方式，让文化出海更精准、更高效。</p><br>
+<p>“数字时代，我们必须完成从单向输出到双向互动、从被动展示到主动共鸣的转变。</p><br>
+<p>”凤凰卫视编委、凤凰网资深总编辑邹明在致辞中表示，当文化产品成为能融入当地生活的“用品”和“情绪抚慰剂”时，出海才算真正成功。</p><br>
+<h2>相关推荐</h2><br>
+<h3>网红峡谷5人溺亡 有人提醒会下雨</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md</p><br>
+<h3>庆祝中国共产党成立105周年大会将举行</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md</p><br>
+<h3>领克07GT搭载超跑同源MRC悬架</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md</p><br>
+<h3>中国对日本再出重拳</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md</p><br>
+<h3>“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md</p><br>
+<h3>速度与激情9</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md</p><br>
+<h3>杨紫大银幕成绩单如何</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md</p><br>
+<h3>大蒜晒外面被路过女子连盆端走</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md</p><br>
+<h3>第一次对自信的力量有了实感</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md</p><br>
+<h3>男生180+，有腹肌是什么体验？</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md</p><br>
+<h3>媒体评泰山建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md</p><br>
+<h3>日本进球</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md</p><br>
+<h3>王楚钦孙颖莎vs皮斯特耶库库洛娃</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md</p><br>
+<h3>张雪的一句“是我们”引发岛内热议</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md</p><br>
 
-中新网昆明6月18日电 (王临梓)云南省彝良县人民政府新闻办公室17日晚发布，针对国家医保局通报的“云南省昭通市彝良县人民医院女职工生育津贴申领超一年未发放”问题，彝良县由纪委监委牵头成立调查组，进驻相关部门开展调查。 此前，国家医保局《用人单位未及时发放生育津贴典型案例》指出，近期，国家医保局通过信访渠道收到“云南省昭通市彝良县人民医院女职工生育津贴申领超一年未发放”的网民留
-
-## 正文
-
-中新网昆明6月18日电 (王临梓)云南省彝良县人民政府新闻办公室17日晚发布，针对国家医保局通报的“云南省昭通市彝良县人民医院女职工生育津贴申领超一年未发放”问题，彝良县由纪委监委牵头成立调查组，进驻相关部门开展调查。
-
-此前，国家医保局《用人单位未及时发放生育津贴典型案例》指出，近期，国家医保局通过信访渠道收到“云南省昭通市彝良县人民医院女职工生育津贴申领超一年未发放”的网民留言后，立即启动快核快反。
-
-经彝良县医保部门核实，留言人为彝良县人民医院职工，正常参加职工基本医疗保险及生育保险。
-
-2025年5月19日，彝良县人民医院向彝良县医保局提交留言人的生育津贴报销材料；2025年5月23日，彝良县医保局将留言人的生育津贴25158.87元全额拨付至彝良县人民医院医保代管资金专户，但医院未及时发放。
-
-核查中发现，彝良县人民医院存在未及时足额发放其他12人生育津贴问题。
-
-经医保部门督促指导，该院已于2026年4月9日将13人生育津贴共计200672.7元全额发放至职工个人。
-
-彝良县人民政府新闻办公室表示，该县将在全县范围内举一反三全面排查，对涉及的违法违规问题，将依法依规严肃处理，后续情况会及时公布。
-
-(完)
-
-## 相关推荐
-
-- 2026-06-30 09:27 - 德国队连续三届世界杯无缘16强<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md
-- 2026-06-30 09:02 - 巴西在进攻三区完成210脚传球<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md
-- 2026-06-30 09:28 - 一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md
-- 2026-06-30 09:30 - 全网说丑的玫瑰空调卖了5万台<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md
-- 2026-06-30 09:14 - 《鸣潮》玄方主题曲 MV | 定玄<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md
-- 2026-06-30 09:27 - 爆冷出局！德国点球大战不敌巴拉圭<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md
-- 2026-06-30 09:02 - 爆冷出局！德国点球大战不敌巴拉圭<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md
-- 2026-06-30 09:23 - 周生如故<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md
-- 2026-06-30 09:02 - 德国北部枪击事件致5死<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md
-- 2026-06-30 09:14 - 巴西绝杀<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md
-
-## 延伸阅读
-
-- 2026-06-30 09:06 - 一见倾心<br><br> | ??:https://www.share.kurohicncr.top/Article/details/0965803641.shtml
-- 2026-06-30 09:28 - 商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/21066550.shtml
-- 2026-06-30 09:20 - 电影抓特务上映11天破亿<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/7976174657.shtml
-- 2026-06-30 09:08 - AI手机进入Agent时代<br><br> | ??:https://www.share.minike.top/Article/details/722945203136.shtml
-- 2026-06-30 09:04 - 有人见过武则天的画像吗，非常好奇？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/525579134692.shtml
-- 2026-06-30 09:27 - 巴西在进攻三区完成210脚传球<br><br> | ??:http://www.blog.minike.top/Article/details/93834206314.shtml
-- 2026-06-30 09:10 - 男生180+，有腹肌是什么体验？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/00297591383.shtml
-- 2026-06-30 09:25 - 周生如故<br><br> | ??:http://www.blog.minike.top/Article/details/487614806.shtml
-- 2026-06-30 09:13 - 詹姆斯 勇士<br><br> | ??:https://www.share.kurohicncr.top/Article/details/424439.shtml
-- 2026-06-30 09:04 - 巴西足球能否再现昔日荣光<br><br> | ??:https://www.share.minike.top/Article/details/6239237.shtml
-- 2026-06-30 09:22 - 你的妻子大喷菇—《植物娘大战僵尸》特别篇<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/99536715053.shtml
-- 2026-06-30 09:12 - 内马尔中场休息积极鼓励队友<br><br> | ??:https://www.share.minike.top/Article/details/09760782550.shtml
-- 2026-06-30 09:24 - 如何评价《龙之家族》第三季第二集？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/263171.shtml
-- 2026-06-30 09:19 - 锐评T1战胜KC<br><br> | ??:http://www.blog.minike.top/Article/details/69942344.shtml
-- 2026-06-30 09:29 - 板面：为什么那么多人爱吃？？！<br><br> | ??:http://www.blog.minike.top/Article/details/09090062.shtml
+<h2>延伸阅读</h2><br>
+<h3>《鸣潮》玄方主题曲 MV | 定玄</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:http://www.blog.minike.top/Article/details/6459257530.shtml</p><br>
+<h3>高考结束了，你会让孩子在家玩手机吗？</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://www.blog.minike.top/Article/details/925086644145.shtml</p><br>
+<h3>五哈和他们的朋友</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/522242905.shtml</p><br>
+<h3>女子发现孩子非现任亲生状告前任索赔</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.share.minike.top/Article/details/22495624.shtml</p><br>
+<h3>毕业以后，你最怀念的大学记忆是什么？</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/689958838525.shtml</p><br>
+<h3>男子醉酒溺水获救后同行人拒协助抬人</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/300342.shtml</p><br>
+<h3>恋与深空回应争议</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:http://www.blog.minike.top/Article/details/38569.shtml</p><br>
+<h3>五哈和他们的朋友</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:http://www.share.minike.top/Article/details/709334620430.shtml</p><br>
+<h3>“柠檬茶能换怀表？”</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/85737.shtml</p><br>
+<h3>国务院：稳步推进研究生考试招生改革</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:http://www.share.minike.top/Article/details/4783192257.shtml</p><br>
+<h3>我觉得你是在无中生友</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://www.share.minike.top/Article/details/93654.shtml</p><br>
+<h3>韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://www.share.minike.top/Article/details/1176935.shtml</p><br>
+<h3>蔚来回应高压水枪洗车掉漆</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:http://www.blog.minike.top/Article/details/15647.shtml</p><br>
+<h3>又一家县级医院关停门诊输液大厅</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/46842381.shtml</p><br>
+<h3>可以细成这样？1600万预算，颠覆我认知的改造！</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/80971.shtml</p><br>

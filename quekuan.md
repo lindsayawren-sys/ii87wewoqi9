@@ -1,57 +1,44 @@
-# 《整治涉企侵权信息 优化营商网络环境自律公约》全文发布
+<h1>逆市显韧性！氟化工、锂电爆发，华宝基金化工ETF（516020）盘中上探1.78%！近百亿主力资金抢筹</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>化工板块今日（5月15日）逆市显韧性。反映化工板块整体走势的化工ETF华宝（516020）全天多数时间飘红，盘中场内价格涨幅一度达到1.78%，尾盘随市回落，最终逆市收涨0.1%。 成份股方面，氟化工、锂电等板块大面积走强。截至收盘，多氟多涨停，巨化股份、卫星化学、天赐材料等大涨超3%，三美股份、金发科技、华峰化学等亦涨幅居前。 值得注意的是，尽管近日涨势暂歇，化工板块年初以来</p><br>
+<h2>正文</h2><br>
+<p>化工板块今日（5月15日）逆市显韧性。</p><br>
+<p>反映化工板块整体走势的化工ETF华宝（516020）全天多数时间飘红，盘中场内价格涨幅一度达到1.78%，尾盘随市回落，最终逆市收涨0.1%。</p><br>
+<p>成份股方面，氟化工、锂电等板块大面积走强。</p><br>
+<p>截至收盘，多氟多涨停，巨化股份、卫星化学、天赐材料等大涨超3%，三美股份、金发科技、华峰化学等亦涨幅居前。</p><br>
+<p>值得注意的是，尽管近日涨势暂歇，化工板块年初以来表现仍显著优于大盘。</p><br>
+<p>数据显示，截至今日收盘，化工ETF华宝标的指数细分化工指数年内累计涨幅已达到8.88%，显著优于同期上证指数（4.2%）、沪深300指数（4.96%）等A股主要指数。</p><br>
+<p>数据来源：Wind，取值区间为2026.1.1-2026.5.15，细分化工指数近5个完整年度涨跌幅分别为：2021年，15.72%；2022年，-26.89%；2023年，-23.17%；2024年，-3.83%；2025年，41.09%。</p><br>
+<p>指数成份股构成根据该指数编制规则适时调整，其回测历史业绩不预示指数未来表现。</p><br>
+<h2>相关推荐</h2><br>
+<h3>歌剧老师锐评歌手第6期</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md</p><br>
+<h3>泰山建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md</p><br>
+<h3>爱直接对嘴喝饮料的人天塌了</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md</p><br>
+<h3>毒液2</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md</p><br>
+<h3>教育部披露：高考生篡改7名同学志愿</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md</p><br>
+<h3>王楚钦孙颖莎晋级混双八强</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md</p><br>
+<h3>你的妻子大喷菇—《植物娘大战僵尸》特别篇</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md</p><br>
+<h3>有人见过武则天的画像吗，非常好奇？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md</p><br>
+<h3>上市央企地产商 两年换了三任董事长</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md</p><br>
+<h3>巴拉圭点球大战淘汰德国进16强</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md</p><br>
+<h3>为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md</p><br>
 
-本文转载自：中国证券投资基金业协会 近期，在国家网信办指导下，重点网站平台共同制定《整治涉企侵权信息优化营商网络环境自律公约》（以下简称《公约》）。 《公约》明确网站平台要及时清理侵犯企业家个人权益信息，主动清除已核实的涉企虚假不实信息，加强榜单涉企话题管理，持续优化算法推荐机制，杜绝涉企负面信息“投流”行为，从严管理非法牟利行为，取消经常性发布涉企负面信息“自媒体”账号营利权
-
-## 正文
-
-本文转载自：中国证券投资基金业协会 近期，在国家网信办指导下，重点网站平台共同制定《整治涉企侵权信息优化营商网络环境自律公约》（以下简称《公约》）。
-
-《公约》明确网站平台要及时清理侵犯企业家个人权益信息，主动清除已核实的涉企虚假不实信息，加强榜单涉企话题管理，持续优化算法推荐机制，杜绝涉企负面信息“投流”行为，从严管理非法牟利行为，取消经常性发布涉企负面信息“自媒体”账号营利权限，加强涉事账号处置力度。
-
-国家网信办有关负责人表示，该《公约》的制定发布，有利于凝聚行业共识，强化行业自律，加强涉企侵权信息治理，进一步优化营商网络环境，保护企业和企业家网络合法权益。
-
-下一步，将加强对网站平台的指导督促，扎实推动《公约》落地见效。
-
-同时，欢迎社会各界广泛参与、积极监督，共同营造清朗营商网络环境。
-
-整治涉企侵权信息优化营商网络环境 自律公约 一、清除侵犯个人权益信息。
-
-及时清理泄露企业家个人隐私的信息，严管侮辱谩骂、造谣诽谤企业家的言论。
-
-二、统一同类信息处置标准。
-
-## 相关推荐
-
-- 2026-06-30 09:05 - “柠檬茶能换怀表？”<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md
-- 2026-06-30 09:24 - 恋与深空<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md
-- 2026-06-30 09:06 - 马杜罗账号在纽约发文致谢各国援助<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md
-- 2026-06-30 09:07 - 天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md
-- 2026-06-30 09:04 - 欧洲家电巨头为何输掉了这个夏天<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md
-- 2026-06-30 09:10 - 电影抓特务上映11天破亿<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md
-- 2026-06-30 09:22 - 毒液2<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md
-- 2026-06-30 09:18 - 阿娇瘦了10斤<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md
-- 2026-06-30 09:25 - 全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md
-- 2026-06-30 09:19 - 日本博主：日本足球真的垃圾<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md
-- 2026-06-30 09:04 - 为什么会有「念旧」的心理？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md
-
-## 延伸阅读
-
-- 2026-06-30 09:29 - 韩国球迷凌晨4点接机怒骂主教练<br><br> | ??:http://www.blog.minike.top/Article/details/21277524.shtml
-- 2026-06-30 09:24 - 爆冷出局！德国点球大战不敌巴拉圭<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/014075.shtml
-- 2026-06-30 09:13 - 4种红薯的满分吃法！有手就会…但能让你大为震撼！<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/514078.shtml
-- 2026-06-30 09:04 - 马航370搜寻最新消息<br><br> | ??:http://www.blog.minike.top/Article/details/805262408122.shtml
-- 2026-06-30 09:27 - 巴拉圭进球<br><br> | ??:http://www.share.minike.top/Article/details/71713514.shtml
-- 2026-06-30 09:18 - 日本五次世界杯淘汰赛全败<br><br> | ??:http://www.share.kurohicncr.top/Article/details/14043803688.shtml
-- 2026-06-30 09:12 - 极端热浪席卷欧洲多国，热一热百姓让领导先凉快？<br><br> | ??:http://www.blog.minike.top/Article/details/823814.shtml
-- 2026-06-30 09:13 - 张雪的一句“是我们”引发岛内热议<br><br> | ??:http://www.share.minike.top/Article/details/057156560138.shtml
-- 2026-06-30 09:12 - 考入南大计算机，复读考清北值吗？<br><br> | ??:http://www.blog.minike.top/Article/details/8805453460.shtml
-- 2026-06-30 09:15 - 天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/852083591859.shtml
-- 2026-06-30 09:27 - 庆祝中国共产党成立105周年大会将举行<br><br> | ??:http://www.share.kurohicncr.top/Article/details/731427.shtml
-- 2026-06-30 09:16 - 世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/04327.shtml
-- 2026-06-30 09:16 - 曝iPhone18Pro机密文件现身暗网<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/4225416.shtml
-- 2026-06-30 09:26 - 把毒品藏在哪里，60秒内不会被发现？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/686917.shtml
-- 2026-06-30 09:25 - 武磊：日本队有能力跟任何强队抗衡<br><br> | ??:http://www.share.minike.top/Article/details/49504013.shtml
+<h2>延伸阅读</h2><br>
+<h3>巴西绝杀日本</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:http://www.share.minike.top/Article/details/139910099.shtml</p><br>
+<h3>上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/645821369031.shtml</p><br>
+<h3>巴西2比1日本</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://www.share.minike.top/Article/details/54826965.shtml</p><br>
+<h3>孙颖莎王楚钦晋级8强</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/483296833.shtml</p><br>
+<h3>人民锐评网红诋毁袁隆平造谣企业家</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/7307558.shtml</p><br>
+<h3>媒体：手机测评该挤挤水分了</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.blog.minike.top/Article/details/552440636781.shtml</p><br>
+<h3>德国 传控</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/07614.shtml</p><br>
+<h3>日本主帅：未能夺冠深感抱歉</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://www.share.minike.top/Article/details/26254.shtml</p><br>
+<h3>沉睡花园</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/753906771.shtml</p><br>
+<h3>女儿从清华毕业 爸爸晒出17年对比照</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://www.share.minike.top/Article/details/67131069.shtml</p><br>
+<h3>Melo向柳智敏张元英道歉</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/4636819.shtml</p><br>
+<h3>点球淘汰德国 巴拉圭首都陷入疯狂</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/8101358.shtml</p><br>
+<h3>女子清吧被陌生人投放伟哥</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:http://www.blog.minike.top/Article/details/91570102049.shtml</p><br>
+<h3>送你一朵小红花</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://www.share.minike.top/Article/details/77295.shtml</p><br>
+<h3>欧洲装一台空调有多难</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://www.blog.minike.top/Article/details/5731310653.shtml</p><br>

@@ -1,59 +1,48 @@
-# “托在布上的城市”浙江柯桥：多民族织就共同家园
+<h1>在沪九旬归侨忆南洋岁月：历尽千帆 逐梦前行</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>中新网上海5月16日电 题：在沪九旬归侨忆南洋岁月：历尽千帆 逐梦前行 作者 范宇斌 近期，华侨题材电影《给阿嬷的情书》走红，勾起无数归侨的岁月记忆。在上海，三位九旬南洋归侨近日接受中新网专访，回望漂泊异乡的少年时光，讲述归国逐梦的人生历程，道尽华侨群体刻入骨髓的家国情怀。 1947年，12岁的华侨林住集告别怀着身孕的母亲与年幼的弟弟，随父亲远赴缅甸仰光讨生活，开启颠沛流离的异</p><br>
+<h2>正文</h2><br>
+<p>中新网上海5月16日电 题：在沪九旬归侨忆南洋岁月：历尽千帆 逐梦前行 作者 范宇斌 近期，华侨题材电影《给阿嬷的情书》走红，勾起无数归侨的岁月记忆。</p><br>
+<p>在上海，三位九旬南洋归侨近日接受中新网专访，回望漂泊异乡的少年时光，讲述归国逐梦的人生历程，道尽华侨群体刻入骨髓的家国情怀。</p><br>
+<p>1947年，12岁的华侨林住集告别怀着身孕的母亲与年幼的弟弟，随父亲远赴缅甸仰光讨生活，开启颠沛流离的异乡岁月。</p><br>
+<p>初到仰光，林住集辗转寄居、无奈辍学，幸得远房长辈帮扶才重返校园。</p><br>
+<p>他每日乘牛车奔波至学校，却因家境贫寒吃不上午饭，常独自留守空荡荡的教室，默默抹着眼泪。</p><br>
+<p>一位同学母亲得知后赶到教室，将瘦小的他搂进怀里：“傻孩子，到我家吃饭，不要你钱！</p><br>
+<p>”这份异乡暖意，林住集铭记至今。</p><br>
+<p>后来，归国的念头在林住集心中愈发强烈，他不顾父亲反对，一边读书，一边打工攒路费，晚上背着书包挨家挨户送报纸。</p><br>
+<h2>相关推荐</h2><br>
+<h3>我把队友的7连跪剪成了艺术</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md</p><br>
+<h3>如何评价杨紫白玉兰获奖</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md</p><br>
+<h3>收到补税提醒尽快办理 明起有滞纳金</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md</p><br>
+<h3>男子醉酒溺水获救后同行人拒协助抬人</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md</p><br>
+<h3>网红峡谷5人溺亡 有人提醒会下雨</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md</p><br>
+<h3>德国队回应爆冷淘汰</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md</p><br>
+<h3>小娘惹</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md</p><br>
+<h3>人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md</p><br>
+<h3>德国连续三届世界杯无缘16强</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md</p><br>
+<h3>点球大战</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md</p><br>
+<h3>教育部披露：高考生篡改7名同学志愿</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md</p><br>
+<h3>森保一致歉：世界第一目标没能实现</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md</p><br>
+<h3>内马尔安慰日本球员</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md</p><br>
+<h3>如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md</p><br>
+<h3>怕iPhone涨价的用户已紧急换新</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md</p><br>
 
-中新网绍兴6月21日电 题：“托在布上的城市”浙江柯桥：多民族织就共同家园 作者 项菁 “今年刚拿下巴西市场的大额面料订单。我们正在扩招工人，满足新增市场需求。”近日在浙江省绍兴市柯桥区，柯桥区民族团结进步促进会会长、朝鲜族同胞赵春光受访时说。 柯桥坐拥中国轻纺城，被称为“托在布上的城市”。来自汉族、朝鲜族等55个民族的8.8万名同胞在此扎根立业、成就梦想，其中不少人从事纺织相
-
-## 正文
-
-中新网绍兴6月21日电 题：“托在布上的城市”浙江柯桥：多民族织就共同家园 作者 项菁 “今年刚拿下巴西市场的大额面料订单。
-
-我们正在扩招工人，满足新增市场需求。
-
-”近日在浙江省绍兴市柯桥区，柯桥区民族团结进步促进会会长、朝鲜族同胞赵春光受访时说。
-
-柯桥坐拥中国轻纺城，被称为“托在布上的城市”。
-
-来自汉族、朝鲜族等55个民族的8.8万名同胞在此扎根立业、成就梦想，其中不少人从事纺织相关行业。
-
-赵春光来自吉林，深耕纺织行业29年。
-
-15年前他看中柯桥纺织业发展前景，来此开启创业新路。
-
-从跑市场四处找面料，到办工厂研发面料，赵春光的生意越做越大，如今企业面料稳定供应美国、韩国等国家和地区，年销售额超3亿元。
-
-## 相关推荐
-
-- 2026-06-30 09:01 - MSI应援曲 如果季中成回忆<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md
-- 2026-06-30 09:27 - 警方介入洪明甫死亡威胁<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md
-- 2026-06-30 09:11 - 檀健次王楚然吻戏看热了<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md
-- 2026-06-30 09:02 - 内马尔替补<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md
-- 2026-06-30 09:11 - 内马尔替补<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md
-- 2026-06-30 09:06 - 一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md
-- 2026-06-30 09:22 - 哪部作品、哪本书、哪首歌，值得被一直传下去？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md
-- 2026-06-30 09:14 - 杨某诋毁袁隆平院士科研成果被刑拘<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md
-- 2026-06-30 09:14 - 王健林甩卖超80座万达广场<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md
-- 2026-06-30 09:07 - 巴西绝杀<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md
-- 2026-06-30 09:27 - 德国爆冷点球大战不敌巴拉圭<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md
-- 2026-06-30 09:26 - 索马里女大使：想和中国一起搞事业<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md
-- 2026-06-30 09:02 - 日本队主帅道歉<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md
-
-## 延伸阅读
-
-- 2026-06-30 09:03 - 金鹰奖视后提名预测<br><br> | ??:https://www.blog.minike.top/Article/details/294298.shtml
-- 2026-06-30 09:01 - 免费试吃发差评被店家挂店门避雷<br><br> | ??:http://www.blog.minike.top/Article/details/359726250.shtml
-- 2026-06-30 09:00 - 球评巴西绝杀逆转日本<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/89631251.shtml
-- 2026-06-30 09:10 - 第一次对自信的力量有了实感<br><br> | ??:http://www.share.minike.top/Article/details/399950978.shtml
-- 2026-06-30 09:29 - 库尼亚赛后伸五指嘲讽日本<br><br> | ??:https://www.blog.minike.top/Article/details/8942032618.shtml
-- 2026-06-30 09:06 - 中国代表在联合国点名日本所犯罪行<br><br> | ??:https://www.share.kurohicncr.top/Article/details/102142459883.shtml
-- 2026-06-30 09:16 - 点球淘汰德国 巴拉圭首都陷入疯狂<br><br> | ??:http://www.share.kurohicncr.top/Article/details/764526692.shtml
-- 2026-06-30 09:10 - 为什么香港的冲厕水是咸的？<br><br> | ??:http://www.blog.minike.top/Article/details/1808009.shtml
-- 2026-06-30 09:12 - 内马尔未登场 安切洛蒂赛后回应<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/356681.shtml
-- 2026-06-30 09:13 - 李在明向韩国两大财阀90度鞠躬<br><br> | ??:http://www.blog.minike.top/Article/details/043011.shtml
-- 2026-06-30 09:17 - 日本博主：日本足球真的垃圾<br><br> | ??:https://www.share.kurohicncr.top/Article/details/124729725.shtml
-- 2026-06-30 09:09 - 毒液2<br><br> | ??:http://www.share.kurohicncr.top/Article/details/464060135455.shtml
-- 2026-06-30 09:29 - 李在明90度鞠躬感谢韩国两大财阀<br><br> | ??:https://www.share.kurohicncr.top/Article/details/247503696671.shtml
-- 2026-06-30 09:26 - 为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/059863482553.shtml
-- 2026-06-30 09:04 - 阿娇瘦了10斤<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/97731.shtml
+<h2>延伸阅读</h2><br>
+<h3>《恋与深空》被指触碰民族伤痛红线</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:http://www.share.minike.top/Article/details/092714.shtml</p><br>
+<h3>韩国道歉完日本道歉</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/837004.shtml</p><br>
+<h3>网瘾賊大的阿嬷</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:http://www.blog.minike.top/Article/details/75341.shtml</p><br>
+<h3>我们看到的星星是不是有些已经不存在了？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:http://www.blog.minike.top/Article/details/2186722.shtml</p><br>
+<h3>贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:http://www.blog.minike.top/Article/details/685614646482.shtml</p><br>
+<h3>天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/53948352400.shtml</p><br>
+<h3>森保一致歉：世界第一目标没能实现</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/5868913.shtml</p><br>
+<h3>美团、淘宝闪购、京东外卖达成共识</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/9654032806.shtml</p><br>
+<h3>手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/2996233609.shtml</p><br>
+<h3>如何看待武亮说大学生生活费1500就够用这一言论？</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/934514.shtml</p><br>
+<h3>日本进球</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/57160.shtml</p><br>
+<h3>刘宇宁高情商化解谁站C位</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/033516218.shtml</p><br>
+<h3>租房时你会更看重「住得舒服」，还是「每天通勤更方便」？</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:http://www.share.minike.top/Article/details/276981357159.shtml</p><br>
+<h3>国务院：稳步推进研究生考试招生改革</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/168037.shtml</p><br>
+<h3>四川凉山落石砸毁车辆 3人遇难</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:http://www.share.minike.top/Article/details/46295.shtml</p><br>

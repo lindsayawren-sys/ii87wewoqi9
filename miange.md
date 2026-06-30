@@ -1,57 +1,44 @@
-# 五角大楼或需800亿美元为伊朗战事“埋单”
+<h1>《中国语言资源集·重庆》正式发布 立体呈现巴渝方言全貌</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>中新网重庆5月16日电 (记者 钟旖)作为中国语言资源保护工程(简称“语保工程”)的重要标志性成果，《中国语言资源集·重庆》16日在四川外国语大学正式发布。 该丛书共三卷六册、300余万字，首次系统汇集重庆40个汉语方言点的近10万条第一手语料，为西南官话研究和巴渝文化传承留存下一份珍贵、权威的语言文化档案。 重庆市是实施“语保工程”的四个先行省份之一。重庆市教育委员会二级巡视</p><br>
+<h2>正文</h2><br>
+<p>中新网重庆5月16日电 (记者 钟旖)作为中国语言资源保护工程(简称“语保工程”)的重要标志性成果，《中国语言资源集·重庆》16日在四川外国语大学正式发布。</p><br>
+<p>该丛书共三卷六册、300余万字，首次系统汇集重庆40个汉语方言点的近10万条第一手语料，为西南官话研究和巴渝文化传承留存下一份珍贵、权威的语言文化档案。</p><br>
+<p>重庆市是实施“语保工程”的四个先行省份之一。</p><br>
+<p>重庆市教育委员会二级巡视员卢明伦介绍，自2015年启动“语保工程”相关工作以来，历时十余载，各方力量先后深入重庆所有区县，遴选200余名方言发言人，完成42个调查点的数据采集整理入库，建成重庆语言资源平台，收集音视频文件约30万个。</p><br>
+<p>丛书主编、西南大学文学院副教授孙红举介绍，通过语料逐条核校、团队协作、专家审稿、项目管理等多重举措，《中国语言资源集·重庆》历时数年编纂完成，分语音卷、词汇卷、语法和口头文化卷，每卷各两册。</p><br>
+<p>因濒危汉语方言点、民族语言点未收入书籍，故语音卷完整呈现40个调查点的声韵调系统、连读变调、异读、儿化与小称音、特色音变等内容，配套1000个单字字音对照表，系统展现各调查点的语音全貌；词汇卷汇编40个调查点的1200个词汇对照表，集中呈现重庆各方言点的词汇面貌、共性特征与地域差异；语法和口头文化卷则收录40个调查点的50个语法例句对照表，同步汇集歌谣、故事、谚语、歇后语、谜语等口头文化内容，详实展现方言语法特色与厚重鲜活的巴渝地域文化。</p><br>
+<p>“语言既是文化资源，也是经济资源。</p><br>
+<p>”孙红举称，该书语料兼具抢救性、原创性、可比性，为汉语方言研究留存了珍贵丰富的一手学术资料，也为语言接触与演变史、移民史、巴渝文化与湖湘文化交融溯源等研究提供坚实核心依据；在守护地域文化的同时，书籍也为方言智能语音识别、方言AI大模型训练等前沿应用提供权威语料支撑，将赋能区域语言科技产业创新发展。</p><br>
+<h2>相关推荐</h2><br>
+<h3>法总统候选人：拒绝与中国激烈对抗</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md</p><br>
+<h3>为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md</p><br>
+<h3>科学备孕男女都要上心</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md</p><br>
+<h3>你人生中最艰难的时候是怎么熬过来的？</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md</p><br>
+<h3>诺伊尔尽力了</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md</p><br>
+<h3>本届世界杯已有5名球员被控强奸</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md</p><br>
+<h3>有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md</p><br>
+<h3>花少8要去世界杯举办国</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md</p><br>
+<h3>你这一辈子有没有为进山姆拼过命？</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md</p><br>
+<h3>《贺子珍》</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md</p><br>
+<h3>2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md</p><br>
 
-当地时间18日，美国知情人士称，美国国防部向国会提出，国防部需要800亿美元来“填平”伊朗战事成本和其他相关费用。 消息援引多名匿名美国国会议员说法称，美国防部副部长斯蒂芬·范伯格本周在电话中告知他们这一数字。与此同时，国防部长赫格塞思本周与国会共和党资深参议员会面，谈及额外增加防务拨款事宜。 美国防部官员称，如果不增加拨款，美军今夏开展军事行动的资金可能告罄。 美国和以色列2
-
-## 正文
-
-当地时间18日，美国知情人士称，美国国防部向国会提出，国防部需要800亿美元来“填平”伊朗战事成本和其他相关费用。
-
-消息援引多名匿名美国国会议员说法称，美国防部副部长斯蒂芬·范伯格本周在电话中告知他们这一数字。
-
-与此同时，国防部长赫格塞思本周与国会共和党资深参议员会面，谈及额外增加防务拨款事宜。
-
-美国防部官员称，如果不增加拨款，美军今夏开展军事行动的资金可能告罄。
-
-美国和以色列2月底对伊朗发起军事打击。
-
-美国总统特朗普3月19日证实，国防部向国会申请追加约2000亿美元预算，用以支持对伊朗的军事行动。
-
-不过，该申请随即遭到一些国会议员强烈反对。
-
-消息称，美国国会议员一直向政府施压，要求其就伊朗战事成本提供具体数字。
-
-## 相关推荐
-
-- 2026-06-30 09:25 - 木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md
-- 2026-06-30 09:14 - “草莓月亮”浪漫现身<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md
-- 2026-06-30 09:02 - 男子醉酒溺水获救后同行人拒协助抬人<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md
-- 2026-06-30 09:18 - 2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md
-- 2026-06-30 09:17 - 2021湖南卫视跨年演唱会<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md
-- 2026-06-30 09:04 - 梅德韦杰夫列举俄罗斯面临的七大挑战<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md
-- 2026-06-30 09:13 - 热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md
-- 2026-06-30 09:21 - 如何评价《龙之家族》第三季第二集？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md
-- 2026-06-30 09:18 - 德国队回应爆冷淘汰<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md
-- 2026-06-30 09:02 - 李准基参加文彩元婚礼<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md
-- 2026-06-30 09:14 - Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md
-
-## 延伸阅读
-
-- 2026-06-30 09:23 - 女心理师<br><br> | ??:https://www.share.kurohicncr.top/Article/details/6930007026.shtml
-- 2026-06-30 09:00 - 诺伊尔尽力了<br><br> | ??:http://www.share.kurohicncr.top/Article/details/02786.shtml
-- 2026-06-30 09:15 - 点球大战<br><br> | ??:http://www.blog.minike.top/Article/details/8545970050.shtml
-- 2026-06-30 09:21 - 租房时你会更看重「住得舒服」，还是「每天通勤更方便」？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/68932278.shtml
-- 2026-06-30 09:14 - 三星投资计划<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/283962228468.shtml
-- 2026-06-30 09:16 - 曝娱乐圈大部分明星失业<br><br> | ??:http://www.share.minike.top/Article/details/90889751221.shtml
-- 2026-06-30 09:15 - 如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？<br><br> | ??:https://www.share.minike.top/Article/details/915660.shtml
-- 2026-06-30 09:15 - 爱直接对嘴喝饮料的人天塌了<br><br> | ??:https://www.blog.minike.top/Article/details/933531.shtml
-- 2026-06-30 09:29 - 如何看待武亮说大学生生活费1500就够用这一言论？<br><br> | ??:http://www.blog.minike.top/Article/details/692833.shtml
-- 2026-06-30 09:16 - 杨紫肖战余生请多指教拍立得<br><br> | ??:http://www.share.minike.top/Article/details/959558.shtml
-- 2026-06-30 09:29 - 宜宾地震食客避难后折返 无人逃单<br><br> | ??:http://www.share.kurohicncr.top/Article/details/32607924297.shtml
-- 2026-06-30 09:08 - 美人鱼<br><br> | ??:http://www.share.minike.top/Article/details/897448.shtml
-- 2026-06-30 09:18 - 失明的我带老妈去了趟“火星”<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/7318292401.shtml
-- 2026-06-30 09:06 - 全球芯片巨头史诗级扩产<br><br> | ??:https://www.share.kurohicncr.top/Article/details/233031353885.shtml
-- 2026-06-30 09:26 - 男子在京东买到“同仁堂”假药<br><br> | ??:https://www.share.minike.top/Article/details/5990359316.shtml
+<h2>延伸阅读</h2><br>
+<h3>德国连续三届世界杯无缘16强</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:http://www.share.minike.top/Article/details/664623506.shtml</p><br>
+<h3>不开心就去看三年前的购物订单</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:http://www.share.minike.top/Article/details/849414068604.shtml</p><br>
+<h3>电影抓特务上映11天破亿</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://www.share.minike.top/Article/details/908875524.shtml</p><br>
+<h3>女子遭下药退赔偿拟追刑责</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://www.blog.minike.top/Article/details/394526.shtml</p><br>
+<h3>点球大战 残酷</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/977746074.shtml</p><br>
+<h3>外国游客开始涌入中国农村</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://www.blog.minike.top/Article/details/96437.shtml</p><br>
+<h3>女子遭下药退赔偿拟追刑责</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:http://www.blog.minike.top/Article/details/3094766.shtml</p><br>
+<h3>齐思钧回复张月</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://www.blog.minike.top/Article/details/63264.shtml</p><br>
+<h3>拆解FIFA和世界杯的暗面</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:http://www.share.minike.top/Article/details/2818174517.shtml</p><br>
+<h3>这几秒成世界杯最值钱广告位</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://www.share.minike.top/Article/details/22447651742.shtml</p><br>
+<h3>金刚川</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://www.blog.minike.top/Article/details/537553.shtml</p><br>
+<h3>男子P图现任妻子照片冒充前妻</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:http://www.blog.minike.top/Article/details/3542278.shtml</p><br>
+<h3>健全中小学教师工资长效联动机制</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/03601165231.shtml</p><br>
+<h3>发明linux、python、redis、nginx、sqlite的人算不算天才？</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/32472781064.shtml</p><br>
+<h3>日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/06077449426.shtml</p><br>

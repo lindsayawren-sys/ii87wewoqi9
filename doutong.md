@@ -1,60 +1,44 @@
-# 油菜地变“致富田”——多地油菜产业发展观察
+<h1>香港餐饮界寻味宁夏觅商机</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>中新网银川5月16日电 (记者 杨迪)香港餐饮联业协会商机考察活动5月12日至16日在宁夏举办，30余名香港餐饮业界代表寻味宁夏元素，探寻合作商机。 活动期间，香港餐饮业界代表走进供港蔬菜基地、食用菌产业园、葡萄酒庄，了解宁夏特色产业发展情况。 “香港的餐饮消费者非常注重营养与健康，这次宁夏之行我了解到当地有许多天然的富硒农产品，希望能将这些产品引进香港的餐饮市场。”香港餐饮联</p><br>
+<h2>正文</h2><br>
+<p>中新网银川5月16日电 (记者 杨迪)香港餐饮联业协会商机考察活动5月12日至16日在宁夏举办，30余名香港餐饮业界代表寻味宁夏元素，探寻合作商机。</p><br>
+<p>活动期间，香港餐饮业界代表走进供港蔬菜基地、食用菌产业园、葡萄酒庄，了解宁夏特色产业发展情况。</p><br>
+<p>“香港的餐饮消费者非常注重营养与健康，这次宁夏之行我了解到当地有许多天然的富硒农产品，希望能将这些产品引进香港的餐饮市场。</p><br>
+<p>”香港餐饮联业协会主席、富临集团执行董事杨振年表示，宁夏的不少农产品在风味独特性与供应链成熟度间已找到平衡，期待香港、宁夏两地后续保持沟通，探索具体项目的可行性。</p><br>
+<p>活动中，香港餐饮业界代表品鉴宁夏特色美食，参访宁夏餐饮机构，并与当地餐饮从业者交流心得。</p><br>
+<p>入口即融的羊肉、凉拌枸杞苗、高品质葡萄酒等为香港代表留下深刻的印象。</p><br>
+<p>香港餐饮联业协会副主席、兴顺(亚洲)有限公司董事总经理曾铭健表示，宁夏葡萄酒产区的“酒庄+文旅”模式成效显著，其“风土”理念为餐饮业提供了“产品+场景”的新启发。</p><br>
+<p>“沙葱、苦苦菜、枸杞苗，这三道宁夏特色菜让我感到惊艳。</p><br>
+<h2>相关推荐</h2><br>
+<h3>日本球迷被强行披上巴西国旗</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md</p><br>
+<h3>我和我的家乡</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md</p><br>
+<h3>日本五次世界杯淘汰赛全败</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md</p><br>
+<h3>韩国球迷凌晨4点接机怒骂主教练</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md</p><br>
+<h3>我们看到的星星是不是有些已经不存在了？</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md</p><br>
+<h3>卖菜老人获博主帮助后遇车祸去世</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md</p><br>
+<h3>感动全网的699分女生想报考清华</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md</p><br>
+<h3>库尼亚赛后伸五指嘲讽日本</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md</p><br>
+<h3>德国队回应爆冷淘汰</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md</p><br>
+<h3>国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md</p><br>
+<h3>库尼亚赛后伸五指嘲讽日本</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md</p><br>
 
-当前正值“三夏”农忙时节，油菜收获接近尾声。作为我国第一大油料作物，今年各地油菜种植效益如何？怎样增产提质？记者在陕西、江西、湖南等地进行了实地调研。 夏至前夕，江西省樟树市吴城乡慧兰家庭农场560亩油菜迎来集中收获。看着收割机在农田里穿梭往返的场景，农场负责人杨慧兰黝黑的脸上满是笑意：“除去种子、化肥、机收成本，今年每亩油菜纯收益近260元，农场增收10多万元！” 慧兰家庭农
-
-## 正文
-
-当前正值“三夏”农忙时节，油菜收获接近尾声。
-
-作为我国第一大油料作物，今年各地油菜种植效益如何？
-
-怎样增产提质？
-
-记者在陕西、江西、湖南等地进行了实地调研。
-
-夏至前夕，江西省樟树市吴城乡慧兰家庭农场560亩油菜迎来集中收获。
-
-看着收割机在农田里穿梭往返的场景，农场负责人杨慧兰黝黑的脸上满是笑意：“除去种子、化肥、机收成本，今年每亩油菜纯收益近260元，农场增收10多万元！
-
-” 慧兰家庭农场原先只种一季鲜食甘薯，每年8到10月收获后，几百亩土地要“闲置”小半年。
-
-2025年10月，在樟树市农业农村局技术人员的指导下，由中国农业科学院研发的高产高油优质油菜良种在她的农场“落地生根”。
-
-## 相关推荐
-
-- 2026-06-30 09:02 - 周冬雨多次说演不了话剧文城<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md
-- 2026-06-30 09:13 - 巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md
-- 2026-06-30 09:15 - 王楚钦孙颖莎晋级混双八强<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md
-- 2026-06-30 09:07 - 明星大侦探第四季<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md
-- 2026-06-30 09:25 - 哈弗茨头球破门<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md
-- 2026-06-30 09:15 - 张碧晨一开口梦回逐玉<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md
-- 2026-06-30 09:17 - 马航MH370传来最新消息<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md
-- 2026-06-30 09:22 - 女子遭家暴逃跑致丈夫身亡二审细节<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md
-- 2026-06-30 09:26 - 【大鸣王潮1566】真拿你没办法<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md
-- 2026-06-30 09:04 - 檀健次王楚然吻戏看热了<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md
-- 2026-06-30 09:27 - 荷兰VS摩洛哥<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md
-- 2026-06-30 09:19 - F1奥地利站赛后复盘<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md
-- 2026-06-30 09:15 - 奔跑吧·黄河篇第二季<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md
-- 2026-06-30 09:06 - 巴拉圭点球大战淘汰德国进16强<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md
-
-## 延伸阅读
-
-- 2026-06-30 09:01 - 四川宜宾地震为何震感明显<br><br> | ??:http://www.share.minike.top/Article/details/001321434.shtml
-- 2026-06-30 09:28 - 不开心就去看三年前的购物订单<br><br> | ??:http://www.share.minike.top/Article/details/04461009.shtml
-- 2026-06-30 09:11 - 【大鸣王潮1566】真拿你没办法<br><br> | ??:http://www.share.minike.top/Article/details/2745189798.shtml
-- 2026-06-30 09:21 - 如何改变自己太负责任的性格?<br><br> | ??:http://www.blog.minike.top/Article/details/8197297.shtml
-- 2026-06-30 09:03 - 内马尔替补<br><br> | ??:https://www.blog.minike.top/Article/details/58877225168.shtml
-- 2026-06-30 09:28 - 自然光｜papi酱&窦文涛：驴与跑步机<br><br> | ??:http://www.share.kurohicncr.top/Article/details/1290849.shtml
-- 2026-06-30 09:21 - 德国4比5巴拉圭<br><br> | ??:https://www.share.kurohicncr.top/Article/details/74501805.shtml
-- 2026-06-30 09:19 - 杨紫被质疑未使用原名<br><br> | ??:https://www.share.minike.top/Article/details/760141.shtml
-- 2026-06-30 09:25 - 锐评：网红不能困在无底线逐利里<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/847379014.shtml
-- 2026-06-30 09:12 - 王灿兮被烫伤两年后维权成功<br><br> | ??:https://www.share.kurohicncr.top/Article/details/942803765367.shtml
-- 2026-06-30 09:27 - 高质量发展看新疆<br><br> | ??:https://www.share.minike.top/Article/details/816993.shtml
-- 2026-06-30 09:09 - 感动全网的699分女生想报考清华<br><br> | ??:http://www.share.kurohicncr.top/Article/details/901055.shtml
-- 2026-06-30 09:23 - 一见倾心<br><br> | ??:http://www.share.minike.top/Article/details/636239841.shtml
-- 2026-06-30 09:06 - 世界杯欧洲队7战南美仅1胜<br><br> | ??:https://www.blog.minike.top/Article/details/96168.shtml
-- 2026-06-30 09:23 - 中国代表在联合国点名日本所犯罪行<br><br> | ??:https://www.share.minike.top/Article/details/33643266.shtml
+<h2>延伸阅读</h2><br>
+<h3>男生180+，有腹肌是什么体验？</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/334731232.shtml</p><br>
+<h3>金价跳水 水贝市场显现出“两重天”</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:http://www.share.minike.top/Article/details/706630.shtml</p><br>
+<h3>收到补税提醒尽快办理 明起有滞纳金</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://www.share.minike.top/Article/details/087467660255.shtml</p><br>
+<h3>锐评T1战胜KC</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://www.blog.minike.top/Article/details/2416406165.shtml</p><br>
+<h3>你这一辈子有没有为进山姆拼过命？</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://www.share.minike.top/Article/details/06033726.shtml</p><br>
+<h3>一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/00848350.shtml</p><br>
+<h3>电子游戏中有哪些关于武器的“刻板印象”？</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/9911300828.shtml</p><br>
+<h3>刘宇宁高情商化解谁站C位</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/60570562.shtml</p><br>
+<h3>热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:http://www.share.minike.top/Article/details/6409369.shtml</p><br>
+<h3>沉睡花园</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:http://www.share.minike.top/Article/details/38940.shtml</p><br>
+<h3>妻子撞死家暴丈夫案二审案情反转</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:http://www.share.minike.top/Article/details/613831.shtml</p><br>
+<h3>周生如故</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://www.blog.minike.top/Article/details/85333.shtml</p><br>
+<h3>健全中小学教师工资长效联动机制</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/48311.shtml</p><br>
+<h3>董卿母亲癌症去世</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:http://www.share.minike.top/Article/details/80516916.shtml</p><br>
+<h3>2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:http://www.blog.minike.top/Article/details/35014778818.shtml</p><br>

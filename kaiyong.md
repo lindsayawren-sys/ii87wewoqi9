@@ -1,60 +1,38 @@
-# “吴哥粽香，端午情长”文化主题活动在柬埔寨举办
+<h1>广西柳州螺蛳宴创新菜大赛 炒粉、猪扒、面包皆可螺蛳味</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>发布时间：2026年05月15日 23:12 来源：中国新闻网 5月15日，2026柳州螺蛳创新菜大赛在广西柳州文博旅游艺术月开幕式上启动。螺蛳全家福、螺蛳炒粉、螺蛳猪扒、螺蛳面包等约60样柳州螺蛳创新菜现场展出，并设置免费试吃、互动打卡环节，吸引游客品尝“舌尖上的柳州”。(林馨 制作 乐小敏） 责任编辑：【李骏】</p><br>
+<h2>正文</h2><br>
+<p>发布时间：2026年05月15日 23:12 来源：中国新闻网 5月15日，2026柳州螺蛳创新菜大赛在广西柳州文博旅游艺术月开幕式上启动。</p><br>
+<p>螺蛳全家福、螺蛳炒粉、螺蛳猪扒、螺蛳面包等约60样柳州螺蛳创新菜现场展出，并设置免费试吃、互动打卡环节，吸引游客品尝“舌尖上的柳州”。</p><br>
+<p>(林馨 制作 乐小敏） 责任编辑：【李骏】</p><br>
+<h2>相关推荐</h2><br>
+<h3>世界杯欧洲队7战南美仅1胜</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md</p><br>
+<h3>外国游客开始涌入中国农村</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md</p><br>
+<h3>张碧晨一开口梦回逐玉</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md</p><br>
+<h3>曝娱乐圈大部分明星失业</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md</p><br>
+<h3>德国队回应爆冷淘汰</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md</p><br>
+<h3>高考结束，该不该外出打工体验？</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md</p><br>
+<h3>世界杯巴拉圭点球淘汰德国</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md</p><br>
+<h3>韩国世界杯出局是主帅一个人的锅吗</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md</p><br>
+<h3>欧洲民众抢购空调降温</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md</p><br>
+<h3>hanser X 赖美云《室内系的Track Maker》</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md</p><br>
 
-中新网金边6月18日电 (记者 杨强)6月17日，“吴哥粽香，端午情长”文化主题活动在柬埔寨皇家艺术大学举办。该活动由中国和平发展基金会驻柬办事处、柬埔寨王家研究院孔子学院、第二批“友谊之桥”广西志愿服务队及柬中关系发展学会联合主办，是“丝路心相通”中柬情相连文化交流活动之一。 中国和平发展基金会驻柬办事处主任王亚辉、柬埔寨王家研究院孔子学院中方院长吴滔、柬埔寨皇家艺术大学副校
-
-## 正文
-
-中新网金边6月18日电 (记者 杨强)6月17日，“吴哥粽香，端午情长”文化主题活动在柬埔寨皇家艺术大学举办。
-
-该活动由中国和平发展基金会驻柬办事处、柬埔寨王家研究院孔子学院、第二批“友谊之桥”广西志愿服务队及柬中关系发展学会联合主办，是“丝路心相通”中柬情相连文化交流活动之一。
-
-中国和平发展基金会驻柬办事处主任王亚辉、柬埔寨王家研究院孔子学院中方院长吴滔、柬埔寨皇家艺术大学副校长彭西塔、柬中关系发展学会会长谢莫尼勒等中柬嘉宾以及近百名师生参加活动，通过美食制作、艺术体验与民俗展示，进一步增进两国人民相互理解，深化传统友谊。
-
-王亚辉在致辞中表示，柬埔寨安桑粽和中国端午粽形制相近，印证中柬饮食文化交融互通。
-
-她说，青年是文明交流的使者，是两国友好未来的建设者。
-
-举办此次端午交流活动，旨在以节日为纽带，共同领略中华传统民俗，搭建一座中柬人民尤其是青年人相知、相识、相融的文化桥梁。
-
-彭西塔表示，端午节是中华民族重要的传统节日之一，柬中粽子共同承载着孝亲团圆、传承文脉的美好寓意。
-
-此次活动通过分享两国粽子的制作传统与文化内涵，不仅进一步认识彼此丰富多彩的文化特色，也进一步加强两国人民之间的友谊与合作，推动柬中民心相通不断迈向新高度。
-
-## 相关推荐
-
-- 2026-06-30 09:03 - 日本进球<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md
-- 2026-06-30 09:26 - 失明的我带老妈去了趟“火星”<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md
-- 2026-06-30 09:25 - 安切洛蒂 换人<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md
-- 2026-06-30 09:22 - 中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md
-- 2026-06-30 09:19 - 金刚川<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md
-- 2026-06-30 09:02 - 领克07GT搭载超跑同源MRC悬架<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md
-- 2026-06-30 09:08 - 德国队连续三届世界杯无缘16强<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md
-- 2026-06-30 09:13 - 一生一世<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md
-- 2026-06-30 09:00 - 对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md
-- 2026-06-30 09:14 - 孙兴慜道歉<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md
-- 2026-06-30 09:25 - 被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md
-- 2026-06-30 09:02 - 当我知道豆包有后台审核人员<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md
-- 2026-06-30 09:03 - 四川宜宾地震为何震感明显<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md
-- 2026-06-30 09:05 - 2021江苏卫视跨年演唱会<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md
-
-## 延伸阅读
-
-- 2026-06-30 09:05 - 毒液2<br><br> | ??:http://www.share.minike.top/Article/details/07678.shtml
-- 2026-06-30 09:08 - 老人卖菜获博主帮助后遇车祸去世<br><br> | ??:http://www.share.kurohicncr.top/Article/details/71795111120.shtml
-- 2026-06-30 09:24 - 手底下人带不动怎么办？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/62983.shtml
-- 2026-06-30 09:07 - 四川宜宾地震为何震感明显<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/685806.shtml
-- 2026-06-30 09:17 - 明星大侦探第一季<br><br> | ??:https://www.share.minike.top/Article/details/72626583.shtml
-- 2026-06-30 09:16 - 天道<br><br> | ??:http://www.blog.minike.top/Article/details/880624.shtml
-- 2026-06-30 09:11 - 手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/69462155644.shtml
-- 2026-06-30 09:06 - 热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/0516775619.shtml
-- 2026-06-30 09:00 - 巴西绝杀日本<br><br> | ??:https://www.blog.minike.top/Article/details/180488.shtml
-- 2026-06-30 09:15 - 亚洲球队全部出局<br><br> | ??:http://www.blog.minike.top/Article/details/09026748495.shtml
-- 2026-06-30 09:03 - 日本主帅赛后回应淘汰出局<br><br> | ??:http://www.blog.minike.top/Article/details/5536830498.shtml
-- 2026-06-30 09:15 - 董卿父亲报纸上发文悼念亡妻<br><br> | ??:https://www.share.kurohicncr.top/Article/details/338867.shtml
-- 2026-06-30 09:10 - 上市央企地产商 两年换了三任董事长<br><br> | ??:http://www.share.minike.top/Article/details/164848.shtml
-- 2026-06-30 09:23 - 咕嘎万能小摊1：沉浸式制作惠灵顿牛排<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/948365.shtml
-- 2026-06-30 09:07 - 请回答王牌2019<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/183784697324.shtml
+<h2>延伸阅读</h2><br>
+<h3>亚洲球队全部告别世界杯</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://www.share.minike.top/Article/details/68074551309.shtml</p><br>
+<h3>发明linux、python、redis、nginx、sqlite的人算不算天才？</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://www.blog.minike.top/Article/details/0788644039.shtml</p><br>
+<h3>日本淘汰</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/8371467.shtml</p><br>
+<h3>王欣瑜连续4年晋级温网第二轮</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/36620299871.shtml</p><br>
+<h3>荀彧和曹操反目成仇的根本原因是什么？</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/322233989544.shtml</p><br>
+<h3>有什么好的高中网课推荐吗？</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:http://www.blog.minike.top/Article/details/486401.shtml</p><br>
+<h3>啥比桑吉尔夫排位练蓝防（最不抽象的一集）</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/667163246996.shtml</p><br>
+<h3>苗族银饰</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:http://www.share.minike.top/Article/details/425406.shtml</p><br>
+<h3>这一刀 会很帅</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://www.blog.minike.top/Article/details/28130562673.shtml</p><br>
+<h3>巴西把自己踢晕了</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://www.share.minike.top/Article/details/0417767293.shtml</p><br>
+<h3>追梦拒绝2770万美元球员选项</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://www.share.minike.top/Article/details/313464.shtml</p><br>
+<h3>现在叛逆期的孩子最怕的是什么？</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://www.share.minike.top/Article/details/51267253709.shtml</p><br>
+<h3>巴拉圭点球大战淘汰德国进16强</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/56288392453.shtml</p><br>
+<h3>德国队世界杯点球大战首败</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://www.blog.minike.top/Article/details/30311.shtml</p><br>
+<h3>存储芯片龙头提示风险</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/021307.shtml</p><br>

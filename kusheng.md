@@ -1,56 +1,47 @@
-# 在对新兴市场作出裁决之前，MSCI对印尼的透明度问题提出了新的担忧
+<h1>“算力网要来了”冲上热搜，A股龙头将建“Token工厂”，受益股一览（附股）</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>“Token工厂”这一发端于英伟达GTC2026大会的前沿概念，正以惊人速度在中国从理论走向大规模商业落地。 5月17日，中国电信在全国层面推出系列试商用Token套餐，向开发者及中小微企业客户、个人及家庭客户、Token生态合作伙伴，提供差异化套餐服务。个人及家庭月费9.9元/1000万Tokens起，开发者及中小微企业月费39.9元/1500万Tokens起。 此前，上海电</p><br>
+<h2>正文</h2><br>
+<p>“Token工厂”这一发端于英伟达GTC2026大会的前沿概念，正以惊人速度在中国从理论走向大规模商业落地。</p><br>
+<p>5月17日，中国电信在全国层面推出系列试商用Token套餐，向开发者及中小微企业客户、个人及家庭客户、Token生态合作伙伴，提供差异化套餐服务。</p><br>
+<p>个人及家庭月费9.9元/1000万Tokens起，开发者及中小微企业月费39.9元/1500万Tokens起。</p><br>
+<p>此前，上海电信已在当地推出Token套餐体系，成为上海首个发布Token套餐的运营商。</p><br>
+<p>而就在两天前，国内AI算力龙头企业弘信电子（300657.SZ）联手无锡高新区打造的江苏省内首个华为昇腾384超节点算力集群，签约落户无锡。</p><br>
+<p>与此同时，以华为超节点算力集群为首期基础设施，弘信电子将在无锡建立一座大规模“Token工厂”。</p><br>
+<p>这将成为规模化、高性能“国芯国模”算力集群新样板。</p><br>
+<p>更早之前，中国电信宁夏分公司2026年“Token工厂”生成能力服务集中采购项目标包一已公布中标候选人，整体项目预估规模达164.51亿元（不含税），含税规模174.38亿元。</p><br>
+<h2>相关推荐</h2><br>
+<h3>泰山景区回应修建刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md</p><br>
+<h3>俄乌双方伤亡近180万人</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md</p><br>
+<h3>商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md</p><br>
+<h3>世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md</p><br>
+<h3>点球大战和诺伊尔都救不回德国队</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md</p><br>
+<h3>《恋与深空》被指触碰民族伤痛红线</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md</p><br>
+<h3>本届世界杯已有5名球员被控强奸</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md</p><br>
+<h3>《贺子珍》</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md</p><br>
+<h3>快递到家不能这样拆</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md</p><br>
+<h3>中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md</p><br>
+<h3>2021江苏卫视跨年演唱会</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md</p><br>
+<h3>英语考了145的人竟然教数学</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md</p><br>
+<h3>刘宇宁高情商化解谁站C位</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md</p><br>
+<h3>这种关系可能正在悄悄“催老”你</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md</p><br>
 
-指数提供商MSCI周四进一步对印尼的投资吸引力表示担忧，指出其股权结构透明度有限且存在协同交易行为，这对全球表现最差的主要股市而言又是一记重击。 这一警告发布之际，MSCI将于下周决定是否将印尼的市场分类从“新兴市场”下调至“前沿市场”，此举可能引发高达130亿美元的资金外流。 自今年1月MSCI指出的透明度问题并警告可能将其市场分类下调至前沿市场以来，印尼资本市场便一路暴跌。
-
-## 正文
-
-指数提供商MSCI周四进一步对印尼的投资吸引力表示担忧，指出其股权结构透明度有限且存在协同交易行为，这对全球表现最差的主要股市而言又是一记重击。
-
-这一警告发布之际，MSCI将于下周决定是否将印尼的市场分类从“新兴市场”下调至“前沿市场”，此举可能引发高达130亿美元的资金外流。
-
-自今年1月MSCI指出的透明度问题并警告可能将其市场分类下调至前沿市场以来，印尼资本市场便一路暴跌。
-
-在周四发布的市场可进入性评估报告中，MSCI将印尼的信息流通标准下调至“负面”，这反映出股权数据和市场活动的不透明性，这种不透明性不仅阻碍了合理的价格形成，也限制了全球投资者评估企业真实流通股的能力。
-
-1月份的警告促使当局推出了一系列改革措施，包括将上市公司的最低流通股比例提高一倍至15%，而交易所和监管机构的高层管理人员也在1月的一个下午集体辞职。
-
-4月，MSCI延长了对印尼市场的审查，并于5月将其指数中剔除了六家公司，其中大多数与大亨有关，导致股价再次大幅下跌。
-
-作为全球最大的市场指数提供商之一，MSCI的降级决定将迫使被动型投资基金抛售股票，并给以MSCI指数为基准的主动型基金经理带来降低持仓的压力。
-
-责任编辑：王永生
-
-## 相关推荐
-
-- 2026-06-30 09:18 - 被巴西绝杀后 日球员田中碧跪地痛哭<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md
-- 2026-06-30 09:19 - 【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md
-- 2026-06-30 09:13 - 安切洛蒂 换人<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md
-- 2026-06-30 09:22 - 你这一辈子有没有为进山姆拼过命？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md
-- 2026-06-30 09:24 - 贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md
-- 2026-06-30 09:03 - “以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md
-- 2026-06-30 09:12 - 巴西把自己踢晕了<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md
-- 2026-06-30 09:27 - 【Reaction】女生最少的5款游戏<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md
-- 2026-06-30 09:27 - 刘宇宁是去进货了吗<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md
-- 2026-06-30 09:28 - 啥比桑吉尔夫排位练蓝防（最不抽象的一集）<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md
-
-## 延伸阅读
-
-- 2026-06-30 09:02 - 美媒：美军第五舰队司令部已无法使用<br><br> | ??:http://www.share.kurohicncr.top/Article/details/0192885.shtml
-- 2026-06-30 09:03 - 感动全网的699分女生想报考清华<br><br> | ??:https://www.blog.minike.top/Article/details/03773045177.shtml
-- 2026-06-30 09:18 - 日耳曼拖拉机<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/11971601.shtml
-- 2026-06-30 09:29 - 又一家县级医院关停门诊输液大厅<br><br> | ??:https://www.share.minike.top/Article/details/794279.shtml
-- 2026-06-30 09:16 - 这一刀 会很帅<br><br> | ??:https://www.blog.minike.top/Article/details/031482096137.shtml
-- 2026-06-30 09:20 - 千与千寻<br><br> | ??:http://www.blog.minike.top/Article/details/749203302276.shtml
-- 2026-06-30 09:09 - 齐思钧回复张月<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/76522741728.shtml
-- 2026-06-30 09:20 - 考入南大计算机，复读考清北值吗？<br><br> | ??:http://www.blog.minike.top/Article/details/186473368362.shtml
-- 2026-06-30 09:28 - HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/3621688177.shtml
-- 2026-06-30 09:06 - 我和我的家乡<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/34950873142.shtml
-- 2026-06-30 09:03 - 2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/69090807.shtml
-- 2026-06-30 09:13 - 湖北云南的这些涉汛信息都是假的<br><br> | ??:https://www.share.minike.top/Article/details/857741.shtml
-- 2026-06-30 09:07 - 武磊：日本队有能力跟任何强队抗衡<br><br> | ??:https://www.share.kurohicncr.top/Article/details/56927.shtml
-- 2026-06-30 09:10 - 巴西醒醒 这是淘汰赛<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/52018717680.shtml
-- 2026-06-30 09:07 - 乔家的儿女<br><br> | ??:https://www.share.kurohicncr.top/Article/details/0961189.shtml
+<h2>延伸阅读</h2><br>
+<h3>你这一辈子有没有为进山姆拼过命？</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/9616386.shtml</p><br>
+<h3>赵今麦因“瘦而不柴”的体态出圈</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:http://www.share.minike.top/Article/details/078153.shtml</p><br>
+<h3>电子游戏中有哪些关于武器的“刻板印象”？</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/0986875078.shtml</p><br>
+<h3>又一家县级医院关停门诊输液大厅</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/43338.shtml</p><br>
+<h3>这几秒成世界杯最值钱广告位</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://www.blog.minike.top/Article/details/868159005.shtml</p><br>
+<h3>木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:http://www.share.minike.top/Article/details/87221923.shtml</p><br>
+<h3>藤森庆子赢得秘鲁总统选举</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://www.blog.minike.top/Article/details/45882.shtml</p><br>
+<h3>泰山景区回应修建刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/50995515.shtml</p><br>
+<h3>我把队友的7连跪剪成了艺术</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:https://www.blog.minike.top/Article/details/09642504946.shtml</p><br>
+<h3>歌剧老师锐评歌手第6期</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://www.share.minike.top/Article/details/815982.shtml</p><br>
+<h3>哈弗茨头球破门</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/70785.shtml</p><br>
+<h3>日本反击率先破门</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://www.blog.minike.top/Article/details/831477594.shtml</p><br>
+<h3>德国队世界杯点球大战首败</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:https://www.blog.minike.top/Article/details/140484354.shtml</p><br>
+<h3>韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/023701407.shtml</p><br>
+<h3>为什么纣王似乎对周文王的扩张完全无动于衷？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/13467893635.shtml</p><br>

@@ -1,56 +1,40 @@
-# “苏超”联赛上演燃情对决
+<h1>印度上调燃油价格以应对供应冲击</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>随着中东紧张局势导致霍尔木兹海峡航运持续受阻，印度国有燃油零售商终于打破数月来的价格冻结，宣布将汽油和柴油价格每升上调3卢比。作为全球第三大石油进口国和消费国，印度高度依赖中东原油供应，海峡运输中断对其能源安全构成严重威胁。此前，印度石油公司等国有企业在大选期间为稳定物价而选择自行消化成本上涨压力，但随着国际油价持续攀升和卢比汇率走弱，国有零售商已不堪重负。此次涨价预计将进一步</p><br>
+<h2>正文</h2><br>
+<p>随着中东紧张局势导致霍尔木兹海峡航运持续受阻，印度国有燃油零售商终于打破数月来的价格冻结，宣布将汽油和柴油价格每升上调3卢比。</p><br>
+<p>作为全球第三大石油进口国和消费国，印度高度依赖中东原油供应，海峡运输中断对其能源安全构成严重威胁。</p><br>
+<p>此前，印度石油公司等国有企业在大选期间为稳定物价而选择自行消化成本上涨压力，但随着国际油价持续攀升和卢比汇率走弱，国有零售商已不堪重负。</p><br>
+<p>此次涨价预计将进一步推高印度国内的运输成本和通胀压力。</p><br>
+<p>责任编辑：张俊 SF065</p><br>
+<h2>相关推荐</h2><br>
+<h3>这一刀 会很帅</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md</p><br>
+<h3>中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md</p><br>
+<h3>人民锐评网红诋毁袁隆平造谣企业家</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md</p><br>
+<h3>内马尔替补</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md</p><br>
+<h3>男子造谣东鹏老板不喝自家饮料被拘</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md</p><br>
+<h3>贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md</p><br>
+<h3>欧洲装一台空调有多难</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md</p><br>
+<h3>湖北云南的这些涉汛信息都是假的</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md</p><br>
+<h3>世界杯：荷兰vs摩洛哥</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md</p><br>
+<h3>扫黑风暴</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md</p><br>
 
-端午食粽习俗为何成为具有广泛影响力的文化现象？“桑巴军团”卷土重来，内马尔去哪了？比尔根山会谈临时取消，美伊僵局是否难破？一道西湖蟹酿橙，品出中缅胞波情大疆与影石，到底为啥打这么狠？浙江河阳：千年“古村落活化石”以新业态赋能文化新消费虎蝶蟾绣于一包，是中华文明共情世界的符号姑蔑国，是什么国？外卖“补贴战” 将迎明确监管红线人工智能书写世界杯崭新篇章释永信这记警钟，敲得够响！专访
-
-## 正文
-
-端午食粽习俗为何成为具有广泛影响力的文化现象？
-
-“桑巴军团”卷土重来，内马尔去哪了？
-
-比尔根山会谈临时取消，美伊僵局是否难破？
-
-一道西湖蟹酿橙，品出中缅胞波情大疆与影石，到底为啥打这么狠？
-
-浙江河阳：千年“古村落活化石”以新业态赋能文化新消费虎蝶蟾绣于一包，是中华文明共情世界的符号姑蔑国，是什么国？
-
-外卖“补贴战” 将迎明确监管红线人工智能书写世界杯崭新篇章释永信这记警钟，敲得够响！
-
-专访李思潼：谢谢南枝这一生的善良与坚守，辛苦你了！
-
-中国汽车产业加速迈向价值竞争阶段遭遇“进球荒”，“亚洲一哥”孙兴慜“廉颇老矣”？
-
-## 相关推荐
-
-- 2026-06-30 09:29 - 高考结束，该不该外出打工体验？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md
-- 2026-06-30 09:07 - 中国对日本再出重拳<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md
-- 2026-06-30 09:26 - 第一次对自信的力量有了实感<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md
-- 2026-06-30 09:24 - 被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md
-- 2026-06-30 09:16 - 网友写差评被店家“挂”门口避雷<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md
-- 2026-06-30 09:13 - DeepSeek启动成立来最大规模招聘<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md
-- 2026-06-30 09:16 - 周冬雨多次说演不了话剧文城<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md
-- 2026-06-30 09:21 - 2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md
-- 2026-06-30 09:06 - Melo向柳智敏张元英道歉<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md
-- 2026-06-30 09:11 - 日本淘汰<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md
-
-## 延伸阅读
-
-- 2026-06-30 09:20 - 已经看完《三国第一部：争洛阳》的人，如何评价这部电影？<br><br> | ??:http://www.share.minike.top/Article/details/506421.shtml
-- 2026-06-30 09:00 - 媒体评泰山建135公里刀片刺绳隔离网<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/565167202993.shtml
-- 2026-06-30 09:22 - 索马里女大使：想和中国一起搞事业<br><br> | ??:https://www.share.minike.top/Article/details/968596.shtml
-- 2026-06-30 09:18 - 俄乌双方伤亡近180万人<br><br> | ??:http://www.share.kurohicncr.top/Article/details/415364103854.shtml
-- 2026-06-30 09:21 - 一见倾心<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/5659512.shtml
-- 2026-06-30 09:25 - “错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/47841979.shtml
-- 2026-06-30 09:19 - 郑钦文温网三连败西尼亚科娃<br><br> | ??:https://www.share.minike.top/Article/details/011891936536.shtml
-- 2026-06-30 09:03 - iPhoneUltra黑色机模<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/40595449.shtml
-- 2026-06-30 09:12 - 索马里女大使：想和中国一起搞事业<br><br> | ??:http://www.share.kurohicncr.top/Article/details/87931.shtml
-- 2026-06-30 09:04 - 覃予萱晋级WTT美国大满贯女单32强<br><br> | ??:https://www.blog.minike.top/Article/details/776475827.shtml
-- 2026-06-30 09:03 - 点球大战 残酷<br><br> | ??:https://www.share.kurohicncr.top/Article/details/4813860711.shtml
-- 2026-06-30 09:08 - 怕iPhone涨价的用户已紧急换新<br><br> | ??:https://www.share.minike.top/Article/details/954804899.shtml
-- 2026-06-30 09:07 - 檀健次王楚然吻戏看热了<br><br> | ??:https://www.share.minike.top/Article/details/03291703495.shtml
-- 2026-06-30 09:14 - 女心理师<br><br> | ??:http://www.share.minike.top/Article/details/8391345410.shtml
-- 2026-06-30 09:03 - 大蒜晒外面被路过女子连盆端走<br><br> | ??:http://www.blog.minike.top/Article/details/66350235.shtml
+<h2>延伸阅读</h2><br>
+<h3>中国猪圈装空调让欧洲网友破防</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:http://www.blog.minike.top/Article/details/93885.shtml</p><br>
+<h3>快递到家不能这样拆</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:https://www.blog.minike.top/Article/details/332147.shtml</p><br>
+<h3>郑钦文温网一轮游</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/71722.shtml</p><br>
+<h3>哈弗茨头球破门</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:http://www.blog.minike.top/Article/details/962087322329.shtml</p><br>
+<h3>首届《哈基米歌王争霸赛》总决赛</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/95782527755.shtml</p><br>
+<h3>外国游客开始涌入中国农村</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:http://www.share.minike.top/Article/details/80522364.shtml</p><br>
+<h3>失明的我带老妈去了趟“火星”</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/81998699.shtml</p><br>
+<h3>致敬！中国首批缉毒警已全体退休</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/637896167416.shtml</p><br>
+<h3>吴启华卖肖像权拍AI电影</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/555921613386.shtml</p><br>
+<h3>有哪些被认为是现代才有的东西其实古代就有了？</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:http://www.share.minike.top/Article/details/437459.shtml</p><br>
+<h3>我设置了全宇宙最安全的密码</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:http://www.blog.minike.top/Article/details/59028.shtml</p><br>
+<h3>为什么小组赛出局会让韩国人破防</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/910453.shtml</p><br>
+<h3>你的妻子大喷菇—《植物娘大战僵尸》特别篇</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://www.share.minike.top/Article/details/305189771229.shtml</p><br>
+<h3>女儿从清华毕业 爸爸晒出17年对比照</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/105159.shtml</p><br>
+<h3>感动全网的699分女生想报考清华</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:https://www.blog.minike.top/Article/details/391841571353.shtml</p><br>

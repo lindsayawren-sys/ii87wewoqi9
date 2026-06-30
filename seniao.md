@@ -1,58 +1,43 @@
-# 国际青年湖北秭归体验端午民俗
+<h1>官宣！中央广播电视总台与国际足联达成新周期版权合作</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>5月15日下午，中央广播电视总台与国际足球联合会共同宣布，就国际足联世界杯新周期版权合作达成共识。合作赛事包括2026年世界杯、2030年世界杯、2027年女足世界杯、2031年女足世界杯。 根据双方合作意向，中央广播电视总台确认获得本周期合作赛事中国大陆独家全媒体权利及媒体分授权利，包括开路电视、付费电视、互联网和移动设备等。 中央广播电视总台是国际足联在全球重要的合作伙伴，</p><br>
+<h2>正文</h2><br>
+<p>5月15日下午，中央广播电视总台与国际足球联合会共同宣布，就国际足联世界杯新周期版权合作达成共识。</p><br>
+<p>合作赛事包括2026年世界杯、2030年世界杯、2027年女足世界杯、2031年女足世界杯。</p><br>
+<p>根据双方合作意向，中央广播电视总台确认获得本周期合作赛事中国大陆独家全媒体权利及媒体分授权利，包括开路电视、付费电视、互联网和移动设备等。</p><br>
+<p>中央广播电视总台是国际足联在全球重要的合作伙伴，双方合作始于1978年。</p><br>
+<p>2026年国际足联世界杯于北京时间6月12日至7月20日在美国、加拿大与墨西哥三国联合举办，这是世界杯历史上首次由三个国家共同承办。</p><br>
+<p>本届赛事参赛队伍由32支扩军至48支，共计将进行104场比赛，规模创历史之最。</p><br>
+<p>总台将依托全媒体传播矩阵和国际一流制播实力，为观众呈现精彩的顶级足球盛宴。</p><br>
+<h2>相关推荐</h2><br>
+<h3>湖北云南这些涉汛信息都是假的</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md</p><br>
+<h3>德国队连续三届世界杯无缘16强</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md</p><br>
+<h3>好像看到了人类带孩子崩溃的样子</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md</p><br>
+<h3>檀健次王楚然吻戏看热了</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md</p><br>
+<h3>「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md</p><br>
+<h3>赛博朋克边缘行者2预告片</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md</p><br>
+<h3>王楚钦孙颖莎晋级混双八强</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md</p><br>
+<h3>黄晓明夸昆凌引杨颖对比</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md</p><br>
+<h3>为什么纣王似乎对周文王的扩张完全无动于衷？</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md</p><br>
+<h3>国务院：稳步推进研究生考试招生改革</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md</p><br>
+<h3>尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md</p><br>
 
-专访李思潼：谢谢南枝这一生的善良与坚守，辛苦你了！中国汽车产业加速迈向价值竞争阶段遭遇“进球荒”，“亚洲一哥”孙兴慜“廉颇老矣”？学者解读中缅“胞波”之情：承载特殊情谊，两国合作可期“Z世代”创客让敦煌壁画融入市井五天三地，敏昂莱访华亮点受关注杨浣：多元共生间，端午习俗蕴藏着怎样的传承密码？高晓攀：算法时代，也要苦练曲艺基本功甜粽与咸粽，谁出现得更早？评论：“张凌赫现象”凸显两
-
-## 正文
-
-专访李思潼：谢谢南枝这一生的善良与坚守，辛苦你了！
-
-中国汽车产业加速迈向价值竞争阶段遭遇“进球荒”，“亚洲一哥”孙兴慜“廉颇老矣”？
-
-学者解读中缅“胞波”之情：承载特殊情谊，两国合作可期“Z世代”创客让敦煌壁画融入市井五天三地，敏昂莱访华亮点受关注杨浣：多元共生间，端午习俗蕴藏着怎样的传承密码？
-
-高晓攀：算法时代，也要苦练曲艺基本功甜粽与咸粽，谁出现得更早？
-
-评论：“张凌赫现象”凸显两岸同胞可以“双向奔赴”除了甜咸粽子，端午还有这些不一样！
-
-孔子为什么说“温故而知新”？
-
-喧闹的笼斗之夜：当八角笼擂台被搬到白宫西方政要精英争相“被同化”？
-
-特朗普宣告：我是老大；七国未能达成联合公报……一文速览G7峰会一半闽南味，一半潮汕风：解锁一头牛的N种吃法专家详解携程千万罚单背后：数据出境的合规漏洞出在哪？
-
-## 相关推荐
-
-- 2026-06-30 09:28 - 啊啊啊<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md
-- 2026-06-30 09:23 - 存储芯片龙头提示风险<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md
-- 2026-06-30 09:26 - 如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md
-- 2026-06-30 09:05 - 重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md
-- 2026-06-30 09:15 - 我吃遍了西安最強的街頭小吃，第九家強得離譜！<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md
-- 2026-06-30 09:18 - 世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md
-- 2026-06-30 09:26 - 杨紫被质疑未使用原名纯属误解<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md
-- 2026-06-30 09:08 - 女子遭家暴逃跑致丈夫身亡二审细节<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md
-- 2026-06-30 09:08 - 花少8要去世界杯举办国<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md
-- 2026-06-30 09:11 - 女儿从清华毕业 爸爸晒出17年对比照<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md
-- 2026-06-30 09:19 - 沉睡花园<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md
-- 2026-06-30 09:02 - 金价跳水 水贝市场显现出“两重天”<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md
-
-## 延伸阅读
-
-- 2026-06-30 09:15 - 千与千寻<br><br> | ??:http://www.share.kurohicncr.top/Article/details/3439510.shtml
-- 2026-06-30 09:09 - 消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/737868.shtml
-- 2026-06-30 09:04 - 逃狱兄弟<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/574673608601.shtml
-- 2026-06-30 09:29 - 奔跑吧·黄河篇第二季<br><br> | ??:https://www.blog.minike.top/Article/details/8005539.shtml
-- 2026-06-30 09:07 - 女心理师<br><br> | ??:https://www.share.minike.top/Article/details/45690.shtml
-- 2026-06-30 09:02 - 如何看待武亮说大学生生活费1500就够用这一言论？<br><br> | ??:http://www.blog.minike.top/Article/details/266230.shtml
-- 2026-06-30 09:17 - 女子遭家暴逃跑致丈夫身亡二审细节<br><br> | ??:http://www.blog.minike.top/Article/details/70908267.shtml
-- 2026-06-30 09:16 - 谢依霖说杨幂是聚会第一把张罗手<br><br> | ??:http://www.share.kurohicncr.top/Article/details/09995.shtml
-- 2026-06-30 09:28 - 德国进球被吹<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/2632043.shtml
-- 2026-06-30 09:12 - 韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？<br><br> | ??:http://www.share.minike.top/Article/details/61578019.shtml
-- 2026-06-30 09:22 - HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？<br><br> | ??:https://www.blog.minike.top/Article/details/39469046.shtml
-- 2026-06-30 09:00 - 87克大金链到老庙黄金维修少了11克<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/89085318723.shtml
-- 2026-06-30 09:11 - 对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来<br><br> | ??:http://www.blog.minike.top/Article/details/307625992226.shtml
-- 2026-06-30 09:25 - 五哈和他们的朋友<br><br> | ??:https://www.blog.minike.top/Article/details/15979.shtml
-- 2026-06-30 09:01 - 郑钦文温网三连败西尼亚科娃<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/6222304903.shtml
+<h2>延伸阅读</h2><br>
+<h3>郑钦文温网首轮出局</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/7859287360.shtml</p><br>
+<h3>德国队世界杯点球大战首败</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://www.share.minike.top/Article/details/947917078165.shtml</p><br>
+<h3>商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/69244.shtml</p><br>
+<h3>曝娱乐圈大部分明星失业</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:http://www.share.minike.top/Article/details/596048.shtml</p><br>
+<h3>领克900大型SUV值得购买吗?</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/1058745.shtml</p><br>
+<h3>男子中医院拔火罐致浅2度烧伤</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:http://www.blog.minike.top/Article/details/567888048653.shtml</p><br>
+<h3>「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/76648263978.shtml</p><br>
+<h3>郑钦文温网首轮出局</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:http://www.blog.minike.top/Article/details/26977.shtml</p><br>
+<h3>送你一朵小红花</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/431879.shtml</p><br>
+<h3>小娘惹</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/558221628.shtml</p><br>
+<h3>卢卡申科发布解放军仪仗队视频</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://www.share.minike.top/Article/details/1554456211.shtml</p><br>
+<h3>我把队友的7连跪剪成了艺术</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:http://www.blog.minike.top/Article/details/724998832789.shtml</p><br>
+<h3>第3集丨“柠檬茶能换怀表？”</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/636447419.shtml</p><br>
+<h3>这些7月新规影响你我</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/851038.shtml</p><br>
+<h3>美加墨世界杯：亚洲足球的得意与失意</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:http://www.share.minike.top/Article/details/239752567.shtml</p><br>

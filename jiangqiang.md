@@ -1,58 +1,45 @@
-# 助力把握能源革命新机遇，创业板新能源ETF华泰柏瑞（159069）6月22日发售
+<h1>周末看摩托车赛成国人新爱好：每逢周末“WSBK”“张雪机车”搜索指数明显升高</h1><br>
 
-> 更新时间：2026-06-30 09:30:02 UTC+8
+<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
 
-## 摘要
+<h2>摘要</h2><br>
+<p>中新网5月17日电(记者 吴家驹)周末看场紧张刺激的摩托车比赛，正成为不少国人的新爱好。 百度指数显示，自张雪机车3月28日首次在2026世界超级摩托车锦标赛(WSBK)WorldSSP组别比赛夺冠以来，每逢有该比赛的周末，关键词“WSBK”“张雪机车”的搜索指数就会明显升高。 同时，比赛当天，大量网友会涌入相关直播间观看张雪机车比赛，张雪机车赛况也时常登上微博、B站热搜，抖音</p><br>
+<h2>正文</h2><br>
+<p>中新网5月17日电(记者 吴家驹)周末看场紧张刺激的摩托车比赛，正成为不少国人的新爱好。</p><br>
+<p>百度指数显示，自张雪机车3月28日首次在2026世界超级摩托车锦标赛(WSBK)WorldSSP组别比赛夺冠以来，每逢有该比赛的周末，关键词“WSBK”“张雪机车”的搜索指数就会明显升高。</p><br>
+<p>同时，比赛当天，大量网友会涌入相关直播间观看张雪机车比赛，张雪机车赛况也时常登上微博、B站热搜，抖音、快手热榜等。</p><br>
+<p>此外，张雪机车冠军车手瓦伦丁·德比斯也收获众多粉丝，截至5月17日上午10时许，德比斯抖音账号粉丝数超过119万，B站账号粉丝数也超过20万。</p><br>
+<p>(完)</p><br>
+<h2>相关推荐</h2><br>
+<h3>有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md</p><br>
+<h3>美媒：美军第五舰队司令部已无法使用</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md</p><br>
+<h3>爆冷出局！德国点球大战不敌巴拉圭</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md</p><br>
+<h3>韩国道歉完日本道歉</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md</p><br>
+<h3>王菲谢霆锋十指紧扣好甜</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md</p><br>
+<h3>全网说丑的玫瑰空调卖了5万台</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md</p><br>
+<h3>“草莓月亮”浪漫现身</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md</p><br>
+<h3>国务院：探索延长义务教育年限</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md</p><br>
+<h3>为什么很多企业推行“扁平化管理”后，效率反而下降了？</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md</p><br>
+<h3>峡谷事故团队组队时有人提醒会下雨</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md</p><br>
+<h3>德国淘汰</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md</p><br>
+<h3>人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md</p><br>
+<h3>毒液2</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md</p><br>
+<h3>欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md</p><br>
+<h3>世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md</p><br>
 
-在全球能源革命步伐加快、国产新能源产品出海加速的背景下，新能源产业作为支撑国家能源安全、实现“双碳”战略目标、培育新质生产力的战略性新兴产业，或正迎来产业周期与政策红利共振的配置窗口期。 立足创业板新质生产力沃土，紧扣新能源产业链成长机遇，将于6月22日重磅发售的创业板新能源ETF华泰柏瑞（159069），一键打包光伏、锂电、储能、新能源车等景气赛道优质龙头，有望成为助力广大投
-
-## 正文
-
-在全球能源革命步伐加快、国产新能源产品出海加速的背景下，新能源产业作为支撑国家能源安全、实现“双碳”战略目标、培育新质生产力的战略性新兴产业，或正迎来产业周期与政策红利共振的配置窗口期。
-
-立足创业板新质生产力沃土，紧扣新能源产业链成长机遇，将于6月22日重磅发售的创业板新能源ETF华泰柏瑞（159069），一键打包光伏、锂电、储能、新能源车等景气赛道优质龙头，有望成为助力广大投资者布局能源革命时代机遇的便捷配置选择。
-
-作为衔接“双碳”战略与高端制造的关键赛道，近年来新能源产业频频获政策端支持。
-
-一方面，“十五五规划”中明确提出“加快建设新型能源体系”，意味着能源结构将发生积极变化，能源消费绿色化、低碳化或是大势所趋；另一方面，中央预算内资金、超长期特别国债等总计超万亿资金将投向能源领域，直接利好新能源基础设施建设和产业升级。
-
-目前，政策层面已完成从顶层设计到多链条规范的体系搭建，同时划定风电光伏装机、储能规模等量化发展指标，有望为新能源产业长期稳健发展夯实基础。
-
-在双碳目标的战略引领下，我国新能源产业发展成效显著。
-
-消费端，中国非化石能源消费占比从2015年12.0%提升至2025年21.7%，超额完成20%的目标任务；生产端，截至2025年底我国可再生能源总装机达23.4亿千瓦，其中风电、光伏合计装机18.4亿千瓦；储能端，国内新型储能装机突破1.36亿千瓦，在全球占比超四成，稳居世界前列。
-
-放眼全球，全球气候治理倒逼非化石能源消费占比持续提升，叠加地缘格局变化推动全球能源供应链加速重构，不仅使得我国加快建设新型能源体系成为“必答题”，也让中国新能源设备及产品加速扬帆出海，成为外贸主力军。
-
-## 相关推荐
-
-- 2026-06-30 09:21 - 2021江苏卫视跨年演唱会<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md
-- 2026-06-30 09:26 - hanser X 赖美云《室内系的Track Maker》<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md
-- 2026-06-30 09:17 - 我们看到的星星是不是有些已经不存在了？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md
-- 2026-06-30 09:01 - 哈弗茨头球破门<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md
-- 2026-06-30 09:09 - 美团、淘宝闪购、京东外卖达成共识<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md
-- 2026-06-30 09:16 - 世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md
-- 2026-06-30 09:00 - 王濛回复黄灿灿<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md
-- 2026-06-30 09:20 - 《赛博朋克：边缘行者 2》｜官方预告片<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md
-- 2026-06-30 09:18 - 上市央企地产商 两年换了三任董事长<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md
-- 2026-06-30 09:00 - 杨紫获白玉兰视后为何争议难平<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md
-- 2026-06-30 09:12 - “中国养猪场都用上空调了”！这是真的吗？【主播说三农】<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md
-- 2026-06-30 09:06 - 苗族银饰<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md
-
-## 延伸阅读
-
-- 2026-06-30 09:22 - 7月1日起 一批新规即将落地<br><br> | ??:http://www.blog.minike.top/Article/details/402729118833.shtml
-- 2026-06-30 09:27 - 任素汐舞台上唱《王招君》<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/4741379.shtml
-- 2026-06-30 09:02 - 日本博主：日本足球真的垃圾<br><br> | ??:http://www.share.minike.top/Article/details/57233418.shtml
-- 2026-06-30 09:06 - 小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/9992233410.shtml
-- 2026-06-30 09:12 - 世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？<br><br> | ??:http://www.share.minike.top/Article/details/44907778070.shtml
-- 2026-06-30 09:08 - 国务院：鼓励行业龙头企业举办职校<br><br> | ??:https://www.share.kurohicncr.top/Article/details/39686596.shtml
-- 2026-06-30 09:16 - 2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/615145.shtml
-- 2026-06-30 09:07 - 有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？<br><br> | ??:https://www.share.minike.top/Article/details/369558273.shtml
-- 2026-06-30 09:18 - 庆祝中国共产党成立105周年大会将举行<br><br> | ??:http://www.share.minike.top/Article/details/6619740302.shtml
-- 2026-06-30 09:07 - 日耳曼拖拉机<br><br> | ??:http://www.blog.minike.top/Article/details/9064674555.shtml
-- 2026-06-30 09:03 - 日本主帅：未能夺冠深感抱歉<br><br> | ??:http://www.share.kurohicncr.top/Article/details/47829420.shtml
-- 2026-06-30 09:29 - 全网说丑的玫瑰空调卖了5万台<br><br> | ??:https://www.share.kurohicncr.top/Article/details/815705.shtml
-- 2026-06-30 09:00 - 李在明向韩国两大财阀90度鞠躬<br><br> | ??:https://www.share.kurohicncr.top/Article/details/70092260.shtml
-- 2026-06-30 09:13 - 存储芯片龙头提示风险<br><br> | ??:https://www.share.minike.top/Article/details/5200884915.shtml
-- 2026-06-30 09:01 - 领克900大型SUV值得购买吗?<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/97607653.shtml
+<h2>延伸阅读</h2><br>
+<h3>赵今麦因“瘦而不柴”的体态出圈</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:http://www.share.minike.top/Article/details/377616.shtml</p><br>
+<h3>恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/849889341734.shtml</p><br>
+<h3>第3集丨“柠檬茶能换怀表？”</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/74501.shtml</p><br>
+<h3>有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:http://www.share.minike.top/Article/details/02932841.shtml</p><br>
+<h3>千香</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/8184764802.shtml</p><br>
+<h3>浪姐成团夜爆笑吐槽</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/07448.shtml</p><br>
+<h3>全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/50227012995.shtml</p><br>
+<h3>德国进球被吹</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://www.blog.minike.top/Article/details/89840178048.shtml</p><br>
+<h3>我和我的家乡</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/178609.shtml</p><br>
+<h3>2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://www.blog.minike.top/Article/details/61493.shtml</p><br>
+<h3>自然光｜papi酱&窦文涛：驴与跑步机</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:http://www.share.minike.top/Article/details/95676463.shtml</p><br>
+<h3>人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://www.share.minike.top/Article/details/00639.shtml</p><br>
+<h3>庆祝建党105周年特别节目</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:http://www.blog.minike.top/Article/details/355551236663.shtml</p><br>
+<h3>承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:http://www.blog.minike.top/Article/details/32374434786.shtml</p><br>
+<h3>教育部披露：高考生篡改7名同学志愿</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/42651859.shtml</p><br>
