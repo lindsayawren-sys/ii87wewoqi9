@@ -1,60 +1,56 @@
-# 国台办：民进党当局一再推动两岸“脱钩断链”作茧自缚
+# “五一”假期海南出入境客流同比增长8%
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-中新社北京6月10日电 (记者 徐雪莹 朱贺)对于台湾AI相关产业高速成长，大量传统产业却趋于边缘化的现象，国务院台办发言人张晗10日在北京指出，民进党当局推动两岸“脱钩断链”可谓作茧自缚；大陆方面支持广大台企把握大陆“十五五”发展机遇，获得更好发展。国台办例行新闻发布会当天举行。有记者提到，岛内杂志一项调查指出上述现象，有舆论认为，台湾传统产业过去维持竞争力的重要原因之一就在
+中新网海口5月5日电 (朱晨鹏 陈海泽)5月5日10时24分，来自新加坡的TR118次航班飞抵海口美兰国际机场。海口美兰出入境边防检查站高效验放，226名旅客顺畅通关。 今年“五一”假期，中外旅客跨境旅游和港澳台同胞、境外侨胞回国旅游、返乡团聚等客流增加，同时叠加第六届亚洲沙滩运动会参赛人员集中出境，海南迎来出入境高峰。 海口出入境边防检查总站5日披露，截至5月5日16时，该站
 
 ## 正文
 
-中新社北京6月10日电 (记者 徐雪莹 朱贺)对于台湾AI相关产业高速成长，大量传统产业却趋于边缘化的现象，国务院台办发言人张晗10日在北京指出，民进党当局推动两岸“脱钩断链”可谓作茧自缚；大陆方面支持广大台企把握大陆“十五五”发展机遇，获得更好发展。
+中新网海口5月5日电 (朱晨鹏 陈海泽)5月5日10时24分，来自新加坡的TR118次航班飞抵海口美兰国际机场。
 
-国台办例行新闻发布会当天举行。
+海口美兰出入境边防检查站高效验放，226名旅客顺畅通关。
 
-有记者提到，岛内杂志一项调查指出上述现象，有舆论认为，台湾传统产业过去维持竞争力的重要原因之一就在于两岸分工；传统产业要想自救，须抓住两岸经济合作机遇，特别是依托大陆的完整供应链、巨大市场规模和制造优势。
+今年“五一”假期，中外旅客跨境旅游和港澳台同胞、境外侨胞回国旅游、返乡团聚等客流增加，同时叠加第六届亚洲沙滩运动会参赛人员集中出境，海南迎来出入境高峰。
 
-张晗表示，当前台湾的产业可谓“一业兴、百业衰”，产业结构过于单一的问题愈发明显，经济发展脆弱性更加突出。
+海口出入境边防检查总站5日披露，截至5月5日16时，该站共查验出入境客流达4万人次，同比增长8%。
 
-传统产业处境艰难、发展空间日益萎缩，多数居民收入远不及中位数、无薪假越来越长。
+其中，免签入境外国人超1万人次，同比增长14.5%，入境客源国主要有俄罗斯、哈萨克斯坦、新加坡、马来西亚、白俄罗斯等国家。
 
-岛内民众对此强烈不满。
+封关以来，海南持续保持全国总体最优免签政策体系，全球86国公民持普通护照即可入境海南。
 
-她指出，民进党当局不仅不正视岛内产业存在的突出问题和严重隐患，为产业找出路，反而一再推动两岸“脱钩断链”，阻挠两岸产业分工协作，可谓作茧自缚、愚不可及。
+免签政策红利持续释放，国际航线密集开通，让各地人员往来海南更加便捷。
 
-张晗续指，大陆“十五五”规划纲要提出“建设现代化产业体系”“优化提升传统产业”，传统产业与民生发展高度相关，在产业链供应链和市场的有力支撑下，完全可以通过智能化、绿色化、融合化实现创新发展。
+据悉，为应对假期出入境客流高峰，海南边检机关提前公布客流高峰，实时监测旅客流量变化，落实边检便民举措，为出入境旅客提供高效顺畅的假期出行体验。
 
 ## 相关推荐
 
-- 2026-06-30 09:05 - [人民锐评网红诋毁袁隆平造谣企业家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-30 08:55 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-30 08:55 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-30 08:49 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-30 08:38 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-30 08:36 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-30 08:37 - [森保一致歉：世界第一目标没能实现](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-30 09:01 - [王濛回复黄灿灿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-30 09:01 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
-- 2026-06-30 08:52 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-30 08:59 - [为什么会有「念旧」的心理？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-30 08:58 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-30 09:05 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
-- 2026-06-30 09:03 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-30 09:07 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-30 09:00 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-30 08:58 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-30 08:44 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-30 09:06 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-30 09:05 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-30 08:59 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-30 09:10 - [日本五次世界杯淘汰赛全败](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-30 08:42 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-30 08:44 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:49 - [老外对中国cosplay竟这样评价…](https://www.blog.minike.top/Article/details/8468495.shtml)
-- 2026-06-30 09:04 - [赛博朋克边缘行者2预告片](http://www.share.minike.top/Article/details/414937230.shtml)
-- 2026-06-30 08:38 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/42102416670.shtml)
-- 2026-06-30 08:54 - [扫黑风暴](http://www.blog.minike.top/Article/details/03279.shtml)
-- 2026-06-30 08:48 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/177003065.shtml)
-- 2026-06-30 09:02 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/572649.shtml)
-- 2026-06-30 08:41 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/5354241.shtml)
-- 2026-06-30 08:46 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/560040516873.shtml)
-- 2026-06-30 08:41 - [赛博朋克边缘行者2预告片](https://www.blog.kurohicncr.top/Article/details/43700349618.shtml)
-- 2026-06-30 08:47 - [IGN评测电影版后室](http://www.blog.kurohicncr.top/Article/details/07592509.shtml)
-- 2026-06-30 08:40 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/6380518.shtml)
-- 2026-06-30 08:54 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/9986130022.shtml)
-- 2026-06-30 08:59 - [巴西vs日本](https://www.share.minike.top/Article/details/2126285.shtml)
-- 2026-06-30 09:05 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.blog.minike.top/Article/details/419703.shtml)
-- 2026-06-30 08:51 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/56682992.shtml)
+- 2026-06-30 08:49 - [iPhone18e曝光](https://www.share.minike.top/Article/details/6113902.shtml)
+- 2026-06-30 09:07 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/5215008.shtml)
+- 2026-06-30 09:05 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/38093882750.shtml)
+- 2026-06-30 09:02 - [人民锐评网红诋毁袁隆平造谣企业家](https://www.blog.minike.top/Article/details/05754760969.shtml)
+- 2026-06-30 09:10 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/515282204.shtml)
+- 2026-06-30 09:03 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/942725932.shtml)
+- 2026-06-30 08:56 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/04421668156.shtml)
+- 2026-06-30 08:59 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/31602630.shtml)
+- 2026-06-30 08:49 - [郑钦文温网首轮出局](http://www.share.minike.top/Article/details/5024448514.shtml)
+- 2026-06-30 08:50 - [拆解FIFA和世界杯的暗面](https://www.blog.minike.top/Article/details/485141.shtml)
+- 2026-06-30 09:04 - [爆冷出局！德国点球大战不敌巴拉圭](https://www.blog.kurohicncr.top/Article/details/46410.shtml)
+- 2026-06-30 08:46 - [王欣瑜连续4年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/17498.shtml)
+- 2026-06-30 08:49 - [全球芯片巨头史诗级扩产](http://www.blog.kurohicncr.top/Article/details/78936208833.shtml)
+- 2026-06-30 09:00 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.kurohicncr.top/Article/details/82910500.shtml)
+- 2026-06-30 08:51 - [巴拉圭率先破门](https://www.share.kurohicncr.top/Article/details/918389888.shtml)

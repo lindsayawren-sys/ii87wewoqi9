@@ -1,56 +1,57 @@
-# 002490，直线涨停！002971，3连板！
+# 新疆吐鲁番市托克逊县发生4.7级地震 消防部门紧急出动
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-受外围市场影响，6月11日A股三大指数集体低开。开盘后指数拉升，创业板指一度涨超1%，截至发稿，深证成指、创业板指再度下跌。 盘面上，石油石化、煤炭、资源开采、工业气体、磷化工概念等板块开盘活跃；机器人、航空机场、元件、汽车服务、水泥、贵金属等板块开盘走低。 港股方面，恒生指数、恒生科技指数均下跌超1%。泡泡玛特、腾讯控股、中国海洋石油等涨近2%，华虹宏力跌近4%，长飞光纤光缆
+据中国地震台网正式测定：2026年5月3日18时00分，新疆吐鲁番市托克逊县发生4.7级地震，震源深度20千米，震中位于托克逊县库米什镇正南方向6千米(北纬42.19度，东经88.19度)，常住人口约500人，距托克逊县城约104公里，托克逊县城有震感。震中附近地形类型为山前低山丘陵，10公里范围内平均海拔高度为1143米。地震发生后，吐鲁番支队地震救援机动队9车30人1犬已在
 
 ## 正文
 
-受外围市场影响，6月11日A股三大指数集体低开。
+据中国地震台网正式测定：2026年5月3日18时00分，新疆吐鲁番市托克逊县发生4.7级地震，震源深度20千米，震中位于托克逊县库米什镇正南方向6千米(北纬42.19度，东经88.19度)，常住人口约500人，距托克逊县城约104公里，托克逊县城有震感。
 
-开盘后指数拉升，创业板指一度涨超1%，截至发稿，深证成指、创业板指再度下跌。
+震中附近地形类型为山前低山丘陵，10公里范围内平均海拔高度为1143米。
 
-盘面上，石油石化、煤炭、资源开采、工业气体、磷化工概念等板块开盘活跃；机器人、航空机场、元件、汽车服务、水泥、贵金属等板块开盘走低。
+地震发生后，吐鲁番支队地震救援机动队9车30人1犬已在营区集结完毕，做好救援准备。
 
-港股方面，恒生指数、恒生科技指数均下跌超1%。
+托克逊县九龙路消防救援站3车11人地震救援先遣队赶赴现场。
 
-泡泡玛特、腾讯控股、中国海洋石油等涨近2%，华虹宏力跌近4%，长飞光纤光缆跌近3%，中芯国际跌近2%。
+途中，经与辖区速报员、当地公安、应急等相关部门核实，暂未接到人员伤亡和房屋倒塌相关警情报告。
 
-油气概念盘初走强 油气概念盘初走强，山东墨龙（002490）涨停，通源石油、泰山石油、潜能恒信、贝肯能源、蓝焰控股纷纷上扬。
+目前，托克逊县交通、电力、通信及群众生产生活秩序均正常。
 
-消息面上，布伦特原油一度站上95美元/桶，涨超2%。
-
-化工板块走高，硫磺、磷化工方向领涨，兴发集团、澄星股份、六国化工涨停，粤桂股份触及涨停，川金诺、迪尔化工、赤天化、云天化跟涨。
+(央视新闻客户端 总台记者 王新宇 彭婵)
 
 ## 相关推荐
 
-- 2026-06-30 08:58 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-30 08:55 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-30 09:04 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-30 08:49 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-30 08:47 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-30 08:49 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-30 08:51 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-30 08:43 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-30 08:56 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
-- 2026-06-30 08:56 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-30 09:07 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-30 08:56 - [现在叛逆期的孩子最怕的是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-30 08:51 - [日本将帅赛后采访纷纷哽咽落泪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
+- 2026-06-30 08:43 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-30 08:43 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
+- 2026-06-30 08:53 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-30 08:42 - [德国淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
+- 2026-06-30 08:45 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-30 08:57 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-30 08:45 - [“荒唐”背后的韩国足球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
+- 2026-06-30 08:52 - [点球大战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-30 09:02 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
+- 2026-06-30 08:56 - [马航370搜寻最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:55 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/1893158.shtml)
-- 2026-06-30 09:04 - [《名肘探科比》：科比大战裂口女](https://www.share.kurohicncr.top/Article/details/54816196546.shtml)
-- 2026-06-30 08:45 - [森保一 保守](https://www.share.minike.top/Article/details/55152.shtml)
-- 2026-06-30 08:37 - [有酒店推行24小时退房制](https://www.share.kurohicncr.top/Article/details/803931382411.shtml)
-- 2026-06-30 08:36 - [森保一 保守](https://www.share.minike.top/Article/details/341335269098.shtml)
-- 2026-06-30 08:56 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/2381338.shtml)
-- 2026-06-30 08:39 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/157587360145.shtml)
-- 2026-06-30 08:36 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/927867.shtml)
-- 2026-06-30 08:55 - [日耳曼拖拉机](http://www.blog.minike.top/Article/details/234992786230.shtml)
-- 2026-06-30 09:02 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/867632.shtml)
-- 2026-06-30 08:50 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/632293794881.shtml)
-- 2026-06-30 08:46 - [巴西绝杀日本](https://www.share.minike.top/Article/details/34773909767.shtml)
-- 2026-06-30 08:53 - [这几秒成世界杯最值钱广告位](http://www.share.minike.top/Article/details/3013916.shtml)
-- 2026-06-30 08:43 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/08764.shtml)
-- 2026-06-30 08:41 - [张月收到黄灿灿辣货两眼发光](https://www.blog.minike.top/Article/details/75308.shtml)
+- 2026-06-30 09:00 - [张碧晨一开口梦回逐玉](https://www.blog.minike.top/Article/details/669872118.shtml)
+- 2026-06-30 08:50 - [IGN评测电影版后室](http://www.blog.minike.top/Article/details/023340765720.shtml)
+- 2026-06-30 09:03 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/798037835758.shtml)
+- 2026-06-30 09:06 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.minike.top/Article/details/810927708.shtml)
+- 2026-06-30 09:07 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/99580.shtml)
+- 2026-06-30 09:05 - [吴易昺不敌德约科维奇 止步温网首轮](https://www.blog.minike.top/Article/details/4230869.shtml)
+- 2026-06-30 08:53 - [沙丘](http://www.blog.kurohicncr.top/Article/details/57850148.shtml)
+- 2026-06-30 09:04 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/52686711.shtml)
+- 2026-06-30 09:07 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/29517.shtml)
+- 2026-06-30 09:10 - [欧洲装一台空调有多难](http://www.blog.minike.top/Article/details/053464.shtml)
+- 2026-06-30 08:55 - [美股收盘 热门中概股普涨](http://www.share.minike.top/Article/details/9446025.shtml)
+- 2026-06-30 08:49 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.minike.top/Article/details/80666011468.shtml)
+- 2026-06-30 09:10 - [男子醉酒溺水获救后同行人拒协助抬人](http://www.share.kurohicncr.top/Article/details/408064916841.shtml)
+- 2026-06-30 09:08 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](https://www.blog.kurohicncr.top/Article/details/7619952248.shtml)
+- 2026-06-30 08:53 - [委内瑞拉地震死亡人数升至1719人](http://www.share.minike.top/Article/details/64854728.shtml)

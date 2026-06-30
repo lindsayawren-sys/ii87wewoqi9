@@ -1,61 +1,61 @@
-# 能源价格成焦点，欧洲央行即将公布利率决议
+# 美伊最新局势一文速览：美方对伊朗最新打击计划曝光
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-核心要点 受能源价格暴涨影响，市场普遍预计欧洲央行将于周四加息。 欧元区是能源进口大户，油价走高会对其造成尤为严重的冲击。4 月核心通胀同样出现上行，这是欧洲央行的另一大忧虑。 2026 年 2 月 23 日（周一），欧洲央行行长克里斯蒂娜・拉加德在美国华盛顿全美商业经济协会经济政策研讨会上发言。 市场预计欧洲央行周四将上调基准利率。面对高企能源价格引发的第二轮通胀风险，政策制
+美伊最新局势一文速览：美方对伊朗最新打击计划曝光；伊朗递交最新谈判方案；美军“福特”号航母已离开中东 美伊“不谈不战”僵持难解，局势迷雾重重。 美国总统特朗普致函国会，称美国与伊朗的敌对行动已“结束，同时表示，这场战事可能远未结束；美官员称美军“福特”号航母已离开中东；伊朗向美国转交最新谈判方案，特朗普表示“不满意”；美媒曝美军对伊朗最新打击计划。 一文速览美伊最新局势↓ 美国
 
 ## 正文
 
-核心要点 受能源价格暴涨影响，市场普遍预计欧洲央行将于周四加息。
+美伊最新局势一文速览：美方对伊朗最新打击计划曝光；伊朗递交最新谈判方案；美军“福特”号航母已离开中东 美伊“不谈不战”僵持难解，局势迷雾重重。
 
-欧元区是能源进口大户，油价走高会对其造成尤为严重的冲击。
+美国总统特朗普致函国会，称美国与伊朗的敌对行动已“结束，同时表示，这场战事可能远未结束；美官员称美军“福特”号航母已离开中东；伊朗向美国转交最新谈判方案，特朗普表示“不满意”；美媒曝美军对伊朗最新打击计划。
 
-4 月核心通胀同样出现上行，这是欧洲央行的另一大忧虑。
+一文速览美伊最新局势↓ 美国 特朗普：与伊朗敌对行动已“结束” 美国总统特朗普1日致函国会，称美国与伊朗的敌对行动已“结束”。
 
-2026 年 2 月 23 日（周一），欧洲央行行长克里斯蒂娜・拉加德在美国华盛顿全美商业经济协会经济政策研讨会上发言。
+这一说法旨在规避美总统未经国会授权动用部队的“60天期限”，且特朗普同时表示，这场战事可能远未结束。
 
-市场预计欧洲央行周四将上调基准利率。
+特朗普称，尽管对伊朗军事行动取得成功，但伊朗对美国及美军构成的威胁依然显著。
 
-面对高企能源价格引发的第二轮通胀风险，政策制定者不得不出手应对。
+因此，国防部继续调整在美军中央司令部责任区相关国家的军事部署态势，以应对伊朗及其地区“代理人”威胁。
 
-与美联储不同，欧洲央行仅有一项核心使命：将通胀稳定在 2% 目标附近。
+美国媒体说，特朗普上述说法实际上规避了5月1日这一法律最后期限。
 
-而近期数据显示，欧元区整体通胀与核心通胀指标双双回升。
+美媒指出，特朗普发出这封信，正值美伊谈判陷入僵局之际，美国继续封锁伊朗港口，霍尔木兹海峡通航持续受阻。
 
 ## 相关推荐
 
-- 2026-06-30 08:50 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-30 09:00 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
-- 2026-06-30 08:48 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-30 08:59 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-30 08:39 - [马航370搜寻最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-30 09:01 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-30 08:55 - [名记：灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
-- 2026-06-30 08:48 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-30 08:54 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
-- 2026-06-30 08:50 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-30 08:57 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-30 09:02 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
-- 2026-06-30 08:51 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-30 08:50 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-30 09:00 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-30 09:10 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-30 08:45 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-30 08:57 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-30 08:57 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-30 09:11 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-30 09:07 - [为什么小组赛出局会让韩国人破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-30 08:59 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-30 09:02 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-30 09:01 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-30 09:04 - [板面：为什么那么多人爱吃？？！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-30 08:54 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-30 08:44 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-30 08:44 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-30 08:51 - [追梦拒绝2770万美元球员选项](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-30 08:45 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 09:02 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.kurohicncr.top/Article/details/341341.shtml)
-- 2026-06-30 09:01 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/62119617.shtml)
-- 2026-06-30 08:38 - [郑钦文温网三连败西尼亚科娃](https://www.share.kurohicncr.top/Article/details/961357220.shtml)
-- 2026-06-30 08:37 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.kurohicncr.top/Article/details/20125643878.shtml)
-- 2026-06-30 08:50 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/22833.shtml)
-- 2026-06-30 08:42 - [日本遭读秒绝杀 森保一：我水平不够](https://www.blog.minike.top/Article/details/094247.shtml)
-- 2026-06-30 08:44 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.minike.top/Article/details/5662105297.shtml)
-- 2026-06-30 08:54 - [德国4比5巴拉圭](http://www.blog.minike.top/Article/details/9475995204.shtml)
-- 2026-06-30 09:05 - [日本队主帅道歉](http://www.share.kurohicncr.top/Article/details/672687.shtml)
-- 2026-06-30 08:57 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/63974678.shtml)
-- 2026-06-30 08:56 - [三星投资计划](https://www.share.kurohicncr.top/Article/details/18640.shtml)
-- 2026-06-30 08:49 - [郑钦文温网一轮游](https://www.share.minike.top/Article/details/4706387811.shtml)
-- 2026-06-30 08:41 - [勇士续约波尔津吉斯](https://www.share.kurohicncr.top/Article/details/36477734470.shtml)
-- 2026-06-30 08:36 - [德国vs巴拉圭](https://www.share.kurohicncr.top/Article/details/40269994047.shtml)
-- 2026-06-30 08:54 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/991125777.shtml)
+- 2026-06-30 08:46 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/493906901.shtml)
+- 2026-06-30 08:43 - [《共患难》](https://www.blog.minike.top/Article/details/29322810260.shtml)
+- 2026-06-30 08:46 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/39570246.shtml)
+- 2026-06-30 08:52 - [网红峡谷5人溺亡 有人提醒会下雨](https://www.share.minike.top/Article/details/34829.shtml)
+- 2026-06-30 08:54 - [日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？](https://www.blog.kurohicncr.top/Article/details/38704682294.shtml)
+- 2026-06-30 08:55 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/614844.shtml)
+- 2026-06-30 09:05 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/60661724.shtml)
+- 2026-06-30 08:56 - [这几秒成世界杯最值钱广告位](http://www.blog.kurohicncr.top/Article/details/63319.shtml)
+- 2026-06-30 08:44 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](https://www.share.kurohicncr.top/Article/details/088070.shtml)
+- 2026-06-30 08:58 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/260667933.shtml)
+- 2026-06-30 08:48 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/950651.shtml)
+- 2026-06-30 08:54 - [网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？](https://www.blog.kurohicncr.top/Article/details/54382.shtml)
+- 2026-06-30 09:08 - [日本球迷被强行披上巴西国旗](http://www.share.minike.top/Article/details/84199724.shtml)
+- 2026-06-30 08:48 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/13501530191.shtml)
+- 2026-06-30 09:05 - [F1奥地利站赛后复盘](http://www.share.kurohicncr.top/Article/details/32691.shtml)

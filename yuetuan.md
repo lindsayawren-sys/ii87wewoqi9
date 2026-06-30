@@ -1,42 +1,61 @@
-# 近镜头｜缅怀先烈 世代友好
+# 阿联酋发出导弹威胁警报 美伊停火依然脆弱
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月10日 09:18 来源：新华社 责任编辑：【杨彦宇】
+阿拉伯联合酋长国周一发布导弹威胁警报，这是美国和伊朗之间的停火约一个月前生效以来首次发布此类警报，凸显出旨在结束这场已造成数千人死亡并扰乱全球能源供应的战争的外交努力十分脆弱。 警报发布数小时前，阿联酋国有的阿布扎比国家石油公司拥有的一艘油轮在霍尔木兹海峡外的另一起事件中遭到伊朗无人机击中。战争于2月底爆发前，全球约五分之一的石油和液化天然气经由霍尔木兹海峡运输。目前尚不清楚这
 
 ## 正文
 
-发布时间：2026年06月10日 09:18 来源：新华社 责任编辑：【杨彦宇】
+阿拉伯联合酋长国周一发布导弹威胁警报，这是美国和伊朗之间的停火约一个月前生效以来首次发布此类警报，凸显出旨在结束这场已造成数千人死亡并扰乱全球能源供应的战争的外交努力十分脆弱。
+
+警报发布数小时前，阿联酋国有的阿布扎比国家石油公司拥有的一艘油轮在霍尔木兹海峡外的另一起事件中遭到伊朗无人机击中。
+
+战争于2月底爆发前，全球约五分之一的石油和液化天然气经由霍尔木兹海峡运输。
+
+目前尚不清楚这一警报是由瞄准阿联酋的抛射物触发，还是与霍尔木兹海峡局势升级有关。
+
+此次袭击发生前，美国总统唐纳德·特朗普周日宣布了恢复这一战略水道通行、并帮助受困船只驶出波斯湾的计划。
+
+该行动定于周一开始，美军承诺提供支持，包括动用导弹驱逐舰、飞机和无人机。
+
+美军称，到目前为止已有两艘悬挂美国国旗的商船通过该海峡，而伊朗表示，如果美军进入霍尔木兹海峡，将袭击美军。
+
+受中东紧张局势再度升温的迹象影响，油价上涨，国际基准的布伦特原油上涨2.5%，报每桶略低于111美元。
 
 ## 相关推荐
 
-- 2026-06-30 08:47 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-30 08:38 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-30 09:03 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-30 08:44 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-30 08:42 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-30 08:48 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-30 09:04 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-30 08:51 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-30 09:01 - [杨紫大银幕成绩单如何](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-30 08:59 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-30 09:08 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-30 09:05 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-30 09:11 - [德国4比5巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-30 08:51 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-30 09:11 - [张月收到黄灿灿辣货两眼发光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-30 08:42 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-30 09:06 - [男子在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-30 09:04 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-30 08:54 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-30 08:42 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-30 08:53 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-30 08:56 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-30 08:53 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-30 09:05 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
+- 2026-06-30 08:44 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 09:02 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/22442878.shtml)
-- 2026-06-30 08:57 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/070791429.shtml)
-- 2026-06-30 09:05 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/20611378522.shtml)
-- 2026-06-30 09:02 - [王曼昱被突如其来的话筒逗笑了](http://www.blog.minike.top/Article/details/4497697772.shtml)
-- 2026-06-30 08:44 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/697329.shtml)
-- 2026-06-30 09:03 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/7023048304.shtml)
-- 2026-06-30 08:48 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](http://www.blog.kurohicncr.top/Article/details/947722.shtml)
-- 2026-06-30 08:42 - [日本球员说被绝杀非常不甘心](https://www.share.minike.top/Article/details/25489071382.shtml)
-- 2026-06-30 08:55 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.kurohicncr.top/Article/details/79534610554.shtml)
-- 2026-06-30 08:41 - [明星大侦探第四季](https://www.share.minike.top/Article/details/661796907469.shtml)
-- 2026-06-30 08:55 - [房价什么时候能涨](https://www.share.minike.top/Article/details/915987067635.shtml)
-- 2026-06-30 09:04 - [巴拉圭先进球了](https://www.share.kurohicncr.top/Article/details/5227208778.shtml)
-- 2026-06-30 08:37 - [齐思钧回复张月](https://www.share.minike.top/Article/details/8208576.shtml)
-- 2026-06-30 08:46 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/89953747411.shtml)
-- 2026-06-30 09:00 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/236559455.shtml)
+- 2026-06-30 08:47 - [董卿父亲在报纸上发文悼念亡妻](http://www.blog.minike.top/Article/details/6734850518.shtml)
+- 2026-06-30 09:06 - [库尼亚赛后伸五指嘲讽日本](https://www.blog.minike.top/Article/details/80337961832.shtml)
+- 2026-06-30 08:53 - [起风了](http://www.share.minike.top/Article/details/021451387773.shtml)
+- 2026-06-30 09:01 - [泰山景区建135公里刀片刺绳隔离网](http://www.share.kurohicncr.top/Article/details/486385748605.shtml)
+- 2026-06-30 09:01 - [德国身价是巴拉圭6倍](http://www.blog.kurohicncr.top/Article/details/41824677027.shtml)
+- 2026-06-30 08:45 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/29116285829.shtml)
+- 2026-06-30 09:04 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/71762843964.shtml)
+- 2026-06-30 08:54 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/48172491.shtml)
+- 2026-06-30 08:42 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/089542.shtml)
+- 2026-06-30 08:58 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.minike.top/Article/details/1412020.shtml)
+- 2026-06-30 08:43 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.minike.top/Article/details/97245963880.shtml)
+- 2026-06-30 08:51 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/7768378264.shtml)
+- 2026-06-30 08:58 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/463371498902.shtml)
+- 2026-06-30 09:00 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/980908117509.shtml)
+- 2026-06-30 09:07 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/899750633.shtml)

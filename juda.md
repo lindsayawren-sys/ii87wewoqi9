@@ -1,52 +1,58 @@
-# 辰罡科技拟折让约6.5%配售最多1.2亿股配售股份 净筹约1150万港元
+# 特朗普权衡伊朗和平提议 但并未排除发动更多打击的可能性
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-辰罡科技（08131）发布公告，于2026年6月10日，本公司与配售代理订立了配售协议，据此，本公司已委任配售代理，待配售事项的先决条件达成后，按竭诚基准以每股配售股份0.10港元的价格配售最多1.2亿股配售股份予不少于六名独立承配人。 每股配售股份0.10港元的配售价较：（i）于配售协议日期，联交所所报收市价每股股份0.107港元折让约6.5%；及（ii）于紧接配售协议日期前
+美国总统唐纳德·特朗普表示，他将审议伊朗最新的和平提案，如果伊朗伊斯兰共和国的统治者“行为不端”，他不排除恢复军事打击的可能性。 据两位知情人士的消息，伊朗的建议包括为重新开放霍尔木兹海峡、结束美国海上封锁以及伊朗和黎巴嫩的冲突设定一个月的谈判期限。 据报道，如果达成此类协议，双方将再进行一个月的磋商，力图就伊朗核计划达成协议。伊朗半官方的法尔斯通讯社仅表示，一份包含14点内容
 
 ## 正文
 
-辰罡科技（08131）发布公告，于2026年6月10日，本公司与配售代理订立了配售协议，据此，本公司已委任配售代理，待配售事项的先决条件达成后，按竭诚基准以每股配售股份0.10港元的价格配售最多1.2亿股配售股份予不少于六名独立承配人。
+美国总统唐纳德·特朗普表示，他将审议伊朗最新的和平提案，如果伊朗伊斯兰共和国的统治者“行为不端”，他不排除恢复军事打击的可能性。
 
-每股配售股份0.10港元的配售价较：（i）于配售协议日期，联交所所报收市价每股股份0.107港元折让约6.5%；及（ii）于紧接配售协议日期前最后五个股份交易日，联交所所报平均收市价每股股份0.0866港元溢价约15.5%。
+据两位知情人士的消息，伊朗的建议包括为重新开放霍尔木兹海峡、结束美国海上封锁以及伊朗和黎巴嫩的冲突设定一个月的谈判期限。
 
-假设配售股份获悉数配售，最高配售股份数目1.2亿股相当于本公司于本公告日期已发行股本5.99亿股股份约20.00%，以及本公司经发行最高配售股份数目1.2亿股扩大的已发行股本约16.67%。
+据报道，如果达成此类协议，双方将再进行一个月的磋商，力图就伊朗核计划达成协议。
 
-假设配售股份获悉数配售，则配售事项所得款项总额及净额将分别为约1200万港元及约1150万港元。
+伊朗半官方的法尔斯通讯社仅表示，一份包含14点内容的计划已通过巴基斯坦调解人送达，该计划提出了“结束这场强加战争的明确路线图”。
 
-本公司拟将所得款项净额的约70%（即约800万港元）用于偿还承付票，其余约30%（即约350万港元）用作本集团的一般营运资金。
+特朗普周六对记者表示，他已经听取了关于“协议概念”的简报，但随后不久又对该协议是否能让他满意表示怀疑。
 
-责任编辑：卢昱君
+“我很快会审阅伊朗刚刚发给我们的计划，但难以想象它会是可以接受的，因为过去47年来，伊朗对人类和世界所做的事，他们至今还没有付出足够大的代价，”他在Truth Social的一篇帖子中说。
+
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-30 08:40 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-30 08:41 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-30 08:57 - [荷兰VS摩洛哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-30 08:38 - [《名肘探科比》：科比大战裂口女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-30 08:49 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-30 09:02 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-30 08:43 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-30 08:38 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-30 08:37 - [电影抓特务上映11天破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-30 08:51 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-30 08:45 - [为什么纣王似乎对周文王的扩张完全无动于衷？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-30 09:00 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-30 09:06 - [哈弗茨头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-30 08:56 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-30 08:52 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-30 09:01 - [日本球员说被绝杀非常不甘心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
+- 2026-06-30 08:46 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-30 09:09 - [iPhoneUltra黑色机模](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-30 08:56 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-30 09:05 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-30 09:10 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-30 08:46 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-30 08:43 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-30 09:06 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:59 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/1317036.shtml)
-- 2026-06-30 08:42 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/07888163.shtml)
-- 2026-06-30 09:04 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.kurohicncr.top/Article/details/5614126.shtml)
-- 2026-06-30 08:44 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/494477574.shtml)
-- 2026-06-30 08:49 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/367170.shtml)
-- 2026-06-30 08:52 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/532060.shtml)
-- 2026-06-30 08:54 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/81107682.shtml)
-- 2026-06-30 08:44 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/725429660361.shtml)
-- 2026-06-30 08:36 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/444109506.shtml)
-- 2026-06-30 08:55 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/02063.shtml)
-- 2026-06-30 08:56 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/749628.shtml)
-- 2026-06-30 08:37 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.minike.top/Article/details/9392111541.shtml)
-- 2026-06-30 08:46 - [女心理师](http://www.blog.minike.top/Article/details/999030493920.shtml)
-- 2026-06-30 08:53 - [杨紫学位证上就是杨紫](https://www.blog.minike.top/Article/details/76252.shtml)
-- 2026-06-30 08:47 - [德国队回应爆冷淘汰](https://www.blog.kurohicncr.top/Article/details/285527182.shtml)
+- 2026-06-30 09:07 - [美股深夜大反弹 特斯拉飙涨8%](http://www.share.minike.top/Article/details/000103011533.shtml)
+- 2026-06-30 08:42 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.minike.top/Article/details/61631346.shtml)
+- 2026-06-30 09:02 - [欧洲民众抢购空调降温](https://www.share.kurohicncr.top/Article/details/1830238743.shtml)
+- 2026-06-30 08:42 - [杨紫获白玉兰视后争议不止](https://www.share.minike.top/Article/details/699360993.shtml)
+- 2026-06-30 09:06 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/150648141.shtml)
+- 2026-06-30 09:03 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/8037380.shtml)
+- 2026-06-30 08:58 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/48515588.shtml)
+- 2026-06-30 09:00 - [“草莓月亮”浪漫现身](https://www.blog.minike.top/Article/details/968939264692.shtml)
+- 2026-06-30 09:00 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/605499.shtml)
+- 2026-06-30 09:07 - [美股收盘 热门中概股普涨](http://www.blog.minike.top/Article/details/96646599271.shtml)
+- 2026-06-30 08:42 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.minike.top/Article/details/50827461.shtml)
+- 2026-06-30 08:53 - [田中碧失误](http://www.share.kurohicncr.top/Article/details/6490272.shtml)
+- 2026-06-30 08:50 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/02029503.shtml)
+- 2026-06-30 09:04 - [巴西2-1绝杀日本](https://www.blog.minike.top/Article/details/015343.shtml)
+- 2026-06-30 09:10 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/33798440.shtml)

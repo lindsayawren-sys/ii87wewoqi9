@@ -1,56 +1,50 @@
-# Terreno Realty在华盛顿州肯特市签订租约
+# “苏超”吉祥物“苏嘟嘟”IP落户南京 打造文旅潮玩体验区
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-专注于沿海市场工业地产的房地产投资信托公司Terreno Realty Corporation近日宣布，已在华盛顿州肯特市成功执行一份重要的提前续租协议。 此次续租涉及约107，000平方英尺的工业空间，租户是一家提供地板产品与服务的专业公司。新租约将于2027年5月1日正式生效，并持续至2032年7月。这一提前续租的举动，反映出肯特地区工业地产市场的强劲需求，以及租户希望在竞
+发布时间：2026年05月02日 20:15 来源：中国新闻网 “五一”假期，“苏超”吉祥物“苏嘟嘟”IP授权店落户南京华贸中心，全新体育潮玩打卡点位人气满满，吸引不少市民游客前往体验游玩。据了解，“苏超”吉祥物“苏嘟嘟”以长江江豚为原型设计创作，整体形象新颖活泼，同时融入江苏十三座城市特色文化元素，兼具体育活力气质与本土文化底蕴。 记者在现场看到，整套主题盲盒设计新颖巧妙，磁
 
 ## 正文
 
-专注于沿海市场工业地产的房地产投资信托公司Terreno Realty Corporation近日宣布，已在华盛顿州肯特市成功执行一份重要的提前续租协议。
+发布时间：2026年05月02日 20:15 来源：中国新闻网 “五一”假期，“苏超”吉祥物“苏嘟嘟”IP授权店落户南京华贸中心，全新体育潮玩打卡点位人气满满，吸引不少市民游客前往体验游玩。
 
-此次续租涉及约107，000平方英尺的工业空间，租户是一家提供地板产品与服务的专业公司。
+据了解，“苏超”吉祥物“苏嘟嘟”以长江江豚为原型设计创作，整体形象新颖活泼，同时融入江苏十三座城市特色文化元素，兼具体育活力气质与本土文化底蕴。
 
-新租约将于2027年5月1日正式生效，并持续至2032年7月。
+记者在现场看到，整套主题盲盒设计新颖巧妙，磁吸配件玩法灵活多样，观赏性、互动性兼备，是本次“苏超”赛事特色官方文创周边。
 
-这一提前续租的举动，反映出肯特地区工业地产市场的强劲需求，以及租户希望在竞争激烈的市场中锁定长期可用空间的意愿。
+节日期间，主题打卡、人偶互动、趣味足球体验等文体活动同步开展，浓郁的运动氛围，让市民游客沉浸式感受文体融合带来的假日新体验。
 
-肯特市是西雅图工业走廊的关键组成部分，其战略优势在于紧邻西雅图港、西雅图-塔科马国际机场以及5号州际公路等主要交通枢纽，为物流、制造和分销类企业提供了理想的地理条件。
-
-作为一家专注于六大沿海市场的工业地产REIT，Terreno Realty的业务版图涵盖纽约、北新泽西、洛杉矶、迈阿密、旧金山湾区、西雅图和华盛顿特区。
-
-公司在这些核心区域专注于收购、持有和运营包括仓库、配送中心在内的填充型工业资产。
-
-此次肯特租约的成功续签，不仅巩固了公司在该区域的收入稳定性，也体现了其核心工业地产业务的稳健需求。
+(记者 葛勇 江苏南京报道） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-30 08:54 - [日本五次世界杯淘汰赛全败](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-30 08:44 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
-- 2026-06-30 08:44 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
-- 2026-06-30 08:48 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-30 08:49 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-30 08:48 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-30 08:48 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-30 08:51 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-30 09:01 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-30 08:45 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-30 09:08 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-30 08:54 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
+- 2026-06-30 08:53 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-30 08:54 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-30 08:57 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-30 09:01 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-30 08:54 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-30 08:57 - [网红不能困在无底线逐利里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-30 08:53 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-30 08:53 - [萨内 看笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:59 - [马耳他著名拱门坍塌致中国男子身亡](http://www.share.kurohicncr.top/Article/details/1880236826.shtml)
-- 2026-06-30 08:53 - [男子造谣东鹏老板不喝自家饮料被拘](http://www.share.minike.top/Article/details/0763549124.shtml)
-- 2026-06-30 08:42 - [峡谷事故团队组队时有人提醒会下雨](https://www.blog.kurohicncr.top/Article/details/83242.shtml)
-- 2026-06-30 08:45 - [斗破苍穹](http://www.blog.minike.top/Article/details/0879377.shtml)
-- 2026-06-30 08:50 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.minike.top/Article/details/837683102.shtml)
-- 2026-06-30 08:43 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/2779323601.shtml)
-- 2026-06-30 09:03 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.kurohicncr.top/Article/details/2291448250.shtml)
-- 2026-06-30 08:41 - [张月收到黄灿灿辣货两眼发光](https://www.share.minike.top/Article/details/13894806.shtml)
-- 2026-06-30 09:05 - [锐评：网红不能困在无底线逐利里](http://www.share.minike.top/Article/details/84237076.shtml)
-- 2026-06-30 09:02 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/982427624157.shtml)
-- 2026-06-30 09:04 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/93269808654.shtml)
-- 2026-06-30 08:52 - [世界杯名画巴拉圭钢铁防线](http://www.blog.kurohicncr.top/Article/details/138568349502.shtml)
-- 2026-06-30 08:54 - [日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？](https://www.share.kurohicncr.top/Article/details/74398486638.shtml)
-- 2026-06-30 08:56 - [MSI应援曲 如果季中成回忆](https://www.blog.kurohicncr.top/Article/details/73902.shtml)
-- 2026-06-30 08:42 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/8273154265.shtml)
+- 2026-06-30 08:44 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/431422975433.shtml)
+- 2026-06-30 08:46 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/419488301549.shtml)
+- 2026-06-30 08:47 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/616681.shtml)
+- 2026-06-30 09:09 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/378909.shtml)
+- 2026-06-30 09:01 - [世界杯名画巴拉圭钢铁防线](http://www.blog.kurohicncr.top/Article/details/736879081.shtml)
+- 2026-06-30 08:50 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/9651333.shtml)
+- 2026-06-30 08:54 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/10156.shtml)
+- 2026-06-30 08:57 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/15103919384.shtml)
+- 2026-06-30 09:02 - [感动全网的699分女生想报考清华](https://www.share.kurohicncr.top/Article/details/3102335805.shtml)
+- 2026-06-30 09:07 - [乔家的儿女](https://www.blog.minike.top/Article/details/0296468576.shtml)
+- 2026-06-30 08:42 - [德国巴拉圭 折磨](http://www.share.minike.top/Article/details/268790.shtml)
+- 2026-06-30 08:59 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/0278764453.shtml)
+- 2026-06-30 08:52 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/176243177785.shtml)
+- 2026-06-30 08:49 - [德国爆冷点球大战不敌巴拉圭](https://www.share.minike.top/Article/details/553092.shtml)
+- 2026-06-30 09:05 - [Melo向柳智敏张元英道歉](https://www.share.kurohicncr.top/Article/details/74297476.shtml)

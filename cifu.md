@@ -1,47 +1,59 @@
-# 中国海警舰艇编队6月10日在我钓鱼岛及其附属岛屿领海维权巡航
+# 两岸“哪吒”昆山伴着电音说共鸣
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-中新网6月10日电 据“中国海警”微信公众号消息，6月10日，中国海警台州舰编队在我钓鱼岛及其附属岛屿领海维权巡航。这是中国海警依法开展的维权巡航活动。
+中新社昆山5月1日电 (记者 钟升)5月1日晚，海峡两岸交流基地江苏昆山慧聚广场上灯火璀璨、鼓乐喧天，第二届“昆山妈祖杯”台湾电音三太子邀请赛在此拉开帷幕。来自两岸的20支参赛队伍舞动身姿，在阵阵电音中深化同胞间的情感共鸣。 据昆山市台湾同胞投资企业协会会长孙德聪介绍，电音三太子源于大陆的哪吒信仰，与闽南地区的傩舞文化有着深厚的渊源，在台湾经过创新后，融合了传统民俗艺阵与现代电
 
 ## 正文
 
-中新网6月10日电 据“中国海警”微信公众号消息，6月10日，中国海警台州舰编队在我钓鱼岛及其附属岛屿领海维权巡航。
+中新社昆山5月1日电 (记者 钟升)5月1日晚，海峡两岸交流基地江苏昆山慧聚广场上灯火璀璨、鼓乐喧天，第二届“昆山妈祖杯”台湾电音三太子邀请赛在此拉开帷幕。
 
-这是中国海警依法开展的维权巡航活动。
+来自两岸的20支参赛队伍舞动身姿，在阵阵电音中深化同胞间的情感共鸣。
+
+据昆山市台湾同胞投资企业协会会长孙德聪介绍，电音三太子源于大陆的哪吒信仰，与闽南地区的傩舞文化有着深厚的渊源，在台湾经过创新后，融合了传统民俗艺阵与现代电音元素，已成为岛内最具代表性的民俗创意象征之一。
+
+举办邀请赛，既能令大陆民众了解台湾的流行文化、庙会文化，也提供了一个让台湾青年到大陆走走看看的机会。
+
+昆山慧聚义工团电音三太子队领队周军已经跳了十多年的电音三太子，从一开始觉得装备太重，到如今乐在其中，锻炼身体的同时也熟悉了台湾的民俗。
+
+为了这次比赛，他们特意请台北的教练来指导，在编舞、队形、动作、走位等方面不断调整，希望能在台湾“三太子”面前展示大陆“三太子”的风采。
+
+“没想到大陆同胞这么亲切、热情。
+
+”台湾台中艺筑剧团的一名参赛队员告诉中新社记者，自己昨天在便利店和老板聊得颇为投缘，老板当即摆起桌子要请喝酒，令他受宠若惊。
 
 ## 相关推荐
 
-- 2026-06-30 08:42 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-30 08:54 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-30 08:55 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-30 08:54 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-30 08:36 - [日耳曼拖拉机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
-- 2026-06-30 08:48 - [日本球员说被绝杀非常不甘心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
-- 2026-06-30 09:05 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
-- 2026-06-30 08:45 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-30 08:40 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-30 08:41 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-30 08:52 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-30 09:02 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-30 08:55 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-30 08:54 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-30 09:01 - [森保一 保守](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-30 08:50 - [德国爆冷点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-30 08:57 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-30 08:53 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-30 08:44 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-30 09:07 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-30 08:50 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-30 08:56 - [莫兰特被交易到开拓者](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-30 09:09 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-30 08:43 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-30 09:07 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
+- 2026-06-30 08:56 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:46 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/8406904317.shtml)
-- 2026-06-30 08:40 - [网瘾賊大的阿嬷](https://www.blog.kurohicncr.top/Article/details/97703.shtml)
-- 2026-06-30 08:43 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.minike.top/Article/details/4110704.shtml)
-- 2026-06-30 09:01 - [为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？](https://www.share.minike.top/Article/details/636414940171.shtml)
-- 2026-06-30 09:02 - [巴西扳平比分](http://www.blog.kurohicncr.top/Article/details/3645532.shtml)
-- 2026-06-30 08:51 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/5214164147.shtml)
-- 2026-06-30 08:57 - [iPhoneUltra黑色机模](https://www.blog.kurohicncr.top/Article/details/59141.shtml)
-- 2026-06-30 08:42 - [IGN评测电影版后室](https://www.blog.kurohicncr.top/Article/details/462474691240.shtml)
-- 2026-06-30 08:40 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/240252272.shtml)
-- 2026-06-30 08:46 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/30308.shtml)
-- 2026-06-30 09:02 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/23970.shtml)
-- 2026-06-30 08:40 - [日本球迷被强行披上巴西国旗](http://www.share.kurohicncr.top/Article/details/600965.shtml)
-- 2026-06-30 08:38 - [爆冷出局！德国点球大战不敌巴拉圭](http://www.share.kurohicncr.top/Article/details/87042.shtml)
-- 2026-06-30 08:54 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/403697.shtml)
-- 2026-06-30 08:52 - [曝老詹对自由市场态度与以往截然不同](http://www.blog.kurohicncr.top/Article/details/57095661.shtml)
+- 2026-06-30 08:53 - [索马里女大使：想和中国一起搞事业](https://www.blog.kurohicncr.top/Article/details/2805938687.shtml)
+- 2026-06-30 08:47 - [藤森庆子赢得秘鲁总统选举](https://www.blog.minike.top/Article/details/53871.shtml)
+- 2026-06-30 08:59 - [巴拉圭先进球了](http://www.share.minike.top/Article/details/801912030.shtml)
+- 2026-06-30 09:11 - [iPhoneUltra黑色机模](https://www.share.minike.top/Article/details/1163498.shtml)
+- 2026-06-30 08:52 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/816508112784.shtml)
+- 2026-06-30 08:49 - [Melo向柳智敏张元英道歉](https://www.blog.minike.top/Article/details/7636333.shtml)
+- 2026-06-30 09:03 - [巴西足球能否再现昔日荣光](http://www.share.kurohicncr.top/Article/details/05031007681.shtml)
+- 2026-06-30 09:03 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/715701272190.shtml)
+- 2026-06-30 08:52 - [巴西绝杀日本](https://www.share.minike.top/Article/details/670867.shtml)
+- 2026-06-30 08:52 - [AI手机进入Agent时代](https://www.blog.minike.top/Article/details/564477215970.shtml)
+- 2026-06-30 09:09 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](http://www.blog.kurohicncr.top/Article/details/00147.shtml)
+- 2026-06-30 08:54 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/208419.shtml)
+- 2026-06-30 09:07 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/18736524.shtml)
+- 2026-06-30 09:03 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/0387195.shtml)
+- 2026-06-30 09:10 - [巴西替补奇兵读秒绝杀](https://www.share.kurohicncr.top/Article/details/0742750.shtml)

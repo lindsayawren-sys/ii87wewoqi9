@@ -1,58 +1,60 @@
-# 北京启动毕业季租房服务进校园线下活动 护航青年人留京安居
+# 从追“光”到抢“芯”，有哪些值得关注的ETF？
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-中新网北京6月9日电 (记者 陈杭)9日，北京市2026年毕业季租房服务进校园线下活动正式启动，首场落地中国矿业大学(北京)。活动紧扣高校毕业生安居需求，沿用“1+N”服务模式，邀请周边北京科技大学、北京语言大学、中国农业大学、北京林业大学、中国地质大学(北京)等多所高校学子现场参与，打通毕业生租房便民服务“最后一公里”。 北京市2026年毕业季租房服务进校园系列活动，由北京市
+从追“光”到抢“芯”！周四（4月30日），算力芯片产业链爆发，寒武纪、芯原股份20CM涨停，引爆科创双雄！全“芯”布局芯片产业的科创芯片ETF华宝（589190）收涨6.46%，刷新上市以来的历史高点！重点布局国产AI芯片的科创人工智能ETF华宝（589520）场内收涨6.12%！ 港股芯片逆势领涨港股市场，中芯国际领涨超7%，华虹半导体涨超4%，聚焦港股芯片硬科技的港股通信息
 
 ## 正文
 
-中新网北京6月9日电 (记者 陈杭)9日，北京市2026年毕业季租房服务进校园线下活动正式启动，首场落地中国矿业大学(北京)。
+从追“光”到抢“芯”！
 
-活动紧扣高校毕业生安居需求，沿用“1+N”服务模式，邀请周边北京科技大学、北京语言大学、中国农业大学、北京林业大学、中国地质大学(北京)等多所高校学子现场参与，打通毕业生租房便民服务“最后一公里”。
+周四（4月30日），算力芯片产业链爆发，寒武纪、芯原股份20CM涨停，引爆科创双雄！
 
-北京市2026年毕业季租房服务进校园系列活动，由北京市住房城乡建设委会同团市委、市教委等多部门共同指导北京房地产中介行业协会举办。
+全“芯”布局芯片产业的科创芯片ETF华宝（589190）收涨6.46%，刷新上市以来的历史高点！
 
-今年线上服务先行，已于5月28日推出，通过搭建2026毕业季租房一站式线上服务平台，提供优惠房源查询、租房政策宣传、租赁风险警示、投诉维权渠道等服务，可实现毕业生足不出户在线选房、政策速查。
+重点布局国产AI芯片的科创人工智能ETF华宝（589520）场内收涨6.12%！
 
-其中优惠房源涵盖一张床、一间房、一套房，囊括市场化租赁住房、保障性租赁住房、人才公寓、青年公寓等多种类型。
+港股芯片逆势领涨港股市场，中芯国际领涨超7%，华虹半导体涨超4%，聚焦港股芯片硬科技的港股通信息技术ETF华宝（159131）持续吸引资金布局，单日再获净申购4900万份，至此已连续5日获资金净流入，此前四日资金累计爆买超1亿元。
 
-线上服务一推出，受到广泛关注。
+光模块CPO方向则窄幅震荡，重仓光模块龙头的创业板人工智能ETF华宝（159363）场内微跌0.24%，资金继续净申购4800万份，此前五累计加仓超7亿元。
 
-本次首场线下活动中，30余家住房租赁中介企业设立咨询展位，聚焦毕业生通勤、预算等个性化需求匹配房源，并推出差异化优惠措施，如佣金折扣、租押金减免、阶段性免租期、按月付租或入住免费搬家保洁等，为现场学生提供精准服务。
+据财联社报道，2026年四大海外云巨头资本支出预期合计有望突破7000亿美元，大幅超预期。
 
-本月系列专场活动还将陆续走进海淀、朝阳、石景山、昌平、丰台等多区的14所高校，为更多毕业生提供面对面的租房供需对接咨询服务。
+光模块等海外算力链有望持续受益，高“光”创业板人工智能仍具备长期配置价值。
 
 ## 相关推荐
 
-- 2026-06-30 08:45 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-30 09:02 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-30 09:01 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-30 08:42 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-30 08:56 - [王楚钦孙颖莎晋级混双八强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-30 09:03 - [郑钦文温网一轮游](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-30 08:43 - [世界杯欧洲队7战南美仅1胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
-- 2026-06-30 08:40 - [杨紫大银幕成绩单如何](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
-- 2026-06-30 08:56 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-30 08:58 - [日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-30 09:01 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-30 08:52 - [第一次对自信的力量有了实感](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-30 08:58 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-30 08:57 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-30 09:10 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-30 08:55 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-30 09:02 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-30 08:48 - [日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-30 09:06 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-30 08:57 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-30 08:51 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
+- 2026-06-30 08:51 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-30 08:49 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
+- 2026-06-30 08:45 - [孙颖莎王楚钦晋级8强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-30 08:58 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-30 08:53 - [点球大战 残酷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:43 - [为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？](https://www.share.minike.top/Article/details/904189.shtml)
-- 2026-06-30 08:44 - [亚洲球队全部告别世界杯](http://www.blog.minike.top/Article/details/117171483.shtml)
-- 2026-06-30 08:42 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/54891.shtml)
-- 2026-06-30 08:49 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/867339.shtml)
-- 2026-06-30 08:53 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/435948.shtml)
-- 2026-06-30 08:50 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/00384891.shtml)
-- 2026-06-30 08:45 - [点球淘汰德国 巴拉圭首都陷入疯狂](https://www.blog.minike.top/Article/details/434977648.shtml)
-- 2026-06-30 09:04 - [莫兰特被交易到开拓者](http://www.blog.minike.top/Article/details/71652518318.shtml)
-- 2026-06-30 08:48 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.kurohicncr.top/Article/details/8967770861.shtml)
-- 2026-06-30 08:46 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/790736973323.shtml)
-- 2026-06-30 08:58 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/9672727330.shtml)
-- 2026-06-30 08:46 - [董卿父亲在报纸上发文悼念亡妻](https://www.blog.minike.top/Article/details/314660807942.shtml)
-- 2026-06-30 08:38 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.minike.top/Article/details/4528780.shtml)
-- 2026-06-30 09:00 - [穆祉丞回应获年度人气艺人](https://www.share.kurohicncr.top/Article/details/4890252.shtml)
-- 2026-06-30 09:05 - [老外对中国cosplay竟这样评价…](http://www.blog.minike.top/Article/details/0571949.shtml)
+- 2026-06-30 09:07 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/5629256.shtml)
+- 2026-06-30 09:01 - [日本淘汰](https://www.share.minike.top/Article/details/85643028230.shtml)
+- 2026-06-30 09:11 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/89288298106.shtml)
+- 2026-06-30 09:07 - [德国进球被吹](https://www.blog.kurohicncr.top/Article/details/8391403.shtml)
+- 2026-06-30 09:02 - [沙丘](https://www.blog.kurohicncr.top/Article/details/146351161312.shtml)
+- 2026-06-30 09:04 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/7042332.shtml)
+- 2026-06-30 09:06 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/7157062594.shtml)
+- 2026-06-30 09:07 - [巴西2-1绝杀日本](https://www.share.kurohicncr.top/Article/details/384067.shtml)
+- 2026-06-30 09:06 - [高考结束了，你会让孩子在家玩手机吗？](http://www.blog.kurohicncr.top/Article/details/506813867658.shtml)
+- 2026-06-30 08:47 - [“柠檬茶能换怀表？”](https://www.blog.minike.top/Article/details/0443564.shtml)
+- 2026-06-30 08:42 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/00057.shtml)
+- 2026-06-30 09:09 - [日本主帅：未能夺冠深感抱歉](https://www.blog.minike.top/Article/details/560769963.shtml)
+- 2026-06-30 08:49 - [泰山景区回应修建刀片刺绳隔离网](http://www.share.kurohicncr.top/Article/details/7697801.shtml)
+- 2026-06-30 09:00 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/78454131859.shtml)
+- 2026-06-30 08:43 - [美人鱼](https://www.share.minike.top/Article/details/530840.shtml)

@@ -1,60 +1,57 @@
-# “60后”姐夫携小舅子创业，给“芯片散热”年入7亿IPO
+# 博物馆“镇馆之宝”排队热 文博游何以持续火热？
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-来源：风云IPO 创业板 实控人IPO前夕套现1.15亿元。 作者|刘俊群 编辑|刘钦文 你手里那部手机、眼前这台电脑、数据中心里耗费高额电费、满载运行AI模型的服务器，它们发热时，靠的是一层薄薄的散热垫片把热量导走。 做这层垫片的，是一家叫深圳市鸿富诚新材料股份有限公司（下称“鸿富诚”）的公司。6月9日，它将迎来创业板IPO上会大考。 图源：罐头图库 这家公司背后站着两位高中
+中新网杭州5月5日电(林波)今年“五一”假期，文博场馆热度持续走高。 杭州博物馆的“战国水晶杯”、良渚博物院的“玉琮”、浙江省博物馆的“双鸟朝阳纹象牙蝶形器”……一件件“镇馆之宝”前，围满了欣赏的游客。 看一个馆，品一座城。近年来，文博游热度一路攀升，“镇馆之宝”更是成为流量密码。 假期期间，在浙江省博物馆“浙江一万年——浙江历史文化陈列”展上，“双鸟朝阳纹象牙蝶形器”的展柜前
 
 ## 正文
 
-来源：风云IPO 创业板 实控人IPO前夕套现1.15亿元。
+中新网杭州5月5日电(林波)今年“五一”假期，文博场馆热度持续走高。
 
-作者|刘俊群 编辑|刘钦文 你手里那部手机、眼前这台电脑、数据中心里耗费高额电费、满载运行AI模型的服务器，它们发热时，靠的是一层薄薄的散热垫片把热量导走。
+杭州博物馆的“战国水晶杯”、良渚博物院的“玉琮”、浙江省博物馆的“双鸟朝阳纹象牙蝶形器”……一件件“镇馆之宝”前，围满了欣赏的游客。
 
-做这层垫片的，是一家叫深圳市鸿富诚新材料股份有限公司（下称“鸿富诚”）的公司。
+看一个馆，品一座城。
 
-6月9日，它将迎来创业板IPO上会大考。
+近年来，文博游热度一路攀升，“镇馆之宝”更是成为流量密码。
 
-图源：罐头图库 这家公司背后站着两位高中学历的创始人。
+假期期间，在浙江省博物馆“浙江一万年——浙江历史文化陈列”展上，“双鸟朝阳纹象牙蝶形器”的展柜前不时传来阵阵惊叹。
 
-1968年生的孙爱祥，19岁当塑料厂负责人，后来卖过胶粘带，35岁创业，干到现在57岁。
+这件河姆渡文化的核心标识，由整块象牙片雕刻而成，正面中心钻一小圆窝为圆心，外刻同心圆5周，象征太阳，上方刻火焰纹，象征太阳光芒，两侧刻一对曲颈钩喙的大鸟，回首相望，与骄阳融为一体。
 
-赵建平则是孙爱祥的姐夫，比他大五岁，28岁当石料厂厂长，一干便是14年。
+“以前在课本上学习了河姆渡文化，觉得有些遥远。
 
-2003年，两人在深圳成立了鸿富诚。
+现在亲眼见到这件象牙蝶形器，才发现它比想象中更精美、更有故事。
 
 ## 相关推荐
 
-- 2026-06-30 08:51 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-30 09:05 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-30 09:00 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-30 08:45 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-30 08:51 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-30 09:04 - [欧洲民众抢购空调降温](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-30 08:41 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-30 08:37 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-30 08:52 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
-- 2026-06-30 08:36 - [库尼亚赛后伸五指嘲讽日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
-- 2026-06-30 08:50 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
-- 2026-06-30 08:51 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-30 08:52 - [武磊：巴西队赢的并不轻松](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
-- 2026-06-30 08:59 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-30 08:50 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-30 08:47 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-30 09:03 - [女子遭下药退赔偿拟追刑责](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-30 08:46 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-30 09:11 - [陈小春人老了干什么也不心酸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-30 09:01 - [男子在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-30 09:05 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-30 08:45 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-30 09:07 - [网瘾賊大的阿嬷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-30 08:45 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-30 08:53 - [球评巴西绝杀逆转日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:43 - [明星大侦探第四季](https://www.share.minike.top/Article/details/062925169.shtml)
-- 2026-06-30 08:39 - [沙丘](https://www.share.minike.top/Article/details/137987.shtml)
-- 2026-06-30 08:57 - [板面：为什么那么多人爱吃？？！](https://www.blog.kurohicncr.top/Article/details/833915.shtml)
-- 2026-06-30 09:03 - [小娘惹](http://www.blog.minike.top/Article/details/280696890.shtml)
-- 2026-06-30 08:36 - [4000美元是黄金新一轮下跌的开始吗](https://www.share.minike.top/Article/details/63314.shtml)
-- 2026-06-30 08:42 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/23882778309.shtml)
-- 2026-06-30 09:03 - [巴西把自己踢晕了](https://www.blog.kurohicncr.top/Article/details/275720140306.shtml)
-- 2026-06-30 08:42 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/30022.shtml)
-- 2026-06-30 08:41 - [巴西醒醒 这是淘汰赛](http://www.share.minike.top/Article/details/81309.shtml)
-- 2026-06-30 08:54 - [泰山建135公里刀片刺绳隔离网](http://www.blog.minike.top/Article/details/924246.shtml)
-- 2026-06-30 08:47 - [日本队5进世界杯淘汰赛0胜](http://www.share.minike.top/Article/details/541385.shtml)
-- 2026-06-30 08:46 - [齐思钧回复张月](https://www.blog.minike.top/Article/details/500657725041.shtml)
-- 2026-06-30 08:55 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.share.kurohicncr.top/Article/details/072113836.shtml)
-- 2026-06-30 08:54 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/3028038050.shtml)
-- 2026-06-30 08:48 - [覃予萱晋级WTT美国大满贯女单32强](https://www.blog.minike.top/Article/details/820145003161.shtml)
+- 2026-06-30 08:51 - [森保一致歉：世界第一目标没能实现](https://www.blog.minike.top/Article/details/142872509.shtml)
+- 2026-06-30 08:50 - [日本遭读秒绝杀 森保一：我水平不够](https://www.share.kurohicncr.top/Article/details/669245826148.shtml)
+- 2026-06-30 09:11 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](http://www.blog.minike.top/Article/details/912557.shtml)
+- 2026-06-30 09:10 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/017043979.shtml)
+- 2026-06-30 09:04 - [4000美元是黄金新一轮下跌的开始吗](https://www.blog.kurohicncr.top/Article/details/201073.shtml)
+- 2026-06-30 08:42 - [欧洲民众抢购空调降温](https://www.blog.minike.top/Article/details/286246.shtml)
+- 2026-06-30 09:11 - [德国爆冷点球大战不敌巴拉圭](http://www.share.minike.top/Article/details/29028631614.shtml)
+- 2026-06-30 08:45 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/44789936393.shtml)
+- 2026-06-30 09:08 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.kurohicncr.top/Article/details/13155.shtml)
+- 2026-06-30 08:59 - [田中碧失误](http://www.blog.minike.top/Article/details/93961661827.shtml)
+- 2026-06-30 08:54 - [日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？](https://www.share.minike.top/Article/details/997084131.shtml)
+- 2026-06-30 08:46 - [内马尔替补](https://www.share.minike.top/Article/details/889088263.shtml)
+- 2026-06-30 09:11 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/6805576247.shtml)
+- 2026-06-30 08:49 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.kurohicncr.top/Article/details/2717742.shtml)
+- 2026-06-30 09:03 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/719477.shtml)

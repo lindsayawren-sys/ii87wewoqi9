@@ -1,51 +1,59 @@
-# 美军对伊朗境内多个目标发动新一轮袭击
+# 广西迎暴雨+强对流天气 防汛四级响应已启动
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-中新网6月11日电 综合美媒报道，当地时间11日凌晨(美东时间10日17时)，美军对伊朗境内的目标发动了新一轮袭击。 据报道，此轮打击数小时前，美国总统特朗普誓言要“猛烈打击”伊朗，以迫使伊朗同意按照美国政府的条件达成协议。 美军中央司令部当地时间10日表示，其部队打击了“伊朗的多个目标”，以回应伊朗“持续且无端”的攻击行径。 报道称，美军中央司令部称此次袭击是“自卫性”行为。
+今天(2日)广西壮族自治区防汛抗旱指挥部发布消息，据预报，今天到明天，广西自北向南有一次大雨、局地暴雨或大暴雨伴短时雷暴大风、冰雹等强对流天气过程。广西气象局今天9时发布暴雨四级预警、强对流四级预警；于今天10时进入重大气象灾害(暴雨)Ⅳ级应急响应状态。广西壮族自治区防汛抗旱指挥于11时启动广西壮族自治区防汛四级应急响应。预计今天晚上到明天白天，桂林、柳州、河池、贺州、来宾、南
 
 ## 正文
 
-中新网6月11日电 综合美媒报道，当地时间11日凌晨(美东时间10日17时)，美军对伊朗境内的目标发动了新一轮袭击。
+今天(2日)广西壮族自治区防汛抗旱指挥部发布消息，据预报，今天到明天，广西自北向南有一次大雨、局地暴雨或大暴雨伴短时雷暴大风、冰雹等强对流天气过程。
 
-据报道，此轮打击数小时前，美国总统特朗普誓言要“猛烈打击”伊朗，以迫使伊朗同意按照美国政府的条件达成协议。
+广西气象局今天9时发布暴雨四级预警、强对流四级预警；于今天10时进入重大气象灾害(暴雨)Ⅳ级应急响应状态。
 
-美军中央司令部当地时间10日表示，其部队打击了“伊朗的多个目标”，以回应伊朗“持续且无端”的攻击行径。
+广西壮族自治区防汛抗旱指挥于11时启动广西壮族自治区防汛四级应急响应。
 
-报道称，美军中央司令部称此次袭击是“自卫性”行为。
+预计今天晚上到明天白天，桂林、柳州、河池、贺州、来宾、南宁等市及百色市东部有大雨到暴雨、局地大暴雨。
 
-两名了解空袭情况的美国官员说，这次行动的目标是伊朗的弹药库、指挥控制节点和仓库等关键设施。
+河池、百色、崇左、南宁、来宾、贵港、玉林、梧州、贺州等市及桂林和柳州两市南部部分地区有8～9级、局地11级以上的雷雨大风或冰雹天气。
+
+强降雨和强对流范围广、局地强度大、致灾风险高。
+
+各单位需加密监测预报预警和联合会商研判，及时启动应急响应，加强对江河水库、河道、城市易涝点等巡查防守，高效处置灾情险情，坚决避免人员伤亡。
+
+响应期间加强值班值守和信息报送，重要信息按要求及时上报。
 
 ## 相关推荐
 
-- 2026-06-30 08:52 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
-- 2026-06-30 09:00 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-30 09:03 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-30 08:50 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
-- 2026-06-30 08:38 - [泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
-- 2026-06-30 08:56 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
-- 2026-06-30 08:43 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-30 09:05 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-30 09:00 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-30 08:56 - [巴拉圭进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-30 08:37 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-30 08:58 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-30 08:44 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-30 09:11 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-30 08:43 - [周冬雨多次说演不了话剧文城](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-30 08:58 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-30 09:10 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-30 08:51 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-30 09:05 - [自然光｜papi酱&窦文涛：驴与跑步机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-30 08:58 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
+- 2026-06-30 09:10 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-30 09:02 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-30 09:00 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-30 09:03 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:53 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/4044954897.shtml)
-- 2026-06-30 08:46 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/46795299.shtml)
-- 2026-06-30 08:43 - [藤森庆子赢得秘鲁总统选举](http://www.blog.kurohicncr.top/Article/details/43189.shtml)
-- 2026-06-30 08:52 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/028713.shtml)
-- 2026-06-30 08:45 - [齐思钧回复张月](https://www.blog.minike.top/Article/details/91601419059.shtml)
-- 2026-06-30 09:02 - [博世们还在犹豫 美的们已经卖断货](http://www.share.kurohicncr.top/Article/details/82162706.shtml)
-- 2026-06-30 08:54 - [第一次对自信的力量有了实感](http://www.blog.minike.top/Article/details/07108048018.shtml)
-- 2026-06-30 08:55 - [欧洲民众抢购空调降温](https://www.share.minike.top/Article/details/582311.shtml)
-- 2026-06-30 08:58 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/268294.shtml)
-- 2026-06-30 08:54 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/193186587.shtml)
-- 2026-06-30 08:39 - [第一次对自信的力量有了实感](https://www.share.minike.top/Article/details/5649618.shtml)
-- 2026-06-30 08:41 - [起风了](https://www.blog.kurohicncr.top/Article/details/57998.shtml)
-- 2026-06-30 08:54 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/9032862674.shtml)
-- 2026-06-30 08:54 - [索马里女大使：想和中国一起搞事业](http://www.blog.minike.top/Article/details/9600832.shtml)
-- 2026-06-30 08:36 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/323039888660.shtml)
+- 2026-06-30 08:59 - [哈弗茨头球破门](http://www.share.minike.top/Article/details/23130855937.shtml)
+- 2026-06-30 08:49 - [中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？](http://www.share.minike.top/Article/details/067087332.shtml)
+- 2026-06-30 08:44 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/98254.shtml)
+- 2026-06-30 09:01 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/6889584.shtml)
+- 2026-06-30 08:42 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/609356.shtml)
+- 2026-06-30 08:42 - [张雪的一句“是我们”引发岛内热议](https://www.blog.minike.top/Article/details/9202112253.shtml)
+- 2026-06-30 08:51 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/41870111.shtml)
+- 2026-06-30 08:42 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/6334338225.shtml)
+- 2026-06-30 08:44 - [巴西2比1日本](https://www.share.kurohicncr.top/Article/details/582144120977.shtml)
+- 2026-06-30 08:45 - [周冬雨多次说演不了话剧文城](http://www.share.minike.top/Article/details/908753750.shtml)
+- 2026-06-30 08:42 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/20090.shtml)
+- 2026-06-30 09:03 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/6187807068.shtml)
+- 2026-06-30 08:48 - [网友写差评被店家“挂”门口避雷](http://www.blog.kurohicncr.top/Article/details/194939650141.shtml)
+- 2026-06-30 09:08 - [为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？](https://www.blog.minike.top/Article/details/066647617144.shtml)
+- 2026-06-30 08:53 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/204280351.shtml)

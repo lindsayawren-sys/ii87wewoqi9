@@ -1,59 +1,48 @@
-# 中信建投期货：6月11日能化早报
+# 大美边疆看我家丨青春去哪里？去祖国需要的地方 去边疆、赴山海！
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-橡胶：持续调整 周三，国产全乳胶17400/吨，环比上日下跌250元/吨；泰国20号混合胶16950元/吨，环比上日下跌280元/吨。 原料端：昨日泰国胶水报收87.75泰铢/公斤，环比上日上涨0.5泰铢/公斤，泰国杯胶报收70.0 泰铢/公斤，环比上日下跌1.0泰铢/公斤；云南胶水报收16.4元/公斤，环比上日下跌0.4 元/公斤；海南胶水报收15.6元/公斤，环比上日下跌0
+发布时间：2026年05月04日 21:41 来源：中国新闻网 青春去哪里？他们携笔从戎，奔赴边疆、远赴山海，去往祖国需要的地方！ 责任编辑：【翟璐】
 
 ## 正文
 
-橡胶：持续调整 周三，国产全乳胶17400/吨，环比上日下跌250元/吨；泰国20号混合胶16950元/吨，环比上日下跌280元/吨。
+发布时间：2026年05月04日 21:41 来源：中国新闻网 青春去哪里？
 
-原料端：昨日泰国胶水报收87.75泰铢/公斤，环比上日上涨0.5泰铢/公斤，泰国杯胶报收70.0 泰铢/公斤，环比上日下跌1.0泰铢/公斤；云南胶水报收16.4元/公斤，环比上日下跌0.4 元/公斤；海南胶水报收15.6元/公斤，环比上日下跌0.1元/公斤。
+他们携笔从戎，奔赴边疆、远赴山海，去往祖国需要的地方！
 
-截至2026年6月7日，中国天然橡胶社会库存127.03万吨，环比增加0.11万吨，增幅0.09%。
-
-中国深色胶社会总库存为87.34万吨，环比增0.47%。
-
-其中青岛现货库存增0.88%；云南降1.40%；越南10环比持平；NR库存小计环比微增。
-
-中国浅色胶社会总库存为39.69万吨，环比降0.74%。
-
-其中老全乳胶环比降0.73%，3L环比降7.75%，RU库存小计增0.99%。
-
-观点：尽管近期国际气象组织发布公告称厄尔尼诺事件可能发生至中等强度，全球主产区出现普遍的气温偏高，但并未出现持续的少雨干旱情况，因此，预计全球产量的季节性依然不会出现大幅延迟。
+责任编辑：【翟璐】
 
 ## 相关推荐
 
-- 2026-06-30 08:45 - [张月收到黄灿灿辣货两眼发光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-30 08:58 - [存储芯片龙头提示风险](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
-- 2026-06-30 08:40 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-30 08:46 - [亚洲球队全部出局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-30 08:40 - [勇士续约波尔津吉斯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-30 08:57 - [德国进球被吹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
-- 2026-06-30 08:51 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
-- 2026-06-30 08:44 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-30 08:51 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-30 08:52 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-30 08:50 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
-- 2026-06-30 09:05 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-30 08:46 - [锐评：网红不能困在无底线逐利里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-30 09:00 - [点球大战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-30 09:00 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-30 08:48 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-30 08:47 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-30 09:04 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-30 08:47 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-30 09:09 - [世界杯名画巴拉圭钢铁防线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-30 08:54 - [马航370搜寻最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
+- 2026-06-30 09:01 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-30 08:51 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-30 09:02 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-30 08:59 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:36 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/953029626013.shtml)
-- 2026-06-30 08:37 - [日本进球](http://www.blog.kurohicncr.top/Article/details/03722.shtml)
-- 2026-06-30 08:46 - [覃予萱晋级WTT美国大满贯女单32强](https://www.blog.minike.top/Article/details/102437920.shtml)
-- 2026-06-30 08:44 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/4017390080.shtml)
-- 2026-06-30 08:42 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/503499961033.shtml)
-- 2026-06-30 08:38 - [德国巴拉圭 折磨](http://www.blog.kurohicncr.top/Article/details/81886.shtml)
-- 2026-06-30 08:46 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/11824718272.shtml)
-- 2026-06-30 08:59 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/65528535.shtml)
-- 2026-06-30 08:56 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/923274348500.shtml)
-- 2026-06-30 08:44 - [我和我的家乡](http://www.share.minike.top/Article/details/30746943407.shtml)
-- 2026-06-30 09:04 - [锐评T1战胜KC](http://www.blog.minike.top/Article/details/3078056.shtml)
-- 2026-06-30 08:54 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/0634267.shtml)
-- 2026-06-30 08:51 - [马耳他著名拱门坍塌致中国男子身亡](http://www.share.kurohicncr.top/Article/details/04458920860.shtml)
-- 2026-06-30 08:48 - [存储芯片龙头提示风险](http://www.blog.kurohicncr.top/Article/details/24005573.shtml)
-- 2026-06-30 08:51 - [iPhone18e曝光](http://www.blog.minike.top/Article/details/3245203839.shtml)
+- 2026-06-30 09:05 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.minike.top/Article/details/923429476633.shtml)
+- 2026-06-30 09:11 - [健全中小学教师工资长效联动机制](http://www.blog.kurohicncr.top/Article/details/6498728.shtml)
+- 2026-06-30 09:07 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.kurohicncr.top/Article/details/88796.shtml)
+- 2026-06-30 09:04 - [第一次对自信的力量有了实感](https://www.blog.kurohicncr.top/Article/details/1851977306.shtml)
+- 2026-06-30 09:12 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/79114345236.shtml)
+- 2026-06-30 08:42 - [女心理师](https://www.share.kurohicncr.top/Article/details/905928.shtml)
+- 2026-06-30 08:59 - [4000美元是黄金新一轮下跌的开始吗](http://www.share.kurohicncr.top/Article/details/7640253745.shtml)
+- 2026-06-30 08:43 - [送你一朵小红花](https://www.share.minike.top/Article/details/403963885900.shtml)
+- 2026-06-30 08:52 - [杨紫大银幕成绩单](https://www.blog.minike.top/Article/details/24633632.shtml)
+- 2026-06-30 09:11 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/58754.shtml)
+- 2026-06-30 08:50 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/685926923152.shtml)
+- 2026-06-30 08:42 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/691332785383.shtml)
+- 2026-06-30 09:04 - [日本球员说被绝杀非常不甘心](https://www.share.minike.top/Article/details/40391152407.shtml)
+- 2026-06-30 08:50 - [球评巴西绝杀逆转日本](http://www.blog.kurohicncr.top/Article/details/903064834247.shtml)
+- 2026-06-30 08:46 - [中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？](https://www.blog.kurohicncr.top/Article/details/14252510989.shtml)

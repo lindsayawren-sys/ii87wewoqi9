@@ -1,53 +1,46 @@
-# 京津冀出台九条专项举措 支持雄安技能人才队伍建设高质量发展
+# 此行间·总书记深情寄语大学生
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-今天(11日)，京津冀三地人社部门联合出台推动雄安新区技能人才队伍建设高质量发展九条专项举措。 措施紧扣新区承接北京非首都功能疏解，围绕跨区域技能培训协作、技能人才交流互动、培训评价标准互通、等级评价统考互认等方面健全政策举措。专项举措将有利于整合三地资源优势，为雄安新区高标准建设、重点产业落地投产提供人才保障。 (总台记者 宋小勇)
+发布时间：2026年05月05日 16:19 来源：人民日报客户端 责任编辑：【李骏】
 
 ## 正文
 
-今天(11日)，京津冀三地人社部门联合出台推动雄安新区技能人才队伍建设高质量发展九条专项举措。
-
-措施紧扣新区承接北京非首都功能疏解，围绕跨区域技能培训协作、技能人才交流互动、培训评价标准互通、等级评价统考互认等方面健全政策举措。
-
-专项举措将有利于整合三地资源优势，为雄安新区高标准建设、重点产业落地投产提供人才保障。
-
-(总台记者 宋小勇)
+发布时间：2026年05月05日 16:19 来源：人民日报客户端 责任编辑：【李骏】
 
 ## 相关推荐
 
-- 2026-06-30 08:58 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
-- 2026-06-30 08:41 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
-- 2026-06-30 09:04 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-30 09:04 - [马耳他著名拱门坍塌致一中国男子身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
-- 2026-06-30 08:46 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-30 08:36 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-30 08:55 - [曝iPhone18Pro机密文件现身暗网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
-- 2026-06-30 09:04 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
-- 2026-06-30 09:04 - [大蒜晒外面被路过女子连盆端走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-30 08:40 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-30 08:40 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
-- 2026-06-30 09:02 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-30 08:58 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-30 08:45 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-30 08:48 - [板面：为什么那么多人爱吃？？！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-30 08:58 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-30 08:43 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-30 08:50 - [锐评：网红不能困在无底线逐利里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-30 08:55 - [巴拉圭率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
+- 2026-06-30 09:00 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-30 08:46 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-30 09:09 - [点球大战 残酷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-30 08:57 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-30 08:58 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-30 08:56 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-30 08:49 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
+- 2026-06-30 09:03 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
+- 2026-06-30 08:43 - [女子遭下药退赔偿拟追刑责](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-30 08:47 - [杨紫大银幕成绩单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:43 - [日本16强魔咒](https://www.share.kurohicncr.top/Article/details/317932109.shtml)
-- 2026-06-30 09:04 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/42358183355.shtml)
-- 2026-06-30 08:48 - [第一次对自信的力量有了实感](https://www.share.minike.top/Article/details/4524275.shtml)
-- 2026-06-30 08:39 - [金鹰奖视后提名预测](https://www.blog.kurohicncr.top/Article/details/2003724681.shtml)
-- 2026-06-30 08:51 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/7617894.shtml)
-- 2026-06-30 08:52 - [巴西扳平比分](http://www.share.kurohicncr.top/Article/details/234672291.shtml)
-- 2026-06-30 08:55 - [日本淘汰](https://www.share.kurohicncr.top/Article/details/5296117088.shtml)
-- 2026-06-30 08:53 - [爆冷出局！德国点球大战不敌巴拉圭](https://www.share.minike.top/Article/details/97775167.shtml)
-- 2026-06-30 08:57 - [亚洲球队全部出局](https://www.share.kurohicncr.top/Article/details/87577984.shtml)
-- 2026-06-30 08:41 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/7037623.shtml)
-- 2026-06-30 08:40 - [巴拉圭点球大战淘汰德国进16强](http://www.blog.kurohicncr.top/Article/details/1818964611.shtml)
-- 2026-06-30 08:52 - [齐思钧回复张月](http://www.blog.kurohicncr.top/Article/details/904319615.shtml)
-- 2026-06-30 08:43 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/464788361.shtml)
-- 2026-06-30 08:44 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/78252247015.shtml)
-- 2026-06-30 09:05 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.minike.top/Article/details/70137650.shtml)
+- 2026-06-30 09:00 - [哈弗茨头球破门](http://www.blog.kurohicncr.top/Article/details/393826345706.shtml)
+- 2026-06-30 08:44 - [男子造谣东鹏老板不喝自家饮料被拘](http://www.blog.minike.top/Article/details/2831941.shtml)
+- 2026-06-30 09:06 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/68929.shtml)
+- 2026-06-30 08:44 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/10352955.shtml)
+- 2026-06-30 08:45 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/34560.shtml)
+- 2026-06-30 09:06 - [一见倾心](http://www.share.kurohicncr.top/Article/details/399299.shtml)
+- 2026-06-30 09:01 - [德国 传控](https://www.blog.minike.top/Article/details/13493986104.shtml)
+- 2026-06-30 08:43 - [郑钦文温网一轮游](https://www.blog.kurohicncr.top/Article/details/5095178345.shtml)
+- 2026-06-30 09:01 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/14321886.shtml)
+- 2026-06-30 08:54 - [斗破苍穹](https://www.share.minike.top/Article/details/020815199.shtml)
+- 2026-06-30 08:59 - [金鹰奖视后提名预测](https://www.share.minike.top/Article/details/75205450.shtml)
+- 2026-06-30 08:45 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/947319593.shtml)
+- 2026-06-30 08:48 - [美股深夜大反弹 特斯拉飙涨8%](https://www.blog.kurohicncr.top/Article/details/545576.shtml)
+- 2026-06-30 09:08 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.minike.top/Article/details/7773529140.shtml)
+- 2026-06-30 08:49 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/51072899.shtml)

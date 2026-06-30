@@ -1,58 +1,56 @@
-# 载有200万吨科威特原油的超级油轮从霍尔木兹海峡返回韩国
+# 【小新的Vlog】五一在南昌西站“送外卖”：和高铁送餐员的“极限3分钟”
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-一艘韩国油轮在离开霍尔木兹海峡约三周后，于周三下午抵达韩国东南部港口城市蔚山附近海域。 这艘名为“环球赢家号”（Universal Winner）的超大型原油运输船（VLCC）由韩国航运公司HMM运营，载有200万桶科威特原油，抵达蔚山附近海域。蔚山位于首尔东南约300公里处。 截至当地时间下午3点30分，该船正在引航员和拖船的协助下，尝试停靠SK能源公司的海上原油卸货设施。
+发布时间：2026年05月05日 17:46 来源：中国新闻网 “您好，您的高铁外卖正在狂奔！”五一假期，当你在飞驰的高铁上点一份热气腾腾的“江西小炒”时，你可曾想过，这份“锅气”是如何穿越人海，精准抵达你的餐桌？ 这个劳动节，我们走进了繁忙的南昌西站，沉浸式体验了南昌西站12306网络订餐配送中心的配送员的“极速人生” 。 跟着我们的镜头，带你沉浸式感受：如何在高铁停靠的黄金
 
 ## 正文
 
-一艘韩国油轮在离开霍尔木兹海峡约三周后，于周三下午抵达韩国东南部港口城市蔚山附近海域。
+发布时间：2026年05月05日 17:46 来源：中国新闻网 “您好，您的高铁外卖正在狂奔！
 
-这艘名为“环球赢家号”（Universal Winner）的超大型原油运输船（VLCC）由韩国航运公司HMM运营，载有200万桶科威特原油，抵达蔚山附近海域。
+”五一假期，当你在飞驰的高铁上点一份热气腾腾的“江西小炒”时，你可曾想过，这份“锅气”是如何穿越人海，精准抵达你的餐桌？
 
-蔚山位于首尔东南约300公里处。
+这个劳动节，我们走进了繁忙的南昌西站，沉浸式体验了南昌西站12306网络订餐配送中心的配送员的“极速人生” 。
 
-截至当地时间下午3点30分，该船正在引航员和拖船的协助下，尝试停靠SK能源公司的海上原油卸货设施。
+跟着我们的镜头，带你沉浸式感受：如何在高铁停靠的黄金3分钟里，手提十几斤的餐食完成一场“百米冲刺” ；今天，我们不坐车，只为送餐。
 
-这艘油轮是2月下旬美国和以色列对伊朗发动空袭后滞留在霍尔木兹海峡的26艘韩国船只中第一艘离开该地区的。
+跟着小新，用汗水致敬劳动节，带你揭秘“舌尖上的高铁”背后，那一群与时间赛跑的“孤勇者”。
 
-这艘油轮原计划装载科威特原油，于2月28日进入霍尔木兹海峡，当天正是美国和以色列对伊朗发动军事打击的日子。
-
-在霍尔木兹海峡被困两个多月后，根据韩国和伊朗于5月20日达成的协议，该油轮获准离开该水域返回韩国。
-
-据悉，船上货物属于SK集团旗下原油贸易公司SK Trading International。
+吴思瑜 李韵涵江西南昌报道 责任编辑：【卢岩】
 
 ## 相关推荐
 
-- 2026-06-30 08:54 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
-- 2026-06-30 08:55 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-30 08:37 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
-- 2026-06-30 08:41 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
-- 2026-06-30 08:58 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
-- 2026-06-30 08:50 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-30 08:51 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
-- 2026-06-30 08:40 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-30 08:58 - [古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
-- 2026-06-30 08:37 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
-- 2026-06-30 08:37 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-30 08:41 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-30 08:42 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-30 08:53 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
+- 2026-06-30 08:53 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-30 09:01 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-30 08:59 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-30 08:43 - [三星投资计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-30 08:59 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-30 08:45 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
+- 2026-06-30 09:03 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-30 09:06 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-30 08:44 - [森保一致歉：世界第一目标没能实现](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-30 08:46 - [iPhoneUltra黑色机模](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-30 08:52 - [王楚钦说配合稍微有些陌生感](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-30 08:46 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:56 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/05236.shtml)
-- 2026-06-30 08:45 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/484915.shtml)
-- 2026-06-30 08:48 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/9530043197.shtml)
-- 2026-06-30 08:49 - [董路：谁赢谁是“正路子”](https://www.blog.minike.top/Article/details/0445048.shtml)
-- 2026-06-30 08:46 - [为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？](http://www.share.minike.top/Article/details/09246022.shtml)
-- 2026-06-30 08:55 - [起风了](http://www.share.minike.top/Article/details/330130.shtml)
-- 2026-06-30 09:00 - [本届世界杯已有5名球员被控强奸](http://www.blog.kurohicncr.top/Article/details/7712454624.shtml)
-- 2026-06-30 08:50 - [德国北部枪击事件致5死](https://www.blog.kurohicncr.top/Article/details/738553.shtml)
-- 2026-06-30 08:52 - [刘宇宁高情商化解谁站C位](https://www.blog.minike.top/Article/details/808462247374.shtml)
-- 2026-06-30 08:53 - [F1奥地利站赛后复盘](https://www.share.minike.top/Article/details/31361687114.shtml)
-- 2026-06-30 08:37 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/19703361720.shtml)
-- 2026-06-30 09:01 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/05165892.shtml)
-- 2026-06-30 08:57 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.minike.top/Article/details/934984.shtml)
-- 2026-06-30 08:47 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/90602097.shtml)
-- 2026-06-30 08:41 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/17098292873.shtml)
+- 2026-06-30 08:55 - [韩国球迷凌晨4点接机怒骂主教练](https://www.blog.minike.top/Article/details/1952215726.shtml)
+- 2026-06-30 09:03 - [日本进球](http://www.blog.minike.top/Article/details/22661.shtml)
+- 2026-06-30 08:54 - [莫兰特转投开拓者效力](https://www.share.minike.top/Article/details/19594861.shtml)
+- 2026-06-30 09:11 - [Melo向柳智敏张元英道歉](http://www.blog.minike.top/Article/details/93348.shtml)
+- 2026-06-30 09:04 - [美股收盘 热门中概股普涨](http://www.share.kurohicncr.top/Article/details/7166155581.shtml)
+- 2026-06-30 08:46 - [覃予萱晋级WTT美国大满贯女单32强](https://www.blog.minike.top/Article/details/262031299091.shtml)
+- 2026-06-30 09:08 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/42888614.shtml)
+- 2026-06-30 08:43 - [曝老詹对自由市场态度与以往截然不同](https://www.share.minike.top/Article/details/59751.shtml)
+- 2026-06-30 08:45 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/833962382.shtml)
+- 2026-06-30 09:01 - [日本 高位逼抢](https://www.share.minike.top/Article/details/41013.shtml)
+- 2026-06-30 08:56 - [美股](http://www.blog.minike.top/Article/details/0485165.shtml)
+- 2026-06-30 09:08 - [《名肘探科比》：科比大战裂口女](https://www.blog.minike.top/Article/details/51503325784.shtml)
+- 2026-06-30 08:48 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](https://www.share.minike.top/Article/details/6550376.shtml)
+- 2026-06-30 08:54 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/63142326883.shtml)
+- 2026-06-30 09:00 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.share.kurohicncr.top/Article/details/2925323.shtml)

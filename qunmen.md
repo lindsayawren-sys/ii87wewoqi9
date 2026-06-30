@@ -1,60 +1,57 @@
-# 财经聚焦｜5月物价数据释放哪些信息
+# 台湾宜兰县海域发生6.1级地震
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-国家统计局10日发布数据显示，5月份，全国居民消费价格指数(CPI)同比上涨1.2%，环比下降0.1%，扣除食品和能源价格的核心CPI同比上涨1.1%。从最新物价数据中，能读出哪些信息？ 记者注意到，“CPI”和“核心CPI”两项指标的同比涨幅，均已连续4个月站上“1%”。 “今年以来，无论是CPI还是核心CPI，涨幅都有所回升，且涨势总体比较温和。”国家发展改革委市场与价格研
+中新社台北5月1日电 (记者 陈建新)据台当局气象部门消息，台湾宜兰县海域5月1日20时39分发生里氏6.1级地震。中新社记者所处的台北市大同区一处商场建筑内震感明显，灯具明显晃动。 此次地震震源深度为98.3公里，震中位于宜兰县政府东北方向38.7公里的海域。宜兰、新竹、南投、花莲等地震度最大，达4级。台气象部门针对宜兰、桃园、基隆、台北、新北等地发布防灾告警信息。 另据中国
 
 ## 正文
 
-国家统计局10日发布数据显示，5月份，全国居民消费价格指数(CPI)同比上涨1.2%，环比下降0.1%，扣除食品和能源价格的核心CPI同比上涨1.1%。
+中新社台北5月1日电 (记者 陈建新)据台当局气象部门消息，台湾宜兰县海域5月1日20时39分发生里氏6.1级地震。
 
-从最新物价数据中，能读出哪些信息？
+中新社记者所处的台北市大同区一处商场建筑内震感明显，灯具明显晃动。
 
-记者注意到，“CPI”和“核心CPI”两项指标的同比涨幅，均已连续4个月站上“1%”。
+此次地震震源深度为98.3公里，震中位于宜兰县政府东北方向38.7公里的海域。
 
-“今年以来，无论是CPI还是核心CPI，涨幅都有所回升，且涨势总体比较温和。
+宜兰、新竹、南投、花莲等地震度最大，达4级。
 
-”国家发展改革委市场与价格研究所研究员刘方说，这一方面反映出在扩内需、反“内卷”等宏观政策实施下，国内市场供需结构逐步向好、供需关系有所改善；另一方面，也有国际大宗商品价格波动带来的输入性影响。
+台气象部门针对宜兰、桃园、基隆、台北、新北等地发布防灾告警信息。
 
-从具体类别看，5月份，工业消费品价格同比上涨3.9%，涨幅比上月扩大0.4个百分点；服务价格上涨0.8%，涨幅比上月回落0.1个百分点。
+另据中国地震台网测定，5月1日20时39分在台湾宜兰县海域发生5.4级左右地震，震中位于北纬24.88度，东经122.07度。
 
-此外，食品价格继续下降。
-
-5月份，食品价格同比下降1.7%，降幅比上月扩大0.1个百分点。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 08:38 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-30 08:48 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
-- 2026-06-30 08:36 - [四川凉山落石砸毁车辆 3人遇难](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-30 09:02 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
-- 2026-06-30 08:59 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-30 08:57 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-30 08:57 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-30 08:54 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
-- 2026-06-30 08:44 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-30 08:55 - [点球淘汰德国 巴拉圭首都陷入疯狂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-30 08:52 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-30 08:49 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
-- 2026-06-30 08:59 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-30 09:01 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
+- 2026-06-30 08:48 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
+- 2026-06-30 09:02 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
+- 2026-06-30 08:51 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-30 08:55 - [泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-30 08:52 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-30 09:07 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-30 09:03 - [德国身价是巴拉圭6倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-30 08:59 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-30 09:04 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-30 09:08 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-30 08:47 - [存储芯片龙头提示风险](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-30 09:06 - [曝老詹对自由市场态度与以往截然不同](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-30 09:09 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:50 - [三星投资计划](http://www.blog.kurohicncr.top/Article/details/99536.shtml)
-- 2026-06-30 08:40 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/138881700.shtml)
-- 2026-06-30 08:45 - [勇士续约波尔津吉斯](https://www.share.kurohicncr.top/Article/details/92576980.shtml)
-- 2026-06-30 08:54 - [好像看到了人类带孩子崩溃的样子](http://www.share.minike.top/Article/details/0015654750.shtml)
-- 2026-06-30 08:52 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](http://www.share.minike.top/Article/details/801128865.shtml)
-- 2026-06-30 08:54 - [巴西绝杀日本：漫画般结局换了主角](https://www.blog.kurohicncr.top/Article/details/46207530668.shtml)
-- 2026-06-30 08:57 - [男子身高一米八二仍做断骨增高](https://www.blog.kurohicncr.top/Article/details/13435.shtml)
-- 2026-06-30 08:58 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/22570.shtml)
-- 2026-06-30 08:45 - [哈弗茨头球破门](http://www.share.kurohicncr.top/Article/details/630823484510.shtml)
-- 2026-06-30 09:05 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://www.share.minike.top/Article/details/971188363962.shtml)
-- 2026-06-30 08:42 - [我和我的家乡](http://www.blog.minike.top/Article/details/263932037637.shtml)
-- 2026-06-30 08:48 - [小娘惹](http://www.blog.minike.top/Article/details/353032466631.shtml)
-- 2026-06-30 09:00 - [莫兰特转投开拓者效力](https://www.blog.minike.top/Article/details/5252727.shtml)
-- 2026-06-30 09:00 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/149061301.shtml)
-- 2026-06-30 08:38 - [日本淘汰](http://www.blog.minike.top/Article/details/289571976903.shtml)
+- 2026-06-30 08:54 - [网友写差评被店家“挂”门口避雷](https://www.share.kurohicncr.top/Article/details/55477725.shtml)
+- 2026-06-30 09:05 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/85440974866.shtml)
+- 2026-06-30 09:08 - [欧洲民众抢购空调降温](https://www.blog.kurohicncr.top/Article/details/15301895657.shtml)
+- 2026-06-30 08:48 - [网红不能困在无底线逐利里](http://www.share.minike.top/Article/details/5028099721.shtml)
+- 2026-06-30 08:53 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/8508481.shtml)
+- 2026-06-30 08:50 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/188324.shtml)
+- 2026-06-30 08:51 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/361957446710.shtml)
+- 2026-06-30 08:56 - [网瘾賊大的阿嬷](https://www.share.minike.top/Article/details/049944767.shtml)
+- 2026-06-30 08:57 - [德国身价是巴拉圭6倍](https://www.blog.kurohicncr.top/Article/details/509939961934.shtml)
+- 2026-06-30 08:52 - [感动全网的699分女生想报考清华](https://www.blog.minike.top/Article/details/7739666555.shtml)
+- 2026-06-30 09:07 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/094066.shtml)
+- 2026-06-30 09:08 - [F1奥地利站赛后复盘](http://www.blog.minike.top/Article/details/80031187.shtml)
+- 2026-06-30 08:47 - [德国 传控](https://www.blog.minike.top/Article/details/89268626.shtml)
+- 2026-06-30 09:07 - [德国队世界杯点球大战首败](https://www.blog.kurohicncr.top/Article/details/444866.shtml)
+- 2026-06-30 08:43 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/541252768385.shtml)

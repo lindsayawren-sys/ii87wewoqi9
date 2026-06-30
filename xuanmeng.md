@@ -1,56 +1,59 @@
-# 流动性预期反转，黄金市场的四大变化
+# 通胀恐慌冲击债市：30年期美债收益率升破5%
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-6月5日，美国劳工部公布5月非农就业数据，数据大超预期引发市场对流动性收缩的恐慌。美国劳动力市场的强劲数据，加上近期公布的全面走高的通胀数据，进一步强化了美联储结束货币宽松的理由。市场由此检验了对流动性依赖程度较高的资产：数据公布后，美股三大指数尤其是纳指大幅下跌，全球科技股暴跌；美债收益率大幅上行，比特币大幅下挫，黄金白银也大跌，而美元指数则上升至100以上。 全球资产几乎被
+中东局势升级引发油价飙升，通胀担忧卷土重来，美国债券市场周一遭遇剧烈抛售，30年期国债收益率自去年7月以来首次突破5%关口。 在伊朗袭击阿联酋能源设施、美伊停火形同破局后，布伦特原油大涨5.8%至114.44美元，WTI原油回升至106美元上方。能源价格飙升重新点燃了市场对通胀持续高企的担忧，投资者正迅速调整对美联储政策路径的预期——利率互换市场显示，到2027年4月加息的可能
 
 ## 正文
 
-6月5日，美国劳工部公布5月非农就业数据，数据大超预期引发市场对流动性收缩的恐慌。
+中东局势升级引发油价飙升，通胀担忧卷土重来，美国债券市场周一遭遇剧烈抛售，30年期国债收益率自去年7月以来首次突破5%关口。
 
-美国劳动力市场的强劲数据，加上近期公布的全面走高的通胀数据，进一步强化了美联储结束货币宽松的理由。
+在伊朗袭击阿联酋能源设施、美伊停火形同破局后，布伦特原油大涨5.8%至114.44美元，WTI原油回升至106美元上方。
 
-市场由此检验了对流动性依赖程度较高的资产：数据公布后，美股三大指数尤其是纳指大幅下跌，全球科技股暴跌；美债收益率大幅上行，比特币大幅下挫，黄金白银也大跌，而美元指数则上升至100以上。
+能源价格飙升重新点燃了市场对通胀持续高企的担忧，投资者正迅速调整对美联储政策路径的预期——利率互换市场显示，到2027年4月加息的可能性已升至约80%，与几个月前降息占主导的预期形成鲜明逆转。
 
-全球资产几乎被无差别抛售，意味着市场对美联储宽松预期的大转弯。
+债市遭遇全面抛售。
 
-2026年1月美联储议息会议后，市场争论的焦点是美联储年内降息几次，而时至今日，交易的重点已切换到美联储加息多少基点，市场重新校准了年内美联储的货币政策取向。
+10年期美债收益率周一上涨约6.7个基点至4.44%，创9个月新高；30年期收益率上涨约6个基点至5.02%。
 
-芝加哥商品交易所Fed Watch数据显示，截至6月9日午间，预计6月17日美联储议息会议维持利率在3.5%—3.75%不变的概率为98%；同时年内7月和9月维持利率不变的概率显著超过其它；而10月美联储加息25基点的概率已上升至42.0%（同期维持利率不变的概率为43.8%），12月美联储加息25基点的概率攀升至42.7%（同期维持利率不变的概率为26.8%）。
+对政策敏感的2年期收益率攀升逾7个基点至3.95%。
 
-二季度以来，美联储12月加息的预期大幅升温，而本次非农就业数据公布之后，10月加息的概率上升，引发流动性恐慌。
+市场定价显示未来十年通胀预期已升至2.5%，为2023年以来最高水平。
 
-市场对美联储宽松预期反转的原因有三：一是沃什被任命为新一届美联储主席，美国货币政策的基调可能生变。
+与此同时，美国财政部意外将本季度净借款预估上调800亿美元至1890亿美元，理由是“净现金流低于预期”，这进一步加剧了供给端压力。
 
 ## 相关推荐
 
-- 2026-06-30 08:46 - [iPhoneUltra黑色机模](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-30 08:38 - [电影抓特务上映11天破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-30 08:52 - [黄晓明晒和周杰伦的合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-30 08:46 - [《共患难》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-30 08:52 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
-- 2026-06-30 08:49 - [黄晓明晒和周杰伦的合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
-- 2026-06-30 09:02 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-30 08:40 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-30 08:47 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-30 09:03 - [锐评：网红不能困在无底线逐利里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-30 09:09 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-30 08:47 - [日耳曼拖拉机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-30 08:56 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
+- 2026-06-30 09:04 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
+- 2026-06-30 09:03 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-30 08:50 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-30 09:06 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-30 09:09 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-30 08:46 - [德国 传控](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-30 08:56 - [自然光｜papi酱&窦文涛：驴与跑步机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-30 09:10 - [诺伊尔尽力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-30 09:07 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-30 09:01 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:52 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/9979224236.shtml)
-- 2026-06-30 08:46 - [这种关系可能正在悄悄“催老”你](https://www.blog.kurohicncr.top/Article/details/78658394.shtml)
-- 2026-06-30 09:01 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://www.share.minike.top/Article/details/625901344.shtml)
-- 2026-06-30 08:48 - [“荒唐”背后的韩国足球](https://www.blog.minike.top/Article/details/857785983524.shtml)
-- 2026-06-30 08:48 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/694533.shtml)
-- 2026-06-30 09:03 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/0407250.shtml)
-- 2026-06-30 09:02 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.blog.kurohicncr.top/Article/details/685938.shtml)
-- 2026-06-30 08:41 - [小娘惹](http://www.share.minike.top/Article/details/67625706140.shtml)
-- 2026-06-30 09:06 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.minike.top/Article/details/497553836317.shtml)
-- 2026-06-30 08:40 - [内马尔安慰日本球员](http://www.blog.minike.top/Article/details/667536838051.shtml)
-- 2026-06-30 08:44 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/251514685686.shtml)
-- 2026-06-30 08:44 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/06005.shtml)
-- 2026-06-30 09:01 - [女心理师](https://www.blog.minike.top/Article/details/3547789254.shtml)
-- 2026-06-30 08:42 - [曝詹姆斯即将与勇士会面](https://www.blog.kurohicncr.top/Article/details/306821.shtml)
-- 2026-06-30 08:57 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/991098.shtml)
+- 2026-06-30 08:53 - [德国北部枪击事件致5死](https://www.blog.minike.top/Article/details/18412246.shtml)
+- 2026-06-30 08:48 - [周冬雨多次说演不了话剧文城](http://www.blog.kurohicncr.top/Article/details/57324280048.shtml)
+- 2026-06-30 09:08 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/9390049895.shtml)
+- 2026-06-30 08:47 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/444852.shtml)
+- 2026-06-30 08:59 - [这几秒成世界杯最值钱广告位](https://www.blog.minike.top/Article/details/362296.shtml)
+- 2026-06-30 09:08 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/947051203479.shtml)
+- 2026-06-30 09:07 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](http://www.blog.minike.top/Article/details/627019282223.shtml)
+- 2026-06-30 08:45 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/15141133.shtml)
+- 2026-06-30 09:10 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/49698499.shtml)
+- 2026-06-30 08:44 - [泰山景区建135公里刀片刺绳隔离网](http://www.blog.minike.top/Article/details/2669851167.shtml)
+- 2026-06-30 08:52 - [AI手机进入Agent时代](https://www.blog.minike.top/Article/details/7946499.shtml)
+- 2026-06-30 09:11 - [亚洲球队全部出局](http://www.share.minike.top/Article/details/4386070.shtml)
+- 2026-06-30 09:08 - [峡谷事故团队组队时有人提醒会下雨](https://www.share.kurohicncr.top/Article/details/91100918067.shtml)
+- 2026-06-30 08:53 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/4225213212.shtml)
+- 2026-06-30 08:46 - [欧洲装一台空调有多难](https://www.share.minike.top/Article/details/010327.shtml)

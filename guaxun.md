@@ -1,57 +1,60 @@
-# 美国贸易法官敦促特朗普政府加快关税退款
+# 沈飞钳工华成祥：0.005毫米的青春刻度
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-美国一位贸易法官周二敦促特朗普政府官员加快退还超过100亿美元的关税收入，这些关税是此前征收的，后来被美国最高法院裁定为非法。但这位法官并未发布新的命令强制他们这样做。 位于曼哈顿的国际贸易法院法官理查德·伊顿表示，处理部分退税申请的延误导致大型进口商（他们聘请报关行协助其通过政府退税系统申请退税）与没有聘请报关行的小型企业之间“日益加剧的不公平”。 伊顿称这种不平等是政府建立
+中新网沈阳5月4日电 题：沈飞钳工华成祥：0.005毫米的青春刻度 作者 王涵 王艺霖 5分钟，一块正方形的45号钢，用锉刀生生锉下50道刻痕，误差不能超过0.005毫米，约等于头发丝的十五分之一。 在航空工业沈阳飞机工业(集团)有限公司十三厂的车间里，这是钳工华成祥午休时雷打不动的习惯。这位曾获第28届“中国青年五四奖章”的青年，如今正用这套手艺，打磨着关键机型的零件。 这份
 
 ## 正文
 
-美国一位贸易法官周二敦促特朗普政府官员加快退还超过100亿美元的关税收入，这些关税是此前征收的，后来被美国最高法院裁定为非法。
+中新网沈阳5月4日电 题：沈飞钳工华成祥：0.005毫米的青春刻度 作者 王涵 王艺霖 5分钟，一块正方形的45号钢，用锉刀生生锉下50道刻痕，误差不能超过0.005毫米，约等于头发丝的十五分之一。
 
-但这位法官并未发布新的命令强制他们这样做。
+在航空工业沈阳飞机工业(集团)有限公司十三厂的车间里，这是钳工华成祥午休时雷打不动的习惯。
 
-位于曼哈顿的国际贸易法院法官理查德·伊顿表示，处理部分退税申请的延误导致大型进口商（他们聘请报关行协助其通过政府退税系统申请退税）与没有聘请报关行的小型企业之间“日益加剧的不公平”。
+这位曾获第28届“中国青年五四奖章”的青年，如今正用这套手艺，打磨着关键机型的零件。
 
-伊顿称这种不平等是政府建立退还 1660 亿美元非法关税机制的“意外后果”，并表示他不认为政府会寻求偏袒较大的进口商。
+这份从容并非与生俱来。
 
-但他表示，特朗普政府决定对其3月4日要求政府退还所有关税的命令提出上诉，从而推迟了付款。
+2014年刚进厂时，沈飞新员工培训大会上，领导问大家有没有想问的。
 
-“现在是时候退还所有关税了，”伊顿说，“实现这一目标的一个方法是，政府不要对我的命令提出上诉。
+华成祥举手：“我能不能成为大国工匠的徒弟？
 
-” 美国海关与边境保护局（CBP）表示，已受理并开始处理近900亿美元的退税申请，预计第一阶段退税总额可能高达1270亿美元，这些退税案件相对简单。
+” 回应他的是全场哄堂大笑。
 
-CBP官员苏珊·托马斯在周二的听证会上作证称，其中230亿美元的退税已完成并上缴财政部，由财政部分配给进口商。
+大家都以为他在开玩笑，但只有他自己知道有多认真。
 
 ## 相关推荐
 
-- 2026-06-30 08:49 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
-- 2026-06-30 08:37 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-30 08:47 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
-- 2026-06-30 08:42 - [德国巴拉圭 折磨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-30 09:05 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-30 09:03 - [高质量发展看新疆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
-- 2026-06-30 08:51 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-30 08:58 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-30 08:57 - [马耳他著名拱门坍塌致中国男子身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-30 08:50 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-30 08:56 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-30 09:07 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-30 09:08 - [板面：为什么那么多人爱吃？？！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-30 08:54 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-30 09:00 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-30 08:44 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-30 08:44 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-30 08:46 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-30 08:55 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
+- 2026-06-30 08:56 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-30 08:52 - [森保一 保守](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-30 08:54 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-30 08:46 - [点球大战 残酷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-30 08:53 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
+- 2026-06-30 09:05 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:47 - [网友写差评被店家“挂”门口避雷](https://www.share.kurohicncr.top/Article/details/05860.shtml)
-- 2026-06-30 08:47 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/98368.shtml)
-- 2026-06-30 08:48 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/7691639391.shtml)
-- 2026-06-30 09:00 - [点球大战](https://www.share.minike.top/Article/details/31884.shtml)
-- 2026-06-30 09:02 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/565429007419.shtml)
-- 2026-06-30 09:04 - [我觉得你是在无中生友](https://www.blog.kurohicncr.top/Article/details/7600763407.shtml)
-- 2026-06-30 08:52 - [董路：谁赢谁是“正路子”](http://www.share.kurohicncr.top/Article/details/5642437.shtml)
-- 2026-06-30 08:47 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.share.minike.top/Article/details/109667472.shtml)
-- 2026-06-30 08:42 - [曝老詹对自由市场态度与以往截然不同](https://www.share.kurohicncr.top/Article/details/99490108450.shtml)
-- 2026-06-30 08:48 - [韩国球迷凌晨4点接机怒骂主教练](http://www.share.kurohicncr.top/Article/details/507113.shtml)
-- 2026-06-30 08:55 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/810092551310.shtml)
-- 2026-06-30 08:53 - [田中碧失误](https://www.share.minike.top/Article/details/2952116845.shtml)
-- 2026-06-30 08:50 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/0046678359.shtml)
-- 2026-06-30 08:46 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/2387189916.shtml)
-- 2026-06-30 08:53 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.minike.top/Article/details/7769839.shtml)
+- 2026-06-30 08:53 - [全新问界M9现身美国街头](https://www.share.minike.top/Article/details/13953561573.shtml)
+- 2026-06-30 08:46 - [大蒜晒外面被路过女子连盆端走](https://www.share.kurohicncr.top/Article/details/44701.shtml)
+- 2026-06-30 08:49 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/46922586.shtml)
+- 2026-06-30 09:08 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.minike.top/Article/details/59279341.shtml)
+- 2026-06-30 08:47 - [点球大战 残酷](http://www.share.minike.top/Article/details/808027634270.shtml)
+- 2026-06-30 08:46 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/763993100919.shtml)
+- 2026-06-30 08:56 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/970299627315.shtml)
+- 2026-06-30 08:45 - [莫兰特被交易到开拓者](http://www.share.minike.top/Article/details/96277666440.shtml)
+- 2026-06-30 08:57 - [徐亮怒斥世界杯踢假球](https://www.share.minike.top/Article/details/815825132.shtml)
+- 2026-06-30 08:47 - [为什么会有「念旧」的心理？](https://www.share.minike.top/Article/details/259392.shtml)
+- 2026-06-30 08:44 - [巴西足球能否再现昔日荣光](https://www.share.kurohicncr.top/Article/details/7010246623.shtml)
+- 2026-06-30 09:11 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/200758.shtml)
+- 2026-06-30 09:07 - [周生如故](https://www.share.kurohicncr.top/Article/details/707599539798.shtml)
+- 2026-06-30 08:55 - [世界杯巴拉圭点球淘汰德国](https://www.blog.kurohicncr.top/Article/details/75266283819.shtml)
+- 2026-06-30 08:44 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/131142.shtml)

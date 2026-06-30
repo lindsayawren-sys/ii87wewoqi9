@@ -1,56 +1,61 @@
-# 研究报告：AI时代这些人才需求旺盛
+# 俄专家：东京审判是建立战后世界秩序的重要一步
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-中新网北京6月11日电(记者 高萌)11日，在北京发布的一份研究报告显示，近五年，就业质量持续较高、产业需求增长的“绿牌专业”，呈现出“信息化→智能化→产业化”的发展轨迹。随着AI加速产业变革，产业数字化、智能化转型持续推进，市场对具备工程实践能力和技术创新能力的人才需求保持旺盛。 这份报告由第三方机构麦可思发布，报告基于对2021届至2025届大学毕业生毕业半年后培养质量的跟
+新华社莫斯科5月2日电(记者栾海)俄罗斯研究二战及日本问题的专家日前表示，80年前的东京审判昭示了日本军国主义犯下的滔天罪行，是建立战后世界秩序的重要一步。 俄罗斯科学院中国与现代亚洲研究所日本研究中心首席研究员德米特里·斯特列尔佐夫对新华社记者说，东京审判是重大事件，它揭露了二战期间日本军国主义犯下的滔天罪行，在一定程度上为遭受日本侵略的人民伸张了正义。远东国际军事法庭判处7
 
 ## 正文
 
-中新网北京6月11日电(记者 高萌)11日，在北京发布的一份研究报告显示，近五年，就业质量持续较高、产业需求增长的“绿牌专业”，呈现出“信息化→智能化→产业化”的发展轨迹。
+新华社莫斯科5月2日电(记者栾海)俄罗斯研究二战及日本问题的专家日前表示，80年前的东京审判昭示了日本军国主义犯下的滔天罪行，是建立战后世界秩序的重要一步。
 
-随着AI加速产业变革，产业数字化、智能化转型持续推进，市场对具备工程实践能力和技术创新能力的人才需求保持旺盛。
+俄罗斯科学院中国与现代亚洲研究所日本研究中心首席研究员德米特里·斯特列尔佐夫对新华社记者说，东京审判是重大事件，它揭露了二战期间日本军国主义犯下的滔天罪行，在一定程度上为遭受日本侵略的人民伸张了正义。
 
-这份报告由第三方机构麦可思发布，报告基于对2021届至2025届大学毕业生毕业半年后培养质量的跟踪评价，剖析大学毕业生的最新就业流向与职业发展特征。
+远东国际军事法庭判处7名甲级战犯绞刑，10多名甲级战犯无期徒刑，彰显了历史公正性。
 
-随着产业加速下沉与技术的快速迭代，报告显示，毕业生就业结构正向先进制造业和现代服务业转移。
+战后国际秩序在很大程度上建立在这种历史公正性上，这稳固了战后世界秩序的道德和法律基础。
 
-“跟风深造”与“首选一线城市”的单向流动格局，正在被更加务实、多元的职业路径取代。
+俄罗斯自然科学院院士阿纳托利·科什金接受新华社记者采访时说，东京审判的历史意义在于，它通过庭审向世人表明侵略和惨无人道的施暴者不会逍遥法外，因此东京审判是建立战后世界秩序的重要一步。
 
-从行业流向上看，大学毕业生到先进制造业和现代服务业就业的比例正在稳步上升。
+遗憾的是并非所有日本战犯都受到了应有惩罚，一些战犯由于美国包庇而逃脱了法律制裁。
 
-其中，2025届本科毕业生在电子电气设备制造业(7.0%)、机械设备制造业(4.2%)、交通运输设备制造业(2.3%)的就业比例较2021届提升，在互联网零售业、电信相关领域的就业比例也较2021届提高。
+科什金指出，东京审判与纽伦堡审判一样，被视为“人民的审判”。
 
-当前，一批地级及以下城市逐步打造形成了电子信息、装备制造、新能源、现代服务等产业集群，与之相对应的是，应届毕业生的就业重心进一步向这些城市下沉。
+人们认为，对二战罪魁祸首进行判决是阻止法西斯主义、纳粹主义和军国主义死灰复燃的重要举措。
 
 ## 相关推荐
 
-- 2026-06-30 08:57 - [德国4比5巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-30 08:49 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
-- 2026-06-30 09:03 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-30 08:46 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-30 08:59 - [世界杯：荷兰vs摩洛哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-30 09:05 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-30 08:37 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-30 08:55 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
-- 2026-06-30 08:54 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-30 08:46 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-30 08:48 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-30 08:54 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-30 08:42 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-30 08:46 - [4000美元是黄金新一轮下跌的开始吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
+- 2026-06-30 09:00 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-30 08:47 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-30 09:10 - [网友写差评被店家“挂”门口避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-30 09:01 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-30 09:02 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-30 09:02 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-30 08:46 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-30 08:53 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-30 08:55 - [德国 传控](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
+- 2026-06-30 08:57 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-30 08:53 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:47 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/23250872.shtml)
-- 2026-06-30 08:48 - [美股深夜大反弹 特斯拉飙涨8%](https://www.share.kurohicncr.top/Article/details/497759.shtml)
-- 2026-06-30 09:04 - [健全中小学教师工资长效联动机制](https://www.blog.minike.top/Article/details/49298.shtml)
-- 2026-06-30 08:38 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/9340566.shtml)
-- 2026-06-30 08:46 - [流金岁月](http://www.share.kurohicncr.top/Article/details/2664642.shtml)
-- 2026-06-30 08:43 - [起风了](http://www.blog.minike.top/Article/details/98784867731.shtml)
-- 2026-06-30 09:05 - [德国队连续三届世界杯无缘16强](http://www.blog.kurohicncr.top/Article/details/469239683.shtml)
-- 2026-06-30 09:01 - [德国爆冷点球大战不敌巴拉圭](http://www.blog.minike.top/Article/details/3359217.shtml)
-- 2026-06-30 08:41 - [日本球迷输球后集体捡垃圾](http://www.blog.kurohicncr.top/Article/details/68820517.shtml)
-- 2026-06-30 08:50 - [被巴西绝杀后 日球员田中碧跪地痛哭](http://www.blog.kurohicncr.top/Article/details/46766745.shtml)
-- 2026-06-30 08:58 - [天道](https://www.share.minike.top/Article/details/5795981206.shtml)
-- 2026-06-30 08:52 - [卡塞米罗头球破门](https://www.blog.minike.top/Article/details/7409037393.shtml)
-- 2026-06-30 08:40 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/915890262.shtml)
-- 2026-06-30 08:39 - [日本球迷被强行披上巴西国旗](http://www.blog.kurohicncr.top/Article/details/0796920183.shtml)
-- 2026-06-30 08:36 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/125415458020.shtml)
+- 2026-06-30 09:03 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/043881362443.shtml)
+- 2026-06-30 08:58 - [董卿父亲报纸上发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/9396867916.shtml)
+- 2026-06-30 08:44 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/1525992.shtml)
+- 2026-06-30 08:50 - [森保一致歉：世界第一目标没能实现](http://www.blog.minike.top/Article/details/325018425099.shtml)
+- 2026-06-30 08:42 - [卡塞米罗头球破门](http://www.share.minike.top/Article/details/842412368.shtml)
+- 2026-06-30 09:11 - [欧洲装一台空调有多难](https://www.blog.kurohicncr.top/Article/details/07397854.shtml)
+- 2026-06-30 08:43 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/65706994171.shtml)
+- 2026-06-30 09:03 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/435179997.shtml)
+- 2026-06-30 08:56 - [《共患难》](http://www.share.minike.top/Article/details/87670402518.shtml)
+- 2026-06-30 08:55 - [杨紫获白玉兰视后为何争议难平](http://www.blog.kurohicncr.top/Article/details/8419438.shtml)
+- 2026-06-30 08:52 - [黄晓明晒和周杰伦的合照](http://www.share.kurohicncr.top/Article/details/0447651.shtml)
+- 2026-06-30 08:55 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/1314909649.shtml)
+- 2026-06-30 08:57 - [世界杯名画巴拉圭钢铁防线](http://www.share.minike.top/Article/details/0468688.shtml)
+- 2026-06-30 09:05 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/31796.shtml)
+- 2026-06-30 08:49 - [委内瑞拉地震死亡人数升至1719人](http://www.blog.minike.top/Article/details/540298830505.shtml)

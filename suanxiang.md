@@ -1,55 +1,60 @@
-# 云南西藏仍多降雨 6月12日起南方将有新一轮降雨过程
+# 五一假期最后两天我国降水较少 中东部多地将现今年首个30℃
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-中新网6月11日电 据中央气象台网站11日消息，昨日，云南西部和南部、台湾岛等地部分地区出现大雨，局地暴雨或大暴雨；东北地区、华北、黄淮东部等地部分地区出现小雨、局地中雨或大雨，吉林长春等局地暴雨。 今天，较强降雨依然集中在云南、台湾等地，预计云南西部和南部、西藏东南部和北部、川西高原北部及台湾岛等地有中到大雨，局地暴雨或大暴雨，并伴有短时强降水等强对流天气。此外，未来三天，东
+中国天气网讯 五一假期最后两天(5月4日至5日)，我国大部降水较少，利于假期返程，华南部分地区降雨频繁，公众雨天出行留意交通安全。随着降雨减少、冷空气影响结束，未来三天，我国中东部等地将开启升温进程，多地将现今年首个30℃，热意冒头。 五一假期最后两天我国降水较少 后天起南方新一轮降雨发展 昨天，南方降雨范围缩减，主要影响西南、华南等地，部分地区雨势较强，并伴有强对流天气。监测
 
 ## 正文
 
-中新网6月11日电 据中央气象台网站11日消息，昨日，云南西部和南部、台湾岛等地部分地区出现大雨，局地暴雨或大暴雨；东北地区、华北、黄淮东部等地部分地区出现小雨、局地中雨或大雨，吉林长春等局地暴雨。
+中国天气网讯 五一假期最后两天(5月4日至5日)，我国大部降水较少，利于假期返程，华南部分地区降雨频繁，公众雨天出行留意交通安全。
 
-今天，较强降雨依然集中在云南、台湾等地，预计云南西部和南部、西藏东南部和北部、川西高原北部及台湾岛等地有中到大雨，局地暴雨或大暴雨，并伴有短时强降水等强对流天气。
+随着降雨减少、冷空气影响结束，未来三天，我国中东部等地将开启升温进程，多地将现今年首个30℃，热意冒头。
 
-此外，未来三天，东北、华北、黄淮东部等地仍多阵雨或雷阵雨，并伴有雷暴大风或冰雹等强对流天气。
+五一假期最后两天我国降水较少 后天起南方新一轮降雨发展 昨天，南方降雨范围缩减，主要影响西南、华南等地，部分地区雨势较强，并伴有强对流天气。
 
-气象专家提醒，西藏、云南等地降雨持续，公众需多加警惕山洪、滑坡等次生灾害，尽量避免前往山区、河谷、地势低洼等危险区域，合理规划行程。
+监测显示，昨天8时至今天6时，广东南部、广西南部、云南南部和东部、海南东部等地部分地区出现大到暴雨，广东茂名和湛江、广西崇左和防城港等局地大暴雨。
 
-12日至14日，南方新一轮降雨过程启动，西南地区东部、江南中南部、华南将有中到大雨，部分地区暴雨，局部大暴雨，并伴有雷暴大风等强对流天气。
+今天，南方降雨继续减少，华南沿海等地有中到大雨，我国其余地区降水较少。
 
-请上述地区的公众及时关注气象部门发布的预警、预报信息，避免在雨势较强、强对流活跃时段外出。
+明天，我国以降水稀少的天气格局为主。
+
+后天，南方新一轮降雨将至。
+
+具体来看，中央气象台预计，今天，西藏北部和东部、青海西南部等地部分地区有小到中雪或雨夹雪；广西东南部、广东南部沿海、海南岛、台湾岛、云南西南部、新疆伊犁河谷、西藏东南部等地部分地区有中到大雨，其中，广东西南部沿海、海南岛东部等地部分地区有暴雨。
 
 ## 相关推荐
 
-- 2026-06-30 08:54 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-30 08:43 - [马耳他著名拱门坍塌致中国男子身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-30 08:46 - [自然光｜papi酱&窦文涛：驴与跑步机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-30 08:39 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
-- 2026-06-30 08:46 - [日本队主帅道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-30 08:57 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-30 08:52 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-30 08:57 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
-- 2026-06-30 08:51 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
-- 2026-06-30 09:01 - [马耳他著名拱门坍塌致一中国男子身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
-- 2026-06-30 08:58 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-30 09:03 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-30 08:41 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-30 08:48 - [德国队回应爆冷淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-30 08:46 - [巴西vs日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-30 08:42 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-30 09:07 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-30 09:05 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-30 09:00 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-30 08:42 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-30 09:02 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-30 08:43 - [大蒜晒外面被路过女子连盆端走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-30 08:55 - [内马尔未登场 安切洛蒂赛后回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-30 08:57 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-30 09:04 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-30 08:59 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-30 08:43 - [日本队5进世界杯淘汰赛0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:52 - [巴西绝杀](http://www.blog.kurohicncr.top/Article/details/1489515.shtml)
-- 2026-06-30 08:52 - [大蒜晒外面被路过女子连盆端走](http://www.blog.kurohicncr.top/Article/details/370739.shtml)
-- 2026-06-30 09:03 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/67190747305.shtml)
-- 2026-06-30 09:00 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/014855.shtml)
-- 2026-06-30 09:03 - [德国4比5巴拉圭](https://www.blog.minike.top/Article/details/107046.shtml)
-- 2026-06-30 08:58 - [曝老詹对自由市场态度与以往截然不同](https://www.share.minike.top/Article/details/912860709075.shtml)
-- 2026-06-30 08:50 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/572132.shtml)
-- 2026-06-30 09:05 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/0466958.shtml)
-- 2026-06-30 09:01 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/79982682.shtml)
-- 2026-06-30 09:05 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/1087525.shtml)
-- 2026-06-30 08:58 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/433246872121.shtml)
-- 2026-06-30 08:46 - [韩国世界杯出局是主帅一个人的锅吗](https://www.blog.kurohicncr.top/Article/details/10264883865.shtml)
-- 2026-06-30 09:00 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/804519255944.shtml)
-- 2026-06-30 08:58 - [收到补税提醒尽快办理 明起有滞纳金](https://www.share.kurohicncr.top/Article/details/0369748.shtml)
-- 2026-06-30 09:03 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/1778643.shtml)
+- 2026-06-30 08:53 - [张碧晨一开口梦回逐玉](https://www.blog.kurohicncr.top/Article/details/69531.shtml)
+- 2026-06-30 09:05 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/36268991.shtml)
+- 2026-06-30 08:59 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.kurohicncr.top/Article/details/100303426949.shtml)
+- 2026-06-30 09:06 - [委内瑞拉地震死亡人数升至1719人](https://www.blog.kurohicncr.top/Article/details/48250676.shtml)
+- 2026-06-30 08:56 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/54174799.shtml)
+- 2026-06-30 09:07 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/6616158.shtml)
+- 2026-06-30 09:09 - [德国连续三届世界杯无缘16强](https://www.share.kurohicncr.top/Article/details/75194881460.shtml)
+- 2026-06-30 08:44 - [巴西2-1绝杀日本](https://www.share.minike.top/Article/details/46645.shtml)
+- 2026-06-30 08:55 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.kurohicncr.top/Article/details/48177850.shtml)
+- 2026-06-30 08:55 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/55353.shtml)
+- 2026-06-30 09:10 - [郑钦文 四年一轮游](https://www.share.kurohicncr.top/Article/details/92842175082.shtml)
+- 2026-06-30 08:55 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/91141037894.shtml)
+- 2026-06-30 09:08 - [巴西足球能否再现昔日荣光](https://www.blog.kurohicncr.top/Article/details/653476533879.shtml)
+- 2026-06-30 08:52 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/33108289.shtml)
+- 2026-06-30 09:03 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/1794734.shtml)

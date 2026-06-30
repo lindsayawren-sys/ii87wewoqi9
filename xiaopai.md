@@ -1,60 +1,57 @@
-# “青春华章·‘两弹一星’铸丰碑” 网络主题宣传活动在西宁启动
+# 丘奇德怀特成本攀升 利润小幅下滑
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-美国工厂里，没有童年封关半年看海南：一碗糟粕醋如何发酵“酸爽”大产业？2000年交往史，16载自贸情，这对贸易搭子的“含金量”还在上升新能源汽车不能再胖了苏州以资本之力蓄创新之势日本前众议长河野洋平去世 曾发表著名的“河野谈话”“世界第一碗面条”并非小麦制作，实证了什么？“粤车南下”扩围大湾区“双向奔赴”再提速“鹅腿阿姨”塌房？相关部门已介入，微信平台提示其账号违反使用规范揭秘
+专题：聚焦美股2026年第一季度财报 公司一季度内生销售额增长 5%，超出此前 3% 的预期 消费品企业丘奇德怀特（CHD）一季度利润因成本上涨小幅回落，抵消了旗下主要业务板块的亮眼表现；不过公司整体营收仍高于内部业绩指引。 公司周五公布，一季度净利润小幅下滑至2.163 亿美元，折合每股收益 0.91 美元；去年同期净利润 2.201 亿美元，每股收益 0.89 美元。 公司
 
 ## 正文
 
-美国工厂里，没有童年封关半年看海南：一碗糟粕醋如何发酵“酸爽”大产业？
+专题：聚焦美股2026年第一季度财报 公司一季度内生销售额增长 5%，超出此前 3% 的预期 消费品企业丘奇德怀特（CHD）一季度利润因成本上涨小幅回落，抵消了旗下主要业务板块的亮眼表现；不过公司整体营收仍高于内部业绩指引。
 
-2000年交往史，16载自贸情，这对贸易搭子的“含金量”还在上升新能源汽车不能再胖了苏州以资本之力蓄创新之势日本前众议长河野洋平去世 曾发表著名的“河野谈话”“世界第一碗面条”并非小麦制作，实证了什么？
+公司周五公布，一季度净利润小幅下滑至2.163 亿美元，折合每股收益 0.91 美元；去年同期净利润 2.201 亿美元，每股收益 0.89 美元。
 
-“粤车南下”扩围大湾区“双向奔赴”再提速“鹅腿阿姨”塌房？
+公司表示，利润下滑主要源于营销开支增加，以及去年以 8.8 亿美元收购洗手液企业 Touchland 所带来的相关成本与摊销费用上升。
 
-相关部门已介入，微信平台提示其账号违反使用规范揭秘档案修裱：秉承最小干预原则 补纸选择有讲究新疆算力布局优势显现，加速迈向绿色算力新高地数据中心发电厂噪音扰民！
+调整后每股收益为 0.95 美元，与 FactSet 分析师预期持平。
 
-马斯克两公司遭万人集体诉讼抹黑中国，救不了欧洲产业更“世界”的世界杯要来了：哪些纪录有望改写？
+季度销售额微增 0.2%，至14.7 亿美元，高于市场预期的 14.6 亿美元，也优于公司此前预估的同比下滑 1%。
 
-谁将是最大黑马？
+丘奇德怀特称，一季度内生销售额增长 5%，远超 3% 的公司预期；国内消费品、国际消费品、特种产品三大业务部门全线录得增长。
 
-一首西北神曲焊死循环键！
+销量提升是增长主因，但产品均价微降与产品结构变化，对营收增速形成小幅拖累。
 
-人这一辈子一定要去一趟临夏黄仁勋轻描淡写一句话，让台湾“缺电焦虑”再升温？
+展望全年，公司预计全年净销售额将较去年 62 亿美元下滑 0.5% 至 1.5%，分析师则预期营收降至 61.4 亿美元。
 
 ## 相关推荐
 
-- 2026-06-30 08:57 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
-- 2026-06-30 08:48 - [周冬雨多次说演不了话剧文城](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-30 09:01 - [德国 传控](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-30 08:57 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-30 09:01 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-30 08:41 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-30 08:44 - [杨紫大银幕成绩单如何](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-30 08:38 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
-- 2026-06-30 08:36 - [马耳他著名拱门坍塌致一中国男子身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-30 09:00 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-30 08:52 - [感动全网的699分女生想报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-30 08:58 - [中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-30 08:54 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
-- 2026-06-30 09:02 - [金鹰奖视后提名预测](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-30 09:10 - [低智商犯罪三江口团建来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-30 09:03 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-30 08:56 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-30 08:58 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-30 08:45 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-30 09:11 - [王楚钦孙颖莎晋级混双八强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-30 09:02 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-30 08:42 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-30 09:10 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-30 09:02 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-30 09:03 - [名记：灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:40 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.share.minike.top/Article/details/4181908.shtml)
-- 2026-06-30 08:53 - [被巴西绝杀后 日球员田中碧跪地痛哭](http://www.blog.kurohicncr.top/Article/details/0995306.shtml)
-- 2026-06-30 08:49 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.minike.top/Article/details/5131665625.shtml)
-- 2026-06-30 08:44 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.minike.top/Article/details/032983.shtml)
-- 2026-06-30 08:43 - [杨紫肖战余生请多指教拍立得](https://www.blog.kurohicncr.top/Article/details/468298545467.shtml)
-- 2026-06-30 09:02 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/04791965.shtml)
-- 2026-06-30 08:58 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/59336421.shtml)
-- 2026-06-30 09:05 - [起风了](http://www.blog.kurohicncr.top/Article/details/64901.shtml)
-- 2026-06-30 08:58 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.minike.top/Article/details/02754371.shtml)
-- 2026-06-30 08:36 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/25981070900.shtml)
-- 2026-06-30 08:41 - [中国新一轮出口管制直指日本命脉](http://www.blog.kurohicncr.top/Article/details/290076368.shtml)
-- 2026-06-30 08:53 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/177533393.shtml)
-- 2026-06-30 08:50 - [德国连续三届世界杯无缘16强](https://www.share.minike.top/Article/details/4271055.shtml)
-- 2026-06-30 08:58 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/031057.shtml)
-- 2026-06-30 08:55 - [萨内 看笑了](http://www.blog.kurohicncr.top/Article/details/21719211025.shtml)
+- 2026-06-30 08:58 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/57937.shtml)
+- 2026-06-30 08:58 - [日本 高位逼抢](http://www.blog.minike.top/Article/details/676862.shtml)
+- 2026-06-30 08:58 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/93009295434.shtml)
+- 2026-06-30 09:11 - [巴拉圭进球](http://www.share.kurohicncr.top/Article/details/02361718.shtml)
+- 2026-06-30 08:42 - [F1奥地利站赛后复盘](https://www.share.minike.top/Article/details/863803.shtml)
+- 2026-06-30 09:03 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/063965492.shtml)
+- 2026-06-30 08:57 - [花少8要去世界杯举办国](https://www.blog.kurohicncr.top/Article/details/001940060676.shtml)
+- 2026-06-30 08:47 - [武磊：巴西队赢的并不轻松](https://www.blog.kurohicncr.top/Article/details/13758.shtml)
+- 2026-06-30 09:08 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/940984961067.shtml)
+- 2026-06-30 09:03 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/22460067753.shtml)
+- 2026-06-30 09:07 - [王源近几年没有路演了](http://www.share.minike.top/Article/details/850416560048.shtml)
+- 2026-06-30 09:11 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/08801979210.shtml)
+- 2026-06-30 09:06 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/944182698.shtml)
+- 2026-06-30 08:57 - [德国巴拉圭 折磨](https://www.blog.minike.top/Article/details/510665072.shtml)
+- 2026-06-30 09:02 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://www.blog.kurohicncr.top/Article/details/0016191602.shtml)

@@ -1,61 +1,59 @@
-# Rivian寄望R2电动SUV出圈，打造国民汽车品牌
+# Krystal Biotech一季度业绩超预期 基因疗法VYJUVEK全球营收1.16亿美元
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-核心要点 犹他州帕克城电 —— 穿行在全新 R2 电动 SUV 展车之间，Rivian首席执行官 RJ・斯卡林奇神采奕奕。 这位品牌创始人逐一介绍车辆悬挂、车载软件系统，以及多款即将交付美国消费者的 R2 车型。其中定价约 4.5 万美元的入门版本，品牌于周二宣布，上市时间从原定 2027 年末提前至明年夏季。 但在犹他州西部举办的 R2 发布活动上，面对员工与媒体、即将面向全
+基因疗法公司Krystal Biotech于周一盘前发布了2026年第一季度财报，核心产品VYJUVEK全球销售持续增长，推动公司营收和利润双双超预期，同时公司重申全年运营费用指引。 财报显示，公司第一季度全球净营收达1.164亿美元，同比增长32%，环比增长9%，主要得益于VYJUVEK在美国、欧洲及日本市场的强劲需求。其中，美国市场净营收8750万美元，受医保切换及患者维持
 
 ## 正文
 
-核心要点 犹他州帕克城电 —— 穿行在全新 R2 电动 SUV 展车之间，Rivian首席执行官 RJ・斯卡林奇神采奕奕。
+基因疗法公司Krystal Biotech于周一盘前发布了2026年第一季度财报，核心产品VYJUVEK全球销售持续增长，推动公司营收和利润双双超预期，同时公司重申全年运营费用指引。
 
-这位品牌创始人逐一介绍车辆悬挂、车载软件系统，以及多款即将交付美国消费者的 R2 车型。
+财报显示，公司第一季度全球净营收达1.164亿美元，同比增长32%，环比增长9%，主要得益于VYJUVEK在美国、欧洲及日本市场的强劲需求。
 
-其中定价约 4.5 万美元的入门版本，品牌于周二宣布，上市时间从原定 2027 年末提前至明年夏季。
+其中，美国市场净营收8750万美元，受医保切换及患者维持治疗节奏影响呈现季度波动；国际市场贡献2890万美元，已有超过140名DEB患者获得处方。
 
-但在犹他州西部举办的 R2 发布活动上，面对员工与媒体、即将面向全球推出新车的斯卡林奇，语气中也透出一丝紧绷。
+公司毛利率为95%，略高于去年同期的94%。
 
-斯卡林奇 2009 年创立这家电动车企业，如今Rivian市值达 220 亿美元。
+盈利方面，净利润为5590万美元，合摊薄每股收益1.83美元，高于去年同期的3570万美元和每股1.20美元。
 
-在《消费者报告》最新客户满意度调研中，品牌排名第一；但因早期车型故障频发，车辆长期可靠性预测排名垫底。
+公司现金及投资总额超过10亿美元，财务状况保持稳健。
 
-对于汽车品牌而言，这种反差十分罕见。
+此外，公司重申2026年全年非GAAP研发及销售管理费用指引为1.75亿至1.95亿美元。
 
-通常故障越多，用户满意度越低，Rivian却是例外。
+临床进展方面，公司预计年内有两项注册性研究数据读出。
 
 ## 相关推荐
 
-- 2026-06-30 08:50 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
-- 2026-06-30 08:55 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-30 09:04 - [《名肘探科比》：科比大战裂口女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
-- 2026-06-30 08:50 - [诺伊尔尽力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
-- 2026-06-30 08:39 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-30 08:37 - [日耳曼拖拉机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-30 09:04 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-30 08:36 - [张雪的一句“是我们”引发岛内热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
-- 2026-06-30 09:05 - [王楚钦说配合稍微有些陌生感](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-30 09:05 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-30 08:44 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-30 08:53 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-30 08:43 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
-- 2026-06-30 08:57 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-30 08:40 - [板面：为什么那么多人爱吃？？！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
+- 2026-06-30 08:42 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-30 09:04 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
+- 2026-06-30 08:55 - [日本主帅：未能夺冠深感抱歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-30 08:56 - [日本球迷输球后集体捡垃圾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-30 09:01 - [德国巴拉圭进入点球大战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-30 08:54 - [德国身价是巴拉圭6倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-30 08:50 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-30 09:06 - [世界杯巴拉圭点球淘汰德国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-30 09:05 - [中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-30 08:45 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-30 09:10 - [世界杯：荷兰vs摩洛哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-30 08:52 - [电影抓特务上映11天破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-30 09:02 - [感动全网的699分女生想报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:59 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/7005168792.shtml)
-- 2026-06-30 08:42 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/27844.shtml)
-- 2026-06-30 08:36 - [如何改变自己太负责任的性格?](https://www.blog.kurohicncr.top/Article/details/03181051.shtml)
-- 2026-06-30 08:43 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/1434001436.shtml)
-- 2026-06-30 09:00 - [古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?](https://www.share.kurohicncr.top/Article/details/6144459897.shtml)
-- 2026-06-30 09:02 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/683247.shtml)
-- 2026-06-30 09:04 - [武磊：日本队有能力跟任何强队抗衡](http://www.share.kurohicncr.top/Article/details/563884.shtml)
-- 2026-06-30 09:02 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/57817126913.shtml)
-- 2026-06-30 08:38 - [杨紫获白玉兰视后争议不止](https://www.blog.minike.top/Article/details/96651643582.shtml)
-- 2026-06-30 08:40 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/498551330567.shtml)
-- 2026-06-30 08:40 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/0143363745.shtml)
-- 2026-06-30 08:44 - [日本球迷输球后集体捡垃圾](http://www.share.kurohicncr.top/Article/details/3321067896.shtml)
-- 2026-06-30 08:39 - [开电动汽车真的很省钱吗？](http://www.share.kurohicncr.top/Article/details/29130549115.shtml)
-- 2026-06-30 09:01 - [德国巴拉圭 折磨](https://www.share.kurohicncr.top/Article/details/5865347765.shtml)
-- 2026-06-30 08:43 - [郑钦文温网首轮出局](http://www.blog.kurohicncr.top/Article/details/7069465.shtml)
+- 2026-06-30 09:01 - [世界杯名画巴拉圭钢铁防线](https://www.blog.kurohicncr.top/Article/details/1248298.shtml)
+- 2026-06-30 08:58 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.kurohicncr.top/Article/details/403209.shtml)
+- 2026-06-30 09:01 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/7105369951.shtml)
+- 2026-06-30 08:49 - [欧洲民众抢购空调降温](http://www.share.kurohicncr.top/Article/details/327261025055.shtml)
+- 2026-06-30 09:09 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/6161924.shtml)
+- 2026-06-30 08:54 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/09779777.shtml)
+- 2026-06-30 09:09 - [明星大侦探第一季](https://www.share.minike.top/Article/details/64574506.shtml)
+- 2026-06-30 08:46 - [女子清吧被陌生人投放伟哥](https://www.share.minike.top/Article/details/132962389180.shtml)
+- 2026-06-30 08:50 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/56084.shtml)
+- 2026-06-30 09:10 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/067055.shtml)
+- 2026-06-30 08:46 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/2781303.shtml)
+- 2026-06-30 09:03 - [金刚川](https://www.blog.kurohicncr.top/Article/details/1506099299.shtml)
+- 2026-06-30 08:45 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/61068838652.shtml)
+- 2026-06-30 09:05 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/818908275044.shtml)
+- 2026-06-30 08:57 - [孙兴慜发长文致歉](http://www.share.minike.top/Article/details/61173326803.shtml)

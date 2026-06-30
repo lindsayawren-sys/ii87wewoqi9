@@ -1,57 +1,61 @@
-# 酒价内参6月11日价格发布：水晶剑南春保持不变
+# 海外学者：反思二战历史教训 抵制新型军国主义
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月11日整体低位小幅回弹。如果主要单品各取一瓶整体打包售卖，今日总售价为9888元，较昨日小幅上涨7元，结束此前连续两日的回调走势，但仍处于近30天低位区间。市场在前一日回落至近30天次低位后开始修复，终端交投情绪略有回暖，但核心单品的涨跌分化度依然显著。 今日11大白酒单品五涨四跌两平，赢家
+东京审判开庭80周年 | 海外学者：反思二战历史教训 抵制新型军国主义 2026年5月3日，是远东国际军事法庭(东京审判)开庭80周年纪念日。80年前，11国法官历经两年半庭审，以海量的铁证昭示了日本军国主义的累累罪行。 近日，《俄罗斯报》官网刊发俄罗斯著名法学和历史学家亚历山大·兹维亚金采夫撰写的文章。文章指出，时至今日，东京审判依然具有极其强烈的现实意义，对东京审判的研究，
 
 ## 正文
 
-新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月11日整体低位小幅回弹。
+东京审判开庭80周年 | 海外学者：反思二战历史教训 抵制新型军国主义 2026年5月3日，是远东国际军事法庭(东京审判)开庭80周年纪念日。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9888元，较昨日小幅上涨7元，结束此前连续两日的回调走势，但仍处于近30天低位区间。
+80年前，11国法官历经两年半庭审，以海量的铁证昭示了日本军国主义的累累罪行。
 
-市场在前一日回落至近30天次低位后开始修复，终端交投情绪略有回暖，但核心单品的涨跌分化度依然显著。
+近日，《俄罗斯报》官网刊发俄罗斯著名法学和历史学家亚历山大·兹维亚金采夫撰写的文章。
 
-今日11大白酒单品五涨四跌两平，赢家数量略占优势。
+文章指出，时至今日，东京审判依然具有极其强烈的现实意义，对东京审判的研究，有助于人们更好地审视第二次世界大战留下的历史教训。
 
-上涨方面，洋河梦之蓝M6+、古井贡古20与习酒君品涨幅居前，均上涨5元/瓶，其中洋河梦之蓝M6+自昨日创下的近30天最低价反弹，但价格囿于月内低位区间，古井贡古20连续两日上涨，价格升至进入六月以来最高位，习酒君品终结此前三连阴，但价格仍处于月内次低位；国窖1573上涨4元/瓶，连续三日反弹；五粮液1618上涨2元/瓶，收获两连阳，自前日月内最低位连续修复。
+文章指出，源自二战的历史教训既需要在法律层面进行反思，更需要结合当今时代所面临的种种挑战与威胁，进行全面而深刻认知。
 
-下跌方面，精品茅台、五粮液普五八代与青花郎均下跌4元/瓶，其中精品茅台连续三日回调，前期反弹动能逐渐减弱；五粮液普五八代连续三日下探，今日价格将将守住800元整数关口，创今年2月2日以来最低价纪录，近一月价格中枢下移态势尤为明显；青花郎连续两日回落，再度跌破690元。
+其中的一个重要原因，是部分西方国家以及日本，正试图以各种方式清除人们对战争的历史记忆。
 
-飞天茅台下跌2元/瓶，终结此前五连阳。
+兹维亚金采夫在文章中提及，东京审判存在多项历史缺陷，包括远东国际军事法庭的组建完全由美国主导；以天皇裕仁为代表的众多日本侵略战争策划者未能受审等等。
 
-青花汾20与水晶剑南春价格环比保持不变，其中前者仍处在30天最低位。
+亚历山大·兹维亚金采夫： 全世界记住了波兰的奥斯维辛与马伊达内克集中营，却几乎遗忘了侵华日军在中国哈尔滨和南京犯下的罪行。
 
 ## 相关推荐
 
-- 2026-06-30 08:44 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-30 08:53 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-30 08:48 - [日本队5进世界杯淘汰赛0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
-- 2026-06-30 08:48 - [点球大战和诺伊尔都救不回德国队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-30 08:47 - [日本将帅赛后采访纷纷哽咽落泪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-30 09:05 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
-- 2026-06-30 08:40 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
-- 2026-06-30 08:40 - [萨内 看笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
-- 2026-06-30 08:50 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
-- 2026-06-30 08:59 - [杨紫学位证上就是杨紫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-30 08:40 - [人民锐评网红诋毁袁隆平造谣企业家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-30 09:09 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-30 09:05 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-30 08:49 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-30 08:43 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
+- 2026-06-30 08:58 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-30 09:11 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
+- 2026-06-30 09:06 - [世界杯欧洲队7战南美仅1胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
+- 2026-06-30 09:04 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-30 08:58 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-30 09:01 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-30 08:55 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-30 08:59 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-30 08:49 - [为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-30 08:42 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-30 08:53 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:47 - [日本球迷被强行披上巴西国旗](https://www.blog.minike.top/Article/details/1714640.shtml)
-- 2026-06-30 09:05 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://www.share.kurohicncr.top/Article/details/67918171.shtml)
-- 2026-06-30 08:53 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.minike.top/Article/details/108017939.shtml)
-- 2026-06-30 09:05 - [德国进球被吹](https://www.share.kurohicncr.top/Article/details/53418924.shtml)
-- 2026-06-30 08:45 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/4993120.shtml)
-- 2026-06-30 09:03 - [请回答王牌2019](https://www.blog.minike.top/Article/details/618281121.shtml)
-- 2026-06-30 08:52 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/483812.shtml)
-- 2026-06-30 08:36 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.minike.top/Article/details/286991406.shtml)
-- 2026-06-30 08:44 - [“荒唐”背后的韩国足球](https://www.share.kurohicncr.top/Article/details/178548123.shtml)
-- 2026-06-30 08:46 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/96222.shtml)
-- 2026-06-30 08:50 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/04782999.shtml)
-- 2026-06-30 08:39 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/841301.shtml)
-- 2026-06-30 08:44 - [现在叛逆期的孩子最怕的是什么？](http://www.share.kurohicncr.top/Article/details/819221.shtml)
-- 2026-06-30 09:01 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/074598.shtml)
-- 2026-06-30 09:03 - [巴西绝杀日本](http://www.blog.minike.top/Article/details/15947953.shtml)
+- 2026-06-30 08:55 - [iPhone18e曝光](https://www.share.minike.top/Article/details/98024893233.shtml)
+- 2026-06-30 09:04 - [黄晓明晒和周杰伦的合照](https://www.blog.minike.top/Article/details/9135909834.shtml)
+- 2026-06-30 09:10 - [Melo向柳智敏张元英道歉](https://www.share.minike.top/Article/details/476713.shtml)
+- 2026-06-30 08:54 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/68990.shtml)
+- 2026-06-30 08:50 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/831506794.shtml)
+- 2026-06-30 08:49 - [网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？](https://www.share.kurohicncr.top/Article/details/87235890529.shtml)
+- 2026-06-30 08:44 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/61980.shtml)
+- 2026-06-30 09:06 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/223465.shtml)
+- 2026-06-30 09:05 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.minike.top/Article/details/493692761.shtml)
+- 2026-06-30 09:02 - [美股深夜大反弹 特斯拉飙涨8%](https://www.share.kurohicncr.top/Article/details/24697439.shtml)
+- 2026-06-30 08:44 - [董路：谁赢谁是“正路子”](http://www.blog.minike.top/Article/details/01092.shtml)
+- 2026-06-30 08:49 - [人类...完蛋了...](http://www.blog.kurohicncr.top/Article/details/56872047485.shtml)
+- 2026-06-30 09:06 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/48169698.shtml)
+- 2026-06-30 08:58 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/229647.shtml)
+- 2026-06-30 09:11 - [德国巴拉圭进入点球大战](https://www.share.minike.top/Article/details/873469.shtml)

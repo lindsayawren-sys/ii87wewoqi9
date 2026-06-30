@@ -1,57 +1,49 @@
-# 浙江教育观察：如何加强复合型数字经济外语人才培养？
+# 甲骨文加入五角大楼人工智能项目 股价飙升至盘中高点
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-中新网杭州6月10日电(林波)当人工智能深度渗透千行百业，数字经济加速向智能经济迭代，一个现实问题浮出水面：谁来打通技术落地、国际交流与品牌出海的“最后一公里”，复合型数字经济外语人才如何炼成？ 浙江的回答是：培养“外语+数字技术+行业知识”的复合型人才。6月10日，浙江省数字经济发展中心与浙江工商大学外国语学院的一场联学共建活动，揭开了这一人才培养新模式的探索路径。 数字经济
+根据美国国防部负责研究与工程事务的副部长在X上发布的一则帖子，甲骨文已正式同意加入与五角大楼机密网络合作的人工智能公司名单。 受这一消息推动，甲骨文股价升至当日盘中高点。 责任编辑：丁文武
 
 ## 正文
 
-中新网杭州6月10日电(林波)当人工智能深度渗透千行百业，数字经济加速向智能经济迭代，一个现实问题浮出水面：谁来打通技术落地、国际交流与品牌出海的“最后一公里”，复合型数字经济外语人才如何炼成？
+根据美国国防部负责研究与工程事务的副部长在X上发布的一则帖子，甲骨文已正式同意加入与五角大楼机密网络合作的人工智能公司名单。
 
-浙江的回答是：培养“外语+数字技术+行业知识”的复合型人才。
+受这一消息推动，甲骨文股价升至当日盘中高点。
 
-6月10日，浙江省数字经济发展中心与浙江工商大学外国语学院的一场联学共建活动，揭开了这一人才培养新模式的探索路径。
-
-数字经济正迈入智能经济这一更高阶阶段。
-
-在浙江省数字经济发展中心主任徐招玺看来，人工智能已成为经济高质量发展的关键变量，产业发展不再局限于单一技术或单一语言能力。
-
-在数字经济发展中，浙江的智能算力、大模型、产业数智化转型均走在全国前列，制造业、数字产业、外贸产业呈现融合发展态势。
-
-然而，一个现实问题摆在眼前：大量精通外语、熟稔数字技术、懂行业、通跨境的复合型人才严重不足。
-
-“这就需要政校携手、同向发力，补齐复合型人才供给短板。
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-30 08:40 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-30 08:42 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-30 08:48 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-30 08:46 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-30 09:03 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-30 09:04 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
-- 2026-06-30 08:47 - [张雪的一句“是我们”引发岛内热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
-- 2026-06-30 09:01 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
-- 2026-06-30 08:36 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
-- 2026-06-30 09:00 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
-- 2026-06-30 08:43 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
+- 2026-06-30 08:43 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-30 08:51 - [日本主帅：未能夺冠深感抱歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-30 08:47 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-30 08:53 - [男子造谣东鹏老板不喝自家饮料被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-30 09:05 - [荷兰vs摩洛哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-30 09:08 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-30 08:59 - [世界杯巴拉圭点球淘汰德国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
+- 2026-06-30 08:55 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-30 09:04 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-30 08:47 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
+- 2026-06-30 08:48 - [郑钦文 四年一轮游](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-30 09:08 - [陈幸同晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-30 08:47 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:38 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/3003354380.shtml)
-- 2026-06-30 09:05 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/31274422.shtml)
-- 2026-06-30 09:04 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/593496439.shtml)
-- 2026-06-30 08:38 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/91662990.shtml)
-- 2026-06-30 08:41 - [世界杯名画巴拉圭钢铁防线](https://www.share.minike.top/Article/details/27617180994.shtml)
-- 2026-06-30 08:55 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.kurohicncr.top/Article/details/3198181160.shtml)
-- 2026-06-30 09:01 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/716701.shtml)
-- 2026-06-30 09:00 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/33992.shtml)
-- 2026-06-30 09:05 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/913506.shtml)
-- 2026-06-30 08:44 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/75979686.shtml)
-- 2026-06-30 08:51 - [亚洲球队全部告别世界杯](http://www.share.minike.top/Article/details/503911746.shtml)
-- 2026-06-30 09:01 - [杨紫大银幕成绩单如何](https://www.share.minike.top/Article/details/71918157511.shtml)
-- 2026-06-30 08:40 - [周生如故](https://www.blog.kurohicncr.top/Article/details/17809.shtml)
-- 2026-06-30 08:49 - [4000美元是黄金新一轮下跌的开始吗](https://www.blog.minike.top/Article/details/5961769.shtml)
-- 2026-06-30 08:53 - [孙兴慜发长文致歉](http://www.share.minike.top/Article/details/06360199.shtml)
+- 2026-06-30 08:56 - [有什么好的高中网课推荐吗？](https://www.blog.minike.top/Article/details/445655933.shtml)
+- 2026-06-30 09:00 - [内马尔安慰日本球员](http://www.blog.kurohicncr.top/Article/details/35585690.shtml)
+- 2026-06-30 08:55 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/4034247.shtml)
+- 2026-06-30 08:58 - [起风了](https://www.share.minike.top/Article/details/6289607.shtml)
+- 2026-06-30 08:51 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/005623825410.shtml)
+- 2026-06-30 08:47 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/64713.shtml)
+- 2026-06-30 08:43 - [马耳他著名拱门坍塌致一中国男子身亡](https://www.share.minike.top/Article/details/79582297578.shtml)
+- 2026-06-30 09:10 - [【涤墨作战7人870】望：我从地狱杀回来了！](http://www.share.kurohicncr.top/Article/details/89409.shtml)
+- 2026-06-30 09:09 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.kurohicncr.top/Article/details/838780681.shtml)
+- 2026-06-30 08:57 - [王曼昱被突如其来的话筒逗笑了](https://www.share.minike.top/Article/details/26936.shtml)
+- 2026-06-30 08:52 - [日本队被绝杀后鞠躬致谢观众](https://www.blog.kurohicncr.top/Article/details/901634382603.shtml)
+- 2026-06-30 08:55 - [穆祉丞年度人气艺人](http://www.share.kurohicncr.top/Article/details/913624.shtml)
+- 2026-06-30 08:56 - [杨紫大银幕成绩单](http://www.share.kurohicncr.top/Article/details/383699646.shtml)
+- 2026-06-30 08:58 - [孙兴慜道歉](https://www.blog.kurohicncr.top/Article/details/3262192.shtml)
+- 2026-06-30 09:10 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/8035247.shtml)

@@ -1,61 +1,56 @@
-# 美国犹他州青少年参访江西 延续“友城”情谊
+# 5月医疗保健股多空榜：Sensei及KalVista空头比例居前
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-中新网南昌6月9日电 (朱莹)“犹他州的中英双语沉浸式教学项目很有名，我们希望不仅能带学生来中国看风景、锻炼语言能力，更能跨越文化差异，建立深度、持久的友谊。”美国犹他州中文教师马修·泰勒(Matthew Taylor)9日在江西省南昌市说。 1986年，江西省与美国犹他州正式缔结友好省州关系。连日来，30余名美国犹他州博克斯埃尔德学区师生在江西多地参访交流，延续“友城”情谊。
+随着4月结束，市值20亿美元以下的小型医疗保健股空头头寸显著增加，显示市场对这类高波动性股票的看空情绪升温。 根据最新数据，5月初医疗保健板块空头比例最高的个股包括Sensei Biotherapeutics、KalVista Pharmaceuticals和GlucoTrack。这些公司普遍面临临床结果不确定性和资产负债表强度的质疑，成为空头押注的重点目标。信息显示，医疗保健
 
 ## 正文
 
-中新网南昌6月9日电 (朱莹)“犹他州的中英双语沉浸式教学项目很有名，我们希望不仅能带学生来中国看风景、锻炼语言能力，更能跨越文化差异，建立深度、持久的友谊。
+随着4月结束，市值20亿美元以下的小型医疗保健股空头头寸显著增加，显示市场对这类高波动性股票的看空情绪升温。
 
-”美国犹他州中文教师马修·泰勒(Matthew Taylor)9日在江西省南昌市说。
+根据最新数据，5月初医疗保健板块空头比例最高的个股包括Sensei Biotherapeutics、KalVista Pharmaceuticals和GlucoTrack。
 
-1986年，江西省与美国犹他州正式缔结友好省州关系。
+这些公司普遍面临临床结果不确定性和资产负债表强度的质疑，成为空头押注的重点目标。
 
-连日来，30余名美国犹他州博克斯埃尔德学区师生在江西多地参访交流，延续“友城”情谊。
+信息显示，医疗保健精选行业SPDR基金（XLV）年初至今已下跌6.23%，而同期标普500指数上涨5.62%，板块整体表现明显落后。
 
-马修·泰勒介绍，此次参访的学生最小的只有8岁，但已学了两年中文，“在此前的圣诞节和中国春节期间，我组织了40多名学生与江西的伙伴们互寄信件，两地青少年在纸墨之间已种下了友谊的种子。
+在空头比例较低的个股中，Beyond Air和Polaryx Therapeutics名列前茅。
 
-” 追随着中美民间交往的足迹，美国犹他州师生走进庐山，参观美国作家、诺贝尔文学奖得主赛珍珠图片展。
+分析人士指出，高企的空头头寸反映出投资者对小型生物科技公司研发管线和财务状况的担忧，尤其是在当前市场环境下，缺乏稳定现金流的小型医疗保健公司更容易成为做空目标。
 
-正值第三季庐山非遗嘉年华，美国犹他州师生欣赏国家级非物质文化遗产代表性项目西河戏，并在美食市集上品尝庐山茶饼、糖画等。
+值得注意的是，表格中提及的Sensei Biotherapeutics（SNSE）和KalVista Pharmaceuticals（KALV）均在搜索报告的5月3日数据中列为高位空头标的。
 
-在江西省会城市南昌，美国犹他州师生在万寿宫历史文化街区、“江南名楼”滕王阁等地“city walk”，探寻古城底蕴；在江西财经大学附属中学，中美青少年同台唱歌、互写贺卡。
+投资者需警惕这类高做空比例股票可能面临的逼空风险。
 
 ## 相关推荐
 
-- 2026-06-30 09:05 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-30 08:54 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
-- 2026-06-30 08:58 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
-- 2026-06-30 08:53 - [iPhone18e曝光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
-- 2026-06-30 08:54 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-30 08:55 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
-- 2026-06-30 08:38 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-30 08:53 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-30 08:52 - [莫兰特被交易到开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-30 08:53 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-30 09:05 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-30 09:02 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
-- 2026-06-30 09:05 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-30 08:51 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
-- 2026-06-30 09:05 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-30 09:10 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-30 09:06 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-30 08:52 - [杨紫肖战余生请多指教拍立得](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
+- 2026-06-30 08:55 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
+- 2026-06-30 08:44 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-30 08:45 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-30 08:56 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-30 08:48 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-30 08:47 - [泰山景区建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-30 08:59 - [王楚钦孙颖莎晋级混双八强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:54 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/782512642058.shtml)
-- 2026-06-30 08:43 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/90126069567.shtml)
-- 2026-06-30 08:43 - [卡塞米罗头球破门](http://www.blog.minike.top/Article/details/34479453460.shtml)
-- 2026-06-30 08:42 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/822951.shtml)
-- 2026-06-30 08:55 - [天道](https://www.blog.kurohicncr.top/Article/details/61855.shtml)
-- 2026-06-30 08:42 - [锐评T1战胜KC](https://www.share.minike.top/Article/details/092425613.shtml)
-- 2026-06-30 08:51 - [韩国球迷凌晨4点接机怒骂主教练](https://www.blog.kurohicncr.top/Article/details/4709681.shtml)
-- 2026-06-30 08:41 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/027845.shtml)
-- 2026-06-30 08:36 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/266141524496.shtml)
-- 2026-06-30 08:52 - [马航370搜寻最新消息](https://www.share.minike.top/Article/details/528377521120.shtml)
-- 2026-06-30 08:58 - [美股](http://www.share.minike.top/Article/details/00442569683.shtml)
-- 2026-06-30 08:49 - [巴拉圭先进球了](http://www.blog.minike.top/Article/details/3573873123.shtml)
-- 2026-06-30 08:41 - [收到补税提醒尽快办理 明起有滞纳金](http://www.blog.minike.top/Article/details/57438.shtml)
-- 2026-06-30 08:43 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](http://www.blog.minike.top/Article/details/697325.shtml)
-- 2026-06-30 09:00 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.share.minike.top/Article/details/707523065.shtml)
+- 2026-06-30 09:04 - [徐亮怒斥世界杯踢假球](https://www.share.kurohicncr.top/Article/details/714363.shtml)
+- 2026-06-30 08:53 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](http://www.share.minike.top/Article/details/56100112.shtml)
+- 2026-06-30 09:05 - [巴西绝杀](http://www.share.minike.top/Article/details/096189.shtml)
+- 2026-06-30 08:55 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/191454.shtml)
+- 2026-06-30 09:04 - [为什么会有「念旧」的心理？](https://www.blog.kurohicncr.top/Article/details/9480133144.shtml)
+- 2026-06-30 08:48 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/53643663.shtml)
+- 2026-06-30 09:10 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/14139360493.shtml)
+- 2026-06-30 09:04 - [点球大战](http://www.blog.minike.top/Article/details/38498.shtml)
+- 2026-06-30 09:02 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/42782.shtml)
+- 2026-06-30 08:48 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/3202523.shtml)
+- 2026-06-30 08:43 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/6249489.shtml)
+- 2026-06-30 08:49 - [王濛回复黄灿灿](https://www.blog.kurohicncr.top/Article/details/281742596083.shtml)
+- 2026-06-30 09:02 - [千香](https://www.blog.kurohicncr.top/Article/details/5909501.shtml)
+- 2026-06-30 08:55 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/20890549.shtml)
+- 2026-06-30 08:46 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/73138489.shtml)

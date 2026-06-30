@@ -1,60 +1,51 @@
-# “文化+”新业态持续发力 海口骑楼老街5个月游客破千万
+# 追光的你丨中华民族是勤于劳动、善于创造的民族
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-中新网海口6月10日电(萧海山)粉红色的晚霞穿过斑驳的廊柱，在海口骑楼老街的青石板路上投下错落的光影，中山路沿街的一家老盐饮品店铺前，食客排起长队，老板一边麻利地打包，一边招呼着客人；不远处的市民游客中心前，一群外国游客正举着手机拍照，熙熙攘攘的人群汇成了老街最鲜活的烟火气。 据统计，2026年截至5月31日，海口骑楼老街累计接待游客量突破1000万人次，达到1009.18万人
+劳动最光荣、劳动最崇高、劳动最伟大、劳动最美丽。 习近平总书记深刻指出：“中华民族是勤于劳动、善于创造的民族。”推进中国式现代化，根本上靠劳动、靠劳动者创造。新征程上，广大劳动群众要脚踏实地、奋发进取，用创造拥抱新时代，以奋斗铸就新辉煌。 策划、编辑：王先进 资料来源：人民日报、央视网、学习强国等 (人民网-中国共产党新闻网)
 
 ## 正文
 
-中新网海口6月10日电(萧海山)粉红色的晚霞穿过斑驳的廊柱，在海口骑楼老街的青石板路上投下错落的光影，中山路沿街的一家老盐饮品店铺前，食客排起长队，老板一边麻利地打包，一边招呼着客人；不远处的市民游客中心前，一群外国游客正举着手机拍照，熙熙攘攘的人群汇成了老街最鲜活的烟火气。
+劳动最光荣、劳动最崇高、劳动最伟大、劳动最美丽。
 
-据统计，2026年截至5月31日，海口骑楼老街累计接待游客量突破1000万人次，达到1009.18万人次，同比增长41.11%。
+习近平总书记深刻指出：“中华民族是勤于劳动、善于创造的民族。
 
-“今年的生意，只能用‘火爆’两个字来形容。
+”推进中国式现代化，根本上靠劳动、靠劳动者创造。
 
-”在骑楼老街，“吴日彪”蒜香炸排骨是当之无愧的排队王，蒜香四溢的排骨、鱿鱼圈、鸡翅，外皮炸得金黄酥脆，内里鲜嫩多汁。
+新征程上，广大劳动群众要脚踏实地、奋发进取，用创造拥抱新时代，以奋斗铸就新辉煌。
 
-在老街经营了二十多年，该店老板亲眼见证了这条百年老街的华丽转变。
-
-老字号焕发新生，新业态也在不断涌现。
-
-去年底开业的椰城喜鹿老爸茶楼，凭借“老爸茶+原创演出”的沉浸式消费模式，迅速成为老街的“网红打卡点”。
-
-“我们当初就是看中了老街越来越旺的人气，开业才半年营业额就超出了预期。
+策划、编辑：王先进 资料来源：人民日报、央视网、学习强国等 (人民网-中国共产党新闻网)
 
 ## 相关推荐
 
-- 2026-06-30 08:59 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-30 08:59 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-30 09:00 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-30 08:36 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-30 09:02 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-30 08:36 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-30 08:37 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
-- 2026-06-30 08:40 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
-- 2026-06-30 08:46 - [德国淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
-- 2026-06-30 08:51 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
-- 2026-06-30 08:40 - [马耳他著名拱门坍塌致中国男子身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-30 08:40 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-30 08:37 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
-- 2026-06-30 08:58 - [美股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-30 08:43 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-30 08:57 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
+- 2026-06-30 08:50 - [恋与深空](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-30 08:54 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
+- 2026-06-30 08:50 - [IGN评测电影版后室](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-30 08:46 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-30 08:45 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-30 08:48 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-30 09:08 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-30 09:04 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-30 08:44 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
 
 ## 延伸阅读
 
-- 2026-06-30 09:02 - [黄晓明夸昆凌引杨颖对比](https://www.share.kurohicncr.top/Article/details/22926678.shtml)
-- 2026-06-30 08:41 - [四川凉山落石砸毁车辆 3人遇难](http://www.blog.kurohicncr.top/Article/details/825029576.shtml)
-- 2026-06-30 09:03 - [荷兰vs摩洛哥](https://www.share.kurohicncr.top/Article/details/453375.shtml)
-- 2026-06-30 08:43 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/33207519288.shtml)
-- 2026-06-30 08:56 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/1147524.shtml)
-- 2026-06-30 09:05 - [泰山景区建135公里刀片刺绳隔离网](http://www.blog.minike.top/Article/details/0320307435.shtml)
-- 2026-06-30 08:40 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.kurohicncr.top/Article/details/2239189.shtml)
-- 2026-06-30 08:38 - [毒液2](https://www.share.minike.top/Article/details/043255459.shtml)
-- 2026-06-30 08:46 - [郑钦文温网首轮出局](http://www.blog.minike.top/Article/details/81927580.shtml)
-- 2026-06-30 09:00 - [“柠檬茶能换怀表？”](http://www.share.kurohicncr.top/Article/details/23161692.shtml)
-- 2026-06-30 09:05 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/68136.shtml)
-- 2026-06-30 08:39 - [世界杯欧洲队7战南美仅1胜](https://www.blog.minike.top/Article/details/877820.shtml)
-- 2026-06-30 08:42 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/210993.shtml)
-- 2026-06-30 08:53 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/1937751.shtml)
-- 2026-06-30 08:45 - [为什么会有「念旧」的心理？](https://www.share.kurohicncr.top/Article/details/0143245.shtml)
+- 2026-06-30 08:59 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.blog.kurohicncr.top/Article/details/519885300147.shtml)
+- 2026-06-30 09:00 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.kurohicncr.top/Article/details/18646.shtml)
+- 2026-06-30 09:01 - [花少8要去世界杯举办国](https://www.blog.kurohicncr.top/Article/details/36455111.shtml)
+- 2026-06-30 09:04 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/8282248566.shtml)
+- 2026-06-30 09:00 - [郑钦文 四年一轮游](http://www.share.minike.top/Article/details/83919.shtml)
+- 2026-06-30 08:56 - [莫兰特转投开拓者效力](http://www.blog.kurohicncr.top/Article/details/3201914846.shtml)
+- 2026-06-30 08:49 - [乔家的儿女](http://www.share.minike.top/Article/details/291924.shtml)
+- 2026-06-30 08:51 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.minike.top/Article/details/30416.shtml)
+- 2026-06-30 08:54 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/1993157.shtml)
+- 2026-06-30 08:48 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/9437385.shtml)
+- 2026-06-30 08:42 - [孙颖莎王楚钦晋级8强](https://www.blog.kurohicncr.top/Article/details/35176.shtml)
+- 2026-06-30 08:49 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/264956.shtml)
+- 2026-06-30 08:44 - [送你一朵小红花](https://www.share.minike.top/Article/details/03782.shtml)
+- 2026-06-30 08:47 - [扬名立万](http://www.share.kurohicncr.top/Article/details/1579676278.shtml)
+- 2026-06-30 09:11 - [巴西绝杀](https://www.blog.kurohicncr.top/Article/details/566987361177.shtml)

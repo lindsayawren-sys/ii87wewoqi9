@@ -1,60 +1,60 @@
-# 5月中国CPI同比涨1.2%，黄金饰品价格涨幅继续回落
+# 道指跌超550点，科技股普跌，AMD跌超5%，英特尔跌近4%，国际油价飙涨超5%，金银全线下挫
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-中新经纬6月10日电 国家统计局网站11日披露的数据显示，2026年5月份，全国居民消费价格同比上涨1.2%。其中，城市上涨1.3%，农村上涨1.1%；食品价格下降1.7%，非食品价格上涨1.9%；消费品价格上涨1.6%，服务价格上涨0.8%。1­­—5月平均，全国居民消费价格比上年同期上涨1.0%。 5月份，全国居民消费价格环比下降0.1%。其中，城市下降0.1%，农村下降0
+记者丨刘雪莹 编辑丨黎雨桐 北京时间5月5日，欧美股市集体收跌，欧洲斯托克50指数跌超2%，德国、法国均跌超1%。美股三大股指全线跳水，道指跌超557点，跌幅超1%，标普500指数跌超0.4%，纳指跌近0.2%。 科技股多数下跌，AMD跌超5%，苹果跌超1%，芯片股普跌，超威半导体、高通跌约5%，英特尔跌近4%，ARM跌逾3%，阿斯麦跌超2%。上涨方面，美光科技、闪迪涨6%左右
 
 ## 正文
 
-中新经纬6月10日电 国家统计局网站11日披露的数据显示，2026年5月份，全国居民消费价格同比上涨1.2%。
+记者丨刘雪莹 编辑丨黎雨桐 北京时间5月5日，欧美股市集体收跌，欧洲斯托克50指数跌超2%，德国、法国均跌超1%。
 
-其中，城市上涨1.3%，农村上涨1.1%；食品价格下降1.7%，非食品价格上涨1.9%；消费品价格上涨1.6%，服务价格上涨0.8%。
+美股三大股指全线跳水，道指跌超557点，跌幅超1%，标普500指数跌超0.4%，纳指跌近0.2%。
 
-1­­—5月平均，全国居民消费价格比上年同期上涨1.0%。
+科技股多数下跌，AMD跌超5%，苹果跌超1%，芯片股普跌，超威半导体、高通跌约5%，英特尔跌近4%，ARM跌逾3%，阿斯麦跌超2%。
 
-5月份，全国居民消费价格环比下降0.1%。
+上涨方面，美光科技、闪迪涨6%左右，均创历史新高。
 
-其中，城市下降0.1%，农村下降0.1%；食品价格下降0.4%，非食品价格下降0.1%；消费品价格下降0.2%，服务价格下降0.1%。
+中概股涨跌不一，小马智行涨超5%，大全新能源涨逾4%，蔚来涨超3%，贝壳、爱奇艺涨超2%；阿特斯太阳能跌超5%，华住集团跌逾3%，好未来、百胜中国跌约2%。
 
-各类商品及服务价格同比变动情况 5月份，食品烟酒及在外餐饮类价格同比下降0.9%，影响CPI(居民消费价格指数)下降约0.26个百分点。
+美国国债下跌，10年期国债期货上涨5个基点；30年期国债期货上涨8个基点，收益率升至去年7月以来最高水平。
 
-食品中，畜肉类价格下降7.4%，影响CPI下降约0.31个百分点，其中猪肉价格下降16.1%，影响CPI下降约0.31个百分点；鲜果价格下降2.2%，影响CPI下降约0.04个百分点；蛋类价格上涨6.6%，影响CPI上涨约0.03个百分点；鲜菜价格上涨1.6%，影响CPI上涨约0.02个百分点；水产品价格上涨0.6%，影响CPI上涨约0.01个百分点。
+商品方面，国际油价大涨， WTI原油涨4.4%，布油大涨5.8%。
 
-其他七大类价格同比六涨一降。
+金银全线下挫，现货黄金跌2%，COMEX黄金破4600美元，跌幅2.5%；现货白银跌超3%，COMEX白银期货跌超4%。
 
 ## 相关推荐
 
-- 2026-06-30 08:46 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
-- 2026-06-30 08:58 - [日本主帅：未能夺冠深感抱歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-30 08:50 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-30 09:04 - [内马尔安慰日本球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
-- 2026-06-30 08:37 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-30 08:45 - [自然光｜papi酱&窦文涛：驴与跑步机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
-- 2026-06-30 08:42 - [穆祉丞回应获年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
-- 2026-06-30 09:05 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-30 08:55 - [曝老詹对自由市场态度与以往截然不同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-30 08:56 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
-- 2026-06-30 08:48 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
-- 2026-06-30 08:54 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-30 09:06 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-30 08:53 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
+- 2026-06-30 09:04 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-30 08:54 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
+- 2026-06-30 09:04 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-30 09:03 - [杨紫肖战余生请多指教拍立得](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-30 09:05 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-30 08:47 - [名记：灰熊将莫兰特交易至开拓者](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-30 09:05 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
+- 2026-06-30 09:04 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-30 08:50 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
+- 2026-06-30 08:58 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-30 09:02 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-30 08:59 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-30 08:48 - [张月收到黄灿灿辣货两眼发光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
+- 2026-06-30 09:07 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:37 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/183861.shtml)
-- 2026-06-30 08:51 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](http://www.blog.kurohicncr.top/Article/details/58013.shtml)
-- 2026-06-30 08:52 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](http://www.share.kurohicncr.top/Article/details/6726584.shtml)
-- 2026-06-30 08:43 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.minike.top/Article/details/2855682.shtml)
-- 2026-06-30 08:40 - [欧洲装一台空调有多难](http://www.blog.kurohicncr.top/Article/details/08420318.shtml)
-- 2026-06-30 08:51 - [这几秒成世界杯最值钱广告位](https://www.blog.kurohicncr.top/Article/details/292974.shtml)
-- 2026-06-30 08:57 - [网红峡谷5人溺亡 有人提醒会下雨](http://www.share.minike.top/Article/details/90988969.shtml)
-- 2026-06-30 08:43 - [F1奥地利站赛后复盘](http://www.blog.kurohicncr.top/Article/details/386739.shtml)
-- 2026-06-30 08:38 - [董路：谁赢谁是“正路子”](https://www.blog.minike.top/Article/details/88504911.shtml)
-- 2026-06-30 08:51 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/64057691.shtml)
-- 2026-06-30 08:46 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/32277991.shtml)
-- 2026-06-30 08:58 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/5975056.shtml)
-- 2026-06-30 09:02 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](http://www.blog.minike.top/Article/details/5122823508.shtml)
-- 2026-06-30 08:54 - [“荒唐”背后的韩国足球](http://www.share.minike.top/Article/details/505351777765.shtml)
-- 2026-06-30 08:54 - [点球大战](https://www.blog.minike.top/Article/details/20205.shtml)
+- 2026-06-30 08:49 - [金鹰奖视后提名预测](http://www.blog.kurohicncr.top/Article/details/486973.shtml)
+- 2026-06-30 09:07 - [周冬雨多次说演不了话剧文城](http://www.blog.kurohicncr.top/Article/details/734548730045.shtml)
+- 2026-06-30 08:53 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.blog.kurohicncr.top/Article/details/293510038.shtml)
+- 2026-06-30 08:51 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/59220.shtml)
+- 2026-06-30 08:58 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.kurohicncr.top/Article/details/79749.shtml)
+- 2026-06-30 09:02 - [巴西替补奇兵读秒绝杀](https://www.blog.minike.top/Article/details/824658427297.shtml)
+- 2026-06-30 09:10 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/98105.shtml)
+- 2026-06-30 08:57 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/76783349.shtml)
+- 2026-06-30 08:43 - [巴西在进攻三区完成210脚传球](http://www.share.kurohicncr.top/Article/details/135931578.shtml)
+- 2026-06-30 09:04 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/1470855.shtml)
+- 2026-06-30 09:04 - [王楚钦说配合稍微有些陌生感](http://www.share.kurohicncr.top/Article/details/2154378219.shtml)
+- 2026-06-30 08:42 - [日本进球](https://www.share.minike.top/Article/details/988654.shtml)
+- 2026-06-30 09:07 - [德国罚丢3粒点球](http://www.blog.kurohicncr.top/Article/details/50110190.shtml)
+- 2026-06-30 08:57 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/614527665.shtml)
+- 2026-06-30 08:56 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/14218552972.shtml)

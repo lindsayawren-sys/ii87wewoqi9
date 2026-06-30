@@ -1,61 +1,50 @@
-# 美股盘前：三大股指期货集体飘绿，芯片股全线下跌
+# 华勤技术午后涨逾8% 机构料二季度有望贡献可观业绩增量
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月10日美股盘前，三大股指期货集体下跌，截至17：06，道指期货跌0.63%，标普500指数期货跌0.71%，纳指期货跌幅达1.11%。 芯片股盘前全线下跌，截至17：07，ARM跌超4%，美光科技、迈威尔科技、闪迪、超威半导体、高通跌超3%。 港股方面，今日收盘恒生指数跌0.64%，恒生科技指数跌0.9
+华勤技术（03296）午后涨逾8%，截至发稿，股份上涨7.92%，现报98.75港元，成交额1.96亿港元。 华勤技术近日发布一季度业绩，该集团取得营业收入407.46亿元，同比增加16.42%；归属于上市公司股东的净利润10.61亿元，同比增加25.96%。 中泰证券认为，26Q1数据中心业务收入环比增长，同比受高基数影响略有下滑，26Q2环比有望继续增长，26H2伴随超节点
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+华勤技术（03296）午后涨逾8%，截至发稿，股份上涨7.92%，现报98.75港元，成交额1.96亿港元。
 
-6月10日美股盘前，三大股指期货集体下跌，截至17：06，道指期货跌0.63%，标普500指数期货跌0.71%，纳指期货跌幅达1.11%。
+华勤技术近日发布一季度业绩，该集团取得营业收入407.46亿元，同比增加16.42%；归属于上市公司股东的净利润10.61亿元，同比增加25.96%。
 
-芯片股盘前全线下跌，截至17：07，ARM跌超4%，美光科技、迈威尔科技、闪迪、超威半导体、高通跌超3%。
+中泰证券认为，26Q1数据中心业务收入环比增长，同比受高基数影响略有下滑，26Q2环比有望继续增长，26H2伴随超节点量产，数据中心收入迈上新台阶。
 
-港股方面，今日收盘恒生指数跌0.64%，恒生科技指数跌0.94%。
+华勤是业内少数同时拥有GPU节点/CPU节点/交换节点的厂商，技术卡位领先的同时与下游客户深度合作，公司超节点产品已于4月小批量出货，预计7月达到第一阶段产能峰值，26H2起有望贡献可观业绩增量。
 
-电气设备、半导体、有色金属、煤炭、石油石化等板块跌幅居前，医药生物、食品饮料、家电、钢铁等板块涨幅居前。
-
-港股半导体板块大跌，天岳先进跌超17%，英诺赛科跌超13%，兆易创新跌7%，美佳音控股跌6%，中芯国际跌超3%。
-
-科网股方面，网易、快手涨超3%，腾讯控股、美团、哔哩哔哩等涨超2%；联想集团跌超9%，智谱、蔚来跌超7%，商汤、阿里巴巴、京东集团等下跌。
-
-责任编辑：孙同怀
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 09:05 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-30 08:54 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-30 08:43 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-30 08:51 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-30 08:45 - [德国队连续三届世界杯无缘16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
-- 2026-06-30 08:40 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-30 08:44 - [欧洲装一台空调有多难](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-30 08:54 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-30 08:40 - [《名肘探科比》：科比大战裂口女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
-- 2026-06-30 08:48 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
-- 2026-06-30 08:59 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-30 08:54 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-30 09:00 - [Melo向柳智敏张元英道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-30 08:50 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-30 08:46 - [电影抓特务上映11天破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-30 08:51 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-30 08:43 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-30 08:59 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-30 09:00 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-30 09:00 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
+- 2026-06-30 08:56 - [德国北部枪击事件致5死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
+- 2026-06-30 09:01 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-30 09:00 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-30 08:46 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-30 08:54 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
 
 ## 延伸阅读
 
-- 2026-06-30 09:00 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/55511.shtml)
-- 2026-06-30 09:04 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/1262035.shtml)
-- 2026-06-30 08:58 - [世界杯欧洲队7战南美仅1胜](https://www.blog.kurohicncr.top/Article/details/74275388.shtml)
-- 2026-06-30 08:57 - [亚洲球队全部告别世界杯](https://www.blog.kurohicncr.top/Article/details/9194836097.shtml)
-- 2026-06-30 08:58 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/348404.shtml)
-- 2026-06-30 08:45 - [巴西2比1日本](http://www.blog.minike.top/Article/details/4530435462.shtml)
-- 2026-06-30 09:02 - [点球大战和诺伊尔都救不回德国队](https://www.blog.minike.top/Article/details/75384498284.shtml)
-- 2026-06-30 09:05 - [莫兰特转投开拓者效力](http://www.share.minike.top/Article/details/804289740566.shtml)
-- 2026-06-30 08:48 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/38244044.shtml)
-- 2026-06-30 08:42 - [iPhoneUltra黑色机模](https://www.share.minike.top/Article/details/45250.shtml)
-- 2026-06-30 09:02 - [索马里女大使：想和中国一起搞事业](http://www.blog.minike.top/Article/details/929385578817.shtml)
-- 2026-06-30 08:46 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/31507934189.shtml)
-- 2026-06-30 08:59 - [曝詹姆斯即将与勇士会面](http://www.share.kurohicncr.top/Article/details/201528634.shtml)
-- 2026-06-30 08:44 - [感动全网的699分女生想报考清华](https://www.blog.minike.top/Article/details/853268921923.shtml)
-- 2026-06-30 08:55 - [流金岁月](http://www.share.minike.top/Article/details/71432.shtml)
+- 2026-06-30 09:07 - [“柠檬茶能换怀表？”](http://www.blog.minike.top/Article/details/935091.shtml)
+- 2026-06-30 09:00 - [藤森庆子赢得秘鲁总统选举](https://www.share.minike.top/Article/details/73349187.shtml)
+- 2026-06-30 09:04 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/26275452.shtml)
+- 2026-06-30 09:00 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/89735385306.shtml)
+- 2026-06-30 09:03 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/94429927.shtml)
+- 2026-06-30 08:49 - [巴西醒醒 这是淘汰赛](http://www.share.kurohicncr.top/Article/details/6866131731.shtml)
+- 2026-06-30 09:07 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](http://www.share.minike.top/Article/details/62165501.shtml)
+- 2026-06-30 08:43 - [巴西足球能否再现昔日荣光](https://www.blog.kurohicncr.top/Article/details/41252.shtml)
+- 2026-06-30 08:48 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/3070540678.shtml)
+- 2026-06-30 08:48 - [陈小春人老了干什么也不心酸](http://www.blog.minike.top/Article/details/87100868.shtml)
+- 2026-06-30 08:51 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.kurohicncr.top/Article/details/6541463.shtml)
+- 2026-06-30 08:42 - [现在叛逆期的孩子最怕的是什么？](http://www.share.kurohicncr.top/Article/details/620534540.shtml)
+- 2026-06-30 09:11 - [第一次对自信的力量有了实感](http://www.blog.minike.top/Article/details/68379536.shtml)
+- 2026-06-30 08:42 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/72568127.shtml)
+- 2026-06-30 09:04 - [开电动汽车真的很省钱吗？](https://www.share.minike.top/Article/details/816431735123.shtml)

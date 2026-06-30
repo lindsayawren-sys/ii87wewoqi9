@@ -1,56 +1,56 @@
-# 老乡鸡一门店被曝餐具掉色，图案被印到蒸蛋上！客服回应：涉事批次全部召回封存，正全面排查
+# 赏赫哲非遗品铁锅炖鱼 “蜜都”饶河开江民俗文化活动启幕
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-封面新闻记者 李茂佳 近日，有网友在社交平台反映，其在上海市徐汇区漕河泾园区店的“老乡鸡”快餐门店就餐时，发现餐具底部花纹疑似掉色，印记已沾染到蒸蛋上。 6月9日，“老乡鸡”官方客服回应封面新闻，涉事批次餐具已全部召回封存、暂停使用，目前正在全面排查中。 律师受访时表示，餐具油墨污染餐食已涉嫌违反食品安全法规，若认定门店明知问题餐具仍使用，消费者可向“老乡鸡”门店或品牌方主张惩
+中新网双鸭山5月2日电(姜辉 张琪 刘海建)1日，以“开江醒春，赫哲盛礼”为主题的“蜜都”饶河第十四届乌苏里江开江民俗文化活动在双鸭山市饶河县四排赫哲族乡启幕。八方宾朋齐聚中俄界江乌苏里江畔，共品赫哲千年渔猎文明，共赴一场生态与民俗文化交融的春日盛宴。 开幕式上，随着鼓声响起，醒江仪式正式启动。赫哲族人身着传统服饰，按照传统习俗举行祭江、醒网、祈福等礼仪，每一个环节都承载着赫哲
 
 ## 正文
 
-封面新闻记者 李茂佳 近日，有网友在社交平台反映，其在上海市徐汇区漕河泾园区店的“老乡鸡”快餐门店就餐时，发现餐具底部花纹疑似掉色，印记已沾染到蒸蛋上。
+中新网双鸭山5月2日电(姜辉 张琪 刘海建)1日，以“开江醒春，赫哲盛礼”为主题的“蜜都”饶河第十四届乌苏里江开江民俗文化活动在双鸭山市饶河县四排赫哲族乡启幕。
 
-6月9日，“老乡鸡”官方客服回应封面新闻，涉事批次餐具已全部召回封存、暂停使用，目前正在全面排查中。
+八方宾朋齐聚中俄界江乌苏里江畔，共品赫哲千年渔猎文明，共赴一场生态与民俗文化交融的春日盛宴。
 
-律师受访时表示，餐具油墨污染餐食已涉嫌违反食品安全法规，若认定门店明知问题餐具仍使用，消费者可向“老乡鸡”门店或品牌方主张惩罚性赔偿。
+开幕式上，随着鼓声响起，醒江仪式正式启动。
 
-食客用餐发现蒸蛋沾染碗底花纹 当事人杨女士（化名）接受媒体采访时介绍，事情发生在6月5日晚餐时段，当时她正在徐汇一家“老乡鸡”门店就餐。
+赫哲族人身着传统服饰，按照传统习俗举行祭江、醒网、祈福等礼仪，每一个环节都承载着赫哲族对自然的敬畏与感恩，千年渔猎文明在江畔流淌，古韵悠长。
 
-用餐过程中，她突然看到购买的蒸蛋上有花纹印记，仔细辨认后发现这一印记是蒸蛋碗内底部的图案，随后向店员反馈了问题。
+为让游客深度体验赫哲文化，开幕式广场北侧设置9个赫哲饮食体验区，集中呈现赫哲风味美食与民间特色小吃，工作人员现场烹制，让游客沉浸式体验铁锅炖江鱼的独特滋味；南侧7个展位集中展示赫津大米、泽饶蜂蜜、赫哲族文创产品，同步开展学校素质教育成果、非遗进校园成果展示，全面展现饶河文旅底蕴与发展活力。
 
-针对上述情况，杨女士表示，希望“老乡鸡”品牌方核查涉事蒸蛋碗的材质，解释餐具图案疑似掉色、被印到蒸蛋上的具体原因，并更换问题餐具，同时对其进行合理赔偿。
+主舞台上，赫哲族特色歌舞轮番上演，民族风情浓郁、表演精彩纷呈。
 
-杨女士发布的帖文截图显示，事发后，她向“老乡鸡”客服反映了相关情况。
+“第一次来四排，感觉这里赫哲民俗特别有特色，民俗文化氛围特别浓。
 
-客服询问具体是哪家店，还留下了杨女士的电话和订单信息，杨女士回复是“上海徐汇区漕河泾园区店。
+”宁波游客王丹表示，饶河旅游环境好，景色原生态，体验特别好，过来游玩特别值。
 
 ## 相关推荐
 
-- 2026-06-30 08:53 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-30 08:54 - [大蒜晒外面被路过女子连盆端走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-30 08:56 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
-- 2026-06-30 09:03 - [中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-30 08:46 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-30 08:55 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-30 08:44 - [世界杯巴拉圭点球淘汰德国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
-- 2026-06-30 08:36 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
-- 2026-06-30 09:05 - [日本主帅：未能夺冠深感抱歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
-- 2026-06-30 08:55 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-30 09:05 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
+- 2026-06-30 09:02 - [张月收到黄灿灿辣货两眼发光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
+- 2026-06-30 08:50 - [森保一致歉：世界第一目标没能实现](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-30 09:07 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
+- 2026-06-30 08:58 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-30 09:06 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-30 08:42 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-30 08:43 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-30 08:48 - [德国淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-30 09:05 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:48 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](http://www.blog.minike.top/Article/details/861092.shtml)
-- 2026-06-30 08:46 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/4838280.shtml)
-- 2026-06-30 09:03 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/616222.shtml)
-- 2026-06-30 09:05 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/8856132.shtml)
-- 2026-06-30 08:46 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.minike.top/Article/details/084442608.shtml)
-- 2026-06-30 09:02 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/221970.shtml)
-- 2026-06-30 08:50 - [补时绝杀 巴西2-1淘汰日本](http://www.share.kurohicncr.top/Article/details/5154404932.shtml)
-- 2026-06-30 08:40 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.kurohicncr.top/Article/details/165684121.shtml)
-- 2026-06-30 08:45 - [啊啊啊](http://www.share.minike.top/Article/details/015536703231.shtml)
-- 2026-06-30 08:57 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/537767541.shtml)
-- 2026-06-30 08:36 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.kurohicncr.top/Article/details/352761362.shtml)
-- 2026-06-30 08:41 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/633400228237.shtml)
-- 2026-06-30 08:53 - [日耳曼拖拉机](http://www.blog.kurohicncr.top/Article/details/544479.shtml)
-- 2026-06-30 08:50 - [巴西醒醒 这是淘汰赛](https://www.blog.minike.top/Article/details/776132063.shtml)
-- 2026-06-30 08:40 - [又一家县级医院关停门诊输液大厅](http://www.blog.minike.top/Article/details/47419.shtml)
+- 2026-06-30 08:43 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.kurohicncr.top/Article/details/6266556.shtml)
+- 2026-06-30 09:00 - [德国连续三届世界杯无缘16强](https://www.share.kurohicncr.top/Article/details/830275229.shtml)
+- 2026-06-30 09:08 - [韩国道歉完日本道歉](https://www.blog.kurohicncr.top/Article/details/507339218.shtml)
+- 2026-06-30 09:05 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/2423283060.shtml)
+- 2026-06-30 09:00 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/438041629.shtml)
+- 2026-06-30 08:58 - [德国巴拉圭进入点球大战](https://www.blog.minike.top/Article/details/704166187.shtml)
+- 2026-06-30 08:53 - [藤森庆子赢得秘鲁总统选举](http://www.blog.kurohicncr.top/Article/details/04778.shtml)
+- 2026-06-30 08:54 - [内马尔未登场 安切洛蒂赛后回应](http://www.blog.minike.top/Article/details/920275724233.shtml)
+- 2026-06-30 09:06 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/36071604.shtml)
+- 2026-06-30 08:45 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/9657502.shtml)
+- 2026-06-30 09:02 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/65248482757.shtml)
+- 2026-06-30 08:58 - [马耳他著名拱门坍塌致中国男子身亡](http://www.share.minike.top/Article/details/796886361.shtml)
+- 2026-06-30 09:10 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.kurohicncr.top/Article/details/7338149.shtml)
+- 2026-06-30 08:58 - [日本遭读秒绝杀 森保一：我水平不够](https://www.blog.kurohicncr.top/Article/details/177714.shtml)
+- 2026-06-30 09:09 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/22185256.shtml)

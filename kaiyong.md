@@ -1,57 +1,58 @@
-# 资金高切低？AH创新药回暖！华宝基金药ETF逆市连阳，520880终结7连阴！何时企稳？关注三条线索
+# 华尔街科技股评级分化：Jefferies下调微软Meta，Wedbush大幅上调AMD目标价
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-6月10日，大市再陷震荡，沪指收跌0.42%再失4000点，港股市场六连跌，恒指收跌0.64%。避险情绪升温，资金迅速“高切低”，以创新药为代表的超跌板块久违迎来关注。 【创新药领涨，中药助攻，场内唯一药ETF逆市连阳】 A股制药板块韧性凸显，早盘显著抗跌，午前发力拉升，场内唯一表征制药板块的药ETF华宝（562050）收涨1.26%底部连阳，昨日其场内价格下探历史新低。 成份
+周一，华尔街多家机构对科技巨头调整了评级与目标价，其中杰富瑞对微软和Meta的态度转为谨慎，而Wedbush则显著上调了AMD的目标价，显示出分析师对AI赛道投资回报预期的精细分化。 Jefferies下调微软目标价 根据多家财经媒体报道，杰富瑞将微软的目标价从675美元下调至575美元，下调幅度约15%。尽管下调了目标价，Jefferies并未改变对微软基本面的长期看法，此次
 
 ## 正文
 
-6月10日，大市再陷震荡，沪指收跌0.42%再失4000点，港股市场六连跌，恒指收跌0.64%。
+周一，华尔街多家机构对科技巨头调整了评级与目标价，其中杰富瑞对微软和Meta的态度转为谨慎，而Wedbush则显著上调了AMD的目标价，显示出分析师对AI赛道投资回报预期的精细分化。
 
-避险情绪升温，资金迅速“高切低”，以创新药为代表的超跌板块久违迎来关注。
+Jefferies下调微软目标价 根据多家财经媒体报道，杰富瑞将微软的目标价从675美元下调至575美元，下调幅度约15%。
 
-【创新药领涨，中药助攻，场内唯一药ETF逆市连阳】 A股制药板块韧性凸显，早盘显著抗跌，午前发力拉升，场内唯一表征制药板块的药ETF华宝（562050）收涨1.26%底部连阳，昨日其场内价格下探历史新低。
+尽管下调了目标价，Jefferies并未改变对微软基本面的长期看法，此次调整更多反映了对近期盈利增长节奏和特定业务部门压力的审慎评估。
 
-成份股方面，创新药概念领涨，科伦药业、百利天恒涨逾5%，华东医药、海思科涨超4%。
+Meta遭双重打击：目标价下调与评级调降 社交媒体巨头Meta同样遭遇来自杰富瑞的目标价下调，从1000美元降至825美元。
 
-中药股同步发力，所覆盖的12只中药龙头11股收涨，云南白药涨1.46%。
+更值得注意的是，摩根大通此前已将其评级从“增持”下调至“持有”。
 
-药ETF华宝（562050）跟踪的中证制药指数得益于“70%创新药+30%中药”独家配比，兼顾了创新药高成长及中药高股息，近3年区间，相比同类指数波动更低，这意味着在下行或震荡市场或更具韧性。
+这一系列动作背后，是市场对Meta激进的AI资本支出的担忧——该公司计划追加100亿美元用于AI基础设施扩张，但相较于谷歌和亚马逊，其AI变现路径存在不确定性，短期内可能对自由现金流造成压力。
 
-注：中证制药指数2021-2025年年度历史收益分别为：-9.10%、-21.09%、-3.70%、-6.53%、9.38%。
+Wedbush将AMD目标价上调至400美元 与上述科技巨头的谨慎基调形成鲜明对比，Wedbush分析师Matt Bryson将AMD的目标价从290美元大幅上调至400美元，上调幅度达38%，同时维持“跑赢大盘”评级。
 
-指数回测历史业绩不预示指数未来表现。
+这一调整发生在AMD即将于5月5日盘后发布一季度财报前夕，市场预计其Q1营收约98.8亿美元，同比增长约30%。
 
 ## 相关推荐
 
-- 2026-06-30 08:58 - [iPhone18e曝光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-30 08:39 - [库尼亚赛后伸五指嘲讽日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
-- 2026-06-30 08:45 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-30 08:58 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-30 08:48 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
-- 2026-06-30 08:53 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
-- 2026-06-30 08:42 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
-- 2026-06-30 09:03 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-30 08:38 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-30 08:54 - [锐评T1战胜KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-30 08:40 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-30 08:58 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-30 09:05 - [韩国世界杯出局是主帅一个人的锅吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-30 09:05 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-30 08:56 - [欧洲民众抢购空调降温](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-30 08:48 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-30 08:46 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
+- 2026-06-30 09:06 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-30 08:49 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-30 08:43 - [内马尔替补](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-30 09:10 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-30 08:49 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-30 08:42 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:46 - [一见倾心](http://www.blog.minike.top/Article/details/227765981.shtml)
-- 2026-06-30 08:56 - [藤森庆子赢得秘鲁总统选举](https://www.blog.minike.top/Article/details/14588788552.shtml)
-- 2026-06-30 08:52 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/448474046939.shtml)
-- 2026-06-30 08:57 - [四川凉山落石砸毁车辆 3人遇难](https://www.share.minike.top/Article/details/282624171.shtml)
-- 2026-06-30 08:57 - [高质量发展看新疆](https://www.blog.kurohicncr.top/Article/details/42679.shtml)
-- 2026-06-30 08:57 - [德国连续三届世界杯无缘16强](https://www.share.kurohicncr.top/Article/details/675522466.shtml)
-- 2026-06-30 08:36 - [美股](https://www.share.kurohicncr.top/Article/details/142801011.shtml)
-- 2026-06-30 08:42 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/15998369256.shtml)
-- 2026-06-30 09:03 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/9885533.shtml)
-- 2026-06-30 09:03 - [输球后日本球迷被强行披上巴西国旗](https://www.blog.minike.top/Article/details/2404531253.shtml)
-- 2026-06-30 08:41 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.minike.top/Article/details/640346868234.shtml)
-- 2026-06-30 09:00 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://www.share.kurohicncr.top/Article/details/271683914560.shtml)
-- 2026-06-30 08:45 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/18003835.shtml)
-- 2026-06-30 08:51 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/39643316.shtml)
-- 2026-06-30 08:58 - [王欣瑜连续4年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/18380163405.shtml)
+- 2026-06-30 09:09 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/1584091.shtml)
+- 2026-06-30 09:10 - [一生一世](http://www.blog.kurohicncr.top/Article/details/048970982491.shtml)
+- 2026-06-30 09:02 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/397872049269.shtml)
+- 2026-06-30 09:04 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/76364154498.shtml)
+- 2026-06-30 08:58 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/1539706.shtml)
+- 2026-06-30 08:51 - [上市央企地产商 两年换了三任董事长](http://www.share.minike.top/Article/details/413834.shtml)
+- 2026-06-30 08:48 - [输球后日本球迷被强行披上巴西国旗](https://www.share.kurohicncr.top/Article/details/237356313.shtml)
+- 2026-06-30 09:07 - [巴西在进攻三区完成210脚传球](http://www.share.minike.top/Article/details/52954892.shtml)
+- 2026-06-30 08:46 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/15875111908.shtml)
+- 2026-06-30 08:46 - [我和我的家乡](http://www.share.minike.top/Article/details/130674.shtml)
+- 2026-06-30 09:11 - [被巴西绝杀后 日球员田中碧跪地痛哭](http://www.share.kurohicncr.top/Article/details/41839.shtml)
+- 2026-06-30 09:03 - [日本将帅赛后采访纷纷哽咽落泪](https://www.blog.kurohicncr.top/Article/details/483556272.shtml)
+- 2026-06-30 08:59 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/621351.shtml)
+- 2026-06-30 08:51 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/947292.shtml)
+- 2026-06-30 08:46 - [【大鸣王潮1566】真拿你没办法](https://www.share.kurohicncr.top/Article/details/605636276346.shtml)

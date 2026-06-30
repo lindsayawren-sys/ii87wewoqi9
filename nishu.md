@@ -1,56 +1,56 @@
-# 抗通胀之战再遇“压力测试”：欧央行和英央行能否走出历史阴影？
+# 五角大楼与七家AI巨头签约，Anthropic遭排除
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-欧洲央行行长克里斯蒂娜·拉加德和英国央行行长安德鲁·贝利今年夏天将忙于摆脱过去通胀失误的阴影，同时采取措施应对物价持续上涨。 欧洲最有权势的这两位经济官员面临着一个挥之不去的两难困境：如何在应对伊朗战争的同时，避免重蹈新冠疫情及俄乌冲突后政策失误的覆辙？ 他们的决策将塑造欧洲未来数年的经济走向——也将决定他们个人的历史遗产。 随着美国总统唐纳德·特朗普在伊朗的战争再次将物价推向
+五角大楼5月1日宣布，已与七家领先的人工智能公司达成协议，将其先进技术部署到国防部的机密网络中。SpaceX、OpenAI、谷歌、英伟达、Reflection、微软和亚马逊云服务入选，而Anthropic因安全限制争议被排除在外。 Anthropic此前一直拒绝允许其Claude模型用于完全自主武器和大规模国内监控，坚持要求设置安全护栏。这一立场引发特朗普政府强烈不满，五角大楼
 
 ## 正文
 
-欧洲央行行长克里斯蒂娜·拉加德和英国央行行长安德鲁·贝利今年夏天将忙于摆脱过去通胀失误的阴影，同时采取措施应对物价持续上涨。
+五角大楼5月1日宣布，已与七家领先的人工智能公司达成协议，将其先进技术部署到国防部的机密网络中。
 
-欧洲最有权势的这两位经济官员面临着一个挥之不去的两难困境：如何在应对伊朗战争的同时，避免重蹈新冠疫情及俄乌冲突后政策失误的覆辙？
+SpaceX、OpenAI、谷歌、英伟达、Reflection、微软和亚马逊云服务入选，而Anthropic因安全限制争议被排除在外。
 
-他们的决策将塑造欧洲未来数年的经济走向——也将决定他们个人的历史遗产。
+Anthropic此前一直拒绝允许其Claude模型用于完全自主武器和大规模国内监控，坚持要求设置安全护栏。
 
-随着美国总统唐纳德·特朗普在伊朗的战争再次将物价推向上涨轨道，两家央行需要实时判断：从2022年反应迟缓导致通胀飙升至两位数的教训中，究竟该汲取什么？
+这一立场引发特朗普政府强烈不满，五角大楼于今年3月将其列为“供应链风险”，防长赫格塞斯下令任何国防部承包商不得与该企业开展商业合作。
 
-但教训并非简单地“尽快加息”。
+Anthropic随后提起诉讼，目前案件仍在审理中。
 
-法国巴黎银行发达市场经济主管保罗·霍林斯沃思表示：“任何央行目前面临的问题，都是在权衡两种可能的政策失误。
+五角大楼首席技术官埃米尔·迈克尔表示，“依赖单一合作伙伴是不负责任的”。
 
-一是行动滞后于应有节奏，最终可能不得不采取比预期更激烈的措施；二是根本不该加息时却加息，因为实际内在经济动态已大不相同。
+通过引入多家供应商，军方希望避免“供应商锁定”，确保在AI军事应用上拥有更大自主权。
 
-” 行动过慢，政策制定者可能让能源成本上涨渗透到通胀预期、薪资诉求和更广泛的价格体系中，从而削弱他们自2022年以来奋力重建的信誉。
+新协议允许七家企业接入保密和绝密网络环境，其产品将用于任务规划、目标引导等“合法作战用途”。
 
 ## 相关推荐
 
-- 2026-06-30 08:45 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-30 09:04 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-30 08:47 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
-- 2026-06-30 08:42 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-30 08:59 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-30 08:44 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-30 08:40 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-30 08:48 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
-- 2026-06-30 09:00 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-30 08:52 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
+- 2026-06-30 09:09 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
+- 2026-06-30 09:03 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-30 08:43 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-30 08:44 - [第一次对自信的力量有了实感](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-30 08:54 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-30 08:53 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-30 09:00 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
+- 2026-06-30 09:03 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
+- 2026-06-30 09:03 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-30 09:02 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:56 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/440641646.shtml)
-- 2026-06-30 08:51 - [《贺子珍》](https://www.share.minike.top/Article/details/86753.shtml)
-- 2026-06-30 08:45 - [世界杯巴拉圭点球淘汰德国](http://www.blog.minike.top/Article/details/14223225878.shtml)
-- 2026-06-30 09:01 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/564427860.shtml)
-- 2026-06-30 08:59 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/13788929502.shtml)
-- 2026-06-30 09:05 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/62199.shtml)
-- 2026-06-30 09:02 - [世界杯](https://www.share.minike.top/Article/details/45406834424.shtml)
-- 2026-06-30 08:51 - [巴西替补奇兵读秒绝杀](https://www.blog.minike.top/Article/details/822792452.shtml)
-- 2026-06-30 08:49 - [网瘾賊大的阿嬷](https://www.share.minike.top/Article/details/85814387621.shtml)
-- 2026-06-30 08:42 - [补时绝杀 巴西2-1淘汰日本](https://www.share.kurohicncr.top/Article/details/2957755.shtml)
-- 2026-06-30 08:44 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/89040421.shtml)
-- 2026-06-30 09:06 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/4469025.shtml)
-- 2026-06-30 08:44 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/830574131415.shtml)
-- 2026-06-30 08:45 - [城市规划有可能成为「屎山代码」吗？](http://www.share.kurohicncr.top/Article/details/894903.shtml)
-- 2026-06-30 08:42 - [金鹰奖视后提名预测](http://www.share.minike.top/Article/details/455835136.shtml)
+- 2026-06-30 09:11 - [郑钦文温网首轮出局](https://www.blog.minike.top/Article/details/9671183134.shtml)
+- 2026-06-30 09:03 - [齐思钧回复张月](https://www.blog.kurohicncr.top/Article/details/86012.shtml)
+- 2026-06-30 09:04 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.minike.top/Article/details/586004841.shtml)
+- 2026-06-30 08:45 - [四川凉山落石砸毁车辆 3人遇难](http://www.blog.minike.top/Article/details/65309573250.shtml)
+- 2026-06-30 09:03 - [日本球迷被强行披上巴西国旗](http://www.blog.kurohicncr.top/Article/details/8070794.shtml)
+- 2026-06-30 09:11 - [iPhoneUltra黑色机模](https://www.share.minike.top/Article/details/7293532.shtml)
+- 2026-06-30 09:05 - [第3集丨“柠檬茶能换怀表？”](http://www.blog.kurohicncr.top/Article/details/953465705413.shtml)
+- 2026-06-30 08:46 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.blog.kurohicncr.top/Article/details/8058997.shtml)
+- 2026-06-30 08:46 - [为什么会有「念旧」的心理？](http://www.blog.minike.top/Article/details/7336590455.shtml)
+- 2026-06-30 09:11 - [网红峡谷5人溺亡 有人提醒会下雨](http://www.blog.minike.top/Article/details/519290.shtml)
+- 2026-06-30 08:53 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/52143076785.shtml)
+- 2026-06-30 08:52 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.minike.top/Article/details/22412452.shtml)
+- 2026-06-30 09:05 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/966194741.shtml)
+- 2026-06-30 09:00 - [勇士续约波尔津吉斯](https://www.share.minike.top/Article/details/894900859931.shtml)
+- 2026-06-30 08:44 - [武磊：巴西队赢的并不轻松](https://www.blog.minike.top/Article/details/185595.shtml)

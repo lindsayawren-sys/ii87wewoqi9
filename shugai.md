@@ -1,57 +1,58 @@
-# 星舰成SpaceX估值支柱 火星愿景仍待验证
+# （走进中国乡村）科技助眠出圈 安徽广德打造康养“梦乡”
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-专题：史上最大IPO本周来袭 马斯克旗下SpaceX拟募资750亿美元 埃隆・马斯克怀揣载人登陆火星的宏伟愿景，同时力求让SpaceX完成史上规模最大的首次公开募股，而这两大目标的核心载体，正是星舰——一枚高达407英尺的巨型火箭。 这家由全球首富执掌、业务横跨人工智能与卫星领域的综合企业集团，已投入超150亿美元研发这款人类有史以来体量最大的火箭。在本月提交的上市监管文件中，
+中新社合肥5月2日电 题：科技助眠出圈 安徽广德打造康养“梦乡” 中新社记者 储玮玮 “睡个好觉”成为“90后”李薇“五一”假期的核心需求。为此，她专程从上海来到安徽省广德市卢村镇甘溪村，躺进“睡眠舱”中体验科技助眠。次日的睡眠质量报告详细记录了深度睡眠、快速眼动等数据。 地处皖苏浙交界的广德，凭“万亩竹海、千顷卢湖”的生态优势，成为长三角都市客群青睐的“梦乡”。2025年，上
 
 ## 正文
 
-专题：史上最大IPO本周来袭 马斯克旗下SpaceX拟募资750亿美元 埃隆・马斯克怀揣载人登陆火星的宏伟愿景，同时力求让SpaceX完成史上规模最大的首次公开募股，而这两大目标的核心载体，正是星舰——一枚高达407英尺的巨型火箭。
+中新社合肥5月2日电 题：科技助眠出圈 安徽广德打造康养“梦乡” 中新社记者 储玮玮 “睡个好觉”成为“90后”李薇“五一”假期的核心需求。
 
-这家由全球首富执掌、业务横跨人工智能与卫星领域的综合企业集团，已投入超150亿美元研发这款人类有史以来体量最大的火箭。
+为此，她专程从上海来到安徽省广德市卢村镇甘溪村，躺进“睡眠舱”中体验科技助眠。
 
-在本月提交的上市监管文件中，SpaceX将星舰视作公司未来发展规划的核心支柱。
+次日的睡眠质量报告详细记录了深度睡眠、快速眼动等数据。
 
-SpaceX希望星舰能成为全球首套完全可重复使用的发射系统。
+地处皖苏浙交界的广德，凭“万亩竹海、千顷卢湖”的生态优势，成为长三角都市客群青睐的“梦乡”。
 
-该火箭两级箭体均可回收复用，且有效载荷能力大幅提升。
+2025年，上海来此康养旅游人数已超150万人次。
 
-这将帮助公司以远更低的成本向轨道运送更多设备、发射更大体积的卫星，最终执行登月与火星探测任务。
+走进甘溪村的澄德现代庄园，客房是充满科技感的“睡眠舱”。
 
-这一发展愿景，是公司多项宏大规划的根基。
+舱内温度恒定在18.5摄氏度，新风系统维持着微正压环境，电子设备一律禁入，只有特定的助眠音频引导入睡。
 
-2024年9月，马斯克在社交平台X上发文表示：“实现多星球生存，将极大延长人类文明的存续周期，我们再也不会把所有希望孤注一掷地寄托在单一星球之上。
+“这是一套完整的睡眠解决方案。
 
 ## 相关推荐
 
-- 2026-06-30 08:41 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
-- 2026-06-30 08:53 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
-- 2026-06-30 09:05 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-30 08:46 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-30 08:57 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
-- 2026-06-30 08:56 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-30 08:58 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
-- 2026-06-30 08:51 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-30 08:57 - [锐评：网红不能困在无底线逐利里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-30 08:37 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
-- 2026-06-30 08:56 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-30 08:51 - [莫兰特转投开拓者效力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-30 08:58 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-30 08:56 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-30 09:02 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-30 08:56 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-30 08:53 - [为什么纣王似乎对周文王的扩张完全无动于衷？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-30 08:42 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-30 08:59 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-30 08:51 - [张月收到黄灿灿辣货两眼发光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-30 08:59 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-30 08:47 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-30 08:44 - [日本队主帅道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:39 - [郑钦文 四年一轮游](https://www.blog.kurohicncr.top/Article/details/65577469198.shtml)
-- 2026-06-30 08:37 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/013240255020.shtml)
-- 2026-06-30 08:55 - [巴西扳平比分](https://www.blog.minike.top/Article/details/30438305603.shtml)
-- 2026-06-30 08:46 - [郑钦文温网首轮出局](http://www.share.kurohicncr.top/Article/details/793624432.shtml)
-- 2026-06-30 08:42 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/75068645190.shtml)
-- 2026-06-30 08:38 - [日本球迷被强行披上巴西国旗](https://www.share.minike.top/Article/details/75496.shtml)
-- 2026-06-30 08:38 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/780907215019.shtml)
-- 2026-06-30 08:38 - [高质量发展看新疆](https://www.blog.kurohicncr.top/Article/details/3490818.shtml)
-- 2026-06-30 08:40 - [巴拉圭先进球了](https://www.blog.kurohicncr.top/Article/details/090107949.shtml)
-- 2026-06-30 09:01 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/88243620882.shtml)
-- 2026-06-30 08:54 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/48520.shtml)
-- 2026-06-30 08:59 - [杨紫被质疑未使用原名纯属误解](http://www.share.minike.top/Article/details/159503890999.shtml)
-- 2026-06-30 09:04 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/380518512.shtml)
-- 2026-06-30 09:02 - [巴西绝杀日本：漫画般结局换了主角](https://www.blog.kurohicncr.top/Article/details/77434053.shtml)
-- 2026-06-30 09:05 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/43463.shtml)
+- 2026-06-30 09:06 - [收到补税提醒尽快办理 明起有滞纳金](http://www.blog.minike.top/Article/details/948214393.shtml)
+- 2026-06-30 09:02 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/4484656.shtml)
+- 2026-06-30 08:53 - [刘宇宁高情商化解谁站C位](https://www.share.kurohicncr.top/Article/details/210789.shtml)
+- 2026-06-30 08:43 - [中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？](http://www.share.kurohicncr.top/Article/details/7130676.shtml)
+- 2026-06-30 08:49 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/442626.shtml)
+- 2026-06-30 09:06 - [中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？](https://www.share.minike.top/Article/details/58928203331.shtml)
+- 2026-06-30 09:03 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](https://www.share.kurohicncr.top/Article/details/6723290858.shtml)
+- 2026-06-30 08:49 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://www.share.minike.top/Article/details/9065089.shtml)
+- 2026-06-30 09:04 - [为什么纣王似乎对周文王的扩张完全无动于衷？](https://www.share.kurohicncr.top/Article/details/601589.shtml)
+- 2026-06-30 08:47 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/621712.shtml)
+- 2026-06-30 08:53 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/6905166.shtml)
+- 2026-06-30 08:49 - [黄晓明晒和周杰伦的合照](https://www.blog.kurohicncr.top/Article/details/9664035540.shtml)
+- 2026-06-30 08:52 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/074093.shtml)
+- 2026-06-30 09:07 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.minike.top/Article/details/86084.shtml)
+- 2026-06-30 08:58 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/86497849419.shtml)

@@ -1,58 +1,56 @@
-# 摩根资管Kelly认为通胀或已见顶 美联储下周料按兵不动
+# 广西金秀：游客亲水乐享假期
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-摩根资产管理的David Kelly预计，最新的通胀数据不足以促使美联储决策者在下周采取维持利率不变以外的行动。 受伊朗战争推高能源价格影响，美国5月消费者价格指数创逾三年来最大涨幅，超过美国民众的薪资增长。不过，剔除食品和能源价格后的核心通胀指标升幅低于预期。摩根资管首席全球策略师Kelly表示，尽管美联储会对此感到“有些不安”，但这些数据或许意味着通胀已达峰。 “基本上，我
+爱奇艺，到底在急什么？榴莲降价背后，一条互利共赢的“甜蜜链路”这个五一，AI把旅游玩明白了为什么景区步行街里，那么多“绿色”护手霜店？从《神秘的大佛》到《去有风的地方》，每一代人的旅行，都有一部“启蒙剧”台湾青年：五四精神跨越海峡，唤醒台湾民众民族认同感部分航线票价低至一折 假期机票怎么买最划算？“拼小团”出游热度高，这份“避坑指南”请收好日均花费超千元 年轻人流行放假去酒店“
 
 ## 正文
 
-摩根资产管理的David Kelly预计，最新的通胀数据不足以促使美联储决策者在下周采取维持利率不变以外的行动。
+爱奇艺，到底在急什么？
 
-受伊朗战争推高能源价格影响，美国5月消费者价格指数创逾三年来最大涨幅，超过美国民众的薪资增长。
+榴莲降价背后，一条互利共赢的“甜蜜链路”这个五一，AI把旅游玩明白了为什么景区步行街里，那么多“绿色”护手霜店？
 
-不过，剔除食品和能源价格后的核心通胀指标升幅低于预期。
+从《神秘的大佛》到《去有风的地方》，每一代人的旅行，都有一部“启蒙剧”台湾青年：五四精神跨越海峡，唤醒台湾民众民族认同感部分航线票价低至一折 假期机票怎么买最划算？
 
-摩根资管首席全球策略师Kelly表示，尽管美联储会对此感到“有些不安”，但这些数据或许意味着通胀已达峰。
+“拼小团”出游热度高，这份“避坑指南”请收好日均花费超千元 年轻人流行放假去酒店“运动度假”净移民近百年来首现负值，美国人为何“用脚投票”逃离美国？
 
-“基本上，我们将看到12票一致决定按兵不动，”Kelly周三在节目Surveillance上表示。
+这里藏过刘邦，也藏着白居易22年的青春……云南边境的目瑙纵歌，何以火爆全网？
 
-“通胀高于他们希望看到的水平。
+上午议事、下午狂欢，篝火迎春、魔女之夜……世界各国的“劳动节”太不一样了！
 
-但我认为，本轮周期的通胀高点可能就出现在该月，也就是5月。
+孩子吃饭少、长不高、脾气暴？
 
-” Kelly提到美国汽油价格下降——较5月20日的高点下跌9%——这表明成本压力在减弱。
+专家：警惕这种罕见病专访台退役少校舰长吕礼诗：绝不因台当局打压而妥协沉默当中国大市场以零关税向非洲53国“敞开怀抱”绍兴黄酒“春藏”热 中外家庭“封藏”人生喜事百年冰泉豆浆香飘海内外：烟火乡愁 味引八方台胞组团赴湖南郴州寻味地道酱板鸭如何把动车“开”走？
 
 ## 相关推荐
 
-- 2026-06-30 08:56 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-30 08:45 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-30 08:43 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-30 08:50 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-30 08:37 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-30 08:57 - [电影抓特务上映11天破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-30 08:47 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-30 08:52 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-30 08:58 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-30 09:00 - [欧洲民众抢购空调降温](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-30 08:36 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-30 08:40 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
+- 2026-06-30 08:42 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-30 08:43 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-30 08:58 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-30 08:54 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-30 08:42 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-30 08:58 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-30 08:55 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-30 08:53 - [德国 传控](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-30 08:56 - [锐评T1战胜KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-30 08:42 - [世界杯巴拉圭点球淘汰德国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:59 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/736136.shtml)
-- 2026-06-30 08:42 - [董卿父亲在报纸上发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/7487673249.shtml)
-- 2026-06-30 08:40 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.minike.top/Article/details/518120.shtml)
-- 2026-06-30 09:04 - [德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/050709472.shtml)
-- 2026-06-30 08:44 - [自然光｜papi酱&窦文涛：驴与跑步机](http://www.share.kurohicncr.top/Article/details/43281.shtml)
-- 2026-06-30 08:59 - [人类...完蛋了...](http://www.share.kurohicncr.top/Article/details/1483418826.shtml)
-- 2026-06-30 08:37 - [点球大战](http://www.share.minike.top/Article/details/940677.shtml)
-- 2026-06-30 08:44 - [我和我的家乡](https://www.blog.minike.top/Article/details/031553.shtml)
-- 2026-06-30 08:59 - [电影抓特务上映11天破亿](https://www.share.minike.top/Article/details/7765347.shtml)
-- 2026-06-30 08:56 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](http://www.share.minike.top/Article/details/27014.shtml)
-- 2026-06-30 08:39 - [沙丘](https://www.blog.minike.top/Article/details/051908.shtml)
-- 2026-06-30 08:54 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.share.minike.top/Article/details/345104866.shtml)
-- 2026-06-30 08:41 - [董卿父亲在报纸上发文悼念亡妻](http://www.blog.minike.top/Article/details/624217000216.shtml)
-- 2026-06-30 09:03 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/7970191.shtml)
-- 2026-06-30 08:54 - [泰山建135公里刀片刺绳隔离网](https://www.share.kurohicncr.top/Article/details/13649240.shtml)
+- 2026-06-30 08:59 - [高考结束了，你会让孩子在家玩手机吗？](https://www.blog.kurohicncr.top/Article/details/833798447.shtml)
+- 2026-06-30 08:56 - [曝詹姆斯即将与勇士会面](https://www.blog.minike.top/Article/details/190475.shtml)
+- 2026-06-30 09:00 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/68905855931.shtml)
+- 2026-06-30 09:06 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/64410243.shtml)
+- 2026-06-30 09:05 - [黄晓明夸昆凌引杨颖对比](https://www.blog.kurohicncr.top/Article/details/42019081548.shtml)
+- 2026-06-30 08:57 - [日本16强魔咒](https://www.share.kurohicncr.top/Article/details/030001499570.shtml)
+- 2026-06-30 08:54 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/780031562967.shtml)
+- 2026-06-30 08:51 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/937637006076.shtml)
+- 2026-06-30 08:46 - [森保一 保守](https://www.blog.kurohicncr.top/Article/details/905269211.shtml)
+- 2026-06-30 08:57 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/3036270.shtml)
+- 2026-06-30 09:08 - [女子清吧被陌生人投放伟哥](http://www.blog.minike.top/Article/details/9041652768.shtml)
+- 2026-06-30 09:12 - [巴西醒醒 这是淘汰赛](http://www.blog.minike.top/Article/details/5936415.shtml)
+- 2026-06-30 08:49 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/4778300540.shtml)
+- 2026-06-30 09:09 - [日本16强魔咒](http://www.share.minike.top/Article/details/199497848.shtml)
+- 2026-06-30 08:57 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/989538.shtml)

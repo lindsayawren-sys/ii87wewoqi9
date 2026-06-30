@@ -1,61 +1,59 @@
-# 操盘必读：影响股市利好或利空消息_2026年6月10日_财经新闻
+# 罢工风险开始给三星公司近期前景蒙上阴影
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 宏观新闻 1、外交部发言人林剑昨日主持例行记者会。记者提问称，美方将几家中国企业，包括阿里巴巴、比亚迪等列入所谓“涉军”企业清单。林剑表示，中方一贯坚决反对美方泛化国家安全概念，划设各类名目的歧视性清单，无理打压中国企业。中方敦促美方纠正错误做法，停止对中国企业的无理打压行径。中方将采取必要措施，坚定维护中国企业的正当合法权益。
+三星电子（Samsung Electronics）仍在乘着AI浪潮，但显然正在失去相对于SK海力士（SK Hynix）的优势，而花旗认为，随着劳资紧张局势开始积聚，三星的处境可能将更加艰难。 周一，该股确实一度上涨4.8%，创下历史新高，但与SK海力士12%的涨幅相比仍然显得温和。花旗分析师Peter Lee并未放弃长期看好的逻辑，维持了“买入”评级，但他将目标价从32万韩元下
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 宏观新闻 1、外交部发言人林剑昨日主持例行记者会。
+三星电子（Samsung Electronics）仍在乘着AI浪潮，但显然正在失去相对于SK海力士（SK Hynix）的优势，而花旗认为，随着劳资紧张局势开始积聚，三星的处境可能将更加艰难。
 
-记者提问称，美方将几家中国企业，包括阿里巴巴、比亚迪等列入所谓“涉军”企业清单。
+周一，该股确实一度上涨4.8%，创下历史新高，但与SK海力士12%的涨幅相比仍然显得温和。
 
-林剑表示，中方一贯坚决反对美方泛化国家安全概念，划设各类名目的歧视性清单，无理打压中国企业。
+花旗分析师Peter Lee并未放弃长期看好的逻辑，维持了“买入”评级，但他将目标价从32万韩元下调6.3%至30万韩元，这反映出日益增长的近期担忧。
 
-中方敦促美方纠正错误做法，停止对中国企业的无理打压行径。
+目前的问题在于劳工风险。
 
-中方将采取必要措施，坚定维护中国企业的正当合法权益。
+工会可能在5月21日至6月7日期间举行罢工，在利润率已受到密切关注之际，这将推高成本。
 
-2、据日本经济新闻报道，美方请求中国恢复对日本的稀土出口。
+花旗特别关注绩效奖金和更广泛的人工支出，警告称如果紧张局势升级，这些因素可能会侵蚀利润。
 
-外交部发言人林剑对此表示，中方依法依规针对所有两用物项禁止对日本军事用户、军事用途以及一切有助于提升日本军事实力的其他最终用户、用途出口，目的是制止日本“再军事化”和拥核的企图。
+因此，该行将今年和明年的营业利润预期分别下调了10%和11%。
 
-3、美军已对霍尔木兹海峡周边多套伊朗防空系统和雷达系统发动打击。
+长期来看，存储芯片周期仍然强劲，预计到2027年短缺将进一步加剧，但近期走势可能坎坷不平。
 
 ## 相关推荐
 
-- 2026-06-30 08:55 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
-- 2026-06-30 08:57 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
-- 2026-06-30 08:37 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-30 08:58 - [日本球迷被强行披上巴西国旗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-30 08:52 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-30 08:42 - [日本五次世界杯淘汰赛全败](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
-- 2026-06-30 08:36 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
-- 2026-06-30 08:58 - [巴西足球能否再现昔日荣光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
-- 2026-06-30 09:04 - [美股收盘 热门中概股普涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-30 08:39 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-30 08:39 - [IGN评测电影版后室](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-30 09:04 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-30 08:51 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-30 08:53 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-30 08:39 - [德国4比5巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
+- 2026-06-30 08:56 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-30 08:50 - [曝iPhone18Pro机密文件现身暗网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-30 08:44 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-30 08:53 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-30 09:02 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
+- 2026-06-30 08:55 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-30 08:49 - [金鹰奖视后提名预测](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-30 08:49 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-30 09:05 - [日本将帅赛后采访纷纷哽咽落泪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-30 08:54 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-30 09:06 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-30 09:02 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-30 08:42 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:38 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://www.blog.kurohicncr.top/Article/details/7665437008.shtml)
-- 2026-06-30 08:39 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/6125571687.shtml)
-- 2026-06-30 09:01 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](http://www.share.kurohicncr.top/Article/details/1411824.shtml)
-- 2026-06-30 09:05 - [日本队5进世界杯淘汰赛0胜](https://www.share.kurohicncr.top/Article/details/39923720.shtml)
-- 2026-06-30 08:38 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/77859735.shtml)
-- 2026-06-30 08:49 - [金牌调解](http://www.blog.minike.top/Article/details/942484222.shtml)
-- 2026-06-30 08:53 - [iPhone18e曝光](https://www.blog.minike.top/Article/details/5611156914.shtml)
-- 2026-06-30 08:39 - [世界杯欧洲队7战南美仅1胜](http://www.blog.minike.top/Article/details/792047465.shtml)
-- 2026-06-30 09:02 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/66595966315.shtml)
-- 2026-06-30 09:02 - [网瘾賊大的阿嬷](http://www.blog.minike.top/Article/details/51544956.shtml)
-- 2026-06-30 08:51 - [巴拉圭点球大战淘汰德国进16强](http://www.blog.minike.top/Article/details/27007.shtml)
-- 2026-06-30 08:57 - [“柠檬茶能换怀表？”](http://www.share.kurohicncr.top/Article/details/7323206525.shtml)
-- 2026-06-30 08:56 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/9511567743.shtml)
-- 2026-06-30 08:40 - [免费试吃发差评被店家挂店门避雷](https://www.blog.kurohicncr.top/Article/details/73497751.shtml)
-- 2026-06-30 09:05 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.kurohicncr.top/Article/details/45486.shtml)
+- 2026-06-30 08:44 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.minike.top/Article/details/0772872.shtml)
+- 2026-06-30 08:51 - [杨紫学位证上就是杨紫](https://www.share.kurohicncr.top/Article/details/82295899.shtml)
+- 2026-06-30 09:11 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/938988762.shtml)
+- 2026-06-30 08:58 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/227273.shtml)
+- 2026-06-30 08:50 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/989790700.shtml)
+- 2026-06-30 09:11 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/182181104.shtml)
+- 2026-06-30 08:42 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.minike.top/Article/details/2332775429.shtml)
+- 2026-06-30 08:46 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/47090.shtml)
+- 2026-06-30 08:57 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/77061175.shtml)
+- 2026-06-30 08:47 - [网瘾賊大的阿嬷](https://www.blog.minike.top/Article/details/17357946.shtml)
+- 2026-06-30 08:49 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/7117857.shtml)
+- 2026-06-30 09:09 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/37605.shtml)
+- 2026-06-30 08:59 - [佐野海舟远射破门](http://www.blog.kurohicncr.top/Article/details/4905410223.shtml)
+- 2026-06-30 09:08 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/5316418284.shtml)
+- 2026-06-30 09:05 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/743958.shtml)

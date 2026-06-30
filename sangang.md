@@ -1,56 +1,59 @@
-# 中越少年儿童共探科技魅力 携手厚植友谊
+# （走进中国乡村）大湾区餐桌“催单” 广西乡土名鸡“火”出大山
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-中新网南宁6月10日电 (陈秋霞)“我以前只在网络上看过机器人跳舞，今天亲眼看到，很惊讶很开心。我想和机器人一起跳舞，但我有些害羞。”越南高平省学生文黄明奎9日在广西南宁受访时说。 2026年中国(广西)—越南少年儿童手拉手活动当日在南宁启动，300余名中越少先队员、少先队辅导员等参与活动。 两国少年儿童当天上午到访广西大学，参观原广西南宁育才学校(即越南中央学舍区)旧址，瞻仰
+中新社广西梧州5月2日电 题：大湾区餐桌“催单” 广西乡土名鸡“火”出大山 作者 张广权 “五一”假期，来自广西深山的岑溪古典鸡正加速走进粤港澳大湾区。在农贸市场花一百多元(人民币，下同)买一只正宗的“走地鸡”白切或水蒸，已成为大湾区民众犒劳自己和家人的重要选项。 在岑溪市岑城镇古塘村的一片果园里，村民姚福房抓起一把玉米撒出去，上万只三黄鸡立刻围拢过来。 “以前在外打工，难得回
 
 ## 正文
 
-中新网南宁6月10日电 (陈秋霞)“我以前只在网络上看过机器人跳舞，今天亲眼看到，很惊讶很开心。
+中新社广西梧州5月2日电 题：大湾区餐桌“催单” 广西乡土名鸡“火”出大山 作者 张广权 “五一”假期，来自广西深山的岑溪古典鸡正加速走进粤港澳大湾区。
 
-我想和机器人一起跳舞，但我有些害羞。
+在农贸市场花一百多元(人民币，下同)买一只正宗的“走地鸡”白切或水蒸，已成为大湾区民众犒劳自己和家人的重要选项。
 
-”越南高平省学生文黄明奎9日在广西南宁受访时说。
+在岑溪市岑城镇古塘村的一片果园里，村民姚福房抓起一把玉米撒出去，上万只三黄鸡立刻围拢过来。
 
-2026年中国(广西)—越南少年儿童手拉手活动当日在南宁启动，300余名中越少先队员、少先队辅导员等参与活动。
+“以前在外打工，难得回家。
 
-两国少年儿童当天上午到访广西大学，参观原广西南宁育才学校(即越南中央学舍区)旧址，瞻仰《胡志明和孩子们》铜像并观看图片展，感悟两国传统友谊。
+现在在家养鸡，一年能挣十多万，还能照看老人孩子。
 
-下午，两国少年儿童走进广西人工智能学院、广西科技馆体验AI翻译眼镜等前沿科技，近距离交流互动。
+”姚福房介绍，他养的岑溪古典鸡，是广西原生的土鸡品种。
 
-展演区，人形机器人轮番上演太极招式与流行舞曲，灵动十足；机器狗邀请孩子们落座体验。
+这种鸡体型小巧，“禾虾头、柚子身、铁线脚”，羽毛金黄，长期放养于山林，采食松米、虫蚁，肉质紧实，皮薄骨细。
 
-文黄明奎坦言此次体验十分新鲜，也让她真切感受到中越友好情谊。
+“广东人舌头很灵的。
 
 ## 相关推荐
 
-- 2026-06-30 08:46 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-30 08:41 - [陈小春人老了干什么也不心酸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
-- 2026-06-30 08:51 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-30 08:49 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-30 09:00 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-30 08:54 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
-- 2026-06-30 08:52 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
-- 2026-06-30 08:46 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
-- 2026-06-30 08:43 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-30 08:55 - [巴西绝杀日本：漫画般结局换了主角](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
+- 2026-06-30 08:50 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-30 09:07 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-30 08:46 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-30 08:53 - [四川凉山落石砸毁车辆 3人遇难](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-30 08:42 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-30 09:06 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-30 08:55 - [世界杯：荷兰vs摩洛哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-30 09:03 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
+- 2026-06-30 09:04 - [巴西在进攻三区完成210脚传球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-30 09:05 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-30 09:11 - [男子造谣东鹏老板不喝自家饮料被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-30 08:59 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-30 08:59 - [世界杯名画巴拉圭钢铁防线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 09:02 - [德国罚丢3粒点球](https://www.share.kurohicncr.top/Article/details/51377254365.shtml)
-- 2026-06-30 08:50 - [荷兰VS摩洛哥](https://www.blog.kurohicncr.top/Article/details/508008.shtml)
-- 2026-06-30 08:53 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/421763.shtml)
-- 2026-06-30 08:46 - [好像看到了人类带孩子崩溃的样子](https://www.share.minike.top/Article/details/6989377.shtml)
-- 2026-06-30 08:37 - [斛珠夫人](http://www.share.minike.top/Article/details/577844908.shtml)
-- 2026-06-30 08:42 - [德国罚丢3粒点球](http://www.share.minike.top/Article/details/6498756.shtml)
-- 2026-06-30 08:36 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.minike.top/Article/details/922988227.shtml)
-- 2026-06-30 08:56 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/00463113146.shtml)
-- 2026-06-30 08:40 - [巴西足球能否再现昔日荣光](https://www.blog.minike.top/Article/details/99224862.shtml)
-- 2026-06-30 08:43 - [《名肘探科比》：科比大战裂口女](http://www.share.kurohicncr.top/Article/details/811033.shtml)
-- 2026-06-30 08:58 - [莫兰特被交易到开拓者](http://www.blog.kurohicncr.top/Article/details/20994055.shtml)
-- 2026-06-30 08:39 - [点球大战 残酷](https://www.share.minike.top/Article/details/95312.shtml)
-- 2026-06-30 08:44 - [日耳曼拖拉机](https://www.share.kurohicncr.top/Article/details/3426330.shtml)
-- 2026-06-30 08:54 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/4542516.shtml)
-- 2026-06-30 08:41 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/027566308.shtml)
+- 2026-06-30 08:59 - [低智商犯罪三江口团建来了](http://www.share.minike.top/Article/details/8861737374.shtml)
+- 2026-06-30 08:44 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/6225195352.shtml)
+- 2026-06-30 08:44 - [马耳他著名拱门坍塌致中国男子身亡](https://www.blog.kurohicncr.top/Article/details/078098080.shtml)
+- 2026-06-30 08:44 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/1721398135.shtml)
+- 2026-06-30 08:53 - [巴西绝杀](https://www.blog.minike.top/Article/details/9470874381.shtml)
+- 2026-06-30 09:01 - [德国4比5巴拉圭](https://www.blog.minike.top/Article/details/274759668410.shtml)
+- 2026-06-30 08:45 - [欧洲民众抢购空调降温](http://www.share.kurohicncr.top/Article/details/208923.shtml)
+- 2026-06-30 08:50 - [吴易昺不敌德约科维奇 止步温网首轮](http://www.share.minike.top/Article/details/3511369.shtml)
+- 2026-06-30 08:45 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/82464281.shtml)
+- 2026-06-30 08:57 - [德国4比5巴拉圭](https://www.blog.minike.top/Article/details/7508748.shtml)
+- 2026-06-30 09:04 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/74524971.shtml)
+- 2026-06-30 08:52 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/90567.shtml)
+- 2026-06-30 08:50 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/056605056.shtml)
+- 2026-06-30 08:52 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/41134648417.shtml)
+- 2026-06-30 09:01 - [董卿父亲在报纸上发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/13857.shtml)

@@ -1,57 +1,60 @@
-# 国台办：数典忘祖背叛民族的人将被钉在历史耻辱柱上
+# 粤港湾控股早盘涨近8% 公司转型智算赛道去年扭亏为盈
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-6月10日，国务院台办举行例行新闻发布会。有记者问，针对日本、菲律宾宣布启动所谓“海域划界谈判”，大陆强调一中原则，两岸应共同维护国家主权和领土完整。民进党当局则妄称“两岸互不隶属，中国无权置喙、无权代替台湾发言”，并表示台与日、菲分别签有“渔业协议”，将继续与日菲协商海事议题。另据媒体报道，日方已拒绝了民进党当局的对话请求。对此有何评论?发言人张晗答问表示，日菲宣布的拟划界海
+粤港湾控股（01396）再涨超7%，年初至今股价累涨1.3倍。截至发稿，股价上涨7.71%，现报11.31港元，成交额6037.13万港元。 去年10月，粤港湾控股在公告收购天顿数据之后，完成了从地产模式向稀缺资产型AI算力基础设施平台的实质性转型。公司净利润从2024财年巨亏约20.413亿元，一举逆转为2025财年归母净利润约7300万元。财报中显示，天顿数据在并表后短短两
 
 ## 正文
 
-6月10日，国务院台办举行例行新闻发布会。
+粤港湾控股（01396）再涨超7%，年初至今股价累涨1.3倍。
 
-有记者问，针对日本、菲律宾宣布启动所谓“海域划界谈判”，大陆强调一中原则，两岸应共同维护国家主权和领土完整。
+截至发稿，股价上涨7.71%，现报11.31港元，成交额6037.13万港元。
 
-民进党当局则妄称“两岸互不隶属，中国无权置喙、无权代替台湾发言”，并表示台与日、菲分别签有“渔业协议”，将继续与日菲协商海事议题。
+去年10月，粤港湾控股在公告收购天顿数据之后，完成了从地产模式向稀缺资产型AI算力基础设施平台的实质性转型。
 
-另据媒体报道，日方已拒绝了民进党当局的对话请求。
+公司净利润从2024财年巨亏约20.413亿元，一举逆转为2025财年归母净利润约7300万元。
 
-对此有何评论?
+财报中显示，天顿数据在并表后短短两个多月内便贡献了约6.167亿元收入，占集团总收入的61.5%。
 
-发言人张晗答问表示，日菲宣布的拟划界海域位于台湾岛以东，中国在上述海域拥有专属经济区和大陆架，日菲绕开中国擅自启动所谓“划界谈判”，严重侵害中国海洋权益，严重违反国际法和国际关系基本准则，完全非法无效。
+国元国际认为，转型智算赛道后，公司将深度绑定AI产业的高增长红利，估值体系有望切换至“算力+科技”赛道的估值框架。
 
-张晗指出，民进党当局卑躬屈膝，迎合外部势力，已经沦为彻头彻底的民族败类。
+参考当前智算行业的高景气度与稀缺性标的估值水平，粤港湾控股凭借天顿数据的万卡集群能力、头部客户资源，以及债转股后优化的财务结构，公司具备重估空间。
 
-面对两岸同胞的同声谴责，民进党当局又变了副嘴脸，翻炒“台独”谬论，妄图转移焦点、欺骗民众。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 08:47 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-30 08:52 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
-- 2026-06-30 08:44 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-30 08:38 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-30 09:03 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-30 08:38 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
-- 2026-06-30 08:44 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-30 09:02 - [欧洲装一台空调有多难](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-30 08:50 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
-- 2026-06-30 08:42 - [德国巴拉圭进入点球大战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
-- 2026-06-30 08:45 - [陈幸同晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-30 09:11 - [日本将帅赛后采访纷纷哽咽落泪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-30 09:12 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-30 09:04 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-30 09:00 - [韩国道歉完日本道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-30 09:08 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-30 09:00 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-30 09:09 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-30 09:10 - [日本队5进世界杯淘汰赛0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-30 09:06 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
+- 2026-06-30 08:52 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-30 08:46 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-30 09:03 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-30 09:10 - [王楚钦孙颖莎晋级混双八强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
+- 2026-06-30 08:46 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:36 - [荷兰VS摩洛哥](https://www.share.minike.top/Article/details/9071353402.shtml)
-- 2026-06-30 09:03 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.kurohicncr.top/Article/details/5203498.shtml)
-- 2026-06-30 09:00 - [现在叛逆期的孩子最怕的是什么？](https://www.share.minike.top/Article/details/6760213150.shtml)
-- 2026-06-30 08:55 - [杨紫学位证上就是杨紫](http://www.share.kurohicncr.top/Article/details/588936767741.shtml)
-- 2026-06-30 08:53 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.blog.kurohicncr.top/Article/details/15748827.shtml)
-- 2026-06-30 08:55 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.kurohicncr.top/Article/details/096634.shtml)
-- 2026-06-30 08:44 - [黄晓明夸昆凌引杨颖对比](http://www.share.minike.top/Article/details/235384331.shtml)
-- 2026-06-30 09:03 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.kurohicncr.top/Article/details/523955.shtml)
-- 2026-06-30 08:57 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/95471.shtml)
-- 2026-06-30 08:59 - [“草莓月亮”浪漫现身](http://www.share.kurohicncr.top/Article/details/018662590095.shtml)
-- 2026-06-30 08:59 - [F1奥地利站赛后复盘](http://www.blog.kurohicncr.top/Article/details/632952305871.shtml)
-- 2026-06-30 08:42 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/94693561.shtml)
-- 2026-06-30 09:02 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/7237038263.shtml)
-- 2026-06-30 08:51 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/471671951895.shtml)
-- 2026-06-30 08:52 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/42878873569.shtml)
+- 2026-06-30 08:58 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/154083.shtml)
+- 2026-06-30 09:03 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/0194827.shtml)
+- 2026-06-30 09:10 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/69358292841.shtml)
+- 2026-06-30 08:47 - [巴西2-1绝杀日本](http://www.blog.minike.top/Article/details/1263622.shtml)
+- 2026-06-30 08:48 - [日本遭读秒绝杀 森保一：我水平不够](https://www.share.minike.top/Article/details/100635454703.shtml)
+- 2026-06-30 09:00 - [网友写差评被店家“挂”门口避雷](http://www.share.kurohicncr.top/Article/details/37570065.shtml)
+- 2026-06-30 08:57 - [德国连续三届世界杯无缘16强](http://www.share.kurohicncr.top/Article/details/94560.shtml)
+- 2026-06-30 09:05 - [巴拉圭进球](http://www.blog.kurohicncr.top/Article/details/18015106.shtml)
+- 2026-06-30 08:44 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/72472306.shtml)
+- 2026-06-30 09:01 - [千香](https://www.share.kurohicncr.top/Article/details/84606.shtml)
+- 2026-06-30 09:04 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/2377933527.shtml)
+- 2026-06-30 09:06 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/656681742.shtml)
+- 2026-06-30 08:52 - [人类...完蛋了...](http://www.share.minike.top/Article/details/29607182.shtml)
+- 2026-06-30 08:57 - [郑钦文温网三连败西尼亚科娃](http://www.share.minike.top/Article/details/21516889134.shtml)
+- 2026-06-30 08:59 - [巴西在进攻三区完成210脚传球](https://www.share.kurohicncr.top/Article/details/63241593593.shtml)

@@ -1,52 +1,56 @@
-# 幸福养老就在家门口 外国嘉宾点赞中国社区养老
+# 布雷特・泰勒旗下Sierra再融资近10亿美元，距上轮募资仅时隔数月
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月10日 21:01 来源：中国新闻网 近日，来自多个国家和地区的官员、专家和媒体代表走进浙江杭州和睦社区，探访养老服务综合街区建设情况。从丰富多彩的社区活动到便捷完善的养老服务，中外嘉宾近距离感受中国社区养老的温度与活力。安哥拉外交部顾问伊维特·加利亚诺表示，这样的经验值得更多国家借鉴和学习。(钱晨菲 刘子琳) 责任编辑：【刘湃】
+核心要点 美国消费者新闻与商业频道（CNBC）获悉，由 OpenAI 董事长布雷特・泰勒联合创立的人工智能初创企业完成新一轮融资，估值突破 150 亿美元，较去年秋季 100 亿美元估值大幅抬升。 Sierra 于周一宣布完成9.5 亿美元 E 轮融资，由老虎环球基金、谷歌风投（GV）领投，标杆资本、红杉资本、Greenoaks 等机构跟投。 这是火爆 AI 赛道又一笔巨额融资
 
 ## 正文
 
-发布时间：2026年06月10日 21:01 来源：中国新闻网 近日，来自多个国家和地区的官员、专家和媒体代表走进浙江杭州和睦社区，探访养老服务综合街区建设情况。
+核心要点 美国消费者新闻与商业频道（CNBC）获悉，由 OpenAI 董事长布雷特・泰勒联合创立的人工智能初创企业完成新一轮融资，估值突破 150 亿美元，较去年秋季 100 亿美元估值大幅抬升。
 
-从丰富多彩的社区活动到便捷完善的养老服务，中外嘉宾近距离感受中国社区养老的温度与活力。
+Sierra 于周一宣布完成9.5 亿美元 E 轮融资，由老虎环球基金、谷歌风投（GV）领投，标杆资本、红杉资本、Greenoaks 等机构跟投。
 
-安哥拉外交部顾问伊维特·加利亚诺表示，这样的经验值得更多国家借鉴和学习。
+这是火爆 AI 赛道又一笔巨额融资，也反映出投资者争相押注、挖掘新晋行业龙头的强烈意愿。
 
-(钱晨菲 刘子琳) 责任编辑：【刘湃】
+CNBC 获悉，在风投机构持续扎堆布局 AI 赛道、交易热潮不减的背景下，人工智能初创公司 Sierra 新一轮募资规模接近 10 亿美元。
+
+这家总部位于旧金山的企业本轮募资9.5 亿美元，投后估值达158 亿美元，由老虎环球基金与谷歌风投领投，标杆资本、红杉资本、Greenoaks 等原有投资者参与跟投。
+
+Sierra 由 OpenAI 董事长、前 Salesforce 联席首席执行官布雷特・泰勒，与前谷歌高管克莱・巴沃尔三年前联合创办。
+
+泰勒曾担任 Facebook 首席技术官，埃隆・马斯克收购推特期间，他出任推特董事长。
+
+两位创始人均相识于谷歌：泰勒主导参与打造谷歌地图，巴沃尔则负责谷歌虚拟现实业务与谷歌实验室项目。
 
 ## 相关推荐
 
-- 2026-06-30 08:46 - [德国北部枪击事件致5死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-30 08:57 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-30 09:05 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
-- 2026-06-30 08:53 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-30 08:48 - [三星投资计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-30 08:43 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
-- 2026-06-30 09:04 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
-- 2026-06-30 08:45 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
-- 2026-06-30 08:59 - [陈小春人老了干什么也不心酸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-30 08:40 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-30 08:52 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-30 08:37 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-30 08:45 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
-- 2026-06-30 08:48 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-30 09:07 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-30 08:59 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-30 08:42 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-30 08:48 - [追梦拒绝2770万美元球员选项](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-30 09:06 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-30 08:52 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-30 08:57 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-30 09:09 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-30 08:42 - [泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-30 09:08 - [曝iPhone18Pro机密文件现身暗网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:57 - [《共患难》](http://www.blog.minike.top/Article/details/4770970627.shtml)
-- 2026-06-30 08:47 - [张雪的一句“是我们”引发岛内热议](https://www.blog.minike.top/Article/details/2689031009.shtml)
-- 2026-06-30 08:47 - [安切洛蒂 换人](http://www.blog.kurohicncr.top/Article/details/674000857.shtml)
-- 2026-06-30 09:04 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/78082.shtml)
-- 2026-06-30 08:59 - [周生如故](https://www.blog.minike.top/Article/details/1194930.shtml)
-- 2026-06-30 08:43 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.minike.top/Article/details/8736155467.shtml)
-- 2026-06-30 09:04 - [本届世界杯已有5名球员被控强奸](http://www.share.minike.top/Article/details/5685314964.shtml)
-- 2026-06-30 08:41 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.kurohicncr.top/Article/details/61525393.shtml)
-- 2026-06-30 08:40 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/80132549.shtml)
-- 2026-06-30 08:53 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/861428683.shtml)
-- 2026-06-30 08:45 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.kurohicncr.top/Article/details/834687.shtml)
-- 2026-06-30 09:03 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/0479446.shtml)
-- 2026-06-30 08:47 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/34501631469.shtml)
-- 2026-06-30 08:37 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/22023337367.shtml)
-- 2026-06-30 09:03 - [日本五次世界杯淘汰赛全败](https://www.blog.minike.top/Article/details/21816098770.shtml)
+- 2026-06-30 09:06 - [明星大侦探第一季](http://www.share.minike.top/Article/details/7754499.shtml)
+- 2026-06-30 09:05 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.kurohicncr.top/Article/details/98729823.shtml)
+- 2026-06-30 09:07 - [Melo向柳智敏张元英道歉](http://www.share.kurohicncr.top/Article/details/382969349509.shtml)
+- 2026-06-30 08:44 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/09068117.shtml)
+- 2026-06-30 08:56 - [好像看到了人类带孩子崩溃的样子](http://www.blog.minike.top/Article/details/05352.shtml)
+- 2026-06-30 08:58 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/512203.shtml)
+- 2026-06-30 08:50 - [董卿父亲在报纸上发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/45224425185.shtml)
+- 2026-06-30 08:52 - [日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？](http://www.blog.minike.top/Article/details/46142.shtml)
+- 2026-06-30 08:59 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/954012.shtml)
+- 2026-06-30 09:00 - [日耳曼拖拉机](https://www.share.minike.top/Article/details/110503904.shtml)
+- 2026-06-30 08:56 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.share.kurohicncr.top/Article/details/245371342.shtml)
+- 2026-06-30 09:01 - [陈小春人老了干什么也不心酸](http://www.share.minike.top/Article/details/1086428367.shtml)
+- 2026-06-30 09:09 - [失明的我带老妈去了趟“火星”](https://www.blog.kurohicncr.top/Article/details/4400606.shtml)
+- 2026-06-30 08:46 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/16725651736.shtml)
+- 2026-06-30 08:54 - [徐亮怒斥世界杯踢假球](http://www.blog.minike.top/Article/details/405251800300.shtml)

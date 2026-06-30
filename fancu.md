@@ -1,58 +1,58 @@
-# 美国大型公用事业并购：当下正是布局良机
+# 伊朗官员：遭特朗普拒绝的提案拟先开放海峡，核谈判后续处理
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-全美头号电力公用企业即将收购深耕数据中心赛道的同行道明能源，这笔交易看点十足 全美规模最大公用事业企业新纪元能源（NEE，股价跌 0.03%）上月官宣收购道明能源（D，股价涨 0.51%）以来，股价累计下跌约 9%。如今这家优质公用股回调，正是逢低布局的好时机。 新纪元能源表示，本次收购以换股交易为主。交易完成后，新集团市值将是全美第二大公用企业的两倍有余。道明能源当前估值处于
+一名伊朗高级官员周六表示，伊朗提出的一项至今仍遭特朗普拒绝的提议，内容包括开放霍尔木兹海峡航运、结束美国对伊朗的封锁，同时将伊朗核计划的相关谈判留待之后再处理。 美国总统特朗普周五表示，他对伊朗的最新提议“不满意”，但未详细说明他反对哪些内容。“他们提出的要求是我无法接受的。”特朗普在白宫对记者表示。 美国方面一再表示，除非达成一项能确保伊朗永远无法获得核武器的协议，否则不会结
 
 ## 正文
 
-全美头号电力公用企业即将收购深耕数据中心赛道的同行道明能源，这笔交易看点十足 全美规模最大公用事业企业新纪元能源（NEE，股价跌 0.03%）上月官宣收购道明能源（D，股价涨 0.51%）以来，股价累计下跌约 9%。
+一名伊朗高级官员周六表示，伊朗提出的一项至今仍遭特朗普拒绝的提议，内容包括开放霍尔木兹海峡航运、结束美国对伊朗的封锁，同时将伊朗核计划的相关谈判留待之后再处理。
 
-如今这家优质公用股回调，正是逢低布局的好时机。
+美国总统特朗普周五表示，他对伊朗的最新提议“不满意”，但未详细说明他反对哪些内容。
 
-新纪元能源表示，本次收购以换股交易为主。
+“他们提出的要求是我无法接受的。
 
-交易完成后，新集团市值将是全美第二大公用企业的两倍有余。
+”特朗普在白宫对记者表示。
 
-道明能源当前估值处于深度折价区间，其远期市盈率较新纪元低约 25%，因此新纪元即便给出高额收购溢价，也不会拖累自身每股收益。
+美国方面一再表示，除非达成一项能确保伊朗永远无法获得核武器的协议，否则不会结束战争——这也是特朗普今年2月在核谈判期间发动空袭时所强调的主要目标。
 
-公司预计，本次并购将立刻增厚每股收益。
+这名要求匿名、以讨论机密外交事务的伊朗高级官员表示，德黑兰认为其最新提出将核谈判留待后期阶段的方案是一项重大转变，目的在促成协议。
 
-部分新纪元原有投资者不愿绑定道明能源资产，道明近年长期估值承压。
+根据该提议，战争将在以色列和美国保证不再发动攻击的前提下结束。
 
-其股价最新利空来自海上风电项目：工程成本严重超支，特朗普政府还下达了停工令。
+伊朗将开放海峡，美国将解除封锁。
 
 ## 相关推荐
 
-- 2026-06-30 08:47 - [点球大战和诺伊尔都救不回德国队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-30 08:51 - [荷兰VS摩洛哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-30 08:47 - [张月收到黄灿灿辣货两眼发光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
-- 2026-06-30 09:01 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-30 09:01 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-30 08:40 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
-- 2026-06-30 08:46 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
-- 2026-06-30 08:40 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-30 08:46 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-30 08:48 - [点球大战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
-- 2026-06-30 08:55 - [德国连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-30 08:39 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-30 09:00 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-30 08:46 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-30 08:42 - [泰山景区回应修建刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-30 09:01 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-30 09:00 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-30 08:56 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-30 08:52 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-30 08:58 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-30 09:08 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-30 08:44 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-30 09:03 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-30 08:58 - [板面：为什么那么多人爱吃？？！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:52 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/1171581452.shtml)
-- 2026-06-30 09:03 - [4000美元是黄金新一轮下跌的开始吗](http://www.blog.kurohicncr.top/Article/details/285325932141.shtml)
-- 2026-06-30 09:03 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/92463671.shtml)
-- 2026-06-30 08:50 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/4562526.shtml)
-- 2026-06-30 08:59 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/856737322.shtml)
-- 2026-06-30 08:47 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/020173.shtml)
-- 2026-06-30 08:38 - [日本遭读秒绝杀 森保一：我水平不够](http://www.share.kurohicncr.top/Article/details/5380901040.shtml)
-- 2026-06-30 08:39 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/1511332.shtml)
-- 2026-06-30 08:58 - [高质量发展看新疆](http://www.share.kurohicncr.top/Article/details/03234659963.shtml)
-- 2026-06-30 09:05 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/2487518.shtml)
-- 2026-06-30 08:40 - [王健林甩卖超80座万达广场](https://www.share.minike.top/Article/details/2250023.shtml)
-- 2026-06-30 08:48 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/47282.shtml)
-- 2026-06-30 09:04 - [中国新一轮出口管制直指日本命脉](http://www.share.kurohicncr.top/Article/details/6551633.shtml)
-- 2026-06-30 08:47 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/70734176.shtml)
-- 2026-06-30 08:47 - [刘宇宁高情商化解谁站C位](https://www.share.minike.top/Article/details/65001.shtml)
+- 2026-06-30 08:55 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/4054152472.shtml)
+- 2026-06-30 08:52 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/362664749004.shtml)
+- 2026-06-30 08:52 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/85084452.shtml)
+- 2026-06-30 09:07 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/762287.shtml)
+- 2026-06-30 08:52 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.share.minike.top/Article/details/04244479.shtml)
+- 2026-06-30 08:42 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.share.minike.top/Article/details/75058.shtml)
+- 2026-06-30 08:48 - [杨紫学位证上就是杨紫](http://www.blog.minike.top/Article/details/7228166480.shtml)
+- 2026-06-30 08:47 - [齐思钧回复张月](http://www.blog.kurohicncr.top/Article/details/1619511790.shtml)
+- 2026-06-30 09:07 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/33179854.shtml)
+- 2026-06-30 08:58 - [上市央企地产商 两年换了三任董事长](https://www.blog.kurohicncr.top/Article/details/02172056.shtml)
+- 2026-06-30 08:44 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/3607544.shtml)
+- 2026-06-30 08:56 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/3449196565.shtml)
+- 2026-06-30 08:50 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/238423.shtml)
+- 2026-06-30 09:03 - [森保一致歉：世界第一目标没能实现](http://www.blog.minike.top/Article/details/44899162887.shtml)
+- 2026-06-30 08:52 - [收到补税提醒尽快办理 明起有滞纳金](http://www.blog.kurohicncr.top/Article/details/3704978488.shtml)

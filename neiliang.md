@@ -1,47 +1,50 @@
-# 美军：已完成对伊朗新一轮打击
+# 截至2025年12月底中国共有共青团员7833.6万名
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-中新网6月11日电 据美国有线电视新闻网(CNN)报道，当地时间10日，美军中央司令部在社交媒体上称，已完成对伊朗的新一轮打击。 美军中央司令部表示，美军“对伊朗境内的军事侦察设施、通信系统和防空设施发动了打击”，美军还向伊朗目标发射了精确制导弹药，“这些目标对美军以及途经区域水域的国际商船构成威胁”。 据此前报道，美军中央司令部10日称，在特朗普的指示下，美东时间当天下午5时
+中新社北京5月3日电 中国共产主义青年团中央委员会3日公布数据显示，截至2025年12月底，全国共有共青团员7833.6万名，共青团组织515.0万个，分别比2024年底净增301.8万名、75.3万个。2025年共发展团员913.7万名。 其中，团的地方委员会0.3万个，基层团(工)委19.9万个，团总支部13.9万个，团支部480.9万个。学校团组织235.5万个，团员41
 
 ## 正文
 
-中新网6月11日电 据美国有线电视新闻网(CNN)报道，当地时间10日，美军中央司令部在社交媒体上称，已完成对伊朗的新一轮打击。
+中新社北京5月3日电 中国共产主义青年团中央委员会3日公布数据显示，截至2025年12月底，全国共有共青团员7833.6万名，共青团组织515.0万个，分别比2024年底净增301.8万名、75.3万个。
 
-美军中央司令部表示，美军“对伊朗境内的军事侦察设施、通信系统和防空设施发动了打击”，美军还向伊朗目标发射了精确制导弹药，“这些目标对美军以及途经区域水域的国际商船构成威胁”。
+2025年共发展团员913.7万名。
 
-据此前报道，美军中央司令部10日称，在特朗普的指示下，美东时间当天下午5时15分，美军对伊朗境内多个目标实施新一轮“自卫性”打击，以回应伊方“无端且持续的攻击行为”。
+其中，团的地方委员会0.3万个，基层团(工)委19.9万个，团总支部13.9万个，团支部480.9万个。
+
+学校团组织235.5万个，团员4183.3万名；机关事业单位团组织34.7万个，团员379.8万名；国有和集体企业团组织27.1万个，团员281.8万名；城市街道、乡镇、社区、行政村团组织95.4万个，团员2391.7万名；新兴领域和其他领域团组织122.3万个，团员597.0万名。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 08:46 - [齐思钧回复张月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-30 08:43 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-30 08:50 - [韩国世界杯出局是主帅一个人的锅吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-30 08:54 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
-- 2026-06-30 08:48 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-30 08:38 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-30 08:38 - [恋与深空道歉声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
-- 2026-06-30 09:00 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-30 08:36 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-30 08:49 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-30 08:36 - [日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-30 08:44 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-30 08:56 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-30 09:05 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
+- 2026-06-30 09:01 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-30 08:59 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-30 09:01 - [日本队5进世界杯淘汰赛0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-30 08:44 - [房价什么时候能涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-30 09:04 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-30 08:43 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-30 09:11 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:51 - [日本队5进世界杯淘汰赛0胜](https://www.share.minike.top/Article/details/539317.shtml)
-- 2026-06-30 08:55 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/8951201.shtml)
-- 2026-06-30 08:52 - [恋与深空道歉声明](http://www.blog.kurohicncr.top/Article/details/10171.shtml)
-- 2026-06-30 08:46 - [王楚钦说配合稍微有些陌生感](http://www.share.kurohicncr.top/Article/details/767922751614.shtml)
-- 2026-06-30 08:52 - [吴易昺不敌德约科维奇 止步温网首轮](http://www.share.minike.top/Article/details/378823370893.shtml)
-- 2026-06-30 09:02 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/197801.shtml)
-- 2026-06-30 08:47 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/1552882325.shtml)
-- 2026-06-30 09:02 - [千与千寻](https://www.blog.minike.top/Article/details/452275622138.shtml)
-- 2026-06-30 08:46 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/541865692887.shtml)
-- 2026-06-30 08:39 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/9466189412.shtml)
-- 2026-06-30 09:02 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/99052544.shtml)
-- 2026-06-30 09:00 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/104278.shtml)
-- 2026-06-30 08:37 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/82279200898.shtml)
-- 2026-06-30 08:54 - [女子遭下药退赔偿拟追刑责](https://www.share.kurohicncr.top/Article/details/776831.shtml)
-- 2026-06-30 09:05 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/67237464705.shtml)
+- 2026-06-30 08:55 - [iPhoneUltra黑色机模](https://www.blog.kurohicncr.top/Article/details/39271378282.shtml)
+- 2026-06-30 08:45 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/10448698.shtml)
+- 2026-06-30 09:10 - [日本反击率先破门](https://www.share.kurohicncr.top/Article/details/6109147324.shtml)
+- 2026-06-30 08:57 - [教育部披露：高考生篡改7名同学志愿](http://www.share.minike.top/Article/details/49088149.shtml)
+- 2026-06-30 09:03 - [板面：为什么那么多人爱吃？？！](http://www.blog.minike.top/Article/details/567497.shtml)
+- 2026-06-30 08:56 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/7915760326.shtml)
+- 2026-06-30 09:05 - [沙丘](https://www.blog.kurohicncr.top/Article/details/268757.shtml)
+- 2026-06-30 09:01 - [名记：灰熊将莫兰特交易至开拓者](https://www.blog.minike.top/Article/details/598744021.shtml)
+- 2026-06-30 09:02 - [王楚钦说配合稍微有些陌生感](http://www.blog.kurohicncr.top/Article/details/2553517567.shtml)
+- 2026-06-30 08:53 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.minike.top/Article/details/1207256708.shtml)
+- 2026-06-30 09:09 - [明星大侦探第四季](https://www.share.minike.top/Article/details/165367855.shtml)
+- 2026-06-30 08:56 - [女子遭下药退赔偿拟追刑责](https://www.share.minike.top/Article/details/793048528516.shtml)
+- 2026-06-30 08:46 - [日本将帅赛后采访纷纷哽咽落泪](http://www.blog.kurohicncr.top/Article/details/98561481010.shtml)
+- 2026-06-30 08:51 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/508437.shtml)
+- 2026-06-30 09:09 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.minike.top/Article/details/274181254270.shtml)

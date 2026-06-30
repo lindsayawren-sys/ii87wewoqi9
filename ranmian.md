@@ -1,55 +1,56 @@
-# 三星和海力士或将宣布韩国投资计划
+# 小天体也能拥有大气层？最新天文观测到冥王星外侧遥远天体证据
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-据韩国《每日经济新闻》援引政界和行业官员报道，三星电子和SK海力士正处于对韩国各地区投资计划进行最终审查的阶段，最早可能在本月发布公告。 这两家芯片制造商可能在韩国西南部和中部扩大设施投资。 相关投资或包括封装设施，亦有猜测可能会建设半导体晶圆厂。 另据《韩国经济日报》 报道，三星寻求计划在全罗南道光州市建设一座先进封装厂。 韩国总统李在明最早将于6月末与各大财阀负责人会面，讨
+中新网北京5月5日电 (记者 孙自法)施普林格·自然旗下专业学术期刊《自然-天文学》最新发表一篇研究论文指出，天文学家对冥王星外侧遥远天体的观测表明，该天体周围存在一层稀薄的大气层，其形成可能源于冰火山活动，或由彗星状天体的撞击所致。 这项观测研究结果表明，即使位于太阳系边缘的相对较小天体，至少在一段时间内也可能拥有大气层。 该论文介绍，绕行于海王星轨道之外的天体被称为海王星外
 
 ## 正文
 
-据韩国《每日经济新闻》援引政界和行业官员报道，三星电子和SK海力士正处于对韩国各地区投资计划进行最终审查的阶段，最早可能在本月发布公告。
+中新网北京5月5日电 (记者 孙自法)施普林格·自然旗下专业学术期刊《自然-天文学》最新发表一篇研究论文指出，天文学家对冥王星外侧遥远天体的观测表明，该天体周围存在一层稀薄的大气层，其形成可能源于冰火山活动，或由彗星状天体的撞击所致。
 
-这两家芯片制造商可能在韩国西南部和中部扩大设施投资。
+这项观测研究结果表明，即使位于太阳系边缘的相对较小天体，至少在一段时间内也可能拥有大气层。
 
-相关投资或包括封装设施，亦有猜测可能会建设半导体晶圆厂。
+该论文介绍，绕行于海王星轨道之外的天体被称为海王星外天体，是太阳系形成过程中的残留物。
 
-另据《韩国经济日报》 报道，三星寻求计划在全罗南道光州市建设一座先进封装厂。
+其中，只有矮行星冥王星拥有被明确探测到的大气层。
 
-韩国总统李在明最早将于6月末与各大财阀负责人会面，讨论区域投资计划。
+在本项研究中，论文第一作者和通讯作者、日本国立天文台有松亘(Ko Arimatsu)与同事及合作者一起，通过观测恒星掩星(即该天体从恒星前方经过)现象，对编号为(612533)2002 XV93的冥王星外测遥远天体进行了观测研究。
 
-责任编辑：王永生
+2024年1月，研究团队利用京都和长野县的专业天文台，以及福岛一位业余天文学家运营的望远镜，在日本三处不同地点观测了这一恒星掩星现象。
+
+在某些观测中，当该天体从恒星前方经过时，恒星光线在数秒内逐渐变暗，而非突然变暗。
+
+这种现象符合天体周围存在薄层气体(即大气层)的预期表现。
 
 ## 相关推荐
 
-- 2026-06-30 08:40 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-30 08:56 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-30 08:42 - [泰山景区建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
-- 2026-06-30 08:54 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
-- 2026-06-30 08:50 - [日本队主帅道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-30 08:55 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-30 09:03 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-30 08:56 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-30 08:37 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-30 08:40 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
-- 2026-06-30 08:45 - [iPhoneUltra黑色机模](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
-- 2026-06-30 08:51 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-30 09:02 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-30 08:47 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-30 09:05 - [德国队世界杯点球大战首败](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-30 08:43 - [德国巴拉圭进入点球大战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-30 08:49 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-30 08:59 - [杨紫大银幕成绩单如何](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-30 08:47 - [内马尔安慰日本球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
+- 2026-06-30 09:11 - [日本队主帅道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-30 09:00 - [欧洲民众抢购空调降温](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-30 08:44 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
+- 2026-06-30 08:42 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:49 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/86713148209.shtml)
-- 2026-06-30 08:59 - [刘宇宁高情商化解谁站C位](http://www.share.minike.top/Article/details/73972.shtml)
-- 2026-06-30 08:51 - [德国罚丢3粒点球](http://www.blog.kurohicncr.top/Article/details/878401997.shtml)
-- 2026-06-30 08:36 - [马航370搜寻最新消息](http://www.share.minike.top/Article/details/10043126.shtml)
-- 2026-06-30 08:52 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/1566881.shtml)
-- 2026-06-30 08:54 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/150806.shtml)
-- 2026-06-30 08:38 - [第一次对自信的力量有了实感](https://www.blog.minike.top/Article/details/351683661.shtml)
-- 2026-06-30 08:57 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/729722617629.shtml)
-- 2026-06-30 09:00 - [内马尔安慰日本球员](https://www.share.minike.top/Article/details/857535667.shtml)
-- 2026-06-30 08:48 - [日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？](https://www.share.minike.top/Article/details/804534221.shtml)
-- 2026-06-30 08:50 - [中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？](https://www.blog.minike.top/Article/details/67829208979.shtml)
-- 2026-06-30 08:53 - [德国淘汰](https://www.share.minike.top/Article/details/421816361708.shtml)
-- 2026-06-30 08:45 - [日本16强魔咒](http://www.share.kurohicncr.top/Article/details/603890460940.shtml)
-- 2026-06-30 08:40 - [巴拉圭进球](http://www.blog.minike.top/Article/details/37309.shtml)
-- 2026-06-30 08:53 - [哈弗茨头球破门](http://www.share.kurohicncr.top/Article/details/7518213763.shtml)
+- 2026-06-30 09:11 - [城市规划有可能成为「屎山代码」吗？](https://www.blog.kurohicncr.top/Article/details/764062463.shtml)
+- 2026-06-30 09:02 - [美股](http://www.share.minike.top/Article/details/8772329924.shtml)
+- 2026-06-30 09:07 - [金牌调解](https://www.share.minike.top/Article/details/661751711.shtml)
+- 2026-06-30 08:53 - [金鹰奖视后提名预测](https://www.share.minike.top/Article/details/375276411.shtml)
+- 2026-06-30 08:56 - [詹姆斯 勇士](http://www.share.kurohicncr.top/Article/details/622412.shtml)
+- 2026-06-30 08:49 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/52147309.shtml)
+- 2026-06-30 09:01 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.minike.top/Article/details/86622715.shtml)
+- 2026-06-30 09:10 - [日本16强魔咒](https://www.share.minike.top/Article/details/617066.shtml)
+- 2026-06-30 09:01 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/7007553651.shtml)
+- 2026-06-30 08:48 - [巴西把自己踢晕了](http://www.blog.kurohicncr.top/Article/details/200874639.shtml)
+- 2026-06-30 09:05 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/286182441.shtml)
+- 2026-06-30 09:02 - [日本16强魔咒](http://www.share.minike.top/Article/details/649223.shtml)
+- 2026-06-30 08:51 - [人类...完蛋了...](http://www.share.kurohicncr.top/Article/details/64137475953.shtml)
+- 2026-06-30 09:11 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/131690.shtml)
+- 2026-06-30 09:02 - [古代人对纳妾的态度是什么样的？](http://www.share.minike.top/Article/details/8539155413.shtml)

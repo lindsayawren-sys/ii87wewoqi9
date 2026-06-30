@@ -1,56 +1,58 @@
-# IDG资本合伙人牛奎光：对具身智能产业持谨慎乐观态度
+# 前反垄断高官坎特：Spirit管理层的“糟糕决策”导致其倒闭
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-专题：2026投资界SuperLink大会 2026投资界SuperLink大会于6月10日-6月11日在苏州举行。IDG资本合伙人牛奎光表示，具身智能是具备极高战略价值的核心赛道，如果能突破关键技术、解决高端制造相关难题，将产生重大行业价值与战略意义。 对于赛道整体发展，牛奎光秉持谨慎乐观的态度。“当下AI技术进步速度极快，能够大幅加速各类研发难题的解决，为具身智能发展提供了
+前美国司法部助理部长乔纳森·坎特近日就Spirit Airlines停运事件发表评论，认为这家廉价航空公司的倒闭并非由于外部监管压力，而是其自身管理层的“糟糕决策”所致。 坎特表示：“我们失去了一家有竞争力的航空公司，这是因为Spirit管理层做出了糟糕的决策。”他同时警告称，Spirit的退出将进一步削弱美国航空业的竞争格局。此番言论正值Spirit于5月2日正式停止运营，约
 
 ## 正文
 
-专题：2026投资界SuperLink大会 2026投资界SuperLink大会于6月10日-6月11日在苏州举行。
+前美国司法部助理部长乔纳森·坎特近日就Spirit Airlines停运事件发表评论，认为这家廉价航空公司的倒闭并非由于外部监管压力，而是其自身管理层的“糟糕决策”所致。
 
-IDG资本合伙人牛奎光表示，具身智能是具备极高战略价值的核心赛道，如果能突破关键技术、解决高端制造相关难题，将产生重大行业价值与战略意义。
+坎特表示：“我们失去了一家有竞争力的航空公司，这是因为Spirit管理层做出了糟糕的决策。
 
-对于赛道整体发展，牛奎光秉持谨慎乐观的态度。
+”他同时警告称，Spirit的退出将进一步削弱美国航空业的竞争格局。
 
-“当下AI技术进步速度极快，能够大幅加速各类研发难题的解决，为具身智能发展提供了有力支撑。
+此番言论正值Spirit于5月2日正式停止运营，约1.7万名员工失业，导致大量旅客滞留。
 
-” 但从技术发展阶段来看，他表示，行业仍处于萌芽探索期，尚未形成成熟范式。
+作为拜登政府时期积极推动反垄断执法的重要人物，坎特曾主导司法部对JetBlue与Spirit合并案的诉讼，并成功在2024年初阻止了这笔价值38亿美元的交易。
 
-“类比大模型发展历程，当前具身智能大概处在GPT1甚至更早的阶段，整体技术路线还没有收敛。
+当时联邦法官裁定，合并将消除Spirit这一重要的低价选项，从而损害消费者的利益。
 
-”牛奎光解释，行业概念与算法持续迭代，从早年VRA到如今火热的世界模型，各类技术路线百花齐放、百家争鸣，仍处于早期摸索阶段，没有形成统一标准。
+批评者则将Spirit的倒闭归咎于坎特的反垄断政策。
 
-“自动驾驶行业历经十几年发展，至今仍处在突破前夜，具身智能的落地普及同样需要漫长过程。
+有观点认为，阻止合并使得Spirit失去了生存的“救生索”，实际上“为Spirit的失败奠定了基础”。
 
 ## 相关推荐
 
-- 2026-06-30 08:56 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-30 08:53 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-30 08:46 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
-- 2026-06-30 09:03 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
-- 2026-06-30 08:40 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
-- 2026-06-30 08:57 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
-- 2026-06-30 08:54 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-30 08:58 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-30 08:59 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
-- 2026-06-30 08:43 - [德国进球被吹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-30 08:52 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
+- 2026-06-30 09:10 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-30 08:50 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-30 08:43 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-30 09:03 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-30 09:10 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-30 09:07 - [泰山景区建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-30 08:42 - [网瘾賊大的阿嬷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-30 09:04 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-30 08:44 - [锐评T1战胜KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-30 08:43 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-30 08:47 - [板面：为什么那么多人爱吃？？！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:57 - [媒体评泰山建135公里刀片刺绳隔离网](http://www.blog.minike.top/Article/details/37985.shtml)
-- 2026-06-30 08:39 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/4250400330.shtml)
-- 2026-06-30 08:50 - [徐亮怒斥世界杯踢假球](http://www.blog.kurohicncr.top/Article/details/323610.shtml)
-- 2026-06-30 08:39 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/735320.shtml)
-- 2026-06-30 08:44 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.kurohicncr.top/Article/details/853285263.shtml)
-- 2026-06-30 08:54 - [金鹰奖视后提名预测](https://www.blog.kurohicncr.top/Article/details/98969473.shtml)
-- 2026-06-30 08:41 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/47687568.shtml)
-- 2026-06-30 08:43 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/260339846.shtml)
-- 2026-06-30 08:53 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/449806795.shtml)
-- 2026-06-30 09:03 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/828957071.shtml)
-- 2026-06-30 08:55 - [泰山建135公里刀片刺绳隔离网](https://www.blog.minike.top/Article/details/317067.shtml)
-- 2026-06-30 09:00 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.minike.top/Article/details/004121009.shtml)
-- 2026-06-30 09:04 - [委内瑞拉地震死亡人数升至1719人](http://www.share.minike.top/Article/details/587239687.shtml)
-- 2026-06-30 08:59 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/67065088.shtml)
-- 2026-06-30 08:37 - [德国vs巴拉圭](https://www.blog.minike.top/Article/details/0344348526.shtml)
+- 2026-06-30 09:04 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/411038.shtml)
+- 2026-06-30 08:53 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.minike.top/Article/details/443540.shtml)
+- 2026-06-30 08:46 - [莫兰特被交易到开拓者](https://www.blog.minike.top/Article/details/5403390.shtml)
+- 2026-06-30 08:44 - [点球大战](https://www.blog.minike.top/Article/details/307678282.shtml)
+- 2026-06-30 08:57 - [恋与深空](http://www.share.minike.top/Article/details/56521.shtml)
+- 2026-06-30 08:48 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/25788399.shtml)
+- 2026-06-30 08:47 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/89711325.shtml)
+- 2026-06-30 08:59 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/287113924704.shtml)
+- 2026-06-30 09:09 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/439688557578.shtml)
+- 2026-06-30 09:02 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/0527678931.shtml)
+- 2026-06-30 08:48 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/51822141903.shtml)
+- 2026-06-30 08:47 - [“荒唐”背后的韩国足球](https://www.share.kurohicncr.top/Article/details/304567.shtml)
+- 2026-06-30 08:44 - [高考结束了，你会让孩子在家玩手机吗？](http://www.blog.kurohicncr.top/Article/details/06263750793.shtml)
+- 2026-06-30 09:07 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/81871.shtml)
+- 2026-06-30 08:47 - [韩国世界杯出局是主帅一个人的锅吗](https://www.blog.kurohicncr.top/Article/details/101331.shtml)

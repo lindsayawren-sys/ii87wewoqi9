@@ -1,61 +1,59 @@
-# AI智能体市场规模快速攀升 软件行业迎来这些新变化
+# Meta屏蔽律师事务所广告引两党参议员质疑
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-今年以来，随着AI深度渗透软件开发全流程，AI正在重构软件行业生产流程与竞争规则，软件行业正经历一场深刻变革。 AI智能体组团干活 工程师化身“监工” 在重庆一家软件开发企业的研发中心，有一个由三个AI智能体组成的“AI超级团队”。产品经理、项目经理、技术经理，三个AI智能体各司其职，电脑屏幕交替闪烁，信息在三者之间流转、校验。工程师刘海坐在中间，不再是逐行敲代码的程序员，而是
+两位美国参议员周五致信Meta首席执行官马克·扎克伯格，批评该公司从Facebook和Instagram平台上移除律师广告的行为，称这些广告旨在为正在进行的社交媒体成瘾诉讼招募原告。 共和党参议员玛莎·布莱克本与民主党参议员艾米·克洛布彻在联名信中措辞严厉，指出Meta此举“无非是为了不惜一切代价维护其有害的商业模式”。 Meta近期在法庭上接连受挫。上月，洛杉矶陪审团裁定Me
 
 ## 正文
 
-今年以来，随着AI深度渗透软件开发全流程，AI正在重构软件行业生产流程与竞争规则，软件行业正经历一场深刻变革。
+两位美国参议员周五致信Meta首席执行官马克·扎克伯格，批评该公司从Facebook和Instagram平台上移除律师广告的行为，称这些广告旨在为正在进行的社交媒体成瘾诉讼招募原告。
 
-AI智能体组团干活 工程师化身“监工” 在重庆一家软件开发企业的研发中心，有一个由三个AI智能体组成的“AI超级团队”。
+共和党参议员玛莎·布莱克本与民主党参议员艾米·克洛布彻在联名信中措辞严厉，指出Meta此举“无非是为了不惜一切代价维护其有害的商业模式”。
 
-产品经理、项目经理、技术经理，三个AI智能体各司其职，电脑屏幕交替闪烁，信息在三者之间流转、校验。
+Meta近期在法庭上接连受挫。
 
-工程师刘海坐在中间，不再是逐行敲代码的程序员，而是一名调度三个AI智能体的“监工”。
+上月，洛杉矶陪审团裁定Meta及谷歌需向一名因社交媒体成瘾而遭受心理伤害的年轻女性赔偿600万美元。
 
-记者在多家软件企业走访中发现，在软件开发全流程中，从代码生成到测试验证，AI工具的覆盖率正大幅提升。
+另一新墨西哥州案件陪审团判令Meta支付3.75亿美元。
 
-尤其是在代码编写环节，部分企业已实现全员覆盖。
+数千起指控社交媒体平台设计成瘾并引发青少年心理健康危机的诉讼正悬而未决。
 
-AI带来的不只是个人效率的提升，更是企业能力的跃升。
+Meta此前宣布将删除这些招募原告的广告，并明确表示：“我们不会允许出庭律师在起诉我们平台的同时，还利用我们的平台获利。
 
-特别是对于中小企业来说，AI在降低软件开发试错成本和启动成本的同时，也在打破过去由人力规模筑起的行业壁垒。
+” 截至发稿，Meta未对参议员的信函置评。
 
 ## 相关推荐
 
-- 2026-06-30 08:40 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
-- 2026-06-30 09:03 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-30 08:41 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-30 08:50 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-30 08:51 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-30 09:04 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
-- 2026-06-30 08:49 - [日本球迷输球后集体捡垃圾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-30 08:37 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-30 08:55 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-30 08:38 - [内马尔安慰日本球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-30 08:44 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
-- 2026-06-30 08:43 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
-- 2026-06-30 08:54 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-30 08:41 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-30 09:03 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-30 08:59 - [巴拉圭进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
+- 2026-06-30 09:00 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-30 09:06 - [自然光｜papi酱&窦文涛：驴与跑步机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-30 08:51 - [恋与深空](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-30 09:06 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-30 09:02 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-30 08:54 - [巴西绝杀日本：漫画般结局换了主角](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-30 08:49 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-30 08:50 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-30 08:55 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-30 08:55 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-30 09:07 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-30 08:56 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:43 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/94181.shtml)
-- 2026-06-30 08:40 - [为什么会有「念旧」的心理？](http://www.blog.minike.top/Article/details/6434613.shtml)
-- 2026-06-30 08:46 - [问心2神一集鬼三集](http://www.share.minike.top/Article/details/12564966355.shtml)
-- 2026-06-30 08:37 - [马耳他著名拱门坍塌致一中国男子身亡](https://www.blog.minike.top/Article/details/4527004716.shtml)
-- 2026-06-30 09:01 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.share.kurohicncr.top/Article/details/7893236886.shtml)
-- 2026-06-30 08:50 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/8230541553.shtml)
-- 2026-06-30 08:44 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/67193.shtml)
-- 2026-06-30 08:47 - [名记：灰熊将莫兰特交易至开拓者](https://www.share.minike.top/Article/details/6659527.shtml)
-- 2026-06-30 08:59 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/78685879175.shtml)
-- 2026-06-30 08:56 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/522303630588.shtml)
-- 2026-06-30 08:40 - [黄晓明晒和周杰伦的合照](http://www.blog.minike.top/Article/details/845785.shtml)
-- 2026-06-30 09:00 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/90019588.shtml)
-- 2026-06-30 09:00 - [王楚钦孙颖莎晋级混双八强](http://www.blog.minike.top/Article/details/72212.shtml)
-- 2026-06-30 09:00 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/94427030.shtml)
-- 2026-06-30 09:02 - [巴拉圭点球大战淘汰德国进16强](https://www.blog.minike.top/Article/details/555934.shtml)
+- 2026-06-30 08:42 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/536341162607.shtml)
+- 2026-06-30 09:08 - [董路：谁赢谁是“正路子”](https://www.share.minike.top/Article/details/08682957439.shtml)
+- 2026-06-30 08:47 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/102012553.shtml)
+- 2026-06-30 08:46 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/832957.shtml)
+- 2026-06-30 08:45 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/64229.shtml)
+- 2026-06-30 08:54 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/565266127118.shtml)
+- 2026-06-30 08:49 - [韩国道歉完日本道歉](https://www.share.minike.top/Article/details/717933510.shtml)
+- 2026-06-30 09:10 - [巴西在进攻三区完成210脚传球](https://www.share.kurohicncr.top/Article/details/75009371974.shtml)
+- 2026-06-30 09:02 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/0779681073.shtml)
+- 2026-06-30 08:49 - [日本队主帅道歉](http://www.share.kurohicncr.top/Article/details/53902149.shtml)
+- 2026-06-30 08:46 - [网瘾賊大的阿嬷](http://www.share.minike.top/Article/details/8572917483.shtml)
+- 2026-06-30 08:54 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/719400.shtml)
+- 2026-06-30 08:59 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/56980677746.shtml)
+- 2026-06-30 08:52 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/977674305.shtml)
+- 2026-06-30 09:01 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/402799378.shtml)

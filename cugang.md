@@ -1,46 +1,53 @@
-# 视频|杨德龙：五月份物价总体稳定回升 有利于提振消费信心
+# 高盛：信达生物给予“买入”评级 目标价升至105.94港元
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-责任编辑：石秀珍 SF183
+高盛发布研报称，上调信达生物（01801）2026至2028年每股盈利预测，分别为1.42元、3.11元、4.19元人民币，以反映首季销售胜预期；目标价由104.61港元微升至105.94港元；评级“买入”。今年首季产品收入超过38亿元人民币，同比增逾50%，高于该行预测的约35亿元人民币。强劲增长主要受玛仕度肽等产品组合扩张，以及新纳入国家医保目录的产品所带动。 该行指出，今
 
 ## 正文
 
-责任编辑：石秀珍 SF183
+高盛发布研报称，上调信达生物（01801）2026至2028年每股盈利预测，分别为1.42元、3.11元、4.19元人民币，以反映首季销售胜预期；目标价由104.61港元微升至105.94港元；评级“买入”。
+
+今年首季产品收入超过38亿元人民币，同比增逾50%，高于该行预测的约35亿元人民币。
+
+强劲增长主要受玛仕度肽等产品组合扩张，以及新纳入国家医保目录的产品所带动。
+
+该行指出，今年6月将有两项关键数据成为市场焦点，包括预计公司在ADA会议上，将公布口服小分子GLP-1药物IBI3032更详细的早期临床数据，管理层此前曾简报该分子在4周内实现10%的体重下降，具备同类最佳潜力；在美国临床肿瘤学会（ASCO）会议上，IBI363（PD-1/IL-2b偏向性双特异性抗体）的两项数据将是重点关注，特别是一线非小细胞肺癌的二期临床数据首度亮相。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 08:37 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-30 08:43 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-30 09:03 - [点球大战和诺伊尔都救不回德国队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-30 08:36 - [人民锐评网红诋毁袁隆平造谣企业家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
-- 2026-06-30 08:42 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
-- 2026-06-30 09:04 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-30 09:00 - [《共患难》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-30 08:51 - [4000美元是黄金新一轮下跌的开始吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-30 08:46 - [自然光｜papi酱&窦文涛：驴与跑步机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-30 08:37 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-30 08:54 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
-- 2026-06-30 08:48 - [巴拉圭点球大战淘汰德国进16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
-- 2026-06-30 08:45 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-30 08:39 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-30 08:59 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
+- 2026-06-30 09:08 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-30 08:42 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-30 08:52 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-30 09:01 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-30 09:03 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-30 08:50 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
+- 2026-06-30 08:51 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
+- 2026-06-30 08:42 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
+- 2026-06-30 08:45 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-30 08:54 - [日本队5进世界杯淘汰赛0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-30 08:46 - [世界杯：荷兰vs摩洛哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-30 08:57 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:53 - [金刚川](http://www.share.kurohicncr.top/Article/details/946005237.shtml)
-- 2026-06-30 08:50 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/67878653188.shtml)
-- 2026-06-30 08:37 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.blog.minike.top/Article/details/855272.shtml)
-- 2026-06-30 08:36 - [泰山建135公里刀片刺绳隔离网](http://www.share.kurohicncr.top/Article/details/2158919.shtml)
-- 2026-06-30 08:38 - [德国身价是巴拉圭6倍](https://www.blog.kurohicncr.top/Article/details/096591496235.shtml)
-- 2026-06-30 08:56 - [王欣瑜连续4年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/673174.shtml)
-- 2026-06-30 08:57 - [我觉得你是在无中生友](https://www.share.kurohicncr.top/Article/details/068447456991.shtml)
-- 2026-06-30 09:00 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/2279628.shtml)
-- 2026-06-30 09:05 - [曝老詹对自由市场态度与以往截然不同](https://www.share.kurohicncr.top/Article/details/28029684.shtml)
-- 2026-06-30 08:51 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://www.blog.minike.top/Article/details/45274.shtml)
-- 2026-06-30 09:01 - [欧洲民众抢购空调降温](http://www.blog.minike.top/Article/details/754259368.shtml)
-- 2026-06-30 08:59 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.minike.top/Article/details/437643.shtml)
-- 2026-06-30 08:40 - [iPhoneUltra黑色机模](https://www.share.minike.top/Article/details/9195583.shtml)
-- 2026-06-30 08:47 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.minike.top/Article/details/393971754.shtml)
-- 2026-06-30 08:58 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/53670383894.shtml)
+- 2026-06-30 08:44 - [本届世界杯已有5名球员被控强奸](http://www.blog.kurohicncr.top/Article/details/82029340.shtml)
+- 2026-06-30 09:08 - [iPhone18e曝光](http://www.share.minike.top/Article/details/8869065.shtml)
+- 2026-06-30 09:05 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/19511625.shtml)
+- 2026-06-30 09:00 - [韩国世界杯出局是主帅一个人的锅吗](http://www.share.minike.top/Article/details/74150977222.shtml)
+- 2026-06-30 08:55 - [森保一 保守](https://www.share.minike.top/Article/details/536149.shtml)
+- 2026-06-30 08:58 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.minike.top/Article/details/678223490.shtml)
+- 2026-06-30 09:07 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/55360806890.shtml)
+- 2026-06-30 08:51 - [点球大战](https://www.blog.minike.top/Article/details/72600013.shtml)
+- 2026-06-30 08:58 - [峡谷事故团队组队时有人提醒会下雨](http://www.blog.kurohicncr.top/Article/details/2130772928.shtml)
+- 2026-06-30 08:57 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/277461489.shtml)
+- 2026-06-30 08:57 - [郑钦文 四年一轮游](http://www.share.minike.top/Article/details/143317769.shtml)
+- 2026-06-30 08:48 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/89404.shtml)
+- 2026-06-30 08:47 - [森保一 保守](http://www.blog.kurohicncr.top/Article/details/6151681227.shtml)
+- 2026-06-30 09:07 - [收到补税提醒尽快办理 明起有滞纳金](http://www.blog.kurohicncr.top/Article/details/919166524054.shtml)
+- 2026-06-30 08:44 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.share.minike.top/Article/details/90573.shtml)

@@ -1,60 +1,58 @@
-# 比尔盖茨将就爱泼斯坦相关事宜接受众议院监督委员会质询
+# 广州千年古道飘香 “咖味”碰撞“食尚”
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-核心要点 微软联合创始人比尔・盖茨即将接受众议院委员会问询，内容围绕他与声名狼藉的性犯罪者杰弗里・爱泼斯坦那段备受争议的交往经历。 这位顶级亿万富豪是接受众议院监督与政府改革委员会针对爱泼斯坦相关事宜严厉质询的知名大人物之一。 就在盖茨出庭作证前一日，该委员会刚完成对爱泼斯坦前长期行政助理莱斯利・格罗夫的问询。 微软联合创始人比尔・盖茨将于本周三接受众议院委员会问询，议题是他与
+发布时间：2026年05月01日 21:38 来源：中国新闻网 五月羊城，咖啡飘香。5月1日，“咖味越秀 啡同寻尝咖啡美食周”在广州市越秀区广百北京路店启幕。 当天，北京路上“星级大牌”“舌尖甄选”“潮咖主题”三大特色集市迎客，吸引大批市民游客驻足打卡。从五指毛桃咖啡、广东省煲咖啡到咖啡奶酥包、生椰拿铁牛乳卷等，一杯咖啡配一份地道小食，成为年轻人社交打卡的新宠。 咖啡店主周富业
 
 ## 正文
 
-核心要点 微软联合创始人比尔・盖茨即将接受众议院委员会问询，内容围绕他与声名狼藉的性犯罪者杰弗里・爱泼斯坦那段备受争议的交往经历。
+发布时间：2026年05月01日 21:38 来源：中国新闻网 五月羊城，咖啡飘香。
 
-这位顶级亿万富豪是接受众议院监督与政府改革委员会针对爱泼斯坦相关事宜严厉质询的知名大人物之一。
+5月1日，“咖味越秀 啡同寻尝咖啡美食周”在广州市越秀区广百北京路店启幕。
 
-就在盖茨出庭作证前一日，该委员会刚完成对爱泼斯坦前长期行政助理莱斯利・格罗夫的问询。
+当天，北京路上“星级大牌”“舌尖甄选”“潮咖主题”三大特色集市迎客，吸引大批市民游客驻足打卡。
 
-微软联合创始人比尔・盖茨将于本周三接受众议院委员会问询，议题是他与臭名昭著的性犯罪者杰弗里・爱泼斯坦颇具争议的往来。
+从五指毛桃咖啡、广东省煲咖啡到咖啡奶酥包、生椰拿铁牛乳卷等，一杯咖啡配一份地道小食，成为年轻人社交打卡的新宠。
 
-数月以来，众议院监督与政府改革委员会一直在调查爱泼斯坦的高端社交人脉网络，身家巨富的盖茨是该委员会传唤质询的重量级人物之一。
+咖啡店主周富业表示，此次共展出6款咖啡，包括肉桂拿铁、西洋参、罗汉果、五指毛桃等，由医师、药师共同研发，具备养生功效，希望传播中医养生理念。
 
-盖茨作证的前一天，委员会刚刚完成对爱泼斯坦任职多年的前行政助理莱斯利・格罗夫的询问。
+作为年轻人最爱逛的商圈之一，北京路也是广州咖啡业态最密集、最多元的街区之一。
 
-该委员会主席、肯塔基州共和党众议员詹姆斯・科默周二向媒体表示，针对盖茨的问询没有限制，“任何问题都可能被问到”。
+据不完全统计，目前北京路及周边区域已聚集超过70家咖啡相关门店。
 
-“据他的律师称，我不能说他主动迫切想要作证，但他愿意配合，没有抗拒传唤，这点我表示认可。
+(记者 蔡敏婕 制作 徐妙巧) 责任编辑：【张令旗】
 
 ## 相关推荐
 
-- 2026-06-30 08:45 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-30 08:56 - [现在叛逆期的孩子最怕的是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-30 08:43 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-30 08:55 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-30 08:55 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
-- 2026-06-30 08:37 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-30 09:04 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
-- 2026-06-30 08:41 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-30 09:01 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
-- 2026-06-30 08:44 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-30 09:05 - [古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-30 08:50 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-30 09:03 - [欧洲民众抢购空调降温](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-30 09:00 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-30 08:54 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-30 08:58 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-30 08:53 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-30 08:50 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-30 08:57 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-30 08:43 - [杨紫大银幕成绩单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-30 08:47 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-30 08:52 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-30 08:48 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
+- 2026-06-30 09:00 - [巴拉圭点球大战淘汰德国进16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-30 08:56 - [第3集丨“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-30 09:06 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 09:00 - [我和我的家乡](http://www.blog.minike.top/Article/details/29636426.shtml)
-- 2026-06-30 08:58 - [本届世界杯已有5名球员被控强奸](http://www.share.kurohicncr.top/Article/details/00124.shtml)
-- 2026-06-30 09:00 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/33670190274.shtml)
-- 2026-06-30 08:57 - [德国队连续三届世界杯无缘16强](http://www.share.kurohicncr.top/Article/details/968735250.shtml)
-- 2026-06-30 08:52 - [全新问界M9现身美国街头](http://www.share.kurohicncr.top/Article/details/628534985.shtml)
-- 2026-06-30 08:37 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/722406.shtml)
-- 2026-06-30 08:54 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/7691286446.shtml)
-- 2026-06-30 08:44 - [荷兰VS摩洛哥](http://www.blog.minike.top/Article/details/960565.shtml)
-- 2026-06-30 08:43 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/825824531016.shtml)
-- 2026-06-30 09:04 - [世界杯巴拉圭点球淘汰德国](https://www.blog.minike.top/Article/details/8404911822.shtml)
-- 2026-06-30 08:42 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.kurohicncr.top/Article/details/185027.shtml)
-- 2026-06-30 08:48 - [董卿父亲在报纸上发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/130193079173.shtml)
-- 2026-06-30 08:54 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.minike.top/Article/details/3589127.shtml)
-- 2026-06-30 08:52 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/23661150.shtml)
-- 2026-06-30 08:52 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/81542289099.shtml)
+- 2026-06-30 09:07 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/5741886460.shtml)
+- 2026-06-30 09:01 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/32224529.shtml)
+- 2026-06-30 08:53 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/9445355.shtml)
+- 2026-06-30 08:58 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/8492536.shtml)
+- 2026-06-30 09:09 - [男子中医院拔火罐致浅2度烧伤](http://www.share.kurohicncr.top/Article/details/5264619211.shtml)
+- 2026-06-30 09:00 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](http://www.blog.minike.top/Article/details/78810806803.shtml)
+- 2026-06-30 08:58 - [泰山景区建135公里刀片刺绳隔离网](https://www.blog.minike.top/Article/details/01669030338.shtml)
+- 2026-06-30 09:00 - [陈幸同晋级WTT美国大满贯女单32强](https://www.blog.minike.top/Article/details/673753384399.shtml)
+- 2026-06-30 09:01 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.minike.top/Article/details/91736431.shtml)
+- 2026-06-30 09:11 - [教育部披露：高考生篡改7名同学志愿](https://www.blog.kurohicncr.top/Article/details/31548811.shtml)
+- 2026-06-30 08:43 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/9503092.shtml)
+- 2026-06-30 08:52 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/0741867351.shtml)
+- 2026-06-30 08:46 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](http://www.blog.minike.top/Article/details/232027949394.shtml)
+- 2026-06-30 09:09 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/70743677.shtml)
+- 2026-06-30 09:11 - [女心理师](https://www.blog.minike.top/Article/details/43000.shtml)

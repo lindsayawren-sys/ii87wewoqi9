@@ -1,57 +1,57 @@
-# Verra Mobility因Avis解约遭证券欺诈调查
+# 老把头节赓续非遗文脉 吉林抚松构筑世界级人参产业枢纽
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-智能出行技术提供商Verra Mobility近日遭遇多重危机。该公司于5月26日披露，已收到Avis Budget Group的合同终止通知，该合同将于2026年9月生效。 Avis是Verra Mobility最大的商业客户之一，贡献了公司总收入的百分之十以上，并在其利润率最高的商业服务部门中占据不成比例的利润份额。此次解约预计将使商业服务收入减少1.35亿至1.45亿美元
+中新网吉林抚松5月2日电 (高龙安 李彦国)鞭炮齐鸣、敬献贡品，参把头高声诵读祈福祭文，祭拜山神老把头，祈求参业兴旺、国泰民安。 5月2日，农历三月十六，吉林省白山市抚松县举办2026长白山老把头节非遗传承活动。当日，长白山老把头文化展览馆正式开馆，现场同步举行“非遗焕新季”商品市集与非遗成果展。 老把头节是抚松独具特色的民俗文化盛事。相传古时孙良千里赴长白山寻参，临终前在石壁
 
 ## 正文
 
-智能出行技术提供商Verra Mobility近日遭遇多重危机。
+中新网吉林抚松5月2日电 (高龙安 李彦国)鞭炮齐鸣、敬献贡品，参把头高声诵读祈福祭文，祭拜山神老把头，祈求参业兴旺、国泰民安。
 
-该公司于5月26日披露，已收到Avis Budget Group的合同终止通知，该合同将于2026年9月生效。
+5月2日，农历三月十六，吉林省白山市抚松县举办2026长白山老把头节非遗传承活动。
 
-Avis是Verra Mobility最大的商业客户之一，贡献了公司总收入的百分之十以上，并在其利润率最高的商业服务部门中占据不成比例的利润份额。
+当日，长白山老把头文化展览馆正式开馆，现场同步举行“非遗焕新季”商品市集与非遗成果展。
 
-此次解约预计将使商业服务收入减少1.35亿至1.45亿美元，部门利润减少1.2亿至1.25亿美元。
+老把头节是抚松独具特色的民俗文化盛事。
 
-受此消息冲击，Verra Mobility股价于5月27日暴跌9.23美元，跌幅达70.6%，收于3.85美元，市值蒸发约14亿美元。
+相传古时孙良千里赴长白山寻参，临终前在石壁留诗：“再有入山迷路者，我当做为引路神。
 
-更令人震惊的是，就在合同终止前20天，时任首席执行官David Roberts在5月6日的财报电话会议上还将与Avis的谈判描述为“正在进行且富有建设性”。
+”后人尊他为“老把头”。
 
-6月1日，公司宣布David Roberts被解除总裁兼首席执行官职务，“董事会认为需要更换领导层”。
+据1930年版《抚松县志》记载：“三月十六，系老把头之生日，现在放山人均祀之。
 
-董事会成员Jon Keyser被任命为临时总裁兼首席执行官。
+是日，家家沽酒市肉，献于老把头之庙前。
 
 ## 相关推荐
 
-- 2026-06-30 08:41 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
-- 2026-06-30 09:01 - [韩国世界杯出局是主帅一个人的锅吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-30 08:46 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-30 08:40 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-30 08:40 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-30 08:52 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-30 08:44 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-30 08:39 - [iPhoneUltra黑色机模](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-30 08:47 - [巴拉圭率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-30 08:59 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-30 08:50 - [锐评T1战胜KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-30 09:05 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-30 08:46 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
+- 2026-06-30 08:58 - [点球淘汰德国 巴拉圭首都陷入疯狂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
+- 2026-06-30 08:49 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-30 08:46 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-30 08:43 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
+- 2026-06-30 09:03 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-30 08:56 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-30 08:58 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-30 09:10 - [日本队被绝杀后鞠躬致谢观众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-30 09:01 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:52 - [巴拉圭先进球了](http://www.share.kurohicncr.top/Article/details/771658.shtml)
-- 2026-06-30 08:49 - [Melo向柳智敏张元英道歉](https://www.blog.kurohicncr.top/Article/details/1808325.shtml)
-- 2026-06-30 08:59 - [小娘惹](https://www.share.minike.top/Article/details/429067.shtml)
-- 2026-06-30 08:54 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/363472.shtml)
-- 2026-06-30 08:44 - [日本队5进世界杯淘汰赛0胜](https://www.blog.minike.top/Article/details/716397.shtml)
-- 2026-06-30 08:45 - [德国巴拉圭进入点球大战](https://www.blog.kurohicncr.top/Article/details/01697351.shtml)
-- 2026-06-30 08:36 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/931050024864.shtml)
-- 2026-06-30 08:55 - [追梦拒绝2770万美元球员选项](https://www.share.kurohicncr.top/Article/details/57755920.shtml)
-- 2026-06-30 08:54 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/03076635097.shtml)
-- 2026-06-30 08:36 - [名记：灰熊将莫兰特交易至开拓者](https://www.blog.minike.top/Article/details/13840643063.shtml)
-- 2026-06-30 09:00 - [老外对中国cosplay竟这样评价…](http://www.blog.minike.top/Article/details/1658585.shtml)
-- 2026-06-30 08:42 - [王源近几年没有路演了](http://www.share.minike.top/Article/details/84691.shtml)
-- 2026-06-30 09:05 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/8605583761.shtml)
-- 2026-06-30 08:47 - [王楚钦说配合稍微有些陌生感](http://www.blog.kurohicncr.top/Article/details/3110451.shtml)
-- 2026-06-30 09:03 - [第3集丨“柠檬茶能换怀表？”](https://www.share.kurohicncr.top/Article/details/223120747.shtml)
+- 2026-06-30 09:04 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/642372.shtml)
+- 2026-06-30 09:02 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/23277110225.shtml)
+- 2026-06-30 08:43 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/955789337.shtml)
+- 2026-06-30 08:58 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/052815.shtml)
+- 2026-06-30 09:01 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://www.share.minike.top/Article/details/318159.shtml)
+- 2026-06-30 08:48 - [峡谷事故团队组队时有人提醒会下雨](http://www.share.kurohicncr.top/Article/details/2059607.shtml)
+- 2026-06-30 09:11 - [巴拉圭点球大战淘汰德国进16强](https://www.blog.kurohicncr.top/Article/details/99458474.shtml)
+- 2026-06-30 08:51 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/660731.shtml)
+- 2026-06-30 08:51 - [武磊：巴西队赢的并不轻松](http://www.share.kurohicncr.top/Article/details/3975717482.shtml)
+- 2026-06-30 08:53 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/667573.shtml)
+- 2026-06-30 09:11 - [德国进球被吹](http://www.share.kurohicncr.top/Article/details/7441041099.shtml)
+- 2026-06-30 08:44 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/05514373323.shtml)
+- 2026-06-30 09:01 - [女心理师](http://www.blog.kurohicncr.top/Article/details/938546.shtml)
+- 2026-06-30 09:07 - [哈弗茨头球破门](https://www.share.kurohicncr.top/Article/details/8979603.shtml)
+- 2026-06-30 08:44 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.minike.top/Article/details/0513293571.shtml)

@@ -1,56 +1,57 @@
-# 美联储官员表态：物价持续上涨，加息重回备选方案
+# 这个藏在云南深山的派出所 为何被游客设为导航目的地？
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-专题：美国5月CPI同比涨幅三年来首次突破4% 原本期盼借贷成本回落的美国民众，或许还要再等一段时间。 就在几周前，市场投资者还普遍预期，信用卡、汽车贷款、房屋净值信贷额度等挂钩美联储短期基准利率的信贷产品利率将会下调。而如今，多名美联储官员释放信号，年底前不排除再度加息。 达拉斯联储主席洛里・洛根 6 月 3 日在得州埃尔帕索发表讲话时称：“我愈发认为，今年晚些时候或许有必要
+中新网玉溪5月5日电 (记者 缪超)“我把导航目的地，直接设到了绿汁派出所。”今年“五一”假期，一位辽宁游客径直把车停进易门县公安局绿汁派出所院内，“去年来过，头一回见这样没有‘边界感’的派出所”。 五月的云南省玉溪市易门县绿汁镇，凤凰花如期“点燃”了峡谷。这个深藏大山浓缩着有关铜的工业记忆之地，如今从“工业锈带”蝶变“生活秀带”，吸引天南海北的游客纷至沓来。而被网友称为“全网
 
 ## 正文
 
-专题：美国5月CPI同比涨幅三年来首次突破4% 原本期盼借贷成本回落的美国民众，或许还要再等一段时间。
+中新网玉溪5月5日电 (记者 缪超)“我把导航目的地，直接设到了绿汁派出所。
 
-就在几周前，市场投资者还普遍预期，信用卡、汽车贷款、房屋净值信贷额度等挂钩美联储短期基准利率的信贷产品利率将会下调。
+”今年“五一”假期，一位辽宁游客径直把车停进易门县公安局绿汁派出所院内，“去年来过，头一回见这样没有‘边界感’的派出所”。
 
-而如今，多名美联储官员释放信号，年底前不排除再度加息。
+五月的云南省玉溪市易门县绿汁镇，凤凰花如期“点燃”了峡谷。
 
-达拉斯联储主席洛里・洛根 6 月 3 日在得州埃尔帕索发表讲话时称：“我愈发认为，今年晚些时候或许有必要进一步上调利率。
+这个深藏大山浓缩着有关铜的工业记忆之地，如今从“工业锈带”蝶变“生活秀带”，吸引天南海北的游客纷至沓来。
 
-” 政策态度转向的背后，是通胀再度抬头的迹象。
+而被网友称为“全网最美派出所”“最没边界感的派出所”的院里也热闹起来。
 
-美国劳工统计局周三公布居民消费价格指数（CPI）显示，5 月物价同比上涨 4.2%，高于 4 月 3.8% 的同比涨幅，大幅超出美联储 2% 的年度通胀目标。
+“五一”假期里，派出所里里外外都停满私家车，凉亭下坐着歇脚的游客，有人接热水、有人充手机电、有人逛警史馆、有人参观拍照…… 今年是该派出所“敞开门”的第三个年头，从三年前的“开门服务”到今年彻底没了“边界感”，派出所门口的小黑板上“免费停车、免费充电、免费热水”的字样十分醒目。
 
-通胀居高不下时，美联储通常会上调基准利率，以此为经济降温，遏制物价过快上涨。
+一位昆明游客熟悉的把车停在院里，看见游客下车后，正当值的民警张婷迎上前，“后院有派出所警史馆，可以去参观。
 
-利率追踪工具 CME 美联储观察的数据显示，截至周三早间，市场交易员押注年底前美联储至少加息 25 个基点的概率达 66%。
+”游客笑着说，“不用介绍，我去年就来过，熟得很”。
 
 ## 相关推荐
 
-- 2026-06-30 08:43 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-30 09:04 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
-- 2026-06-30 09:01 - [四川凉山落石砸毁车辆 3人遇难](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-30 08:46 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-30 08:50 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-30 08:46 - [日本博主：日本足球真的垃圾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-30 08:48 - [IGN评测电影版后室](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-30 08:53 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-30 09:05 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
-- 2026-06-30 08:48 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-30 08:48 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-30 09:12 - [中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-30 08:59 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-30 09:07 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
+- 2026-06-30 08:58 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
+- 2026-06-30 08:55 - [IGN评测电影版后室](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-30 08:50 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-30 08:45 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-30 08:56 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-30 09:08 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-30 08:42 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:41 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/641658.shtml)
-- 2026-06-30 08:38 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.minike.top/Article/details/65237.shtml)
-- 2026-06-30 08:59 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/30329337.shtml)
-- 2026-06-30 08:43 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/26503924.shtml)
-- 2026-06-30 08:40 - [日本球员说被绝杀非常不甘心](http://www.share.kurohicncr.top/Article/details/0245043846.shtml)
-- 2026-06-30 08:40 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.minike.top/Article/details/9208214275.shtml)
-- 2026-06-30 09:00 - [索马里女大使：想和中国一起搞事业](http://www.share.minike.top/Article/details/25751.shtml)
-- 2026-06-30 08:43 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/220055753.shtml)
-- 2026-06-30 08:37 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://www.share.minike.top/Article/details/2076051163.shtml)
-- 2026-06-30 08:59 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/3636637.shtml)
-- 2026-06-30 08:44 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/4982386.shtml)
-- 2026-06-30 08:40 - [日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？](http://www.share.minike.top/Article/details/17111924.shtml)
-- 2026-06-30 08:41 - [免费试吃发差评被店家挂店门避雷](https://www.blog.minike.top/Article/details/770476624.shtml)
-- 2026-06-30 08:44 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/02068673.shtml)
-- 2026-06-30 08:43 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/11026397.shtml)
+- 2026-06-30 08:49 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/7020031692.shtml)
+- 2026-06-30 08:47 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/27812.shtml)
+- 2026-06-30 08:44 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/8260911732.shtml)
+- 2026-06-30 08:43 - [杨紫大银幕成绩单如何](https://www.share.minike.top/Article/details/3723493151.shtml)
+- 2026-06-30 09:07 - [穆祉丞年度人气艺人](https://www.blog.kurohicncr.top/Article/details/18222.shtml)
+- 2026-06-30 09:10 - [为什么纣王似乎对周文王的扩张完全无动于衷？](http://www.share.kurohicncr.top/Article/details/38523844.shtml)
+- 2026-06-30 09:08 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/02576.shtml)
+- 2026-06-30 08:46 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/8721587324.shtml)
+- 2026-06-30 08:42 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/2252114450.shtml)
+- 2026-06-30 09:00 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/7803671.shtml)
+- 2026-06-30 08:50 - [田中碧失误](http://www.share.kurohicncr.top/Article/details/009644.shtml)
+- 2026-06-30 09:02 - [为什么小组赛出局会让韩国人破防](https://www.blog.minike.top/Article/details/544922.shtml)
+- 2026-06-30 09:01 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/83634995.shtml)
+- 2026-06-30 09:05 - [板面：为什么那么多人爱吃？？！](http://www.share.kurohicncr.top/Article/details/694513838.shtml)
+- 2026-06-30 08:46 - [杨紫肖战余生请多指教拍立得](http://www.blog.kurohicncr.top/Article/details/307373624713.shtml)

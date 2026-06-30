@@ -1,60 +1,60 @@
-# 谁在幕后倒卖学生个人信息？警方深挖源头斩断黑产链条
+# 千亿消费大白马，格力和海尔双双失速了
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-法治在线丨谁在幕后倒卖学生个人信息？警方深挖源头斩断黑产链条 今年高考刚刚结束，有不少家长反映，考前就已经收到招生中介的短信或电话，有的甚至每天会接到十几通这样的电话，对方甚至能直接报出学生的姓名和平时的学业水平等情况。那么招生中介是怎么精准找到学生家长的？又是谁在幕后倒卖学生的个人信息？ 家长考前收到招生电话 学生信息如何泄露 今年4月以来，四川峨眉山市公安局陆续接到群众报警
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：格隆汇 作为国内家电行业的佼佼者，近日格力和海尔的财报或许都令人有些五味杂陈。 财报显示，2025年格力电器实现营业收入1704.47亿元，同比下滑9.89%，创下2021年以来的新低。 公司归母净利润也同比下滑9.89%至290.03亿元，降幅进一步扩大。 然而资本市场对这份业绩的反应，却与实际数字
 
 ## 正文
 
-法治在线丨谁在幕后倒卖学生个人信息？
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-警方深挖源头斩断黑产链条 今年高考刚刚结束，有不少家长反映，考前就已经收到招生中介的短信或电话，有的甚至每天会接到十几通这样的电话，对方甚至能直接报出学生的姓名和平时的学业水平等情况。
+来源：格隆汇 作为国内家电行业的佼佼者，近日格力和海尔的财报或许都令人有些五味杂陈。
 
-那么招生中介是怎么精准找到学生家长的？
+财报显示，2025年格力电器实现营业收入1704.47亿元，同比下滑9.89%，创下2021年以来的新低。
 
-又是谁在幕后倒卖学生的个人信息？
+公司归母净利润也同比下滑9.89%至290.03亿元，降幅进一步扩大。
 
-家长考前收到招生电话 学生信息如何泄露 今年4月以来，四川峨眉山市公安局陆续接到群众报警，反映辖区校外招生中介涉嫌非法获取学生信息、违规招生扰民。
+然而资本市场对这份业绩的反应，却与实际数字截然不同。
 
-其中，受害者多为中考或高考应届毕业生和家长。
+年报发布同日，格力同步披露了每10股派发现金红利20元的慷慨分红预案，股息率超过5%。
 
-学生家长 周女士：高三上学期的时候，就会收到很多电话，喊你去预交一些费用，他可以保证你的孩子读哪个学校，或者如果没考上，他后面会喊你去培训机构。
+或受此提振，年报发布次日，格力电器股价单日涨幅达5.85%，逆势走强。
 
-学生家长 吴先生：初三放寒假的时候就已经接到各种短信、电话，刚开始还好，一天可能就两三个，后面一天接到过十几个电话，每接一个电话我都把它拉进黑名单，但是还会有无数个电话，各种虚拟号码、真实号码都有，根本拉不完，现在黑名单可能存了有一两百个电话。
+与格力形成鲜明对比的，是同期披露业绩的另一大白电巨头，海尔智家。
 
 ## 相关推荐
 
-- 2026-06-30 08:47 - [古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
-- 2026-06-30 08:40 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-30 08:57 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-30 08:48 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-30 08:50 - [田中碧失误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-30 08:42 - [第3集丨“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-30 08:47 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-30 08:53 - [郑钦文 四年一轮游](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-30 08:41 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-30 08:58 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-30 08:58 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-30 08:43 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-30 08:56 - [第一次对自信的力量有了实感](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
-- 2026-06-30 08:39 - [高质量发展看新疆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-30 08:54 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-30 08:49 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
+- 2026-06-30 09:09 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-30 08:46 - [恋与深空道歉声明](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-30 08:57 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-30 09:06 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-30 08:47 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-30 08:52 - [莫兰特被交易到开拓者](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
+- 2026-06-30 09:11 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
+- 2026-06-30 08:46 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-30 08:57 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-30 08:42 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-30 08:52 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-30 08:52 - [网友写差评被店家“挂”门口避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:43 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/83595381.shtml)
-- 2026-06-30 09:00 - [日本博主：日本足球真的垃圾](https://www.share.minike.top/Article/details/673647445574.shtml)
-- 2026-06-30 08:57 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/942612.shtml)
-- 2026-06-30 08:44 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/976146.shtml)
-- 2026-06-30 08:46 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/963704486731.shtml)
-- 2026-06-30 08:59 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/1708964.shtml)
-- 2026-06-30 08:59 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/501516356.shtml)
-- 2026-06-30 08:38 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/9219242.shtml)
-- 2026-06-30 08:54 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/904479.shtml)
-- 2026-06-30 09:05 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/729195675674.shtml)
-- 2026-06-30 08:36 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/269847.shtml)
-- 2026-06-30 09:00 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/92160150371.shtml)
-- 2026-06-30 08:37 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/44647056333.shtml)
-- 2026-06-30 08:51 - [媒体评泰山建135公里刀片刺绳隔离网](http://www.blog.minike.top/Article/details/275197492.shtml)
-- 2026-06-30 09:05 - [森保一致歉：世界第一目标没能实现](https://www.blog.kurohicncr.top/Article/details/3815466756.shtml)
+- 2026-06-30 08:50 - [现在叛逆期的孩子最怕的是什么？](http://www.share.minike.top/Article/details/392633887154.shtml)
+- 2026-06-30 09:04 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/887858.shtml)
+- 2026-06-30 08:54 - [金刚川](http://www.share.kurohicncr.top/Article/details/51497322240.shtml)
+- 2026-06-30 08:54 - [荷兰VS摩洛哥](http://www.blog.minike.top/Article/details/509827211.shtml)
+- 2026-06-30 09:01 - [美股](http://www.share.kurohicncr.top/Article/details/4575401.shtml)
+- 2026-06-30 09:01 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://www.share.minike.top/Article/details/2414370640.shtml)
+- 2026-06-30 08:50 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.kurohicncr.top/Article/details/582761221.shtml)
+- 2026-06-30 09:00 - [巴拉圭进球](http://www.blog.kurohicncr.top/Article/details/0187048296.shtml)
+- 2026-06-30 08:48 - [泰山景区建135公里刀片刺绳隔离网](http://www.share.kurohicncr.top/Article/details/65799266776.shtml)
+- 2026-06-30 09:00 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/80961.shtml)
+- 2026-06-30 08:49 - [小娘惹](https://www.share.minike.top/Article/details/681362.shtml)
+- 2026-06-30 08:42 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/6342496932.shtml)
+- 2026-06-30 08:55 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/31064684650.shtml)
+- 2026-06-30 08:55 - [为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？](https://www.share.minike.top/Article/details/2215319801.shtml)
+- 2026-06-30 09:11 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/93424889.shtml)

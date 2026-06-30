@@ -1,58 +1,52 @@
-# 调整不用慌？东北证券廖博：A股科技无收紧压力，下半年仍有宽松工具
+# 五一视界盘中涨超11% 公司首次授出RSU计划94万股奖励股份
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月10日，纳指暴跌、全球市场联动回调，美联储降息预期反复，市场拐点在哪？如何找准攻防主线？新浪证券对话东北证券宏观首席分析师廖博为投资者深度解析>>视频直播 谈及中美科技板块调整的相同点，廖博表示，本轮两市科技股调整的核心主线均由流动性驱动。一方面，市场存在公募基金产品基准变更带来的流动性变动；另一方面，
+五一视界（06651）盘中涨超11%，截至发稿，股价上涨9.50%，现报57.05港元，成交额3170.97万港元。 五一视界日前宣布，根据其10年期受限制股份单位计划，首次向303位董事及员工授出总计940，200股奖励股份，占公司已发行股份总数的约0.23%。股份来源为公司将以自有资金于二级市场购买公司现有股份或本公司回购的库存股份，奖励股份的归属期为12个月后归属25%，
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+五一视界（06651）盘中涨超11%，截至发稿，股价上涨9.50%，现报57.05港元，成交额3170.97万港元。
 
-6月10日，纳指暴跌、全球市场联动回调，美联储降息预期反复，市场拐点在哪？
+五一视界日前宣布，根据其10年期受限制股份单位计划，首次向303位董事及员工授出总计940，200股奖励股份，占公司已发行股份总数的约0.23%。
 
-如何找准攻防主线？
+股份来源为公司将以自有资金于二级市场购买公司现有股份或本公司回购的库存股份，奖励股份的归属期为12个月后归属25%，剩余75%，每个季度归属6.25%，分12次归属完毕。
 
-新浪证券对话东北证券宏观首席分析师廖博为投资者深度解析>>视频直播 谈及中美科技板块调整的相同点，廖博表示，本轮两市科技股调整的核心主线均由流动性驱动。
+据悉，五一视界的10年RSU计划近日获股东会批准。
 
-一方面，市场存在公募基金产品基准变更带来的流动性变动；另一方面，中美市场均迎来重磅科技企业上市预期，进一步影响整体流动性环境。
+结合五一视界创始人的千亿ESOP限薪计划，该RSU计划推出后，将形成深度绑定公司、股东、创始人与员工利益的长效机制，符合各方整体利益最大化，为公司长期价值增长注入底层动能。
 
-其中，国内市场将迎来宇树科技、长鑫科技等企业上市，美股市场则有望迎来SpaceX、OpenAI等头部科技企业上市。
-
-这一系列事件不仅带动一、二级市场整体流动性发生变化，也让二级市场资金布局方向出现明显倾斜，市场资金更多聚焦于新股相关标的，这是当前中美科技板块行情调整的共同特征。
-
-在差异层面，廖博指出，美股科技板块调整有专属的核心诱因，也是A股市场并不具备的调整逻辑。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 08:51 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-30 08:56 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-30 08:50 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
-- 2026-06-30 09:01 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-30 08:36 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-30 09:04 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
-- 2026-06-30 08:42 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
-- 2026-06-30 09:01 - [巴西足球能否再现昔日荣光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
-- 2026-06-30 08:52 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-30 08:59 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
-- 2026-06-30 08:43 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-30 08:39 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-30 09:03 - [张雪的一句“是我们”引发岛内热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-30 09:02 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-30 08:56 - [IGN评测电影版后室](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-30 08:51 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
+- 2026-06-30 08:54 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-30 08:51 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-30 09:04 - [点球大战 残酷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-30 09:02 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-30 09:02 - [现在叛逆期的孩子最怕的是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-30 08:53 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 09:05 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/25563.shtml)
-- 2026-06-30 09:02 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://www.share.kurohicncr.top/Article/details/72030416.shtml)
-- 2026-06-30 08:45 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/214990987.shtml)
-- 2026-06-30 08:37 - [现在叛逆期的孩子最怕的是什么？](http://www.blog.minike.top/Article/details/54896.shtml)
-- 2026-06-30 08:51 - [陈幸同晋级WTT美国大满贯女单32强](http://www.share.kurohicncr.top/Article/details/11602532863.shtml)
-- 2026-06-30 08:51 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/622065298.shtml)
-- 2026-06-30 09:01 - [被巴西绝杀后 日球员田中碧跪地痛哭](http://www.share.minike.top/Article/details/27228.shtml)
-- 2026-06-30 08:45 - [马航370搜寻最新消息](https://www.share.kurohicncr.top/Article/details/439544474.shtml)
-- 2026-06-30 08:59 - [德国连续三届世界杯无缘16强](https://www.blog.minike.top/Article/details/5223734047.shtml)
-- 2026-06-30 09:05 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/237715534.shtml)
-- 2026-06-30 08:54 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/31233070.shtml)
-- 2026-06-30 08:42 - [【涤墨作战7人870】望：我从地狱杀回来了！](http://www.share.kurohicncr.top/Article/details/7255787.shtml)
-- 2026-06-30 08:45 - [莫兰特被交易到开拓者](http://www.share.minike.top/Article/details/10166.shtml)
-- 2026-06-30 08:54 - [日本16强魔咒](http://www.share.kurohicncr.top/Article/details/335064559951.shtml)
-- 2026-06-30 09:03 - [郑钦文温网一轮游](http://www.share.kurohicncr.top/Article/details/702502894.shtml)
+- 2026-06-30 09:05 - [巴拉圭点球大战淘汰德国进16强](https://www.share.minike.top/Article/details/7117761849.shtml)
+- 2026-06-30 08:42 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/36581036809.shtml)
+- 2026-06-30 09:10 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/971572030353.shtml)
+- 2026-06-30 08:51 - [马耳他著名拱门坍塌致中国男子身亡](http://www.share.kurohicncr.top/Article/details/978766157731.shtml)
+- 2026-06-30 08:48 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://www.share.minike.top/Article/details/3186823.shtml)
+- 2026-06-30 09:09 - [好像看到了人类带孩子崩溃的样子](http://www.share.minike.top/Article/details/63062892.shtml)
+- 2026-06-30 08:50 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/406980.shtml)
+- 2026-06-30 09:06 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/501423263217.shtml)
+- 2026-06-30 09:10 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/359180244.shtml)
+- 2026-06-30 08:45 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/2302702.shtml)
+- 2026-06-30 09:11 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/5624528437.shtml)
+- 2026-06-30 08:53 - [德国巴拉圭进入点球大战](https://www.share.kurohicncr.top/Article/details/04584971.shtml)
+- 2026-06-30 08:47 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/722376.shtml)
+- 2026-06-30 09:03 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/171022367.shtml)
+- 2026-06-30 08:55 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/87943327826.shtml)

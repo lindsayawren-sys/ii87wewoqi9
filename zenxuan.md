@@ -1,60 +1,56 @@
-# 中国制造再出圈！国产“小个头”装备撬动海外大市场
+# 宇宙射线从哪来？“悟空”号找出答案！
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-今年以来，我国工程机械行业国际化步伐持续加快。在“大块头”的大型装备远销海外的同时，一批身形小巧的国产机械设备，正悄然风靡海外市场。微型挖掘机、小型割草机、电动三轮车，这些看似不起眼的“小个头”装备，在国际市场收获颇高人气，订单接踵而至。国产“小个头”挖掘机走红海外 企业订单量大幅增长 在山东济宁，一家工程机械企业的展厅化身全球直播间，主播们面向全球不同区域的客户推介小型挖掘设
+本报南京5月1日电(记者崔兴毅、苏雁)当你仰望星空时，无数接近光速的高能粒子——宇宙射线正日夜不停地轰击着地球。它们从哪儿来、怎样被加速到如此惊人的能量？这个问题困扰了科学家超过一个世纪。我国“悟空”号暗物质粒子探测卫星带来了一条关键线索：宇宙射线源在加速粒子时并非一视同仁，带电荷越多的粒子能被加速到的能量上限就越高。4月29日，这一发现在线发表于国际学术期刊《自然》。宇宙射线
 
 ## 正文
 
-今年以来，我国工程机械行业国际化步伐持续加快。
+本报南京5月1日电(记者崔兴毅、苏雁)当你仰望星空时，无数接近光速的高能粒子——宇宙射线正日夜不停地轰击着地球。
 
-在“大块头”的大型装备远销海外的同时，一批身形小巧的国产机械设备，正悄然风靡海外市场。
+它们从哪儿来、怎样被加速到如此惊人的能量？
 
-微型挖掘机、小型割草机、电动三轮车，这些看似不起眼的“小个头”装备，在国际市场收获颇高人气，订单接踵而至。
+这个问题困扰了科学家超过一个世纪。
 
-国产“小个头”挖掘机走红海外 企业订单量大幅增长 在山东济宁，一家工程机械企业的展厅化身全球直播间，主播们面向全球不同区域的客户推介小型挖掘设备。
+我国“悟空”号暗物质粒子探测卫星带来了一条关键线索：宇宙射线源在加速粒子时并非一视同仁，带电荷越多的粒子能被加速到的能量上限就越高。
 
-这种直观、透明、实景化的工厂直播模式，是这家企业的小微挖掘机出海的重要渠道，它源于企业一款自重仅1.2吨的微型挖掘机在海外社交平台的意外出圈。
+4月29日，这一发现在线发表于国际学术期刊《自然》。
 
-起初，挪威博主只是被它的小体格和不到2000美元的低价格吸引。
+宇宙射线里含有质子、原子核等各种粒子，把它们按能量统计的数目多少画出一条曲线，就是宇宙射线能谱。
 
-经过体验、测试后发现，这台微型挖掘机使用不同属具在各种场景都灵活自如。
+能谱里藏着宇宙射线起源的密码。
 
-测评过程被制作成视频发布在网上，播放量超400万次。
+由于以往空间实验探测能力有限，高能区的能谱长什么样一直看不清楚。
 
 ## 相关推荐
 
-- 2026-06-30 08:47 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-30 08:45 - [德国4比5巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
-- 2026-06-30 08:40 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-30 08:52 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
-- 2026-06-30 09:02 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
-- 2026-06-30 09:05 - [《名肘探科比》：科比大战裂口女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
-- 2026-06-30 08:41 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-30 08:38 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-30 08:55 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
-- 2026-06-30 08:52 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-30 08:44 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
-- 2026-06-30 08:59 - [德国爆冷点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-30 08:48 - [德国北部枪击事件致5死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-30 09:00 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
+- 2026-06-30 08:52 - [日本队被绝杀后鞠躬致谢观众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-30 08:43 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-30 09:02 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-30 09:02 - [郑钦文温网三连败西尼亚科娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-30 08:50 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
+- 2026-06-30 08:52 - [曝老詹对自由市场态度与以往截然不同](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
+- 2026-06-30 08:55 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-30 08:56 - [欧洲装一台空调有多难](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-30 08:47 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-30 08:51 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:56 - [日本 高位逼抢](https://www.blog.minike.top/Article/details/988257.shtml)
-- 2026-06-30 09:02 - [荷兰vs摩洛哥](https://www.blog.kurohicncr.top/Article/details/6390589847.shtml)
-- 2026-06-30 09:02 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/58983.shtml)
-- 2026-06-30 08:47 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/766394273512.shtml)
-- 2026-06-30 08:59 - [田中碧失误](http://www.blog.kurohicncr.top/Article/details/44592516.shtml)
-- 2026-06-30 08:45 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/3451946.shtml)
-- 2026-06-30 08:46 - [委内瑞拉地震死亡人数升至1719人](http://www.share.minike.top/Article/details/81507007092.shtml)
-- 2026-06-30 08:55 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/0491908.shtml)
-- 2026-06-30 08:48 - [4000美元是黄金新一轮下跌的开始吗](https://www.blog.kurohicncr.top/Article/details/0510409904.shtml)
-- 2026-06-30 08:44 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/940364.shtml)
-- 2026-06-30 08:55 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.minike.top/Article/details/244696926013.shtml)
-- 2026-06-30 08:54 - [豆包收费了，你还会用吗？](http://www.share.kurohicncr.top/Article/details/77684.shtml)
-- 2026-06-30 08:37 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/96190298150.shtml)
-- 2026-06-30 08:54 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/117961146794.shtml)
-- 2026-06-30 08:51 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/685759160345.shtml)
+- 2026-06-30 08:48 - [巴西绝杀](https://www.blog.kurohicncr.top/Article/details/463526.shtml)
+- 2026-06-30 08:54 - [郑钦文温网一轮游](https://www.blog.kurohicncr.top/Article/details/304230.shtml)
+- 2026-06-30 08:51 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/3714208286.shtml)
+- 2026-06-30 08:42 - [建议不要突然完全停止喝咖啡](https://www.share.minike.top/Article/details/1506931.shtml)
+- 2026-06-30 08:58 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/96404.shtml)
+- 2026-06-30 08:55 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/6428613774.shtml)
+- 2026-06-30 09:04 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/6397464.shtml)
+- 2026-06-30 08:51 - [田中碧失误](http://www.share.minike.top/Article/details/4473948107.shtml)
+- 2026-06-30 08:48 - [如果有二次元高中是什么样子的？](http://www.blog.kurohicncr.top/Article/details/8089428938.shtml)
+- 2026-06-30 09:01 - [张月收到黄灿灿辣货两眼发光](http://www.blog.minike.top/Article/details/146353.shtml)
+- 2026-06-30 08:49 - [天道](https://www.share.kurohicncr.top/Article/details/262270.shtml)
+- 2026-06-30 08:58 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.kurohicncr.top/Article/details/99390.shtml)
+- 2026-06-30 09:02 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/190531453469.shtml)
+- 2026-06-30 09:05 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/045290451708.shtml)
+- 2026-06-30 08:50 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/33294.shtml)

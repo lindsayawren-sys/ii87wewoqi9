@@ -1,58 +1,59 @@
-# 内蒙古15.4万名考生结束2026年高考
+# 爱奇艺，到底在急什么？
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-“粤车南下”扩围大湾区“双向奔赴”再提速“鹅腿阿姨”塌房？相关部门已介入，微信平台提示其账号违反使用规范揭秘档案修裱：秉承最小干预原则 补纸选择有讲究新疆算力布局优势显现，加速迈向绿色算力新高地数据中心发电厂噪音扰民！马斯克两公司遭万人集体诉讼抹黑中国，救不了欧洲产业更“世界”的世界杯要来了：哪些纪录有望改写？谁将是最大黑马？一首西北神曲焊死循环键！人这一辈子一定要去一趟临夏黄
+中新网北京5月3日电(记者 王昊)一直在追逐爆款内容的爱奇艺，近来自身却成了“爆款”。海量讨论中，负面声音占据主导——从宣布成立AI艺人库遭艺人集体辟谣，到被曝光以无底线广告推广剧集，每一次争议都引发网友口诛笔伐，其中一条微博热搜词条措辞更是犀利：#爱奇艺 穷疯了也得有底线#。 对于爱奇艺而言，2025年利润的大幅下滑，正是这份焦虑的核心来源。其背后，是传统长视频业务增长乏力的
 
 ## 正文
 
-“粤车南下”扩围大湾区“双向奔赴”再提速“鹅腿阿姨”塌房？
+中新网北京5月3日电(记者 王昊)一直在追逐爆款内容的爱奇艺，近来自身却成了“爆款”。
 
-相关部门已介入，微信平台提示其账号违反使用规范揭秘档案修裱：秉承最小干预原则 补纸选择有讲究新疆算力布局优势显现，加速迈向绿色算力新高地数据中心发电厂噪音扰民！
+海量讨论中，负面声音占据主导——从宣布成立AI艺人库遭艺人集体辟谣，到被曝光以无底线广告推广剧集，每一次争议都引发网友口诛笔伐，其中一条微博热搜词条措辞更是犀利：#爱奇艺 穷疯了也得有底线#。
 
-马斯克两公司遭万人集体诉讼抹黑中国，救不了欧洲产业更“世界”的世界杯要来了：哪些纪录有望改写？
+对于爱奇艺而言，2025年利润的大幅下滑，正是这份焦虑的核心来源。
 
-谁将是最大黑马？
+其背后，是传统长视频业务增长乏力的现实困境，急于押注新赛道、抢流量、补收入、稳估值，成为其近期一系列激进操作的底层逻辑。
 
-一首西北神曲焊死循环键！
+亏钱是常态 2026年2月，爱奇艺披露了2025年全年未经审计的财务业绩：全年总收入272.9亿元人民币，较2024年同比下降7%；年度净利润为-2.03亿元，由盈转亏；年度运营利润6.4亿元，较2024年的23.6亿元下滑约73%。
 
-人这一辈子一定要去一趟临夏黄仁勋轻描淡写一句话，让台湾“缺电焦虑”再升温？
+这份不及预期的财报发布后，爱奇艺美股股价震荡走低，进一步加剧了市场担忧。
 
-多位书记省长会见谢国民 释放重要合作信号董路谈足球小将第1000场比赛：“中国足球什么都不缺，只缺胜利”古典学家王焕生：“奥德赛时期”，靠四个字度过“国补”叠加电商促销，推动年中消费热吃薯条、闭眼打盹？
+事实上，爱奇艺成立16年来，“亏钱”几乎是常态。
 
-特朗普现场观赛，球迷一片嘘声历史首次！
+2010年网站正式上线后，直到2022年才首次实现全年盈利，创始人、CEO龚宇将这一突破称为“标志性大逆转”。
 
 ## 相关推荐
 
-- 2026-06-30 08:53 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-30 08:54 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-30 08:57 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-30 09:00 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
-- 2026-06-30 08:43 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
-- 2026-06-30 08:55 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
-- 2026-06-30 08:53 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-30 08:57 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
-- 2026-06-30 08:52 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-30 08:36 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
-- 2026-06-30 08:54 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-30 08:50 - [收到补税提醒尽快办理 明起有滞纳金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-30 08:44 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-30 09:04 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-30 08:57 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-30 08:53 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-30 08:57 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-30 08:57 - [低智商犯罪三江口团建来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-30 09:02 - [勇士续约波尔津吉斯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-30 09:09 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-30 09:09 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-30 08:55 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
+- 2026-06-30 08:57 - [第一次对自信的力量有了实感](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-30 08:49 - [iPhone18e曝光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-30 09:00 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:56 - [古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?](http://www.blog.minike.top/Article/details/486982149.shtml)
-- 2026-06-30 08:36 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/0912812344.shtml)
-- 2026-06-30 08:59 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/97352986.shtml)
-- 2026-06-30 08:39 - [内马尔安慰日本球员](https://www.blog.minike.top/Article/details/083452442110.shtml)
-- 2026-06-30 09:01 - [媒体：手机测评该挤挤水分了](http://www.share.minike.top/Article/details/61347945499.shtml)
-- 2026-06-30 08:39 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/314454238.shtml)
-- 2026-06-30 08:50 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/5092930.shtml)
-- 2026-06-30 08:58 - [送你一朵小红花](http://www.blog.minike.top/Article/details/8453645537.shtml)
-- 2026-06-30 08:55 - [人类...完蛋了...](http://www.blog.kurohicncr.top/Article/details/001581879.shtml)
-- 2026-06-30 09:02 - [张雪的一句“是我们”引发岛内热议](https://www.share.kurohicncr.top/Article/details/65329905.shtml)
-- 2026-06-30 09:00 - [内马尔中场休息积极鼓励队友](http://www.share.kurohicncr.top/Article/details/061105.shtml)
-- 2026-06-30 08:41 - [毒液2](http://www.share.minike.top/Article/details/07901288.shtml)
-- 2026-06-30 08:48 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://www.share.minike.top/Article/details/1513856.shtml)
-- 2026-06-30 09:02 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/31383.shtml)
-- 2026-06-30 08:44 - [巴西2比1日本](http://www.share.kurohicncr.top/Article/details/721886.shtml)
+- 2026-06-30 08:54 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/38110.shtml)
+- 2026-06-30 09:05 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/39173891.shtml)
+- 2026-06-30 09:11 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/639721364.shtml)
+- 2026-06-30 09:09 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://www.blog.minike.top/Article/details/995661268965.shtml)
+- 2026-06-30 08:44 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/63703118.shtml)
+- 2026-06-30 08:47 - [名记：灰熊将莫兰特交易至开拓者](http://www.share.minike.top/Article/details/8885332795.shtml)
+- 2026-06-30 09:09 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/4947250.shtml)
+- 2026-06-30 08:52 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/3822412686.shtml)
+- 2026-06-30 09:10 - [德国队连续三届世界杯无缘16强](http://www.blog.kurohicncr.top/Article/details/84914222.shtml)
+- 2026-06-30 08:53 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.share.minike.top/Article/details/866355018187.shtml)
+- 2026-06-30 08:46 - [日本主帅赛后回应淘汰出局](http://www.blog.kurohicncr.top/Article/details/162030926.shtml)
+- 2026-06-30 08:45 - [吴易昺不敌德约科维奇 止步温网首轮](http://www.share.minike.top/Article/details/712801826.shtml)
+- 2026-06-30 09:06 - [德国罚丢3粒点球](https://www.blog.minike.top/Article/details/7874439.shtml)
+- 2026-06-30 08:43 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/4561702.shtml)
+- 2026-06-30 09:00 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/575358107.shtml)

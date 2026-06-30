@@ -1,61 +1,57 @@
-# 医疗AI进入“原生重构”阶段，轻松健康构建循证AI健康代理样本
+# 西藏多地消防深入景区开展科普活动 护航“五一”旅游安全
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-近日，动脉智库发布《基于AI原生的国民健康管理行业白皮书》。白皮书指出，随着大模型技术加速演进，医疗AI正迎来从“工具赋能”向“原生重构”的产业拐点，“AI原生健康基座”将成为承接行业价值重构的核心载体。报告认为，过去十年，AI在医疗健康产业中的应用多以单点工具形态存在，例如影像辅助筛查、在线问诊分诊、健康档案记录等，主要价值体现在效率提升和成本优化。但2024年前后，医疗AI
+中新网拉萨5月1日电(记者贡桑拉姆)“五一”假期，西藏迎来旅游旺季，拉萨市布达拉宫、日喀则市扎什伦布寺、林芝市巴宜区巴吉巨柏自然保护区、山南市加查县千年核桃林等景区人流明显增多。为提升游客及从业人员消防安全意识，西藏各级消防部门在各大景区纷纷开展形式多样、贴近群众的消防安全科普活动。 在拉萨布达拉宫景区，由消防人员设立的“雪域蓝焰服务驿站”在为游客提供便利服务的同时，也成了普及
 
 ## 正文
 
-近日，动脉智库发布《基于AI原生的国民健康管理行业白皮书》。
+中新网拉萨5月1日电(记者贡桑拉姆)“五一”假期，西藏迎来旅游旺季，拉萨市布达拉宫、日喀则市扎什伦布寺、林芝市巴宜区巴吉巨柏自然保护区、山南市加查县千年核桃林等景区人流明显增多。
 
-白皮书指出，随着大模型技术加速演进，医疗AI正迎来从“工具赋能”向“原生重构”的产业拐点，“AI原生健康基座”将成为承接行业价值重构的核心载体。
+为提升游客及从业人员消防安全意识，西藏各级消防部门在各大景区纷纷开展形式多样、贴近群众的消防安全科普活动。
 
-报告认为，过去十年，AI在医疗健康产业中的应用多以单点工具形态存在，例如影像辅助筛查、在线问诊分诊、健康档案记录等，主要价值体现在效率提升和成本优化。
+在拉萨布达拉宫景区，由消防人员设立的“雪域蓝焰服务驿站”在为游客提供便利服务的同时，也成了普及消防安全知识的重要窗口。
 
-但2024年前后，医疗AI开始从辅助工具跃迁为定义产业逻辑的底层基座。
+消防宣传员一边为游客提供便民饮水服务，一边发放藏汉双语消防宣传册，讲解古建筑防火、景区禁烟、疏散逃生等知识。
 
-大模型使医疗决策能力达到专家级，循证医学与真实世界数据的融合方案进入产业落地阶段，健康管理也从静态记录向主动智能体演进。
+同时，工作人员对景区内的消防设施、电气线路等开展隐患排查，及时化解安全风险。
 
-在场景端，白皮书提出，个人健康账户正从以存储为核心的PHR（个人健康档案）向具备分析、预警和推荐能力的PHA（个人健康代理）升级。
+在山南市加查县千年核桃林景区，消防宣传员针对山林火灾防控特点，向景区工作人员和游客讲解用火用电规范、火灾危害及初期处置方法。
 
-传统健康档案主要用于记录体检报告、诊疗记录、用药信息等基础数据，呈现静态化、碎片化、滞后化特征；而AI健康代理则可以依托智能算法与持续学习能力，实现健康数据的实时更新、动态整合和智能解析，并主动识别潜在健康风险，输出个性化健康指导、风险预警和养护方案。
+现场还设置了实操教学环节，手把手教大家使用灭火器、佩戴防毒面罩。
 
-这意味着，国民健康管理的竞争焦点正在发生变化。
+结合当地民俗，活动还鼓励群众将印有消防提示的祈福挂件悬挂在古树上，让安全宣传与文化传承有机结合。
 
 ## 相关推荐
 
-- 2026-06-30 08:46 - [周冬雨多次说演不了话剧文城](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-30 08:38 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
-- 2026-06-30 08:44 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-30 08:40 - [日本博主：日本足球真的垃圾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-30 08:48 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
-- 2026-06-30 08:51 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-30 08:47 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
-- 2026-06-30 08:59 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-30 08:47 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-30 08:44 - [日本队5进世界杯淘汰赛0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
-- 2026-06-30 09:01 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
-- 2026-06-30 08:50 - [内马尔安慰日本球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-30 08:45 - [老外对中国cosplay竟这样评价…](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-30 08:52 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
-- 2026-06-30 08:43 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-30 08:53 - [德国爆冷点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
+- 2026-06-30 08:49 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
+- 2026-06-30 08:53 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-30 09:11 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-30 09:01 - [勇士续约波尔津吉斯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
+- 2026-06-30 09:01 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-30 09:02 - [巴拉圭门将](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-30 08:51 - [莫兰特被交易到开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-30 08:51 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-30 08:59 - [董路：谁赢谁是“正路子”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-30 09:03 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:43 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/3483322.shtml)
-- 2026-06-30 09:01 - [巴西足球能否再现昔日荣光](http://www.blog.minike.top/Article/details/52182551.shtml)
-- 2026-06-30 08:45 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/32980092.shtml)
-- 2026-06-30 09:01 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/349990.shtml)
-- 2026-06-30 08:45 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/0005089643.shtml)
-- 2026-06-30 08:37 - [曝iPhone18Pro机密文件现身暗网](http://www.blog.kurohicncr.top/Article/details/8609691218.shtml)
-- 2026-06-30 08:39 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/6802348932.shtml)
-- 2026-06-30 08:47 - [开电动汽车真的很省钱吗？](http://www.share.kurohicncr.top/Article/details/9449450.shtml)
-- 2026-06-30 08:58 - [安切洛蒂 换人](https://www.blog.kurohicncr.top/Article/details/8360211942.shtml)
-- 2026-06-30 08:38 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/08321669546.shtml)
-- 2026-06-30 08:46 - [周生如故](https://www.share.kurohicncr.top/Article/details/8776176.shtml)
-- 2026-06-30 08:44 - [峡谷事故团队组队时有人提醒会下雨](https://www.blog.kurohicncr.top/Article/details/653782.shtml)
-- 2026-06-30 08:48 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/30720130.shtml)
-- 2026-06-30 08:56 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/5777683.shtml)
-- 2026-06-30 08:56 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/2176422335.shtml)
+- 2026-06-30 09:04 - [高考结束了，你会让孩子在家玩手机吗？](https://www.blog.kurohicncr.top/Article/details/97272.shtml)
+- 2026-06-30 08:53 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/554428330284.shtml)
+- 2026-06-30 09:06 - [扫黑风暴](https://www.share.minike.top/Article/details/43007339047.shtml)
+- 2026-06-30 08:55 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/139022188936.shtml)
+- 2026-06-30 09:04 - [速度与激情9](https://www.blog.minike.top/Article/details/77682.shtml)
+- 2026-06-30 08:51 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/71760.shtml)
+- 2026-06-30 09:03 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/2503623.shtml)
+- 2026-06-30 09:08 - [莫兰特转投开拓者效力](http://www.share.minike.top/Article/details/64883525.shtml)
+- 2026-06-30 09:11 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/393432.shtml)
+- 2026-06-30 08:42 - [巴拉圭先进球了](http://www.share.kurohicncr.top/Article/details/318911440.shtml)
+- 2026-06-30 09:09 - [又一家县级医院关停门诊输液大厅](http://www.blog.minike.top/Article/details/6185679.shtml)
+- 2026-06-30 08:42 - [“柠檬茶能换怀表？”](https://www.share.kurohicncr.top/Article/details/691949316.shtml)
+- 2026-06-30 08:51 - [杨紫大银幕成绩单](https://www.share.minike.top/Article/details/35904889313.shtml)
+- 2026-06-30 08:53 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/99997.shtml)
+- 2026-06-30 08:59 - [藤森庆子赢得秘鲁总统选举](https://www.blog.kurohicncr.top/Article/details/0584661176.shtml)

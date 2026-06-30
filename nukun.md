@@ -1,59 +1,61 @@
-# 小米消金半月清退12家助贷机构 同步布局汽车金融赛道
+# 外交部发言人就东京审判开庭80周年答记者问
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-21世纪经济报道记者 张欣 近期，重庆小米消费金融有限公司（下称“小米消金”）大幅调整合作版图，短期内密集精简助贷及担保合作机构，同步布局汽车金融相关业务赛道。 6月5日，小米消金更新对外公示的合作机构名单。数据显示，公司助贷业务合作机构数量由5月22日的44家缩减至33家，半个月内累计清退12家合作主体，北京爱奇艺科技有限公司、北京国美融通科技有限公司等机构均在清退名单之列。
+外交部发言人就东京审判开庭80周年答记者问，具体内容如下。 问：今天是远东国际军事法庭（东京审判）开庭80周年纪念日。近期，中国、日本、国际社会都举行了一系列纪念活动，重温东京审判历史意义。请问中方对此有何评论？ 答：1946年5月3日，根据日本无条件投降安排和盟军最高统帅颁布的《远东国际军事法庭宪章》，远东国际军事法庭正式开庭。这场历史性审判汇聚11国司法力量，以海量铁证和严
 
 ## 正文
 
-21世纪经济报道记者 张欣 近期，重庆小米消费金融有限公司（下称“小米消金”）大幅调整合作版图，短期内密集精简助贷及担保合作机构，同步布局汽车金融相关业务赛道。
+外交部发言人就东京审判开庭80周年答记者问，具体内容如下。
 
-6月5日，小米消金更新对外公示的合作机构名单。
+问：今天是远东国际军事法庭（东京审判）开庭80周年纪念日。
 
-数据显示，公司助贷业务合作机构数量由5月22日的44家缩减至33家，半个月内累计清退12家合作主体，北京爱奇艺科技有限公司、北京国美融通科技有限公司等机构均在清退名单之列。
+近期，中国、日本、国际社会都举行了一系列纪念活动，重温东京审判历史意义。
 
-同期更新的担保业务合作名单同样呈现收缩态势，小米消金担保合作机构数量从31家降至22家，半月内减少9家，合作渠道整体规模出现明显调整。
+请问中方对此有何评论？
 
-2026年以来，小米消金助贷合作机构数量始终处于动态变动状态，今年1月合作机构为34家，3月底增至43家，截至6月5日回落至33家，合作渠道布局较上半年前期出现明显变动。
+答：1946年5月3日，根据日本无条件投降安排和盟军最高统帅颁布的《远东国际军事法庭宪章》，远东国际军事法庭正式开庭。
 
-值得注意的是，本次助贷合作调整唯一新增合作方是——山西大昌科技有限公司。
+这场历史性审判汇聚11国司法力量，以海量铁证和严谨法理，判定日本军国主义发动侵略战争、严重违反国际法，揭露日本侵略者在亚洲多国犯下的累累罪行，判处东条英机等25名甲级战犯绞刑、徒刑，驳斥所谓“胜利者审判”“自卫战争”“事后立法”等谬论。
 
-天眼查信息显示，该公司隶属于山西大昌汽车集团，由山西大昌汽车租赁有限公司持股30%，实际控制人代文静持股70%。
+东京审判是《开罗宣言》《波茨坦公告》规定的实施，反映战胜国与受害者集体意志，践行《联合国宪章》的宗旨与原则，捍卫了二战胜利成果。
 
-其母公司山西大昌汽车租赁有限公司成立于2006年，是山西省内规模领先的汽车租赁企业，保有车辆超千台。
+接受东京审判判决是战后日本回归国际社会的前提。
 
 ## 相关推荐
 
-- 2026-06-30 08:36 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
-- 2026-06-30 08:48 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-30 08:54 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-30 08:58 - [日本将帅赛后采访纷纷哽咽落泪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-30 08:48 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-30 08:55 - [日本16强魔咒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-30 08:45 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-30 08:51 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-30 08:45 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
-- 2026-06-30 08:46 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
-- 2026-06-30 08:58 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-30 08:53 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-30 08:51 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-30 08:44 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-30 08:54 - [女子遭下药退赔偿拟追刑责](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-30 08:51 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
+- 2026-06-30 08:45 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
+- 2026-06-30 08:47 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
+- 2026-06-30 08:49 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-30 08:50 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-30 08:42 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-30 08:47 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-30 08:52 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-30 09:01 - [4000美元是黄金新一轮下跌的开始吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-30 08:51 - [德国队连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-30 08:47 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-30 08:50 - [日本主帅赛后回应淘汰出局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-30 08:45 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 09:03 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/780080.shtml)
-- 2026-06-30 08:54 - [董路：谁赢谁是“正路子”](http://www.blog.minike.top/Article/details/646396628100.shtml)
-- 2026-06-30 09:03 - [女子遭下药退赔偿拟追刑责](http://www.blog.minike.top/Article/details/53406.shtml)
-- 2026-06-30 09:05 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/518375513059.shtml)
-- 2026-06-30 09:01 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/86123260.shtml)
-- 2026-06-30 08:40 - [名记：灰熊将莫兰特交易至开拓者](https://www.share.kurohicncr.top/Article/details/345309.shtml)
-- 2026-06-30 09:05 - [本科毕业生为何涌入专科学校](https://www.blog.kurohicncr.top/Article/details/458060944.shtml)
-- 2026-06-30 08:46 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/77204.shtml)
-- 2026-06-30 08:43 - [输球后日本球迷被强行披上巴西国旗](http://www.blog.minike.top/Article/details/3572891.shtml)
-- 2026-06-30 08:59 - [锐评T1战胜KC](https://www.share.kurohicncr.top/Article/details/89850747829.shtml)
-- 2026-06-30 08:58 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/8561206401.shtml)
-- 2026-06-30 08:40 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/9358909.shtml)
-- 2026-06-30 08:50 - [王楚钦孙颖莎晋级混双八强](https://www.blog.kurohicncr.top/Article/details/99129245.shtml)
-- 2026-06-30 09:01 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/0801567.shtml)
-- 2026-06-30 08:52 - [全新问界M9现身美国街头](https://www.blog.kurohicncr.top/Article/details/703311918742.shtml)
+- 2026-06-30 08:56 - [女子遭下药退赔偿拟追刑责](https://www.share.minike.top/Article/details/834887415612.shtml)
+- 2026-06-30 08:45 - [女子遭下药退赔偿拟追刑责](http://www.blog.kurohicncr.top/Article/details/97732.shtml)
+- 2026-06-30 08:57 - [世界杯：荷兰vs摩洛哥](https://www.blog.kurohicncr.top/Article/details/16822286318.shtml)
+- 2026-06-30 09:11 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/224459.shtml)
+- 2026-06-30 09:10 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/036107541205.shtml)
+- 2026-06-30 08:52 - [日本 高位逼抢](http://www.share.kurohicncr.top/Article/details/17687.shtml)
+- 2026-06-30 08:43 - [日本球迷输球后集体捡垃圾](https://www.blog.minike.top/Article/details/2339890286.shtml)
+- 2026-06-30 09:10 - [又一家县级医院关停门诊输液大厅](https://www.share.minike.top/Article/details/67700.shtml)
+- 2026-06-30 08:54 - [巴拉圭率先破门](http://www.share.kurohicncr.top/Article/details/692565044041.shtml)
+- 2026-06-30 08:45 - [男子造谣东鹏老板不喝自家饮料被拘](http://www.blog.minike.top/Article/details/065875.shtml)
+- 2026-06-30 08:46 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/88233272940.shtml)
+- 2026-06-30 09:11 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/332301240102.shtml)
+- 2026-06-30 09:05 - [日本球迷被强行披上巴西国旗](http://www.share.minike.top/Article/details/635895457455.shtml)
+- 2026-06-30 08:58 - [峡谷事故团队组队时有人提醒会下雨](http://www.share.kurohicncr.top/Article/details/04798.shtml)
+- 2026-06-30 08:44 - [莫兰特转投开拓者效力](http://www.share.kurohicncr.top/Article/details/2940357200.shtml)

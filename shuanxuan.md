@@ -1,57 +1,55 @@
-# 基金圈的扫地僧：看似佛系，实则开挂
+# 【小新的Vlog】蓝莓的“蓝海”：从洋种子到“中国芯”
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-武侠小说里，总有这样一种人物。 平时不显山不露水，甚至有些“佛系”。 不争排名，不抢风头。 但当真正高手过招时，人们才发现——原来他才是那个深藏不露的“扫地僧”。 如果把公募基金行业比作江湖，那么红土创新基金和它旗下的基金经理，或许正是这样的存在。 真正的高手，往往不在聚光灯下 近年来，市场不断涌现各种热门基金经理，有人因押中赛道一战成名，有人因极致风格备受关注，有人因为高频发
+发布时间：2026年05月03日 16:54 来源：中国新闻网 这个春天，蓝莓价格持续走低，昔日按克称重、动辄上百元一斤的水果，如今在云南各大市场价格最低至每公斤20元至30元。 价格走低的背后，总体来看是中国蓝莓产业规模的急剧扩张。目前主流生产使用的蓝莓主栽品种“L25”“优瑞卡”等均引进自国外。国外机构培育的蓝莓优良品种均已申请国际专利，在中国也申请了植物新品种保护，知识产
 
 ## 正文
 
-武侠小说里，总有这样一种人物。
+发布时间：2026年05月03日 16:54 来源：中国新闻网 这个春天，蓝莓价格持续走低，昔日按克称重、动辄上百元一斤的水果，如今在云南各大市场价格最低至每公斤20元至30元。
 
-平时不显山不露水，甚至有些“佛系”。
+价格走低的背后，总体来看是中国蓝莓产业规模的急剧扩张。
 
-不争排名，不抢风头。
+目前主流生产使用的蓝莓主栽品种“L25”“优瑞卡”等均引进自国外。
 
-但当真正高手过招时，人们才发现——原来他才是那个深藏不露的“扫地僧”。
+国外机构培育的蓝莓优良品种均已申请国际专利，在中国也申请了植物新品种保护，知识产权限制极易成为中国蓝莓产业的“卡脖子”问题。
 
-如果把公募基金行业比作江湖，那么红土创新基金和它旗下的基金经理，或许正是这样的存在。
+为此，我们来到云南石林，找到了从事蓝莓育种十余年的李亚东教授。
 
-真正的高手，往往不在聚光灯下 近年来，市场不断涌现各种热门基金经理，有人因押中赛道一战成名，有人因极致风格备受关注，有人因为高频发声成为流量明星。
+一粒小小的蓝莓，从漂洋过海的“洋种子”，到如今在中国土地上孕育出属于自己的“中国芯”，是中国农业迈向高质量发展、掌握产业核心竞争力的生动缩影。
 
-相比之下，红土创新的基金经理盖俊龙则显得有些低调。
-
-盖俊龙是一名公募老将，拥有20年证券从业经验、12年投资管理经验，截至2026年6月9日，基金经理任职年化回报达到22.47%，在行业里，这是一份足够亮眼的成绩单。
+记者 杜潇潇 刘冉阳 韩帅南 昆明报道 责任编辑：【王凯】
 
 ## 相关推荐
 
-- 2026-06-30 08:58 - [日本队主帅道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-30 08:37 - [IGN评测电影版后室](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-30 08:47 - [德国进球被吹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-30 08:50 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-30 08:45 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
-- 2026-06-30 08:56 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
-- 2026-06-30 08:53 - [内马尔未登场 安切洛蒂赛后回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-30 08:56 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-30 08:47 - [巴西绝杀日本：漫画般结局换了主角](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-30 08:40 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-30 08:40 - [板面：为什么那么多人爱吃？？！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
+- 2026-06-30 09:02 - [德国罚丢3粒点球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-30 08:47 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-30 09:07 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-30 08:44 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-30 09:10 - [四川凉山落石砸毁车辆 3人遇难](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-30 09:05 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-30 08:51 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-30 08:42 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-30 09:05 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-30 09:08 - [古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-30 08:49 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 09:05 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/730038699524.shtml)
-- 2026-06-30 08:49 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](http://www.share.kurohicncr.top/Article/details/39092.shtml)
-- 2026-06-30 09:01 - [这几秒成世界杯最值钱广告位](http://www.blog.kurohicncr.top/Article/details/719962922.shtml)
-- 2026-06-30 08:38 - [老外对中国cosplay竟这样评价…](https://www.blog.minike.top/Article/details/16154023.shtml)
-- 2026-06-30 08:44 - [郑钦文温网三连败西尼亚科娃](http://www.blog.minike.top/Article/details/477434.shtml)
-- 2026-06-30 09:03 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/33778.shtml)
-- 2026-06-30 09:00 - [卡塞米罗头球破门](https://www.share.kurohicncr.top/Article/details/2269002.shtml)
-- 2026-06-30 09:01 - [卢卡申科发布解放军仪仗队视频](http://www.blog.minike.top/Article/details/806799.shtml)
-- 2026-06-30 09:05 - [【大鸣王潮1566】真拿你没办法](https://www.blog.minike.top/Article/details/38241487564.shtml)
-- 2026-06-30 08:36 - [荷兰vs摩洛哥](http://www.share.minike.top/Article/details/5119925300.shtml)
-- 2026-06-30 08:37 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/2218301.shtml)
-- 2026-06-30 08:39 - [四川凉山落石砸毁车辆 3人遇难](http://www.share.kurohicncr.top/Article/details/8293889.shtml)
-- 2026-06-30 08:50 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/483461783.shtml)
-- 2026-06-30 08:38 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.kurohicncr.top/Article/details/91373759.shtml)
-- 2026-06-30 08:49 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.minike.top/Article/details/732395620.shtml)
+- 2026-06-30 08:53 - [恋与深空](http://www.share.kurohicncr.top/Article/details/465955.shtml)
+- 2026-06-30 09:06 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/9328729.shtml)
+- 2026-06-30 08:50 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/831118423713.shtml)
+- 2026-06-30 09:06 - [中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？](https://www.blog.minike.top/Article/details/2015365.shtml)
+- 2026-06-30 08:44 - [王健林甩卖超80座万达广场](http://www.blog.kurohicncr.top/Article/details/7547484136.shtml)
+- 2026-06-30 09:05 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/310911105.shtml)
+- 2026-06-30 08:53 - [如果有二次元高中是什么样子的？](https://www.blog.kurohicncr.top/Article/details/46756497.shtml)
+- 2026-06-30 08:45 - [日本博主：日本足球真的垃圾](http://www.share.minike.top/Article/details/77878.shtml)
+- 2026-06-30 09:00 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/0764013481.shtml)
+- 2026-06-30 08:44 - [德国身价是巴拉圭6倍](http://www.share.kurohicncr.top/Article/details/86415.shtml)
+- 2026-06-30 09:05 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/81546.shtml)
+- 2026-06-30 09:01 - [日本16强魔咒](https://www.blog.minike.top/Article/details/4197820.shtml)
+- 2026-06-30 09:01 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/744194.shtml)
+- 2026-06-30 08:53 - [存储芯片龙头提示风险](https://www.share.minike.top/Article/details/225701252831.shtml)
+- 2026-06-30 09:04 - [哈弗茨头球破门](http://www.blog.minike.top/Article/details/9149426052.shtml)

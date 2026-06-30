@@ -1,61 +1,58 @@
-# 两岸同胞辽宁抚顺行：寻历史根脉 话融合亲情
+# 假期接近尾声铁路迎返程客流高峰 这些区间余票充足
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-中新网抚顺6月10日电(杨茜茜)一场以“谋发展、话亲情”为主题的参访交流活动9日在辽宁抚顺举行。30余名台胞代表走进这座老工业城市，大家纷纷感叹“像回家一样温暖”。 参访团首站来到抚顺平顶山惨案纪念馆。在讲解员引导下，台胞们透过一幅幅历史照片、一件件实物遗存，重温那段苦难记忆，神情凝重，在史实陈列馆前久久驻足。 “以前只是通过文字了解过那段历史，今天站在真实的遗址前，内心久久难
+中新网5月4日电 据“中国铁路”微信公众号消息，5月3日，全国铁路发送旅客1859.8万人次，运输安全平稳有序。5月4日，全国铁路预计发送旅客2030万人次，计划加开旅客列车1641列。 假期接近尾声，铁路迎来返程客流高峰，客流持续保持高位运行。从铁路12306车票预售情况看，今日热门出发城市主要有北京、广州、成都、上海、杭州、武汉、西安、南京、郑州、重庆；热门到达城市主要有北
 
 ## 正文
 
-中新网抚顺6月10日电(杨茜茜)一场以“谋发展、话亲情”为主题的参访交流活动9日在辽宁抚顺举行。
+中新网5月4日电 据“中国铁路”微信公众号消息，5月3日，全国铁路发送旅客1859.8万人次，运输安全平稳有序。
 
-30余名台胞代表走进这座老工业城市，大家纷纷感叹“像回家一样温暖”。
+5月4日，全国铁路预计发送旅客2030万人次，计划加开旅客列车1641列。
 
-参访团首站来到抚顺平顶山惨案纪念馆。
+假期接近尾声，铁路迎来返程客流高峰，客流持续保持高位运行。
 
-在讲解员引导下，台胞们透过一幅幅历史照片、一件件实物遗存，重温那段苦难记忆，神情凝重，在史实陈列馆前久久驻足。
+从铁路12306车票预售情况看，今日热门出发城市主要有北京、广州、成都、上海、杭州、武汉、西安、南京、郑州、重庆；热门到达城市主要有北京、上海、广州、成都、杭州、深圳、武汉、郑州、西安、南京；南宁至广州、成都至西安、北京至上海、武汉至上海、长沙至武汉等热门区间客流集中。
 
-“以前只是通过文字了解过那段历史，今天站在真实的遗址前，内心久久难以平静。
+从余票情况看，5月5日，昆明至大理等区间余票充足；武汉往返十堰、襄阳，北京至大同，上海至金华、南京，广州至南宁、汕头、湛江、长沙，深圳至潮州、汕头，成都至重庆，哈尔滨至佳木斯、牡丹江，杭州至温州，武汉至恩施，长春至延边等区间尚有余票。
 
-”来自苗栗县的一位台胞声音微颤地说，“我们都是一家人，这段历史两岸同胞都不该忘记。
+有需要的旅客朋友可通过铁路12306网站或客户端查询购票。
 
-”参访团成员纷纷表示，通过直面民族苦难，更深刻体会到中华民族从屈辱中奋起的艰辛历程，也增强了对祖国的认同感。
+各地铁路部门积极应对返程客流高峰，统筹利用运力资源，在热门方向和时段加开列车，细化站车服务措施，全力保障旅客平安有序返程。
 
-随后，参访团走进抚顺煤矿博物馆。
+北京局集团公司 加开杭州、西安、郑州、青岛、大同、沈阳等方向旅客列车181列，北京站开启急客和爱心绿色通道，北京南站启用南出口出租车调度站，为旅客提供便利。
 
 ## 相关推荐
 
-- 2026-06-30 09:02 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-30 08:38 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
-- 2026-06-30 08:49 - [马航370搜寻最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-30 08:48 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
-- 2026-06-30 08:53 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-30 08:45 - [郑钦文 四年一轮游](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-30 08:58 - [第一次对自信的力量有了实感](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
-- 2026-06-30 09:03 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-30 08:51 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
-- 2026-06-30 08:49 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-30 08:58 - [世界杯欧洲队7战南美仅1胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-30 08:43 - [郑钦文温网首轮出局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-30 08:59 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-30 08:48 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-30 08:37 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-30 08:58 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-30 08:50 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-30 08:42 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-30 08:43 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-30 08:58 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-30 08:43 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-30 08:52 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-30 08:42 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-30 08:46 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-30 09:08 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-30 08:49 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-30 08:50 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 09:05 - [德国巴拉圭加时](http://www.blog.minike.top/Article/details/282857238.shtml)
-- 2026-06-30 08:38 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/33762.shtml)
-- 2026-06-30 08:39 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/73763642.shtml)
-- 2026-06-30 08:58 - [高质量发展看新疆](http://www.share.minike.top/Article/details/34489096.shtml)
-- 2026-06-30 08:37 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/14190065.shtml)
-- 2026-06-30 08:58 - [巴拉圭进球](http://www.blog.minike.top/Article/details/46170301.shtml)
-- 2026-06-30 08:45 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/85211.shtml)
-- 2026-06-30 08:40 - [韩国道歉完日本道歉](http://www.share.kurohicncr.top/Article/details/7345108.shtml)
-- 2026-06-30 08:37 - [问心2神一集鬼三集](http://www.blog.kurohicncr.top/Article/details/99965954.shtml)
-- 2026-06-30 09:03 - [为什么小组赛出局会让韩国人破防](https://www.blog.kurohicncr.top/Article/details/861753517285.shtml)
-- 2026-06-30 09:00 - [Melo向柳智敏张元英道歉](https://www.share.minike.top/Article/details/49111.shtml)
-- 2026-06-30 08:46 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/346255766.shtml)
-- 2026-06-30 08:54 - [德国淘汰](http://www.share.minike.top/Article/details/266012632448.shtml)
-- 2026-06-30 08:46 - [巴西把自己踢晕了](http://www.blog.minike.top/Article/details/53630.shtml)
-- 2026-06-30 08:53 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/675976355087.shtml)
+- 2026-06-30 08:52 - [金鹰奖视后提名预测](http://www.share.minike.top/Article/details/8497650510.shtml)
+- 2026-06-30 08:54 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.kurohicncr.top/Article/details/642815.shtml)
+- 2026-06-30 09:09 - [周冬雨多次说演不了话剧文城](https://www.share.minike.top/Article/details/34897.shtml)
+- 2026-06-30 08:43 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.minike.top/Article/details/1056190858.shtml)
+- 2026-06-30 08:54 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](https://www.blog.kurohicncr.top/Article/details/57195.shtml)
+- 2026-06-30 09:06 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/5739108.shtml)
+- 2026-06-30 08:50 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/235949610.shtml)
+- 2026-06-30 08:59 - [德国巴拉圭加时](https://www.blog.kurohicncr.top/Article/details/448089.shtml)
+- 2026-06-30 09:00 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/744500393502.shtml)
+- 2026-06-30 09:04 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/18410368489.shtml)
+- 2026-06-30 08:55 - [第一次对自信的力量有了实感](https://www.share.minike.top/Article/details/53571.shtml)
+- 2026-06-30 08:45 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/508029958.shtml)
+- 2026-06-30 08:45 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/84657688.shtml)
+- 2026-06-30 08:55 - [杨紫被质疑未使用原名纯属误解](https://www.blog.kurohicncr.top/Article/details/913335.shtml)
+- 2026-06-30 09:03 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/7918031454.shtml)

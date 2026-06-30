@@ -1,61 +1,57 @@
-# “真正使黄金水道产生黄金效益”——从三个时间维度看三峡水运新通道工程
+# 第139届广交会期间广州白云机场口岸出入境人员超114万人次
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-万里长江，百川汇流，雄力蓄积三峡。巍峨大坝，见证治江新篇。 6月8日，三峡水运新通道工程在湖北宜昌开工建设。这是“十五五”时期开工建设的首个国家重大标志性工程，是三峡工程之后长江干线上集水利、航运、生态等功能于一体的最大综合性工程。 治水之道是重要的治国之道。习近平总书记深情牵挂长江，深刻洞察国情水情，强调“真正使黄金水道产生黄金效益”“努力把长江经济带建设成为生态更优美、交通
+中新社广州5月5日电 (记者 方伟彬)记者5日从广州白云出入境边防检查站(下称“白云边检站”)获悉，中国内地“五一”假期最后一天恰逢第139届中国进出口商品交易会(广交会)闭幕，本届广交会期间(4月15日至5月5日)，截至5月5日零时，白云机场口岸共保障出入境人员超114万人次，同比增长14.5%。其中，外籍商贸客商成为口岸客流增长核心主力，口岸入出境外国人超54万人次，同比增
 
 ## 正文
 
-万里长江，百川汇流，雄力蓄积三峡。
+中新社广州5月5日电 (记者 方伟彬)记者5日从广州白云出入境边防检查站(下称“白云边检站”)获悉，中国内地“五一”假期最后一天恰逢第139届中国进出口商品交易会(广交会)闭幕，本届广交会期间(4月15日至5月5日)，截至5月5日零时，白云机场口岸共保障出入境人员超114万人次，同比增长14.5%。
 
-巍峨大坝，见证治江新篇。
+其中，外籍商贸客商成为口岸客流增长核心主力，口岸入出境外国人超54万人次，同比增长20.8%，刷新广交会同期口岸客流历史纪录。
 
-6月8日，三峡水运新通道工程在湖北宜昌开工建设。
+本届广交会期间，白云机场口岸查验持停留期在10日以上签证、临时入境许可入境的外国人占入境外国人总量近50%。
 
-这是“十五五”时期开工建设的首个国家重大标志性工程，是三峡工程之后长江干线上集水利、航运、生态等功能于一体的最大综合性工程。
+据白云边检站介绍，本届广交会期间，白云机场口岸各类免签入境外国人同比激增56%，达12万人次，便捷高效的入境政策，大幅简化跨境商务出行流程，降低往来成本，助力全球采购商、参展商高效赴华洽谈合作，为提升广交会经贸成效提供有力支撑。
 
-治水之道是重要的治国之道。
+据白云边检站统计，近期口岸入境外国人来源地也更趋多元。
 
-习近平总书记深情牵挂长江，深刻洞察国情水情，强调“真正使黄金水道产生黄金效益”“努力把长江经济带建设成为生态更优美、交通更顺畅、经济更协调、市场更统一、机制更科学的黄金经济带”。
+本届广交会期间，白云机场口岸入境外国人来源覆盖全球191个国家和地区，除马来西亚、韩国等传统主要客源国外，澳大利亚、印度尼西亚首次进入客流来源国前十位，俄罗斯、英国、加拿大籍人员增长显著，分别增长59%、16%、40%。
 
-长江经济带10年砥砺，“十五五”开局之年，交汇的时间节点上，三峡水运新通道工程建设启动。
+国际航空运力持续扩容，为口岸客流增长提供了坚实保障。
 
-工程建成后，将大幅提升长江干线黄金水道通航能力，是构建长江经济带综合立体交通走廊的关键落子，为推动长江经济带高质量发展、构建新发展格局注入强劲动能。
+4月以来，白云机场持续完善国际航线网络，每周国际客运航班量同比增长10.1%，进一步便捷客商来华。
 
 ## 相关推荐
 
-- 2026-06-30 08:59 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-30 08:38 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
-- 2026-06-30 08:52 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-30 08:46 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-30 08:42 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
-- 2026-06-30 08:45 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-30 08:39 - [日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-30 08:39 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
-- 2026-06-30 08:49 - [自然光｜papi酱&窦文涛：驴与跑步机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-30 08:45 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-30 08:56 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-30 09:00 - [iPhoneUltra黑色机模](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-30 08:50 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-30 08:55 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-30 08:53 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-30 09:04 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-30 08:56 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
+- 2026-06-30 08:51 - [巴拉圭率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-30 08:53 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-30 09:07 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-30 09:07 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-30 08:55 - [球评巴西绝杀逆转日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-30 09:01 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-30 09:03 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-30 09:05 - [泰山景区建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-30 09:01 - [Melo向柳智敏张元英道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:45 - [韩国世界杯出局是主帅一个人的锅吗](http://www.share.kurohicncr.top/Article/details/1207243278.shtml)
-- 2026-06-30 09:05 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/135402461392.shtml)
-- 2026-06-30 08:49 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.minike.top/Article/details/847628.shtml)
-- 2026-06-30 09:02 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/32375519.shtml)
-- 2026-06-30 08:39 - [中国新一轮出口管制直指日本命脉](https://www.share.kurohicncr.top/Article/details/8852419273.shtml)
-- 2026-06-30 08:38 - [如果有二次元高中是什么样子的？](http://www.blog.kurohicncr.top/Article/details/0134536.shtml)
-- 2026-06-30 08:45 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/9463748380.shtml)
-- 2026-06-30 08:48 - [我和我的家乡](https://www.share.minike.top/Article/details/29658.shtml)
-- 2026-06-30 08:49 - [逃狱兄弟](http://www.blog.minike.top/Article/details/41110.shtml)
-- 2026-06-30 08:48 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/79913755100.shtml)
-- 2026-06-30 08:46 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/5324261320.shtml)
-- 2026-06-30 08:44 - [点球淘汰德国 巴拉圭首都陷入疯狂](https://www.blog.minike.top/Article/details/017591740.shtml)
-- 2026-06-30 09:00 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://www.share.minike.top/Article/details/4723263823.shtml)
-- 2026-06-30 09:03 - [扬名立万](https://www.share.minike.top/Article/details/5008330.shtml)
-- 2026-06-30 08:44 - [欧洲装一台空调有多难](http://www.share.minike.top/Article/details/33796.shtml)
+- 2026-06-30 08:54 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/188087617144.shtml)
+- 2026-06-30 08:59 - [韩国世界杯出局是主帅一个人的锅吗](https://www.share.kurohicncr.top/Article/details/723910.shtml)
+- 2026-06-30 08:50 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/372404.shtml)
+- 2026-06-30 08:47 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/51947753213.shtml)
+- 2026-06-30 09:05 - [为什么纣王似乎对周文王的扩张完全无动于衷？](https://www.share.kurohicncr.top/Article/details/68017.shtml)
+- 2026-06-30 08:44 - [iPhone18e曝光](https://www.share.kurohicncr.top/Article/details/97892297.shtml)
+- 2026-06-30 09:07 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/16402053.shtml)
+- 2026-06-30 09:09 - [这一刀 会很帅](https://www.share.minike.top/Article/details/11763.shtml)
+- 2026-06-30 08:50 - [4000美元是黄金新一轮下跌的开始吗](https://www.share.kurohicncr.top/Article/details/311188398.shtml)
+- 2026-06-30 09:06 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/52531003902.shtml)
+- 2026-06-30 09:00 - [全球最火存储ETF纳入兆易创新](https://www.blog.kurohicncr.top/Article/details/86258684148.shtml)
+- 2026-06-30 08:46 - [韩国球迷凌晨4点接机怒骂主教练](http://www.share.minike.top/Article/details/018540513077.shtml)
+- 2026-06-30 08:54 - [全球芯片巨头史诗级扩产](http://www.share.minike.top/Article/details/0597126.shtml)
+- 2026-06-30 09:04 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/287055173039.shtml)
+- 2026-06-30 09:03 - [张雪的一句“是我们”引发岛内热议](https://www.share.kurohicncr.top/Article/details/41278.shtml)

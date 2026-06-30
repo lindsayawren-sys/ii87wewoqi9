@@ -1,51 +1,60 @@
-# 中泰证券：中国财险维持买入评级 业绩改善正蓄势
+# 首个、首次、首艘！本周我国硬核实力再“上新”
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-中泰证券发布研报称，小幅上调中国财险（02328）2026年至2028年净利润分别为416.60、442.04和466.91亿元（原预测为413.12、438.91和463.36亿元，系更新了承保利润与投资业绩假设），同比增速分别为3.2%、6.1%和5.6%，对应ROE分别为13.7%、13.3%和13.0%。该行采用PB-ROE估值框架体系进行估值，根据调整后的调整后的戈登
+本周 我国在能源基建、交通工程、生物科技等 多个领域捷报频传 从算电协同绿电项目投运到牦牛克隆技术取得重大进展 一项项突破 彰显着中国科技创新的硬核实力 我国首个 算电协同绿电直供项目投运 5月2日，记者从中国大唐获悉，我国首个大规模“算电协同”绿电直供项目——中国大唐中卫云基地50万千瓦光伏电站正式投运。标志着我国“东数西算”工程实现了从沙漠风光电到数字算力的直连直通。 该项
 
 ## 正文
 
-中泰证券发布研报称，小幅上调中国财险（02328）2026年至2028年净利润分别为416.60、442.04和466.91亿元（原预测为413.12、438.91和463.36亿元，系更新了承保利润与投资业绩假设），同比增速分别为3.2%、6.1%和5.6%，对应ROE分别为13.7%、13.3%和13.0%。
+本周 我国在能源基建、交通工程、生物科技等 多个领域捷报频传 从算电协同绿电项目投运到牦牛克隆技术取得重大进展 一项项突破 彰显着中国科技创新的硬核实力 我国首个 算电协同绿电直供项目投运 5月2日，记者从中国大唐获悉，我国首个大规模“算电协同”绿电直供项目——中国大唐中卫云基地50万千瓦光伏电站正式投运。
 
-该行采用PB-ROE估值框架体系进行估值，根据调整后的调整后的戈登增长模型，PB=（ROE-g）/（r-g）。
+标志着我国“东数西算”工程实现了从沙漠风光电到数字算力的直连直通。
 
-该行假设长期ROE为12%，可持续长期增长率为1.5%，股权成本为8.5%，该行给与目标PB倍数为1.5倍，维持买入评级。
+该项目由50万千瓦光伏电站和150万千瓦风电场以及配套储能装置组成。
 
-责任编辑：卢昱君
+“绿电直供”能让算力园区用上清洁、低价、稳定的电力，既能降低企业运营成本，又减少碳排放，实现了经济效益与生态效益的双赢。
+
+刷新纪录 我国抽水蓄能电站最深竖井全线贯通 5月2日，国家“十四五”规划重点能源项目——浙江松阳抽水蓄能电站两条深度超600米的竖井实现全线贯通，刷新我国抽水蓄能领域最深竖井工程纪录。
+
+松阳抽水蓄能电站位于浙江省丽水市松阳县，设计安装4台单机容量35万千瓦的可逆式水轮发电机组。
+
+此次贯通的竖井，是电站能量转换的核心通道，其深度达637米，相当于将200多层楼的高度垂直嵌入山体，创下国内抽水蓄能领域同类工程之最。
+
+海南昌江核电二期3号机组 首次开启带核调试 4月30日，记者从中国华能获悉，海南自贸港首个“华龙一号”核电项目，华能昌江核电二期项目3号机组开始装载首炉核燃料，标志着该机组首次开启带核调试，进入并网发电前置核心流程。
 
 ## 相关推荐
 
-- 2026-06-30 08:53 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
-- 2026-06-30 08:48 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-30 08:44 - [亚洲球队全部出局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-30 08:44 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-30 08:36 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-30 08:37 - [荷兰VS摩洛哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-30 08:45 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-30 08:41 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-30 08:41 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-30 09:04 - [人民锐评网红诋毁袁隆平造谣企业家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-30 09:06 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-30 08:36 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
-- 2026-06-30 09:01 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
+- 2026-06-30 08:48 - [王楚钦孙颖莎晋级混双八强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
+- 2026-06-30 09:10 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-30 08:50 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-30 09:07 - [日本球迷输球后集体捡垃圾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-30 09:02 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-30 09:00 - [穆祉丞回应获年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-30 09:09 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
+- 2026-06-30 08:58 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-30 09:00 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
+- 2026-06-30 08:46 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-30 08:45 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-30 08:42 - [日本五次世界杯淘汰赛全败](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-30 08:58 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-30 09:07 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:59 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/13908978.shtml)
-- 2026-06-30 08:47 - [郑钦文温网首轮出局](http://www.share.minike.top/Article/details/30551.shtml)
-- 2026-06-30 08:45 - [内马尔安慰日本球员](http://www.share.minike.top/Article/details/3048322948.shtml)
-- 2026-06-30 09:05 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/037846.shtml)
-- 2026-06-30 09:02 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.minike.top/Article/details/35501.shtml)
-- 2026-06-30 08:58 - [一生一世](http://www.share.minike.top/Article/details/5643530272.shtml)
-- 2026-06-30 09:01 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/913148804244.shtml)
-- 2026-06-30 08:55 - [佐野海舟远射破门](https://www.blog.minike.top/Article/details/32213362504.shtml)
-- 2026-06-30 08:54 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.minike.top/Article/details/522834.shtml)
-- 2026-06-30 08:39 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/61028.shtml)
-- 2026-06-30 08:57 - [森保一 保守](http://www.blog.minike.top/Article/details/98855037323.shtml)
-- 2026-06-30 09:06 - [杨紫被质疑未使用原名纯属误解](http://www.share.kurohicncr.top/Article/details/1692477.shtml)
-- 2026-06-30 09:01 - [点球大战](https://www.share.minike.top/Article/details/8258895.shtml)
-- 2026-06-30 08:43 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/120119913.shtml)
-- 2026-06-30 08:36 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.minike.top/Article/details/7981260395.shtml)
+- 2026-06-30 09:11 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/97081.shtml)
+- 2026-06-30 09:02 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/976111344.shtml)
+- 2026-06-30 08:49 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/7070864091.shtml)
+- 2026-06-30 09:02 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/42705862785.shtml)
+- 2026-06-30 09:06 - [网瘾賊大的阿嬷](http://www.blog.kurohicncr.top/Article/details/2327617249.shtml)
+- 2026-06-30 08:47 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.minike.top/Article/details/5046880935.shtml)
+- 2026-06-30 08:58 - [王楚钦孙颖莎晋级混双八强](http://www.blog.minike.top/Article/details/4399192.shtml)
+- 2026-06-30 08:42 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/95531.shtml)
+- 2026-06-30 09:05 - [青春环游记第三季](http://www.share.minike.top/Article/details/64808.shtml)
+- 2026-06-30 08:49 - [吴易昺不敌德约科维奇 止步温网首轮](https://www.blog.minike.top/Article/details/0750439902.shtml)
+- 2026-06-30 09:09 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/179031413.shtml)
+- 2026-06-30 08:43 - [亚洲球队全部出局](https://www.blog.minike.top/Article/details/91098.shtml)
+- 2026-06-30 08:47 - [全球芯片巨头史诗级扩产](http://www.share.minike.top/Article/details/859876660815.shtml)
+- 2026-06-30 08:59 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/6235488.shtml)
+- 2026-06-30 08:53 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/27838.shtml)

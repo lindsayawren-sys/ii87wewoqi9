@@ -1,55 +1,54 @@
-# 青海省首个粤港澳大湾区“菜篮子”基地年产量超17万吨
+# 高盛称日本可再干预汇率30次并估计上周动用5万亿日元进场
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月11日 12:58 来源：中国新闻网 6月10日，记者走进西宁市大通县一家智能温室大棚基地，一串串番茄缀满枝头。该基地也被认定为青海省第一个粤港澳大湾区“菜篮子”基地，已实现高原蔬菜常态化供应香港市场。 目前，依托得天独厚的冷凉气候优势，大通全县蔬菜年产量24.9万吨，年外销量达17.2万吨。同时，该县打通粤港澳直供、农超对接等外销渠道，建成青海省首批
+高盛分析师们表示，如果依照上周的干预规模，日本还有子弹可再出手30次，但预料官员们将保存外汇储备，并在更有效的时机介入。 高盛经济学家Yuriko Tanaka在周五晚间的一份报告中写道，在日元兑美元汇率跌破160后，当局上周四可能动用约5万亿日元（313亿美元）来支撑日元汇率。她表示，在市场波动相对温和的情况下干预，表明政策制定者将该水平视为“防线”。 她补充说，鉴于干预汇率
 
 ## 正文
 
-发布时间：2026年06月11日 12:58 来源：中国新闻网 6月10日，记者走进西宁市大通县一家智能温室大棚基地，一串串番茄缀满枝头。
+高盛分析师们表示，如果依照上周的干预规模，日本还有子弹可再出手30次，但预料官员们将保存外汇储备，并在更有效的时机介入。
 
-该基地也被认定为青海省第一个粤港澳大湾区“菜篮子”基地，已实现高原蔬菜常态化供应香港市场。
+高盛经济学家Yuriko Tanaka在周五晚间的一份报告中写道，在日元兑美元汇率跌破160后，当局上周四可能动用约5万亿日元（313亿美元）来支撑日元汇率。
 
-目前，依托得天独厚的冷凉气候优势，大通全县蔬菜年产量24.9万吨，年外销量达17.2万吨。
+她表示，在市场波动相对温和的情况下干预，表明政策制定者将该水平视为“防线”。
 
-同时，该县打通粤港澳直供、农超对接等外销渠道，建成青海省首批供港蔬菜基地。
+她补充说，鉴于干预汇率的资金来源有限，预计财务省将力求最大限度地发挥每次干预的影响，并谨慎选择最有效的时机，例如在日元急贬的时候。
 
-(记者 孙睿 制作 徐妙巧 部分视频来源 大通融媒体中心) 责任编辑：【李季】
+在这次干预前，官员们已经多次发出警告，也是自2024年7月以来的第一次干预，当时日元兑美元汇率也跌破160大关。
+
+Tanaka表示，未来是否需要推出更多措施支撑日元以及力道如何，将取决于日元贬值的速度、市场波动性和日元汇率水准。
+
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-30 08:41 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
-- 2026-06-30 08:48 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
-- 2026-06-30 09:04 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
-- 2026-06-30 08:56 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-30 09:03 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-30 08:56 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-30 08:38 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
-- 2026-06-30 08:42 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
-- 2026-06-30 08:38 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-30 08:42 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-30 08:43 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-30 09:03 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
-- 2026-06-30 09:03 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-30 08:44 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-30 08:58 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-30 08:42 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-30 08:43 - [《名肘探科比》：科比大战裂口女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-30 08:47 - [感动全网的699分女生想报考清华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-30 08:56 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
+- 2026-06-30 09:10 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-30 09:03 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-30 08:48 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-30 08:53 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-30 08:46 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-30 09:02 - [日本五次世界杯淘汰赛全败](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:44 - [男子中医院拔火罐致浅2度烧伤](http://www.share.minike.top/Article/details/550877415.shtml)
-- 2026-06-30 09:02 - [马耳他著名拱门坍塌致一中国男子身亡](http://www.blog.minike.top/Article/details/1918981741.shtml)
-- 2026-06-30 08:52 - [青春环游记第三季](http://www.blog.minike.top/Article/details/23593.shtml)
-- 2026-06-30 08:46 - [陈小春人老了干什么也不心酸](https://www.share.kurohicncr.top/Article/details/68059202485.shtml)
-- 2026-06-30 08:52 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/4180975.shtml)
-- 2026-06-30 08:50 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/307920514682.shtml)
-- 2026-06-30 08:57 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/2952969259.shtml)
-- 2026-06-30 08:42 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/08168313.shtml)
-- 2026-06-30 09:01 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/360604363.shtml)
-- 2026-06-30 08:55 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/606555.shtml)
-- 2026-06-30 08:59 - [金刚川](https://www.share.kurohicncr.top/Article/details/177739.shtml)
-- 2026-06-30 08:56 - [索马里女大使：想和中国一起搞事业](https://www.share.kurohicncr.top/Article/details/531738122150.shtml)
-- 2026-06-30 08:53 - [日本 高位逼抢](https://www.share.minike.top/Article/details/88392910.shtml)
-- 2026-06-30 08:39 - [世界杯名画巴拉圭钢铁防线](https://www.share.kurohicncr.top/Article/details/8514852.shtml)
-- 2026-06-30 09:01 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](https://www.blog.minike.top/Article/details/059727600907.shtml)
+- 2026-06-30 09:06 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/90613762.shtml)
+- 2026-06-30 09:11 - [郑钦文温网首轮出局](http://www.share.kurohicncr.top/Article/details/853997.shtml)
+- 2026-06-30 08:52 - [为什么会有「念旧」的心理？](https://www.blog.kurohicncr.top/Article/details/0038860.shtml)
+- 2026-06-30 09:10 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/903050.shtml)
+- 2026-06-30 08:52 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/0991358.shtml)
+- 2026-06-30 08:52 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.minike.top/Article/details/03160.shtml)
+- 2026-06-30 08:55 - [郑钦文温网首轮出局](https://www.blog.kurohicncr.top/Article/details/221268517219.shtml)
+- 2026-06-30 08:56 - [德国队连续三届世界杯无缘16强](https://www.share.minike.top/Article/details/030435.shtml)
+- 2026-06-30 08:58 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/022590848.shtml)
+- 2026-06-30 09:11 - [人民锐评网红诋毁袁隆平造谣企业家](https://www.blog.minike.top/Article/details/906274378238.shtml)
+- 2026-06-30 09:01 - [德国北部枪击事件致5死](https://www.blog.minike.top/Article/details/6671571944.shtml)
+- 2026-06-30 08:43 - [豆包收费了，你还会用吗？](http://www.share.minike.top/Article/details/57382347032.shtml)
+- 2026-06-30 09:08 - [豆包收费了，你还会用吗？](https://www.share.kurohicncr.top/Article/details/80911501582.shtml)
+- 2026-06-30 08:57 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/1685196.shtml)
+- 2026-06-30 09:03 - [美股](https://www.blog.kurohicncr.top/Article/details/321625.shtml)

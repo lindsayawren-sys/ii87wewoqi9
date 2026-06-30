@@ -1,59 +1,55 @@
-# 高途连续两季Q1盈利：拆解“教育+AI”如何破解行业不可能三角
+# 5月3日全社会跨区域人员流动量30056.4万人次
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-当教培行业仍在探索转型方向时，高途集团（GOTU.US）率先用一份含金量十足的财报给出了一份不错的可能性。 6月2日发布的2026财年第一季度业绩显示：公司营收达16.9亿元，同比增长13.2%；经调整净利润4142万元，连续第二年实现第一季度盈利；更关键的前瞻指标递延收入同比增长24.1%至17.9亿元，预示下一季度增长动能充足。 “真正能穿越周期的，从来不仅是规模增长本身，
+中新网5月4日电 据交通运输部微信公众号消息，2026年5月3日，全社会跨区域人员流动量30056.4万人次，环比增长1%，同比增长3.7%。 铁路客运量1859.8万人次，环比下降6%，同比增长2.5%。 公路人员流动量(包括高速公路及普通国省道非营业性小客车人员出行量、公路营业性客运量)27813万人次，环比增长1.6%，同比增长4%。其中，公路营业性客运量3911万人次，
 
 ## 正文
 
-当教培行业仍在探索转型方向时，高途集团（GOTU.US）率先用一份含金量十足的财报给出了一份不错的可能性。
+中新网5月4日电 据交通运输部微信公众号消息，2026年5月3日，全社会跨区域人员流动量30056.4万人次，环比增长1%，同比增长3.7%。
 
-6月2日发布的2026财年第一季度业绩显示：公司营收达16.9亿元，同比增长13.2%；经调整净利润4142万元，连续第二年实现第一季度盈利；更关键的前瞻指标递延收入同比增长24.1%至17.9亿元，预示下一季度增长动能充足。
+铁路客运量1859.8万人次，环比下降6%，同比增长2.5%。
 
-“真正能穿越周期的，从来不仅是规模增长本身，更是背后沉淀的组织能力、产品能力与用户信任。
+公路人员流动量(包括高速公路及普通国省道非营业性小客车人员出行量、公路营业性客运量)27813万人次，环比增长1.6%，同比增长4%。
 
-”高途创始人、董事长陈向东的这句话，或许正是这份财报的最佳注脚。
+其中，公路营业性客运量3911万人次，环比下降0.7%，同比增长14.8%；高速公路及普通国省道非营业性小客车人员出行量23902万人次，环比增长1.9%，同比增长2.4%。
 
-在行业普遍焦虑“转型阵痛”的背景下，高途用连续盈利证明，教育的长期价值正在回归财务表现。
+水路客运量198.5万人次，环比下降5.3%，同比下降7.7%。
 
-含金量“三连击”：盈利、现金、效率同步改善 财务数据的“含金量”是企业价值的试金石。
+民航客运量185.1万人次，环比下降4%，同比下降11.8%。
 
-拆解高途一季报，三个维度的改善尤为突出： 盈利质量持续优化。
-
-本季度营业利润687万元，净利润3451万元，Non-GAAP净利润4142万元。
+全国邮政行业揽收包裹4.8亿件，环比增长1.3%；投递包裹4.67亿件，环比下降5.3%。
 
 ## 相关推荐
 
-- 2026-06-30 08:46 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-30 08:42 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-30 08:43 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-30 08:55 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-30 08:44 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-30 08:56 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-30 08:57 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-30 08:45 - [日本博主：日本足球真的垃圾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
-- 2026-06-30 08:40 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-30 09:01 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-30 08:50 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-30 08:39 - [4000美元是黄金新一轮下跌的开始吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-30 08:48 - [4000美元是黄金新一轮下跌的开始吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-30 08:59 - [森保一 保守](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-30 09:03 - [曝iPhone18Pro机密文件现身暗网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-30 08:43 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-30 08:53 - [点球大战 残酷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-30 09:05 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-30 09:02 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-30 09:11 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-30 09:02 - [荷兰VS摩洛哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-30 08:55 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-30 09:04 - [美股收盘 热门中概股普涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-30 08:42 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:36 - [藤森庆子赢得秘鲁总统选举](http://www.share.kurohicncr.top/Article/details/72710763.shtml)
-- 2026-06-30 08:45 - [峡谷事故团队组队时有人提醒会下雨](http://www.share.kurohicncr.top/Article/details/007941.shtml)
-- 2026-06-30 08:36 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.minike.top/Article/details/912182.shtml)
-- 2026-06-30 09:04 - [起风了](https://www.blog.kurohicncr.top/Article/details/7504670.shtml)
-- 2026-06-30 09:02 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/005172894794.shtml)
-- 2026-06-30 08:59 - [勇士续约波尔津吉斯](http://www.share.minike.top/Article/details/493306000.shtml)
-- 2026-06-30 08:54 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/0983543296.shtml)
-- 2026-06-30 09:04 - [巴西绝杀日本](http://www.blog.minike.top/Article/details/64986.shtml)
-- 2026-06-30 08:47 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/12267931.shtml)
-- 2026-06-30 09:04 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/633175226773.shtml)
-- 2026-06-30 09:03 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/16452225.shtml)
-- 2026-06-30 08:40 - [董卿父亲报纸上发文悼念亡妻](http://www.blog.minike.top/Article/details/8749335.shtml)
-- 2026-06-30 08:36 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/958115.shtml)
-- 2026-06-30 09:02 - [穆祉丞回应获年度人气艺人](http://www.blog.minike.top/Article/details/8595362.shtml)
-- 2026-06-30 09:00 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/901325304199.shtml)
+- 2026-06-30 08:45 - [德国 传控](https://www.share.kurohicncr.top/Article/details/81517.shtml)
+- 2026-06-30 08:44 - [世界杯](https://www.share.kurohicncr.top/Article/details/89378076495.shtml)
+- 2026-06-30 08:57 - [德国连续三届世界杯无缘16强](http://www.share.minike.top/Article/details/554423178.shtml)
+- 2026-06-30 08:48 - [第一炉香](https://www.share.kurohicncr.top/Article/details/2497821528.shtml)
+- 2026-06-30 08:50 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/62769229300.shtml)
+- 2026-06-30 08:45 - [恋与深空](http://www.share.kurohicncr.top/Article/details/84534.shtml)
+- 2026-06-30 09:06 - [周冬雨多次说演不了话剧文城](http://www.blog.minike.top/Article/details/90577904.shtml)
+- 2026-06-30 08:57 - [巴西替补奇兵读秒绝杀](http://www.blog.minike.top/Article/details/1354678.shtml)
+- 2026-06-30 08:56 - [高质量发展看新疆](https://www.blog.minike.top/Article/details/466865.shtml)
+- 2026-06-30 08:43 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/964480689202.shtml)
+- 2026-06-30 08:59 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/3138681217.shtml)
+- 2026-06-30 08:43 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/57650183.shtml)
+- 2026-06-30 08:59 - [曝詹姆斯即将与勇士会面](https://www.blog.minike.top/Article/details/199251.shtml)
+- 2026-06-30 08:50 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/933794486.shtml)
+- 2026-06-30 09:09 - [女子遭下药退赔偿拟追刑责](http://www.blog.kurohicncr.top/Article/details/5928227.shtml)

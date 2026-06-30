@@ -1,49 +1,57 @@
-# 6月10日增减持汇总：中公教育 、美能能源、康德莱披露增持情况，达实智能等4股拟减持（表）
+# 陈茂波：香港加快构建成为全球高增值供应链管理中心
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！据不完全统计，6月10日盘后，中公教育、美能能源、康德莱披露增持情况，包括苏交科、飞凯材料（维权）、达实智能、通用股份在内的4家A股上市公司披露拟减持情况。 责任编辑：孙同怀
+中新社香港5月3日电 香港特区政府财政司司长陈茂波3日发表网志称，香港正加快构建成为全球高增值供应链管理中心。 陈茂波表示，从建设数据驱动、更高效智慧港口，到开创更多创新贸易融资渠道，以至提供法律、会计、ESG(环境、社会与公司治理)顾问等各项高增值专业服务，香港的目标是不断丰富国际贸易中心的内涵，吸引更多海内外企业在香港设立国际或地区总部和财资中心，推动香港经济进一步发展。
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社香港5月3日电 香港特区政府财政司司长陈茂波3日发表网志称，香港正加快构建成为全球高增值供应链管理中心。
 
-据不完全统计，6月10日盘后，中公教育、美能能源、康德莱披露增持情况，包括苏交科、飞凯材料（维权）、达实智能、通用股份在内的4家A股上市公司披露拟减持情况。
+陈茂波表示，从建设数据驱动、更高效智慧港口，到开创更多创新贸易融资渠道，以至提供法律、会计、ESG(环境、社会与公司治理)顾问等各项高增值专业服务，香港的目标是不断丰富国际贸易中心的内涵，吸引更多海内外企业在香港设立国际或地区总部和财资中心，推动香港经济进一步发展。
 
-责任编辑：孙同怀
+他强调，香港作为国际贸易枢纽，新的增长空间与发展机遇不断涌现，并且是“量”与“质”同步提升。
+
+同时，香港全力推动“AI+”与“金融+”相互促进的发展策略，加速千行百业升级转型，加强香港经济动能与韧性，以更好应对可能出现的不利因素。
+
+陈茂波称，在国家“十五五”规划下，正全速推动构建现代化产业体系，促进科技创新与产业创新深度融合，推动产业结构向智能化、绿色化和融合化方向提升，并与区域内的产供链实现更深度互补分工。
+
+香港在以自身所长服务国家所需的发展过程中，正更好地发挥自身功能。
+
+他提到，私人消费持续改善，出口及固定投资表现继续向好，即将公布的今年一季度香港本地生产总值预估数据，将较去年第四季度经修订的4%增长进一步加快，成为近5年来最强劲的季度增长。
+
+陈茂波指出，过去一年多，香港本地消费市道复苏趋势明显。
 
 ## 相关推荐
 
-- 2026-06-30 08:47 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-30 08:50 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
-- 2026-06-30 08:44 - [媒体：手机测评该挤挤水分了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-30 08:52 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-30 08:56 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-30 08:59 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
-- 2026-06-30 08:44 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-30 09:04 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
-- 2026-06-30 08:41 - [4000美元是黄金新一轮下跌的开始吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-30 09:00 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-30 09:01 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
-- 2026-06-30 08:44 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-30 08:55 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-30 08:53 - [日本 高位逼抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-30 08:46 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-30 08:45 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-30 08:43 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-30 09:07 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
+- 2026-06-30 08:53 - [日本主帅赛后回应淘汰出局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-30 08:42 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-30 09:05 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-30 08:53 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-30 08:56 - [莫兰特转投开拓者效力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-30 08:43 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:47 - [点球大战](http://www.blog.minike.top/Article/details/454260.shtml)
-- 2026-06-30 08:55 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/84415.shtml)
-- 2026-06-30 08:45 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.kurohicncr.top/Article/details/82609283.shtml)
-- 2026-06-30 08:57 - [曝詹姆斯即将与勇士会面](https://www.share.kurohicncr.top/Article/details/434126.shtml)
-- 2026-06-30 09:03 - [教育部披露：高考生篡改7名同学志愿](https://www.blog.minike.top/Article/details/8588901621.shtml)
-- 2026-06-30 08:51 - [马航370搜寻最新消息](https://www.share.minike.top/Article/details/70515799094.shtml)
-- 2026-06-30 08:49 - [德国 传控](https://www.share.kurohicncr.top/Article/details/054961.shtml)
-- 2026-06-30 08:53 - [金鹰奖视后提名预测](https://www.share.kurohicncr.top/Article/details/098536743643.shtml)
-- 2026-06-30 08:46 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/9144294.shtml)
-- 2026-06-30 09:00 - [流金岁月](https://www.blog.minike.top/Article/details/080435791.shtml)
-- 2026-06-30 08:56 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/2423449337.shtml)
-- 2026-06-30 08:41 - [诺伊尔尽力了](http://www.share.kurohicncr.top/Article/details/38670830.shtml)
-- 2026-06-30 08:50 - [亚洲球队全部告别世界杯](http://www.blog.minike.top/Article/details/24049.shtml)
-- 2026-06-30 08:49 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/2905694.shtml)
-- 2026-06-30 09:00 - [田中碧失误](http://www.blog.minike.top/Article/details/30588273680.shtml)
+- 2026-06-30 08:56 - [德国vs巴拉圭](https://www.share.minike.top/Article/details/97401.shtml)
+- 2026-06-30 08:47 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.minike.top/Article/details/56061.shtml)
+- 2026-06-30 08:53 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/3163223265.shtml)
+- 2026-06-30 09:07 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/80239366323.shtml)
+- 2026-06-30 09:04 - [日本五次世界杯淘汰赛全败](https://www.blog.kurohicncr.top/Article/details/46459.shtml)
+- 2026-06-30 09:00 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/799893.shtml)
+- 2026-06-30 08:51 - [郑钦文 四年一轮游](http://www.share.minike.top/Article/details/53282734766.shtml)
+- 2026-06-30 09:08 - [莫兰特转投开拓者效力](https://www.blog.kurohicncr.top/Article/details/560159952979.shtml)
+- 2026-06-30 09:09 - [郑钦文温网首轮出局](https://www.share.kurohicncr.top/Article/details/247302917.shtml)
+- 2026-06-30 08:46 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/6249905.shtml)
+- 2026-06-30 08:43 - [武磊：巴西队赢的并不轻松](http://www.blog.kurohicncr.top/Article/details/38447678600.shtml)
+- 2026-06-30 08:54 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/7927147433.shtml)
+- 2026-06-30 09:02 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/109905.shtml)
+- 2026-06-30 08:49 - [中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？](https://www.blog.minike.top/Article/details/99599450.shtml)
+- 2026-06-30 09:05 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/14354.shtml)

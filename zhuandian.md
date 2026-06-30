@@ -1,61 +1,57 @@
-# 美股收盘：大型科技股普跌，苹果跌超3%；芯片股多数下跌，ARM跌逾6%
+# 伯克希尔CEO阿贝尔首挑大梁，巴菲特开场盛赞：“他是满分人选”
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-原标题：美股收盘：纳指、标普500指数下跌，道指小幅上涨；大型科技股普跌，苹果跌超3%；芯片股多数下跌，ARM跌逾6% 中新经纬6月10日电 美东时间周二，美股三大指数涨跌不一，纳指盘中跌超3%，此后跌幅收窄。截至收盘，道指涨0.17%报50872.11点，纳指跌0.97%报25678.82点，标普500指数跌0.26%报7386.65点。 来源：Wind 盘面上，大型科技股普
+专题：巴菲特2026年股东大会重磅来袭 伯克希尔哈撒韦CEO格雷格·阿贝尔以致敬沃伦·巴菲特拉开公司年度股东大会序幕。阿贝尔借此展现自身运营能力，而这份能力正是其被选定为伯克希尔传奇掌门人继任者的核心原因。 奥马哈时间周六上午，阿贝尔在奇健康中心场馆发表讲话：“早上好，欢迎来到奥马哈。” 今年1月接替巴菲特上任的阿贝尔，首次以伯克希尔首席执行官的身份登台向股东致辞。在开场讲话中
 
 ## 正文
 
-原标题：美股收盘：纳指、标普500指数下跌，道指小幅上涨；大型科技股普跌，苹果跌超3%；芯片股多数下跌，ARM跌逾6% 中新经纬6月10日电 美东时间周二，美股三大指数涨跌不一，纳指盘中跌超3%，此后跌幅收窄。
+专题：巴菲特2026年股东大会重磅来袭 伯克希尔哈撒韦CEO格雷格·阿贝尔以致敬沃伦·巴菲特拉开公司年度股东大会序幕。
 
-截至收盘，道指涨0.17%报50872.11点，纳指跌0.97%报25678.82点，标普500指数跌0.26%报7386.65点。
+阿贝尔借此展现自身运营能力，而这份能力正是其被选定为伯克希尔传奇掌门人继任者的核心原因。
 
-来源：Wind 盘面上，大型科技股普遍下跌，苹果跌3.64%，特斯拉跌3%，微软跌超2%，亚马逊跌0.42%，英伟达跌0.22%，脸书跌0.14%，谷歌涨0.26%。
+奥马哈时间周六上午，阿贝尔在奇健康中心场馆发表讲话：“早上好，欢迎来到奥马哈。
 
-芯片股多数下跌，费城半导体指数跌1.93%。
+” 今年1月接替巴菲特上任的阿贝尔，首次以伯克希尔首席执行官的身份登台向股东致辞。
 
-迈威尔科技跌超7%，ARM跌逾6%，高通跌超5%，超威半导体跌超3%，英特尔跌超2%，美光科技跌超1%，阿斯麦、应用材料涨逾1%。
+在开场讲话中，他向现场股东承诺，巴菲特打造的企业文化将保持不变，随后详细解读了公司一季度经营业绩。
 
-能源股全线走低，埃克森美孚、雪佛龙、康菲石油、斯伦贝谢、西方石油跌逾1%。
+这位新任首席执行官还透露，伯克希尔旗下部分业务板块，包括伯灵顿北方圣太菲铁路运输公司，已开始应用人工智能工具。
 
-银行股多数上涨，花旗、美国银行、富国银行涨逾1%，摩根大通涨0.48%，摩根士丹利跌近1%，高盛跌超1%。
+“我们不会为了人工智能而盲目布局，”阿贝尔表示，“现阶段，我们运用AI技术，主要是为了解决各项业务中的逻辑性问题。
 
-航空股多数上涨，西南航空涨超5%，美联航涨逾4%，美国航空、达美航空涨超3%，波音跌0.63%。
+” 阿贝尔已着手推行多项变革：提拔长期与自己共事的核心副手，并加码布局日本市场投资。
 
 ## 相关推荐
 
-- 2026-06-30 09:02 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
-- 2026-06-30 08:39 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-30 08:49 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
-- 2026-06-30 08:48 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-30 09:01 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-30 08:59 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-30 09:01 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
-- 2026-06-30 08:49 - [郑钦文温网一轮游](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-30 08:48 - [全新问界M9现身美国街头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-30 08:41 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
-- 2026-06-30 08:43 - [董路：谁赢谁是“正路子”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-30 08:52 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
-- 2026-06-30 09:00 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
-- 2026-06-30 08:48 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-30 09:05 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-30 08:50 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-30 08:50 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-30 09:05 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-30 09:09 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-30 09:09 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-30 08:57 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
+- 2026-06-30 09:01 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-30 09:07 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-30 09:07 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
+- 2026-06-30 08:45 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-30 08:50 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 09:00 - [爱很美味](https://www.blog.minike.top/Article/details/788061744362.shtml)
-- 2026-06-30 08:45 - [德国巴拉圭进入点球大战](https://www.share.minike.top/Article/details/340184176253.shtml)
-- 2026-06-30 08:54 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/369252351.shtml)
-- 2026-06-30 08:48 - [毒液2](https://www.blog.kurohicncr.top/Article/details/784233.shtml)
-- 2026-06-30 08:45 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.minike.top/Article/details/82974.shtml)
-- 2026-06-30 08:38 - [泰山景区建135公里刀片刺绳隔离网](https://www.blog.kurohicncr.top/Article/details/6686731.shtml)
-- 2026-06-30 08:53 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.kurohicncr.top/Article/details/66384372690.shtml)
-- 2026-06-30 08:50 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/195187339.shtml)
-- 2026-06-30 09:01 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.blog.kurohicncr.top/Article/details/691933805.shtml)
-- 2026-06-30 08:55 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/2456914786.shtml)
-- 2026-06-30 08:48 - [日本16强魔咒](https://www.blog.minike.top/Article/details/759616691.shtml)
-- 2026-06-30 08:36 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/1165358841.shtml)
-- 2026-06-30 08:40 - [巴西醒醒 这是淘汰赛](https://www.blog.kurohicncr.top/Article/details/46090654.shtml)
-- 2026-06-30 08:58 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/737900312.shtml)
-- 2026-06-30 09:05 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/50106903.shtml)
+- 2026-06-30 09:04 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/1857978.shtml)
+- 2026-06-30 08:58 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/15310886.shtml)
+- 2026-06-30 08:42 - [内马尔安慰日本球员](https://www.share.kurohicncr.top/Article/details/46618.shtml)
+- 2026-06-30 09:08 - [德国罚丢3粒点球](https://www.share.kurohicncr.top/Article/details/229753.shtml)
+- 2026-06-30 08:43 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/3149268.shtml)
+- 2026-06-30 09:02 - [天道](https://www.share.minike.top/Article/details/6050055.shtml)
+- 2026-06-30 08:53 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/995293612493.shtml)
+- 2026-06-30 08:57 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.minike.top/Article/details/0120623570.shtml)
+- 2026-06-30 08:49 - [Melo向柳智敏张元英道歉](https://www.share.minike.top/Article/details/3910713.shtml)
+- 2026-06-30 09:03 - [千香](https://www.share.kurohicncr.top/Article/details/158656.shtml)
+- 2026-06-30 08:50 - [为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？](http://www.blog.kurohicncr.top/Article/details/55525.shtml)
+- 2026-06-30 08:46 - [名记：灰熊将莫兰特交易至开拓者](http://www.blog.kurohicncr.top/Article/details/4064782.shtml)
+- 2026-06-30 08:58 - [巴西扳平比分](http://www.blog.minike.top/Article/details/370405767347.shtml)
+- 2026-06-30 08:53 - [全球芯片巨头史诗级扩产](https://www.blog.kurohicncr.top/Article/details/42545126197.shtml)
+- 2026-06-30 09:11 - [斛珠夫人](https://www.blog.minike.top/Article/details/328490415194.shtml)

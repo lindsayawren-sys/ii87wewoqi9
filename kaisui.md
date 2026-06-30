@@ -1,60 +1,59 @@
-# 视频|曾毓群：宁德时代不设定国内外营收占比目标，企业随着市场走，像是逐水草而居的游牧民族
+# 礼来减肥药Foundayo致患者肝衰竭，FDA介入调查
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-编者按：近期，曾毓群被问及，对宁德时代未来的营收比例有没有一个大概的想法，比如百分之多少来自国内，百分之多少来自国际市场？对此，曾毓群表示：“没有什么太大想法，哪里有客户需要就做哪里。企业一定是随着市场走的，像是逐水草而居的游牧民族。有人说我来定义客户，这个事儿长期是不容易的。最重要的是为客户创造价值，你的产品、你的技术、你的服务、你的解决方案，能够enable（赋能）你的客户
+美国食品药品监督管理局近日报告一例患者服用礼来公司新获批口服减肥药Foundayo后出现肝衰竭的病例，引发市场对该药物安全性的广泛关注。 据FDA不良事件报告系统显示，该病例涉及一名56岁男性，报告于4月30日提交。在此之前，FDA已于4月1日致函礼来，要求其在临床试验中评估Foundayo的肝损伤风险，并要求开展上市后试验以评估心血管事件和胃排空延迟等相关风险。 分析人士指出
 
 ## 正文
 
-编者按：近期，曾毓群被问及，对宁德时代未来的营收比例有没有一个大概的想法，比如百分之多少来自国内，百分之多少来自国际市场？
+美国食品药品监督管理局近日报告一例患者服用礼来公司新获批口服减肥药Foundayo后出现肝衰竭的病例，引发市场对该药物安全性的广泛关注。
 
-对此，曾毓群表示：“没有什么太大想法，哪里有客户需要就做哪里。
+据FDA不良事件报告系统显示，该病例涉及一名56岁男性，报告于4月30日提交。
 
-企业一定是随着市场走的，像是逐水草而居的游牧民族。
+在此之前，FDA已于4月1日致函礼来，要求其在临床试验中评估Foundayo的肝损伤风险，并要求开展上市后试验以评估心血管事件和胃排空延迟等相关风险。
 
-有人说我来定义客户，这个事儿长期是不容易的。
+分析人士指出，其他GLP-1类药物也曾出现类似病例。
 
-最重要的是为客户创造价值，你的产品、你的技术、你的服务、你的解决方案，能够enable（赋能）你的客户，能够让客户也赚到钱，推高客户的品牌。
+数据显示，Mounjaro报告30例肝衰竭，Zepbound报告2例，Ozempic报告33例，Wegovy报告15例。
 
-那就是个很好的共生生态。
+Evercore ISI分析师表示：“不能孤立地看待这一单一肝脏病例……由于各种混杂因素，此类病例在其他GLP药物中确实会发生。
 
-” 以下是报道全文 对话曾毓群：宁德时代正在质变 来源《财经》 文|研究员 尹路 “我们在思考人类新能源事业的四梁八柱在哪里？
+” 礼来公司回应称，Foundayo的安全性已在涉及1.1万名患者的3期临床试验中得到充分验证，公司已对该病例进行彻底评估，并确定该报告与Foundayo无合理关联。
 
-哪些是关键点，关键点怎么做到人无我有，人有我优？
+高盛重申对礼来的买入评级，认为股价下跌是市场过度反应。
 
 ## 相关推荐
 
-- 2026-06-30 08:58 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-30 08:48 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-30 08:57 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-30 08:45 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-30 08:56 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-30 08:53 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-30 08:43 - [日本球迷输球后集体捡垃圾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-30 09:00 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
-- 2026-06-30 08:52 - [IGN评测电影版后室](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-30 09:00 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-30 08:43 - [杨紫肖战余生请多指教拍立得](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-30 09:01 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
-- 2026-06-30 08:47 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
-- 2026-06-30 08:50 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-30 08:59 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
+- 2026-06-30 08:44 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
+- 2026-06-30 08:49 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-30 08:51 - [网红不能困在无底线逐利里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
+- 2026-06-30 08:51 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-30 09:03 - [黄晓明晒和周杰伦的合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-30 08:58 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-30 09:11 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
+- 2026-06-30 08:49 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-30 08:46 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-30 08:47 - [4000美元是黄金新一轮下跌的开始吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
+- 2026-06-30 09:08 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-30 08:48 - [马耳他著名拱门坍塌致一中国男子身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:54 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](https://www.blog.minike.top/Article/details/423929353.shtml)
-- 2026-06-30 08:38 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/87023043868.shtml)
-- 2026-06-30 08:43 - [王楚钦说配合稍微有些陌生感](https://www.blog.kurohicncr.top/Article/details/9735097.shtml)
-- 2026-06-30 09:04 - [女子遭下药退赔偿拟追刑责](https://www.blog.kurohicncr.top/Article/details/40776885955.shtml)
-- 2026-06-30 08:46 - [安切洛蒂 换人](http://www.blog.minike.top/Article/details/787947.shtml)
-- 2026-06-30 09:03 - [流金岁月](http://www.share.kurohicncr.top/Article/details/455007589877.shtml)
-- 2026-06-30 08:52 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/759059989.shtml)
-- 2026-06-30 08:50 - [日本 高位逼抢](https://www.blog.kurohicncr.top/Article/details/29314.shtml)
-- 2026-06-30 08:44 - [为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？](http://www.share.minike.top/Article/details/711935.shtml)
-- 2026-06-30 08:44 - [金鹰奖视后提名预测](https://www.blog.kurohicncr.top/Article/details/439751789081.shtml)
-- 2026-06-30 09:01 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/53271.shtml)
-- 2026-06-30 08:52 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/068103893.shtml)
-- 2026-06-30 08:41 - [郑钦文温网首轮出局](https://www.blog.kurohicncr.top/Article/details/6822730.shtml)
-- 2026-06-30 08:45 - [巴西2比1日本](http://www.blog.kurohicncr.top/Article/details/867825039617.shtml)
-- 2026-06-30 08:45 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.kurohicncr.top/Article/details/39928.shtml)
+- 2026-06-30 08:45 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/91603.shtml)
+- 2026-06-30 08:51 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/148864.shtml)
+- 2026-06-30 08:50 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/33779.shtml)
+- 2026-06-30 08:54 - [巴西替补奇兵读秒绝杀](http://www.share.minike.top/Article/details/42862.shtml)
+- 2026-06-30 08:59 - [孙兴慜发长文致歉](http://www.blog.kurohicncr.top/Article/details/90864852.shtml)
+- 2026-06-30 09:04 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.minike.top/Article/details/770088.shtml)
+- 2026-06-30 08:46 - [男子造谣东鹏老板不喝自家饮料被拘](http://www.blog.minike.top/Article/details/5047948.shtml)
+- 2026-06-30 08:59 - [张雪的一句“是我们”引发岛内热议](http://www.share.minike.top/Article/details/2729193541.shtml)
+- 2026-06-30 08:51 - [城市规划有可能成为「屎山代码」吗？](https://www.blog.kurohicncr.top/Article/details/0337056.shtml)
+- 2026-06-30 09:03 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/0533852533.shtml)
+- 2026-06-30 09:09 - [日本进球](http://www.blog.kurohicncr.top/Article/details/2940132.shtml)
+- 2026-06-30 08:51 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/474612232063.shtml)
+- 2026-06-30 09:03 - [大蒜晒外面被路过女子连盆端走](http://www.share.kurohicncr.top/Article/details/0568517.shtml)
+- 2026-06-30 08:47 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/8551373597.shtml)
+- 2026-06-30 09:07 - [高质量发展看新疆](https://www.blog.minike.top/Article/details/090028130803.shtml)

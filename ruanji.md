@@ -1,58 +1,61 @@
-# “90后”校园环卫工圆梦读研：八小时内谋生，八小时外逐梦
+# 中国首家“埃塞俄比亚咖啡国家推广体验中心”对外营业
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月10日 18:45 来源：中国新闻网 “8个小时以内求生存，8个小时以外求上进。”这句话，是成都理工大学后勤保障部环卫工人李佳对自己备考生活的概括。今年4月，33岁的李佳被拟录取为成都理工大学文法学院全日制硕士研究生。随着故事被媒体报道，李佳在这段时间收获了如潮的鼓励。 回顾四年半的校园环卫工作经历，李佳并不认为是时光虚度，反而满怀感恩。她说，这份工作
+中新社重庆5月1日电 (记者 钟旖 肖江川)中国首家“埃塞俄比亚咖啡国家推广体验中心”(下称体验中心)1日在位于重庆市沙坪坝区的磁器口古镇对外营业。 体验中心由陆港枢纽(重庆)经贸有限公司、亚太经贸发展联盟非洲委员会重庆代表处、中非友好经贸发展基金会重庆代表处联合打造，将以权威展示、文化交流、标准赋能三重使命，让中国的咖啡爱好者领略埃塞俄比亚咖啡独特的风味和文化魅力。 埃塞俄比
 
 ## 正文
 
-发布时间：2026年06月10日 18:45 来源：中国新闻网 “8个小时以内求生存，8个小时以外求上进。
+中新社重庆5月1日电 (记者 钟旖 肖江川)中国首家“埃塞俄比亚咖啡国家推广体验中心”(下称体验中心)1日在位于重庆市沙坪坝区的磁器口古镇对外营业。
 
-”这句话，是成都理工大学后勤保障部环卫工人李佳对自己备考生活的概括。
+体验中心由陆港枢纽(重庆)经贸有限公司、亚太经贸发展联盟非洲委员会重庆代表处、中非友好经贸发展基金会重庆代表处联合打造，将以权威展示、文化交流、标准赋能三重使命，让中国的咖啡爱好者领略埃塞俄比亚咖啡独特的风味和文化魅力。
 
-今年4月，33岁的李佳被拟录取为成都理工大学文法学院全日制硕士研究生。
+埃塞俄比亚驻华大使塔费拉·德贝·伊马姆向体验中心发来贺信称，埃塞俄比亚拥有数千年的咖啡种植和消费传统，孕育了享誉全球的阿拉比卡精品咖啡。
 
-随着故事被媒体报道，李佳在这段时间收获了如潮的鼓励。
+体验中心是“一带一路”倡议下埃塞俄比亚与中国深化文化交流与经济合作的重要成果，相信其运营将使更多中国朋友领略埃塞俄比亚咖啡独特的风味和文化魅力，并有力地推动优质埃塞俄比亚特色产品进入广阔的中国市场。
 
-回顾四年半的校园环卫工作经历，李佳并不认为是时光虚度，反而满怀感恩。
+同时，它也将为“重庆制造”产品进军非洲市场提供新的机遇，并深化埃塞俄比亚与中国之间的经贸交流。
 
-她说，这份工作让她拥有稳定收入，得以兼顾家庭与孩子成长，而朝夕相处的校园环境，更是让她重拾求学的勇气。
+陆港枢纽(重庆)经贸有限公司副总经理樊无双介绍，在品质把控方面，体验中心严选耶加雪菲、西达摩、古吉等埃塞俄比亚核心产区的精品豆，采用出口等级最高的G1级生豆，全程以单豆制作，最大程度保留咖啡纯净丰富的本源风味。
 
-面对即将到来的研究生生活，李佳计划在学业之余勤工俭学以减轻家庭负担，同时留出足够时间陪伴孩子成长。
+同时，体验中心搭建了完善的溯源体系，打造“从田野到杯盏”的沉浸式场景：一方面完整展示咖啡豆从产地种植、认证检测到质量把控、赋码溯源的全流程档案；另一方面，民众可从产地微缩景观、生豆展示、现场烘焙、传统手冲与萃取演示等环节，近距离感受埃塞俄比亚咖啡文化的独特魅力，感受多元风味碰撞的惊喜。
 
-(陈选斌 四川成都报道） 责任编辑：【刘湃】
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 08:41 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-30 08:41 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-30 08:49 - [欧洲装一台空调有多难](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-30 08:42 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-30 08:53 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
-- 2026-06-30 08:36 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-30 08:38 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-30 08:42 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-30 08:50 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
-- 2026-06-30 08:50 - [郑钦文温网一轮游](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-30 08:50 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-30 09:05 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-30 09:03 - [板面：为什么那么多人爱吃？？！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-30 09:04 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-30 08:52 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-30 08:58 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-30 09:11 - [世界杯欧洲队7战南美仅1胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-30 08:44 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-30 08:57 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-30 08:52 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-30 09:10 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
+- 2026-06-30 09:08 - [第3集丨“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-30 08:45 - [IGN评测电影版后室](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-30 08:50 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-30 08:58 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-30 08:45 - [金鹰奖视后提名预测](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-30 09:10 - [中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:47 - [世界杯名画巴拉圭钢铁防线](http://www.blog.minike.top/Article/details/89939727.shtml)
-- 2026-06-30 08:39 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/003453716266.shtml)
-- 2026-06-30 08:41 - [女子遭下药退赔偿拟追刑责](https://www.blog.minike.top/Article/details/2972818.shtml)
-- 2026-06-30 08:36 - [国务院：探索延长义务教育年限](https://www.share.minike.top/Article/details/6884346040.shtml)
-- 2026-06-30 08:41 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/91806.shtml)
-- 2026-06-30 08:36 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/172160381964.shtml)
-- 2026-06-30 08:37 - [周生如故](https://www.blog.kurohicncr.top/Article/details/6133500.shtml)
-- 2026-06-30 08:39 - [起风了](https://www.blog.kurohicncr.top/Article/details/65280766.shtml)
-- 2026-06-30 08:55 - [佐野海舟远射破门](https://www.blog.minike.top/Article/details/18658446.shtml)
-- 2026-06-30 08:44 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/14377759948.shtml)
-- 2026-06-30 09:00 - [韩乔生吐槽世界杯扩军](https://www.share.kurohicncr.top/Article/details/8651982405.shtml)
-- 2026-06-30 08:46 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](http://www.blog.kurohicncr.top/Article/details/5235237.shtml)
-- 2026-06-30 09:05 - [郑钦文温网一轮游](https://www.blog.kurohicncr.top/Article/details/690829210.shtml)
-- 2026-06-30 08:59 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/06365946.shtml)
-- 2026-06-30 08:43 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/84853849.shtml)
+- 2026-06-30 09:11 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/27833729198.shtml)
+- 2026-06-30 09:04 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.minike.top/Article/details/69689430547.shtml)
+- 2026-06-30 08:59 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/03733557172.shtml)
+- 2026-06-30 08:43 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/763736.shtml)
+- 2026-06-30 09:06 - [急先锋](https://www.share.kurohicncr.top/Article/details/56063.shtml)
+- 2026-06-30 08:45 - [名记：灰熊将莫兰特交易至开拓者](https://www.share.kurohicncr.top/Article/details/48688.shtml)
+- 2026-06-30 08:56 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/752898157.shtml)
+- 2026-06-30 08:47 - [巴西绝杀日本：漫画般结局换了主角](http://www.share.kurohicncr.top/Article/details/03929.shtml)
+- 2026-06-30 09:02 - [日本主帅赛后回应淘汰出局](https://www.blog.minike.top/Article/details/96080593.shtml)
+- 2026-06-30 08:50 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/5874669.shtml)
+- 2026-06-30 08:53 - [一见倾心](http://www.share.kurohicncr.top/Article/details/31574.shtml)
+- 2026-06-30 08:51 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/874203250.shtml)
+- 2026-06-30 09:06 - [日本 高位逼抢](http://www.share.minike.top/Article/details/689089087499.shtml)
+- 2026-06-30 08:43 - [日本主帅赛后回应淘汰出局](http://www.share.kurohicncr.top/Article/details/49428.shtml)
+- 2026-06-30 09:09 - [日本球迷输球后集体捡垃圾](http://www.blog.kurohicncr.top/Article/details/443241243430.shtml)

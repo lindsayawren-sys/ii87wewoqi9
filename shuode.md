@@ -1,61 +1,60 @@
-# 超280亿元资金，逆势加仓
+# 施宏俊谈巴菲特芒格定义的 “伟大”：人人日常所需、消费永续的生意，才是伟大的公司
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-6月9日，根据最新披露的ETF数据，在6月8日A股市场大幅回调中，股票型ETF获资金逆势加仓，单日净流入超过280亿元。宽基ETF“吸金”势头尤为明显，当天净流入额前十的ETF中，宽基产品占8只，均获超10亿元资金净流入，大小盘宽基ETF均有现身。 大小盘宽基均获青睐 6月8日获资金逆势净流入的ETF中，主投小盘股的中证1000ETF南方以单日净流入28.30亿元居于首位；主投
+专题：对话奥马哈·第十一届中美投资人酒会 由新浪财经主办的“对话奥马哈·第十一届中美投资人酒会”于当地时间5月2日在美国内布拉斯加·奥马哈市举办。 芒格书院创始人施宏俊在演讲中回顾了巴菲特的成长历程，他谈到，巴菲特的青年时代，也就是距今 70 年前的 1956 年。那一年，26 岁的巴菲特离开纽约恩师格雷厄姆的公司，回到家乡奥马哈。1956 年 5 月 1 日，巴菲特的第一家合
 
 ## 正文
 
-6月9日，根据最新披露的ETF数据，在6月8日A股市场大幅回调中，股票型ETF获资金逆势加仓，单日净流入超过280亿元。
+专题：对话奥马哈·第十一届中美投资人酒会 由新浪财经主办的“对话奥马哈·第十一届中美投资人酒会”于当地时间5月2日在美国内布拉斯加·奥马哈市举办。
 
-宽基ETF“吸金”势头尤为明显，当天净流入额前十的ETF中，宽基产品占8只，均获超10亿元资金净流入，大小盘宽基ETF均有现身。
+芒格书院创始人施宏俊在演讲中回顾了巴菲特的成长历程，他谈到，巴菲特的青年时代，也就是距今 70 年前的 1956 年。
 
-大小盘宽基均获青睐 6月8日获资金逆势净流入的ETF中，主投小盘股的中证1000ETF南方以单日净流入28.30亿元居于首位；主投大盘股的沪深300ETF华泰柏瑞紧随其后，净流入27.46亿元。
+那一年，26 岁的巴菲特离开纽约恩师格雷厄姆的公司，回到家乡奥马哈。
 
-两类代表性产品的受青睐程度几乎不相上下。
+1956 年 5 月 1 日，巴菲特的第一家合伙公司 —— 巴菲特联合公司正式成立。
 
-据Wind数据统计，6月8日当天，全市场15只中证1000ETF合计“吸金”超50亿元，30只沪深300ETF合计获超60亿元资金净流入。
+他最初找来的合伙人都是身边亲友：岳父、姑姑、姐姐与姐夫，还有大学室友和发小。
 
-而资金净流入额居前的恰恰是规模靠前的产品。
+这批合伙人一共出资 10 万美元，巴菲特自己再投入 100 美元，首期资金合计 100100 美元，就此创立了他第一家合伙公司。
 
-例如，单日净流入额居首位的中证1000ETF南方是同类产品中规模最大的基金，最新规模超过130亿元。
+他和有限合伙人约定：每年先给合伙人 4% 的固定利息；超出 4% 的投资收益部分，由巴菲特与合伙人五五分成，双方各拿 50%，这就是他最早的合伙模式。
 
-而以超60亿元规模居于第二位的中证1000ETF华夏，单日净流入金额14.24亿元，也排在第二位。
+他介绍，青年时期的巴菲特十分勤奋，1956 年一年内他就成立了三家合伙公司，后续又陆续设立两家。
 
 ## 相关推荐
 
-- 2026-06-30 08:42 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
-- 2026-06-30 08:39 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-30 08:38 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-30 09:00 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-30 08:37 - [现在叛逆期的孩子最怕的是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-30 08:53 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-30 08:45 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-30 08:49 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-30 08:47 - [勇士续约波尔津吉斯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-30 08:48 - [名记：灰熊将莫兰特交易至开拓者](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-30 08:57 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-30 08:47 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
-- 2026-06-30 08:42 - [世界杯巴拉圭点球淘汰德国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-30 08:44 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
-- 2026-06-30 08:55 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-30 08:58 - [存储芯片龙头提示风险](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-30 09:06 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
+- 2026-06-30 09:03 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-30 08:52 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-30 08:48 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
+- 2026-06-30 09:05 - [点球大战 残酷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-30 08:43 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
+- 2026-06-30 08:51 - [欧洲装一台空调有多难](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-30 08:42 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-30 08:57 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-30 09:03 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-30 08:55 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-30 09:08 - [武磊：巴西队赢的并不轻松](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-30 09:00 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:58 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/49737353493.shtml)
-- 2026-06-30 08:39 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/84940.shtml)
-- 2026-06-30 08:50 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/40385.shtml)
-- 2026-06-30 08:42 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/34871345558.shtml)
-- 2026-06-30 08:59 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/486597697.shtml)
-- 2026-06-30 08:39 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/5304392.shtml)
-- 2026-06-30 08:55 - [现在叛逆期的孩子最怕的是什么？](https://www.blog.kurohicncr.top/Article/details/26203.shtml)
-- 2026-06-30 08:46 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/951897424.shtml)
-- 2026-06-30 09:02 - [豆包收费了，你还会用吗？](https://www.share.kurohicncr.top/Article/details/51077184042.shtml)
-- 2026-06-30 09:00 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/2810338508.shtml)
-- 2026-06-30 08:48 - [存储芯片龙头提示风险](http://www.share.kurohicncr.top/Article/details/54938001587.shtml)
-- 2026-06-30 08:42 - [德国进球被吹](https://www.blog.kurohicncr.top/Article/details/31475.shtml)
-- 2026-06-30 08:49 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/4941453020.shtml)
-- 2026-06-30 08:56 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/50289.shtml)
-- 2026-06-30 09:00 - [人类...完蛋了...](http://www.share.minike.top/Article/details/17122.shtml)
+- 2026-06-30 08:42 - [库尼亚赛后伸五指嘲讽日本](https://www.share.minike.top/Article/details/743456242.shtml)
+- 2026-06-30 08:56 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/3547511091.shtml)
+- 2026-06-30 09:06 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/97276186.shtml)
+- 2026-06-30 09:11 - [佐野海舟远射破门](http://www.blog.minike.top/Article/details/746044.shtml)
+- 2026-06-30 09:08 - [曝iPhone18Pro机密文件现身暗网](http://www.blog.kurohicncr.top/Article/details/195966.shtml)
+- 2026-06-30 08:52 - [亚洲球队全部出局](http://www.share.kurohicncr.top/Article/details/0582346913.shtml)
+- 2026-06-30 08:51 - [曝灰熊将莫兰特交易至开拓者](https://www.blog.kurohicncr.top/Article/details/39346.shtml)
+- 2026-06-30 09:08 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/82751973759.shtml)
+- 2026-06-30 08:57 - [iPhoneUltra黑色机模](https://www.blog.minike.top/Article/details/970927.shtml)
+- 2026-06-30 08:57 - [网红峡谷5人溺亡 有人提醒会下雨](https://www.blog.minike.top/Article/details/6881532284.shtml)
+- 2026-06-30 09:04 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/6204044.shtml)
+- 2026-06-30 08:50 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/5690875.shtml)
+- 2026-06-30 08:59 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/8691194.shtml)
+- 2026-06-30 08:57 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/414549921586.shtml)
+- 2026-06-30 09:07 - [董卿父亲在报纸上发文悼念亡妻](http://www.share.minike.top/Article/details/38889922305.shtml)

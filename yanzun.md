@@ -1,58 +1,49 @@
-# 风格切换强信号？银行逆市4连涨，中行、建行携手新高，百亿银行ETF华宝（512800）再涨1.77%
+# 伯克希尔股东给与新CEO积极评价
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-银行接连逆市走强，今日百亿顶流银行ETF华宝（512800）场内价格再涨1.77%，稳步4连涨，站上半年线。 个股集体上涨，厦门银行大涨5.79%，青岛银行、齐鲁银行涨超4%，中信银行涨超3%，苏州银行、成都银行、兴业银行等10股涨超2%。国有大行亦表现不俗，工商银行、邮储银行涨近2%，中国银行、建设银行盘中齐探历史新高。 市场波动加剧，避险情绪升温，资金大举涌入银行。上交所数
+伯克希尔·哈撒韦股东在其首次作为CEO出席的年会上给予了格雷格·阿贝尔积极评价，凸显了他对运营的关注、公用事业领域的AI机遇以及对股票回购的谨慎立场。责任编辑：张俊 SF065
 
 ## 正文
 
-银行接连逆市走强，今日百亿顶流银行ETF华宝（512800）场内价格再涨1.77%，稳步4连涨，站上半年线。
+伯克希尔·哈撒韦股东在其首次作为CEO出席的年会上给予了格雷格·阿贝尔积极评价，凸显了他对运营的关注、公用事业领域的AI机遇以及对股票回购的谨慎立场。
 
-个股集体上涨，厦门银行大涨5.79%，青岛银行、齐鲁银行涨超4%，中信银行涨超3%，苏州银行、成都银行、兴业银行等10股涨超2%。
-
-国有大行亦表现不俗，工商银行、邮储银行涨近2%，中国银行、建设银行盘中齐探历史新高。
-
-市场波动加剧，避险情绪升温，资金大举涌入银行。
-
-上交所数据显示，512800近2日均有超2.6亿元资金增仓，近10日累计获资金净流入8.11亿元。
-
-中信建投证券认为，当前科技与红利两大风格极致分化，红利类资产阶段性跑赢，风格切换已经到中段。
-
-前期悲观定价较充分，部分科技类资金开始向银行进行切换，科技类筹码开始松动。
-
-* 行业消息方面，年度分红季来袭，截至目前已有17家上市银行披露2025年度权益分派实施公告，本周拟落地的7家上市银行合计派息达650.73亿元。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-30 08:47 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-30 08:45 - [德国 传控](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
-- 2026-06-30 08:42 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-30 09:05 - [电影抓特务上映11天破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-30 08:50 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
-- 2026-06-30 08:55 - [董路：谁赢谁是“正路子”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
-- 2026-06-30 08:42 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-30 08:54 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-30 08:36 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
-- 2026-06-30 09:03 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-30 09:05 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
-- 2026-06-30 09:03 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-30 09:07 - [德国巴拉圭 折磨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-30 09:04 - [教育部披露：高考生篡改7名同学志愿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-30 09:02 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-30 08:49 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
+- 2026-06-30 08:47 - [德国爆冷点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-30 09:02 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-30 09:09 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-30 08:50 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-30 09:05 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-30 08:59 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-30 08:54 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-30 08:44 - [4000美元是黄金新一轮下跌的开始吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-30 08:52 - [莫兰特被交易到开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
+- 2026-06-30 08:47 - [全新问界M9现身美国街头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-30 08:59 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:40 - [日本球迷被强行披上巴西国旗](https://www.share.kurohicncr.top/Article/details/82679.shtml)
-- 2026-06-30 08:37 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/55394174732.shtml)
-- 2026-06-30 08:45 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/121982.shtml)
-- 2026-06-30 08:39 - [森保一致歉：世界第一目标没能实现](http://www.share.kurohicncr.top/Article/details/76378.shtml)
-- 2026-06-30 08:45 - [《共患难》](https://www.blog.minike.top/Article/details/71240.shtml)
-- 2026-06-30 08:59 - [上市央企地产商 两年换了三任董事长](https://www.blog.minike.top/Article/details/95580430473.shtml)
-- 2026-06-30 08:51 - [巴西绝杀](http://www.blog.kurohicncr.top/Article/details/1197018.shtml)
-- 2026-06-30 08:54 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/44714.shtml)
-- 2026-06-30 08:43 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/4091297529.shtml)
-- 2026-06-30 09:03 - [世界杯](http://www.share.kurohicncr.top/Article/details/004991411.shtml)
-- 2026-06-30 08:43 - [高质量发展看新疆](http://www.blog.kurohicncr.top/Article/details/2793349.shtml)
-- 2026-06-30 08:44 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/68967450641.shtml)
-- 2026-06-30 08:49 - [王楚钦说配合稍微有些陌生感](http://www.share.minike.top/Article/details/8510838827.shtml)
-- 2026-06-30 08:59 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.minike.top/Article/details/59884730.shtml)
-- 2026-06-30 08:59 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/394955.shtml)
+- 2026-06-30 08:54 - [巴拉圭先进球了](https://www.blog.kurohicncr.top/Article/details/649224032637.shtml)
+- 2026-06-30 09:07 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/89488048415.shtml)
+- 2026-06-30 09:01 - [穆祉丞回应获年度人气艺人](https://www.blog.minike.top/Article/details/3057786936.shtml)
+- 2026-06-30 08:59 - [巴西vs日本](https://www.blog.minike.top/Article/details/72551.shtml)
+- 2026-06-30 09:00 - [点球大战和诺伊尔都救不回德国队](https://www.share.kurohicncr.top/Article/details/0490218.shtml)
+- 2026-06-30 08:46 - [为什么会有「念旧」的心理？](http://www.blog.kurohicncr.top/Article/details/71171060208.shtml)
+- 2026-06-30 08:51 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://www.share.kurohicncr.top/Article/details/310853.shtml)
+- 2026-06-30 08:55 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/34563.shtml)
+- 2026-06-30 08:58 - [IGN评测电影版后室](http://www.blog.kurohicncr.top/Article/details/1369240.shtml)
+- 2026-06-30 08:46 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://www.share.minike.top/Article/details/750074113.shtml)
+- 2026-06-30 09:02 - [点球大战](https://www.blog.minike.top/Article/details/575972793325.shtml)
+- 2026-06-30 08:55 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/49293859.shtml)
+- 2026-06-30 08:56 - [为什么纣王似乎对周文王的扩张完全无动于衷？](http://www.blog.kurohicncr.top/Article/details/584399345.shtml)
+- 2026-06-30 08:47 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/36636152828.shtml)
+- 2026-06-30 09:09 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/23718825562.shtml)

@@ -1,59 +1,56 @@
-# 受中东能源冲击影响，美国5月通胀率攀升至4.2%
+# 乌梁素海“五一”见闻：湖清鸟归游人至 7船日入4万元
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-受中东局势持续推高物价影响，美国5月通胀率攀升至4.2%，创三年新高。 美国劳工统计局周三公布的数据，与彭博社对经济学家的调查预期一致，较4月3.8%的同比涨幅有所上升。 剔除波动较大的食品和能源价格后，核心通胀率为2.9%，高于前一个月的2.8%。 自2月底冲突爆发以来，通胀压力急剧上升，当时通胀率仅为2.4%。美国汽车协会（AAA）的数据显示，汽油和柴油价格已上涨约40%。
+中新网巴彦淖尔5月4日电 题：乌梁素海“五一”见闻：湖清鸟归游人至 7船日入4万元 中新网记者 张林虎 “五一”假期，内蒙古自治区巴彦淖尔市乌拉特前旗的乌梁素海湖面上，游船穿梭如织，停车场一位难求。操着各地口音的游客，在这片被称为“塞外明珠”的水域流连忘返。 “昨天客流量比去年同期增长18%，营业额增长44%。截至5月3日下午，我们的营业额已达去年同期的93%，今年的总收入肯定
 
 ## 正文
 
-受中东局势持续推高物价影响，美国5月通胀率攀升至4.2%，创三年新高。
+中新网巴彦淖尔5月4日电 题：乌梁素海“五一”见闻：湖清鸟归游人至 7船日入4万元 中新网记者 张林虎 “五一”假期，内蒙古自治区巴彦淖尔市乌拉特前旗的乌梁素海湖面上，游船穿梭如织，停车场一位难求。
 
-美国劳工统计局周三公布的数据，与彭博社对经济学家的调查预期一致，较4月3.8%的同比涨幅有所上升。
+操着各地口音的游客，在这片被称为“塞外明珠”的水域流连忘返。
 
-剔除波动较大的食品和能源价格后，核心通胀率为2.9%，高于前一个月的2.8%。
+“昨天客流量比去年同期增长18%，营业额增长44%。
 
-自2月底冲突爆发以来，通胀压力急剧上升，当时通胀率仅为2.4%。
+截至5月3日下午，我们的营业额已达去年同期的93%，今年的总收入肯定会超过去年。
 
-美国汽车协会（AAA）的数据显示，汽油和柴油价格已上涨约40%。
+”乌梁素海生态旅游景区执行总经理聂鹏看着实时数据，满心欢喜。
 
-5月，燃油价格仍是推高通胀的主要因素，能源价格贡献了当月0.5%环比涨幅的60%以上。
+乌梁素海是黄河流域最大的淡水湖，也是地球同一纬度最大的湿地。
 
-冲突引发的通胀压力已扩散至美国经济的其他领域，全美食品等商品运输成本不断攀升。
+前些年，因过度开垦和污水排放，乌梁素海生态一度恶化。
 
-美国民众对特朗普政府在此次冲突中的国内影响处理方式愈发不满。
+随着山水林田湖草沙一体化治理工程推进，乌梁素海水质从劣Ⅴ类提升到整体Ⅴ类、局部Ⅳ类，湖区面积稳定在293平方公里，每年有60多万只鸟类在此栖息繁衍。
 
 ## 相关推荐
 
-- 2026-06-30 08:39 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-30 08:47 - [日本博主：日本足球真的垃圾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-30 08:42 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
-- 2026-06-30 08:48 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-30 08:58 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-30 09:03 - [德国进球被吹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
-- 2026-06-30 09:00 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-30 08:39 - [曝老詹对自由市场态度与以往截然不同](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-30 08:50 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-30 08:57 - [萨内 看笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-30 08:54 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-30 09:04 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-30 08:37 - [杨紫大银幕成绩单如何](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-30 08:58 - [全球芯片巨头史诗级扩产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-30 08:57 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-30 09:10 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-30 09:05 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-30 09:09 - [莫兰特被交易到开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
+- 2026-06-30 08:58 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-30 08:51 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-30 09:06 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-30 09:01 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-30 08:48 - [德国队回应爆冷淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:48 - [全新问界M9现身美国街头](https://www.share.kurohicncr.top/Article/details/448491127489.shtml)
-- 2026-06-30 09:02 - [媒体评泰山建135公里刀片刺绳隔离网](http://www.blog.kurohicncr.top/Article/details/1022039.shtml)
-- 2026-06-30 08:42 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/263407949546.shtml)
-- 2026-06-30 08:47 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/2442423384.shtml)
-- 2026-06-30 08:53 - [日本球迷被强行披上巴西国旗](http://www.blog.kurohicncr.top/Article/details/90549.shtml)
-- 2026-06-30 08:38 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/02951175428.shtml)
-- 2026-06-30 08:48 - [德国爆冷点球大战不敌巴拉圭](http://www.share.kurohicncr.top/Article/details/09788.shtml)
-- 2026-06-30 08:47 - [中国新一轮出口管制直指日本命脉](http://www.share.minike.top/Article/details/4708610814.shtml)
-- 2026-06-30 09:02 - [德国巴拉圭进入点球大战](https://www.blog.kurohicncr.top/Article/details/04664739030.shtml)
-- 2026-06-30 09:02 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/24530614928.shtml)
-- 2026-06-30 08:44 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/3414908.shtml)
-- 2026-06-30 08:46 - [森保一致歉：世界第一目标没能实现](https://www.share.minike.top/Article/details/87919496.shtml)
-- 2026-06-30 09:03 - [德国队世界杯点球大战首败](https://www.share.minike.top/Article/details/016735.shtml)
-- 2026-06-30 08:37 - [逃狱兄弟](https://www.blog.minike.top/Article/details/86571.shtml)
-- 2026-06-30 08:56 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/280920158884.shtml)
+- 2026-06-30 09:05 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/265423646.shtml)
+- 2026-06-30 08:59 - [日本球迷输球后集体捡垃圾](http://www.blog.kurohicncr.top/Article/details/54532.shtml)
+- 2026-06-30 08:52 - [杨紫获白玉兰视后争议不止](https://www.share.kurohicncr.top/Article/details/315763487210.shtml)
+- 2026-06-30 08:46 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/80885573.shtml)
+- 2026-06-30 08:58 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/343408212226.shtml)
+- 2026-06-30 09:01 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/60493296.shtml)
+- 2026-06-30 08:59 - [本届世界杯已有5名球员被控强奸](https://www.blog.minike.top/Article/details/071456.shtml)
+- 2026-06-30 08:50 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/52753939968.shtml)
+- 2026-06-30 08:49 - [补时绝杀 巴西2-1淘汰日本](https://www.share.kurohicncr.top/Article/details/2143518337.shtml)
+- 2026-06-30 09:10 - [巴西扳平比分](http://www.blog.kurohicncr.top/Article/details/0161139058.shtml)
+- 2026-06-30 08:51 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/6987556283.shtml)
+- 2026-06-30 08:52 - [全新问界M9现身美国街头](http://www.share.kurohicncr.top/Article/details/1695991.shtml)
+- 2026-06-30 08:53 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/879794871.shtml)
+- 2026-06-30 09:00 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/28434090198.shtml)
+- 2026-06-30 08:45 - [《共患难》](http://www.share.minike.top/Article/details/554928284.shtml)

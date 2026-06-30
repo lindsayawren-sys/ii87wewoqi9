@@ -1,58 +1,58 @@
-# Meta将利用企业数据进一步实现内容个性化
+# 人民日报评论员：坚持不懈，提升我国原始创新能力——论学习贯彻习近平总书记在加强基础研究座谈会上重要讲话
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-Meta Platforms计划利用其从商家处收集的数据，来进一步个性化用户在其社交媒体平台上看到的内容。 Meta周二表示，将利用商家已发送给它的数据，例如用户玩的游戏或在其他网站上进行的购买，来个性化用户在社交媒体信息流中看到的内容以及由人工智能生成的回应。例如，一位最近在网上购买了帐篷的用户，可能会看到更多关于露营的短视频。 这家长期以来一直利用其他商家数据投放定向广告的
+新华社北京5月3日电 人民日报5月4日评论员文章：坚持不懈，提升我国原始创新能力 ——论学习贯彻习近平总书记在加强基础研究座谈会上重要讲话 立足“十五五”这一夯实基础、全面发力的关键时期，如何全面加强基础研究、提升我国原始创新能力？习近平总书记在加强基础研究座谈会上作出全面部署，强调“一体推进教育科技人才发展”“加强对基础研究的支持保障”“深化基础研究国际交流合作”。 原始创新
 
 ## 正文
 
-Meta Platforms计划利用其从商家处收集的数据，来进一步个性化用户在其社交媒体平台上看到的内容。
+新华社北京5月3日电 人民日报5月4日评论员文章：坚持不懈，提升我国原始创新能力 ——论学习贯彻习近平总书记在加强基础研究座谈会上重要讲话 立足“十五五”这一夯实基础、全面发力的关键时期，如何全面加强基础研究、提升我国原始创新能力？
 
-Meta周二表示，将利用商家已发送给它的数据，例如用户玩的游戏或在其他网站上进行的购买，来个性化用户在社交媒体信息流中看到的内容以及由人工智能生成的回应。
+习近平总书记在加强基础研究座谈会上作出全面部署，强调“一体推进教育科技人才发展”“加强对基础研究的支持保障”“深化基础研究国际交流合作”。
 
-例如，一位最近在网上购买了帐篷的用户，可能会看到更多关于露营的短视频。
+原始创新是“从0到1”的创新，是科技创新的“源头活水”。
 
-这家长期以来一直利用其他商家数据投放定向广告的公司表示，此次更新不会收集任何新的数据。
+党的十八大以来，在以习近平同志为核心的党中央坚强领导下，我们顺应新一轮科技革命和产业变革大趋势，强化科学研究、技术开发原始创新导向，成功组织一批重大基础研究任务，在量子科技、材料科学、物质科学、生物科学、空间科学、人工智能等基础前沿方向产出一批重大原创成果。
 
-该公司在一篇博客文章中表示：“此举旨在利用商家已发送给我们的信息，进一步改善您的体验。
+我国基础研究和原始创新能力不断提升，正在从“点的突破”迈向“系统能力提升”。
 
-” 作为此次更新的一部分，Meta表示还将精简其设置选项，以便用户控制该公司如何获取和使用其他商家分享的数据。
+当前，世界已经进入大科学时代，科学研究向极宏观拓展、向极微观深入、向极端条件迈进、向极综合交叉发力。
 
-Meta表示将停止提供“Meta平台外动态”设置，该设置允许用户将商家与公司分享的动态与自己的账户解除关联。
+应对国际科技竞争、实现高水平科技自立自强，推动构建新发展格局、实现高质量发展，迫切需要我们加强基础研究，从源头和底层解决关键技术问题。
 
-该公司表示，将转而扩展“来自其他商家的动态”设置，允许用户选择是否允许Meta使用这些数据来展示更个性化的内容和广告。
+锚定2035年建成科技强国的战略目标，着力提升原始创新能力，才能支撑经济实力、科技实力、国防实力、综合国力整体跃升，才能以更多重大原始创新和关键核心技术突破为人类文明进步作出新的更大贡献。
 
 ## 相关推荐
 
-- 2026-06-30 08:44 - [森保一致歉：世界第一目标没能实现](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-30 09:00 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
-- 2026-06-30 08:45 - [日本队主帅道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-30 08:47 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
-- 2026-06-30 08:49 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
-- 2026-06-30 08:45 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-30 08:46 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-30 08:44 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-30 08:50 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-30 08:55 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-30 08:49 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
-- 2026-06-30 08:56 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-30 09:06 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-30 08:48 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-30 09:05 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
+- 2026-06-30 08:46 - [泰山景区建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-30 09:11 - [板面：为什么那么多人爱吃？？！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-30 08:52 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-30 09:00 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-30 08:59 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
+- 2026-06-30 09:01 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-30 08:59 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-30 08:43 - [王濛回复黄灿灿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-30 08:58 - [iPhoneUltra黑色机模](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:57 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/510496320754.shtml)
-- 2026-06-30 08:56 - [第一炉香](https://www.share.kurohicncr.top/Article/details/89912444.shtml)
-- 2026-06-30 08:55 - [本届世界杯已有5名球员被控强奸](http://www.blog.kurohicncr.top/Article/details/353473.shtml)
-- 2026-06-30 08:41 - [日本球迷被强行披上巴西国旗](https://www.blog.minike.top/Article/details/1741338.shtml)
-- 2026-06-30 08:50 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/57510966401.shtml)
-- 2026-06-30 08:43 - [锐评：网红不能困在无底线逐利里](http://www.blog.minike.top/Article/details/985267526709.shtml)
-- 2026-06-30 08:58 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/76964.shtml)
-- 2026-06-30 08:47 - [杨紫肖战余生请多指教拍立得](http://www.share.kurohicncr.top/Article/details/85699467341.shtml)
-- 2026-06-30 08:54 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/1226490080.shtml)
-- 2026-06-30 08:38 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/058545933.shtml)
-- 2026-06-30 09:03 - [荷兰vs摩洛哥](https://www.share.kurohicncr.top/Article/details/764507277578.shtml)
-- 2026-06-30 08:42 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/748764.shtml)
-- 2026-06-30 08:40 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/3764615651.shtml)
-- 2026-06-30 08:51 - [泰山景区回应修建刀片刺绳隔离网](http://www.blog.minike.top/Article/details/3463655433.shtml)
-- 2026-06-30 08:44 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/937721725930.shtml)
+- 2026-06-30 09:11 - [德国巴拉圭进入点球大战](https://www.blog.kurohicncr.top/Article/details/994602800915.shtml)
+- 2026-06-30 08:52 - [吴易昺不敌德约科维奇 止步温网首轮](http://www.share.kurohicncr.top/Article/details/3001251786.shtml)
+- 2026-06-30 08:50 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/865479957.shtml)
+- 2026-06-30 08:49 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/8339375.shtml)
+- 2026-06-30 08:53 - [小娘惹](https://www.share.kurohicncr.top/Article/details/257433643063.shtml)
+- 2026-06-30 08:51 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.kurohicncr.top/Article/details/4654042539.shtml)
+- 2026-06-30 09:00 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.kurohicncr.top/Article/details/6739369632.shtml)
+- 2026-06-30 08:47 - [萨内 看笑了](https://www.share.minike.top/Article/details/67012147.shtml)
+- 2026-06-30 09:02 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/2204200.shtml)
+- 2026-06-30 08:43 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/5886546157.shtml)
+- 2026-06-30 08:43 - [《贺子珍》](http://www.blog.minike.top/Article/details/644795760682.shtml)
+- 2026-06-30 08:56 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](http://www.blog.minike.top/Article/details/4509202.shtml)
+- 2026-06-30 08:55 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/992882.shtml)
+- 2026-06-30 08:53 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.kurohicncr.top/Article/details/100012143391.shtml)
+- 2026-06-30 09:08 - [索马里女大使：想和中国一起搞事业](https://www.blog.kurohicncr.top/Article/details/58396652007.shtml)

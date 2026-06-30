@@ -1,61 +1,50 @@
-# 活力中国调研行｜一枚光谱芯片如何让水会“说话”
+# 三星电子任命新的视觉显示业务负责人
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-水会“说话”吗？在北京市海淀区五道口的AI原点社区，“活力中国调研行”记者团不仅“听”到了答案，还看到了水“说话”的样子。 走进芯视界(北京)科技有限公司的展厅，工作人员指着屏幕上一条不断波动的曲线说：“这就是北京南沙河的水正在‘告诉’我们的话，它的温度、浊度、溶解氧，甚至哪一段河道可能出现了异常情况，我们都能迅速知道。” 这条曲线展示的数据，来源于一枚比指甲盖还小的芯片。它被
+韩国三星电子周一宣布了一项领导层调整，任命新的视觉显示业务负责人以应对当前挑战。 此次调整后，原全球营销办公室负责人Lee Won-jin，将正式出任该业务部门负责人。 三星在一份声明中表示：“凭借其过往的商业成就和市场洞察力，Lee Won-jin，有望带领团队扭转业务颓势，发掘新的增长点，从而进一步提升视觉显示业务的竞争力。”责任编辑：于健 SF069
 
 ## 正文
 
-水会“说话”吗？
+韩国三星电子周一宣布了一项领导层调整，任命新的视觉显示业务负责人以应对当前挑战。
 
-在北京市海淀区五道口的AI原点社区，“活力中国调研行”记者团不仅“听”到了答案，还看到了水“说话”的样子。
+此次调整后，原全球营销办公室负责人Lee Won-jin，将正式出任该业务部门负责人。
 
-走进芯视界(北京)科技有限公司的展厅，工作人员指着屏幕上一条不断波动的曲线说：“这就是北京南沙河的水正在‘告诉’我们的话，它的温度、浊度、溶解氧，甚至哪一段河道可能出现了异常情况，我们都能迅速知道。
+三星在一份声明中表示：“凭借其过往的商业成就和市场洞察力，Lee Won-jin，有望带领团队扭转业务颓势，发掘新的增长点，从而进一步提升视觉显示业务的竞争力。
 
-” 这条曲线展示的数据，来源于一枚比指甲盖还小的芯片。
-
-它被封装在一个便携保温壶大小的智能监测终端里，布设在北京多条河流中。
-
-“这枚芯片可以识别水中不同物质独特的光谱‘指纹’。
-
-”公司副总裁孙常库拿起一枚芯片向记者展示，“它能在数秒内完成水环境中特征污染物的监测。
-
-” 传统的河流水质状况监测，往往依靠人工巡河或固定站房采样。
+”责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-30 09:00 - [泰山景区建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
-- 2026-06-30 08:42 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-30 08:55 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
-- 2026-06-30 08:46 - [莫兰特转投开拓者效力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
-- 2026-06-30 09:00 - [德国连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
-- 2026-06-30 08:48 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
-- 2026-06-30 09:00 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-30 08:55 - [穆祉丞回应获年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
-- 2026-06-30 08:46 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
-- 2026-06-30 08:38 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
-- 2026-06-30 08:36 - [点球大战 残酷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-30 08:51 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-30 08:50 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
-- 2026-06-30 08:58 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-30 08:59 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-30 08:46 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-30 09:04 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-30 09:02 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-30 09:09 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-30 09:10 - [三星投资计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
+- 2026-06-30 09:01 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-30 09:11 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-30 09:06 - [人民锐评网红诋毁袁隆平造谣企业家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-30 08:48 - [孙颖莎王楚钦晋级8强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
+- 2026-06-30 09:06 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-30 09:02 - [网红不能困在无底线逐利里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-30 09:07 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:46 - [金刚川](http://www.blog.kurohicncr.top/Article/details/40783820.shtml)
-- 2026-06-30 08:45 - [巴西绝杀日本](https://www.share.kurohicncr.top/Article/details/7208419.shtml)
-- 2026-06-30 08:53 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/062102590388.shtml)
-- 2026-06-30 08:41 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/888627.shtml)
-- 2026-06-30 08:47 - [天道](http://www.blog.kurohicncr.top/Article/details/5700789.shtml)
-- 2026-06-30 08:53 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/3441453.shtml)
-- 2026-06-30 08:49 - [为什么会有「念旧」的心理？](http://www.blog.minike.top/Article/details/6070491.shtml)
-- 2026-06-30 08:38 - [哈弗茨头球破门](https://www.blog.minike.top/Article/details/14519735.shtml)
-- 2026-06-30 08:39 - [扬名立万](https://www.share.kurohicncr.top/Article/details/080050320795.shtml)
-- 2026-06-30 08:51 - [内马尔替补](https://www.blog.minike.top/Article/details/041552026.shtml)
-- 2026-06-30 08:41 - [德国爆冷点球大战不敌巴拉圭](http://www.blog.minike.top/Article/details/0425436.shtml)
-- 2026-06-30 08:47 - [沙丘](https://www.share.kurohicncr.top/Article/details/81566763.shtml)
-- 2026-06-30 08:43 - [日耳曼拖拉机](http://www.share.minike.top/Article/details/64708.shtml)
-- 2026-06-30 09:01 - [博世们还在犹豫 美的们已经卖断货](http://www.share.minike.top/Article/details/438439477.shtml)
-- 2026-06-30 08:52 - [点球大战和诺伊尔都救不回德国队](http://www.blog.kurohicncr.top/Article/details/25421918.shtml)
+- 2026-06-30 08:56 - [武磊：巴西队赢的并不轻松](https://www.blog.minike.top/Article/details/63353024.shtml)
+- 2026-06-30 09:05 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/76810642301.shtml)
+- 2026-06-30 08:52 - [日本主帅：未能夺冠深感抱歉](https://www.share.minike.top/Article/details/771156.shtml)
+- 2026-06-30 09:06 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/4001487129.shtml)
+- 2026-06-30 08:50 - [韩国世界杯出局是主帅一个人的锅吗](https://www.share.minike.top/Article/details/112036.shtml)
+- 2026-06-30 08:58 - [追梦拒绝2770万美元球员选项](https://www.share.kurohicncr.top/Article/details/802668.shtml)
+- 2026-06-30 09:09 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/7536434.shtml)
+- 2026-06-30 08:59 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/034778.shtml)
+- 2026-06-30 08:58 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/69656917.shtml)
+- 2026-06-30 09:03 - [张雪的一句“是我们”引发岛内热议](http://www.share.kurohicncr.top/Article/details/117911.shtml)
+- 2026-06-30 08:43 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/4919805835.shtml)
+- 2026-06-30 09:08 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/2867626.shtml)
+- 2026-06-30 08:55 - [Melo向柳智敏张元英道歉](https://www.share.kurohicncr.top/Article/details/3380049.shtml)
+- 2026-06-30 09:01 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/499906816486.shtml)
+- 2026-06-30 09:04 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/603550264484.shtml)

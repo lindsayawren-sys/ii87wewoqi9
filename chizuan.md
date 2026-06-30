@@ -1,57 +1,61 @@
-# 瑞典养老金基金遴选负责人希望将私募信贷拒之门外
+# “95后”基金经理，闪亮登场：博道刘兆阳、摩根韩秀一、永赢孙铭婉、国泰彭悦、平安金溪寒、金鹰吴海峰等
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-负责决定瑞典人如何投资大部分养老金储蓄的最高官员表示，他反对向养老金储户开放私募市场基金投资渠道。 当被问及瑞典的个人账户养老金体系是否可能向包括私募信贷在内的这类资产开放时，瑞典基金遴选局（Swedish Fund Selection Agency）负责人Erik Fransson在接受采访时表示，“我看不到这种可能性 —— 即便有可能，那也是很久以后的事。”他表示，“具有每
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！随着公募行业快速发展，一批“95后”基金经理已经闪亮登场。 他们有的拥抱量化指数投资领域，深耕投资策略，以专业性和纪律性，为投资者打造具备长久生命力的投资工具。 有的从行业研究起步，在学习中持续进步，紧跟产业变化，不断拓展能力圈，对资产的风险收益特征建立认知，通过组合构建实现认知变现。 指数量化“新秀”迭起
 
 ## 正文
 
-负责决定瑞典人如何投资大部分养老金储蓄的最高官员表示，他反对向养老金储户开放私募市场基金投资渠道。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-当被问及瑞典的个人账户养老金体系是否可能向包括私募信贷在内的这类资产开放时，瑞典基金遴选局（Swedish Fund Selection Agency）负责人Erik Fransson在接受采访时表示，“我看不到这种可能性 —— 即便有可能，那也是很久以后的事。
+随着公募行业快速发展，一批“95后”基金经理已经闪亮登场。
 
-”他表示，“具有每日流动性的私募市场结构通常容易带来麻烦。
+他们有的拥抱量化指数投资领域，深耕投资策略，以专业性和纪律性，为投资者打造具备长久生命力的投资工具。
 
-” 该机构简称为FTN，负责决定哪些资产管理公司和基金可以进入瑞典所谓的个人账户养老金平台。
+有的从行业研究起步，在学习中持续进步，紧跟产业变化，不断拓展能力圈，对资产的风险收益特征建立认知，通过组合构建实现认知变现。
 
-FTN代表储户监管约3万亿瑞典克朗（3150亿美元）的资产。
+指数量化“新秀”迭起 近年来，国内指数和量化投资的兴起，吸引了一大批新生力量，“95后”指数量化基金经理已成为公募行业重要的新生派代表。
 
-这些储户必须将工资的2.5%缴入该体系，但可以在获批基金中自行选择投资去向。
+博道基金量化投资部总经理助理、基金经理刘兆阳从清华大学硕士毕业后，成为博道基金量化团队的一员。
 
-Fransson表示，获得私募市场敞口的更好方式，是通过AP7等专业管理的投资工具；AP7为国有机构，负责投资养老金储户2.5%缴款中未自行选择投资的那部分资金。
+博道基金量化团队的运作机制备受刘兆阳认可：“团队整体采取分工协作、投研一体的模式，通过合理的考核机制和严格的研究目标，确保所有人员在研究方向上的产出竞争力。
 
-“极少有个人投资者有能力识别合适的私募市场投资，或充分理解风险与回报之间的平衡，”他表示。
+这样既能充分激发团队成员积极性，鼓励大家在专业领域内不断深入拓展，又能将个人能力转化为团队的核心竞争力。
 
 ## 相关推荐
 
-- 2026-06-30 08:38 - [德国爆冷点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-30 08:53 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-30 08:54 - [媒体：手机测评该挤挤水分了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-30 08:42 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
-- 2026-06-30 08:57 - [郑钦文 四年一轮游](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
-- 2026-06-30 08:52 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-30 08:51 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-30 08:44 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-30 08:54 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-30 08:38 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-30 08:55 - [恋与深空道歉声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-30 08:49 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-30 09:05 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-30 09:03 - [收到补税提醒尽快办理 明起有滞纳金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-30 09:09 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-30 08:49 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
+- 2026-06-30 08:52 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-30 08:44 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-30 08:43 - [马航370搜寻最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
+- 2026-06-30 09:09 - [点球大战 残酷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-30 08:50 - [日本队被绝杀后鞠躬致谢观众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-30 08:42 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-30 08:44 - [德国北部枪击事件致5死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-30 08:59 - [锐评T1战胜KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-30 08:50 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-30 09:06 - [iPhone18e曝光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:51 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/657070402353.shtml)
-- 2026-06-30 08:51 - [内马尔未登场 安切洛蒂赛后回应](https://www.blog.kurohicncr.top/Article/details/98241.shtml)
-- 2026-06-30 08:46 - [这一刀 会很帅](http://www.share.minike.top/Article/details/206745612561.shtml)
-- 2026-06-30 09:01 - [勇士续约波尔津吉斯](https://www.blog.minike.top/Article/details/89826.shtml)
-- 2026-06-30 08:37 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.minike.top/Article/details/0838600189.shtml)
-- 2026-06-30 08:43 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/2135428213.shtml)
-- 2026-06-30 08:43 - [日本将帅赛后采访纷纷哽咽落泪](http://www.blog.minike.top/Article/details/753082.shtml)
-- 2026-06-30 09:06 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/5758730573.shtml)
-- 2026-06-30 08:47 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/83562.shtml)
-- 2026-06-30 08:47 - [德国淘汰](https://www.share.minike.top/Article/details/904937.shtml)
-- 2026-06-30 08:44 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/54461941.shtml)
-- 2026-06-30 08:56 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/9199208339.shtml)
-- 2026-06-30 08:58 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/45828.shtml)
-- 2026-06-30 09:01 - [莫兰特转投开拓者效力](https://www.share.minike.top/Article/details/42629594176.shtml)
-- 2026-06-30 08:38 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/83520389.shtml)
+- 2026-06-30 08:47 - [韩国球迷凌晨4点接机怒骂主教练](http://www.blog.minike.top/Article/details/4329682.shtml)
+- 2026-06-30 08:48 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/3391982.shtml)
+- 2026-06-30 09:06 - [网红不能困在无底线逐利里](http://www.share.minike.top/Article/details/061493.shtml)
+- 2026-06-30 09:00 - [小娘惹](http://www.share.minike.top/Article/details/0472962914.shtml)
+- 2026-06-30 08:49 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/0865291.shtml)
+- 2026-06-30 09:00 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/26993.shtml)
+- 2026-06-30 09:07 - [人民锐评网红诋毁袁隆平造谣企业家](https://www.blog.kurohicncr.top/Article/details/084946981.shtml)
+- 2026-06-30 09:02 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/6301885444.shtml)
+- 2026-06-30 08:46 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.share.minike.top/Article/details/50461256279.shtml)
+- 2026-06-30 08:57 - [巴西绝杀](http://www.share.kurohicncr.top/Article/details/166532887.shtml)
+- 2026-06-30 08:47 - [时光音乐会](http://www.share.minike.top/Article/details/26766.shtml)
+- 2026-06-30 08:55 - [大蒜晒外面被路过女子连盆端走](http://www.blog.minike.top/Article/details/419054710383.shtml)
+- 2026-06-30 08:57 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/15948998432.shtml)
+- 2026-06-30 08:50 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/37532979.shtml)
+- 2026-06-30 08:57 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/65362361090.shtml)

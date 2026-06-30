@@ -1,58 +1,50 @@
-# Wealthfront因存款流失与房贷关联交易遭多律所证券欺诈调查
+# 贵州凯里：乘客突然晕倒 公交车秒变“救护车”
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 数字财富管理平台Wealthfront近日接连遭遇两次重大信息披露冲击，引发多家律师事务所启动证券欺诈调查。 2026年1月12日，Wealthfront发布第三财季财报，披露净存款流出高达2.08亿美元，与上年同期8.74亿美元净流入形成鲜明对比。在随后的财报电话会上，公司首席执行官David Fortunato将存款放缓归因
+发布时间：2026年05月04日 09:56 来源：中国新闻网 5月1日，贵州凯里，一男孩随母乘车时突然晕倒失去意识，家属焦急万分。危急时刻，凯里公交3路驾驶员田明在征得全车乘客理解后，打开双闪，在确保安全的前提下将公交车直接开进医院，为救治赢得了宝贵时间。在医院工作人员的帮助下，男孩得到及时救治，之后田明又按规范恢复运营。(作者：周光成 何金平） 责任编辑：【魏聪聪】
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 数字财富管理平台Wealthfront近日接连遭遇两次重大信息披露冲击，引发多家律师事务所启动证券欺诈调查。
+发布时间：2026年05月04日 09:56 来源：中国新闻网 5月1日，贵州凯里，一男孩随母乘车时突然晕倒失去意识，家属焦急万分。
 
-2026年1月12日，Wealthfront发布第三财季财报，披露净存款流出高达2.08亿美元，与上年同期8.74亿美元净流入形成鲜明对比。
+危急时刻，凯里公交3路驾驶员田明在征得全车乘客理解后，打开双闪，在确保安全的前提下将公交车直接开进医院，为救治赢得了宝贵时间。
 
-在随后的财报电话会上，公司首席执行官David Fortunato将存款放缓归因于利率下降，并强调新推出的住房贷款业务对于应对这一趋势至关重要。
+在医院工作人员的帮助下，男孩得到及时救治，之后田明又按规范恢复运营。
 
-Fortunato同时透露，其个人持有Wealthfront住房贷款业务95.1%的股权，并表示公司可能“重新审视或修改所有权结构”。
-
-受此消息影响，Wealthfront股价次日下跌2.12美元，跌幅16.8%，收于10.47美元。
-
-2026年6月4日，公司发布第一财季财报，进一步揭示总净存款同比大幅下降69%至5.54亿美元。
-
-毛利率同比下滑，部分原因被归结为“与Wealthfront住房贷款相关的初创费用”。
-
-该消息导致股价再跌1.65美元，跌幅14.35%，收于9.85美元，目前已进一步跌至约8.62美元。
+(作者：周光成 何金平） 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-30 08:49 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-30 09:02 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-30 08:41 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-30 09:00 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-30 09:00 - [教育部披露：高考生篡改7名同学志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-30 09:00 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-30 08:46 - [陈幸同晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-30 08:58 - [德国连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
-- 2026-06-30 08:57 - [锐评T1战胜KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-30 08:39 - [日本球迷输球后集体捡垃圾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-30 08:47 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
-- 2026-06-30 08:47 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
+- 2026-06-30 08:50 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-30 09:11 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-30 08:55 - [为什么小组赛出局会让韩国人破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-30 09:04 - [4000美元是黄金新一轮下跌的开始吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-30 08:51 - [自然光｜papi酱&窦文涛：驴与跑步机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-30 08:42 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-30 08:43 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-30 09:01 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-30 08:47 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-30 09:05 - [网红不能困在无底线逐利里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-30 09:01 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-30 09:01 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:53 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.minike.top/Article/details/8932283.shtml)
-- 2026-06-30 08:39 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/1754955665.shtml)
-- 2026-06-30 08:54 - [DeepSeek启动成立来最大规模招聘](http://www.blog.kurohicncr.top/Article/details/82425330668.shtml)
-- 2026-06-30 08:52 - [王欣瑜连续4年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/33567826.shtml)
-- 2026-06-30 08:57 - [城市规划有可能成为「屎山代码」吗？](http://www.blog.kurohicncr.top/Article/details/2304273972.shtml)
-- 2026-06-30 08:40 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](https://www.blog.minike.top/Article/details/267969.shtml)
-- 2026-06-30 08:46 - [日本队被绝杀后鞠躬致谢观众](https://www.share.kurohicncr.top/Article/details/56931.shtml)
-- 2026-06-30 08:44 - [勇士续约波尔津吉斯](https://www.blog.kurohicncr.top/Article/details/534962120587.shtml)
-- 2026-06-30 08:47 - [点球大战](https://www.blog.minike.top/Article/details/1976250581.shtml)
-- 2026-06-30 08:49 - [电影抓特务上映11天破亿](http://www.share.kurohicncr.top/Article/details/9799174.shtml)
-- 2026-06-30 08:52 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.minike.top/Article/details/58935050.shtml)
-- 2026-06-30 09:02 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/675649034.shtml)
-- 2026-06-30 09:00 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/035681.shtml)
-- 2026-06-30 08:50 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/77714151.shtml)
-- 2026-06-30 08:43 - [泰山景区建135公里刀片刺绳隔离网](http://www.blog.minike.top/Article/details/199622039.shtml)
+- 2026-06-30 08:46 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/6677827.shtml)
+- 2026-06-30 09:07 - [佐野海舟远射破门](https://www.blog.minike.top/Article/details/5060559884.shtml)
+- 2026-06-30 08:46 - [为什么小组赛出局会让韩国人破防](https://www.blog.minike.top/Article/details/37190719.shtml)
+- 2026-06-30 09:04 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/7712110438.shtml)
+- 2026-06-30 09:00 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/3015891600.shtml)
+- 2026-06-30 09:09 - [点球大战和诺伊尔都救不回德国队](http://www.share.minike.top/Article/details/2688082.shtml)
+- 2026-06-30 08:45 - [巴西vs日本](http://www.blog.minike.top/Article/details/9619420.shtml)
+- 2026-06-30 08:49 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/021391353140.shtml)
+- 2026-06-30 08:52 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/764249550.shtml)
+- 2026-06-30 09:03 - [美股深夜大反弹 特斯拉飙涨8%](https://www.share.minike.top/Article/details/8807292428.shtml)
+- 2026-06-30 08:48 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/632661527.shtml)
+- 2026-06-30 08:55 - [泰山景区建135公里刀片刺绳隔离网](http://www.blog.kurohicncr.top/Article/details/8255116440.shtml)
+- 2026-06-30 08:53 - [起风了](https://www.share.minike.top/Article/details/525888.shtml)
+- 2026-06-30 08:44 - [德国队回应爆冷淘汰](http://www.share.minike.top/Article/details/66441294.shtml)
+- 2026-06-30 09:02 - [日本淘汰](https://www.share.kurohicncr.top/Article/details/71690.shtml)

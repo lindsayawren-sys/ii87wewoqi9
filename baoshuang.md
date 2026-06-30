@@ -1,59 +1,60 @@
-# 利勃海尔将为TenneT海上风电项目供应六台海上起重机
+# 伊朗媒体披露伊方最新谈判方案：14点提议 聚焦终战
 
-> 更新时间：2026-06-30 09:06:03 UTC+8
+> 更新时间：2026-06-30 09:12:02 UTC+8
 
 ## 摘要
 
-起重机专业制造商利勃海尔与新加坡工程、采购和建筑承包商Seatrium签订合同，将为TenneT在荷兰的2吉瓦海上风电输电项目供应六台RL 2600型海上起重机。 这些起重机将安装于IJmuiden Ver Beta、IJmuiden Ver Gamma和Nederwiek Beta海上换流平台，每个平台配备两台起重机。设备将分阶段交付，以确保所有机组在2029年按计划开始运营
+新华社德黑兰5月2日电 伊朗媒体2日披露伊方日前经由斡旋方巴基斯坦向美国转交的最新谈判方案内容，总计14点提议，聚焦“结束战争”。报道说，伊朗正在等待美方正式回应。 据塔斯尼姆通讯社报道，美方先前提出一项包含9点提议的方案，作出回应，伊方在最新方案中提出14点提议。美国在其提议中要求停火两个月，但伊朗强调，各项议题应在30天内确定结果，并且重点应放在“结束战争”、而非延长停火。
 
 ## 正文
 
-起重机专业制造商利勃海尔与新加坡工程、采购和建筑承包商Seatrium签订合同，将为TenneT在荷兰的2吉瓦海上风电输电项目供应六台RL 2600型海上起重机。
+新华社德黑兰5月2日电 伊朗媒体2日披露伊方日前经由斡旋方巴基斯坦向美国转交的最新谈判方案内容，总计14点提议，聚焦“结束战争”。
 
-这些起重机将安装于IJmuiden Ver Beta、IJmuiden Ver Gamma和Nederwiek Beta海上换流平台，每个平台配备两台起重机。
+报道说，伊朗正在等待美方正式回应。
 
-设备将分阶段交付，以确保所有机组在2029年按计划开始运营前就位。
+据塔斯尼姆通讯社报道，美方先前提出一项包含9点提议的方案，作出回应，伊方在最新方案中提出14点提议。
 
-RL 2600型起重机专为海上应用而设计，并将配备利勃海尔的LiMain数字化维护系统，以支持无人平台的运营。
+美国在其提议中要求停火两个月，但伊朗强调，各项议题应在30天内确定结果，并且重点应放在“结束战争”、而非延长停火。
 
-该项目标志着亚洲工程与海上解决方案提供商首次选择LiMain系统，该系统能够实现从岸上进行远程维护和监控，减少海上服务巡检的需求。
+报道说，伊方提议的主要内容包括确保不再发生军事侵略、美军从伊朗周边地区撤出、解除海上封锁、解冻伊朗被冻结资产、支付赔偿、取消制裁、在所有战线(包括黎巴嫩)实现和平、建立霍尔木兹海峡新的管理机制等。
 
-RL 2600采用紧凑型设计，适用于空间受限的海上安装。
+据法尔斯通讯社报道，伊朗通过这一方案划出坚定的“红线”，“就结束这场强加的战争提出明确的路线图”。
 
-该起重机最大工作半径达45米，可处理重达25吨的载荷，为海上风电基础设施的维护和物流活动提供支持。
+伊朗4月30日经由巴基斯坦向美国转交最新谈判方案。
 
-利勃海尔表示，该起重机的重量优化设计以及高品质材料的使用，旨在减少苛刻海上环境中的停机时间和维护需求。
+美国总统特朗普1日在白宫对媒体说，他对伊朗提出的最新谈判方案“不满意”。
 
 ## 相关推荐
 
-- 2026-06-30 08:43 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-30 09:04 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
-- 2026-06-30 08:48 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
-- 2026-06-30 08:48 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-30 08:56 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-30 08:41 - [巴西足球能否再现昔日荣光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-30 08:53 - [四川凉山落石砸毁车辆 3人遇难](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
-- 2026-06-30 08:42 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-30 08:40 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-30 08:42 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-30 08:56 - [日本球员说被绝杀非常不甘心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-30 08:57 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-30 08:46 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-30 09:04 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-30 09:04 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-30 08:43 - [iPhone18e曝光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-30 09:00 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-30 08:59 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-30 09:01 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-30 09:02 - [陈幸同晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-30 08:53 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-30 08:57 - [现在叛逆期的孩子最怕的是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-30 09:09 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-30 08:48 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-30 08:46 - [日本主帅：未能夺冠深感抱歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-30 09:07 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-30 09:10 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:57 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/927184116236.shtml)
-- 2026-06-30 09:02 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/619007.shtml)
-- 2026-06-30 08:55 - [韩国世界杯出局是主帅一个人的锅吗](https://www.blog.kurohicncr.top/Article/details/062444069.shtml)
-- 2026-06-30 08:39 - [教育部披露：高考生篡改7名同学志愿](https://www.share.kurohicncr.top/Article/details/580805.shtml)
-- 2026-06-30 09:01 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/4178196848.shtml)
-- 2026-06-30 08:52 - [森保一致歉：世界第一目标没能实现](http://www.share.kurohicncr.top/Article/details/352281369.shtml)
-- 2026-06-30 08:50 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/4779552.shtml)
-- 2026-06-30 09:04 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/035101806186.shtml)
-- 2026-06-30 08:46 - [诺伊尔尽力了](https://www.blog.kurohicncr.top/Article/details/454723954193.shtml)
-- 2026-06-30 08:48 - [荷兰vs摩洛哥](http://www.blog.kurohicncr.top/Article/details/991848756870.shtml)
-- 2026-06-30 08:56 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/824952.shtml)
-- 2026-06-30 08:43 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/971972.shtml)
-- 2026-06-30 08:55 - [有什么好的高中网课推荐吗？](http://www.blog.kurohicncr.top/Article/details/37270722240.shtml)
-- 2026-06-30 08:56 - [沙丘](https://www.blog.minike.top/Article/details/01851010391.shtml)
-- 2026-06-30 08:49 - [峡谷事故团队组队时有人提醒会下雨](http://www.share.kurohicncr.top/Article/details/99409.shtml)
+- 2026-06-30 09:06 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](http://www.share.kurohicncr.top/Article/details/919347088989.shtml)
+- 2026-06-30 08:48 - [球评巴西绝杀逆转日本](https://www.blog.minike.top/Article/details/39480.shtml)
+- 2026-06-30 08:43 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/665921916373.shtml)
+- 2026-06-30 08:48 - [日本进球](https://www.blog.kurohicncr.top/Article/details/60606.shtml)
+- 2026-06-30 08:43 - [恋与深空](https://www.share.minike.top/Article/details/856558438.shtml)
+- 2026-06-30 08:58 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/16958268823.shtml)
+- 2026-06-30 08:58 - [天道](http://www.share.minike.top/Article/details/917045957.shtml)
+- 2026-06-30 09:01 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/98090125.shtml)
+- 2026-06-30 09:09 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/48005145.shtml)
+- 2026-06-30 08:59 - [任素汐舞台上唱《王招君》](http://www.share.minike.top/Article/details/46220403113.shtml)
+- 2026-06-30 08:42 - [AI手机进入Agent时代](https://www.blog.minike.top/Article/details/789743559825.shtml)
+- 2026-06-30 08:47 - [网友写差评被店家“挂”门口避雷](https://www.share.minike.top/Article/details/11309.shtml)
+- 2026-06-30 08:45 - [齐思钧回复张月](http://www.blog.kurohicncr.top/Article/details/344116383.shtml)
+- 2026-06-30 08:49 - [追梦拒绝2770万美元球员选项](http://www.share.kurohicncr.top/Article/details/73227.shtml)
+- 2026-06-30 09:11 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/80553608795.shtml)
