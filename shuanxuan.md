@@ -1,58 +1,56 @@
-# 全面超预期，阿里AI迎商业化拐点！百亿港股互联网ETF华宝（513770）冲高3%，机构：关注大厂估值逻辑转向
+# 6月24日热门中概股多数下跌 阿里拼多多跌约2% 台积电跌超6%
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-5月14日，受亮眼财报提振，阿里巴巴-W表现强势，早盘一度冲高8%，收涨3.84%，带领港股互联网板块全天维持涨势。港股AI核心工具——港股互联网ETF华宝（513770）场内价格一度涨逾3%，收涨0.47%。 互联网龙头AI叙事进入业绩验证节点，昨日阿里巴巴、腾讯控股两大龙头发布最新财报，市场聚焦其AI资本开支及商业化进展。 数据显示，阿里AI正式迈入“商业化回报周期”。阿里
+6月24日热门中概股多数下跌，纳斯达克中国金龙指数（HXC）收跌0.55%。 上涨个股（按市值从高到低）：华住酒店集团涨0.59%，蔚来涨0.79%，万国数据涨0.54%，WSP控股涨3.21%，亚朵集团涨3.08%。 下跌个股（按市值从高到低）：台积电跌6.69%，阿里巴巴跌2.26%，拼多多跌1.98%，日月光半导体跌8.83%，网易跌1.91%，联电跌4.73%，百度跌1
 
 ## 正文
 
-5月14日，受亮眼财报提振，阿里巴巴-W表现强势，早盘一度冲高8%，收涨3.84%，带领港股互联网板块全天维持涨势。
+6月24日热门中概股多数下跌，纳斯达克中国金龙指数（HXC）收跌0.55%。
 
-港股AI核心工具——港股互联网ETF华宝（513770）场内价格一度涨逾3%，收涨0.47%。
+上涨个股（按市值从高到低）：华住酒店集团涨0.59%，蔚来涨0.79%，万国数据涨0.54%，WSP控股涨3.21%，亚朵集团涨3.08%。
 
-互联网龙头AI叙事进入业绩验证节点，昨日阿里巴巴、腾讯控股两大龙头发布最新财报，市场聚焦其AI资本开支及商业化进展。
+下跌个股（按市值从高到低）：台积电跌6.69%，阿里巴巴跌2.26%，拼多多跌1.98%，日月光半导体跌8.83%，网易跌1.91%，联电跌4.73%，百度跌1.43%，京东跌3.33%，中华电信跌0.94%，携程跌1.98%，贝壳跌0.60%，中通跌1.12%，富途控股跌2.07%。
 
-数据显示，阿里AI正式迈入“商业化回报周期”。
+美股周二三大股指全线收跌，因前一交易日开始的科技股抛售在隔夜愈演愈烈，亚洲市场因内存芯片相关股票暴跌而遭到重创。
 
-阿里云外部商业化收入大增40%，为9个季度以来最快，其中AI相关收入占比达30%，连续11个季度三位数增长。
+道指跌45.87点，跌幅为0.09%，报51666.84点；纳指跌579.56点，跌幅为2.21%，报25587.03点；标普500指数跌107.33点，跌幅为1.44%，报7365.46点。
 
-阿里方面表示，AI模型与应用服务年化经常性收入将在6月突破100亿元，年底将翻三倍突破300亿元。
-
-未来五年AI基建投入将远超3800亿元，并有望实现芯片全栈自研。
-
-隔夜阿里巴巴美股应声大涨逾8%。
+领涨中概股列表： 领跌中概股列表： （截图来自新浪财经APP 行情-美股-中概股热门板块）下载新浪财经APP责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-30 07:32 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-30 07:36 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-30 07:48 - [点球大战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-30 07:43 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-30 07:47 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
-- 2026-06-30 07:54 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-30 07:43 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-30 07:51 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
-- 2026-06-30 07:55 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-30 07:52 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-30 07:41 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
-- 2026-06-30 07:59 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-30 07:55 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-30 07:57 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-30 08:04 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-30 07:42 - [日本进球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-30 07:45 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
+- 2026-06-30 07:49 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-30 08:01 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-30 08:02 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-30 08:04 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-30 07:41 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
+- 2026-06-30 08:05 - [库尼亚赛后伸五指嘲讽日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-30 08:03 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-30 07:45 - [森保一致歉：世界第一目标没能实现](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-30 08:02 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:33 - [世界杯“美洲德比”7月1日开打](http://www.share.kurohicncr.top/Article/details/63102596.shtml)
-- 2026-06-30 07:55 - [恋与深空道歉声明](http://www.share.minike.top/Article/details/849323.shtml)
-- 2026-06-30 07:31 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/51458.shtml)
-- 2026-06-30 07:35 - [马耳他著名拱门坍塌致中国男子身亡](http://www.share.kurohicncr.top/Article/details/73622834230.shtml)
-- 2026-06-30 07:38 - [啊啊啊](http://www.share.minike.top/Article/details/56476.shtml)
-- 2026-06-30 07:50 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/066968.shtml)
-- 2026-06-30 07:37 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/886621.shtml)
-- 2026-06-30 07:30 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/4706362.shtml)
-- 2026-06-30 07:58 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/8408882563.shtml)
-- 2026-06-30 07:56 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/9240123146.shtml)
-- 2026-06-30 07:35 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/389701005409.shtml)
-- 2026-06-30 07:49 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/5082237.shtml)
-- 2026-06-30 07:38 - [孙兴慜发长文致歉](https://www.share.minike.top/Article/details/1005076.shtml)
-- 2026-06-30 07:38 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](http://www.share.kurohicncr.top/Article/details/17880497155.shtml)
-- 2026-06-30 07:39 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/768861344.shtml)
+- 2026-06-30 07:46 - [莫兰特转投开拓者效力](https://www.blog.minike.top/Article/details/42591.shtml)
+- 2026-06-30 07:42 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/79721226.shtml)
+- 2026-06-30 07:40 - [明星大侦探第一季](http://www.share.minike.top/Article/details/797595056.shtml)
+- 2026-06-30 07:38 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/75101805835.shtml)
+- 2026-06-30 08:03 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/8375234102.shtml)
+- 2026-06-30 07:36 - [德国巴拉圭进入点球大战](https://www.blog.kurohicncr.top/Article/details/32122289366.shtml)
+- 2026-06-30 07:43 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/57799.shtml)
+- 2026-06-30 07:55 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/979643593.shtml)
+- 2026-06-30 08:04 - [父母催婚话术是如何做到全国统一的](http://www.share.kurohicncr.top/Article/details/70257490.shtml)
+- 2026-06-30 07:52 - [一生一世](http://www.blog.kurohicncr.top/Article/details/359038948325.shtml)
+- 2026-06-30 07:49 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/89966178798.shtml)
+- 2026-06-30 07:45 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/067973578.shtml)
+- 2026-06-30 07:49 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/853570597200.shtml)
+- 2026-06-30 07:55 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.minike.top/Article/details/668138.shtml)
+- 2026-06-30 07:49 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/40981600.shtml)

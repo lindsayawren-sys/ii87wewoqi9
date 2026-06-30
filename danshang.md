@@ -1,51 +1,46 @@
-# 浙江华远：公司于2025年3月27日成功在深圳证券交易所创业板挂牌上市
+# 中天策略:6月22日市场分析
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-证券日报网5月13日讯，浙江华远在接受调研者提问时表示，在股本结构方面，公司目前注册资本为人民币425，294，118.00元，对应总股本同样为425，294，118股，每股面值1元。其中，有限售条件的流通A股为255，498，000股，无限售条件的流通A股为169，796，118股。至于资本市场进展，这是公司2025年的高光时刻：我们的IPO申请于2023年3月通过深交所上市
+责任编辑：陈平
 
 ## 正文
 
-证券日报网5月13日讯，浙江华远在接受调研者提问时表示，在股本结构方面，公司目前注册资本为人民币425，294，118.00元，对应总股本同样为425，294，118股，每股面值1元。
-
-其中，有限售条件的流通A股为255，498，000股，无限售条件的流通A股为169，796，118股。
-
-至于资本市场进展，这是公司2025年的高光时刻：我们的IPO申请于2023年3月通过深交所上市委审议，并在2024年12月获得证监会注册批文，最终于2025年3月27日成功在深圳证券交易所创业板挂牌上市，正式开启了资本市场的征程。
+责任编辑：陈平
 
 ## 相关推荐
 
-- 2026-06-30 07:50 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
-- 2026-06-30 07:30 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
-- 2026-06-30 07:53 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
-- 2026-06-30 07:31 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-30 07:31 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-30 07:43 - [德国淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-30 07:56 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-30 07:50 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
-- 2026-06-30 07:39 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-30 07:43 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
-- 2026-06-30 07:45 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-30 07:33 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-30 07:36 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-30 07:44 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-30 07:45 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-30 07:52 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-30 07:39 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-30 07:52 - [男子在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-30 07:41 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-30 07:43 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
+- 2026-06-30 07:57 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-30 07:47 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-30 07:43 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-30 07:37 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-30 07:53 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-30 07:51 - [巴拉圭点球大战淘汰德国进16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
+- 2026-06-30 08:05 - [巴拉圭进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-30 07:58 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-30 07:53 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:56 - [王楚钦孙颖莎晋级混双八强](https://www.share.minike.top/Article/details/6154823668.shtml)
-- 2026-06-30 07:56 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.minike.top/Article/details/24168887854.shtml)
-- 2026-06-30 07:52 - [世界杯](https://www.share.minike.top/Article/details/99177973911.shtml)
-- 2026-06-30 07:32 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/034372190.shtml)
-- 2026-06-30 07:32 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.minike.top/Article/details/3504366156.shtml)
-- 2026-06-30 07:40 - [日本16强魔咒](https://www.blog.kurohicncr.top/Article/details/50065.shtml)
-- 2026-06-30 07:51 - [美股](http://www.share.minike.top/Article/details/79272962617.shtml)
-- 2026-06-30 07:43 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/549236.shtml)
-- 2026-06-30 07:51 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/769015.shtml)
-- 2026-06-30 07:57 - [爱很美味](https://www.share.kurohicncr.top/Article/details/29545574279.shtml)
-- 2026-06-30 07:44 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/77683920832.shtml)
-- 2026-06-30 07:50 - [网红峡谷5人溺亡 有人提醒会下雨](https://www.blog.minike.top/Article/details/622162001121.shtml)
-- 2026-06-30 07:39 - [周冬雨多次说演不了话剧文城](http://www.blog.minike.top/Article/details/67792.shtml)
-- 2026-06-30 07:58 - [毒液2](https://www.blog.kurohicncr.top/Article/details/548243.shtml)
-- 2026-06-30 07:36 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/7004259.shtml)
+- 2026-06-30 07:45 - [张雪的一句“是我们”引发岛内热议](http://www.blog.kurohicncr.top/Article/details/8897684620.shtml)
+- 2026-06-30 07:58 - [德国爆冷点球大战不敌巴拉圭](https://www.blog.minike.top/Article/details/5051195881.shtml)
+- 2026-06-30 07:52 - [辛纳vs凯茨玛诺维奇](http://www.blog.minike.top/Article/details/603939.shtml)
+- 2026-06-30 07:36 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/762792754.shtml)
+- 2026-06-30 07:40 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/5096105819.shtml)
+- 2026-06-30 07:59 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.minike.top/Article/details/2262289563.shtml)
+- 2026-06-30 07:54 - [哈弗茨头球破门](http://www.share.minike.top/Article/details/203805.shtml)
+- 2026-06-30 07:43 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/9259742.shtml)
+- 2026-06-30 07:54 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.minike.top/Article/details/0774893507.shtml)
+- 2026-06-30 07:38 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.blog.minike.top/Article/details/2994528.shtml)
+- 2026-06-30 07:37 - [董卿父亲在报纸上发文悼念亡妻](https://www.share.minike.top/Article/details/07577141738.shtml)
+- 2026-06-30 07:59 - [我觉得你是在无中生友](https://www.blog.minike.top/Article/details/372484.shtml)
+- 2026-06-30 07:50 - [人类...完蛋了...](https://www.share.kurohicncr.top/Article/details/84912967.shtml)
+- 2026-06-30 08:03 - [《共患难》](https://www.blog.kurohicncr.top/Article/details/887015.shtml)
+- 2026-06-30 07:47 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.blog.kurohicncr.top/Article/details/028912228.shtml)

@@ -1,59 +1,61 @@
-# 马斯克回复“360度转圈拍摄人民大会堂”视频
+# 我国拟修改政府采购法 消除设租寻租制度空间
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-5月14日上午，特斯拉首席执行官马斯克在北京“360度转圈拍摄人民大会堂”。这一视频在社交媒体刷屏。 视频：马斯克360度转圈拍摄人民大会堂 他今天看到的是这些画面来源：中国新闻网 离开人民大会堂时，马斯克回应记者提问说，会谈“非常顺利”，“很多好事正在发生”。 随后，马斯克开始活跃于社交平台，不时与网友互动。他发现了自己“360度转圈拍摄人民大会堂”的视频，并在视频下回复了一
+中新网北京6月23日电 (记者 谢雁冰 曾玥)政府采购法修订草案23日提请十四届全国人大常委会第二十三次会议进行首次审议。修订草案锚定解决政府采购领域突出问题，消除设租寻租制度空间。 政府采购法修改坚持党的领导，坚持问题导向，坚持权责统一，坚持稳中求进，系统完善政府采购体制机制，为统一市场基础制度规则、构建全国统一大市场提供法治保障。 全国人大财政经济委员会副主任委员郝鹏当天在
 
 ## 正文
 
-5月14日上午，特斯拉首席执行官马斯克在北京“360度转圈拍摄人民大会堂”。
+中新网北京6月23日电 (记者 谢雁冰 曾玥)政府采购法修订草案23日提请十四届全国人大常委会第二十三次会议进行首次审议。
 
-这一视频在社交媒体刷屏。
+修订草案锚定解决政府采购领域突出问题，消除设租寻租制度空间。
 
-视频：马斯克360度转圈拍摄人民大会堂 他今天看到的是这些画面来源：中国新闻网 离开人民大会堂时，马斯克回应记者提问说，会谈“非常顺利”，“很多好事正在发生”。
+政府采购法修改坚持党的领导，坚持问题导向，坚持权责统一，坚持稳中求进，系统完善政府采购体制机制，为统一市场基础制度规则、构建全国统一大市场提供法治保障。
 
-随后，马斯克开始活跃于社交平台，不时与网友互动。
+全国人大财政经济委员会副主任委员郝鹏当天在作相关说明时表示，政府采购法修订草案锚定解决政府采购领域突出问题，着力构建权利平等、机会均等、程序公正、救济有效的公平竞争环境，消除设租寻租制度空间，健全不能腐的防范机制。
 
-他发现了自己“360度转圈拍摄人民大会堂”的视频，并在视频下回复了一个表情。
+通过优化规则、应用数字技术、加强全过程管理等规范政府采购活动，提高政府采购绩效。
 
-随特朗普访华的美国商界代表阵容十分豪华，除马斯克外，苹果、英伟达等行业巨头掌门人均在其中。
+政府采购法修订草案以强化采购人主体责任为重点，明确采购人、供应商、代理机构、评审专家、监管部门等各方的权利义务，加强政府采购内控管理和外部全过程监督，形成授权合理、责任明晰、监督有效、问责严格的政府采购监督管理机制。
 
-2026年年初，中国美国商会发布的调查结果显示，对中国市场增长持乐观态度的受访在华美企比例显著上升，7成以上企业不考虑转移在华业务，近6成企业计划加大在华投资。
+修订草案共10章104条。
 
-此外，近期公布的多项民意调查结果显示，美国民众对中美关系稳定发展的期待值显著回升。
+修改的主要内容包括：调整优化法律适用范围，强化政府采购政策功能作用，加强全过程管理，推动交易规则规范高效，完善公平竞争机制，强化权力监督与制度反腐等。
 
 ## 相关推荐
 
-- 2026-06-30 07:48 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-30 07:41 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-30 07:42 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-30 07:45 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-30 07:51 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-30 07:49 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
-- 2026-06-30 07:53 - [德国巴拉圭加时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
-- 2026-06-30 07:38 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
-- 2026-06-30 07:33 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-30 07:40 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-30 07:46 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
-- 2026-06-30 07:37 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-30 07:50 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-30 07:51 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-30 07:48 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-30 07:54 - [勇士续约波尔津吉斯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-30 08:04 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-30 07:40 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-30 07:42 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-30 08:05 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-30 08:03 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-30 07:39 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-30 07:55 - [大蒜晒外面被路过女子连盆端走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-30 07:55 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-30 07:55 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-30 08:04 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-30 08:01 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
+- 2026-06-30 07:40 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:47 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/9531758599.shtml)
-- 2026-06-30 07:48 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/620426477305.shtml)
-- 2026-06-30 07:47 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.kurohicncr.top/Article/details/91050255.shtml)
-- 2026-06-30 07:38 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/189008718.shtml)
-- 2026-06-30 07:33 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/51769270.shtml)
-- 2026-06-30 07:38 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/003703361375.shtml)
-- 2026-06-30 07:39 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/897398.shtml)
-- 2026-06-30 07:46 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/8497404.shtml)
-- 2026-06-30 07:37 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/172147.shtml)
-- 2026-06-30 07:38 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/4106789703.shtml)
-- 2026-06-30 07:36 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/308013899141.shtml)
-- 2026-06-30 07:33 - [中国新一轮出口管制直指日本命脉](https://www.blog.minike.top/Article/details/87498.shtml)
-- 2026-06-30 07:39 - [德国vs巴拉圭](https://www.share.kurohicncr.top/Article/details/49762519074.shtml)
-- 2026-06-30 07:30 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/8611231.shtml)
-- 2026-06-30 07:59 - [德国进球被吹](http://www.share.kurohicncr.top/Article/details/17620470952.shtml)
+- 2026-06-30 07:57 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/827329638955.shtml)
+- 2026-06-30 07:54 - [德国巴拉圭加时](https://www.share.minike.top/Article/details/004217.shtml)
+- 2026-06-30 07:36 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/1543977.shtml)
+- 2026-06-30 08:00 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.kurohicncr.top/Article/details/49679684553.shtml)
+- 2026-06-30 07:59 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/215560.shtml)
+- 2026-06-30 07:59 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/087020458940.shtml)
+- 2026-06-30 07:56 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/563709.shtml)
+- 2026-06-30 07:51 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.minike.top/Article/details/41429.shtml)
+- 2026-06-30 07:36 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/33880994.shtml)
+- 2026-06-30 07:56 - [德国巴拉圭进入点球大战](https://www.share.kurohicncr.top/Article/details/29212.shtml)
+- 2026-06-30 07:45 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.kurohicncr.top/Article/details/33917030585.shtml)
+- 2026-06-30 08:03 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](http://www.blog.kurohicncr.top/Article/details/572868.shtml)
+- 2026-06-30 07:44 - [《男人至死是傻得儿》](https://www.blog.kurohicncr.top/Article/details/47384869929.shtml)
+- 2026-06-30 07:52 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/775393921916.shtml)
+- 2026-06-30 08:01 - [张月感谢了每一公的队友](https://www.share.minike.top/Article/details/2449215353.shtml)

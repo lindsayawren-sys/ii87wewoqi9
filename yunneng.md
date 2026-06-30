@@ -1,57 +1,57 @@
-# 七折起拍！前海财险20%股权再寻买家，经营困局亟待突围
+# 多家银行，落地此项业务！
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-来源：国际金融报 5月14日，《国际金融报》记者从阿里司法拍卖平台获悉，新疆前海联合财产保险股份有限公司（下称“前海财险”）20%股权将于5月22日由北京金融法院进行拍卖。 该笔股权由深圳市钜盛华股份有限公司（下称“钜盛华”）持有，目前处于冻结状态，起拍价为3080万元，相当于在评估价4400万元的基础上打了七折。 股权风波迭起之余，前海财险还长期深陷净利润亏损、偿付能力不达标
+6月22日，中国外汇交易中心与上海清算所联合推出面向全市场的外币回购质押券替换功能，旨在进一步优化外币回购交易及清算服务，满足市场机构抵押品管理和多样化结算方式的需求。《中国银行保险报》记者注意到，新功能启动当日，工商银行、建设银行、交通银行、中信银行、浦发银行、浙商银行、招商银行、渤海银行、北京银行、顺德农商银行、广东华兴银行、中金公司等多家机构成功达成首批外币质押式回购质押
 
 ## 正文
 
-来源：国际金融报 5月14日，《国际金融报》记者从阿里司法拍卖平台获悉，新疆前海联合财产保险股份有限公司（下称“前海财险”）20%股权将于5月22日由北京金融法院进行拍卖。
+6月22日，中国外汇交易中心与上海清算所联合推出面向全市场的外币回购质押券替换功能，旨在进一步优化外币回购交易及清算服务，满足市场机构抵押品管理和多样化结算方式的需求。
 
-该笔股权由深圳市钜盛华股份有限公司（下称“钜盛华”）持有，目前处于冻结状态，起拍价为3080万元，相当于在评估价4400万元的基础上打了七折。
+《中国银行保险报》记者注意到，新功能启动当日，工商银行、建设银行、交通银行、中信银行、浦发银行、浙商银行、招商银行、渤海银行、北京银行、顺德农商银行、广东华兴银行、中金公司等多家机构成功达成首批外币质押式回购质押券替换业务，标志着外币回购全生命周期管理机制迈上新台阶。
 
-股权风波迭起之余，前海财险还长期深陷净利润亏损、偿付能力不达标等多重困境。
+外币回购是金融机构之间基于抵押品开展的外币资金融通业务，即通过抵押债券等资产来融入外币资金。
 
-步入成立的第十个年头，这家险企能否走出经营泥潭、重回稳健发展轨道仍充满变数。
+根据上海清算所此前发布的新版业务指南，外币质押式回购是交易双方进行的以债券为权利质押的一种短期外币资金融通业务。
 
-股权拍卖三度重启 根据北京金融法院的评估委托书，此次拍卖是在执行中融人寿保险股份有限公司与钜盛华、深圳市宝能投资集团有限公司（下称“宝能集团”）的民事纠纷时引发的。
+正回购方在将债券出质给逆回购方融入外币资金的同时，双方约定在将来某一日期由正回购方按约定回购利率计算的资金额向逆回购方返还资金。
 
-2024年9月，法院判决钜盛华、宝能集团执行20.25亿元。
+外汇交易中心指出，质押券替换功能的推出，有效支持了参与机构通过该中心外汇交易系统和上海清算所综合业务系统更加灵活地开展外币流动性管理，实现了外币回购担保品管理体系从“静态锁定”向“动态管理”的优化升级。
 
-为清偿这笔债务，法院相继冻结了钜盛华旗下多项资产，当中就包括前海财险20%股权，以及新疆前海联合基金管理有限公司（下称“前海联合基金”）30%股权等。
+在资产配置层面，也打破质押券一经锁定即不可变动的约束，通过释放优质资产的再融资能力，大幅提升市场资金流转与资源配置效率。
 
-2025年2月，前海联合基金30%股权历经五次挂牌、四次流拍后，最终被上海证券以3766.22万元成功竞得。
+在风险管理层面，构建了基于估值波动及风险偏好的主动调整机制，提升参与机构对质押券组合的精细化管理能力，为构建层次更丰富、运行更高效、韧性更强的银行间外币货币市场夯实运行基础。
 
 ## 相关推荐
 
-- 2026-06-30 07:50 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-30 07:53 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-30 07:58 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-30 07:36 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
-- 2026-06-30 07:59 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-30 07:39 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-30 07:36 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
-- 2026-06-30 07:47 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-30 07:56 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-30 07:41 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-30 07:54 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-30 07:51 - [武磊：巴西队赢的并不轻松](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-30 07:58 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
+- 2026-06-30 07:58 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-30 07:49 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-30 07:44 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
+- 2026-06-30 07:56 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-30 07:47 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
+- 2026-06-30 08:05 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-30 07:49 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-30 08:00 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-30 07:43 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:40 - [刘必安等16人非法集资案二审宣判](https://www.share.minike.top/Article/details/63531866.shtml)
-- 2026-06-30 07:58 - [起风了](http://www.share.minike.top/Article/details/21312.shtml)
-- 2026-06-30 07:42 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/33513.shtml)
-- 2026-06-30 07:49 - [安切洛蒂 换人](https://www.share.kurohicncr.top/Article/details/414182.shtml)
-- 2026-06-30 07:30 - [恋与深空道歉声明](http://www.share.kurohicncr.top/Article/details/74874.shtml)
-- 2026-06-30 07:36 - [急先锋](http://www.blog.minike.top/Article/details/35841758.shtml)
-- 2026-06-30 07:57 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/48926228503.shtml)
-- 2026-06-30 07:56 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/812679.shtml)
-- 2026-06-30 07:55 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/77586666.shtml)
-- 2026-06-30 07:37 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/9232593.shtml)
-- 2026-06-30 07:54 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/80728176429.shtml)
-- 2026-06-30 07:59 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/9549685.shtml)
-- 2026-06-30 07:42 - [马耳他著名拱门坍塌致中国男子身亡](http://www.blog.kurohicncr.top/Article/details/12042.shtml)
-- 2026-06-30 07:49 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/265989.shtml)
-- 2026-06-30 07:39 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/770653770.shtml)
+- 2026-06-30 07:54 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/80983042.shtml)
+- 2026-06-30 07:47 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.kurohicncr.top/Article/details/50298.shtml)
+- 2026-06-30 07:47 - [健全中小学教师工资长效联动机制](https://www.blog.kurohicncr.top/Article/details/9818045.shtml)
+- 2026-06-30 08:00 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/58769929.shtml)
+- 2026-06-30 07:50 - [网友写差评被店家“挂”门口避雷](http://www.share.minike.top/Article/details/0227973338.shtml)
+- 2026-06-30 07:46 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/06631922645.shtml)
+- 2026-06-30 08:05 - [巴西在进攻三区完成210脚传球](https://www.share.minike.top/Article/details/470411434.shtml)
+- 2026-06-30 07:42 - [美股深夜大反弹 特斯拉飙涨8%](https://www.share.minike.top/Article/details/4869531.shtml)
+- 2026-06-30 07:38 - [巴西绝杀](https://www.blog.minike.top/Article/details/5734676.shtml)
+- 2026-06-30 07:55 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/133020235196.shtml)
+- 2026-06-30 07:54 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/067816781165.shtml)
+- 2026-06-30 07:51 - [莫兰特转投开拓者效力](https://www.share.minike.top/Article/details/096918422.shtml)
+- 2026-06-30 07:50 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/07730762267.shtml)
+- 2026-06-30 07:37 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.minike.top/Article/details/0094927.shtml)
+- 2026-06-30 08:02 - [国务院：鼓励行业龙头企业举办职校](http://www.share.minike.top/Article/details/45862318.shtml)

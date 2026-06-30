@@ -1,44 +1,59 @@
-# 闰土股份：公司管理层努力经营好公司，稳定分红回报投资者
+# 盘前：市场对芯片热情仍在延续 纳指期货涨0.29%
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-证券日报网5月13日讯 ，闰土股份在接受调研者提问时表示，公司管理层努力经营好公司，稳定分红回报投资者。公司股价受诸多因素影响，投资股市有风险。
+截至发稿，道指期货涨0.2%，标普500指数期货涨0.03%，纳指期货涨0.29%。 在美伊外交取得进展迹象的背景下，油价下跌，这一进展缓解了市场对结束伊朗战争的脆弱进程可能破裂的担忧。周一美国股指期货小幅攀升。 欧洲斯托克600指数盘中震荡，最新下跌0.1%。科技股上涨，但消费敏感型股票走弱。伦敦富时100指数持平，法国CAC 40指数下跌0.1%，科技股占比较高的荷兰AEX
 
 ## 正文
 
-证券日报网5月13日讯 ，闰土股份在接受调研者提问时表示，公司管理层努力经营好公司，稳定分红回报投资者。
+截至发稿，道指期货涨0.2%，标普500指数期货涨0.03%，纳指期货涨0.29%。
 
-公司股价受诸多因素影响，投资股市有风险。
+在美伊外交取得进展迹象的背景下，油价下跌，这一进展缓解了市场对结束伊朗战争的脆弱进程可能破裂的担忧。
+
+周一美国股指期货小幅攀升。
+
+欧洲斯托克600指数盘中震荡，最新下跌0.1%。
+
+科技股上涨，但消费敏感型股票走弱。
+
+伦敦富时100指数持平，法国CAC 40指数下跌0.1%，科技股占比较高的荷兰AEX指数上涨0.35%，德国DAX指数上涨0.3%，西班牙IBEX 35指数持平，意大利富时MIB指数下跌0.25%。
+
+亚洲股市隔夜上涨，受和平谈判进展提振。
+
+日本日经指数上涨1.6%，韩国股市上涨0.7%，此前因半导体板块需求推动，上周累计上涨超过11%。
 
 ## 相关推荐
 
-- 2026-06-30 07:54 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
-- 2026-06-30 07:51 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-30 07:36 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-30 07:32 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-30 07:33 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-30 07:34 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
-- 2026-06-30 07:30 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-30 07:37 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
-- 2026-06-30 07:54 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-30 07:58 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-30 07:41 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-30 08:05 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-30 07:57 - [王楚钦孙颖莎晋级混双八强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-30 07:57 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-30 07:52 - [感动全网的699分女生想报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-30 07:41 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-30 07:44 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-30 07:36 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-30 08:02 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-30 07:56 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-30 07:57 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
+- 2026-06-30 07:36 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-30 07:54 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:50 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.minike.top/Article/details/126533501475.shtml)
-- 2026-06-30 07:35 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/997558354170.shtml)
-- 2026-06-30 07:30 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.blog.kurohicncr.top/Article/details/04446113.shtml)
-- 2026-06-30 07:57 - [医药暴涨5.91%背后](http://www.blog.minike.top/Article/details/62238.shtml)
-- 2026-06-30 07:41 - [巴西补时绝杀日本](http://www.blog.minike.top/Article/details/35664.shtml)
-- 2026-06-30 07:57 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/955792858715.shtml)
-- 2026-06-30 07:49 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/331224.shtml)
-- 2026-06-30 07:36 - [日本进球](https://www.share.minike.top/Article/details/90578363.shtml)
-- 2026-06-30 07:43 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/938866442295.shtml)
-- 2026-06-30 07:49 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/109397138.shtml)
-- 2026-06-30 07:32 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.minike.top/Article/details/698958934430.shtml)
-- 2026-06-30 07:36 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/889433521.shtml)
-- 2026-06-30 07:56 - [DeepSeek启动成立来最大规模招聘](https://www.blog.minike.top/Article/details/97937.shtml)
-- 2026-06-30 07:59 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/9293636610.shtml)
-- 2026-06-30 07:53 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/7891936158.shtml)
+- 2026-06-30 07:46 - [Melo向柳智敏张元英道歉](https://www.blog.minike.top/Article/details/843650.shtml)
+- 2026-06-30 08:02 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.kurohicncr.top/Article/details/7061997850.shtml)
+- 2026-06-30 07:36 - [我觉得你是在无中生友](http://www.share.kurohicncr.top/Article/details/628280772.shtml)
+- 2026-06-30 08:05 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/11759.shtml)
+- 2026-06-30 08:01 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/86129842255.shtml)
+- 2026-06-30 07:56 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/0337642457.shtml)
+- 2026-06-30 07:37 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/009599.shtml)
+- 2026-06-30 07:37 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/03038.shtml)
+- 2026-06-30 07:41 - [开电动汽车真的很省钱吗？](http://www.share.kurohicncr.top/Article/details/35933.shtml)
+- 2026-06-30 07:56 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/915369.shtml)
+- 2026-06-30 07:54 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/46576.shtml)
+- 2026-06-30 07:59 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/531675356996.shtml)
+- 2026-06-30 07:53 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/885396.shtml)
+- 2026-06-30 07:41 - [森保一致歉：世界第一目标没能实现](http://www.share.minike.top/Article/details/03807.shtml)
+- 2026-06-30 07:40 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/31692.shtml)

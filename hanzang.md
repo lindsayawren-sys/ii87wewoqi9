@@ -1,58 +1,49 @@
-# 688347，净利润大增513%！
+# 视频 | 半夏私尊单周净值跌超15%!李蓓劝投资人追AI要慎重
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月14日晚，特色工艺晶圆代工龙头华虹公司（688347）披露一季报，交出一份亮眼成绩单。 公告显示，公司2026年一季度实现营业收入46.25亿元，同比增长18.22%；实现归母净利润1.4亿元，同比增长513.10%；实现扣非净利润1.33 亿元，同比增长724.01%。 华虹公司表示，公司盈利能力显著
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！半夏私尊单周净值跌超15%！李蓓：如果投资人失去耐心，我理解，但如果投资人想拿这笔钱去追A，就算你骂我，我也想劝，千万要慎重。 责任编辑：宋雅芳
 
 ## 正文
 
 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-5月14日晚，特色工艺晶圆代工龙头华虹公司（688347）披露一季报，交出一份亮眼成绩单。
+半夏私尊单周净值跌超15%！
 
-公告显示，公司2026年一季度实现营业收入46.25亿元，同比增长18.22%；实现归母净利润1.4亿元，同比增长513.10%；实现扣非净利润1.33 亿元，同比增长724.01%。
+李蓓：如果投资人失去耐心，我理解，但如果投资人想拿这笔钱去追A，就算你骂我，我也想劝，千万要慎重。
 
-华虹公司表示，公司盈利能力显著改善主要系报告期内平均销售价格及付运晶圆数量上升使得毛利上升，及本期为汇兑收益而上年同期为汇兑损失。
-
-公司董事会主席兼总裁白鹏表示，华虹半导体2026年第一季度实现销售收入6.609亿美元，同比增长22.2%；毛利率为13.0%，同比上升3.8个百分点。
-
-两项指标均符合指引预期。
-
-本季度母公司拥有人应占利润达2090万美元，同比大幅增长。
-
-在产能快速爬坡的同时，公司依旧保持高产能利用率，各工艺技术平台均表现强劲。
+责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-30 07:42 - [德国队世界杯点球大战首败](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
-- 2026-06-30 07:56 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
-- 2026-06-30 07:55 - [网友写差评被店家“挂”门口避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-30 07:31 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-30 07:56 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-30 07:46 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
-- 2026-06-30 07:57 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-30 07:40 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-30 07:42 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-30 07:39 - [世界杯巴拉圭点球淘汰德国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-30 07:37 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-30 07:48 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-30 07:58 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-30 07:42 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
+- 2026-06-30 07:57 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-30 07:55 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-30 07:39 - [马耳他著名拱门坍塌致一中国男子身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-30 08:05 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-30 07:55 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
+- 2026-06-30 07:51 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-30 07:50 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-30 07:45 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-30 07:52 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:55 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/47843.shtml)
-- 2026-06-30 07:42 - [董卿父亲报纸上发文悼念亡妻](https://www.blog.minike.top/Article/details/97579380954.shtml)
-- 2026-06-30 07:38 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/83275672.shtml)
-- 2026-06-30 07:39 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/63446664.shtml)
-- 2026-06-30 08:00 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/455111754976.shtml)
-- 2026-06-30 07:48 - [武磊：巴西队赢的并不轻松](http://www.share.minike.top/Article/details/85654015.shtml)
-- 2026-06-30 07:37 - [马耳他著名拱门坍塌致中国男子身亡](https://www.share.kurohicncr.top/Article/details/97273860.shtml)
-- 2026-06-30 07:54 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/71732930.shtml)
-- 2026-06-30 07:58 - [巴拉圭率先破门](http://www.blog.kurohicncr.top/Article/details/2787172187.shtml)
-- 2026-06-30 07:42 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/355733.shtml)
-- 2026-06-30 07:58 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/04961.shtml)
-- 2026-06-30 07:45 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/32311416.shtml)
-- 2026-06-30 07:48 - [房价什么时候能涨](https://www.blog.minike.top/Article/details/72694.shtml)
-- 2026-06-30 07:36 - [苗族银饰](http://www.blog.kurohicncr.top/Article/details/21766324751.shtml)
-- 2026-06-30 07:51 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/7853830.shtml)
+- 2026-06-30 07:47 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/166094013050.shtml)
+- 2026-06-30 07:55 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.minike.top/Article/details/09995889.shtml)
+- 2026-06-30 07:57 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/36974010197.shtml)
+- 2026-06-30 07:47 - [网红峡谷5人溺亡 有人提醒会下雨](http://www.blog.kurohicncr.top/Article/details/77901.shtml)
+- 2026-06-30 07:56 - [中国新一轮出口管制直指日本命脉](https://www.blog.kurohicncr.top/Article/details/75333929163.shtml)
+- 2026-06-30 08:00 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/18887319373.shtml)
+- 2026-06-30 07:53 - [日本球员说被绝杀非常不甘心](http://www.share.minike.top/Article/details/318013936.shtml)
+- 2026-06-30 07:49 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/6719683.shtml)
+- 2026-06-30 07:41 - [巴西扳平比分](https://www.share.minike.top/Article/details/076981.shtml)
+- 2026-06-30 07:40 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/3369158730.shtml)
+- 2026-06-30 07:56 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/601644474713.shtml)
+- 2026-06-30 07:57 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/3830642555.shtml)
+- 2026-06-30 07:39 - [张凌赫杨超越 峨眉](http://www.blog.minike.top/Article/details/73503.shtml)
+- 2026-06-30 08:05 - [巴西替补奇兵读秒绝杀](https://www.share.kurohicncr.top/Article/details/10774025870.shtml)
+- 2026-06-30 08:01 - [德国巴拉圭 折磨](http://www.share.minike.top/Article/details/581637477.shtml)

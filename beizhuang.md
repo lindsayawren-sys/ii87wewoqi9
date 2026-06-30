@@ -1,61 +1,57 @@
-# *ST大晟靠“财技”保壳？2025年审计费用翻倍 新设多家子公司疑似“空壳” 第四季度收入占比显著提升
+# 电影《给阿嬷的情书》在澳大利亚首映
 
-> 更新时间：2026-06-30 08:00:02 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-出品：新浪财经上市公司研究院 作者：渚 2025年，*ST大晟在游戏业务营收增长停滞的情况下，影视剧业务营收同比激增13倍，将总营收拉回至3亿元以上，成功实现“保壳”。但2025年及今年一季度，公司均出现增收不增利情形，归母净亏损同比分别扩大27.43%、68.18%，未弥补亏损高达16.92亿元。 *ST大晟能够成功保壳的另一推手是新任控股股东唐山文旅的“慷慨解囊”。2025
+中新社悉尼6月24日电 (记者 薄雯雯)电影《给阿嬷的情书》23日晚在澳大利亚悉尼举行首映礼。 “纸短情长，伏惟珍重”“江海万里，心中念你，便不觉遥远”……活动现场，以侨批为主题设置的场景装置格外吸睛，不少观众手持票根驻足拍照留念，感受跨越山海的牵挂与思念。 中国驻悉尼总领事王愚在致辞中表示，这部影片生动展现了潮汕人精神品格的核心特质，面对生活的艰辛，他们用双手创造生活，用担当
 
 ## 正文
 
-出品：新浪财经上市公司研究院 作者：渚 2025年，*ST大晟在游戏业务营收增长停滞的情况下，影视剧业务营收同比激增13倍，将总营收拉回至3亿元以上，成功实现“保壳”。
+中新社悉尼6月24日电 (记者 薄雯雯)电影《给阿嬷的情书》23日晚在澳大利亚悉尼举行首映礼。
 
-但2025年及今年一季度，公司均出现增收不增利情形，归母净亏损同比分别扩大27.43%、68.18%，未弥补亏损高达16.92亿元。
+“纸短情长，伏惟珍重”“江海万里，心中念你，便不觉遥远”……活动现场，以侨批为主题设置的场景装置格外吸睛，不少观众手持票根驻足拍照留念，感受跨越山海的牵挂与思念。
 
-*ST大晟能够成功保壳的另一推手是新任控股股东唐山文旅的“慷慨解囊”。
+中国驻悉尼总领事王愚在致辞中表示，这部影片生动展现了潮汕人精神品格的核心特质，面对生活的艰辛，他们用双手创造生活，用担当守护家庭。
 
-2025年12月26日，双方签署《债务豁免协议》，约定豁免公司3000万元债务。
+影片中看似平凡的生活细节，构成了中华优秀传统文化最温暖动人的精神底色。
 
-彼时，公司已累计向唐山文旅借款2.18亿元。
+澳大利亚潮州同乡会青年会会长杜艇说，影片情感真挚、温暖感人，让他数度落泪。
 
-此外，2025年*ST大晟新设了一批无电话、无邮箱、无网址且实缴资本为0的“壳”公司，审计费用从2024年的70万元翻倍至150万元。
+他希望更多华侨华人通过影片重温浓浓乡情、感受潮汕文化魅力，也希望年轻一代将潮汕人的精神传承下去。
 
-下半年收入占比陡增 靠“财技”保壳？
+“看完影片，也让我想起了自己的阿嬷。
 
-2025年4月底，*ST大晟正式披露2024年年度报告，因营业收入低于3亿元且净利润为负，股票被实施退市风险警示。
+”祖籍汕尾、在澳大利亚生活已有十年的观众卓紫红着眼眶说，在“下南洋”的年代，许多潮汕男性远赴海外打拼，留在家乡的女性则以柔弱的肩膀撑起家庭。
 
 ## 相关推荐
 
-- 2026-06-30 07:37 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
-- 2026-06-30 07:31 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-30 07:51 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-30 07:57 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-30 07:30 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-30 07:45 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-30 07:47 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
-- 2026-06-30 07:50 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
-- 2026-06-30 07:32 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
-- 2026-06-30 07:50 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-30 07:50 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-30 07:54 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-30 07:44 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-30 07:51 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
-- 2026-06-30 07:48 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-30 07:55 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-30 07:42 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-30 07:43 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-30 07:45 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-30 08:05 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-30 07:38 - [郑钦文温网首轮出局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-30 07:41 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-30 07:45 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-30 08:01 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-30 07:42 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-30 07:47 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:44 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.kurohicncr.top/Article/details/333201.shtml)
-- 2026-06-30 07:38 - [詹姆斯下赛季去哪](http://www.share.kurohicncr.top/Article/details/970449101367.shtml)
-- 2026-06-30 07:34 - [这种关系可能正在悄悄“催老”你](https://www.blog.minike.top/Article/details/1717025416.shtml)
-- 2026-06-30 07:52 - [曝詹姆斯即将与勇士会面](https://www.blog.minike.top/Article/details/8957355.shtml)
-- 2026-06-30 07:42 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/457552109354.shtml)
-- 2026-06-30 07:39 - [全球芯片巨头史诗级扩产](http://www.share.kurohicncr.top/Article/details/4306423.shtml)
-- 2026-06-30 07:53 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/865431.shtml)
-- 2026-06-30 07:44 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/9482080149.shtml)
-- 2026-06-30 07:56 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/74036769703.shtml)
-- 2026-06-30 07:47 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/5427655451.shtml)
-- 2026-06-30 07:52 - [曝詹姆斯即将与勇士会面](https://www.blog.kurohicncr.top/Article/details/861358.shtml)
-- 2026-06-30 07:43 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/00938777997.shtml)
-- 2026-06-30 07:38 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/4839992425.shtml)
-- 2026-06-30 07:34 - [DeepSeek V4正式版要来了](http://www.blog.minike.top/Article/details/49301622049.shtml)
-- 2026-06-30 07:41 - [日本反击率先破门](https://www.blog.kurohicncr.top/Article/details/4365146.shtml)
+- 2026-06-30 07:41 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/5072932034.shtml)
+- 2026-06-30 07:53 - [苗族银饰](http://www.share.minike.top/Article/details/8292705466.shtml)
+- 2026-06-30 07:51 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.minike.top/Article/details/93430000.shtml)
+- 2026-06-30 07:50 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](http://www.share.kurohicncr.top/Article/details/58181529.shtml)
+- 2026-06-30 07:46 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/33538143415.shtml)
+- 2026-06-30 07:42 - [杨紫获白玉兰视后争议不止](https://www.blog.minike.top/Article/details/730632147999.shtml)
+- 2026-06-30 07:42 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/67619993.shtml)
+- 2026-06-30 07:57 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/35540850789.shtml)
+- 2026-06-30 08:04 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/550460152.shtml)
+- 2026-06-30 07:38 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/41180339.shtml)
+- 2026-06-30 07:48 - [科技牛市下的最大考验是什么](http://www.blog.kurohicncr.top/Article/details/0134928932.shtml)
+- 2026-06-30 07:50 - [恋与深空道歉声明](http://www.share.kurohicncr.top/Article/details/507075215111.shtml)
+- 2026-06-30 07:53 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/177363291003.shtml)
+- 2026-06-30 07:45 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/1001016.shtml)
+- 2026-06-30 07:56 - [南北多地暴雨和强对流天气持续](http://www.blog.kurohicncr.top/Article/details/17868283.shtml)

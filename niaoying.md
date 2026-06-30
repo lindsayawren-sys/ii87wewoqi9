@@ -1,44 +1,56 @@
-# 科幻走进现实 首款载人变形机甲发布 新闻观察：性能续航如何 未来怎么用
+# IMF副总裁李波：多边主义仍能发挥作用，IMF和世行要更加包容、扩大代表性
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月14日 09:17 来源：央视新闻 责任编辑：【王祎】
+专题：2026第十七届夏季达沃斯论坛 6月23日，世界经济论坛第十七届新领军者年会（2026大连夏季达沃斯论坛）在大连举行。国际货币基金组织副总裁李波出席“重塑能源走廊”论坛并演讲。 李波表示，尽管多边机制正面临诸多挑战，但IMF、世界银行、国际能源署等多边机构仍在尽最大努力汇聚各方力量应对共同挑战。 在他看来，多边主义仍然能够发挥作用。“因为IMF和世界银行等机构可以将东方与
 
 ## 正文
 
-发布时间：2026年05月14日 09:17 来源：央视新闻 责任编辑：【王祎】
+专题：2026第十七届夏季达沃斯论坛 6月23日，世界经济论坛第十七届新领军者年会（2026大连夏季达沃斯论坛）在大连举行。
+
+国际货币基金组织副总裁李波出席“重塑能源走廊”论坛并演讲。
+
+李波表示，尽管多边机制正面临诸多挑战，但IMF、世界银行、国际能源署等多边机构仍在尽最大努力汇聚各方力量应对共同挑战。
+
+在他看来，多边主义仍然能够发挥作用。
+
+“因为IMF和世界银行等机构可以将东方与西方、北部与南部的国家汇聚到一起开展合作，很多时候能够找到各方都认可的解决方案。
+
+” 他举了一个具体例子：IMF刚刚完成了最新一轮的减贫和增长信托基金（PRGT）筹资。
+
+“这个基金主要为低收入国家提供免息贷款，但这就需要更富裕的国家做出贡献。
+
+比如七国集团、金砖国家，甚至一些新兴市场国家也都为此做出了贡献，例如亚洲、非洲国家。
 
 ## 相关推荐
 
-- 2026-06-30 07:58 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-30 07:31 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-30 07:49 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-30 07:46 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-30 07:44 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-30 07:37 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-30 07:48 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-30 07:36 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-30 07:58 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-30 07:55 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
-- 2026-06-30 07:55 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
-- 2026-06-30 07:53 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
+- 2026-06-30 08:01 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-30 07:39 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-30 07:46 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-30 07:48 - [周冬雨多次说演不了话剧文城](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-30 08:03 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-30 07:38 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-30 07:57 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-30 07:41 - [武磊：巴西队赢的并不轻松](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
+- 2026-06-30 07:49 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
+- 2026-06-30 07:55 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:51 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/03932.shtml)
-- 2026-06-30 07:52 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/7623443980.shtml)
-- 2026-06-30 07:44 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/12003683.shtml)
-- 2026-06-30 07:37 - [安切洛蒂 换人](http://www.share.kurohicncr.top/Article/details/99466422440.shtml)
-- 2026-06-30 07:53 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/748697.shtml)
-- 2026-06-30 07:35 - [第一炉香](http://www.share.kurohicncr.top/Article/details/0110431629.shtml)
-- 2026-06-30 07:50 - [大蒜晒外面被路过女子连盆端走](http://www.blog.minike.top/Article/details/5194615.shtml)
-- 2026-06-30 07:58 - [急先锋](http://www.share.kurohicncr.top/Article/details/72077287.shtml)
-- 2026-06-30 07:38 - [千与千寻](https://www.share.minike.top/Article/details/9034490.shtml)
-- 2026-06-30 07:35 - [佐野海舟远射破门](https://www.share.kurohicncr.top/Article/details/4743799291.shtml)
-- 2026-06-30 07:32 - [有什么好的高中网课推荐吗？](http://www.blog.kurohicncr.top/Article/details/250713.shtml)
-- 2026-06-30 07:51 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/62472482873.shtml)
-- 2026-06-30 07:33 - [吴易昺不敌德约科维奇 止步温网首轮](https://www.blog.kurohicncr.top/Article/details/528905438382.shtml)
-- 2026-06-30 07:59 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://www.share.kurohicncr.top/Article/details/1909698793.shtml)
-- 2026-06-30 07:37 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/738606765248.shtml)
+- 2026-06-30 07:53 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/9641617.shtml)
+- 2026-06-30 08:03 - [德国连续三届世界杯无缘16强](https://www.blog.minike.top/Article/details/302524726.shtml)
+- 2026-06-30 07:59 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/15893549.shtml)
+- 2026-06-30 07:53 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.minike.top/Article/details/24275953812.shtml)
+- 2026-06-30 07:41 - [男子身高一米八二仍做断骨增高](http://www.blog.kurohicncr.top/Article/details/843757.shtml)
+- 2026-06-30 07:50 - [哈弗茨头球破门](https://www.share.minike.top/Article/details/268442.shtml)
+- 2026-06-30 07:41 - [美人鱼](http://www.share.kurohicncr.top/Article/details/796870347.shtml)
+- 2026-06-30 07:52 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://www.share.kurohicncr.top/Article/details/76825.shtml)
+- 2026-06-30 07:47 - [德国巴拉圭 折磨](http://www.share.kurohicncr.top/Article/details/9988818252.shtml)
+- 2026-06-30 07:53 - [媒体：手机测评该挤挤水分了](http://www.blog.minike.top/Article/details/948651963.shtml)
+- 2026-06-30 07:43 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/7453673.shtml)
+- 2026-06-30 07:47 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/3263037448.shtml)
+- 2026-06-30 07:51 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/33816184605.shtml)
+- 2026-06-30 07:45 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/309237142.shtml)
+- 2026-06-30 07:52 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.minike.top/Article/details/825370644.shtml)

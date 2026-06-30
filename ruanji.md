@@ -1,58 +1,58 @@
-# 广东遇持续强降雨 全省最大累积雨量214.2毫米
+# 单只基金3个月缩水2000多亿元，“ETF一哥”柳军能靠SK海力士翻盘吗？
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-中新网广州5月14日电 (记者 王坚)13日白天到14日早晨，广东153个镇街出现暴雨、大暴雨，其中韶关翁源坝仔镇录得全省最大累积雨量达214.2毫米和最大1小时雨量达90.2毫米。 广东省气象局介绍，13日8时到14日8时，全省有43个镇街录得超过100毫米的大暴雨，有110个镇街录得50至100毫米的暴雨，部分城市雨量较大的镇街有：韶关翁源坝仔镇214.2毫米，河源连平县陂
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：财报星球 文 | 西瓜 王牌产品沪深300ETF华泰柏瑞大幅缩水，“ETF一哥”柳军亟需寻找新增量。 2026年SK海力士、三星电子等韩国半导体企业股价一路狂飙。截至2026年6月22日收盘，SK海力士股价上涨5.61%，市值达到2080.38万亿韩元（约合1.35万亿美元），超越三星电子成为韩国股市
 
 ## 正文
 
-中新网广州5月14日电 (记者 王坚)13日白天到14日早晨，广东153个镇街出现暴雨、大暴雨，其中韶关翁源坝仔镇录得全省最大累积雨量达214.2毫米和最大1小时雨量达90.2毫米。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-广东省气象局介绍，13日8时到14日8时，全省有43个镇街录得超过100毫米的大暴雨，有110个镇街录得50至100毫米的暴雨，部分城市雨量较大的镇街有：韶关翁源坝仔镇214.2毫米，河源连平县陂头镇212.9毫米、梅州蕉岭县南磜镇165.5毫米。
+来源：财报星球 文 | 西瓜 王牌产品沪深300ETF华泰柏瑞大幅缩水，“ETF一哥”柳军亟需寻找新增量。
 
-此外，粤北市县和肇庆出现局地8至10级雷雨大风，韶关乳源县大布镇录得全省最大阵风25.6米/秒(10级)。
+2026年SK海力士、三星电子等韩国半导体企业股价一路狂飙。
 
-14日，广东持续强降雨。
+截至2026年6月22日收盘，SK海力士股价上涨5.61%，市值达到2080.38万亿韩元（约合1.35万亿美元），超越三星电子成为韩国股市市值最高企业。
 
-广州黑云压城，从化、花都、增城等区雨势强烈，其中花都区炭步镇出现30分钟降雨量达30毫米以上的强降雨，部分街道出现水浸。
+据财联社报道，截至6月22日收盘，南方东英资管旗下两倍做多SK海力士ETF单日涨幅16.55%，总市值突破1300亿港元，成为港股市场最大的ETF。
 
-除了广州，珠江西岸的城市也出现强降雨。
+此外，该基金也是2026年为数不多的“10倍基”。
 
-其中，江门恩平市录得3小时最大降雨量超过100毫米。
+重仓韩国半导体企业，一些香港、内地基金已经赚得盆满钵满。
 
-恩平市气象台于14日12时将暴雨橙色预警信号升级为红色。
+不过，放眼望去，国内重仓韩国半导体产业的ETF基金几乎清一色的“南方系”，除了南方基金之外，为数不多的只剩下华泰柏瑞柳军管理的中韩半导体ETF。
 
 ## 相关推荐
 
-- 2026-06-30 07:45 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-30 07:42 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-30 07:59 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-30 07:50 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-30 07:39 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-30 07:48 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
-- 2026-06-30 07:55 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-30 07:30 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
-- 2026-06-30 07:49 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
-- 2026-06-30 07:56 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-30 07:57 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-30 07:39 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-30 07:54 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-30 07:57 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-30 07:46 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
+- 2026-06-30 07:46 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-30 07:38 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-30 07:52 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-30 08:01 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-30 07:45 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-30 08:03 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
+- 2026-06-30 07:38 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-30 07:58 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-30 08:01 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:49 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/571921972.shtml)
-- 2026-06-30 07:44 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.minike.top/Article/details/700912398740.shtml)
-- 2026-06-30 07:53 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/640067735800.shtml)
-- 2026-06-30 07:36 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/076061328.shtml)
-- 2026-06-30 07:39 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/5593521538.shtml)
-- 2026-06-30 07:53 - [急先锋](https://www.share.minike.top/Article/details/23932.shtml)
-- 2026-06-30 07:49 - [德国 传控](https://www.share.minike.top/Article/details/25971084.shtml)
-- 2026-06-30 07:53 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/578532447.shtml)
-- 2026-06-30 07:58 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/224396.shtml)
-- 2026-06-30 07:54 - [逃狱兄弟](https://www.share.minike.top/Article/details/1671881.shtml)
-- 2026-06-30 07:58 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/461177880498.shtml)
-- 2026-06-30 07:45 - [恋与深空制作组回应近期争议](http://www.share.minike.top/Article/details/07372.shtml)
-- 2026-06-30 07:45 - [苗族银饰](http://www.blog.kurohicncr.top/Article/details/5830210.shtml)
-- 2026-06-30 07:42 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/24775627509.shtml)
-- 2026-06-30 07:55 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.minike.top/Article/details/35252.shtml)
+- 2026-06-30 07:57 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/937852.shtml)
+- 2026-06-30 08:02 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/71577.shtml)
+- 2026-06-30 07:54 - [峡谷事故团队组队时有人提醒会下雨](http://www.blog.minike.top/Article/details/490377313287.shtml)
+- 2026-06-30 07:55 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/656477237.shtml)
+- 2026-06-30 07:57 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.minike.top/Article/details/5866602.shtml)
+- 2026-06-30 07:51 - [巴西醒醒 这是淘汰赛](http://www.share.kurohicncr.top/Article/details/15705899.shtml)
+- 2026-06-30 07:36 - [王楚钦孙颖莎晋级混双八强](http://www.blog.minike.top/Article/details/4103539672.shtml)
+- 2026-06-30 07:41 - [湖南祁东原文化馆被指贱卖](https://www.blog.minike.top/Article/details/422537142539.shtml)
+- 2026-06-30 07:54 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/65328.shtml)
+- 2026-06-30 07:50 - [多人在马路中间打羽毛球 交警回应](https://www.blog.kurohicncr.top/Article/details/837820.shtml)
+- 2026-06-30 07:41 - [日本 高位逼抢](http://www.blog.minike.top/Article/details/525175806728.shtml)
+- 2026-06-30 07:47 - [这几秒成世界杯最值钱广告位](http://www.blog.kurohicncr.top/Article/details/06397.shtml)
+- 2026-06-30 07:45 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.kurohicncr.top/Article/details/640301478204.shtml)
+- 2026-06-30 08:05 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/7730691.shtml)
+- 2026-06-30 08:01 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/3008018297.shtml)

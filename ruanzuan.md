@@ -1,58 +1,60 @@
-# 亚朵集团一季度营收28.11亿元，以创新为引擎实现可持续高质增长
+# 东兴海关关于医用物资采购项目（重）竞争性协商公告
 
-> 更新时间：2026-06-30 08:00:02 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！北京时间5月13日，亚朵集团（NASDAQ： ATAT）发布2026年第一季度财务报告。在“中国体验，品牌领航”新战略的指引下，亚朵凭借持续的产品创新与体验升级，实现业绩高质量开局。 一季度，亚朵实现营业收入28.11亿元（人民币，下同），同比增长47.5%；调整后净利润4.90亿元，同比增长42.0%；调
+中华人民共和国东兴海关委托广西北投建信建设项目管理有限公司，对东兴海关医用物资采购项目(重)进行竞争性协商采购，欢迎符合条件的供应商前来参加协商活动，现将有关事项公告如下： 一、项目基本情况 1.项目编号：BTJXZB2026-065 2.项目名称：东兴海关医用物资采购项目(重)3.预算总金额：213000.00元。 4.最高限价：213000.00元。 5.采购需求：东兴海关
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中华人民共和国东兴海关委托广西北投建信建设项目管理有限公司，对东兴海关医用物资采购项目(重)进行竞争性协商采购，欢迎符合条件的供应商前来参加协商活动，现将有关事项公告如下： 一、项目基本情况 1.项目编号：BTJXZB2026-065 2.项目名称：东兴海关医用物资采购项目(重)3.预算总金额：213000.00元。
 
-北京时间5月13日，亚朵集团（NASDAQ： ATAT）发布2026年第一季度财务报告。
+4.最高限价：213000.00元。
 
-在“中国体验，品牌领航”新战略的指引下，亚朵凭借持续的产品创新与体验升级，实现业绩高质量开局。
+5.采购需求：东兴海关医用物资采购项目(重)1项，如需进一步了解详细内容，详见竞争性协商文件。
 
-一季度，亚朵实现营业收入28.11亿元（人民币，下同），同比增长47.5%；调整后净利润4.90亿元，同比增长42.0%；调整后EBITDA为7.16亿元，同比增长51.1%。
+6.合同履约期限：自合同签订之日起至15日内。
 
-同时，亚朵上调2026年收入指引，预计全年收入同比增长24%至28%。
+二、供应商的资格要求 1.满足《中华人民共和国政府采购法》第二十二条规定。
 
-酒店经营指标逐季改善，管道储备项目751家蓄力健康增长 第一季度，亚朵住宿业务的经营表现延续逐季改善趋势。
+2.落实政府采购政策需满足的资格要求：无。
 
-一季度，集团大盘平均可出租客房收入（RevPAR）为312元，恢复至2025年同期的102.4%；入住率（OCC）和日均房价（ADR）分别恢复至去年同期的100.6%和102.1%。
+3.本项目的特定资格要求： ​(1)具有相应有效的《医疗器械经营许可证》或《医疗器械经营备案凭证》或《医疗器械生产许可证》。
 
-在规模拓展上，亚朵坚持“品质优先”原则，一季度新开业酒店110家。
+(2)单位负责人为同一人或者存在直接控股、管理关系的不同供应商，不得参加同一合同项下的采购活动。
 
 ## 相关推荐
 
-- 2026-06-30 07:35 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-30 07:48 - [女子遭下药退赔偿拟追刑责](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
-- 2026-06-30 07:42 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
-- 2026-06-30 07:42 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-30 07:46 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
-- 2026-06-30 07:35 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-30 07:47 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-30 07:43 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-30 07:34 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
-- 2026-06-30 07:32 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-30 07:32 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-30 07:41 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-30 07:50 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-30 07:41 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-30 08:02 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-30 07:50 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-30 07:58 - [库尼亚赛后伸五指嘲讽日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-30 08:03 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-30 07:48 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-30 07:47 - [男子在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
+- 2026-06-30 07:37 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-30 07:56 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
+- 2026-06-30 07:41 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-30 07:42 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-30 07:39 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-30 07:56 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:55 - [F1奥地利站赛后复盘](https://www.share.minike.top/Article/details/64715.shtml)
-- 2026-06-30 07:53 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.kurohicncr.top/Article/details/402776894.shtml)
-- 2026-06-30 07:41 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/028416.shtml)
-- 2026-06-30 07:32 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/737602.shtml)
-- 2026-06-30 07:56 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/539656153939.shtml)
-- 2026-06-30 07:50 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/28650947584.shtml)
-- 2026-06-30 07:45 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/602583208.shtml)
-- 2026-06-30 07:43 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/294382581658.shtml)
-- 2026-06-30 07:34 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.kurohicncr.top/Article/details/69213968.shtml)
-- 2026-06-30 07:42 - [全球芯片巨头史诗级扩产](https://www.share.kurohicncr.top/Article/details/714719347.shtml)
-- 2026-06-30 07:51 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/30701.shtml)
-- 2026-06-30 07:35 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](http://www.blog.minike.top/Article/details/9456234887.shtml)
-- 2026-06-30 07:32 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/098311.shtml)
-- 2026-06-30 07:50 - [张帅晋级温网次轮](https://www.share.kurohicncr.top/Article/details/901850925.shtml)
-- 2026-06-30 07:52 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/7298783193.shtml)
+- 2026-06-30 07:45 - [武磊：巴西队赢的并不轻松](https://www.blog.kurohicncr.top/Article/details/8778702593.shtml)
+- 2026-06-30 08:05 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/72342507.shtml)
+- 2026-06-30 07:48 - [张帅时隔四年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/9344793273.shtml)
+- 2026-06-30 07:59 - [辛纳vs凯茨玛诺维奇](http://www.share.kurohicncr.top/Article/details/68974544780.shtml)
+- 2026-06-30 08:00 - [佐野海舟远射破门](https://www.share.kurohicncr.top/Article/details/29261234.shtml)
+- 2026-06-30 07:50 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/1476740.shtml)
+- 2026-06-30 07:37 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](http://www.blog.minike.top/Article/details/6265743.shtml)
+- 2026-06-30 08:01 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/098654421.shtml)
+- 2026-06-30 07:56 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/8889800.shtml)
+- 2026-06-30 07:47 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/28082551147.shtml)
+- 2026-06-30 07:59 - [巴拉圭率先破门](http://www.share.kurohicncr.top/Article/details/32943.shtml)
+- 2026-06-30 08:01 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/3802247172.shtml)
+- 2026-06-30 07:43 - [二次元提前预演明日巴西对日本](https://www.share.kurohicncr.top/Article/details/981077639.shtml)
+- 2026-06-30 07:36 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/740334013446.shtml)
+- 2026-06-30 07:47 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/962355448.shtml)

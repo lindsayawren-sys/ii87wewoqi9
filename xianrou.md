@@ -1,58 +1,57 @@
-# OEG延长巴斯海峡海上作业钻井支持合同
+# 跨境理财通，最新数据公布！
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-海上服务公司OEG已与一家全球运营商签订了一份为期多年的数百万美元合同延期协议，为澳大利亚巴斯海峡的海上钻井作业提供支持，合同有效期预计将持续至2036年该油田生产周期结束。 该协议涵盖了从OEG位于澳大利亚维多利亚州的Barry Beach工厂供应和制造200个经DNV认证的海上货物运输单元。 OEG还将提供这些单元的检查、维护和维修服务，以及起重和吊装支持。 该公司表示，此
+近日，中国人民银行广东省分行通报了跨境理财通业务最新情况。 截至2026年5月末，粤港澳大湾区参与“跨境理财通”个人投资者18.15万人，其中内地投资者12.63万人，港澳投资者5.52万人，境内试点机构通过资金闭环汇划管道办理资金跨境汇划金额1386.16亿元。 尚未看到明显增量 目前来看，监管对非法跨境证券业务的整治，尚未给跨境理财通业务带来超预期增量。5月粤港澳大湾区参与
 
 ## 正文
 
-海上服务公司OEG已与一家全球运营商签订了一份为期多年的数百万美元合同延期协议，为澳大利亚巴斯海峡的海上钻井作业提供支持，合同有效期预计将持续至2036年该油田生产周期结束。
+近日，中国人民银行广东省分行通报了跨境理财通业务最新情况。
 
-该协议涵盖了从OEG位于澳大利亚维多利亚州的Barry Beach工厂供应和制造200个经DNV认证的海上货物运输单元。
+截至2026年5月末，粤港澳大湾区参与“跨境理财通”个人投资者18.15万人，其中内地投资者12.63万人，港澳投资者5.52万人，境内试点机构通过资金闭环汇划管道办理资金跨境汇划金额1386.16亿元。
 
-OEG还将提供这些单元的检查、维护和维修服务，以及起重和吊装支持。
+尚未看到明显增量 目前来看，监管对非法跨境证券业务的整治，尚未给跨境理财通业务带来超预期增量。
 
-该公司表示，此次合同延期将使OEG在该地区为该运营商海上作业提供支持的货物运输单元及服务单元总数增至约700个。
+5月粤港澳大湾区参与“跨境理财通”的个人投资者新增857人，境内试点机构通过资金闭环汇划管道办理资金跨境汇划金额11.55亿元，其中北向通跨境汇划金额0.14亿元，南向通跨境汇划金额11.42亿元。
 
-OEG澳新区域总监博·罗宾斯表示：“此次合同延期反映了一段多年来建立的长期合作关系。
+而在4月，粤港澳大湾区参与“跨境理财通”的个人投资者新增750人，境内试点机构通过资金闭环汇划管道办理资金跨境汇划金额14.96亿元，其中北向通跨境汇划金额0.07亿元，南向通跨境汇划金额14.89亿元。
 
-它也凸显了长期租赁协议在支持运营规划和设备可用性、减少计划外维护以及帮助运营商提高效率、同时在整个油田生命周期内节省资本方面的价值。
+两相对比之下，显示相关业务规模增长有限。
 
-” 巴斯海峡自20世纪60年代末以来一直是澳大利亚主要的海上油气生产区域之一。
+香港仍是跨境理财通业务开展的桥头堡。
 
-责任编辑：张俊 SF065
+2026年5月，内地与香港间往来的“跨境理财通”业务跨境汇划金额8.45亿元，占比73.1%；内地与澳门间往来的“跨境理财通”业务金额3.11亿元，占比26.9%。
 
 ## 相关推荐
 
-- 2026-06-30 07:34 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-30 07:51 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-30 07:39 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-30 07:55 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
-- 2026-06-30 07:55 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-30 07:47 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-30 07:46 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-30 07:35 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-30 07:32 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-30 07:53 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-30 07:40 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
-- 2026-06-30 07:34 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-30 07:48 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-30 07:58 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
+- 2026-06-30 07:49 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-30 07:45 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
+- 2026-06-30 08:03 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-30 07:50 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
+- 2026-06-30 07:42 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-30 08:04 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-30 08:02 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-30 07:54 - [王楚钦说配合稍微有些陌生感](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
+- 2026-06-30 07:49 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:50 - [老外对中国cosplay竟这样评价…](http://www.share.kurohicncr.top/Article/details/78073710.shtml)
-- 2026-06-30 07:44 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/8157823769.shtml)
-- 2026-06-30 07:49 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/65353931271.shtml)
-- 2026-06-30 07:58 - [王欣瑜2-1击败科恰雷托](http://www.blog.minike.top/Article/details/55574131491.shtml)
-- 2026-06-30 07:43 - [徐亮怒斥世界杯踢假球](http://www.blog.kurohicncr.top/Article/details/74904483898.shtml)
-- 2026-06-30 07:54 - [王欣瑜温网开门红](http://www.blog.minike.top/Article/details/20413.shtml)
-- 2026-06-30 07:56 - [南北多地暴雨和强对流天气持续](https://www.blog.kurohicncr.top/Article/details/01485832.shtml)
-- 2026-06-30 07:53 - [小娘惹](https://www.share.minike.top/Article/details/9714329690.shtml)
-- 2026-06-30 07:47 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.blog.minike.top/Article/details/755616201.shtml)
-- 2026-06-30 07:32 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/463122.shtml)
-- 2026-06-30 07:56 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.kurohicncr.top/Article/details/47605011819.shtml)
-- 2026-06-30 07:37 - [内马尔中场休息积极鼓励队友](http://www.share.kurohicncr.top/Article/details/09054449.shtml)
-- 2026-06-30 07:40 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/33016657.shtml)
-- 2026-06-30 07:39 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/08908113335.shtml)
-- 2026-06-30 07:34 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/543894401.shtml)
+- 2026-06-30 07:52 - [中国新一轮出口管制直指日本命脉](https://www.blog.kurohicncr.top/Article/details/947788405.shtml)
+- 2026-06-30 07:59 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/3823054313.shtml)
+- 2026-06-30 07:40 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/62347.shtml)
+- 2026-06-30 07:43 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/053623346577.shtml)
+- 2026-06-30 07:57 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/252571329.shtml)
+- 2026-06-30 07:51 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/05881813.shtml)
+- 2026-06-30 07:58 - [恋与深空制作组回应近期争议](http://www.share.kurohicncr.top/Article/details/1063978.shtml)
+- 2026-06-30 07:40 - [不开心就去看三年前的购物订单](https://www.share.minike.top/Article/details/07657600679.shtml)
+- 2026-06-30 07:41 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/10989.shtml)
+- 2026-06-30 07:54 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/211066661.shtml)
+- 2026-06-30 07:48 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/33868206.shtml)
+- 2026-06-30 07:45 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/76392746569.shtml)
+- 2026-06-30 08:04 - [F1奥地利站赛后复盘](https://www.blog.minike.top/Article/details/86062.shtml)
+- 2026-06-30 07:55 - [流金岁月](http://www.blog.minike.top/Article/details/66228830.shtml)
+- 2026-06-30 07:47 - [委内瑞拉地震死亡人数升至1719人](https://www.share.kurohicncr.top/Article/details/50039272.shtml)

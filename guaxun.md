@@ -1,58 +1,58 @@
-# 吉林释放空域红利 构建完整低空经济产业生态
+# 香港贸发局展台首次亮相链博会，变身内地企业“出海”加油站
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-中新社长春5月14日电 (李彦国 高龙安)吉林省优化后的无人驾驶航空器适飞空域14日零时起正式启用。这一关键政策突破，为该省打造低空经济产业集群注入强劲动力。 目前，吉林省已将低空经济与新材料、人工智能、氢能与新型储能等一并纳入“十五五”现代化产业体系。吉林省发展和改革委员会主任李平介绍，该省不仅在无人机研发、零部件配套等领域积累了成熟技术，构建起覆盖研发、制造、运营的全产业链
+发布时间：2026年06月23日 21:45 来源：中国新闻网 22日下午，在第四届中国国际供应链促进博览会供应链服务展区，香港贸易发展局展台前的咨询一场接一场。几位企业负责人刚离开，又有新的参观者围到展台前。据了解，今年是香港贸发局展台首次亮相链博会。与众多展示产品和技术的展台不同，这里最吸引人的，是一个关键词——“出海”。香港贸发局华北、东北首席代表陈嘉贤接受中国新闻网采访
 
 ## 正文
 
-中新社长春5月14日电 (李彦国 高龙安)吉林省优化后的无人驾驶航空器适飞空域14日零时起正式启用。
+发布时间：2026年06月23日 21:45 来源：中国新闻网 22日下午，在第四届中国国际供应链促进博览会供应链服务展区，香港贸易发展局展台前的咨询一场接一场。
 
-这一关键政策突破，为该省打造低空经济产业集群注入强劲动力。
+几位企业负责人刚离开，又有新的参观者围到展台前。
 
-目前，吉林省已将低空经济与新材料、人工智能、氢能与新型储能等一并纳入“十五五”现代化产业体系。
+据了解，今年是香港贸发局展台首次亮相链博会。
 
-吉林省发展和改革委员会主任李平介绍，该省不仅在无人机研发、零部件配套等领域积累了成熟技术，构建起覆盖研发、制造、运营的全产业链条，还凭借丰富多元的应用场景、坚实的科教人才支撑和独特寒地气候，成为全国开展低空飞行器商业化测试服务的理想区域。
+与众多展示产品和技术的展台不同，这里最吸引人的，是一个关键词——“出海”。
 
-2025年2月，长春市发布中国首个低空行业大模型“紫东长空”，由长春净月高新区承建的吉林省低空飞行服务管理平台已集成该大模型，完成长春市主城区约500平方公里的数字地图建模与北斗网格编码布设。
+香港贸发局华北、东北首席代表陈嘉贤接受中国新闻网采访时表示，香港不仅是内地企业“出海”的“连接器”，更是“增值器”和“合伙人”，这就是香港贸发局在链博会设立展台的初衷。
 
-被誉为“中国碳谷”的吉林市，是全球最大的碳纤维原丝生产基地、全国最大的碳纤维生产基地。
+“香港通道、链接全球，正如我们展台上那醒目的八个字所体现的，香港正致力于成为内地企业‘出海’航线上的重要中转站。
 
-当地已与多家中外无人机龙头企业开展深度合作，生产无人机结构件、碳纤维预浸料等产品，推动碳纤维材料在无人机领域的应用进程。
-
-李平介绍说，吉林省正在大力培养低空经济人才，吉林大学等18所院校已开设相关专业，全省每年可培养输送3000余名低空经济专业人才，为产业智能化、创新化发展提供坚实智力支撑。
+”(记者 朱延静 徐峻杰 实习生 王静怡） 责任编辑：【吉翔】
 
 ## 相关推荐
 
-- 2026-06-30 07:58 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
-- 2026-06-30 07:34 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-30 07:54 - [马耳他著名拱门坍塌致中国男子身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-30 07:45 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-30 07:36 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-30 07:57 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-30 07:57 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-30 07:36 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
-- 2026-06-30 07:34 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-30 07:59 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-30 07:31 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-30 07:40 - [德国巴拉圭进入点球大战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
+- 2026-06-30 07:52 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-30 07:47 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-30 07:51 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-30 07:44 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-30 07:47 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
+- 2026-06-30 08:03 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-30 07:54 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-30 07:47 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-30 07:57 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
+- 2026-06-30 07:54 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-30 08:05 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-30 07:40 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-30 07:41 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-30 07:36 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:51 - [天道](http://www.blog.minike.top/Article/details/8333410200.shtml)
-- 2026-06-30 07:34 - [任素汐舞台上唱《王招君》](http://www.share.minike.top/Article/details/363978687406.shtml)
-- 2026-06-30 07:39 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/3322602474.shtml)
-- 2026-06-30 07:39 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/881725698012.shtml)
-- 2026-06-30 07:39 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/707470954086.shtml)
-- 2026-06-30 07:49 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.minike.top/Article/details/392031032188.shtml)
-- 2026-06-30 07:32 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/98132298761.shtml)
-- 2026-06-30 07:47 - [国务院：鼓励行业龙头企业举办职校](http://www.share.minike.top/Article/details/461383261672.shtml)
-- 2026-06-30 07:58 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/80978737.shtml)
-- 2026-06-30 07:46 - [中国新一轮出口管制直指日本命脉](http://www.blog.kurohicncr.top/Article/details/73561.shtml)
-- 2026-06-30 07:42 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.kurohicncr.top/Article/details/71456845.shtml)
-- 2026-06-30 07:31 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.kurohicncr.top/Article/details/715746033091.shtml)
-- 2026-06-30 07:36 - [起风了](http://www.share.minike.top/Article/details/97233.shtml)
-- 2026-06-30 07:39 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/94391.shtml)
-- 2026-06-30 07:49 - [森保一 保守](http://www.blog.minike.top/Article/details/2575727.shtml)
+- 2026-06-30 07:36 - [三星投资计划](https://www.blog.kurohicncr.top/Article/details/64835485826.shtml)
+- 2026-06-30 07:42 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/273020943.shtml)
+- 2026-06-30 07:50 - [千与千寻](https://www.share.kurohicncr.top/Article/details/238504.shtml)
+- 2026-06-30 07:46 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/114754.shtml)
+- 2026-06-30 08:03 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/3841828.shtml)
+- 2026-06-30 07:55 - [巴西2-1绝杀日本](http://www.share.minike.top/Article/details/823781.shtml)
+- 2026-06-30 07:54 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/01167049311.shtml)
+- 2026-06-30 07:57 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/828896550279.shtml)
+- 2026-06-30 07:50 - [南北多地暴雨和强对流天气持续](https://www.share.kurohicncr.top/Article/details/95606021.shtml)
+- 2026-06-30 07:59 - [锐评T1战胜KC](https://www.share.kurohicncr.top/Article/details/0141393.shtml)
+- 2026-06-30 07:40 - [老外对中国cosplay竟这样评价…](https://www.share.kurohicncr.top/Article/details/250895465.shtml)
+- 2026-06-30 07:54 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/62946793.shtml)
+- 2026-06-30 08:05 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/2628870.shtml)
+- 2026-06-30 07:41 - [巴西把自己踢晕了](http://www.blog.minike.top/Article/details/21232.shtml)
+- 2026-06-30 07:43 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/17231674749.shtml)

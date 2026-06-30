@@ -1,60 +1,55 @@
-# 一见·从世界期待中，感受中美元首外交的分量
+# 企业微信证内测“大圆”agent，可自动理解用户诉求并结合对应场景给出回复
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-应中国国家主席习近平邀请，美国总统特朗普于5月13日至15日对中国进行国事访问。 时隔9年，美国总统再次访华。中美关系史上的又一重要时刻，迅速吸引全球媒体的聚光灯。 中美关系，当今世界最重要的双边关系之一。太平洋两岸的这两个大国如何相处，事关国际局势走向。而元首外交，始终是中美关系的“定盘星”。从这个角度，更能看到全球目光聚焦北京凝聚的分量。 对中美关系而言，元首外交具有不可替
+6月23日消息，腾讯公司公关总监张军今日发布微博称，企业微信即将推出名为“大圆”agent，目前已进入内测阶段。“大圆”更像是一个“长在企业微信里”的AI助理。该产品并不要求用户反复说上下文，而是可以基于企业微信内已有的群聊、文档、会议、邮件、日程等工作数据，自动理解用户诉求，并结合对应场景给出回复。在企微里任何时候，只要向左侧轻滑，即可唤起大圆，TA能智能识别你所在的界面，知
 
 ## 正文
 
-应中国国家主席习近平邀请，美国总统特朗普于5月13日至15日对中国进行国事访问。
+6月23日消息，腾讯公司公关总监张军今日发布微博称，企业微信即将推出名为“大圆”agent，目前已进入内测阶段。
 
-时隔9年，美国总统再次访华。
+“大圆”更像是一个“长在企业微信里”的AI助理。
 
-中美关系史上的又一重要时刻，迅速吸引全球媒体的聚光灯。
+该产品并不要求用户反复说上下文，而是可以基于企业微信内已有的群聊、文档、会议、邮件、日程等工作数据，自动理解用户诉求，并结合对应场景给出回复。
 
-中美关系，当今世界最重要的双边关系之一。
+在企微里任何时候，只要向左侧轻滑，即可唤起大圆，TA能智能识别你所在的界面，知道你在问什么，帮你更好解决问题。
 
-太平洋两岸的这两个大国如何相处，事关国际局势走向。
-
-而元首外交，始终是中美关系的“定盘星”。
-
-从这个角度，更能看到全球目光聚焦北京凝聚的分量。
-
-对中美关系而言，元首外交具有不可替代的战略引领作用。
+责任编辑：梁斌 SF055
 
 ## 相关推荐
 
-- 2026-06-30 07:47 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
-- 2026-06-30 07:40 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-30 07:48 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-30 07:31 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
-- 2026-06-30 07:47 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-30 07:45 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
-- 2026-06-30 07:53 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
-- 2026-06-30 07:50 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-30 07:56 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
-- 2026-06-30 07:38 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-30 07:36 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
-- 2026-06-30 07:54 - [周冬雨多次说演不了话剧文城](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-30 07:47 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-30 07:43 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-30 07:59 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
+- 2026-06-30 07:47 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-30 07:47 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-30 07:53 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-30 07:44 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-30 07:48 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-30 08:01 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
+- 2026-06-30 08:00 - [男子在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
+- 2026-06-30 07:51 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-30 07:44 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-30 08:04 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-30 07:45 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-30 07:41 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
+- 2026-06-30 07:45 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-30 07:41 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:34 - [男子身高一米八二仍做断骨增高](https://www.blog.kurohicncr.top/Article/details/18911699.shtml)
-- 2026-06-30 07:37 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/25527518117.shtml)
-- 2026-06-30 07:50 - [巴西2比1日本](http://www.blog.kurohicncr.top/Article/details/42136.shtml)
-- 2026-06-30 07:39 - [老外对中国cosplay竟这样评价…](https://www.blog.minike.top/Article/details/570151.shtml)
-- 2026-06-30 07:53 - [这一刀 会很帅](https://www.share.minike.top/Article/details/099579329041.shtml)
-- 2026-06-30 07:42 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/3208484175.shtml)
-- 2026-06-30 07:40 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.kurohicncr.top/Article/details/45470544.shtml)
-- 2026-06-30 07:33 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/52716676.shtml)
-- 2026-06-30 07:54 - [《共患难》](https://www.share.minike.top/Article/details/52972536268.shtml)
-- 2026-06-30 07:58 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/77962.shtml)
-- 2026-06-30 07:50 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/12078529460.shtml)
-- 2026-06-30 07:49 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/2158501030.shtml)
-- 2026-06-30 07:58 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/89467.shtml)
-- 2026-06-30 07:48 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/27050.shtml)
-- 2026-06-30 07:41 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/4216278558.shtml)
+- 2026-06-30 07:42 - [世界杯巴拉圭点球淘汰德国](https://www.share.kurohicncr.top/Article/details/207476673238.shtml)
+- 2026-06-30 07:47 - [医药暴涨5.91%背后](http://www.share.minike.top/Article/details/66207258.shtml)
+- 2026-06-30 07:44 - [金牌调解](http://www.share.kurohicncr.top/Article/details/68894013.shtml)
+- 2026-06-30 07:57 - [明星大侦探第四季](https://www.share.minike.top/Article/details/2501867.shtml)
+- 2026-06-30 07:56 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.kurohicncr.top/Article/details/5425460.shtml)
+- 2026-06-30 07:52 - [勇士续约波尔津吉斯](https://www.blog.kurohicncr.top/Article/details/37549.shtml)
+- 2026-06-30 07:51 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/758785654.shtml)
+- 2026-06-30 07:55 - [女子遭下药退赔偿拟追刑责](http://www.share.kurohicncr.top/Article/details/777031263.shtml)
+- 2026-06-30 07:36 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/0810949291.shtml)
+- 2026-06-30 08:00 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/1673819.shtml)
+- 2026-06-30 08:00 - [一生一世](https://www.share.minike.top/Article/details/74783724741.shtml)
+- 2026-06-30 07:57 - [日本半场1比0领先巴西](https://www.blog.minike.top/Article/details/86095822.shtml)
+- 2026-06-30 08:00 - [媒体评泰山建135公里刀片刺绳隔离网](http://www.share.minike.top/Article/details/0165296.shtml)
+- 2026-06-30 07:43 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/457453736.shtml)
+- 2026-06-30 07:52 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/121566626941.shtml)

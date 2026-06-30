@@ -1,59 +1,57 @@
-# Moneta Markets外汇:油气投资格局加速重构
+# 金价跌破4100美元 科技股抛售及通胀风险影响市场情绪
 
-> 更新时间：2026-06-30 08:00:02 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-5月14日，国际能源行业近期出现明显的战略调整。Moneta Markets外汇表示，受中东供应不确定性影响，国际大型石油公司开始重新审视此前被认为不具吸引力的产区，阿拉斯加等高纬度地区的勘探活动正在悄然加速，全球油气投资版图正经历自上一轮油价超级周期以来最显著的再平衡。 从具体动向看，多家国际大型石油公司正在加大对常规油气项目的资本开支。Moneta Markets外汇认为，
+国际金价连续第二个交易日下跌，受美元走强以及科技股带动的股市抛售影响，投资者削减黄金持仓。 现货黄金价格一度下跌1.4%，至每盎司4058美元，此前一个交易日已下跌1.7%，创下两周以来最低收盘价。美国国债周二上涨，彭博美元即期指数本周已上涨0.6%，使得以美元计价的贵金属价格更贵。 金价“正日益与实际收益率重新挂钩”，华侨银行策略师Christopher Wong表示。 尽管
 
 ## 正文
 
-5月14日，国际能源行业近期出现明显的战略调整。
+国际金价连续第二个交易日下跌，受美元走强以及科技股带动的股市抛售影响，投资者削减黄金持仓。
 
-Moneta Markets外汇表示，受中东供应不确定性影响，国际大型石油公司开始重新审视此前被认为不具吸引力的产区，阿拉斯加等高纬度地区的勘探活动正在悄然加速，全球油气投资版图正经历自上一轮油价超级周期以来最显著的再平衡。
+现货黄金价格一度下跌1.4%，至每盎司4058美元，此前一个交易日已下跌1.7%，创下两周以来最低收盘价。
 
-从具体动向看，多家国际大型石油公司正在加大对常规油气项目的资本开支。
+美国国债周二上涨，彭博美元即期指数本周已上涨0.6%，使得以美元计价的贵金属价格更贵。
 
-Moneta Markets外汇认为，这一转向反映出市场对能源安全的认知发生了根本性变化，单纯依赖现货市场的策略已难以应对当前地缘风险的复杂性。
+金价“正日益与实际收益率重新挂钩”，华侨银行策略师Christopher Wong表示。
 
-在能源转型的大背景下，传统化石能源仍将在中长期发挥支柱作用，相关投资逻辑正从短周期回报转向长周期供应安全，资本配置节奏随之调整。
+尽管黄金通常被视为避险投资，但在跨市场大幅抛售期间往往会下跌，因为投资者将其作为流动性来源。
 
-对外汇市场而言，能源投资格局的调整也会通过贸易差额、资本流动等渠道影响主要货币走势。
+周二华尔街股市暴跌，市场担心人工智能推动的股市涨势过头，不过亚洲股市此后出现谨慎复苏。
 
-产油国货币近期获得相对支撑，而能源进口国则面临成本压力上升的挑战。
+避险情绪进一步加剧金价压力。
 
-投资者宜关注主要经济体的经常账户数据，结合大宗商品走势综合判断主要汇价的中期方向，避免被短期消息左右。
+此前，持续存在的通胀风险以及各国央行更可能维持利率不变甚至加息的预期，已经令黄金价格承压。
 
 ## 相关推荐
 
-- 2026-06-30 07:49 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-30 07:46 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-30 07:33 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-30 07:37 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-30 07:51 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-30 07:45 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-30 07:49 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
-- 2026-06-30 07:30 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-30 07:59 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-30 07:45 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-30 07:52 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
-- 2026-06-30 07:43 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-30 07:44 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
+- 2026-06-30 07:58 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-30 07:40 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-30 07:41 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-30 07:39 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-30 07:49 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
+- 2026-06-30 08:01 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-30 07:55 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-30 07:45 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-30 08:03 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-30 07:39 - [网瘾賊大的阿嬷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-30 08:02 - [三星投资计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:50 - [刘必安等16人非法集资案二审宣判](http://www.share.kurohicncr.top/Article/details/9983710.shtml)
-- 2026-06-30 07:50 - [美人鱼](http://www.share.minike.top/Article/details/258456665.shtml)
-- 2026-06-30 07:53 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.share.kurohicncr.top/Article/details/60404.shtml)
-- 2026-06-30 07:45 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/8764421575.shtml)
-- 2026-06-30 07:38 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/07307.shtml)
-- 2026-06-30 07:39 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/74638745.shtml)
-- 2026-06-30 07:40 - [巴西2比1日本](http://www.share.kurohicncr.top/Article/details/108851.shtml)
-- 2026-06-30 07:44 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/016952178588.shtml)
-- 2026-06-30 07:56 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.kurohicncr.top/Article/details/75945069.shtml)
-- 2026-06-30 07:38 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.minike.top/Article/details/6668028035.shtml)
-- 2026-06-30 07:56 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/302353787.shtml)
-- 2026-06-30 07:45 - [日本反击率先破门](https://www.share.minike.top/Article/details/6822794976.shtml)
-- 2026-06-30 07:44 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/7058540.shtml)
-- 2026-06-30 07:54 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/8357800360.shtml)
-- 2026-06-30 07:54 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/623827.shtml)
+- 2026-06-30 07:36 - [有酒店推行24小时退房制](https://www.share.kurohicncr.top/Article/details/59157206.shtml)
+- 2026-06-30 07:54 - [二次元提前预演明日巴西对日本](https://www.blog.kurohicncr.top/Article/details/85511940.shtml)
+- 2026-06-30 08:04 - [这种关系可能正在悄悄“催老”你](https://www.share.kurohicncr.top/Article/details/06638905434.shtml)
+- 2026-06-30 07:57 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/022777756.shtml)
+- 2026-06-30 07:44 - [索马里女大使：想和中国一起搞事业](http://www.blog.minike.top/Article/details/80540945.shtml)
+- 2026-06-30 07:38 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.minike.top/Article/details/275675593.shtml)
+- 2026-06-30 07:36 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/72061767739.shtml)
+- 2026-06-30 08:00 - [DeepSeek V4正式版要来了](https://www.blog.minike.top/Article/details/083607.shtml)
+- 2026-06-30 07:57 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/8997317.shtml)
+- 2026-06-30 07:46 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/473544.shtml)
+- 2026-06-30 07:38 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/7350107.shtml)
+- 2026-06-30 07:40 - [巴西把自己踢晕了](http://www.blog.minike.top/Article/details/31425.shtml)
+- 2026-06-30 07:42 - [周生如故](https://www.blog.kurohicncr.top/Article/details/91222340.shtml)
+- 2026-06-30 07:38 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/7238286083.shtml)
+- 2026-06-30 07:59 - [审核了不止十年的低创鬼畜](https://www.blog.kurohicncr.top/Article/details/73664360.shtml)

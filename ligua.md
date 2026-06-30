@@ -1,61 +1,57 @@
-# Stran一季度实现盈利拐点，重启回购并推出数字解决方案
+# 恒瑞医药盘中涨近7% 瑞维鲁胺片上市许可申请获欧洲EMA受理
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-外包营销解决方案提供商Stran & Company在实现盈利拐点后，正加速推进多项战略举措。公司首席执行官在财报电话会上表示，公司将重启股票回购计划，并正式推出数字解决方案SaaS平台。 Q1业绩实现盈利转折 2026年第一季度，Stran实现了关键的盈利拐点。财报显示，公司营收同比增长8.9%至3120万美元，净利润达70万美元，成功扭转了去年同期40万美元的净亏损局面。E
+恒瑞医药（01276）盘中涨近7%，截至发稿，股价上涨4.82%，现报57.60港元，成交额1.73亿港元。 恒瑞医药公告称，自主研发的1类创新药瑞维鲁胺片上市许可申请获欧洲药品管理局（EMA）正式受理。这是恒瑞首个以自主原研身份独立向欧盟递交上市申请的创新药，标志着公司国际化战略从早期License-out授权模式，迈向核心创新药自主冲击欧美主流市场的新阶段。 公开资料显示，
 
 ## 正文
 
-外包营销解决方案提供商Stran & Company在实现盈利拐点后，正加速推进多项战略举措。
+恒瑞医药（01276）盘中涨近7%，截至发稿，股价上涨4.82%，现报57.60港元，成交额1.73亿港元。
 
-公司首席执行官在财报电话会上表示，公司将重启股票回购计划，并正式推出数字解决方案SaaS平台。
+恒瑞医药公告称，自主研发的1类创新药瑞维鲁胺片上市许可申请获欧洲药品管理局（EMA）正式受理。
 
-Q1业绩实现盈利转折 2026年第一季度，Stran实现了关键的盈利拐点。
+这是恒瑞首个以自主原研身份独立向欧盟递交上市申请的创新药，标志着公司国际化战略从早期License-out授权模式，迈向核心创新药自主冲击欧美主流市场的新阶段。
 
-财报显示，公司营收同比增长8.9%至3120万美元，净利润达70万美元，成功扭转了去年同期40万美元的净亏损局面。
+公开资料显示，2024年纳入国家医保目录后，瑞维鲁胺患者可及性显著提升，医院覆盖范围持续扩大，销售增长持续快于行业平均水平。
 
-EBITDA也由负转正，从去年同期的亏损20万美元提升至100万美元。
+2025年其国内销售额达到18.51亿元，位居国产泌尿肿瘤创新药第一梯队。
 
-公司首席执行官强调，这是公司业务盈利轨迹的根本性转变。
+据Evaluate Pharma数据显示，2025年全球第二代雄激素受体抑制剂销售额合计达128.9亿美元。
 
-两个业务板块同时实现盈利，毛利率从21.8%大幅提升至28.7%。
-
-重启回购：彰显管理层信心 由于一季度处于交易静默期，公司未能在此期间进行回购。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 07:43 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
-- 2026-06-30 07:37 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-30 07:46 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-30 07:35 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-30 07:53 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-30 07:43 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-30 07:48 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-30 07:41 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
-- 2026-06-30 07:59 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
-- 2026-06-30 07:52 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
-- 2026-06-30 07:47 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-30 07:54 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-30 07:59 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
-- 2026-06-30 07:46 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-30 07:36 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-30 07:49 - [恋与深空道歉声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-30 07:40 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
+- 2026-06-30 07:58 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-30 07:57 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-30 07:56 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-30 07:39 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-30 07:58 - [日本进球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-30 07:40 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-30 07:50 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-30 08:04 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-30 07:48 - [感动全网的699分女生想报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-30 07:50 - [苗族银饰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-30 07:44 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:43 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.share.kurohicncr.top/Article/details/26442600507.shtml)
-- 2026-06-30 07:35 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/948695138.shtml)
-- 2026-06-30 07:37 - [男子醉酒溺水获救后同行人拒协助抬人](https://www.share.minike.top/Article/details/68312364.shtml)
-- 2026-06-30 07:30 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/79160719353.shtml)
-- 2026-06-30 07:54 - [巴西把自己踢晕了](http://www.blog.minike.top/Article/details/31599193026.shtml)
-- 2026-06-30 07:33 - [董卿父亲在报纸上发文悼念亡妻](https://www.share.minike.top/Article/details/27085.shtml)
-- 2026-06-30 07:44 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.minike.top/Article/details/17435.shtml)
-- 2026-06-30 07:32 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/78787.shtml)
-- 2026-06-30 07:44 - [美人鱼](https://www.share.minike.top/Article/details/9301599.shtml)
-- 2026-06-30 07:47 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/12822.shtml)
-- 2026-06-30 07:38 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.kurohicncr.top/Article/details/7719813.shtml)
-- 2026-06-30 07:46 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.blog.kurohicncr.top/Article/details/86788.shtml)
-- 2026-06-30 07:57 - [感动全网的699分女生想报考清华](http://www.blog.minike.top/Article/details/041316295880.shtml)
-- 2026-06-30 07:55 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.blog.kurohicncr.top/Article/details/5652397.shtml)
-- 2026-06-30 07:53 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/09227756651.shtml)
+- 2026-06-30 07:48 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.minike.top/Article/details/57110.shtml)
+- 2026-06-30 08:03 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/33048161.shtml)
+- 2026-06-30 07:53 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.kurohicncr.top/Article/details/15407842.shtml)
+- 2026-06-30 08:00 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/6410175932.shtml)
+- 2026-06-30 07:40 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/4665210208.shtml)
+- 2026-06-30 07:43 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.kurohicncr.top/Article/details/29027190.shtml)
+- 2026-06-30 07:37 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/2984117.shtml)
+- 2026-06-30 08:04 - [董卿父亲在报纸上发文悼念亡妻](http://www.blog.minike.top/Article/details/21650650349.shtml)
+- 2026-06-30 07:43 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/98292816.shtml)
+- 2026-06-30 08:00 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/221974.shtml)
+- 2026-06-30 07:42 - [郑钦文温网三连败西尼亚科娃](http://www.blog.minike.top/Article/details/378836457.shtml)
+- 2026-06-30 07:59 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/08027233.shtml)
+- 2026-06-30 07:56 - [金牌调解](https://www.share.kurohicncr.top/Article/details/80761593.shtml)
+- 2026-06-30 07:54 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/849026561700.shtml)
+- 2026-06-30 08:05 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/045781980447.shtml)

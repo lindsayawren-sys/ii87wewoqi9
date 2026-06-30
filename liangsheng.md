@@ -1,57 +1,59 @@
-# 珠江流域启动Ⅳ级应急响应
+# 0.30%收入撑起两连板？新亚强“光纤概念”回复翻车，老董秘桑修申被上交所点名 | 长三角资本局
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-中新网广州5月14日电 (记者 王坚)珠江防总14日17时启动防汛Ⅳ级应急响应，水利部珠江水利委员会(下称“珠江委”)同步启动洪水防御Ⅳ级应急响应。 珠江委介绍，受高空槽、切变线、偏南气流共同影响，预计14至16日，珠江流域西北部及东部仍将有强降雨过程，以大到暴雨为主，局地大暴雨，其中北盘江、红水河、珠江三角洲、东江、韩江、粤东沿海诸河等地累计雨量将有100至150毫米，局地可
+登录新浪财经APP 搜索【信披】查看更多考评等级 文|新浪财经上海站 十里 一场发生在上证E互动平台上的问答，把新亚强和老董秘桑修申推到了监管台前。 6月20日，新亚强公告称，公司收到上交所监管警示决定。事情的起点并不复杂。6月8日，有投资者在上证E互动平台提问，询问公司产品是否可用于光纤制造。新亚强回复称，公司高纯四氯化硅、硅酸乙酯产品是光纤预制棒生产的主要原料，公司将持续深
 
 ## 正文
 
-中新网广州5月14日电 (记者 王坚)珠江防总14日17时启动防汛Ⅳ级应急响应，水利部珠江水利委员会(下称“珠江委”)同步启动洪水防御Ⅳ级应急响应。
+登录新浪财经APP 搜索【信披】查看更多考评等级 文|新浪财经上海站 十里 一场发生在上证E互动平台上的问答，把新亚强和老董秘桑修申推到了监管台前。
 
-珠江委介绍，受高空槽、切变线、偏南气流共同影响，预计14至16日，珠江流域西北部及东部仍将有强降雨过程，以大到暴雨为主，局地大暴雨，其中北盘江、红水河、珠江三角洲、东江、韩江、粤东沿海诸河等地累计雨量将有100至150毫米，局地可能超过200毫米。
+6月20日，新亚强公告称，公司收到上交所监管警示决定。
 
-珠江委表示，受强降雨影响，西江上游、东江、韩江等主要河流将出现明显涨水过程，暴雨区内部分中小河流可能发生超警洪水，山洪灾害发生风险较高。
+事情的起点并不复杂。
 
-按照《珠江防汛抗旱总指挥部防汛抗旱应急预案》《珠江流域(片)水旱灾害防御应急响应工作规程》，珠江防总于5月14日17时启动防汛Ⅳ级应急响应，珠江委同步启动洪水防御Ⅳ级应急响应。
+6月8日，有投资者在上证E互动平台提问，询问公司产品是否可用于光纤制造。
 
-连日来，珠江防总、珠江委密切监视流域雨水汛情发展态势，加密滚动预测预报和会商研判，强化防汛联合值守，第一时间向有关地方发出防御通知和汛情通报，督促指导做好流域水库群联合调度、水工程安全度汛、中小河流洪水和山洪灾害防御等工作。
+新亚强回复称，公司高纯四氯化硅、硅酸乙酯产品是光纤预制棒生产的主要原料，公司将持续深耕电子级化学品领域，积极拓展包括光纤在内的各类应用场景。
 
-(完)
+这句话看起来像一次常规的投资者互动，但在当下市场语境里，“光纤”两个字并不普通。
+
+AI算力、CPO、光模块、光通信等概念轮番活跃，任何与产业链稍有相关的表述，都可能被资金迅速放大。
+
+新亚强的回复发布后，股价很快给出反应。
 
 ## 相关推荐
 
-- 2026-06-30 07:43 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
-- 2026-06-30 07:51 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
-- 2026-06-30 07:46 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-30 07:59 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-30 07:34 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-30 07:52 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-30 07:59 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-30 07:34 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-30 07:48 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-30 07:42 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-30 07:54 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-30 07:52 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
-- 2026-06-30 07:35 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-30 07:35 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-30 07:43 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-30 08:02 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-30 08:03 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-30 08:01 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-30 07:59 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-30 08:00 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-30 07:45 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-30 07:48 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
+- 2026-06-30 08:01 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-30 08:00 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-30 07:42 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-30 07:38 - [点球大战 残酷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-30 07:51 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-30 07:52 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:39 - [【大鸣王潮1566】真拿你没办法](http://www.share.kurohicncr.top/Article/details/959371.shtml)
-- 2026-06-30 07:40 - [周生如故](http://www.share.kurohicncr.top/Article/details/818757.shtml)
-- 2026-06-30 07:45 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/830777172.shtml)
-- 2026-06-30 07:32 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.minike.top/Article/details/433416613.shtml)
-- 2026-06-30 07:34 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/03347.shtml)
-- 2026-06-30 07:33 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/05702574.shtml)
-- 2026-06-30 07:42 - [美股](http://www.blog.minike.top/Article/details/023847516108.shtml)
-- 2026-06-30 07:39 - [巴西扳平比分](https://www.blog.minike.top/Article/details/85776856219.shtml)
-- 2026-06-30 07:40 - [齐思钧回复张月](https://www.share.minike.top/Article/details/08335825169.shtml)
-- 2026-06-30 07:58 - [好像看到了人类带孩子崩溃的样子](http://www.blog.minike.top/Article/details/53135871111.shtml)
-- 2026-06-30 07:33 - [父母催婚话术是如何做到全国统一的](https://www.share.minike.top/Article/details/08468456964.shtml)
-- 2026-06-30 07:31 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.kurohicncr.top/Article/details/7503651.shtml)
-- 2026-06-30 07:36 - [输球后日本球迷被强行披上巴西国旗](http://www.blog.kurohicncr.top/Article/details/78737925.shtml)
-- 2026-06-30 07:42 - [点球大战](http://www.blog.minike.top/Article/details/951647090388.shtml)
-- 2026-06-30 07:52 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/8501387.shtml)
+- 2026-06-30 07:54 - [覃予萱晋级WTT美国大满贯女单32强](http://www.share.kurohicncr.top/Article/details/224624501.shtml)
+- 2026-06-30 08:01 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/1843504389.shtml)
+- 2026-06-30 07:53 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/68132578.shtml)
+- 2026-06-30 07:50 - [巴西2比1日本](http://www.share.kurohicncr.top/Article/details/876916453.shtml)
+- 2026-06-30 07:50 - [库尼亚赛后伸五指嘲讽日本](https://www.share.kurohicncr.top/Article/details/9242067.shtml)
+- 2026-06-30 07:50 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/801677434803.shtml)
+- 2026-06-30 07:56 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/17709295.shtml)
+- 2026-06-30 07:59 - [巴西扳平比分](https://www.blog.kurohicncr.top/Article/details/06830327.shtml)
+- 2026-06-30 07:36 - [勇敢的心第二部](http://www.share.minike.top/Article/details/1833500.shtml)
+- 2026-06-30 07:45 - [日本 高位逼抢](http://www.blog.minike.top/Article/details/1781399.shtml)
+- 2026-06-30 07:48 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/960353440461.shtml)
+- 2026-06-30 07:36 - [上半年全国特种设备安全形势总体平稳](http://www.share.kurohicncr.top/Article/details/782882383458.shtml)
+- 2026-06-30 07:44 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/1195144931.shtml)
+- 2026-06-30 07:53 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/30808.shtml)
+- 2026-06-30 07:55 - [覃予萱晋级WTT美国大满贯女单32强](https://www.blog.minike.top/Article/details/2742662880.shtml)

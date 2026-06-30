@@ -1,61 +1,56 @@
-# 联邦快递董事会批准货运业务分拆，该业务将于6月1日剥离
+# 光模块重启升势，创业板人工智能ETF华宝（159363）冲高1%！资金实时净申购1亿份，提前布局中报行情？
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-联邦快递（FedEx）表示，其董事会已批准分拆旗下货运业务，为按计划于6月1日将FedEx Freight从母公司中分离出来铺平了道路。 该分拆计划于2024年底首次宣布，预计将使联邦快递更加专注于其核心的包裹和物流网络，同时让货运部门得以寻求自身的增长战略。 FedEx Freight专注于零担运输业务，该公司曾表示，计划作为一家独立公司精简其网络和车队，实现技术现代化，并加
+6月24日盘中，光模块CPO重启升势，创业板人工智能涨逾1%。其中，新易盛涨超3%，天孚通信涨超2%，中际旭创上涨逾1%，光库科技、长芯博创等表现活跃。 热门ETF方面，昨日大幅回调近4%后，“易中天”含量超40%的创业板人工智能ETF华宝（159363）场内一度冲高逾1%，资金加码1亿份。 国盛证券表示，当前时点进入中报业绩验证窗口，从二季度产业趋势看AI算力链条的高景气持续
 
 ## 正文
 
-联邦快递（FedEx）表示，其董事会已批准分拆旗下货运业务，为按计划于6月1日将FedEx Freight从母公司中分离出来铺平了道路。
+6月24日盘中，光模块CPO重启升势，创业板人工智能涨逾1%。
 
-该分拆计划于2024年底首次宣布，预计将使联邦快递更加专注于其核心的包裹和物流网络，同时让货运部门得以寻求自身的增长战略。
+其中，新易盛涨超3%，天孚通信涨超2%，中际旭创上涨逾1%，光库科技、长芯博创等表现活跃。
 
-FedEx Freight专注于零担运输业务，该公司曾表示，计划作为一家独立公司精简其网络和车队，实现技术现代化，并加速盈利性增长。
+热门ETF方面，昨日大幅回调近4%后，“易中天”含量超40%的创业板人工智能ETF华宝（159363）场内一度冲高逾1%，资金加码1亿份。
 
-该部门此前预测，中期收入的复合年增长率将在4%至6%之间，调整后营业利润的增长率将在10%至12%之间。
+国盛证券表示，当前时点进入中报业绩验证窗口，从二季度产业趋势看AI算力链条的高景气持续兑现，核心大光等方向均有明确的基本面支撑。
 
-根据分拆条款，联邦快递股东每持有两股联邦快递普通股，将获得一股FedEx Freight的股票。
+建议“聚焦中报，业绩为王”。
 
-联邦快递表示，该公司将保留FedEx Freight 19.9%的股份，并计划在24个月内通过债务交换、股东分配或股份互换的方式处置这些股份。
+该机构指出，随着1.6T光模块加速放量及上游物料瓶颈缓解，光模块龙头Q2业绩有望迎来加速释放。
 
-在分拆前，FedEx Freight还将向联邦快递支付约41亿美元的现金股息，资金来自此前发行的票据和一笔定期贷款安排下的借款。
+1.6T放量初期，上游核心物料紧缺导致光模块交付节奏受限，随着时间推移上游产能逐步释放，缺料问题逐步缓解，供应链控制能力强，客户订单规模大的龙头厂商，其产能弹性和业绩兑现能力将最为突出。
 
-FedEx Freight的股票料将于6月1日在纽约证券交易所开始交易，股票代码为FDXF。
+• 中际旭创在产业布局深度、产能准备等方面，呈现出“一枝独秀”的领先态势，其龙头地位进一步巩固。
 
 ## 相关推荐
 
-- 2026-06-30 07:42 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-30 07:31 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-30 07:31 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
-- 2026-06-30 07:56 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
-- 2026-06-30 07:31 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-30 07:34 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-30 07:43 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
-- 2026-06-30 07:33 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-30 07:56 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-30 07:37 - [金鹰奖视后提名预测](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
-- 2026-06-30 07:56 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-30 07:37 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
-- 2026-06-30 07:42 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-30 07:38 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
-- 2026-06-30 07:54 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-30 08:02 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-30 08:04 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-30 07:58 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-30 08:01 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-30 08:00 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-30 07:56 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-30 07:58 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-30 07:44 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-30 07:51 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-30 07:48 - [藤森庆子赢得秘鲁总统选举](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:49 - [刘必安等16人非法集资案二审宣判](http://www.share.minike.top/Article/details/5318379989.shtml)
-- 2026-06-30 07:38 - [德国队世界杯点球大战首败](http://www.share.minike.top/Article/details/51498941671.shtml)
-- 2026-06-30 07:38 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.minike.top/Article/details/7738276456.shtml)
-- 2026-06-30 07:47 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/50892720.shtml)
-- 2026-06-30 07:31 - [郑钦文温网首轮出局](https://www.blog.minike.top/Article/details/8793639.shtml)
-- 2026-06-30 07:42 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/7675408970.shtml)
-- 2026-06-30 07:46 - [巴拉圭先进球了](https://www.share.minike.top/Article/details/7968141.shtml)
-- 2026-06-30 07:59 - [杨紫获白玉兰视后争议不止](https://www.share.kurohicncr.top/Article/details/813934639051.shtml)
-- 2026-06-30 07:32 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/5568075984.shtml)
-- 2026-06-30 07:37 - [补时绝杀 巴西2-1淘汰日本](https://www.share.kurohicncr.top/Article/details/92408007.shtml)
-- 2026-06-30 07:46 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/7845554.shtml)
-- 2026-06-30 07:48 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/1796932.shtml)
-- 2026-06-30 07:41 - [武磊：巴西队赢的并不轻松](https://www.share.minike.top/Article/details/43624.shtml)
-- 2026-06-30 07:46 - [扬名立万](http://www.share.kurohicncr.top/Article/details/737503.shtml)
-- 2026-06-30 07:52 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/788773136682.shtml)
+- 2026-06-30 07:50 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/608707.shtml)
+- 2026-06-30 08:01 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/87674.shtml)
+- 2026-06-30 07:43 - [王健林甩卖超80座万达广场](http://www.blog.minike.top/Article/details/237162616450.shtml)
+- 2026-06-30 07:50 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/915770.shtml)
+- 2026-06-30 08:02 - [德国爆冷点球大战不敌巴拉圭](https://www.blog.minike.top/Article/details/27437.shtml)
+- 2026-06-30 07:37 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/38975344310.shtml)
+- 2026-06-30 07:52 - [“柠檬茶能换怀表？”](https://www.blog.minike.top/Article/details/24360556374.shtml)
+- 2026-06-30 07:55 - [又一美国科技巨头转向中国大模型](https://www.share.kurohicncr.top/Article/details/613538.shtml)
+- 2026-06-30 07:40 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/851268058.shtml)
+- 2026-06-30 07:46 - [安切洛蒂 换人](https://www.blog.minike.top/Article/details/5975680.shtml)
+- 2026-06-30 08:02 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/430752.shtml)
+- 2026-06-30 07:41 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.kurohicncr.top/Article/details/0544824.shtml)
+- 2026-06-30 07:53 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/103477473652.shtml)
+- 2026-06-30 08:00 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.blog.minike.top/Article/details/05435379.shtml)
+- 2026-06-30 07:56 - [网友写差评被店家“挂”门口避雷](https://www.blog.minike.top/Article/details/640067.shtml)

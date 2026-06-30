@@ -1,46 +1,56 @@
-# 欧洲三大股指12日全线下跌
+# 我们想要什么样的AI金融？
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月13日 15:23 来源：央视新闻 责任编辑：【王祎】
+来源：新金融洛书 金融圈又扯起了AI的大旗。 最近信用卡领域，接连出现了两张AI信用卡，听起来挺高大上，实际是怎么回事呢？招行刚发了张“工程师信用卡”，绑的是MiniMax的算力权益；Kimi也跳出来说要和国有大行搞一张“全球首张AI原生信用卡”，把消费积分和Token打通。另外还有一件事，就是微信推出“AI专属卡”，这三件事把“金融+AI”这事儿炒热了。 但热闹归热闹，得看清
 
 ## 正文
 
-发布时间：2026年05月13日 15:23 来源：央视新闻 责任编辑：【王祎】
+来源：新金融洛书 金融圈又扯起了AI的大旗。
+
+最近信用卡领域，接连出现了两张AI信用卡，听起来挺高大上，实际是怎么回事呢？
+
+招行刚发了张“工程师信用卡”，绑的是MiniMax的算力权益；Kimi也跳出来说要和国有大行搞一张“全球首张AI原生信用卡”，把消费积分和Token打通。
+
+另外还有一件事，就是微信推出“AI专属卡”，这三件事把“金融+AI”这事儿炒热了。
+
+但热闹归热闹，得看清哪些是真东西、哪些是营销行为。
+
+招行这张卡，本质是“送你两个月会员” 招行这张叫“运通工程师信用卡”，主打科技从业者。
+
+听上去挺垂直，其实申请门槛不高，大专就能办，不限职业。
+
+真正被媒体传的是它的“AI权益”——新户刷一笔满36元的扫码交易，就能在三档MiniMax AI Plan里挑一个，最顶的那档给每月18亿Token的M3调用量，账面值个一百多块。
 
 ## 相关推荐
 
-- 2026-06-30 07:40 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-30 07:44 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-30 07:36 - [网友写差评被店家“挂”门口避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-30 07:44 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-30 07:37 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-30 07:46 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-30 07:45 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-30 07:47 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-30 07:58 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-30 07:53 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-30 07:46 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-30 07:32 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-30 07:44 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-30 07:48 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
+- 2026-06-30 07:44 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-30 07:59 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-30 07:56 - [王楚钦说配合稍微有些陌生感](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-30 07:48 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-30 07:58 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-30 08:02 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-30 07:53 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-30 07:53 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-30 07:49 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-30 08:00 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:39 - [巴西2-1绝杀日本](http://www.blog.kurohicncr.top/Article/details/6493474.shtml)
-- 2026-06-30 07:41 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://www.blog.minike.top/Article/details/175398.shtml)
-- 2026-06-30 07:31 - [巴拉圭进球](https://www.blog.minike.top/Article/details/85664272.shtml)
-- 2026-06-30 07:49 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.minike.top/Article/details/4893216.shtml)
-- 2026-06-30 07:38 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/1941197.shtml)
-- 2026-06-30 07:49 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/20247369945.shtml)
-- 2026-06-30 07:49 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/13396401.shtml)
-- 2026-06-30 07:31 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/4651109.shtml)
-- 2026-06-30 07:59 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/15457581.shtml)
-- 2026-06-30 07:54 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/9358829514.shtml)
-- 2026-06-30 07:52 - [金刚川](https://www.blog.minike.top/Article/details/6445872.shtml)
-- 2026-06-30 07:59 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/0916694.shtml)
-- 2026-06-30 07:56 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/247963820653.shtml)
-- 2026-06-30 07:33 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/87123361.shtml)
-- 2026-06-30 07:48 - [点球大战](https://www.blog.kurohicncr.top/Article/details/39884506.shtml)
+- 2026-06-30 07:56 - [小勒布伦WTT美国大满贯开门红](http://www.blog.kurohicncr.top/Article/details/43738152.shtml)
+- 2026-06-30 07:52 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/187163.shtml)
+- 2026-06-30 07:56 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/350055918.shtml)
+- 2026-06-30 07:45 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.kurohicncr.top/Article/details/39350.shtml)
+- 2026-06-30 07:57 - [德国vs巴拉圭](http://www.share.minike.top/Article/details/652929335891.shtml)
+- 2026-06-30 08:04 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/66869105.shtml)
+- 2026-06-30 08:06 - [起风了](https://www.share.kurohicncr.top/Article/details/19965765265.shtml)
+- 2026-06-30 07:41 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/89813466.shtml)
+- 2026-06-30 08:03 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/98291.shtml)
+- 2026-06-30 07:37 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/0830405.shtml)
+- 2026-06-30 08:04 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/72851029.shtml)
+- 2026-06-30 08:03 - [美股深夜大反弹 特斯拉飙涨8%](https://www.blog.minike.top/Article/details/48762630.shtml)
+- 2026-06-30 07:47 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/14909430.shtml)
+- 2026-06-30 07:44 - [金鹰奖视后提名预测](http://www.share.kurohicncr.top/Article/details/22901871.shtml)
+- 2026-06-30 07:46 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/92858285781.shtml)

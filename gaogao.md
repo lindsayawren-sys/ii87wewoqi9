@@ -1,58 +1,57 @@
-# A股风格突变！热门赛道调整，红利板块走强
+# 台湾知名绿能概念股退市 舆论指当局难辞其咎
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！多个热门赛道熄火，银行等红利板块走强。 今日（5月14日），A股回调，沪指跌超1%失守4200点，创业板指、科创综指跌超2%；港股高开低走，盘中窄幅震荡。 具体来看，A股主要股指盘中震荡下探，尾盘加速下行。截至收盘，沪指跌1.52%报4177.92点，深证成指跌2.14%，创业板指跌2.16%，科创综指跌2
+中新社台北6月23日电 台湾知名绿能公司森崴能源因子公司承揽台电“离岸风电第二期计划”亏损过大，公司股票于23日终止上市交易。 《联合报》等媒体指森崴能源是台湾首个退市的绿能股，预计有逾3万名股民受影响，民进党当局难辞其咎。 森崴能源成立于2007年，主营再生能源与洁净能源服务及技术发展，2021年在台北股市挂牌上市，一度是台股“明星股”。 综合中央社、TVBS新闻网和中时新闻
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社台北6月23日电 台湾知名绿能公司森崴能源因子公司承揽台电“离岸风电第二期计划”亏损过大，公司股票于23日终止上市交易。
 
-多个热门赛道熄火，银行等红利板块走强。
+《联合报》等媒体指森崴能源是台湾首个退市的绿能股，预计有逾3万名股民受影响，民进党当局难辞其咎。
 
-今日（5月14日），A股回调，沪指跌超1%失守4200点，创业板指、科创综指跌超2%；港股高开低走，盘中窄幅震荡。
+森崴能源成立于2007年，主营再生能源与洁净能源服务及技术发展，2021年在台北股市挂牌上市，一度是台股“明星股”。
 
-具体来看，A股主要股指盘中震荡下探，尾盘加速下行。
+综合中央社、TVBS新闻网和中时新闻网等台湾媒体报道，2020年，森崴能源子公司富崴能源以600余亿元(新台币，下同)标下台电“离岸风电第二期计划”工程，原定2025年底完工；但该工程至今未能竣工，仅2025年就酿成亏损近160亿元，今年第一季度再亏损18.5亿元，净值转为负数。
 
-截至收盘，沪指跌1.52%报4177.92点，深证成指跌2.14%，创业板指跌2.16%，科创综指跌2.36%，北证50指数跌近4%，沪深北三市合计成交约3.39万亿元，较此前一日增加1239亿元。
+森崴能源董事长郭台强表示，该公司资本额为27亿元，却承揽数百亿元规模的工程，低估了产业风险与资金需求。
 
-A股市场近4400股飘绿，近日强势的电力板块回落走低，节能风电逼近跌停，大唐发电盘中急速跳水；算力概念亦下挫，中国长城跌停，科华数据、浪潮信息跌超7%；工业气体概念逆市活跃，中船特气20%涨停再创新高，近4个交易日已斩获3个涨停板。
+《联合报》23日社论指出，表面上，这是富崴能源因承包台电工程亏损引发的连锁反应，实则是民进党当局绿能政策规划及执行千疮百孔的“照妖镜”。
 
-此外，农业板块整体走强，猪肉概念股表现亮眼，天域生物、神农集团等涨停；白色家电、银行板块涨幅居前。
+该公司财务危机2025年已浮现，但当局经济事务主管部门及台电公司均坐视不管。
 
-工业气体概念活跃 工业气体概念盘中强势拉升，截至收盘，中船特气20%涨停再创新高，正帆科技午后亦涨停；侨源股份涨近12%，盘中创出新高；和远气体涨停，凯美特气涨超5%，广钢气体等拉升。
+文章进一步指，台电“离岸风电第二期计划”由当局公开遴选，森崴能源经公开招标取得标案，但台电对其子公司履约能力显然评估不足。
 
 ## 相关推荐
 
-- 2026-06-30 07:58 - [德国巴拉圭进入点球大战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-30 07:44 - [女子遭下药退赔偿拟追刑责](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
-- 2026-06-30 07:47 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-30 07:43 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-30 07:36 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
-- 2026-06-30 07:36 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
-- 2026-06-30 07:51 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-30 07:42 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
-- 2026-06-30 07:47 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
-- 2026-06-30 07:48 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-30 07:40 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-30 07:56 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-30 07:43 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-30 07:49 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-30 07:39 - [齐思钧回复张月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-30 07:36 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-30 08:00 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-30 07:55 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-30 07:54 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-30 07:37 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-30 07:41 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-30 08:01 - [德国队连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-30 07:47 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:37 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/44266931.shtml)
-- 2026-06-30 07:55 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/0878881.shtml)
-- 2026-06-30 07:34 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/64585256.shtml)
-- 2026-06-30 07:52 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/2067428960.shtml)
-- 2026-06-30 07:49 - [男子醉酒溺水获救后同行人拒协助抬人](http://www.share.minike.top/Article/details/55074659.shtml)
-- 2026-06-30 07:41 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/09111531798.shtml)
-- 2026-06-30 07:44 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/25662347.shtml)
-- 2026-06-30 07:57 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/417828.shtml)
-- 2026-06-30 07:33 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/3014610257.shtml)
-- 2026-06-30 07:51 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/57614933.shtml)
-- 2026-06-30 07:36 - [韩乔生吐槽世界杯扩军](https://www.blog.kurohicncr.top/Article/details/0304492.shtml)
-- 2026-06-30 07:34 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/7471865316.shtml)
-- 2026-06-30 07:41 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/90824.shtml)
-- 2026-06-30 07:37 - [藤森庆子赢得秘鲁总统选举](https://www.blog.minike.top/Article/details/70493216.shtml)
-- 2026-06-30 07:31 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/7182864.shtml)
+- 2026-06-30 08:05 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/48240783.shtml)
+- 2026-06-30 07:49 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/5159588192.shtml)
+- 2026-06-30 07:37 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/432427635.shtml)
+- 2026-06-30 07:47 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/04337634.shtml)
+- 2026-06-30 07:38 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/13907754.shtml)
+- 2026-06-30 07:42 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/53279145154.shtml)
+- 2026-06-30 07:56 - [女子遭下药退赔偿拟追刑责](http://www.share.kurohicncr.top/Article/details/268345285.shtml)
+- 2026-06-30 07:51 - [不开心就去看三年前的购物订单](https://www.share.minike.top/Article/details/21756.shtml)
+- 2026-06-30 07:39 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/050661457291.shtml)
+- 2026-06-30 07:51 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/52638.shtml)
+- 2026-06-30 07:48 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/105733344020.shtml)
+- 2026-06-30 07:46 - [巴西半场0比1日本](http://www.blog.minike.top/Article/details/502765.shtml)
+- 2026-06-30 07:49 - [又一美国科技巨头转向中国大模型](http://www.share.minike.top/Article/details/9392766525.shtml)
+- 2026-06-30 07:47 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/436032.shtml)
+- 2026-06-30 08:04 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.kurohicncr.top/Article/details/79561919810.shtml)

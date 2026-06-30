@@ -1,43 +1,54 @@
-# 我国农村供水保障水平显著提升
+# 华为乾崑智驾高阶包下月调价，一次性购买恢复至标准价36000元
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月13日 13:30 来源：央视新闻 责任编辑：【王祎】
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！（来源：IT之家）IT之家 6 月 22 日消息，华为乾崑智能汽车解决方案官微 22 日（今天）公告称，华为乾崑智驾 ADS Max 高阶功能包将从 7 月 1 日起调整价格。其中，一次性购买的建议销售价限时优惠将取消，由 32000 元恢复至标准价 36000 元。IT之家附上公告全文如下图：随着此次价格
 
 ## 正文
 
-发布时间：2026年05月13日 13:30 来源：央视新闻 责任编辑：【王祎】
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+
+（来源：IT之家）IT之家 6 月 22 日消息，华为乾崑智能汽车解决方案官微 22 日（今天）公告称，华为乾崑智驾 ADS Max 高阶功能包将从 7 月 1 日起调整价格。
+
+其中，一次性购买的建议销售价限时优惠将取消，由 32000 元恢复至标准价 36000 元。
+
+IT之家附上公告全文如下图：随着此次价格的调整，引望新增了 ADS 高阶功能包保障与服务权益，对智驾保障权益进行了重大升级，将城区 NCA 及高速 NCA 纳入保障场景。
+
+公告还强调，用户购买时享有的高阶功能包补贴，由各车企自行发布，最终支付金额以实际成交价为准。
 
 ## 相关推荐
 
-- 2026-06-30 07:31 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-30 07:53 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
-- 2026-06-30 07:46 - [王楚钦孙颖莎晋级混双八强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-30 07:31 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-30 07:33 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-30 07:42 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
-- 2026-06-30 07:47 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-30 07:37 - [巴拉圭点球大战淘汰德国进16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-30 07:40 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-30 07:31 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
-- 2026-06-30 07:32 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-30 07:59 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-30 07:46 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-30 07:52 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-30 08:01 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-30 07:40 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
+- 2026-06-30 07:43 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-30 07:37 - [德国队世界杯点球大战首败](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-30 08:04 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-30 07:36 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
+- 2026-06-30 07:45 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-30 07:50 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-30 07:56 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-30 07:57 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-30 07:36 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:53 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/68926722735.shtml)
-- 2026-06-30 07:55 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/0694008.shtml)
-- 2026-06-30 07:48 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/9977039197.shtml)
-- 2026-06-30 07:58 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/1546819211.shtml)
-- 2026-06-30 07:48 - [金鹰奖视后提名预测](http://www.share.kurohicncr.top/Article/details/6815429.shtml)
-- 2026-06-30 07:54 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.share.kurohicncr.top/Article/details/92905.shtml)
-- 2026-06-30 07:41 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/08021564958.shtml)
-- 2026-06-30 07:38 - [日本球员说被绝杀非常不甘心](https://www.share.minike.top/Article/details/58572.shtml)
-- 2026-06-30 07:33 - [巴拉圭率先破门](http://www.share.kurohicncr.top/Article/details/34254078545.shtml)
-- 2026-06-30 07:57 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/994615555357.shtml)
-- 2026-06-30 07:31 - [警犬“多多”助民警寻回失联老人](http://www.blog.minike.top/Article/details/037173836.shtml)
-- 2026-06-30 07:57 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/18746.shtml)
-- 2026-06-30 07:59 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.kurohicncr.top/Article/details/1279154.shtml)
-- 2026-06-30 07:49 - [德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/59574795814.shtml)
-- 2026-06-30 07:40 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/376625.shtml)
+- 2026-06-30 07:47 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/259732873006.shtml)
+- 2026-06-30 07:52 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/3841318.shtml)
+- 2026-06-30 07:57 - [森保一致歉：世界第一目标没能实现](http://www.blog.minike.top/Article/details/57444715.shtml)
+- 2026-06-30 07:40 - [有什么好的高中网课推荐吗？](https://www.share.minike.top/Article/details/024685506915.shtml)
+- 2026-06-30 07:56 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/544204561.shtml)
+- 2026-06-30 07:52 - [金刚川](http://www.share.kurohicncr.top/Article/details/59235170.shtml)
+- 2026-06-30 07:58 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/106030.shtml)
+- 2026-06-30 07:56 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](http://www.share.minike.top/Article/details/920969813608.shtml)
+- 2026-06-30 07:39 - [德国4比5巴拉圭](http://www.blog.kurohicncr.top/Article/details/32028.shtml)
+- 2026-06-30 07:42 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/0474787.shtml)
+- 2026-06-30 07:51 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/62994100.shtml)
+- 2026-06-30 07:49 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/77584.shtml)
+- 2026-06-30 07:43 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/997735949.shtml)
+- 2026-06-30 07:42 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.kurohicncr.top/Article/details/256636.shtml)
+- 2026-06-30 08:02 - [房价什么时候能涨](http://www.share.minike.top/Article/details/913751562658.shtml)

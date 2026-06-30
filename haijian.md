@@ -1,60 +1,56 @@
-# 退保“降温”明显！一季度九成险企综合退保率低于1%
+# 遭遇连续强降雨 山区如何判断地质灾害前兆？
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-综合退保率是评估人身险公司现金流情况的重要指标，也是衡量保险公司业务质量的关键窗口。5月13日，北京商报记者梳理70家人身险公司的综合退保率数据发现，今年一季度，人身险行业退保情况总体趋稳，行业综合退保率优化明显。不仅多数公司的综合退保率降至1%以下的低位，全行业均值更是降至0.59%的低位。这一数据背后，折射出行业经营逻辑、消费者行为以及宏观环境的深层次变化。 综合退保率优化
+中新网6月23日电 应急管理部23日举行“人人讲安全 个个会应急”汛期安全知识发布会。国家自然灾害防治研究院地质灾害研究中心主任许冲介绍，在遭遇连续强降雨时，农村靠山、临崖的自建房要密切关注周边环境变化。判断是否存在地质灾害的风险，大家可以记住六个字：看山、看房、看水。第一，看山，也就是要观察山体的变化。如果山坡上出现新的裂缝或者原有的裂缝变宽、变大、变长等现象，山体上出现鼓包
 
 ## 正文
 
-综合退保率是评估人身险公司现金流情况的重要指标，也是衡量保险公司业务质量的关键窗口。
+中新网6月23日电 应急管理部23日举行“人人讲安全 个个会应急”汛期安全知识发布会。
 
-5月13日，北京商报记者梳理70家人身险公司的综合退保率数据发现，今年一季度，人身险行业退保情况总体趋稳，行业综合退保率优化明显。
+国家自然灾害防治研究院地质灾害研究中心主任许冲介绍，在遭遇连续强降雨时，农村靠山、临崖的自建房要密切关注周边环境变化。
 
-不仅多数公司的综合退保率降至1%以下的低位，全行业均值更是降至0.59%的低位。
+判断是否存在地质灾害的风险，大家可以记住六个字：看山、看房、看水。
 
-这一数据背后，折射出行业经营逻辑、消费者行为以及宏观环境的深层次变化。
+第一，看山，也就是要观察山体的变化。
 
-综合退保率优化 综合退保率是保险行业高度关注的指标，它不仅反映了消费者对产品的持有信心，更直接关系到险企的资产负债匹配与流动性安全。
+如果山坡上出现新的裂缝或者原有的裂缝变宽、变大、变长等现象，山体上出现鼓包、鼓胀或者下挫等现象，山坡上出现掉石、掉土等现象，如果山坡上有树木和电线杆发生明显的歪斜等现象，这些都可能是滑坡、崩塌等地质灾害发生的前兆。
 
-据北京商报记者不完全统计，目前已经披露一季度偿付能力报告的人身险公司中，70家险企披露了综合退保率指标，整体来看，行业的退保率情况来到了低位。
+第二，看房屋。
 
-数据显示，这70家公司的综合退保率平均值为0.59%，去年同期为0.8%；中位数为0.48%，去年同期为0.55%，两项指标优化明显。
+看房屋有没有发生变化，如果房屋的墙体有开裂的现象，或者房屋地面有下沉的现象，房屋的门窗发生变形打不开，房前屋后的地面和路面发现裂缝，这些都表明房屋的地基和所在的山体发生了变化，要警惕是地质灾害的前兆。
 
-更值得注意的是，一季度共有63家险企的综合退保率保持在1%以内，占比高达90%；另有6家险企综合退保率控制在1%—2%之间。
+第三，看水。
 
 ## 相关推荐
 
-- 2026-06-30 07:57 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-30 07:41 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-30 07:40 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
-- 2026-06-30 07:51 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-30 07:50 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-30 07:47 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-30 07:31 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-30 07:36 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-30 07:52 - [感动全网的699分女生想报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-30 07:44 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-30 07:30 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-30 07:35 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-30 07:58 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
-- 2026-06-30 07:32 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
+- 2026-06-30 07:37 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-30 08:05 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-30 07:57 - [齐思钧回复张月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-30 07:58 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-30 07:48 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-30 07:48 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-30 07:42 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-30 08:03 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-30 07:45 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
+- 2026-06-30 07:42 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:51 - [巴西扳平比分](http://www.blog.minike.top/Article/details/514343916579.shtml)
-- 2026-06-30 07:57 - [日本领先巴西](http://www.blog.kurohicncr.top/Article/details/3867291.shtml)
-- 2026-06-30 07:30 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/716171174.shtml)
-- 2026-06-30 07:49 - [吴易昺不敌德约科维奇 止步温网首轮](https://www.blog.minike.top/Article/details/415664.shtml)
-- 2026-06-30 07:46 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/83220210902.shtml)
-- 2026-06-30 07:52 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/707434407193.shtml)
-- 2026-06-30 07:34 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/8301183.shtml)
-- 2026-06-30 07:41 - [本科毕业生为何涌入专科学校](https://www.blog.minike.top/Article/details/214655286.shtml)
-- 2026-06-30 07:30 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.minike.top/Article/details/842053.shtml)
-- 2026-06-30 07:35 - [德国4比5巴拉圭](http://www.share.minike.top/Article/details/159387744226.shtml)
-- 2026-06-30 07:30 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/153998988.shtml)
-- 2026-06-30 07:59 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/23564905.shtml)
-- 2026-06-30 07:54 - [德国巴拉圭进入点球大战](http://www.share.kurohicncr.top/Article/details/06783512.shtml)
-- 2026-06-30 07:57 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/40891089402.shtml)
-- 2026-06-30 07:47 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/41440.shtml)
+- 2026-06-30 08:05 - [巴西替补奇兵读秒绝杀](https://www.blog.kurohicncr.top/Article/details/551129165.shtml)
+- 2026-06-30 07:39 - [国务院：探索延长义务教育年限](https://www.share.minike.top/Article/details/248284302.shtml)
+- 2026-06-30 08:02 - [安切洛蒂 换人](https://www.blog.minike.top/Article/details/68003.shtml)
+- 2026-06-30 08:05 - [美股深夜大反弹 特斯拉飙涨8%](http://www.share.minike.top/Article/details/0760711.shtml)
+- 2026-06-30 07:59 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/77261516.shtml)
+- 2026-06-30 07:40 - [王欣瑜温网开门红](https://www.share.kurohicncr.top/Article/details/8675748504.shtml)
+- 2026-06-30 07:59 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.kurohicncr.top/Article/details/98972.shtml)
+- 2026-06-30 07:43 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/6953128480.shtml)
+- 2026-06-30 07:50 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/3111993.shtml)
+- 2026-06-30 07:52 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.minike.top/Article/details/177177051.shtml)
+- 2026-06-30 07:46 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/4654874879.shtml)
+- 2026-06-30 07:37 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/81709.shtml)
+- 2026-06-30 07:41 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/79948836679.shtml)
+- 2026-06-30 07:38 - [德国巴拉圭加时](https://www.share.minike.top/Article/details/3304219.shtml)
+- 2026-06-30 07:54 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/314742547.shtml)

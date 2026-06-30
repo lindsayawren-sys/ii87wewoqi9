@@ -1,60 +1,55 @@
-# Avon Technologies上半年业绩亮眼，每股收益56美分
+# 世大控股拟折让约2.6%发行3200万股 筹资约240万港元
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-英国军事防护装备制造商Avon Technologies Plc周三公布2026财年上半年财报，非GAAP每股收益为0.56美元，营收达1.608亿美元，同比增长8.1%，超出市场预期。 上半年业绩全面增长 截至2026年3月31日的六个月内，公司营收为1.608亿美元，同比增长6.8%。调整后营业利润达2440万美元，同比增长39.4%，调整后营业利润率从11.8%大幅提升至
+世大控股（08003）发布公告，于2026年6月22日，公司拟向认购人侯勇先生配发及发行合共3200万股股份，相当于公司于本公告日期现有已发行股本约9.63%；及公司因发行认购股份而扩大的已发行股本约8.78%。认购价为每股认购股份0.075港元，较6月22日收市价每股0.077港元折让约2.6%。董事认为，认购为筹集资金作集团业务营运及扩阔公司股东基础的机会。认购的所得款项总
 
 ## 正文
 
-英国军事防护装备制造商Avon Technologies Plc周三公布2026财年上半年财报，非GAAP每股收益为0.56美元，营收达1.608亿美元，同比增长8.1%，超出市场预期。
+世大控股（08003）发布公告，于2026年6月22日，公司拟向认购人侯勇先生配发及发行合共3200万股股份，相当于公司于本公告日期现有已发行股本约9.63%；及公司因发行认购股份而扩大的已发行股本约8.78%。
 
-上半年业绩全面增长 截至2026年3月31日的六个月内，公司营收为1.608亿美元，同比增长6.8%。
+认购价为每股认购股份0.075港元，较6月22日收市价每股0.077港元折让约2.6%。
 
-调整后营业利润达2440万美元，同比增长39.4%，调整后营业利润率从11.8%大幅提升至15.2%，已进入公司14%-16%的目标区间。
+董事认为，认购为筹集资金作集团业务营运及扩阔公司股东基础的机会。
 
-调整后每股收益为56.4美分，同比增长45.4%。
+认购的所得款项总额约为240万港元。
 
-法定口径下，税前利润从去年同期的310万美元大幅攀升至1350万美元，基本每股收益为35.0美分。
+所得款项总额拟用作集团营运资金。
 
-公司同时宣布中期股息每股8.1美分，较去年同期的7.6美分增长6.6%。
-
-中期盈利目标提前18个月达成 公司首席执行官表示，公司已提前18个月实现了中期增长、利润率、投资回报率和杠杆率目标。
-
-这一成就得益于商业和制造执行的改善，特别是俄亥俄州工厂的产能提升和运营可靠性增强。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 07:50 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-30 07:48 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-30 07:50 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
-- 2026-06-30 07:52 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
-- 2026-06-30 07:37 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
-- 2026-06-30 07:41 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
-- 2026-06-30 07:34 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-30 07:58 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-30 07:56 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-30 07:48 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-30 07:38 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
-- 2026-06-30 07:40 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-30 07:48 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-30 07:46 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-30 07:58 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
+- 2026-06-30 08:00 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-30 07:56 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-30 07:39 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-30 07:49 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-30 07:56 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-30 07:49 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-30 07:44 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-30 07:40 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
+- 2026-06-30 07:37 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-30 07:37 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-30 07:41 - [锐评T1战胜KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-30 08:03 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:53 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/74208961.shtml)
-- 2026-06-30 07:40 - [博世们还在犹豫 美的们已经卖断货](http://www.share.kurohicncr.top/Article/details/937422082296.shtml)
-- 2026-06-30 07:47 - [医药暴涨5.91%背后](https://www.share.minike.top/Article/details/42624.shtml)
-- 2026-06-30 07:53 - [“草莓月亮”浪漫现身](https://www.share.minike.top/Article/details/362995580980.shtml)
-- 2026-06-30 07:33 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/5457863.shtml)
-- 2026-06-30 07:41 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.minike.top/Article/details/17059415517.shtml)
-- 2026-06-30 07:31 - [张凌赫杨超越 峨眉](http://www.share.minike.top/Article/details/3901023.shtml)
-- 2026-06-30 07:45 - [“草莓月亮”浪漫现身](https://www.share.minike.top/Article/details/5015398.shtml)
-- 2026-06-30 07:43 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/3958936.shtml)
-- 2026-06-30 07:42 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/135921864919.shtml)
-- 2026-06-30 07:47 - [卡塞米罗头球破门](http://www.blog.minike.top/Article/details/83387989.shtml)
-- 2026-06-30 07:56 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](http://www.blog.kurohicncr.top/Article/details/4595796688.shtml)
-- 2026-06-30 07:45 - [沉睡花园](http://www.share.minike.top/Article/details/712983291284.shtml)
-- 2026-06-30 07:59 - [中国新一轮出口管制直指日本命脉](https://www.share.kurohicncr.top/Article/details/54432.shtml)
-- 2026-06-30 07:36 - [恋与深空制作组回应近期争议](https://www.share.kurohicncr.top/Article/details/845914904435.shtml)
+- 2026-06-30 07:52 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/38293.shtml)
+- 2026-06-30 07:40 - [日本进球](https://www.share.kurohicncr.top/Article/details/14095.shtml)
+- 2026-06-30 07:59 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/12112775.shtml)
+- 2026-06-30 08:02 - [《共患难》](https://www.share.minike.top/Article/details/66387643.shtml)
+- 2026-06-30 07:39 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/45664853089.shtml)
+- 2026-06-30 07:53 - [巴拉圭点球大战淘汰德国进16强](http://www.blog.kurohicncr.top/Article/details/505258704656.shtml)
+- 2026-06-30 07:56 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/856525.shtml)
+- 2026-06-30 08:02 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/46846385416.shtml)
+- 2026-06-30 07:51 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/78796981.shtml)
+- 2026-06-30 07:57 - [爆冷出局！德国点球大战不敌巴拉圭](https://www.share.minike.top/Article/details/461106055046.shtml)
+- 2026-06-30 07:51 - [日本球员说被绝杀非常不甘心](http://www.blog.kurohicncr.top/Article/details/050492.shtml)
+- 2026-06-30 07:45 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/18211532432.shtml)
+- 2026-06-30 07:38 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/911811.shtml)
+- 2026-06-30 07:44 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/713095356.shtml)
+- 2026-06-30 07:46 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/740499463.shtml)

@@ -1,44 +1,56 @@
-# 新华图讯丨习近平将举行仪式欢迎美国总统特朗普访华
+# 证监会：准予华安陆家嘴封闭式商业不动产证券投资基金注册
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-5月14日上午，国家主席习近平将在北京人民大会堂东门外广场举行仪式，欢迎美国总统特朗普对中国进行国事访问。 文字：冯歆然 摄影：谢环驰 李响 编辑：赖向东 吴蓉 毕晓洋 虞东升 许睿
+登录新浪财经APP 搜索【信披】查看更多考评等级 关于准予华安陆家嘴封闭式商业不动产证券投资基金注册的批复 华安基金管理有限公司： 你公司报送的《关于申请募集华安陆家嘴封闭式商业不动产证券投资基金的请示》及相关文件收悉。根据《证券投资基金法》《公开募集证券投资基金运作管理办法》（证监会令第104号）和《中国证监会关于推出商业不动产投资信托基金试点的公告》（证监会公告〔2025〕
 
 ## 正文
 
-5月14日上午，国家主席习近平将在北京人民大会堂东门外广场举行仪式，欢迎美国总统特朗普对中国进行国事访问。
+登录新浪财经APP 搜索【信披】查看更多考评等级 关于准予华安陆家嘴封闭式商业不动产证券投资基金注册的批复 华安基金管理有限公司： 你公司报送的《关于申请募集华安陆家嘴封闭式商业不动产证券投资基金的请示》及相关文件收悉。
 
-文字：冯歆然 摄影：谢环驰 李响 编辑：赖向东 吴蓉 毕晓洋 虞东升 许睿
+根据《证券投资基金法》《公开募集证券投资基金运作管理办法》（证监会令第104号）和《中国证监会关于推出商业不动产投资信托基金试点的公告》（证监会公告〔2025〕21号）等有关规定，经审查，现批复如下： 一、准予你公司注册华安陆家嘴封闭式商业不动产证券投资基金，基金类型为契约型封闭式，基金合同期限为38年。
+
+二、准予基金的募集份额总额为10亿份。
+
+三、同意你公司为基金的基金管理人，上海浦东发展银行股份有限公司为基金的基金托管人。
+
+四、你公司应自本批复下发之日起6个月内进行基金的募集活动，募集期限自基金份额发售之日起不得超过3个月。
+
+五、你公司应会同基金的销售机构和上海证券交易所等，认真做好基金的信息披露、路演推介、询价、定价、配售、认购、上市交易、登记、会计核算、客户服务和募集准备等工作。
+
+通过建立和完善内部合规控制制度、风险防范机制和应急计划等措施，防范和化解基金募集和运作过程中的风险，保护基金份额持有人的合法权益。
+
+六、你公司及基金销售机构在销售活动中应当遵守《公开募集证券投资基金销售机构监督管理办法》（证监会令第175号）及其他相关规定，不得损害投资人的合法权益，不得有虚假陈述或欺骗性宣传，不得误导投资人买卖基金。
 
 ## 相关推荐
 
-- 2026-06-30 07:56 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
-- 2026-06-30 07:52 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
-- 2026-06-30 07:33 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-30 07:44 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-30 07:36 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-30 07:42 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
-- 2026-06-30 07:59 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-30 07:56 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-30 07:53 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-30 07:40 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-30 07:46 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-30 07:54 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-30 07:56 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-30 08:03 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-30 08:03 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-30 07:47 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-30 07:48 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-30 07:52 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-30 08:03 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-30 07:46 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:33 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/0586955468.shtml)
-- 2026-06-30 07:36 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/00681203.shtml)
-- 2026-06-30 07:34 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/2677779.shtml)
-- 2026-06-30 07:43 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/14507513906.shtml)
-- 2026-06-30 07:43 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/3974425966.shtml)
-- 2026-06-30 07:30 - [王健林甩卖超80座万达广场](https://www.blog.kurohicncr.top/Article/details/706804787.shtml)
-- 2026-06-30 07:31 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/395779449.shtml)
-- 2026-06-30 07:58 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/0995100.shtml)
-- 2026-06-30 07:50 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/60461985.shtml)
-- 2026-06-30 07:30 - [覃予萱晋级WTT美国大满贯女单32强](http://www.blog.kurohicncr.top/Article/details/3073736.shtml)
-- 2026-06-30 07:57 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/041749721119.shtml)
-- 2026-06-30 07:36 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/69855.shtml)
-- 2026-06-30 07:34 - [警犬“多多”助民警寻回失联老人](http://www.share.minike.top/Article/details/20054.shtml)
-- 2026-06-30 07:44 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/65479.shtml)
-- 2026-06-30 07:52 - [【大鸣王潮1566】真拿你没办法](https://www.blog.minike.top/Article/details/210008319194.shtml)
+- 2026-06-30 07:46 - [媒体评泰山建135公里刀片刺绳隔离网](http://www.blog.minike.top/Article/details/2629029744.shtml)
+- 2026-06-30 07:45 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/586393.shtml)
+- 2026-06-30 07:41 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/283471.shtml)
+- 2026-06-30 07:47 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/107686509456.shtml)
+- 2026-06-30 07:58 - [巴西vs日本首发名单](http://www.blog.minike.top/Article/details/620189127644.shtml)
+- 2026-06-30 07:44 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/301953.shtml)
+- 2026-06-30 08:04 - [卢卡申科发布解放军仪仗队视频](http://www.blog.kurohicncr.top/Article/details/518359781422.shtml)
+- 2026-06-30 07:40 - [老外对中国cosplay竟这样评价…](http://www.blog.minike.top/Article/details/439701161.shtml)
+- 2026-06-30 07:37 - [绘画区你赢了](https://www.blog.minike.top/Article/details/41526.shtml)
+- 2026-06-30 07:50 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/523398294.shtml)
+- 2026-06-30 07:40 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/137978159.shtml)
+- 2026-06-30 07:44 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.kurohicncr.top/Article/details/42945991973.shtml)
+- 2026-06-30 07:57 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/053813837.shtml)
+- 2026-06-30 07:44 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/090706408710.shtml)
+- 2026-06-30 07:39 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/41688715.shtml)

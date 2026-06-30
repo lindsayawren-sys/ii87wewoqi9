@@ -1,60 +1,55 @@
-# 新疆兵团：非遗进校园 匠心传文脉
+# 铁路端午假期运输收官，累计发送旅客8258.8万人次
 
-> 更新时间：2026-06-30 08:00:02 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-中新网乌鲁木齐5月14日电 (史玉江)“以前觉得非遗离我们很远，现在剪纸、秦腔、掐丝珐琅都进了课堂，我们跟着学，越来越喜欢。”说起校园里的非遗课程，新疆生产建设兵团第八师石河子市学生李萌近日如是说。 如今，在新疆兵团各中小学、职业院校，非遗不再是书本里的词汇，而是融入课堂、社团和活动的鲜活文化符号。 近年来，第八师石河子市多所学校成立各类非遗社团，让学生在动手实践中感受传统技艺
+中新网北京6月23日电(记者 李京统)记者从中国国家铁路集团有限公司(下称“国铁集团”)获悉，6月18日至22日铁路端午假期运输期间，全国铁路累计发送旅客8258.8万人次、同比增长4.9%，全国铁路运输安全平稳有序。 国铁集团客运中心负责人介绍，今年端午假期以探亲流、旅游流为主，铁路客流总体保持高位。铁路端午假期运输期间，日均开行旅客列车12659列，累计增开跨局夜间高铁列车
 
 ## 正文
 
-中新网乌鲁木齐5月14日电 (史玉江)“以前觉得非遗离我们很远，现在剪纸、秦腔、掐丝珐琅都进了课堂，我们跟着学，越来越喜欢。
+中新网北京6月23日电(记者 李京统)记者从中国国家铁路集团有限公司(下称“国铁集团”)获悉，6月18日至22日铁路端午假期运输期间，全国铁路累计发送旅客8258.8万人次、同比增长4.9%，全国铁路运输安全平稳有序。
 
-”说起校园里的非遗课程，新疆生产建设兵团第八师石河子市学生李萌近日如是说。
+国铁集团客运中心负责人介绍，今年端午假期以探亲流、旅游流为主，铁路客流总体保持高位。
 
-如今，在新疆兵团各中小学、职业院校，非遗不再是书本里的词汇，而是融入课堂、社团和活动的鲜活文化符号。
+铁路端午假期运输期间，日均开行旅客列车12659列，累计增开跨局夜间高铁列车520列、动卧列车34列。
 
-近年来，第八师石河子市多所学校成立各类非遗社团，让学生在动手实践中感受传统技艺的魅力。
+同时，在热门旅游城市间增开旅客列车，推动“火车向着景区开”，安排开行“星光·燕赵号”“中原铁道·大河之南号”“熊猫专列·成都号”“新东方快车”“秦岭号”“大美上饶”等各具特色的旅游列车49列。
 
-在石河子第五中学的剪纸艺术社团里，老师详细讲解剪纸技巧与民俗常识，手把手指导学生折叠、勾勒、剪裁，同学们用普通红纸创作出花鸟、福字等栩栩如生的剪纸作品。
+在客运服务方面，铁路部门持续优化购票、候车、乘降、中转、接驳等各环节流程，加强现场引导，精心做好老幼病残孕等重点旅客出行服务，持续开展“我的铁路风景”优秀作品征集，在部分车站和列车举办“美好旅途‘粽’享端午”文化互动活动，邀请旅客朋友和列车工作人员一起包粽子、编五彩绳、趣味问答，感受别样的端午文化体验。
 
-近来，石河子第八中学“戏韵灼心”戏曲社团联合石河子市艺术剧院豫剧团，将非遗豫剧融入日常教学：音乐课教唱豫剧经典，美术课深耕脸谱创作，语文课分析剧本文学，体育课融入戏曲身段，推动非遗传承从“一次性活动”转向“常态化育人”。
-
-近日，第十三师新星市红星二场学校操场上热闹非凡。
-
-数百名学生手持鼓槌，伴随着激昂的节奏整齐踏步，红绸飞舞，安塞腰鼓的刚劲与活力在校园中蔓延…… “第一次接触安塞腰鼓，就被它雄浑的鼓声和整齐的舞步吸引。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 07:38 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-30 08:00 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-30 07:34 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-30 07:51 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
-- 2026-06-30 07:57 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-30 07:32 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-30 07:30 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
-- 2026-06-30 07:41 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-30 07:31 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
-- 2026-06-30 07:59 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-30 07:39 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-30 07:57 - [田中碧失误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-30 07:32 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-30 07:44 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-30 07:50 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
+- 2026-06-30 07:55 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-30 08:02 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-30 07:58 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-30 07:59 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-30 07:40 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-30 07:39 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-30 07:52 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-30 07:43 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-30 07:46 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-30 07:37 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-30 07:44 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-30 07:55 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:40 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/123837499.shtml)
-- 2026-06-30 07:41 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/6403982.shtml)
-- 2026-06-30 07:49 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/498302.shtml)
-- 2026-06-30 07:34 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/8721325881.shtml)
-- 2026-06-30 07:36 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/455568.shtml)
-- 2026-06-30 07:57 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/95937.shtml)
-- 2026-06-30 07:54 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/176682.shtml)
-- 2026-06-30 07:40 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/6508012.shtml)
-- 2026-06-30 07:53 - [曝詹姆斯即将与勇士会面](https://www.share.kurohicncr.top/Article/details/709263298.shtml)
-- 2026-06-30 07:32 - [美人鱼](https://www.share.kurohicncr.top/Article/details/86119.shtml)
-- 2026-06-30 07:52 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/505748994310.shtml)
-- 2026-06-30 07:33 - [绘画区你赢了](https://www.blog.minike.top/Article/details/491795713311.shtml)
-- 2026-06-30 07:31 - [逃狱兄弟](https://www.share.minike.top/Article/details/464572312314.shtml)
-- 2026-06-30 07:47 - [花少8要去世界杯举办国](https://www.blog.minike.top/Article/details/966986923.shtml)
-- 2026-06-30 07:43 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/832680517843.shtml)
+- 2026-06-30 07:57 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/5992294711.shtml)
+- 2026-06-30 07:56 - [王欣瑜温网开门红](http://www.blog.minike.top/Article/details/026162.shtml)
+- 2026-06-30 07:41 - [点球大战](http://www.blog.kurohicncr.top/Article/details/19157621044.shtml)
+- 2026-06-30 07:51 - [上半年全国特种设备安全形势总体平稳](https://www.blog.kurohicncr.top/Article/details/339430.shtml)
+- 2026-06-30 07:46 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/960154809.shtml)
+- 2026-06-30 08:01 - [巴西醒醒 这是淘汰赛](http://www.share.minike.top/Article/details/6752745792.shtml)
+- 2026-06-30 07:45 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/80059210.shtml)
+- 2026-06-30 07:52 - [吴易昺不敌德约科维奇 止步温网首轮](https://www.blog.kurohicncr.top/Article/details/327285.shtml)
+- 2026-06-30 07:54 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/808051.shtml)
+- 2026-06-30 07:57 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/3991833703.shtml)
+- 2026-06-30 08:01 - [国务院：探索延长义务教育年限](http://www.blog.kurohicncr.top/Article/details/97268686.shtml)
+- 2026-06-30 07:44 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.kurohicncr.top/Article/details/021004415063.shtml)
+- 2026-06-30 08:05 - [男子身高一米八二仍做断骨增高](http://www.blog.kurohicncr.top/Article/details/56015956.shtml)
+- 2026-06-30 07:38 - [索马里女大使：想和中国一起搞事业](http://www.blog.kurohicncr.top/Article/details/35407.shtml)
+- 2026-06-30 08:01 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/816705021.shtml)

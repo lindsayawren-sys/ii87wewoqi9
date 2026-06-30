@@ -1,56 +1,60 @@
-# 南宁常住人口突破900万 加速建设面向东盟国际化大都市
+# 酒价内参6月24日价格发布：五粮液1618下跌6元
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-中新网南宁5月14日电(黄艳梅 刘海文 韦佳彤)广西南宁市统计局14日介绍，2025年末，南宁市常住人口首次突破900万大关，达901.66万人，成为广西首个跨入这一量级的城市。 2025年，在中国多地常住人口有所减少的背景下，南宁市常住人口净增4.47万人，同比增长0.5%。 作为中国距离东盟最近的省会城市，南宁正加快建设面向东盟开放合作的国际化大都市。分析指出，生态环境优越
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月24日整体大幅下挫。如果主要单品各取一瓶整体打包售卖，今日总售价为9864元，较昨日大幅下跌30元，连续三日回落并创下今年4月18日以来最低。今日除国窖1573上涨外，其余品种均回落或平盘，其中四款单品更是创下近一月最低价，低位震荡态
 
 ## 正文
 
-中新网南宁5月14日电(黄艳梅 刘海文 韦佳彤)广西南宁市统计局14日介绍，2025年末，南宁市常住人口首次突破900万大关，达901.66万人，成为广西首个跨入这一量级的城市。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月24日整体大幅下挫。
 
-2025年，在中国多地常住人口有所减少的背景下，南宁市常住人口净增4.47万人，同比增长0.5%。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9864元，较昨日大幅下跌30元，连续三日回落并创下今年4月18日以来最低。
 
-作为中国距离东盟最近的省会城市，南宁正加快建设面向东盟开放合作的国际化大都市。
+今日除国窖1573上涨外，其余品种均回落或平盘，其中四款单品更是创下近一月最低价，低位震荡态势进一步加剧，终端交投情绪明显降温。
 
-分析指出，生态环境优越、产业升级提速、开放水平提升及民生持续改善，是南宁实现人口集聚的主要因素。
+今日11大白酒单品一涨八跌两平，输家数量占据绝对优势。
 
-南宁市统计局副局长钟毓海当日接受媒体采访时介绍，“十四五”时期，南宁市聚焦“中国绿城”品牌建设，空气质量优良率保持在96.2%以上，建成区绿化覆盖率达43.02%，生态环境质量保持中国重点城市前列，城市吸引力不断增强。
+上涨方面，国窖1573为唯一赢家，上涨5元/瓶，连续两日反弹，重新逼近890元关口。
 
-同期，南宁市生产总值连续突破5000亿元(人民币，下同)、6000亿元大关，经济规模稳步壮大。
+下跌方面，五粮液1618、古井贡古20与青花郎跌幅居前，均下跌6元/瓶，其中五粮液1618创近一月最大日跌幅，价格创近一月最低；古井贡古20回吐此前部分涨幅，同样创下近一月最低价；青花郎再度跌破700元关口。
 
-南宁跻身全球重要的新能源电池产业集聚区，电子信息产业向高新技术领域迈进，数智产业集聚效应加速显现。
+青花汾20与习酒君品均下跌5元/瓶；飞天茅台下跌3元/瓶；精品茅台与五粮液普五八代均下跌2元/瓶，其中前者连续三日回落并创下近一月最低价，后者已七连阴，失守800元关口后继续下探，续创今年2月2日以来最低纪录。
 
-作为中国—东盟博览会长期举办地，南宁在服务中国与东盟开放合作中的渠道作用日益凸显。
+洋河梦之蓝M6+与水晶剑南春价格环比保持不变，其中前者仍平近一月最高价纪录，后者仍处于近一月的次低位。
 
 ## 相关推荐
 
-- 2026-06-30 07:48 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-30 07:40 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
-- 2026-06-30 07:43 - [德国4比5巴拉圭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-30 07:57 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
-- 2026-06-30 07:42 - [德国4比5巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-30 07:48 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-30 07:47 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
-- 2026-06-30 07:56 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-30 07:55 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-30 07:44 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-30 07:59 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-30 07:37 - [王楚钦孙颖莎晋级混双八强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
+- 2026-06-30 07:44 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-30 07:44 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-30 07:51 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-30 07:55 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-30 08:00 - [张雪的一句“是我们”引发岛内热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-30 07:58 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-30 08:04 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-30 07:47 - [德国队连续三届世界杯无缘16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-30 08:05 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-30 07:57 - [张雪的一句“是我们”引发岛内热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-30 08:05 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-30 07:45 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:42 - [王楚钦谈表演球](https://www.blog.kurohicncr.top/Article/details/79282.shtml)
-- 2026-06-30 07:48 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/62380630.shtml)
-- 2026-06-30 07:43 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/71325993.shtml)
-- 2026-06-30 07:47 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/705239541.shtml)
-- 2026-06-30 07:43 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.kurohicncr.top/Article/details/0715152.shtml)
-- 2026-06-30 07:40 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/955275791.shtml)
-- 2026-06-30 07:52 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/32218608388.shtml)
-- 2026-06-30 07:52 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/98088067.shtml)
-- 2026-06-30 07:51 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/935592298.shtml)
-- 2026-06-30 07:41 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/047228.shtml)
-- 2026-06-30 07:53 - [日本反击率先破门](https://www.share.kurohicncr.top/Article/details/476764232.shtml)
-- 2026-06-30 07:48 - [巴西绝杀日本](http://www.share.minike.top/Article/details/382008.shtml)
-- 2026-06-30 07:44 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/49030068180.shtml)
-- 2026-06-30 07:32 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.minike.top/Article/details/534172189.shtml)
-- 2026-06-30 07:40 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.minike.top/Article/details/432616948933.shtml)
+- 2026-06-30 07:45 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/261261634.shtml)
+- 2026-06-30 08:05 - [男子中医院拔火罐致浅2度烧伤](https://www.share.kurohicncr.top/Article/details/654926441898.shtml)
+- 2026-06-30 07:45 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/296847026.shtml)
+- 2026-06-30 07:36 - [警犬“多多”助民警寻回失联老人](https://www.blog.minike.top/Article/details/99340172230.shtml)
+- 2026-06-30 07:47 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](http://www.blog.minike.top/Article/details/85700.shtml)
+- 2026-06-30 07:40 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/9188629.shtml)
+- 2026-06-30 07:49 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/18163007640.shtml)
+- 2026-06-30 07:54 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/09037887.shtml)
+- 2026-06-30 08:02 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/755454.shtml)
+- 2026-06-30 07:48 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/35370966.shtml)
+- 2026-06-30 07:59 - [亚洲球队全部出局](https://www.share.minike.top/Article/details/9730448543.shtml)
+- 2026-06-30 08:02 - [德国vs巴拉圭](https://www.share.kurohicncr.top/Article/details/63150.shtml)
+- 2026-06-30 08:05 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/8148191.shtml)
+- 2026-06-30 07:53 - [人类...完蛋了...](https://www.blog.kurohicncr.top/Article/details/08241.shtml)
+- 2026-06-30 07:52 - [AI手机进入Agent时代](https://www.blog.minike.top/Article/details/82257062.shtml)

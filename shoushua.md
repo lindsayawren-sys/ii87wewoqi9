@@ -1,56 +1,59 @@
-# ATFX:英国一季度GDP数据14:00发布
+# 巴西恢复电动汽车进口免税配额
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-专题：ATFX外汇专栏投稿 5月14日，ATFX汇评：GDP数据衡量国家经济体量的变化情况，如果增速下滑，可能引起市场恐慌，股市和货币或遭受冲击。北京时间今日14：00，英国将发布2026年一季度的GDP相关数据，关键品种或有波动。 ATFX图▲ 一季度GDP增速年率是重中之重，前值为1%，预期值0.8%，预期小幅下降。自2024年第四季度以来，连续五个季度，英国的GDP年率增
+中新社圣保罗6月23日电 巴西外贸委员会(CAMEX)执行管理委员会(Gecex，下称委员会)23日决定，自7月起恢复为期6个月的电动汽车进口免税配额，同时维持进口纯电动和混合动力汽车关税逐步上调安排。 委员会决定，自2026年7月1日起，恢复针对CKD(指汽车以完全拆散的状态进口之后再组装成整车)汽车和半散件组装汽车的零关税进口配额，期限为6个月，总额度为4.63亿美元，与今
 
 ## 正文
 
-专题：ATFX外汇专栏投稿 5月14日，ATFX汇评：GDP数据衡量国家经济体量的变化情况，如果增速下滑，可能引起市场恐慌，股市和货币或遭受冲击。
+中新社圣保罗6月23日电 巴西外贸委员会(CAMEX)执行管理委员会(Gecex，下称委员会)23日决定，自7月起恢复为期6个月的电动汽车进口免税配额，同时维持进口纯电动和混合动力汽车关税逐步上调安排。
 
-北京时间今日14：00，英国将发布2026年一季度的GDP相关数据，关键品种或有波动。
+委员会决定，自2026年7月1日起，恢复针对CKD(指汽车以完全拆散的状态进口之后再组装成整车)汽车和半散件组装汽车的零关税进口配额，期限为6个月，总额度为4.63亿美元，与今年1月前执行的标准相同。
 
-ATFX图▲ 一季度GDP增速年率是重中之重，前值为1%，预期值0.8%，预期小幅下降。
+超出配额部分，半散件组装汽车仍按35%的税率征税，CKD汽车继续按14%的税率征税。
 
-自2024年第四季度以来，连续五个季度，英国的GDP年率增速持续下降，从最高点2%下降至1%。
+CBU(整车进口)汽车则不设任何配额限制。
 
-一般认为，连续三个季度增速下降，就确认技术性衰退。
+委员会表示，对以半散件形式进口后在巴西进一步组装的电动汽车，自今年7月起征收35%的进口税；对CKD汽车，在2027年1月1日前继续适用14%的税率，之后将提高至35%。
 
-如果应该今年一季度的GDP增速继续回落，也增速下降累计时间将达到一年半，经济衰退迹象将异常明显。
+此前，对拆散状态进口电动汽车实施的临时免税政策已于今年1月31日到期。
 
-除了数据结果外，欧央行委员对数据的解读也十分关键。
+按照既定计划，进口纯电动和混合动力汽车关税将逐步提高，并于2027年达到35%。
 
-如果委员将GDP增速下降归结为短期因素冲击，则不会调整货币政策。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 07:37 - [齐思钧回复张月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-30 07:55 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-30 07:30 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-30 07:36 - [金鹰奖视后提名预测](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-30 07:37 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-30 07:45 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-30 07:32 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-30 07:55 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
-- 2026-06-30 07:38 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-30 07:56 - [《共患难》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-30 07:45 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-30 07:46 - [孙颖莎王楚钦晋级8强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
+- 2026-06-30 07:57 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-30 07:36 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-30 07:50 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-30 08:01 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-30 08:01 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-30 07:55 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-30 07:54 - [男子在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-30 08:02 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-30 07:47 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-30 07:46 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-30 07:49 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:50 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/963997081.shtml)
-- 2026-06-30 07:52 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.minike.top/Article/details/11486086988.shtml)
-- 2026-06-30 07:51 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.share.kurohicncr.top/Article/details/3976007458.shtml)
-- 2026-06-30 07:52 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/30146.shtml)
-- 2026-06-30 07:56 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/7956186111.shtml)
-- 2026-06-30 07:58 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/74253047.shtml)
-- 2026-06-30 07:39 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/721335898394.shtml)
-- 2026-06-30 07:59 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/22214815.shtml)
-- 2026-06-30 07:37 - [巴西2比1日本](https://www.blog.kurohicncr.top/Article/details/87486.shtml)
-- 2026-06-30 07:54 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/65973903110.shtml)
-- 2026-06-30 07:48 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://www.share.minike.top/Article/details/0741309.shtml)
-- 2026-06-30 07:53 - [男子醉酒溺水获救后同行人拒协助抬人](http://www.share.minike.top/Article/details/0760871.shtml)
-- 2026-06-30 07:31 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.minike.top/Article/details/2011531.shtml)
-- 2026-06-30 07:59 - [詹姆斯下赛季去哪](http://www.share.kurohicncr.top/Article/details/7203057.shtml)
-- 2026-06-30 07:56 - [德国队世界杯点球大战首败](https://www.share.minike.top/Article/details/45057.shtml)
+- 2026-06-30 07:45 - [覃予萱晋级WTT美国大满贯女单32强](http://www.share.minike.top/Article/details/1275537.shtml)
+- 2026-06-30 08:04 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/85404.shtml)
+- 2026-06-30 07:49 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/85698217962.shtml)
+- 2026-06-30 07:59 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/66366654.shtml)
+- 2026-06-30 07:54 - [德国连续三届世界杯无缘16强](https://www.share.kurohicncr.top/Article/details/371253743.shtml)
+- 2026-06-30 07:56 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/14693832.shtml)
+- 2026-06-30 07:36 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.kurohicncr.top/Article/details/0987042.shtml)
+- 2026-06-30 07:55 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/621397.shtml)
+- 2026-06-30 07:49 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/86983489.shtml)
+- 2026-06-30 07:40 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/4001627.shtml)
+- 2026-06-30 07:46 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/2333841.shtml)
+- 2026-06-30 07:36 - [有什么好的高中网课推荐吗？](https://www.blog.minike.top/Article/details/38985715.shtml)
+- 2026-06-30 07:55 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/248142879.shtml)
+- 2026-06-30 07:39 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/5585324.shtml)
+- 2026-06-30 07:59 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/0512177.shtml)

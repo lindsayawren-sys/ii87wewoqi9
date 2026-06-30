@@ -1,56 +1,45 @@
-# 颖通控股上市后的新故事是投资了一家卖茶饮的香氛店
+# 英媒报道称：逾400艘船在霍尔木兹海峡等待谈判结果
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-界面新闻记者 | 周芳颖 界面新闻编辑 | 楼婍沁 颖通控股上市后的首笔对外投资对象是一个本土芳疗护肤品牌。 颖通控股发布公告称，其全资附属公司颖通（中国）国际贸易有限责任公司已于2026年4月13日签署增资认购协议及股东协议，以人民币9750万元认购杭州白昼与梦生物科技有限公司新增注册资本人民币795037元，取得后者增资完成后15%的股权。 白昼与梦是芳疗功效护肤、个人护理
+发布时间：2026年06月23日 10:59 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-界面新闻记者 | 周芳颖 界面新闻编辑 | 楼婍沁 颖通控股上市后的首笔对外投资对象是一个本土芳疗护肤品牌。
-
-颖通控股发布公告称，其全资附属公司颖通（中国）国际贸易有限责任公司已于2026年4月13日签署增资认购协议及股东协议，以人民币9750万元认购杭州白昼与梦生物科技有限公司新增注册资本人民币795037元，取得后者增资完成后15%的股权。
-
-白昼与梦是芳疗功效护肤、个人护理及香氛品牌“馥郁满铺”的运营主体。
-
-该品牌定位为芳香疗愈情绪护肤品牌，最早起始于杭州一家芳疗小铺。
-
-综合公开信息，经过8年线下经营积累后，馥郁满铺于2021年转向芳疗护肤品开发，其首款精粹水产品120ml售价200多元，上市半年销售额超过1200万元。
-
-颖通控股向界面时尚表示，该集团执行董事兼首席执行官林荆认为此次战略投资是集团优化资本配置、布局高增长赛道的举措，将帮助颖通控股把握功效护肤及个人护理行业的结构性增长机会，拓宽相关业务布局，并进一步丰富该集团品牌组合、优化业务结构。
-
-据林荆的说法，馥郁满铺已在芳疗功效护肤细分赛道中建立一定竞争优势，而颖通控股将在渠道资源、品牌拓展和市场渗透等方面支持馥郁满铺推进全渠道布局及国际化市场拓展。
-
-2023年至2025年，馥郁满铺接连获得凯辉基金、内向基金、挑战者创投等机构三轮融资。
+发布时间：2026年06月23日 10:59 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 07:58 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-30 07:59 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-30 07:58 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-30 07:33 - [网友写差评被店家“挂”门口避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-30 07:48 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-30 07:42 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
-- 2026-06-30 07:59 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
-- 2026-06-30 07:58 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-30 07:55 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-30 07:45 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-30 07:53 - [日本16强魔咒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-30 07:41 - [锐评T1战胜KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-30 07:38 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-30 07:47 - [为什么会有「念旧」的心理？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-30 07:37 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-30 07:44 - [德国队世界杯点球大战首败](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
+- 2026-06-30 07:54 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-30 07:41 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-30 07:50 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-30 07:45 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-30 07:58 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-30 07:46 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-30 08:05 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:36 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/22054676020.shtml)
-- 2026-06-30 07:31 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/6665891.shtml)
-- 2026-06-30 07:38 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.blog.minike.top/Article/details/00266555878.shtml)
-- 2026-06-30 07:53 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/045604530575.shtml)
-- 2026-06-30 07:58 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.minike.top/Article/details/24851085494.shtml)
-- 2026-06-30 07:40 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/783002729740.shtml)
-- 2026-06-30 07:57 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/271633932.shtml)
-- 2026-06-30 07:56 - [男子醉酒溺水获救后同行人拒协助抬人](https://www.share.kurohicncr.top/Article/details/727308467.shtml)
-- 2026-06-30 07:37 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/6755738.shtml)
-- 2026-06-30 07:56 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/64226.shtml)
-- 2026-06-30 07:47 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/1223818.shtml)
-- 2026-06-30 07:33 - [世界杯“美洲德比”7月1日开打](http://www.blog.kurohicncr.top/Article/details/28173791753.shtml)
-- 2026-06-30 07:54 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/67846487568.shtml)
-- 2026-06-30 07:44 - [穆祉丞年度人气艺人](https://www.share.minike.top/Article/details/884257317841.shtml)
-- 2026-06-30 07:32 - [网红峡谷5人溺亡 有人提醒会下雨](https://www.share.minike.top/Article/details/068335790.shtml)
+- 2026-06-30 07:44 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/2923412.shtml)
+- 2026-06-30 07:46 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/5100866086.shtml)
+- 2026-06-30 07:43 - [天道](https://www.share.minike.top/Article/details/098924529.shtml)
+- 2026-06-30 07:39 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.kurohicncr.top/Article/details/57507.shtml)
+- 2026-06-30 07:42 - [曝老詹对自由市场态度与以往截然不同](http://www.blog.minike.top/Article/details/2191235876.shtml)
+- 2026-06-30 08:03 - [王濛回复黄灿灿](https://www.share.kurohicncr.top/Article/details/90449.shtml)
+- 2026-06-30 07:57 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/6509678.shtml)
+- 2026-06-30 07:36 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/138534612.shtml)
+- 2026-06-30 07:44 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/2313918.shtml)
+- 2026-06-30 07:59 - [《贺子珍》](https://www.share.minike.top/Article/details/96381934.shtml)
+- 2026-06-30 07:49 - [媒体：手机测评该挤挤水分了](https://www.share.kurohicncr.top/Article/details/31140361.shtml)
+- 2026-06-30 07:53 - [日本遭读秒绝杀 森保一：我水平不够](http://www.share.kurohicncr.top/Article/details/810681340661.shtml)
+- 2026-06-30 07:58 - [日本进球](http://www.blog.kurohicncr.top/Article/details/37984138781.shtml)
+- 2026-06-30 07:56 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/807805.shtml)
+- 2026-06-30 07:37 - [日本 高位逼抢](http://www.share.minike.top/Article/details/69475.shtml)

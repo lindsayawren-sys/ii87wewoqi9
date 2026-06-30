@@ -1,56 +1,52 @@
-# A股“股王”源杰科技副总经理被刑拘
+# 全球首架国产C909公务机在上海投入商业运营
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-5月14日晚间，源杰科技（688498.SH）发布《关于副总经理无法正常履职暨离任的公告》，公告称，公司于近日收到公司副总经理陈文君家属的通知，陈文君因涉嫌刑事犯罪被公安机关刑事拘留，无法正常履行公司副总经理职责。截至本公告披露日，公司未接到公安机关对该事件的通知。公告称，陈文君在任期间主要分管公司产品销售及营销相关工作，鉴于其已无法正常履行公司副总经理职责，为保障公司相关业务
+发布时间：2026年06月22日 19:12 来源：中国新闻网 6月22日，海航航空集团旗下上海金鹿公务航空有限公司(以下简称：上海金鹿)在上海虹桥国际机场举行全球首架CBJ公务机正式投入商业运营首航仪式。这是中国自主研制公务机在高端服务市场的重要突破，上海金鹿由此成为全球首家运营国产公务机的运营商，为中国公务航空事业翻开了崭新篇章。CBJ公务机是中国商飞C909机型系列化发展
 
 ## 正文
 
-5月14日晚间，源杰科技（688498.SH）发布《关于副总经理无法正常履职暨离任的公告》，公告称，公司于近日收到公司副总经理陈文君家属的通知，陈文君因涉嫌刑事犯罪被公安机关刑事拘留，无法正常履行公司副总经理职责。
+发布时间：2026年06月22日 19:12 来源：中国新闻网 6月22日，海航航空集团旗下上海金鹿公务航空有限公司(以下简称：上海金鹿)在上海虹桥国际机场举行全球首架CBJ公务机正式投入商业运营首航仪式。
 
-截至本公告披露日，公司未接到公安机关对该事件的通知。
+这是中国自主研制公务机在高端服务市场的重要突破，上海金鹿由此成为全球首家运营国产公务机的运营商，为中国公务航空事业翻开了崭新篇章。
 
-公告称，陈文君在任期间主要分管公司产品销售及营销相关工作，鉴于其已无法正常履行公司副总经理职责，为保障公司相关业务平稳衔接、不间断推进，经提名委员会建议，公司于5月14日召开第二届董事会第三十次会议，审议通过了《关于解聘公司高级管理人员的议案》，解除陈文君的副总经理职务，解聘后其仍在公司担任其他职务，解聘事项自董事会审议通过之日起生效。
+CBJ公务机是中国商飞C909机型系列化发展的重要成果，定位为大型喷气式高端定制化公务机。
 
-源杰科技在公告中还称，目前，公司生产经营情况正常、稳定，公司已经对该副总经理负责的相关工作做了妥善安排和处理，该事件不影响公司的正常经营活动。
+客舱空间更加宽敞，可灵活实现12至29座的座位布局，按需划分休息区、会议区、会客区、就餐区等相对独立的功能区域，充分满足个性化定制需求。
 
-Wind数据显示，截至5月14日收盘，源杰科技股价收报1635元/股，依然位居A股“股王”位置，总市值1405亿元。
-
-（文章来源：中国经营报）
+(殷立勤 制作 王佳琪） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-30 07:40 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
-- 2026-06-30 07:56 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
-- 2026-06-30 07:33 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-30 07:53 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-30 07:30 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-30 07:33 - [郑钦文温网首轮出局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-30 07:50 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-30 07:39 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-30 07:55 - [德国巴拉圭进入点球大战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-30 07:48 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-30 07:35 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-30 07:31 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-30 07:51 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-30 07:45 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-30 08:03 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-30 07:52 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-30 07:54 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-30 07:58 - [郑钦文温网一轮游](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-30 08:00 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-30 07:42 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-30 08:04 - [莫兰特转投开拓者效力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-30 07:43 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-30 07:43 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-30 07:46 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-30 08:04 - [男子在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
+- 2026-06-30 07:36 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:54 - [董卿父亲在报纸上发文悼念亡妻](http://www.share.minike.top/Article/details/9805877516.shtml)
-- 2026-06-30 07:30 - [日本领先巴西](http://www.share.kurohicncr.top/Article/details/92384.shtml)
-- 2026-06-30 07:36 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/520468725498.shtml)
-- 2026-06-30 07:49 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://www.blog.kurohicncr.top/Article/details/356112.shtml)
-- 2026-06-30 07:50 - [人类...完蛋了...](https://www.share.minike.top/Article/details/809036.shtml)
-- 2026-06-30 07:48 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/252313784.shtml)
-- 2026-06-30 07:41 - [一生一世](http://www.blog.minike.top/Article/details/98739.shtml)
-- 2026-06-30 07:53 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/983880.shtml)
-- 2026-06-30 07:51 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/36142407.shtml)
-- 2026-06-30 07:41 - [马耳他著名拱门坍塌致中国男子身亡](http://www.share.minike.top/Article/details/372413274717.shtml)
-- 2026-06-30 07:33 - [世界杯：德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/52547387876.shtml)
-- 2026-06-30 07:48 - [世界杯](http://www.share.kurohicncr.top/Article/details/082734389.shtml)
-- 2026-06-30 07:41 - [森保一 保守](http://www.blog.kurohicncr.top/Article/details/833693400.shtml)
-- 2026-06-30 07:32 - [媒体评泰山建135公里刀片刺绳隔离网](https://www.blog.minike.top/Article/details/338129408173.shtml)
-- 2026-06-30 07:55 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/628424474.shtml)
+- 2026-06-30 08:05 - [巴西vs日本](http://www.share.minike.top/Article/details/9301392.shtml)
+- 2026-06-30 07:43 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/0246717141.shtml)
+- 2026-06-30 07:51 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/2757011693.shtml)
+- 2026-06-30 08:05 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/371036.shtml)
+- 2026-06-30 07:59 - [金牌调解](http://www.share.minike.top/Article/details/87701493426.shtml)
+- 2026-06-30 07:39 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.kurohicncr.top/Article/details/9196770.shtml)
+- 2026-06-30 07:43 - [金刚川](http://www.blog.minike.top/Article/details/53103287.shtml)
+- 2026-06-30 07:49 - [金鹰奖视后提名预测](https://www.share.kurohicncr.top/Article/details/35108.shtml)
+- 2026-06-30 07:44 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.kurohicncr.top/Article/details/9808521.shtml)
+- 2026-06-30 07:44 - [杨紫被质疑未使用原名纯属误解](http://www.share.minike.top/Article/details/166873784.shtml)
+- 2026-06-30 07:46 - [曝灰熊将莫兰特交易至开拓者](https://www.share.minike.top/Article/details/2390677733.shtml)
+- 2026-06-30 08:03 - [F1奥地利站赛后复盘](https://www.share.kurohicncr.top/Article/details/98825775644.shtml)
+- 2026-06-30 07:40 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/41078.shtml)
+- 2026-06-30 07:53 - [王欣瑜2-1击败科恰雷托](https://www.blog.kurohicncr.top/Article/details/1671667335.shtml)
+- 2026-06-30 07:47 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/3707422.shtml)

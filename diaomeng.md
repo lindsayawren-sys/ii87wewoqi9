@@ -1,56 +1,56 @@
-# 杭州互联网法院发布2025年度“司法指数” 折射AI双刃效应
+# 剂泰科技-P早盘涨超8% 科创板第五套标准扩围至人工智能大模型领域
 
-> 更新时间：2026-06-30 08:00:02 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-中新网杭州5月13日电(郭其钰)5月13日，杭州互联网法院发布2025年度互联网发展“司法指数”(下称“司法指数”)，对该院2025年积累的7万余件互联网纠纷案件的司法数据以及往年司法数据进行测算分析，为深入洞察互联网发展状况开启了一扇“司法窗口”。 互联网发展“司法指数”是基于客观、真实、已然的案件信息数据，从司法角度分析互联网发展实际状况，并提出相关对策建议。 如在涉人工智
+剂泰科技-P（07666）早盘涨超8%，截至发稿，股价上涨8.32%，现报14.98港元，成交额1628.27万港元。 科创板第五套上市标准扩围至人工智能大模型领域。据上海证券报报道，剂泰科技相关负责表示，这意味着国产大模型及AI深度赋能的企业，将获得更为通畅的直接融资渠道。AI制药所代表的“AI+生物科技”交叉领域，也有望获得资本市场更多制度性支持。该负责人认为，科创板第五套
 
 ## 正文
 
-中新网杭州5月13日电(郭其钰)5月13日，杭州互联网法院发布2025年度互联网发展“司法指数”(下称“司法指数”)，对该院2025年积累的7万余件互联网纠纷案件的司法数据以及往年司法数据进行测算分析，为深入洞察互联网发展状况开启了一扇“司法窗口”。
+剂泰科技-P（07666）早盘涨超8%，截至发稿，股价上涨8.32%，现报14.98港元，成交额1628.27万港元。
 
-互联网发展“司法指数”是基于客观、真实、已然的案件信息数据，从司法角度分析互联网发展实际状况，并提出相关对策建议。
+科创板第五套上市标准扩围至人工智能大模型领域。
 
-如在涉人工智能领域，“司法指数”显示，2025年相关案件数量较2024年增加32%，涉及诸多行业、遍及生产经营与日常生活，表明人工智能正深入千行百业，深度重塑社会生产模式与大众生活形态，引领数字化时代的深刻变革。
+据上海证券报报道，剂泰科技相关负责表示，这意味着国产大模型及AI深度赋能的企业，将获得更为通畅的直接融资渠道。
 
-与此同时，“司法指数”中一级指数“网络安全”得分持续低于基准分，且与去年该一级指数得分相比仍有下降。
+AI制药所代表的“AI+生物科技”交叉领域，也有望获得资本市场更多制度性支持。
 
-“具体分析，生成式人工智能在技术、用户与产业层面实现跨越式普及，其伴生风险从技术隐患全面升级为系统性社会治理难题。
+该负责人认为，科创板第五套标准向AI领域的扩围，以及生物制造等未来产业被纳入支持范围，AI药物递送这类交叉赛道或将迎来更清晰的制度预期，有助于行业形成更稳定的创新生态。
 
-”杭州互联网法院副院长华立军举例说，人工智能深度伪造泛滥，换脸换声技术被用于制作虚假广告、实施电信诈骗，伪造公众人物形象等，误导公众、攫取暴利，严重冲击社会信任底线。
+值得注意的是，近日，剂泰科技宣布与健康投资与创新平台Deerfield达成战略联盟。
 
-“司法指数”中二级指数“全球治理参与度”主要反映涉外司法影响力，此项得分已连续7年增长，2025年较上一年度上升18.12%，体现互联网司法影响力进一步辐射全球。
+Deerfield管理资产超过160亿美元，曾深度参与Sage Therapeutics、Alnylam等医疗健康企业的成长。
 
-具体如跨境电子商务类案件，其增长幅度仍低于普通电子商务类案件，且案件数量、涉及的国家和地区数量增长均较为缓慢。
+此次合作将整合剂泰科技在AI驱动蛋白工程、体内免疫治疗及可编程生物药领域的专有技术，与Deerfield在转化医学、临床开发及全球合作方面的深厚产业经验。
 
 ## 相关推荐
 
-- 2026-06-30 07:58 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-30 07:51 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-30 07:49 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-30 07:52 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
-- 2026-06-30 07:44 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-30 07:40 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
-- 2026-06-30 07:48 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
-- 2026-06-30 07:36 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
-- 2026-06-30 07:46 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-30 07:45 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-30 07:54 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-30 07:57 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-30 07:44 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-30 07:52 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-30 08:00 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-30 07:50 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-30 07:46 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-30 07:56 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-30 07:38 - [藤森庆子赢得秘鲁总统选举](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-30 08:00 - [男子在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:35 - [德国进球被吹](http://www.blog.minike.top/Article/details/8715485.shtml)
-- 2026-06-30 07:45 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/2250962.shtml)
-- 2026-06-30 07:47 - [沉睡花园](https://www.share.minike.top/Article/details/935664377.shtml)
-- 2026-06-30 07:39 - [花少8要去世界杯举办国](https://www.share.kurohicncr.top/Article/details/527425.shtml)
-- 2026-06-30 07:36 - [森保一致歉：世界第一目标没能实现](http://www.blog.kurohicncr.top/Article/details/635096.shtml)
-- 2026-06-30 07:37 - [周冬雨多次说演不了话剧文城](http://www.share.minike.top/Article/details/972601363.shtml)
-- 2026-06-30 07:57 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/6066177.shtml)
-- 2026-06-30 07:37 - [巴西2比1日本](http://www.share.kurohicncr.top/Article/details/06277202.shtml)
-- 2026-06-30 07:50 - [起风了](http://www.share.kurohicncr.top/Article/details/56869433.shtml)
-- 2026-06-30 07:54 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.kurohicncr.top/Article/details/29906.shtml)
-- 2026-06-30 07:35 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/322941775.shtml)
-- 2026-06-30 07:43 - [毒液2](https://www.share.minike.top/Article/details/02242.shtml)
-- 2026-06-30 07:35 - [张帅时隔四年再取温网正赛胜利](http://www.share.kurohicncr.top/Article/details/046888010.shtml)
-- 2026-06-30 07:49 - [【大鸣王潮1566】真拿你没办法](http://www.share.minike.top/Article/details/997188078785.shtml)
-- 2026-06-30 07:54 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/93042645139.shtml)
+- 2026-06-30 08:01 - [医药暴涨5.91%背后](http://www.blog.minike.top/Article/details/445131.shtml)
+- 2026-06-30 07:47 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/90659.shtml)
+- 2026-06-30 07:44 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/431919.shtml)
+- 2026-06-30 08:01 - [乔家的儿女](http://www.share.minike.top/Article/details/54051.shtml)
+- 2026-06-30 07:43 - [一生一世](https://www.share.minike.top/Article/details/07663.shtml)
+- 2026-06-30 07:36 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/92291288044.shtml)
+- 2026-06-30 07:44 - [刘宇宁高情商化解谁站C位](https://www.blog.minike.top/Article/details/344473510.shtml)
+- 2026-06-30 08:02 - [德国进球被吹](https://www.blog.minike.top/Article/details/9828022367.shtml)
+- 2026-06-30 07:37 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/231350.shtml)
+- 2026-06-30 07:49 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/6874974.shtml)
+- 2026-06-30 07:50 - [詹姆斯下赛季去哪](http://www.share.kurohicncr.top/Article/details/949016377740.shtml)
+- 2026-06-30 07:41 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/7552920.shtml)
+- 2026-06-30 08:05 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/407926090412.shtml)
+- 2026-06-30 07:38 - [巴拉圭先进球了](http://www.share.kurohicncr.top/Article/details/91583467276.shtml)
+- 2026-06-30 08:00 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/35589.shtml)

@@ -1,56 +1,59 @@
-# 广西部署启动“八桂护渔2026”执法行动
+# 伟大征程｜大国底气：国防和科技战线取得新成就
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-中新网南宁5月13日电(杨陈 黄小华)广西壮族自治区农业农村厅13日介绍，近日，该厅正式印发“八桂护渔2026”执法行动方案，部署全年渔业执法重点任务，为广西渔业高质量发展筑牢安全屏障。 此次“八桂护渔2026”执法行动，由广西壮族自治区农业农村厅统一领导，广西海洋与渔业执法总队负责统筹协调、监督指导，各市渔业行政主管部门及其所属渔政执法机构具体组织实施，构建起“统一领导、分级
+新华社北京6月22日电 题：大国底气：国防和科技战线取得新成就 新华社记者杨湛菲 仲夏时节，祖国西北巴丹吉林沙漠深处，东风航天城满目青绿。 这里更广为人知的名字是“酒泉卫星发射中心”。不到一个月前，搭载3名航天员的神舟二十三号载人飞船从这里启航，驶向“天宫”空间站。 习近平总书记深刻指出：“自力更生是中华民族自立于世界民族之林的奋斗基点，自主创新是我们攀登世界科技高峰的必由之路
 
 ## 正文
 
-中新网南宁5月13日电(杨陈 黄小华)广西壮族自治区农业农村厅13日介绍，近日，该厅正式印发“八桂护渔2026”执法行动方案，部署全年渔业执法重点任务，为广西渔业高质量发展筑牢安全屏障。
+新华社北京6月22日电 题：大国底气：国防和科技战线取得新成就 新华社记者杨湛菲 仲夏时节，祖国西北巴丹吉林沙漠深处，东风航天城满目青绿。
 
-此次“八桂护渔2026”执法行动，由广西壮族自治区农业农村厅统一领导，广西海洋与渔业执法总队负责统筹协调、监督指导，各市渔业行政主管部门及其所属渔政执法机构具体组织实施，构建起“统一领导、分级负责、全域联动、协同治理”的渔业执法工作体系，确保各项部署要求落地生根、见行见效。
+这里更广为人知的名字是“酒泉卫星发射中心”。
 
-行动部署坚持问题导向、底线思维，精准聚焦重点区域、关键时段和核心环节，围绕新修订的《中华人民共和国渔业法》宣贯普及、海洋伏季休渔制度全面落实、海洋渔船安全生产监管、水产养殖规范管理、涉外渔业风险防范、渔船跨海区作业管控、“三无”船舶非法捕捞打击、违规渔具渔法清理整治、内陆水域全面禁渔制度落地、水生野生动物保护十大重点领域，组织开展专项执法行动，实施渔业全链条精准监管、全领域综合治理，严厉打击整治各类涉渔违法违规行为，坚决守住渔业生产安全和生态安全底线。
+不到一个月前，搭载3名航天员的神舟二十三号载人飞船从这里启航，驶向“天宫”空间站。
 
-各地将结合本地实际，同步统筹推进水产种质资源保护、涉渔工程监管、水生外来物种防控等执法工作，实现监管无死角、防控全覆盖。
+习近平总书记深刻指出：“自力更生是中华民族自立于世界民族之林的奋斗基点，自主创新是我们攀登世界科技高峰的必由之路。
 
-贯穿全年的“八桂护渔2026”执法行动，将坚持广西全区渔政执法“一盘棋”思路，加强跨区域、跨流域执法协同，健全完善工作机制，对执法监管责任落实不到位的地区和单位严肃追责问责，层层压紧压实属地监管责任；聚焦风险高发时段和重点区域，采取常态化巡查与专项整治相结合、日常监管与集中打击相补充的方式，严格规范公正文明执法，加强典型案例曝光力度，营造依法治渔、依法兴渔的浓厚社会氛围；深化与公安、海警、海事、市场监管等部门的协作配合，健全完善省际间渔政执法及北部湾海域渔业执法协作机制，畅通全链条监管和行刑衔接渠道，充分运用无人机、大数据等信息化手段，持续提升监管精准度和覆盖面；加强渔政执法队伍建设，从严压实工作纪律，着力打造一支忠诚干净担当的高素质渔政执法队伍，畅通渔业违法线索举报受理渠道，确保民众举报快速接诉、规范处置。
+” 今日我们取得的成就，正是建立在20世纪50年代以来，一代代先辈筚路蓝缕、攻坚克难，一步步亲手打下的坚实根基之上。
 
-据悉，“八桂护渔2026”执法行动的部署实施，是广西立足区情实际、保障渔业生产安全、推动渔业执法提质增效的重要举措。
+那是一段格外艰难的岁月—— 研制“东方红一号”时，科学家们靠半自动手摇计算器处理大量运算任务，一条轨道算了整整一年；“两弹一星”研制团队在戈壁荒滩、深山峡谷建立基地，隐姓埋名，断绝与外界有碍工作的往来，有人甚至献出了宝贵生命；研制新中国第一艘核潜艇“长征一号”，在没有图纸资料、没有专家权威、没有外来援助的“三无”基础上起步…… 只有把关键核心技术掌握在自己手中，才能从根本上保障国家经济安全、国防安全和其他安全。
 
-广西各级渔业渔政部门将根据行动部署要求，进一步凝聚执法合力，坚持重拳出击、精准发力，持续规范渔业生产秩序，切实保护渔业资源。
+危机关头，我们的先辈们挺过来了，中国国防科技事业挺过来了。
 
-(完)
+1964年10月16日，戈壁滩上一声巨响，我国第一颗原子弹爆炸成功。
 
 ## 相关推荐
 
-- 2026-06-30 07:42 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-30 07:52 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
-- 2026-06-30 07:30 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
-- 2026-06-30 07:56 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
-- 2026-06-30 07:50 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-30 07:30 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
-- 2026-06-30 07:47 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-30 07:45 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
-- 2026-06-30 07:54 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-30 07:54 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-30 07:39 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-30 08:03 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-30 07:58 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-30 07:51 - [莫兰特转投开拓者效力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
+- 2026-06-30 07:36 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
+- 2026-06-30 07:49 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-30 08:05 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-30 07:45 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-30 08:03 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-30 07:57 - [周冬雨多次说演不了话剧文城](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-30 07:46 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-30 08:01 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-30 07:50 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:40 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/394216355714.shtml)
-- 2026-06-30 07:48 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/938871968220.shtml)
-- 2026-06-30 07:38 - [女子清吧被陌生人投放伟哥](http://www.share.minike.top/Article/details/22990561536.shtml)
-- 2026-06-30 07:35 - [达美乐运输面团时被雨淋到 客服回应](http://www.share.kurohicncr.top/Article/details/614954992909.shtml)
-- 2026-06-30 07:59 - [委内瑞拉地震死亡人数升至1719人](http://www.share.kurohicncr.top/Article/details/275390507.shtml)
-- 2026-06-30 07:31 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/76870.shtml)
-- 2026-06-30 07:40 - [穆祉丞年度人气艺人](http://www.blog.minike.top/Article/details/197520539763.shtml)
-- 2026-06-30 07:43 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.blog.kurohicncr.top/Article/details/6084502290.shtml)
-- 2026-06-30 07:52 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/0507099826.shtml)
-- 2026-06-30 07:55 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/044144.shtml)
-- 2026-06-30 07:55 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/026804728590.shtml)
-- 2026-06-30 07:57 - [二次元提前预演明日巴西对日本](http://www.share.minike.top/Article/details/30175.shtml)
-- 2026-06-30 07:56 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/784785978253.shtml)
-- 2026-06-30 07:58 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/234620672.shtml)
-- 2026-06-30 07:54 - [森保一致歉：世界第一目标没能实现](https://www.share.kurohicncr.top/Article/details/32802758.shtml)
+- 2026-06-30 07:57 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/463936380.shtml)
+- 2026-06-30 07:47 - [卡塞米罗头球破门](http://www.share.kurohicncr.top/Article/details/830582991923.shtml)
+- 2026-06-30 08:04 - [中国18岁小将再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/59509159622.shtml)
+- 2026-06-30 07:45 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/6458130877.shtml)
+- 2026-06-30 07:36 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/323160948.shtml)
+- 2026-06-30 07:59 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/405360.shtml)
+- 2026-06-30 07:37 - [女心理师](https://www.share.kurohicncr.top/Article/details/32310938109.shtml)
+- 2026-06-30 07:41 - [AI手机进入Agent时代](http://www.blog.minike.top/Article/details/39966060095.shtml)
+- 2026-06-30 08:03 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.minike.top/Article/details/590990.shtml)
+- 2026-06-30 07:52 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/2605757066.shtml)
+- 2026-06-30 07:42 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/994668.shtml)
+- 2026-06-30 07:57 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/974704775239.shtml)
+- 2026-06-30 08:04 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/5644903180.shtml)
+- 2026-06-30 07:53 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.kurohicncr.top/Article/details/061295505.shtml)
+- 2026-06-30 07:38 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://www.blog.minike.top/Article/details/275141512096.shtml)

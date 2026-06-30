@@ -1,57 +1,61 @@
-# 视频丨习近平同美国总统特朗普参观天坛
+# 力拓高管：锂业务是公司增长最快的业务部门
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-视频：习近平同美国总统特朗普参观天坛来源：央视新闻客户端 5月14日，国家主席习近平同来华进行国事访问的美国总统特朗普参观天坛。 初夏的天坛，古柏含章，清风送爽。习近平在祈年殿迎接特朗普到访。 习近平同特朗普在轩朗开阔的祈年殿广场合影。 祈年殿气势恢宏，重檐琉光。两国元首拾阶而上，步入祈年殿，共同欣赏榫卯斗拱精准契合、天文历法与殿宇结构完美融合的建筑特点，感受其中和谐万物、顺天
+力拓集团（Rio Tinto）的一位高管周二表示，随着公司致力于到2028年将锂产量增至三倍以满足电动汽车和电池储能市场的需求，其锂业务增长速度预计将超过铜、铁矿石及其他业务部门。 这家全球第二大矿业公司去年进军锂行业，收购了总部位于美国的Arcadium公司。这笔交易使其获得了横跨四大洲的矿山、加工设施和矿藏，以及包括特斯拉在内的客户群。 力拓一直在整合这些资产，而此时正值锂
 
 ## 正文
 
-视频：习近平同美国总统特朗普参观天坛来源：央视新闻客户端 5月14日，国家主席习近平同来华进行国事访问的美国总统特朗普参观天坛。
+力拓集团（Rio Tinto）的一位高管周二表示，随着公司致力于到2028年将锂产量增至三倍以满足电动汽车和电池储能市场的需求，其锂业务增长速度预计将超过铜、铁矿石及其他业务部门。
 
-初夏的天坛，古柏含章，清风送爽。
+这家全球第二大矿业公司去年进军锂行业，收购了总部位于美国的Arcadium公司。
 
-习近平在祈年殿迎接特朗普到访。
+这笔交易使其获得了横跨四大洲的矿山、加工设施和矿藏，以及包括特斯拉在内的客户群。
 
-习近平同特朗普在轩朗开阔的祈年殿广场合影。
+力拓一直在整合这些资产，而此时正值锂价暴跌。
 
-祈年殿气势恢宏，重檐琉光。
+这种市场低迷曾引发了一波行业裁员潮，直到近几个月才开始缓解。
 
-两国元首拾阶而上，步入祈年殿，共同欣赏榫卯斗拱精准契合、天文历法与殿宇结构完美融合的建筑特点，感受其中和谐万物、顺天应时的理念。
+力拓公司铝与锂业务部门负责人杰罗姆·佩克雷斯（Jérôme Pécresse）在拉斯维加斯举行的Fastmarkets全球锂、电池及关键材料会议间隙接受媒体采访时表示，该公司目前正致力于在阿根廷和加拿大开采矿场，并认为即使价格再次下跌，这些矿场仍具有经济可行性。
 
-习近平指出，2017年我们沿着北京中轴线参观了故宫。
+该公司计划今年生产至少61，000公吨锂，并计划 在2028年前将产能提升至200，000公吨，前提是市场有需求。
 
-今天参观的天坛和故宫同龄，寓意“天圆地方”，展现出中国人的宇宙观和处世哲学。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 07:49 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-30 07:46 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
-- 2026-06-30 07:32 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
-- 2026-06-30 07:50 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-30 07:32 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
-- 2026-06-30 07:37 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-30 07:54 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-30 07:45 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-30 07:44 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-30 07:42 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
-- 2026-06-30 07:59 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
+- 2026-06-30 08:02 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-30 07:42 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-30 08:04 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-30 07:37 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-30 07:37 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-30 07:57 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-30 07:36 - [马耳他著名拱门坍塌致中国男子身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-30 07:36 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-30 07:55 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-30 07:42 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-30 07:41 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-30 07:40 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-30 07:38 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-30 08:03 - [男子在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-30 07:44 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:59 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/625493471.shtml)
-- 2026-06-30 07:59 - [送你一朵小红花](https://www.blog.minike.top/Article/details/184674848.shtml)
-- 2026-06-30 07:57 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/10925202.shtml)
-- 2026-06-30 07:51 - [输球后日本球迷被强行披上巴西国旗](https://www.share.minike.top/Article/details/54760.shtml)
-- 2026-06-30 07:37 - [DeepSeek启动成立来最大规模招聘](https://www.share.minike.top/Article/details/69712748.shtml)
-- 2026-06-30 07:40 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/49711.shtml)
-- 2026-06-30 07:40 - [送你一朵小红花](http://www.blog.minike.top/Article/details/08281.shtml)
-- 2026-06-30 07:45 - [免费试吃发差评被店家挂店门避雷](http://www.blog.kurohicncr.top/Article/details/310347.shtml)
-- 2026-06-30 07:39 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/304202910208.shtml)
-- 2026-06-30 07:30 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/9242865656.shtml)
-- 2026-06-30 07:56 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/076790.shtml)
-- 2026-06-30 07:52 - [佐野海舟远射破门](https://www.blog.kurohicncr.top/Article/details/3912804418.shtml)
-- 2026-06-30 07:56 - [女子遭下药退赔偿拟追刑责](https://www.blog.minike.top/Article/details/28555766.shtml)
-- 2026-06-30 07:50 - [王楚钦孙颖莎晋级混双八强](http://www.share.minike.top/Article/details/53877075131.shtml)
-- 2026-06-30 07:38 - [日本领先巴西](http://www.share.kurohicncr.top/Article/details/8709026780.shtml)
+- 2026-06-30 07:58 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.kurohicncr.top/Article/details/97798665765.shtml)
+- 2026-06-30 07:56 - [韩国球迷凌晨4点接机怒骂主教练](https://www.share.kurohicncr.top/Article/details/893050270.shtml)
+- 2026-06-30 07:59 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/635137962.shtml)
+- 2026-06-30 07:39 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/5093206.shtml)
+- 2026-06-30 07:58 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/5025596.shtml)
+- 2026-06-30 08:03 - [为什么会有「念旧」的心理？](https://www.share.minike.top/Article/details/78260295779.shtml)
+- 2026-06-30 07:53 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/9556034664.shtml)
+- 2026-06-30 07:58 - [金刚川](https://www.share.kurohicncr.top/Article/details/3107708.shtml)
+- 2026-06-30 08:03 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/555446777005.shtml)
+- 2026-06-30 07:49 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/59168390.shtml)
+- 2026-06-30 07:52 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/33168.shtml)
+- 2026-06-30 07:55 - [起风了](http://www.share.kurohicncr.top/Article/details/621916.shtml)
+- 2026-06-30 07:51 - [齐思钧回复张月](http://www.share.kurohicncr.top/Article/details/420815.shtml)
+- 2026-06-30 08:04 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/91963.shtml)
+- 2026-06-30 07:44 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/31197.shtml)

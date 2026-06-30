@@ -1,59 +1,46 @@
-# 上海农商行冲刺“百年老店”：营收十年首降，新三年战略求解零售困局
+# 科大讯飞：公司持续通过多种渠道与广大投资者保持良好沟通和互动
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-作为资产规模超1.6万亿元的头部农商行，上海农商行正站在增长与转型的关键路口。 4月下旬，上海农商行发布的2025年报显示，该行2025年实现营业收入258.7亿元，同比下降2.89%；归母净利润为123.13亿元，同比仅增长0.2%。这是该行近十年首次出现营收增速负增长，同时净利润增速也创下近年来低点。 同日，该行2026年一季报的营收与净利润呈现边际改善：营收同比增长1.2
+证券日报网讯6月22日，科大讯飞在互动平台回答投资者提问时表示，公司持续通过定期报告业绩说明会、投资者交流会以及券商策略会等多种渠道，与广大投资者保持良好沟通和互动。
 
 ## 正文
 
-作为资产规模超1.6万亿元的头部农商行，上海农商行正站在增长与转型的关键路口。
-
-4月下旬，上海农商行发布的2025年报显示，该行2025年实现营业收入258.7亿元，同比下降2.89%；归母净利润为123.13亿元，同比仅增长0.2%。
-
-这是该行近十年首次出现营收增速负增长，同时净利润增速也创下近年来低点。
-
-同日，该行2026年一季报的营收与净利润呈现边际改善：营收同比增长1.23%至66.41亿元；归母净利润达到35.9亿元，同比增长0.73%；总资产规模达到1.63万亿元，位居农商行前列。
-
-值得一提的是，该行在2025年业绩发布会上提出了“百年老店”的战略愿景，将个人贷款与财富管理作为转型核心。
-
-截至2025年末，上海农商行的个人贷款占比仅为27.32%，相较重庆农商行的37.76%，仍有较大提升空间。
-
-在资产质量方面，该行2025年与2026年一季度的不良率均为0.96%，同时其2025年拨备覆盖率达到328.87%。
-
-亮眼数据的背后，该行在2026年一季度的次级贷款规模达到40.08亿元，环比增长47.23%，反映其潜藏的不良风险或增多。
+证券日报网讯6月22日，科大讯飞在互动平台回答投资者提问时表示，公司持续通过定期报告业绩说明会、投资者交流会以及券商策略会等多种渠道，与广大投资者保持良好沟通和互动。
 
 ## 相关推荐
 
-- 2026-06-30 07:47 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
-- 2026-06-30 07:51 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
-- 2026-06-30 07:55 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-30 07:56 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
-- 2026-06-30 07:42 - [三星投资计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
-- 2026-06-30 07:31 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-30 07:37 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-30 07:57 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-30 07:46 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
-- 2026-06-30 07:49 - [勇士续约波尔津吉斯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-30 07:49 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
-- 2026-06-30 07:50 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-30 07:33 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-30 07:53 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
+- 2026-06-30 07:40 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-30 07:41 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-30 07:54 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-30 07:56 - [索马里女大使：想和中国一起搞事业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-30 08:02 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-30 07:58 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-30 07:53 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-30 07:37 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-30 07:52 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-30 07:59 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-30 07:39 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-30 07:38 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-30 07:52 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:37 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/933510473.shtml)
-- 2026-06-30 07:55 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/557333594113.shtml)
-- 2026-06-30 07:51 - [扬名立万](https://www.share.kurohicncr.top/Article/details/1855709.shtml)
-- 2026-06-30 07:31 - [安切洛蒂 换人](https://www.share.minike.top/Article/details/75028947969.shtml)
-- 2026-06-30 07:35 - [董卿父亲报纸上发文悼念亡妻](https://www.blog.minike.top/Article/details/50900435480.shtml)
-- 2026-06-30 07:30 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/7287203.shtml)
-- 2026-06-30 07:50 - [德国罚丢3粒点球](http://www.share.kurohicncr.top/Article/details/0093363.shtml)
-- 2026-06-30 07:44 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/85478537173.shtml)
-- 2026-06-30 07:35 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/82790.shtml)
-- 2026-06-30 07:54 - [点菜也要教吗](https://www.share.kurohicncr.top/Article/details/8315915.shtml)
-- 2026-06-30 07:46 - [辛纳vs凯茨玛诺维奇](https://www.share.minike.top/Article/details/207501888.shtml)
-- 2026-06-30 07:45 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/78596946844.shtml)
-- 2026-06-30 07:32 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/786550.shtml)
-- 2026-06-30 07:58 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/23453956228.shtml)
-- 2026-06-30 07:51 - [《共患难》](http://www.share.kurohicncr.top/Article/details/14201103.shtml)
+- 2026-06-30 08:04 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/8139166.shtml)
+- 2026-06-30 07:46 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/58618351.shtml)
+- 2026-06-30 07:55 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/84151.shtml)
+- 2026-06-30 08:05 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/41371527.shtml)
+- 2026-06-30 07:50 - [美股](https://www.share.kurohicncr.top/Article/details/1834561.shtml)
+- 2026-06-30 07:50 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/75236955765.shtml)
+- 2026-06-30 07:47 - [佐野海舟远射破门](http://www.blog.minike.top/Article/details/91273572894.shtml)
+- 2026-06-30 07:51 - [辛纳vs凯茨玛诺维奇](http://www.blog.minike.top/Article/details/3147428.shtml)
+- 2026-06-30 08:04 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/376101683136.shtml)
+- 2026-06-30 07:54 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/986332263552.shtml)
+- 2026-06-30 07:47 - [爆冷出局！德国点球大战不敌巴拉圭](https://www.blog.kurohicncr.top/Article/details/773941774.shtml)
+- 2026-06-30 07:57 - [日本遭读秒绝杀 森保一：我水平不够](https://www.share.kurohicncr.top/Article/details/18352682.shtml)
+- 2026-06-30 07:44 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/58463789.shtml)
+- 2026-06-30 08:03 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/61674.shtml)
+- 2026-06-30 07:46 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/51836595.shtml)

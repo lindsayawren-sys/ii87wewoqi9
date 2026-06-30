@@ -1,60 +1,54 @@
-# 仅部分支行业务量小幅上升，广州楼市再现“日光盘”未惠及银行，分化格局依旧明显
+# 南方多地强降雨持续 未来三天部分地区有大暴雨
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-财联社5月13日讯（记者 梁柯志）在近期“穗八条”新政落地后，广州楼市迎来局部升温，核心区域优质楼盘再现“日光盘”，市场信心得到阶段性提振。 据媒体报道，5月10日，海珠区南泰路保利海韵项目正式开盘，首推超300套房源仅用时两分半钟便全部售罄，成为新政出台后广州首个“日光盘”。 财联社记者多方采访了解到，这种局部火爆并未传导至银行房贷业务，受访多家银行支行房贷余额仍呈负增长状态
+中新网6月22日电 据应急管理部网站消息，6月22日，国家防总办公室、应急管理部组织中国气象局、水利部、自然资源部、住房和城乡建设部、交通运输部等多部门滚动会商，研判近期降雨趋势，督促指导重点省份做好江河洪水防御和强降雨防范应对工作。国家防总继续维持针对江苏、安徽、江西、湖北、湖南、广西、重庆、贵州的防汛四级应急响应。会商指出，未来三天，主雨带仍将维持在贵州、广西至长江中下游地
 
 ## 正文
 
-财联社5月13日讯（记者 梁柯志）在近期“穗八条”新政落地后，广州楼市迎来局部升温，核心区域优质楼盘再现“日光盘”，市场信心得到阶段性提振。
+中新网6月22日电 据应急管理部网站消息，6月22日，国家防总办公室、应急管理部组织中国气象局、水利部、自然资源部、住房和城乡建设部、交通运输部等多部门滚动会商，研判近期降雨趋势，督促指导重点省份做好江河洪水防御和强降雨防范应对工作。
 
-据媒体报道，5月10日，海珠区南泰路保利海韵项目正式开盘，首推超300套房源仅用时两分半钟便全部售罄，成为新政出台后广州首个“日光盘”。
+国家防总继续维持针对江苏、安徽、江西、湖北、湖南、广西、重庆、贵州的防汛四级应急响应。
 
-财联社记者多方采访了解到，这种局部火爆并未传导至银行房贷业务，受访多家银行支行房贷余额仍呈负增长状态。
+会商指出，未来三天，主雨带仍将维持在贵州、广西至长江中下游地区，西南地区东部和南部、江淮、江南、华南西部等地有大到暴雨，部分地区有大暴雨，局地特大暴雨。
 
-广州房贷市场的分化，也与全国层面的购房需求修复节奏相契合。
+珠江流域柳江编号洪水正向下游演进，西江部分江段将出现涨水过程。
 
-央行数据也显示，一季度住户贷款仅增加2967亿元，同比大幅下降71.5%，创下多年新低，佐证了购房需求仍处于修复期，房贷市场并未实现“雨露均沾”。
+会商强调，相关地区和部门要保持高度警惕，加强组织领导，全力做好珠江流域柳江编号洪水防范应对工作，重点关注超警超保堤段、历史险工线段的巡查防守。
 
-核心新盘热销，二手市场稳健运行 据悉，上述广州日光盘项目户型覆盖90-170平方米，主流售价5.5万-6.4万元/平方米，开盘当日成交金额约18亿元，而开盘前的认筹量已突破700组，凸显核心区域优质房源的稀缺性。
+要紧盯山洪和地质灾害、中小河流洪水等防范应对薄弱环节，落实落细临灾预警“叫应”直达基层责任一线的闭环机制，及时果断组织人员转移避险，全力保障人民群众生命安全。
 
-二手市场也保持稳健态势。
-
-广州市房地产中介协会数据显示，4月份全市二手住宅网签套数10426套、面积104.06万平方米，同比分别增长4.84%和1.47%。
+要加强应急值守，做好突发洪涝险情灾情的核查报送工作。
 
 ## 相关推荐
 
-- 2026-06-30 07:56 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-30 07:36 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-30 07:37 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-30 07:42 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-30 07:56 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
-- 2026-06-30 07:48 - [王楚钦孙颖莎晋级混双八强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-30 07:38 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
-- 2026-06-30 07:41 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-30 07:46 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
-- 2026-06-30 07:52 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-30 07:46 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-30 07:39 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-30 07:50 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-30 07:32 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-30 08:04 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
+- 2026-06-30 07:41 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-30 07:53 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-30 08:02 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-30 07:51 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-30 07:51 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
+- 2026-06-30 08:00 - [巴拉圭率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-30 07:41 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-30 07:40 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-30 07:52 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:32 - [苗族银饰](https://www.blog.kurohicncr.top/Article/details/492870.shtml)
-- 2026-06-30 07:38 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/73632361399.shtml)
-- 2026-06-30 07:50 - [扫黑风暴](http://www.blog.minike.top/Article/details/9877858.shtml)
-- 2026-06-30 07:47 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/40047571571.shtml)
-- 2026-06-30 07:34 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/83636249914.shtml)
-- 2026-06-30 07:49 - [亚洲球队全部告别世界杯](https://www.share.minike.top/Article/details/05023.shtml)
-- 2026-06-30 07:32 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/9749911.shtml)
-- 2026-06-30 07:33 - [武磊：日本队有能力跟任何强队抗衡](http://www.blog.kurohicncr.top/Article/details/88393.shtml)
-- 2026-06-30 07:32 - [董卿父亲报纸上发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/00149672.shtml)
-- 2026-06-30 07:34 - [曝多支争冠球队有意塞克斯顿](http://www.blog.minike.top/Article/details/504038930696.shtml)
-- 2026-06-30 07:57 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/9357866326.shtml)
-- 2026-06-30 07:57 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/650710493229.shtml)
-- 2026-06-30 07:59 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.minike.top/Article/details/28819741.shtml)
-- 2026-06-30 07:53 - [多人在马路中间打羽毛球 交警回应](https://www.blog.kurohicncr.top/Article/details/4275169948.shtml)
-- 2026-06-30 07:54 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/47006.shtml)
+- 2026-06-30 07:39 - [日本反击率先破门](https://www.share.kurohicncr.top/Article/details/57050088323.shtml)
+- 2026-06-30 07:37 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.minike.top/Article/details/1276275.shtml)
+- 2026-06-30 07:43 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/2941666591.shtml)
+- 2026-06-30 07:41 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/2324592.shtml)
+- 2026-06-30 07:51 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/05419790446.shtml)
+- 2026-06-30 07:57 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/48494.shtml)
+- 2026-06-30 07:51 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/44264755.shtml)
+- 2026-06-30 07:38 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.share.minike.top/Article/details/3057359.shtml)
+- 2026-06-30 07:41 - [德国连续三届世界杯无缘16强](http://www.blog.kurohicncr.top/Article/details/35481507700.shtml)
+- 2026-06-30 07:40 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/25439.shtml)
+- 2026-06-30 08:01 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/9792015.shtml)
+- 2026-06-30 07:47 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/47520740262.shtml)
+- 2026-06-30 07:42 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/57553536.shtml)
+- 2026-06-30 07:53 - [男子中医院拔火罐致浅2度烧伤](http://www.share.minike.top/Article/details/26088968.shtml)
+- 2026-06-30 07:52 - [千与千寻](https://www.share.minike.top/Article/details/10570570855.shtml)

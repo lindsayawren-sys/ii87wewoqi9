@@ -1,57 +1,61 @@
-# 中美侨商合作交流活动在海口国家高新区举办
+# 白宫将召集武器制造商开会 在库存承压之际推动加大弹药生产
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-中新网海口5月14日电(马文颖)5月13日，以“自贸赋能·链接硅谷”为主题的中美侨商合作交流活动在海口国家高新区举行。来自海口市侨商联合会、海口国家高新区、海南省侨商联合会等园区与商会的负责人，与美中硅谷商会企业代表开展座谈交流。双方重点介绍了海南自贸港的建设成果及海口国家高新区的产业活力，共同探讨合作共赢的广阔机遇。 在海口国家高新区美安科技新城的海南华研胶原科技股份有限公司
+白宫本周将召集防务承包商开会，推动加大弹药生产；与伊朗近四个月的战争后，库存正承受压力。 美国总统特朗普确认了这次会议。白宫一名官员此前表示，会议将于周三举行。 “我们确实在大力推动武器生产，一些汽车公司如果有多余产能，正在达成协议来制造导弹，特别是爱国者，”特朗普周一在白宫对记者表示，“我们已经有不少，但希望确保始终拥有大量库存。” 一位知情人士透露，RTX Corp．预计将
 
 ## 正文
 
-中新网海口5月14日电(马文颖)5月13日，以“自贸赋能·链接硅谷”为主题的中美侨商合作交流活动在海口国家高新区举行。
+白宫本周将召集防务承包商开会，推动加大弹药生产；与伊朗近四个月的战争后，库存正承受压力。
 
-来自海口市侨商联合会、海口国家高新区、海南省侨商联合会等园区与商会的负责人，与美中硅谷商会企业代表开展座谈交流。
+美国总统特朗普确认了这次会议。
 
-双方重点介绍了海南自贸港的建设成果及海口国家高新区的产业活力，共同探讨合作共赢的广阔机遇。
+白宫一名官员此前表示，会议将于周三举行。
 
-在海口国家高新区美安科技新城的海南华研胶原科技股份有限公司(简称“华研”)内，美中硅谷商会企业代表进行了实地考察，了解企业在海南的发展情况，以及海南的政策环境与营商环境。
+“我们确实在大力推动武器生产，一些汽车公司如果有多余产能，正在达成协议来制造导弹，特别是爱国者，”特朗普周一在白宫对记者表示，“我们已经有不少，但希望确保始终拥有大量库存。
 
-代表们在参观华研时，首次了解到海洋胶原蛋白提取技术，表示后续将与华研进一步对接，洽谈原料供应相关合作。
+” 一位知情人士透露，RTX Corp．预计将参加讨论。
 
-随后，代表们还走访了东湖高新海口生物城，了解海口国家高新区在区位、政策等方面的优势以及对园区企业的服务水平。
+通用汽车已与RTX和其他防务承包商洽谈，探讨如何帮助这些武器制造商提高产量，潜在合作的工作内容可能类似通用汽车与洛克希德·马丁协议下的安排。
 
-海南省侨商联合会理事长潘家森称，随着海南自贸港封关运作蹄疾步稳，越来越多的全球侨界人士也对海南自贸港有着高度的关注与前所未有投资热情。
+“我知道通用汽车对制造武器非常兴奋，”特朗普周一表示，“他们现在有一些工厂将进行转产，我们会制造武器，包括爱国者，包括战斧，还有很多其他东西。
 
-海南省侨商联合会作为全省服务侨商、联络侨胞的重要平台，期待通过此次活动与美中硅谷商会建立起常态化交流机制，多领域拓展务实合作，为广大侨商来琼投资兴业、创新创业搭建优质平台。
+” 白宫发言人Anna Kelly在声明中表示，特朗普已敦促防务承包商“持续生产更多美国制造武器”。
 
 ## 相关推荐
 
-- 2026-06-30 07:56 - [刘宇宁高情商化解谁站C位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-30 07:42 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-30 07:57 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-30 07:44 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
-- 2026-06-30 07:45 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-30 07:35 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-30 07:34 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-30 07:39 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-30 07:30 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
-- 2026-06-30 07:52 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
-- 2026-06-30 07:35 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-30 07:44 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-30 07:51 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-30 07:54 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-30 08:03 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-30 07:38 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-30 07:55 - [亚洲球队全部出局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-30 07:43 - [王濛回复黄灿灿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-30 07:45 - [森保一 保守](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-30 07:49 - [德国淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-30 07:47 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-30 07:53 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-30 07:44 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-30 07:40 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-30 08:00 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-30 07:43 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:56 - [索马里女大使：想和中国一起搞事业](http://www.share.minike.top/Article/details/892114275.shtml)
-- 2026-06-30 07:38 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/73535144.shtml)
-- 2026-06-30 07:32 - [媒体：手机测评该挤挤水分了](https://www.share.kurohicncr.top/Article/details/4632383.shtml)
-- 2026-06-30 07:33 - [F1奥地利站赛后复盘](https://www.blog.minike.top/Article/details/777141.shtml)
-- 2026-06-30 07:45 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/87418865.shtml)
-- 2026-06-30 07:34 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/067029.shtml)
-- 2026-06-30 07:31 - [巴西在进攻三区完成210脚传球](https://www.blog.kurohicncr.top/Article/details/801198490.shtml)
-- 2026-06-30 07:40 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/66416435.shtml)
-- 2026-06-30 07:35 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/237368017.shtml)
-- 2026-06-30 07:40 - [父母催婚话术是如何做到全国统一的](http://www.share.kurohicncr.top/Article/details/6729990364.shtml)
-- 2026-06-30 07:59 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/41942.shtml)
-- 2026-06-30 07:57 - [韩国球迷凌晨4点接机怒骂主教练](https://www.blog.minike.top/Article/details/29914191789.shtml)
-- 2026-06-30 07:52 - [曝灰熊将莫兰特交易至开拓者](https://www.blog.kurohicncr.top/Article/details/228530161.shtml)
-- 2026-06-30 07:54 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/21831.shtml)
-- 2026-06-30 07:40 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/7355491.shtml)
+- 2026-06-30 07:57 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.kurohicncr.top/Article/details/90250128.shtml)
+- 2026-06-30 08:04 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.blog.minike.top/Article/details/3780629.shtml)
+- 2026-06-30 07:46 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/316061.shtml)
+- 2026-06-30 07:54 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/34303183.shtml)
+- 2026-06-30 07:51 - [德国进球被吹](http://www.blog.minike.top/Article/details/73568.shtml)
+- 2026-06-30 07:55 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.minike.top/Article/details/092889887.shtml)
+- 2026-06-30 08:04 - [莫兰特转投开拓者效力](http://www.share.kurohicncr.top/Article/details/10033.shtml)
+- 2026-06-30 07:58 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/62808728255.shtml)
+- 2026-06-30 07:49 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/207998443.shtml)
+- 2026-06-30 07:50 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/477734.shtml)
+- 2026-06-30 08:03 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/5527054.shtml)
+- 2026-06-30 07:54 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.minike.top/Article/details/418600145.shtml)
+- 2026-06-30 07:46 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/925721.shtml)
+- 2026-06-30 08:00 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/2121519.shtml)
+- 2026-06-30 07:51 - [巴西半场0比1日本](https://www.share.kurohicncr.top/Article/details/451250984962.shtml)

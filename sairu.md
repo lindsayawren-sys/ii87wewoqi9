@@ -1,61 +1,59 @@
-# 步步突破 环环相扣 日本“再军事化”野心昭然若揭
+# 邦达亚洲:经济数据表现疲软 欧元小幅收跌
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-修改“安保三文件”、提高国防开支、加速修宪，近期，日本执政党自民党持续推进、动作不断。 专家指出，日方一系列欲摆脱战后体制束缚、想成为不受约束的“能战”国家的行为，不仅违背了日本和平宪法的精神和对国际社会的和平承诺，也会给地区和平稳定以及战后国际秩序带来严重威胁，需要引起国际社会的高度警惕。 日本自民党欲继续提高日本防卫费规模 13日，日本自民党在安全保障调查会会议上，就修订“
+6月23日，欧洲央行行长拉加德在欧洲议会听证会上表示，欧元区当前面临的通胀冲击规模不容忽视，但尚未对长期通胀预期造成扰动，也未形成需要更激进政策应对的“二轮效应”。她指出：“目前我们处于第二种情形。”此前她曾提出三种政策情景，而当前属于通胀阶段性超出目标、但持续性有限的情况，需要适度调整政策。她强调：“这一冲击规模过大，无法忽视，否则将危及我们的目标。”同时补充称，“目前尚未看
 
 ## 正文
 
-修改“安保三文件”、提高国防开支、加速修宪，近期，日本执政党自民党持续推进、动作不断。
+6月23日，欧洲央行行长拉加德在欧洲议会听证会上表示，欧元区当前面临的通胀冲击规模不容忽视，但尚未对长期通胀预期造成扰动，也未形成需要更激进政策应对的“二轮效应”。
 
-专家指出，日方一系列欲摆脱战后体制束缚、想成为不受约束的“能战”国家的行为，不仅违背了日本和平宪法的精神和对国际社会的和平承诺，也会给地区和平稳定以及战后国际秩序带来严重威胁，需要引起国际社会的高度警惕。
+她指出：“目前我们处于第二种情形。
 
-日本自民党欲继续提高日本防卫费规模 13日，日本自民党在安全保障调查会会议上，就修订“安保三文件”提出了一份论点整理方案，其中的焦点是以北约国家国防开支规模为目标，继续提高日本防卫费。
+”此前她曾提出三种政策情景，而当前属于通胀阶段性超出目标、但持续性有限的情况，需要适度调整政策。
 
-日媒称，自民党计划以这份方案为基础汇总建议，以期在下个月敲定最终方案，正式向日本政府提交政策建议。
+她强调：“这一冲击规模过大，无法忽视，否则将危及我们的目标。
 
-这份由自民党安保调查会汇总的论点整理方案提出，在防卫费方面，要以北约各成员国的国防开支规模为参考，研究制定日本防卫费规模。
+”同时补充称，“目前尚未看到通胀预期失锚或二轮效应的证据，因此还不需要更强力的政策回应。
 
-2025年6月，北约成员国领导人决定在2035年前将年度国防开支提高到国内生产总值的5%，其中3.5%用于核心军费支出，1.5%用于关键基础设施防护和网络安全等。
+” 另外，在支持率大幅下滑的情况下，英国首相斯塔默周一宣布辞职。
 
-此外，方案还提出，针对海上安保领域，应加强海上航道防卫能力、开辟多元化国际集装箱航运航线，以及从质量和数量两方面大幅度提高日本海上保安厅的能力与装备水平。
+斯塔默发表声明称，他将首先辞去工党领袖职务。
 
-方案还将应对外部舆论渗透，防范所谓“认知战”“舆论战”列为安保领域重点课题，要求进一步加强相关应对举措。
+继任者提名程序将于7月9日启动，相关竞选将在议会夏季休会结束前，即9月1日前完成。
 
 ## 相关推荐
 
-- 2026-06-30 07:52 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-30 07:48 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
-- 2026-06-30 07:59 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-30 07:39 - [恋与深空道歉声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
-- 2026-06-30 07:37 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-30 07:45 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-30 07:54 - [网瘾賊大的阿嬷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-30 07:32 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
-- 2026-06-30 07:57 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-30 07:41 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-30 07:32 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-30 07:55 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-30 07:45 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-30 07:35 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-30 07:38 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-30 07:40 - [千香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-30 07:40 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-30 08:04 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-30 07:56 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
+- 2026-06-30 07:36 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-30 08:03 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-30 07:45 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-30 08:01 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-30 07:45 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-30 07:36 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-30 07:52 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-30 07:40 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-30 07:48 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:52 - [张碧晨一开口梦回逐玉](http://www.share.kurohicncr.top/Article/details/216334720203.shtml)
-- 2026-06-30 07:48 - [多人在马路中间打羽毛球 交警回应](https://www.blog.kurohicncr.top/Article/details/670244963393.shtml)
-- 2026-06-30 07:40 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/8776529805.shtml)
-- 2026-06-30 07:36 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.kurohicncr.top/Article/details/13677118.shtml)
-- 2026-06-30 07:53 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/8169776.shtml)
-- 2026-06-30 07:52 - [Melo向柳智敏张元英道歉](https://www.blog.minike.top/Article/details/16563.shtml)
-- 2026-06-30 07:54 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/441780920.shtml)
-- 2026-06-30 07:58 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](http://www.blog.minike.top/Article/details/606898454.shtml)
-- 2026-06-30 07:33 - [曝詹姆斯即将与勇士会面](http://www.blog.kurohicncr.top/Article/details/71696657.shtml)
-- 2026-06-30 07:30 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/97794249.shtml)
-- 2026-06-30 07:38 - [如何改变自己太负责任的性格?](https://www.share.minike.top/Article/details/92752830.shtml)
-- 2026-06-30 07:30 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/68545642409.shtml)
-- 2026-06-30 07:55 - [有酒店推行24小时退房制](https://www.share.kurohicncr.top/Article/details/853959069.shtml)
-- 2026-06-30 07:53 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/2057831863.shtml)
-- 2026-06-30 07:33 - [小勒布伦WTT美国大满贯开门红](http://www.blog.kurohicncr.top/Article/details/34340.shtml)
+- 2026-06-30 07:37 - [曝老詹对自由市场态度与以往截然不同](https://www.blog.minike.top/Article/details/91692019914.shtml)
+- 2026-06-30 07:38 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/826635.shtml)
+- 2026-06-30 07:38 - [请回答王牌2019](http://www.blog.minike.top/Article/details/4046796436.shtml)
+- 2026-06-30 07:54 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/719521326264.shtml)
+- 2026-06-30 07:51 - [峡谷事故团队组队时有人提醒会下雨](http://www.blog.kurohicncr.top/Article/details/341419.shtml)
+- 2026-06-30 07:50 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/07177650.shtml)
+- 2026-06-30 07:39 - [有酒店推行24小时退房制](https://www.share.minike.top/Article/details/375773050436.shtml)
+- 2026-06-30 08:02 - [巴西醒醒 这是淘汰赛](https://www.share.kurohicncr.top/Article/details/24641424076.shtml)
+- 2026-06-30 07:40 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/45800559482.shtml)
+- 2026-06-30 08:02 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/39509830.shtml)
+- 2026-06-30 07:47 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.minike.top/Article/details/397716089.shtml)
+- 2026-06-30 07:48 - [恋与深空制作组回应近期争议](http://www.blog.kurohicncr.top/Article/details/407662630146.shtml)
+- 2026-06-30 07:37 - [千与千寻](http://www.share.minike.top/Article/details/63172397292.shtml)
+- 2026-06-30 07:41 - [德国 传控](http://www.share.kurohicncr.top/Article/details/6570171.shtml)
+- 2026-06-30 08:03 - [韩乔生吐槽世界杯扩军](https://www.share.minike.top/Article/details/0219708654.shtml)

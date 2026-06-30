@@ -1,61 +1,60 @@
-# 东西问丨张冰梅：为什么这座中国图书馆以美国总统名字命名？
+# 比特币交易活动增至2024年以来最高水平
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-中新社重庆5月13日电 题：为什么这座中国图书馆以美国总统名字命名？ ——专访重庆图书馆馆长张冰梅 中新社记者 钟旖 2026年5月1日，位于重庆市渝中区的罗斯福图书馆旧址，历经修缮与功能升级，以复合型公共文化空间的全新面貌对公众开放。作为中国历史上唯一一座以外国元首名字命名的图书馆，这座建筑跨越八十余载风云，承载着抗战烽火记忆，镌刻着中美友好印记。 一座图书馆为何被冠以外国总
+CryptoQuant的分析师在一份报告中表示，比特币交易频率处于2024年以来的最高水平。尽管对冲基金资金继续逃离比特币，但交易频率依然上升。 CryptoQuant表示：“自2026年3月下旬以来，这种高于趋势的态势一直持续，与持续的价格疲软形成分化。“但平均交易规模远小于往年的典型水平。 该公司表示：“低于0.01比特币的微型交易目前占每日总交易量的80%，高于2023年
 
 ## 正文
 
-中新社重庆5月13日电 题：为什么这座中国图书馆以美国总统名字命名？
+CryptoQuant的分析师在一份报告中表示，比特币交易频率处于2024年以来的最高水平。
 
-——专访重庆图书馆馆长张冰梅 中新社记者 钟旖 2026年5月1日，位于重庆市渝中区的罗斯福图书馆旧址，历经修缮与功能升级，以复合型公共文化空间的全新面貌对公众开放。
+尽管对冲基金资金继续逃离比特币，但交易频率依然上升。
 
-作为中国历史上唯一一座以外国元首名字命名的图书馆，这座建筑跨越八十余载风云，承载着抗战烽火记忆，镌刻着中美友好印记。
+CryptoQuant表示：“自2026年3月下旬以来，这种高于趋势的态势一直持续，与持续的价格疲软形成分化。
 
-一座图书馆为何被冠以外国总统之名？
+“但平均交易规模远小于往年的典型水平。
 
-它在不同历史阶段承担了哪些文化功能？
+该公司表示：“低于0.01比特币的微型交易目前占每日总交易量的80%，高于2023年不到50%的比例。
 
-又将以何种姿态融入当下城市文化生活？
+低于0.001比特币和低于0.01比特币的交易群体在2026年均出现猛增，接近2024年的前期峰值。
 
-近日，重庆图书馆馆长张冰梅就此接受中新社“东西问”专访。
+“ 比特币上涨2.5%，至65363美元。
 
-现将访谈实录摘要如下： 中新社记者：作为中国历史上唯一一座以外国总统名字命名的图书馆，罗斯福图书馆因何而建？
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-30 07:40 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-30 07:33 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
-- 2026-06-30 07:31 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-30 07:45 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
-- 2026-06-30 07:56 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-30 07:30 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-30 07:40 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
-- 2026-06-30 07:38 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
-- 2026-06-30 07:31 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
-- 2026-06-30 07:44 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
-- 2026-06-30 07:35 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-30 07:58 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
-- 2026-06-30 07:49 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-30 07:58 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-30 07:36 - [王楚钦孙颖莎晋级混双八强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-30 07:41 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-30 07:36 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-30 07:57 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
+- 2026-06-30 08:02 - [巴西在进攻三区完成210脚传球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-30 07:47 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-30 07:46 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-30 07:36 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-30 08:02 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-30 07:59 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-30 08:05 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-30 07:46 - [巴拉圭点球大战淘汰德国进16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
+- 2026-06-30 07:50 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-30 07:39 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-30 07:51 - [三星投资计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:51 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/8734691931.shtml)
-- 2026-06-30 07:53 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/87225.shtml)
-- 2026-06-30 07:31 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/74283932.shtml)
-- 2026-06-30 07:44 - [森保一 保守](http://www.share.minike.top/Article/details/69338.shtml)
-- 2026-06-30 07:32 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/980825871333.shtml)
-- 2026-06-30 07:39 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/88320974.shtml)
-- 2026-06-30 07:37 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/68713021747.shtml)
-- 2026-06-30 07:38 - [郑钦文温网首轮出局](https://www.share.kurohicncr.top/Article/details/764230.shtml)
-- 2026-06-30 07:45 - [张雪的一句“是我们”引发岛内热议](http://www.blog.minike.top/Article/details/673114879.shtml)
-- 2026-06-30 07:32 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/16957483260.shtml)
-- 2026-06-30 07:53 - [范志毅看好日本队淘汰巴西](https://www.share.kurohicncr.top/Article/details/934900179.shtml)
-- 2026-06-30 07:40 - [田中碧失误](https://www.share.minike.top/Article/details/18742.shtml)
-- 2026-06-30 07:49 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/79423.shtml)
-- 2026-06-30 07:32 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/1932514212.shtml)
-- 2026-06-30 07:52 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/643969.shtml)
+- 2026-06-30 07:54 - [日本淘汰](https://www.blog.minike.top/Article/details/18107899.shtml)
+- 2026-06-30 08:03 - [逃狱兄弟](http://www.share.minike.top/Article/details/548586055427.shtml)
+- 2026-06-30 08:00 - [勇士续约波尔津吉斯](https://www.blog.kurohicncr.top/Article/details/31605068063.shtml)
+- 2026-06-30 08:01 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/749306.shtml)
+- 2026-06-30 08:00 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/9251735.shtml)
+- 2026-06-30 07:49 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.blog.kurohicncr.top/Article/details/828649.shtml)
+- 2026-06-30 07:37 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/787023.shtml)
+- 2026-06-30 07:44 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/5688699.shtml)
+- 2026-06-30 07:53 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/01407.shtml)
+- 2026-06-30 07:54 - [杨紫被质疑未使用原名纯属误解](http://www.blog.kurohicncr.top/Article/details/22868097081.shtml)
+- 2026-06-30 07:49 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.kurohicncr.top/Article/details/920676383.shtml)
+- 2026-06-30 08:02 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.minike.top/Article/details/10285.shtml)
+- 2026-06-30 07:58 - [这种关系可能正在悄悄“催老”你](https://www.share.minike.top/Article/details/683333767.shtml)
+- 2026-06-30 07:53 - [委内瑞拉地震死亡人数升至1719人](http://www.blog.minike.top/Article/details/479793524.shtml)
+- 2026-06-30 07:52 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/5950829552.shtml)

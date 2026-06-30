@@ -1,56 +1,56 @@
-# 花旗：京东物流目标价升至18港元 维持“买入”评级
+# 广州海关组织无害化集中销毁毒品144公斤
 
-> 更新时间：2026-06-30 08:00:02 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-花旗发布研报称，京东物流（02618）首季业绩略高于市场预期，虽然燃油成本上涨带来额外成本，但毛利率改善抵销了相关影响。考虑到股份回购计划及人民币升值等因素，花旗将京东物流目标价由17港元上调至18港元，维持“买入”评级，并微调2026至2028年盈利预测。该行认为，尽管面对油价及非经营收入方面的挑战，京东物流估值不高且效率持续改善，因此看好其前景。 该行预计京东物流有机收入增
+中新网广州6月23日电 (许青青 关悦)据广州海关23日消息，在第39个“6·26”国际禁毒日到来之际，广州海关缉私局联合广东省公安厅禁毒部门组织对近年来广州海关在进出境渠道查获的144公斤各类毒品进行无害化集中销毁，其中包括海洛因、可卡因、冰毒等。 23日，在广州海关工作人员的押运下，待销毁毒品运抵位于广州市白云区的销毁场地，由具有无害化销毁毒品专业资质的企业进行处理。毒品经
 
 ## 正文
 
-花旗发布研报称，京东物流（02618）首季业绩略高于市场预期，虽然燃油成本上涨带来额外成本，但毛利率改善抵销了相关影响。
+中新网广州6月23日电 (许青青 关悦)据广州海关23日消息，在第39个“6·26”国际禁毒日到来之际，广州海关缉私局联合广东省公安厅禁毒部门组织对近年来广州海关在进出境渠道查获的144公斤各类毒品进行无害化集中销毁，其中包括海洛因、可卡因、冰毒等。
 
-考虑到股份回购计划及人民币升值等因素，花旗将京东物流目标价由17港元上调至18港元，维持“买入”评级，并微调2026至2028年盈利预测。
+23日，在广州海关工作人员的押运下，待销毁毒品运抵位于广州市白云区的销毁场地，由具有无害化销毁毒品专业资质的企业进行处理。
 
-该行认为，尽管面对油价及非经营收入方面的挑战，京东物流估值不高且效率持续改善，因此看好其前景。
+毒品经过高温焚烧后热解气化，销毁过程中产生的废气经过冷却、除尘、脱硫等净化处理，实现达标排放。
 
-该行预计京东物流有机收入增长将持续至第二季，并在下半年受惠于德邦业务比较基数正常化而加速。
+广州市人民检察院派员对销毁工作进行全程监督。
 
-管理层提到，次季油价飙升带来的额外成本约占总收入的1%，但该行认为效率提升可在很大程度上抵销相关影响。
+广州海关缉私局副局长刘洋介绍，本次销毁的毒品既有海洛因、可卡因、冰毒等传统毒品，也有γ-羟基丁酸、芬特明等新型毒品，长期滥用会导致不可逆的精神障碍和身体机能障碍。
 
-该行提到，京东物流首季收入同比增长29%至606亿元人民币，高于市场预期，其中自营一体化供应链客户（1P ISC）、第三方一体化供应链客户（3P ISC）及其他客户分别增长32%、15.5%及32%。
+近年来，毒品走私行为更趋隐蔽。
 
-毛利率由去年同期的7.2%提升至8%，经调整经营利润率则由今年第一季0.5%改善至1.8%，主要受惠于较低基数及经营开支控制。
+在近年来广州海关查获的走私毒品案件中，不法分子常常将一些新型毒品伪装成日常生活用品，如精油、奶茶和蛋白粉等，企图走私入境。
 
-责任编辑：卢昱君
+广州海关相关负责人表示，海关始终保持禁毒高压态势，紧盯跨境毒品走私新手段、新特点，不断优化监管，加强口岸风险防控，严厉打击各类跨境毒品走私违法犯罪，坚决将毒品拦截在国门之外。
 
 ## 相关推荐
 
-- 2026-06-30 07:36 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-30 07:50 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
-- 2026-06-30 07:44 - [日本队5进世界杯淘汰赛0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
-- 2026-06-30 07:56 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-30 07:48 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-30 07:52 - [德国淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-30 07:43 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
-- 2026-06-30 07:38 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
-- 2026-06-30 07:46 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-30 07:34 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
+- 2026-06-30 07:44 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-30 07:39 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-30 07:46 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-30 08:00 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-30 07:55 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-30 07:49 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
+- 2026-06-30 07:39 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-30 08:04 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-30 07:43 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-30 08:00 - [恋与深空道歉声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:39 - [二次元提前预演明日巴西对日本](https://www.share.kurohicncr.top/Article/details/143472200.shtml)
-- 2026-06-30 07:37 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/472040.shtml)
-- 2026-06-30 07:59 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/66217985150.shtml)
-- 2026-06-30 07:50 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/477230636252.shtml)
-- 2026-06-30 07:59 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/6018961.shtml)
-- 2026-06-30 07:44 - [这种关系可能正在悄悄“催老”你](https://www.blog.kurohicncr.top/Article/details/4810898287.shtml)
-- 2026-06-30 07:55 - [卢卡申科发布解放军仪仗队视频](https://www.blog.minike.top/Article/details/595418638.shtml)
-- 2026-06-30 07:49 - [上半年全国特种设备安全形势总体平稳](https://www.share.minike.top/Article/details/40269765.shtml)
-- 2026-06-30 07:42 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/236455595460.shtml)
-- 2026-06-30 07:47 - [庆祝中国共产党成立105周年音乐会](http://www.share.kurohicncr.top/Article/details/38378.shtml)
-- 2026-06-30 07:47 - [我和我的家乡](http://www.blog.minike.top/Article/details/780646979.shtml)
-- 2026-06-30 07:55 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.kurohicncr.top/Article/details/692295936305.shtml)
-- 2026-06-30 07:55 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/19342242942.shtml)
-- 2026-06-30 07:43 - [豆包收费了，你还会用吗？](http://www.blog.kurohicncr.top/Article/details/968380157674.shtml)
-- 2026-06-30 07:57 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/60114.shtml)
+- 2026-06-30 07:40 - [周冬雨多次说演不了话剧文城](http://www.share.minike.top/Article/details/64950356563.shtml)
+- 2026-06-30 07:41 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/761638249.shtml)
+- 2026-06-30 08:05 - [哈弗茨头球破门](https://www.blog.kurohicncr.top/Article/details/47608707869.shtml)
+- 2026-06-30 07:43 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/20911334258.shtml)
+- 2026-06-30 07:46 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/10789210282.shtml)
+- 2026-06-30 08:01 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/15041679.shtml)
+- 2026-06-30 07:36 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/614448.shtml)
+- 2026-06-30 07:54 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/695265982452.shtml)
+- 2026-06-30 07:54 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/662249089419.shtml)
+- 2026-06-30 07:42 - [德国 传控](https://www.share.kurohicncr.top/Article/details/841625939.shtml)
+- 2026-06-30 08:02 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/426569.shtml)
+- 2026-06-30 08:01 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/59853423092.shtml)
+- 2026-06-30 07:57 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/54551296.shtml)
+- 2026-06-30 07:48 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/5194506278.shtml)
+- 2026-06-30 07:44 - [袁咏仪张智霖儿子寸头近照](http://www.share.kurohicncr.top/Article/details/801078.shtml)

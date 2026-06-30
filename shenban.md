@@ -1,50 +1,60 @@
-# 首个香港科研载荷登入“天宫”：“太空慧眼”精准监测温室气体排放
+# 国金证券：长效AD产品价值进一步获得MNC验证 维持康诺亚-B“买入”评级
 
-> 更新时间：2026-06-30 08:00:02 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月14日 10:24 来源：中国新闻网 近日，搭载天舟十号货运飞船的长征七号遥十一运载火箭在文昌航天发射场成功升空。作为中国空间站的物资补给“后勤官”，天舟十号此次搭载的试验载荷数量为历次之最。其中，由香港科技大学牵头研制的全球首款轻小型、高精度温室气体点源协同探测仪“天韵相机”(MUSICO)，成为香港首个登上中国“天宫”的科研载荷。 记者 程宇 香港
+国金证券发布研报称，2026年6月22日，艾伯维宣布拟以约109亿美金收购Apogee公司，其核心产品为长效IL-13单抗APG777，该交易预计于2026Q3完成。康诺亚同赛道药物CM512有望支持3-6个月给药间隔，目前正开展AD、COPD等多适应症II期。该行预测公司2026-2028年收入分别为28.71/20.64/29.94亿元，同比+300.8%/-28.1%/+
 
 ## 正文
 
-发布时间：2026年05月14日 10:24 来源：中国新闻网 近日，搭载天舟十号货运飞船的长征七号遥十一运载火箭在文昌航天发射场成功升空。
+国金证券发布研报称，2026年6月22日，艾伯维宣布拟以约109亿美金收购Apogee公司，其核心产品为长效IL-13单抗APG777，该交易预计于2026Q3完成。
 
-作为中国空间站的物资补给“后勤官”，天舟十号此次搭载的试验载荷数量为历次之最。
+康诺亚同赛道药物CM512有望支持3-6个月给药间隔，目前正开展AD、COPD等多适应症II期。
 
-其中，由香港科技大学牵头研制的全球首款轻小型、高精度温室气体点源协同探测仪“天韵相机”(MUSICO)，成为香港首个登上中国“天宫”的科研载荷。
+该行预测公司2026-2028年收入分别为28.71/20.64/29.94亿元，同比+300.8%/-28.1%/+45.0%；净利润10.98/-5.01/3.44亿元，对应EPS分别为3.67/-1.68/1.15元，维持“买入”评级。
 
-记者 程宇 香港报道 责任编辑：【李季】
+国金证券主要观点如下： 事件分析 Apogee核心管线为长效IL-13单抗APG777，给药间隔可超延长至3-6个月。
+
+APG777目前针对2型炎症反应积极探索特异性皮炎AD、哮喘和嗜酸性食管炎三大适应症，进度最快的AD正处于临床II期阶段，计划于26H2启动III期临床。
+
+APG777核心亮点为其给药间隔可以拉长，且能维持较好的疗效，其于2026年6月披露了最新的II期Part-B数据，诱导期给药间隔为：W02针，W22针，W41针，W121针后3个月/6个月给药。
+
+16周数据显示，中剂量组在EASI-75相对安慰剂提升约41.9%，EASI-90提升约37.8%。
+
+相较于Dupixent的36.8%和25.8%非头对头对比下更优。
 
 ## 相关推荐
 
-- 2026-06-30 07:31 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-30 07:37 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
-- 2026-06-30 07:42 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
-- 2026-06-30 07:53 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-30 07:59 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
-- 2026-06-30 07:57 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
-- 2026-06-30 07:48 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-30 07:58 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-30 07:44 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
-- 2026-06-30 07:43 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
-- 2026-06-30 07:52 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-30 07:30 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-30 07:52 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-30 07:56 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
+- 2026-06-30 08:02 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-30 07:37 - [德国 传控](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-30 08:04 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-30 08:04 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-30 08:01 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-30 07:39 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-30 07:44 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-30 07:38 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-30 08:02 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
+- 2026-06-30 08:03 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-30 07:37 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-30 07:58 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:31 - [我和我的家乡](http://www.share.minike.top/Article/details/2345665904.shtml)
-- 2026-06-30 07:33 - [本届世界杯已有5名球员被控强奸](http://www.blog.minike.top/Article/details/21568.shtml)
-- 2026-06-30 07:44 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.minike.top/Article/details/214588239.shtml)
-- 2026-06-30 07:57 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/5970294536.shtml)
-- 2026-06-30 07:34 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/8743800943.shtml)
-- 2026-06-30 07:37 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/0861745130.shtml)
-- 2026-06-30 07:31 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](http://www.share.minike.top/Article/details/17302.shtml)
-- 2026-06-30 07:59 - [审核了不止十年的低创鬼畜](https://www.blog.minike.top/Article/details/392116932.shtml)
-- 2026-06-30 07:41 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/9445513.shtml)
-- 2026-06-30 07:58 - [穆祉丞年度人气艺人](https://www.blog.kurohicncr.top/Article/details/183948.shtml)
-- 2026-06-30 07:36 - [德国队世界杯点球大战首败](http://www.share.minike.top/Article/details/63919473.shtml)
-- 2026-06-30 07:56 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/8276359.shtml)
-- 2026-06-30 07:35 - [马耳他著名拱门坍塌致一中国男子身亡](https://www.blog.minike.top/Article/details/10199.shtml)
-- 2026-06-30 07:45 - [美人鱼](http://www.share.kurohicncr.top/Article/details/4416245831.shtml)
-- 2026-06-30 07:39 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/13846620593.shtml)
+- 2026-06-30 07:59 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/396119334.shtml)
+- 2026-06-30 07:53 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://www.share.minike.top/Article/details/54381422.shtml)
+- 2026-06-30 07:46 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.kurohicncr.top/Article/details/981255.shtml)
+- 2026-06-30 07:37 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/412342533727.shtml)
+- 2026-06-30 07:47 - [高质量发展看新疆](https://www.blog.minike.top/Article/details/035733009.shtml)
+- 2026-06-30 07:39 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/6445065636.shtml)
+- 2026-06-30 07:57 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/36312327375.shtml)
+- 2026-06-30 07:42 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/99261146557.shtml)
+- 2026-06-30 07:42 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/750879946.shtml)
+- 2026-06-30 07:40 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/318597.shtml)
+- 2026-06-30 07:54 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/0988153055.shtml)
+- 2026-06-30 07:43 - [刘必安等16人非法集资案二审宣判](http://www.share.minike.top/Article/details/127500356.shtml)
+- 2026-06-30 07:44 - [房价什么时候能涨](https://www.share.minike.top/Article/details/143281.shtml)
+- 2026-06-30 07:59 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.minike.top/Article/details/35269339.shtml)
+- 2026-06-30 07:50 - [孙颖莎王楚钦晋级8强](http://www.share.minike.top/Article/details/24416868.shtml)

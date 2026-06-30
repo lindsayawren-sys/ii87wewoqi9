@@ -1,59 +1,60 @@
-# “北京地下城”重新开放 红色人防历史遗迹焕发新生
+# 华泰期货：产业驱动不强，棉价延续震荡
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-中新网北京5月13日电(记者 陈杭)北京人民防空历史文化馆启动仪式12日举行，并全新推出人民防空历史文化主题展览。场馆由始建于1969年的早期人防工程——“北京地下城”，自2008年关停后，经重修转型而来，标志着首都又一重要红色人防历史遗迹焕发新生。 “北京地下城”位于前门街道西兴隆街北侧，西侧紧邻草厂三条胡同，东侧紧邻新革路，北侧紧邻西打磨厂街，始建于1969年，1979年完
+来源：华泰期货 作者： 李馨 棉花观点 市场要闻与重要数据 期货方面，昨日收盘棉花2609合约16060元/吨，较前一日变动+50元/吨，幅度+0.31%。现货方面，3128B棉新疆到厂价17495元/吨，较前一日变动+29元/吨，现货基差CF09+1435，较前一日变动-21；3128B棉全国均价17632元/吨，较前一日变动+25元/吨，现货基差CF09+1572，较前一日
 
 ## 正文
 
-中新网北京5月13日电(记者 陈杭)北京人民防空历史文化馆启动仪式12日举行，并全新推出人民防空历史文化主题展览。
+来源：华泰期货 作者： 李馨 棉花观点 市场要闻与重要数据 期货方面，昨日收盘棉花2609合约16060元/吨，较前一日变动+50元/吨，幅度+0.31%。
 
-场馆由始建于1969年的早期人防工程——“北京地下城”，自2008年关停后，经重修转型而来，标志着首都又一重要红色人防历史遗迹焕发新生。
+现货方面，3128B棉新疆到厂价17495元/吨，较前一日变动+29元/吨，现货基差CF09+1435，较前一日变动-21；3128B棉全国均价17632元/吨，较前一日变动+25元/吨，现货基差CF09+1572，较前一日变动-25。
 
-“北京地下城”位于前门街道西兴隆街北侧，西侧紧邻草厂三条胡同，东侧紧邻新革路，北侧紧邻西打磨厂街，始建于1969年，1979年完工，是目前北京为数不多保留完好的早期地道式人防工程。
+近期市场资讯，据印度有关机构消息，受今年西南季风季降雨偏少影响，截至6月19日，印度新年度棉花播种面积达95.3万公顷（约1429.5万亩），较去年同期减少约28%。
 
-2008年，“北京地下城”关闭，暂时淡出人们的视野。
+据USDA，截止到6月16日，美棉主产区（93.1%）的干旱程度和覆盖率指数137，环比-8，同比+67；德克萨斯州的干旱程度和覆盖率指数为114，环比-7，同比持平。
 
-2019年，相关部门在位于西兴隆街110号建起了北京地下城微展厅，利用人防工程的口部房，展现了当年北京市民“深挖洞广积粮”的那段历史。
+市场分析 国际方面，美伊冲突推高棉花种植成本，26/27年度全球供应减产的预期持续存在，中长期支撑国际棉价重心抬升。
 
-据介绍，场馆以历史脉络为主线，设置防空初创、使命神圣；全民挖洞、应急备战；平战结合、稳步推进；服务首都、创新发展四大主题篇章，全方位、立体化展现北京国防动员发展历程、人民防空战备建设光辉岁月，完整还原首都人防工程建设时代记忆与使命传承。
+短期来看，美棉产区迎来降雨，得州旱情明显改善，不过印度季风降雨明显不足，种植端的变量仍然需要持续关注。
 
-步入主场核心展厅，可见北京地下城历史专题影像资料，以及歼-20、长征系列火箭、神舟飞船返回舱和月球车等模型。
+国内方面，国内本年度棉花资源供应偏紧及新作减产预期，推动前期棉价持续上涨。
 
-场馆同步配备月球车VR沉浸式体验、返回舱实景VR互动体验，以科技赋能国防科普，让观众直观感受国防实力的发展变化。
+不过随着下游淡季氛围有所加重，新订单下降较为明显，成品库存有所上升，抛储政策也迟迟未落地，纺企补库心态谨慎。
 
 ## 相关推荐
 
-- 2026-06-30 07:31 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-30 07:51 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-30 07:40 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-30 07:46 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
-- 2026-06-30 07:57 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
-- 2026-06-30 07:36 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-30 07:43 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-30 07:51 - [日本队5进世界杯淘汰赛0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
-- 2026-06-30 07:58 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
-- 2026-06-30 07:34 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-30 07:59 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-30 07:32 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-30 07:54 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-30 08:04 - [周冬雨多次说演不了话剧文城](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-30 07:58 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
+- 2026-06-30 07:46 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-30 07:44 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-30 07:52 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-30 08:01 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-30 07:41 - [德国淘汰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-30 07:40 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-30 08:00 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
+- 2026-06-30 07:55 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-30 07:36 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-30 07:53 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-30 07:38 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-30 08:00 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:46 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.share.kurohicncr.top/Article/details/5964887.shtml)
-- 2026-06-30 07:41 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/631893626523.shtml)
-- 2026-06-30 07:53 - [健全中小学教师工资长效联动机制](http://www.blog.kurohicncr.top/Article/details/055104034.shtml)
-- 2026-06-30 07:53 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/762339651799.shtml)
-- 2026-06-30 07:58 - [千与千寻](http://www.blog.minike.top/Article/details/514062931.shtml)
-- 2026-06-30 07:46 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/010522778.shtml)
-- 2026-06-30 07:56 - [藤森庆子赢得秘鲁总统选举](http://www.blog.minike.top/Article/details/838822392.shtml)
-- 2026-06-30 07:32 - [AI手机进入Agent时代](http://www.share.minike.top/Article/details/49741382784.shtml)
-- 2026-06-30 07:35 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/98797953.shtml)
-- 2026-06-30 07:51 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.minike.top/Article/details/12816724530.shtml)
-- 2026-06-30 07:42 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/55256601.shtml)
-- 2026-06-30 07:55 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/25581957.shtml)
-- 2026-06-30 07:34 - [《共患难》](https://www.share.minike.top/Article/details/26134.shtml)
-- 2026-06-30 07:40 - [明星大侦探第四季](http://www.share.minike.top/Article/details/69967026712.shtml)
-- 2026-06-30 07:36 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/6815651494.shtml)
+- 2026-06-30 08:03 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.kurohicncr.top/Article/details/07293581020.shtml)
+- 2026-06-30 07:53 - [世界杯：德国vs巴拉圭](http://www.blog.minike.top/Article/details/17921543.shtml)
+- 2026-06-30 08:05 - [网瘾賊大的阿嬷](https://www.share.minike.top/Article/details/51956.shtml)
+- 2026-06-30 07:41 - [德国爆冷点球大战不敌巴拉圭](http://www.share.kurohicncr.top/Article/details/062871591608.shtml)
+- 2026-06-30 08:03 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/91540618.shtml)
+- 2026-06-30 07:49 - [峡谷事故团队组队时有人提醒会下雨](http://www.share.kurohicncr.top/Article/details/59518401.shtml)
+- 2026-06-30 07:46 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/5092986.shtml)
+- 2026-06-30 07:41 - [巴西补时绝杀日本](https://www.blog.kurohicncr.top/Article/details/9245891.shtml)
+- 2026-06-30 07:53 - [周生如故](https://www.share.kurohicncr.top/Article/details/7550529532.shtml)
+- 2026-06-30 07:52 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/81296754577.shtml)
+- 2026-06-30 07:54 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/104944063600.shtml)
+- 2026-06-30 07:36 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/99514956.shtml)
+- 2026-06-30 07:52 - [郑钦文温网一轮游](https://www.blog.minike.top/Article/details/977771.shtml)
+- 2026-06-30 08:04 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/471810777555.shtml)
+- 2026-06-30 07:49 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/742561741.shtml)

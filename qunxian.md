@@ -1,59 +1,56 @@
-# 今年已有46家A股公司被立案调查，同比大增逾五成
+# 税务个税补税提示将至，个人不补税7月1日起将付滞纳金
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 ST类公司占比逾四成 恰逢“5·15全国投资者保护宣传日”，A股严监管加码态势备受市场关注。 根据Wind数据，截至5月14日15：00，今年以来已有46家上市公司公告被立案调查，同比增长逾五成。其中，ST类公司占比逾四成。被调查的原因主要为涉嫌信息披露违法违规，也有少数公司明确原因为未按期披露定期报告、重大合同公告涉嫌误导性陈
+距离6月30日截止的2025年度个税汇算清缴还剩8天。一些未申报或少申报收入的补税人群，即将收到税务部门“补税”提示。 若无视这一“补税”提示，轻则需要承担补税金额每日万分之五的滞纳金，重则被立案稽查，面临罚款乃至被移送司法机关处理。 一般来说，个税年度汇算期内及汇算期结束后，税务部门会在大数据集成基础上，对纳税人申报各类收入、税前扣除项目等的准确性进行审核。经核实后确实存在疑
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 ST类公司占比逾四成 恰逢“5·15全国投资者保护宣传日”，A股严监管加码态势备受市场关注。
+距离6月30日截止的2025年度个税汇算清缴还剩8天。
 
-根据Wind数据，截至5月14日15：00，今年以来已有46家上市公司公告被立案调查，同比增长逾五成。
+一些未申报或少申报收入的补税人群，即将收到税务部门“补税”提示。
 
-其中，ST类公司占比逾四成。
+若无视这一“补税”提示，轻则需要承担补税金额每日万分之五的滞纳金，重则被立案稽查，面临罚款乃至被移送司法机关处理。
 
-被调查的原因主要为涉嫌信息披露违法违规，也有少数公司明确原因为未按期披露定期报告、重大合同公告涉嫌误导性陈述等。
+一般来说，个税年度汇算期内及汇算期结束后，税务部门会在大数据集成基础上，对纳税人申报各类收入、税前扣除项目等的准确性进行审核。
 
-近年来，随着投资者日趋理性成熟，一些上市公司被立案调查后，便遭到投资者用脚投票，有些甚至触发面值退市。
+经核实后确实存在疑点的，主管税务机关将提醒纳税人补正资料或更正申报。
 
-一旦违法违规行为被认定，上市公司及相关负责人还面临行政处罚、民事赔偿、刑事追责多重惩戒，违法违规代价大幅提高。
+除此之外，个税汇算期结束后，税务部门还将按照法律法规规定开展个税汇算催报催缴以及事后抽查，不仅会对未申报纳税人开展催报提示，还会对已申报纳税人开展催缴提示以及事后抽查，发现纳税人申报存在疑点的，也会及时提醒纳税人更正。
 
-南开大学金融发展研究院院长田利辉对第一财经称，全链条问责从根本上改变了违法成本的计算公式，威慑效果呈几何级数增长；投资者用脚投票，也说明市场正在完成从博弈心态到风险再定价的关键转变。
+国家税务总局税收科学研究所副所长李平介绍，税务部门在日常监管中发现涉税疑点后，通常会通过短信、电话、个税APP站内信等渠道，向纳税人发送提示提醒，这是税务机关主动帮助纳税人防范化解涉税风险的服务举措。
 
-A股生态正经历从投机驱动向价值驱动的深层蜕变。
+税务总局提醒，对于收到税务提醒的纳税人，应当全面核对收入信息，确保收入申报完整，尤其需要关注从多处取得的工资薪金、劳务报酬、稿酬、特许权使用费等综合所得，以及可能存在但未在系统中显示的收入项目。
 
 ## 相关推荐
 
-- 2026-06-30 07:48 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
-- 2026-06-30 07:51 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-30 07:42 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-30 07:44 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
-- 2026-06-30 07:52 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-30 07:55 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
-- 2026-06-30 07:37 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
-- 2026-06-30 07:34 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-30 07:47 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-30 07:37 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-30 07:46 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-30 07:51 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-30 07:45 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-30 08:04 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
+- 2026-06-30 08:04 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-30 07:55 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-30 08:02 - [全球芯片巨头史诗级扩产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
+- 2026-06-30 07:49 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-30 07:47 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
+- 2026-06-30 08:04 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-30 08:04 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-30 08:02 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-30 07:59 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:53 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/24999.shtml)
-- 2026-06-30 07:30 - [委内瑞拉地震死亡人数升至1719人](https://www.blog.kurohicncr.top/Article/details/445845123.shtml)
-- 2026-06-30 07:47 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/85525.shtml)
-- 2026-06-30 07:45 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/3779741407.shtml)
-- 2026-06-30 07:47 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/2497763.shtml)
-- 2026-06-30 07:55 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/43657.shtml)
-- 2026-06-30 07:46 - [日本球员说被绝杀非常不甘心](http://www.share.minike.top/Article/details/193412966.shtml)
-- 2026-06-30 07:32 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/164506229107.shtml)
-- 2026-06-30 07:59 - [恋与深空回应争议](https://www.share.minike.top/Article/details/35552394.shtml)
-- 2026-06-30 07:38 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/655477233472.shtml)
-- 2026-06-30 07:55 - [巴拉圭先进球了](https://www.blog.kurohicncr.top/Article/details/5726992.shtml)
-- 2026-06-30 07:40 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/29327.shtml)
-- 2026-06-30 07:40 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/61094669852.shtml)
-- 2026-06-30 07:47 - [庆祝中国共产党成立105周年音乐会](http://www.blog.minike.top/Article/details/5863196069.shtml)
-- 2026-06-30 07:55 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/6949013673.shtml)
+- 2026-06-30 07:52 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/177822.shtml)
+- 2026-06-30 08:05 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/7566913.shtml)
+- 2026-06-30 07:58 - [男子中医院拔火罐致浅2度烧伤](http://www.share.kurohicncr.top/Article/details/3900412844.shtml)
+- 2026-06-30 07:55 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.kurohicncr.top/Article/details/151868993.shtml)
+- 2026-06-30 07:53 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/02534480988.shtml)
+- 2026-06-30 07:40 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/450077993.shtml)
+- 2026-06-30 08:05 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/56128659604.shtml)
+- 2026-06-30 07:46 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/5187482988.shtml)
+- 2026-06-30 07:57 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/419087.shtml)
+- 2026-06-30 08:00 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/02959835846.shtml)
+- 2026-06-30 07:48 - [马耳他著名拱门坍塌致一中国男子身亡](https://www.blog.kurohicncr.top/Article/details/00195794.shtml)
+- 2026-06-30 07:52 - [日本队5进世界杯淘汰赛0胜](https://www.share.kurohicncr.top/Article/details/775832.shtml)
+- 2026-06-30 07:55 - [马耳他著名拱门坍塌致中国男子身亡](https://www.share.minike.top/Article/details/531328229.shtml)
+- 2026-06-30 07:46 - [好像看到了人类带孩子崩溃的样子](https://www.share.minike.top/Article/details/85359277854.shtml)
+- 2026-06-30 07:36 - [曝多支争冠球队有意塞克斯顿](https://www.blog.minike.top/Article/details/82680.shtml)

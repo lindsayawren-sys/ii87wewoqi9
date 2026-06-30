@@ -1,57 +1,61 @@
-# 近期股价大涨40%！钧达股份业绩说明会回应太空光伏、土耳其产能等热点
+# 三星电子发布业界最快UFS 5.0闪存，用于设备端人工智能
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-每经记者|文多 每经编辑|毕陆名 5月13日，钧达股份（SZ002865，股价101.50元，市值315.94亿元）发布了整理后的业绩说明会互动内容，其中详细回应了投资者关于公司太空光伏布局、全球化战略、技术路线及降本增效等核心议题的提问。 钧达股份为光伏电池片公司，目前主营业务聚焦于N型电池产品。 近期，资本市场对该公司战略新动向关注度持续升温，其股价表现也较好，从4月29日
+三星电子公司周二表示，该公司已开发出业界速度最快的通用闪存存储 （UFS） 5.0 解决方案，旨在使人工智能 （AI） 模型能够直接在设备上运行，而无需网络连接。 三星表示，其下一代UFS 5.0闪存将为智能手机和其他移动设备提供业界领先的性能，预计将作为存储解决方案应用于这些设备。 三星电子内存产品规划负责人Choi Jang-seok表示：“在设备端AI时代，存储设备正在演
 
 ## 正文
 
-每经记者|文多 每经编辑|毕陆名 5月13日，钧达股份（SZ002865，股价101.50元，市值315.94亿元）发布了整理后的业绩说明会互动内容，其中详细回应了投资者关于公司太空光伏布局、全球化战略、技术路线及降本增效等核心议题的提问。
+三星电子公司周二表示，该公司已开发出业界速度最快的通用闪存存储 （UFS） 5.0 解决方案，旨在使人工智能 （AI） 模型能够直接在设备上运行，而无需网络连接。
 
-钧达股份为光伏电池片公司，目前主营业务聚焦于N型电池产品。
+三星表示，其下一代UFS 5.0闪存将为智能手机和其他移动设备提供业界领先的性能，预计将作为存储解决方案应用于这些设备。
 
-近期，资本市场对该公司战略新动向关注度持续升温，其股价表现也较好，从4月29日到5月13日收盘，区间累计涨幅约40%。
+三星电子内存产品规划负责人Choi Jang-seok表示：“在设备端AI时代，存储设备正在演变为定义人工智能体验的关键驱动因素。
 
-虽然是光伏电池企业，但在交流中，投资者难掩对公司商业航天业务的关注。
+” 该公司表示，UFS 5.0闪存的量产计划于今年第四季度开始。
 
-有投资者关注商业航天相关业务与公司光伏主业如何协同。
+三星电子称，这项技术为下一代移动存储器市场树立了新的标杆。
 
-钧达股份明确表示，布局商业航天相关业务与现有光伏主业具有协同效应，能够有效拓宽公司产品的应用场景边界，助力公司从地面光伏领域向太空光伏领域的战略延伸。
+生成式人工智能正迅速从云端转移到设备端，导致本地需要处理的数据量急剧增长。
 
-公司同时也向投资者揭示了该业务板块的现实状况与风险。
+因此，存储介质也从主要用于存储数据转变为支持人工智能计算的核心基础设施。
 
-钧达股份同步提醒：“该板块业务目前仍处于商业化初期，技术迭代、市场拓展及量产落地均存在较大不确定性。
+据介绍，三星UFS 5.0最高顺序读取速度为10.8GB/s，最高写入速度为9.5GB/s，均较上一代UFS 4.1提升一倍以上，可进一步缩短大型应用和端侧AI模型的加载时间。
 
 ## 相关推荐
 
-- 2026-06-30 07:50 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
-- 2026-06-30 07:41 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-30 07:40 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-30 07:35 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-30 07:35 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-30 07:30 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-30 07:48 - [中国新一轮出口管制直指日本命脉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-30 07:56 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-30 07:34 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-30 07:33 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-30 07:44 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-30 07:38 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-30 07:41 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-30 07:37 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-30 07:45 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-30 07:37 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-30 08:01 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-30 07:56 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-30 08:01 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-30 07:55 - [周冬雨多次说演不了话剧文城](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-30 07:46 - [日本五次世界杯淘汰赛全败](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-30 07:40 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-30 08:00 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
+- 2026-06-30 07:58 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-30 07:48 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-30 07:41 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:56 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/32535.shtml)
-- 2026-06-30 07:54 - [内马尔替补](http://www.share.kurohicncr.top/Article/details/6513382.shtml)
-- 2026-06-30 07:52 - [德国巴拉圭加时](https://www.share.minike.top/Article/details/1342479.shtml)
-- 2026-06-30 07:34 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/15174361.shtml)
-- 2026-06-30 07:40 - [爆冷出局！德国点球大战不敌巴拉圭](https://www.blog.kurohicncr.top/Article/details/2706104.shtml)
-- 2026-06-30 07:54 - [沙丘](http://www.share.kurohicncr.top/Article/details/12350102.shtml)
-- 2026-06-30 07:34 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/254192948429.shtml)
-- 2026-06-30 07:31 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/823367.shtml)
-- 2026-06-30 07:59 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/7560663167.shtml)
-- 2026-06-30 07:34 - [高中五人学习小组全员超650分](http://www.share.kurohicncr.top/Article/details/5982594.shtml)
-- 2026-06-30 07:52 - [湖南祁东原文化馆被指贱卖](https://www.blog.minike.top/Article/details/933586171.shtml)
-- 2026-06-30 07:31 - [老外对中国cosplay竟这样评价…](https://www.share.kurohicncr.top/Article/details/636645010.shtml)
-- 2026-06-30 07:44 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/8749433895.shtml)
-- 2026-06-30 07:31 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/4007859.shtml)
-- 2026-06-30 07:48 - [库尼亚赛后伸五指嘲讽日本](http://www.share.minike.top/Article/details/887690.shtml)
+- 2026-06-30 08:02 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.minike.top/Article/details/90747662.shtml)
+- 2026-06-30 07:38 - [点球大战 残酷](https://www.share.kurohicncr.top/Article/details/479961.shtml)
+- 2026-06-30 07:40 - [王健林甩卖超80座万达广场](https://www.blog.kurohicncr.top/Article/details/71135634230.shtml)
+- 2026-06-30 08:05 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://www.share.kurohicncr.top/Article/details/79396020.shtml)
+- 2026-06-30 07:52 - [审核了不止十年的低创鬼畜](https://www.blog.kurohicncr.top/Article/details/06233490.shtml)
+- 2026-06-30 07:59 - [毒液2](http://www.blog.minike.top/Article/details/437653619.shtml)
+- 2026-06-30 07:43 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/5628406926.shtml)
+- 2026-06-30 07:39 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/864709045.shtml)
+- 2026-06-30 08:04 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/907718443930.shtml)
+- 2026-06-30 07:51 - [巴西2-1绝杀日本](https://www.blog.minike.top/Article/details/8542200680.shtml)
+- 2026-06-30 07:38 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/0606221023.shtml)
+- 2026-06-30 08:03 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/126267528.shtml)
+- 2026-06-30 08:03 - [刘必安等16人非法集资案二审宣判](http://www.blog.kurohicncr.top/Article/details/55620046961.shtml)
+- 2026-06-30 08:00 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/716642514.shtml)
+- 2026-06-30 08:00 - [美股深夜大反弹 特斯拉飙涨8%](http://www.blog.minike.top/Article/details/92246.shtml)

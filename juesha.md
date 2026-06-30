@@ -1,51 +1,56 @@
-# 本田录得罕见年度亏损
+# 套现1.6亿！桃李面包91岁创始人再减持
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-本田汽车公布了自1957年以来的首次年度亏损，主要原因是其美国电动汽车战略全面调整导致巨额资产减记，严重拖累了整体业绩。近年来，全球汽车制造商在电动化转型中面临激烈竞争和成本压力，本田在调整生产布局和车型规划时不得不对原有资产进行重新评估。此次亏损反映出传统车企在向新能源过渡过程中所承受的财务阵痛，也表明本田未来可能需要进一步优化其全球资源配置以恢复盈利能力。责任编辑：张俊 S
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：国际金融报 A股“面包第一股”桃李面包再度遭遇实控人家族减持。其背后是桃李面包持续走弱的业绩基本面。 近日，桃李面包（603866）发布公告，公司实际控制人吴志刚及一致行动人肖蜀岩的股份减持计划已全部实施完毕，合计“套现”金额约1.65亿元。 公告显示，本次减持前，实控人吴志刚直接持有桃李面包8753
 
 ## 正文
 
-本田汽车公布了自1957年以来的首次年度亏损，主要原因是其美国电动汽车战略全面调整导致巨额资产减记，严重拖累了整体业绩。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-近年来，全球汽车制造商在电动化转型中面临激烈竞争和成本压力，本田在调整生产布局和车型规划时不得不对原有资产进行重新评估。
+来源：国际金融报 A股“面包第一股”桃李面包再度遭遇实控人家族减持。
 
-此次亏损反映出传统车企在向新能源过渡过程中所承受的财务阵痛，也表明本田未来可能需要进一步优化其全球资源配置以恢复盈利能力。
+其背后是桃李面包持续走弱的业绩基本面。
 
-责任编辑：张俊 SF065
+近日，桃李面包（603866）发布公告，公司实际控制人吴志刚及一致行动人肖蜀岩的股份减持计划已全部实施完毕，合计“套现”金额约1.65亿元。
+
+公告显示，本次减持前，实控人吴志刚直接持有桃李面包8753.97万股，占公司总股本的5.47%；一致行动人肖蜀岩持股601.74万股，持股比例为0.38%。
+
+减持期内，吴志刚累计减持3358.5万股，占总股本比例2.1%，减持金额1.59亿元；肖蜀岩减持134.77万股，减持比例0.08%，对应金额610万元。
+
+经计算，二人合计减持“套现”1.65亿元。
+
+值得注意的是，本次吴志刚减持股份中包含1588.86万股的亲属内部转让份额，属于股东内部股权转让，并非二级市场抛售。
 
 ## 相关推荐
 
-- 2026-06-30 07:47 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-30 07:52 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-30 07:31 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-30 07:39 - [马耳他著名拱门坍塌致中国男子身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-30 07:55 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-30 07:48 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-30 07:50 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-30 07:36 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-30 07:57 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-30 07:45 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
-- 2026-06-30 07:30 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-30 07:39 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
-- 2026-06-30 07:53 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-30 07:54 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-30 07:39 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-30 07:46 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-30 08:03 - [森保一 保守](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-30 07:43 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
+- 2026-06-30 07:53 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-30 07:36 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-30 07:49 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-30 08:05 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-30 07:55 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:32 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/87242591625.shtml)
-- 2026-06-30 07:46 - [谢依霖说杨幂是聚会第一把张罗手](http://www.share.kurohicncr.top/Article/details/012498944.shtml)
-- 2026-06-30 07:32 - [“草莓月亮”浪漫现身](https://www.blog.minike.top/Article/details/78226105236.shtml)
-- 2026-06-30 07:44 - [媒体评泰山建135公里刀片刺绳隔离网](https://www.share.minike.top/Article/details/1398745.shtml)
-- 2026-06-30 07:48 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/8626245.shtml)
-- 2026-06-30 07:46 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/669556.shtml)
-- 2026-06-30 07:54 - [卡塞米罗头球破门 巴西扳平日本](http://www.blog.kurohicncr.top/Article/details/8170983.shtml)
-- 2026-06-30 07:40 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/72177733.shtml)
-- 2026-06-30 07:44 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/026710.shtml)
-- 2026-06-30 07:52 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/123193855866.shtml)
-- 2026-06-30 07:34 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/0495190.shtml)
-- 2026-06-30 07:38 - [巴西绝杀日本](https://www.share.kurohicncr.top/Article/details/6418626.shtml)
-- 2026-06-30 07:50 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/724106.shtml)
-- 2026-06-30 07:44 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/5585562058.shtml)
-- 2026-06-30 07:38 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/06116618984.shtml)
+- 2026-06-30 07:39 - [德国vs巴拉圭](http://www.share.minike.top/Article/details/1213272848.shtml)
+- 2026-06-30 08:03 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/473237955.shtml)
+- 2026-06-30 07:56 - [点球大战 残酷](http://www.blog.kurohicncr.top/Article/details/3392101.shtml)
+- 2026-06-30 08:02 - [本科毕业生为何涌入专科学校](http://www.blog.kurohicncr.top/Article/details/739803.shtml)
+- 2026-06-30 07:59 - [索马里女大使：想和中国一起搞事业](http://www.share.minike.top/Article/details/0060380.shtml)
+- 2026-06-30 08:04 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.blog.kurohicncr.top/Article/details/0373393.shtml)
+- 2026-06-30 07:57 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/338920.shtml)
+- 2026-06-30 07:52 - [萨内 看笑了](http://www.share.minike.top/Article/details/23260.shtml)
+- 2026-06-30 07:38 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/811041903626.shtml)
+- 2026-06-30 07:48 - [吴易昺不敌德约科维奇 止步温网首轮](http://www.blog.kurohicncr.top/Article/details/33111636279.shtml)
+- 2026-06-30 07:38 - [又一美国科技巨头转向中国大模型](http://www.blog.minike.top/Article/details/987227617.shtml)
+- 2026-06-30 07:45 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/29414.shtml)
+- 2026-06-30 07:58 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.minike.top/Article/details/8276382.shtml)
+- 2026-06-30 07:50 - [杨紫被质疑未使用原名纯属误解](https://www.blog.kurohicncr.top/Article/details/930213215560.shtml)
+- 2026-06-30 07:58 - [上半年全国特种设备安全形势总体平稳](http://www.blog.kurohicncr.top/Article/details/2590363521.shtml)

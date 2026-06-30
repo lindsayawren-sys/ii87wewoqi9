@@ -1,61 +1,46 @@
-# 东方嘉富人寿：时隔半年更换“掌门人”！搭班新总经理，何以稳中求进？
+# 2026年01月至05月云南省进出口贸易方式总值表
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-来源：中保新知 继今年3月份新任总经理正式上岗后，时隔两个月，这家寿险公司又迎来董事长的变更。 5月13日，东方嘉富人寿发布公告称，根据股东方的工作安排，自2026年4月28日起，何欣不再担任东方嘉富人寿董事长。经公司第四届董事会第三十七次会议选举，童超当选公司董事长，童超的任职将在获得国家金融监督管理总局浙江监管局核准任职资格后正式生效。 需要注意的是，何欣担任东方嘉富人寿董
+2026年01月至05月云南省进出口贸易方式总值表.xlsx 来源：昆明海关
 
 ## 正文
 
-来源：中保新知 继今年3月份新任总经理正式上岗后，时隔两个月，这家寿险公司又迎来董事长的变更。
-
-5月13日，东方嘉富人寿发布公告称，根据股东方的工作安排，自2026年4月28日起，何欣不再担任东方嘉富人寿董事长。
-
-经公司第四届董事会第三十七次会议选举，童超当选公司董事长，童超的任职将在获得国家金融监督管理总局浙江监管局核准任职资格后正式生效。
-
-需要注意的是，何欣担任东方嘉富人寿董事长一职仅半年时间，如此短时间内更换董事长，在保险业内并不多见。
-
-当然，这次人事调整也是东方嘉富人寿更名换姓之后变化的延续。
-
-从增资扩股到更名换姓，再到领导班子调整、品牌更新、新战略发布等，东方嘉富人寿近几年变化很大。
-
-无论是公司属性，还是发展方向，都有了新的定位与规划。
-
-随着新董事长的到来，这家寿险公司将迎来怎样的发展格局？
+2026年01月至05月云南省进出口贸易方式总值表.xlsx 来源：昆明海关
 
 ## 相关推荐
 
-- 2026-06-30 07:52 - [巴拉圭进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-30 07:57 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
-- 2026-06-30 07:39 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-30 07:46 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-30 07:34 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
-- 2026-06-30 07:30 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
-- 2026-06-30 07:46 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-30 07:50 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-30 07:30 - [德国队世界杯点球大战首败](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-30 07:44 - [索马里女大使：想和中国一起搞事业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-30 07:46 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
-- 2026-06-30 07:40 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
-- 2026-06-30 07:38 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-30 07:47 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-30 07:53 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-30 07:41 - [日本队5进世界杯淘汰赛0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-30 07:47 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-30 07:49 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-30 07:59 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-30 07:41 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
+- 2026-06-30 07:42 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-30 07:55 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-30 08:05 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-30 07:59 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-30 07:43 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-30 07:39 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-30 07:44 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-30 07:52 - [大蒜晒外面被路过女子连盆端走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
+- 2026-06-30 07:53 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:41 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/629169218.shtml)
-- 2026-06-30 07:36 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/8565878203.shtml)
-- 2026-06-30 07:53 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.share.minike.top/Article/details/116445217079.shtml)
-- 2026-06-30 07:57 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/597501135.shtml)
-- 2026-06-30 07:45 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/8231555.shtml)
-- 2026-06-30 07:35 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/3625041.shtml)
-- 2026-06-30 07:48 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/679836346.shtml)
-- 2026-06-30 07:50 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/81500.shtml)
-- 2026-06-30 07:35 - [世界杯巴拉圭点球淘汰德国](https://www.blog.minike.top/Article/details/6235200721.shtml)
-- 2026-06-30 07:45 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/642290819.shtml)
-- 2026-06-30 07:56 - [一生一世](https://www.share.minike.top/Article/details/8098484967.shtml)
-- 2026-06-30 07:57 - [田中碧失误](http://www.blog.minike.top/Article/details/40079393.shtml)
-- 2026-06-30 07:40 - [孙兴慜道歉](http://www.blog.kurohicncr.top/Article/details/6949036117.shtml)
-- 2026-06-30 07:42 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.minike.top/Article/details/848966.shtml)
-- 2026-06-30 07:52 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.share.minike.top/Article/details/9929368924.shtml)
+- 2026-06-30 07:40 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/9621431.shtml)
+- 2026-06-30 08:04 - [日本遭读秒绝杀 森保一：我水平不够](https://www.blog.kurohicncr.top/Article/details/0123841.shtml)
+- 2026-06-30 07:50 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/42488421.shtml)
+- 2026-06-30 07:57 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](http://www.blog.minike.top/Article/details/954660330472.shtml)
+- 2026-06-30 07:58 - [卢卡申科发布解放军仪仗队视频](https://www.share.kurohicncr.top/Article/details/16847953615.shtml)
+- 2026-06-30 07:42 - [巴西扳平比分](http://www.share.minike.top/Article/details/431720.shtml)
+- 2026-06-30 07:40 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/3081625.shtml)
+- 2026-06-30 07:42 - [佐野海舟远射破门](https://www.share.minike.top/Article/details/309627698.shtml)
+- 2026-06-30 07:40 - [刘必安等16人非法集资案二审宣判](http://www.blog.minike.top/Article/details/1620319.shtml)
+- 2026-06-30 07:39 - [孙兴慜道歉](http://www.share.kurohicncr.top/Article/details/7049392.shtml)
+- 2026-06-30 07:52 - [王楚钦说配合稍微有些陌生感](https://www.share.kurohicncr.top/Article/details/433245017.shtml)
+- 2026-06-30 08:05 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/1842731.shtml)
+- 2026-06-30 07:39 - [科技牛市下的最大考验是什么](http://www.share.minike.top/Article/details/62832.shtml)
+- 2026-06-30 07:57 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/79150.shtml)
+- 2026-06-30 07:39 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/58723.shtml)

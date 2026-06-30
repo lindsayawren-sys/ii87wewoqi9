@@ -1,57 +1,59 @@
-# 习近平：中美应该成为伙伴而不是对手
+# 晋江与敦煌双城联动 开启2026年国际文创设计大赛
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-视频：习近平：中美应该成为伙伴而不是对手来源：央视新闻客户端 5月14日晚，国家主席习近平在北京人民大会堂举行宴会，欢迎美国总统特朗普访华。 人民大会堂金色大厅华灯璀璨，两国元首先后发表致辞。 习近平强调，我们一致认为，中美关系是当今世界最重要的双边关系，只能搞好不能搞坏。两国合则两利、斗则俱伤，应该成为伙伴而不是对手。我们同意构建中美建设性战略稳定关系，推动中美关系稳定、健康
+中新网福建晋江6月23日电 (记者 孙虹)以“丝路双生 山海造物”为主题，晋江&敦煌2026年国际文创设计大赛23日在福建晋江正式启动，见证陆上与海上丝绸之路文脉融合、山海优势互补的双向奔赴。 据了解，本次大赛共设三大赛道，面向全球设计师、高校师生及创意机构开放报名。其中，晋江文化主赛道聚焦城市精神与人文景观，鼓励挖掘晋江世遗点及多元文化底蕴；丝路双生特色赛道推动“海丝”与“陆
 
 ## 正文
 
-视频：习近平：中美应该成为伙伴而不是对手来源：央视新闻客户端 5月14日晚，国家主席习近平在北京人民大会堂举行宴会，欢迎美国总统特朗普访华。
+中新网福建晋江6月23日电 (记者 孙虹)以“丝路双生 山海造物”为主题，晋江&敦煌2026年国际文创设计大赛23日在福建晋江正式启动，见证陆上与海上丝绸之路文脉融合、山海优势互补的双向奔赴。
 
-人民大会堂金色大厅华灯璀璨，两国元首先后发表致辞。
+据了解，本次大赛共设三大赛道，面向全球设计师、高校师生及创意机构开放报名。
 
-习近平强调，我们一致认为，中美关系是当今世界最重要的双边关系，只能搞好不能搞坏。
+其中，晋江文化主赛道聚焦城市精神与人文景观，鼓励挖掘晋江世遗点及多元文化底蕴；丝路双生特色赛道推动“海丝”与“陆丝”文化基因深度融合；产业融合特色赛道结合晋江伞具、食品两大优势产业，推动设计成果从图纸走向实物。
 
-两国合则两利、斗则俱伤，应该成为伙伴而不是对手。
+大赛评审兼顾文化表达、创意巧思及商业价值与产业适配能力。
 
-我们同意构建中美建设性战略稳定关系，推动中美关系稳定、健康、可持续发展，为世界带来更多和平、繁荣、进步。
+为吸引全球优秀设计师参与创作，大赛总奖金池超30万元，单项最高奖金3万元，旨在挖掘兼具文化深度与市场潜力的优质作品。
 
-总监制丨申勇 监制丨龚雪辉 记者丨王鹏飞 邢彬 摄像丨李铮 马超 段德文 钟锐 程铖 郭鸿 李增仁 鄂介甫 王策 张宇 录音丨程爱华
+作品征集时间为2026年6月至9月，7月还将开展大赛配套“设计共创营”，助力深度创作。
+
+“自2024年7月缔结友好城市以来，晋江与敦煌两地多次开展丝路文化对话、城市文脉交流，结下了深厚的合作情谊。
+
+”晋江市委书记王明元指出，此次跨越山海、携手举办国际文创设计大赛，开启了两地产业协同、资源共享、双向赋能的全新阶段。
 
 ## 相关推荐
 
-- 2026-06-30 07:55 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
-- 2026-06-30 07:50 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-30 07:55 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
-- 2026-06-30 07:58 - [藤森庆子赢得秘鲁总统选举](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
-- 2026-06-30 07:43 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-30 07:38 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
-- 2026-06-30 07:58 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-30 07:43 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
-- 2026-06-30 07:45 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-30 07:30 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-30 07:33 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-30 07:40 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-30 07:46 - [网友写差评被店家“挂”门口避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
-- 2026-06-30 07:50 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-30 07:49 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-30 07:43 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-30 07:58 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-30 07:43 - [巴拉圭率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-30 07:45 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-30 07:52 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-30 08:03 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-30 07:56 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-30 07:40 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
+- 2026-06-30 07:38 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-30 08:01 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-30 08:02 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-30 07:44 - [曝老詹对自由市场态度与以往截然不同](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
+- 2026-06-30 07:46 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:58 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/91123184.shtml)
-- 2026-06-30 07:49 - [一生一世](https://www.blog.kurohicncr.top/Article/details/7834699291.shtml)
-- 2026-06-30 07:31 - [巴拉圭进球](http://www.blog.minike.top/Article/details/151034183.shtml)
-- 2026-06-30 07:36 - [女心理师](http://www.share.kurohicncr.top/Article/details/48370340.shtml)
-- 2026-06-30 07:46 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/006504973512.shtml)
-- 2026-06-30 07:32 - [千与千寻](http://www.blog.minike.top/Article/details/9209824.shtml)
-- 2026-06-30 07:42 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/455542.shtml)
-- 2026-06-30 07:35 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.share.kurohicncr.top/Article/details/069306674927.shtml)
-- 2026-06-30 07:59 - [Melo向柳智敏张元英道歉](http://www.blog.minike.top/Article/details/7830533.shtml)
-- 2026-06-30 07:48 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/5415301.shtml)
-- 2026-06-30 07:42 - [曝多支争冠球队有意塞克斯顿](http://www.share.minike.top/Article/details/56289225458.shtml)
-- 2026-06-30 07:44 - [《男人至死是傻得儿》](http://www.share.kurohicncr.top/Article/details/56351278158.shtml)
-- 2026-06-30 07:38 - [王楚钦孙颖莎晋级混双八强](http://www.share.kurohicncr.top/Article/details/3095547283.shtml)
-- 2026-06-30 07:41 - [徐亮怒斥世界杯踢假球](http://www.share.kurohicncr.top/Article/details/567249.shtml)
-- 2026-06-30 07:53 - [有酒店推行24小时退房制](http://www.blog.minike.top/Article/details/6720788.shtml)
+- 2026-06-30 07:51 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/487464692882.shtml)
+- 2026-06-30 07:56 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.kurohicncr.top/Article/details/8111297490.shtml)
+- 2026-06-30 08:04 - [苗族银饰](https://www.blog.kurohicncr.top/Article/details/93329.shtml)
+- 2026-06-30 07:51 - [世界杯：德国vs巴拉圭](http://www.blog.minike.top/Article/details/875998789490.shtml)
+- 2026-06-30 07:41 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/47797.shtml)
+- 2026-06-30 07:41 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/25867904063.shtml)
+- 2026-06-30 07:46 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/042957992.shtml)
+- 2026-06-30 07:46 - [如果有二次元高中是什么样子的？](https://www.blog.kurohicncr.top/Article/details/62690429.shtml)
+- 2026-06-30 07:58 - [沙丘](http://www.share.kurohicncr.top/Article/details/63076195.shtml)
+- 2026-06-30 07:51 - [董卿父亲在报纸上发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/536733907.shtml)
+- 2026-06-30 08:00 - [藤森庆子赢得秘鲁总统选举](https://www.blog.kurohicncr.top/Article/details/31953.shtml)
+- 2026-06-30 07:56 - [张雪的一句“是我们”引发岛内热议](https://www.blog.kurohicncr.top/Article/details/379957.shtml)
+- 2026-06-30 07:36 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/737580855.shtml)
+- 2026-06-30 08:03 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/4221367.shtml)
+- 2026-06-30 08:04 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/62333.shtml)

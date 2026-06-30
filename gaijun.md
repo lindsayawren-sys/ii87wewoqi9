@@ -1,59 +1,61 @@
-# 陕西持续壮大特色现代农业 农民收入稳步提升
+# （经济观察）中国供应链正成为全球企业“必选项”
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-中新网西安5月14日电 (李一璠)“陕西省率先建成覆盖全体农户的防止返贫监测预警平台，开发上线‘农户画像’功能，以大数据模型算法精准筛查返贫致贫风险农户，实现全员全域常态监测、动态清零。”陕西省农业农村厅党组书记李育江14日表示。 当日，陕西省人民政府新闻办公室举办新闻发布会，解读《中共陕西省委 陕西省人民政府关于锚定农业农村现代化扎实推进乡村全面振兴的实施意见》。 记者关注到
+中新社北京6月23日电 (记者 尹倩芸)当全球产供链经历深度调整，中国供应链的重要性正被越来越多企业重新认识。 正在举行的第四届中国国际供应链促进博览会上，多位跨国企业高管在受访时表示，中国正成为全球产业链供应链布局中的关键一环。 “中国供应链的优势不仅仅是成本，而是完整产业链所带来的创新能力和快速响应能力。”住友电工贸易(深圳)有限公司董事长今村武英表示，与中国供应链伙伴合作
 
 ## 正文
 
-中新网西安5月14日电 (李一璠)“陕西省率先建成覆盖全体农户的防止返贫监测预警平台，开发上线‘农户画像’功能，以大数据模型算法精准筛查返贫致贫风险农户，实现全员全域常态监测、动态清零。
+中新社北京6月23日电 (记者 尹倩芸)当全球产供链经历深度调整，中国供应链的重要性正被越来越多企业重新认识。
 
-”陕西省农业农村厅党组书记李育江14日表示。
+正在举行的第四届中国国际供应链促进博览会上，多位跨国企业高管在受访时表示，中国正成为全球产业链供应链布局中的关键一环。
 
-当日，陕西省人民政府新闻办公室举办新闻发布会，解读《中共陕西省委 陕西省人民政府关于锚定农业农村现代化扎实推进乡村全面振兴的实施意见》。
+“中国供应链的优势不仅仅是成本，而是完整产业链所带来的创新能力和快速响应能力。
 
-记者关注到，该实施意见围绕“两条底线、一个中心、三项重点和一大支撑保障”进行部署：持续守牢粮食安全底线和确保长久守牢不发生规模性返贫致贫底线，始终坚持把增加农民收入作为“三农”工作的中心任务，统筹乡村发展、乡村建设和乡村治理三项重点工作，强化改革赋能和要素保障。
+”住友电工贸易(深圳)有限公司董事长今村武英表示，与中国供应链伙伴合作，企业不仅能够提升供应链效率，更重要的是能够共同开展技术创新和产品优化。
 
-“‘十四五’时期，陕西省农村居民人均可支配收入从2020年的13316元增长到2025年的19286元，年均增长7.7%。
+从“制造中心”到“创新高地”，中国供应链的竞争力正被赋予新的内涵，这一判断也在不少跨国企业中形成共识。
 
-”陕西省农业农村厅副厅长杨晓军表示。
+“中国的创新速度令人印象深刻。
 
-近年来，该省深入实施特色现代农业重点产业链建设五年行动，坚持部省共建、链群同构，强龙头、补链条、兴业态、树品牌，形成了“省抓千亿级、市抓百亿级、县抓十亿级”的特色产业发展体系。
+”思佳讯全球销售和营销高级副总裁托德·莱平斯基说，中国企业从产品设计阶段到实现量产落地的效率，是世界上其他地方很难做到的。
 
-苹果等8条重点产业链综合产值达到6649亿元，带动市级发展31条超百亿元、县级发展155条超十亿元产业链，特色产业发展成效显著。
+依托于中国市场快速的创新迭代和对高品质产品的需求，也推动更多跨国企业同步提速，提升自身能力。
 
 ## 相关推荐
 
-- 2026-06-30 07:38 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-30 07:48 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-30 07:48 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
-- 2026-06-30 07:58 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-30 07:33 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
-- 2026-06-30 07:33 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-30 07:35 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-30 07:48 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-30 07:39 - [全球芯片巨头史诗级扩产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-30 07:54 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
-- 2026-06-30 07:58 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-30 07:59 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-30 07:39 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-30 07:54 - [点球大战 残酷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
+- 2026-06-30 07:40 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-30 07:56 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-30 07:54 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-30 07:40 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-30 07:52 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-30 07:41 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-30 07:53 - [德国队连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-30 07:39 - [勇士续约波尔津吉斯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-30 07:56 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-30 07:51 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-30 07:36 - [武磊：巴西队赢的并不轻松](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-30 07:43 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-30 07:38 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-30 07:52 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:38 - [德国罚丢3粒点球](https://www.share.kurohicncr.top/Article/details/38657466.shtml)
-- 2026-06-30 07:53 - [杨紫获白玉兰视后争议不止](http://www.blog.kurohicncr.top/Article/details/1674162.shtml)
-- 2026-06-30 07:55 - [审核了不止十年的低创鬼畜](http://www.blog.minike.top/Article/details/45003341.shtml)
-- 2026-06-30 07:44 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/68164.shtml)
-- 2026-06-30 07:41 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/219227850.shtml)
-- 2026-06-30 07:34 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/436925410223.shtml)
-- 2026-06-30 07:51 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/29647715502.shtml)
-- 2026-06-30 07:56 - [马耳他著名拱门坍塌致中国男子身亡](http://www.blog.kurohicncr.top/Article/details/20586473519.shtml)
-- 2026-06-30 07:31 - [张帅晋级温网次轮](https://www.blog.minike.top/Article/details/45413927.shtml)
-- 2026-06-30 07:39 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](http://www.share.minike.top/Article/details/22440186669.shtml)
-- 2026-06-30 07:34 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/74419.shtml)
-- 2026-06-30 07:40 - [张凌赫杨超越 峨眉](http://www.blog.minike.top/Article/details/06213.shtml)
-- 2026-06-30 07:49 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/3928217373.shtml)
-- 2026-06-30 07:41 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.kurohicncr.top/Article/details/71266389708.shtml)
-- 2026-06-30 07:44 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/67449554253.shtml)
+- 2026-06-30 07:42 - [女子清吧被陌生人投放伟哥](https://www.blog.kurohicncr.top/Article/details/78642783.shtml)
+- 2026-06-30 07:38 - [为什么会有「念旧」的心理？](https://www.share.minike.top/Article/details/533320739619.shtml)
+- 2026-06-30 07:52 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/102369230554.shtml)
+- 2026-06-30 07:47 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/3420009921.shtml)
+- 2026-06-30 07:51 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.minike.top/Article/details/8371344.shtml)
+- 2026-06-30 08:03 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/1003694437.shtml)
+- 2026-06-30 07:46 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/7424081423.shtml)
+- 2026-06-30 07:45 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/01258663185.shtml)
+- 2026-06-30 07:38 - [斗破苍穹](http://www.share.minike.top/Article/details/7471485.shtml)
+- 2026-06-30 07:44 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/4770418.shtml)
+- 2026-06-30 07:40 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.kurohicncr.top/Article/details/95070644106.shtml)
+- 2026-06-30 07:55 - [杨紫获白玉兰视后争议不止](https://www.blog.kurohicncr.top/Article/details/93587523588.shtml)
+- 2026-06-30 07:41 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/3706845921.shtml)
+- 2026-06-30 07:56 - [徐亮怒斥世界杯踢假球](https://www.share.kurohicncr.top/Article/details/851206913.shtml)
+- 2026-06-30 07:53 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/3812745.shtml)

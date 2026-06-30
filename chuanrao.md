@@ -1,57 +1,59 @@
-# 邮储银行助力园区发展，赋能科技企业攀高峰
+# “熔金择粹——深圳水贝黄金珠宝艺术展”在北京开幕
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-产业园区是涌动蓬勃发展活力的“科技高地”与“创新策源地”。邮储银行聚焦产业园区全方位发展需求，通过派驻金融专员、赋能科技人才、定制综合方案等多元举措，着力提供专业化、精准化、综合化的园区金融服务，聚力支持园区内科技型企业创新发展。截至2026年一季度末，邮储银行已服务科技型企业超11万户，科技贷款余额超1万亿元——这组数字生动地见证了邮储银行与产业园区并肩前行、共同谱写高质量发
+中新网北京6月23日电 (陈昊星)6月23日，“熔金择粹——深圳水贝黄金珠宝艺术展”在中国工艺美术馆(中国非物质文化遗产馆)正式开幕。本次展览由深圳市委宣传部、中国工艺美术馆(中国非物质文化遗产馆)指导，深圳市文化广电旅游体育局、深圳市罗湖区人民政府主办，深圳博物馆、深圳市罗湖区商务局、深圳市罗湖区文化广电旅游体育局承办。中国工艺美术馆(中国非物质文化遗产馆)党委书记王晨阳，深
 
 ## 正文
 
-产业园区是涌动蓬勃发展活力的“科技高地”与“创新策源地”。
+中新网北京6月23日电 (陈昊星)6月23日，“熔金择粹——深圳水贝黄金珠宝艺术展”在中国工艺美术馆(中国非物质文化遗产馆)正式开幕。
 
-邮储银行聚焦产业园区全方位发展需求，通过派驻金融专员、赋能科技人才、定制综合方案等多元举措，着力提供专业化、精准化、综合化的园区金融服务，聚力支持园区内科技型企业创新发展。
+本次展览由深圳市委宣传部、中国工艺美术馆(中国非物质文化遗产馆)指导，深圳市文化广电旅游体育局、深圳市罗湖区人民政府主办，深圳博物馆、深圳市罗湖区商务局、深圳市罗湖区文化广电旅游体育局承办。
 
-截至2026年一季度末，邮储银行已服务科技型企业超11万户，科技贷款余额超1万亿元——这组数字生动地见证了邮储银行与产业园区并肩前行、共同谱写高质量发展篇章的坚实足迹。
+中国工艺美术馆(中国非物质文化遗产馆)党委书记王晨阳，深圳市委宣传部常务副部长曾相莱等嘉宾出席。
 
-驻点深耕，贴身服务园区发展 轨道列车飞驰、航空发动机轰鸣，“中国动力谷”的核心园区——株洲高新区这片创新沃土汇聚着大量新兴未来产业的优质科技客群，也对金融服务的效率与温度提出更高要求。
+该展览是中国工艺美术馆建馆以来首次以地方黄金珠宝产业为主题的大型专题展览。
 
-湖南株洲市分行为株洲高新区提供贴身零距离式金融服务，从全辖选拔骨干力量、组建园区专员团队，将服务窗口直接“搬”进园区，建立一站式金融服务。
+展览以“国民珠宝”为核心叙事，展出近500件黄金珠宝艺术品，集聚77家珠宝行业龙头企业和独立设计师品牌，分为“藏礼于器”“宝涵雅志”“华光万家”“数智焕珍”四大板块。
 
-在株洲高新区栗雨工业园区内，一家省级专精特新“小巨人”企业存在流动资金周转及供应链金融服务诉求。
+当代金雕艺术开拓者吴卿最新作品《梅花(摆件)》、西普尼“非遗十二时辰”系列腕表等艺术品首次亮相在公众面前。
 
-株洲市分行获悉企业需求后，专项团队迅速对接，经了解企业的经营模式、结算习惯与上下游交易场景，量身定制“流动资金贷款+信用证”方案，企业依托邮储银行提供的9000万元资金支持，保证了日常生产经营的连续性。
+展览将持续至8月30日，面向社会公众免费开放。
 
-黑龙江省分行主动对接大庆高新区管委会，联合举办银企交流会，向企业介绍金融服务，搭建“园-银-企”三方互通桥梁。
+深圳市文化广电旅游体育局党组成员、副局长施文丽在致辞中指出，本次展览兼具多重深意：一是传承非遗文脉，近500件展品集中展示花丝镶嵌、锤揲錾刻等传统技艺传承，让观众读懂千年匠心背后的坚守；二是彰显科创成果，集聚77家行业龙头企业和独立设计师品牌，全方位展现深圳“文化+科技+产业”深度融合、非遗活态转化的实践成效；三是讲好产业故事，以“熔金择粹”萃取深圳市罗湖区水贝片区四十载发展精华，讲述从加工工厂迈向文化高地的时代故事。
 
 ## 相关推荐
 
-- 2026-06-30 07:32 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
-- 2026-06-30 07:31 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
-- 2026-06-30 07:36 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
-- 2026-06-30 07:31 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-30 07:55 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-30 07:35 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
-- 2026-06-30 07:59 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-30 07:43 - [马耳他著名拱门坍塌致中国男子身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
-- 2026-06-30 07:50 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-30 07:55 - [马耳他著名拱门坍塌致中国男子身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-30 07:51 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-30 07:58 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-30 07:56 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-30 07:51 - [媒体：手机测评该挤挤水分了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-30 07:44 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-30 08:00 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-30 07:57 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-30 07:56 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
+- 2026-06-30 07:48 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-30 07:43 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-30 07:57 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-30 07:41 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-30 08:02 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-30 07:50 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:31 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/11921.shtml)
-- 2026-06-30 07:59 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/084472339.shtml)
-- 2026-06-30 07:46 - [巴拉圭率先破门](http://www.share.kurohicncr.top/Article/details/652819905.shtml)
-- 2026-06-30 07:40 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.minike.top/Article/details/939528216396.shtml)
-- 2026-06-30 07:50 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.kurohicncr.top/Article/details/325064.shtml)
-- 2026-06-30 07:53 - [德国进球被吹](https://www.blog.kurohicncr.top/Article/details/08253420.shtml)
-- 2026-06-30 07:59 - [我觉得你是在无中生友](https://www.share.kurohicncr.top/Article/details/72851417.shtml)
-- 2026-06-30 07:38 - [本届世界杯已有5名球员被控强奸](http://www.share.kurohicncr.top/Article/details/592485039025.shtml)
-- 2026-06-30 07:30 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/24192452265.shtml)
-- 2026-06-30 07:49 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/935791644229.shtml)
-- 2026-06-30 07:31 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/384646726858.shtml)
-- 2026-06-30 07:58 - [日本 高位逼抢](https://www.share.minike.top/Article/details/415806590125.shtml)
-- 2026-06-30 07:57 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/946660.shtml)
-- 2026-06-30 07:41 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/6494936.shtml)
-- 2026-06-30 07:36 - [武磊：日本队有能力跟任何强队抗衡](https://www.blog.kurohicncr.top/Article/details/34444.shtml)
+- 2026-06-30 07:42 - [速度与激情9](https://www.share.minike.top/Article/details/383196668.shtml)
+- 2026-06-30 07:51 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/5438808.shtml)
+- 2026-06-30 07:59 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/2763750.shtml)
+- 2026-06-30 07:40 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.kurohicncr.top/Article/details/47485.shtml)
+- 2026-06-30 07:57 - [亚洲球队全部告别世界杯](https://www.share.minike.top/Article/details/861101112.shtml)
+- 2026-06-30 07:50 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/97281920.shtml)
+- 2026-06-30 07:50 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/39379615.shtml)
+- 2026-06-30 07:56 - [美股深夜大反弹 特斯拉飙涨8%](https://www.blog.kurohicncr.top/Article/details/7164735337.shtml)
+- 2026-06-30 07:48 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/0132359.shtml)
+- 2026-06-30 07:42 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/8410546202.shtml)
+- 2026-06-30 07:51 - [一见倾心](http://www.share.minike.top/Article/details/233309338524.shtml)
+- 2026-06-30 07:59 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/25755809.shtml)
+- 2026-06-30 07:43 - [巴西2-1绝杀日本](http://www.share.kurohicncr.top/Article/details/786455138.shtml)
+- 2026-06-30 08:05 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/7853631.shtml)
+- 2026-06-30 07:44 - [王源近几年没有路演了](https://www.share.minike.top/Article/details/8582031.shtml)

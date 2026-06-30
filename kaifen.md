@@ -1,53 +1,50 @@
-# 中国银行：“缤纷生活”APP将于2026年6月30日24时起全面停止服务
+# 伊朗称并未计划允许国际原子能机构检查受损核设施
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-5月13日金融一线消息，中国银行信用卡今日在官方微信号发布了关于“缤纷生活”APP停止服务的公告。在公告中，中国银行表示，为进一步整合服务资源，优化线上金融服务体验，该行对移动金融服务渠道进行优化升级。“缤纷生活”APP将于2026年6月30日24时起全面停止服务。停止服务后，“缤纷生活”APP将无法登录、查询及办理相关业务。 责任编辑：王馨茹
+伊朗外交部发言人Esmail Baghaei在每周例行新闻发布会上表示，伊朗并未计划让国际原子能机构检查在美国和以色列军事袭击中受损的核设施，且目前尚无此类检查的相关规程。 Baghaei表示，作为不扩散核武器条约（NPT）的缔约国，伊朗将继续遵循正常程序，但没有详细说明。责任编辑：刘明亮
 
 ## 正文
 
-5月13日金融一线消息，中国银行信用卡今日在官方微信号发布了关于“缤纷生活”APP停止服务的公告。
+伊朗外交部发言人Esmail Baghaei在每周例行新闻发布会上表示，伊朗并未计划让国际原子能机构检查在美国和以色列军事袭击中受损的核设施，且目前尚无此类检查的相关规程。
 
-在公告中，中国银行表示，为进一步整合服务资源，优化线上金融服务体验，该行对移动金融服务渠道进行优化升级。
+Baghaei表示，作为不扩散核武器条约（NPT）的缔约国，伊朗将继续遵循正常程序，但没有详细说明。
 
-“缤纷生活”APP将于2026年6月30日24时起全面停止服务。
-
-停止服务后，“缤纷生活”APP将无法登录、查询及办理相关业务。
-
-责任编辑：王馨茹
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-30 07:38 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-30 07:32 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-30 07:48 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-30 07:46 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-30 07:40 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
-- 2026-06-30 07:31 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-30 07:46 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-30 07:43 - [德国4比5巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-30 07:48 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-30 07:51 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
-- 2026-06-30 07:39 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-30 07:37 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-30 07:54 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-30 08:01 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-30 07:53 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-30 07:46 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-30 07:57 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-30 07:44 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-30 07:37 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-30 08:02 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-30 07:39 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-30 08:01 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
+- 2026-06-30 07:57 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-30 07:39 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-30 07:42 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-30 07:59 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-30 07:48 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:31 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/2108862010.shtml)
-- 2026-06-30 07:32 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/00856187.shtml)
-- 2026-06-30 07:48 - [德国 传控](https://www.share.kurohicncr.top/Article/details/442793.shtml)
-- 2026-06-30 07:47 - [绘画区你赢了](http://www.blog.minike.top/Article/details/876379677.shtml)
-- 2026-06-30 07:44 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/569717.shtml)
-- 2026-06-30 07:33 - [孙兴慜发长文致歉](http://www.share.minike.top/Article/details/62482349397.shtml)
-- 2026-06-30 07:45 - [巴西扳平比分](http://www.blog.kurohicncr.top/Article/details/8950878.shtml)
-- 2026-06-30 07:52 - [张月感谢了每一公的队友](https://www.share.minike.top/Article/details/305702.shtml)
-- 2026-06-30 07:30 - [安切洛蒂 换人](http://www.share.kurohicncr.top/Article/details/71171.shtml)
-- 2026-06-30 07:49 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.kurohicncr.top/Article/details/1144695957.shtml)
-- 2026-06-30 07:33 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/0736304.shtml)
-- 2026-06-30 07:57 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/77190.shtml)
-- 2026-06-30 07:59 - [青春环游记第三季](https://www.share.minike.top/Article/details/6750930.shtml)
-- 2026-06-30 07:36 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/36292468.shtml)
-- 2026-06-30 07:37 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/0955160514.shtml)
+- 2026-06-30 08:00 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.minike.top/Article/details/070213982724.shtml)
+- 2026-06-30 07:46 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/2180606256.shtml)
+- 2026-06-30 07:37 - [爱很美味](https://www.share.minike.top/Article/details/1720650021.shtml)
+- 2026-06-30 07:53 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.minike.top/Article/details/9893374223.shtml)
+- 2026-06-30 07:46 - [武磊：巴西队赢的并不轻松](http://www.blog.kurohicncr.top/Article/details/602756461206.shtml)
+- 2026-06-30 08:04 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.minike.top/Article/details/9153365896.shtml)
+- 2026-06-30 07:55 - [世界杯](https://www.blog.minike.top/Article/details/01731857.shtml)
+- 2026-06-30 07:59 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/39191.shtml)
+- 2026-06-30 08:03 - [孙兴慜发长文致歉](http://www.share.minike.top/Article/details/24992.shtml)
+- 2026-06-30 07:39 - [父母催婚话术是如何做到全国统一的](https://www.share.minike.top/Article/details/0130390188.shtml)
+- 2026-06-30 08:04 - [世界杯：德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/242593609630.shtml)
+- 2026-06-30 08:03 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/887750241849.shtml)
+- 2026-06-30 07:54 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/226601657738.shtml)
+- 2026-06-30 07:53 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/26386076901.shtml)
+- 2026-06-30 07:40 - [王欣瑜2-1击败科恰雷托](https://www.blog.kurohicncr.top/Article/details/3897332637.shtml)

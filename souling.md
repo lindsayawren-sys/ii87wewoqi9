@@ -1,57 +1,45 @@
-# Algoma Steel目标第四季度调整后EBITDA盈亏平衡
+# 牧原股份：公司已对包括非瘟在内的主要疾病实现全面、常态化的防控管理
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-加拿大钢铁生产商Algoma Steel Group Inc．在发布2026财年第一季度财报后召开电话会议，管理层明确表示，随着电弧炉产能爬坡和产能利用率调整费用逐步降低，公司目标在第四季度实现调整后EBITDA盈亏平衡。 产能利用率调整费用：从9000万美元到0 Algoma Steel在2026财年第一季度录得9020万美元的产能利用率调整费用，主要源于公司从传统高炉炼钢加
+证券日报网讯 6月22日，牧原股份在互动平台回答投资者提问时表示，当前公司已对包括非瘟在内的主要疾病实现全面、常态化的防控管理，围绕健康管理研发各类智能装备，不断优化疫病防控标准化业务流程，对于人员、物资、车辆等进行全面管理，同时加强对员工的培训赋能，确保各项生物安全措施在一线得到有效执行，保障生产经营的稳定运行。（文章来源：证券日报）
 
 ## 正文
 
-加拿大钢铁生产商Algoma Steel Group Inc．在发布2026财年第一季度财报后召开电话会议，管理层明确表示，随着电弧炉产能爬坡和产能利用率调整费用逐步降低，公司目标在第四季度实现调整后EBITDA盈亏平衡。
+证券日报网讯 6月22日，牧原股份在互动平台回答投资者提问时表示，当前公司已对包括非瘟在内的主要疾病实现全面、常态化的防控管理，围绕健康管理研发各类智能装备，不断优化疫病防控标准化业务流程，对于人员、物资、车辆等进行全面管理，同时加强对员工的培训赋能，确保各项生物安全措施在一线得到有效执行，保障生产经营的稳定运行。
 
-产能利用率调整费用：从9000万美元到0 Algoma Steel在2026财年第一季度录得9020万美元的产能利用率调整费用，主要源于公司从传统高炉炼钢加速向全新电弧炉平台过渡，产量偏低导致固定成本吸收不足。
-
-这一项目本质上代表在爬坡期产生的超额固定成本，是当前亏损的核心来源。
-
-首席财务官表示，这一费用预计将逐季下降，并将在第四季度彻底消除。
-
-一季度业绩：过渡性低谷符合预期 一季度数据清晰地反映了转型期的财务特征。
-
-公司综合营收为2.969亿美元，同比下滑；净亏损为1.594亿美元。
-
-调整后EBITDA亏损为2870万美元，但这一亏损包含了9020万美元的产能利用率调整费用。
-
-若剔除该影响，经营层面的EBITDA表现实际有所改善。
+（文章来源：证券日报）
 
 ## 相关推荐
 
-- 2026-06-30 07:47 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
-- 2026-06-30 07:31 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-30 07:55 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
-- 2026-06-30 07:59 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-30 07:51 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
-- 2026-06-30 07:41 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-30 07:59 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-30 07:34 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
-- 2026-06-30 07:58 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
-- 2026-06-30 07:34 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-30 07:39 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-30 08:00 - [F1奥地利站赛后复盘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-30 07:46 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-30 07:36 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-30 07:42 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-30 08:05 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-30 08:05 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-30 07:42 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-30 07:48 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-30 07:52 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-30 07:55 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-30 07:56 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:35 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.kurohicncr.top/Article/details/7958084427.shtml)
-- 2026-06-30 07:43 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/8515243.shtml)
-- 2026-06-30 07:34 - [曝詹姆斯即将与勇士会面](https://www.share.minike.top/Article/details/095597110.shtml)
-- 2026-06-30 07:33 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/4239197495.shtml)
-- 2026-06-30 07:42 - [有什么好的高中网课推荐吗？](http://www.blog.kurohicncr.top/Article/details/74425702040.shtml)
-- 2026-06-30 07:56 - [日本五次世界杯淘汰赛全败](http://www.share.minike.top/Article/details/976028723.shtml)
-- 2026-06-30 07:34 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/586922832.shtml)
-- 2026-06-30 07:55 - [巴西醒醒 这是淘汰赛](http://www.share.kurohicncr.top/Article/details/32837.shtml)
-- 2026-06-30 07:30 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/18576.shtml)
-- 2026-06-30 07:45 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/3145256050.shtml)
-- 2026-06-30 07:39 - [巴西vs日本](https://www.share.minike.top/Article/details/848987.shtml)
-- 2026-06-30 07:36 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/96485.shtml)
-- 2026-06-30 07:37 - [全球最火存储ETF纳入兆易创新](https://www.share.kurohicncr.top/Article/details/905737498596.shtml)
-- 2026-06-30 07:39 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/199571270.shtml)
-- 2026-06-30 07:55 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/70500798638.shtml)
+- 2026-06-30 07:46 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/994048355036.shtml)
+- 2026-06-30 07:37 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/808847.shtml)
+- 2026-06-30 08:05 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://www.blog.minike.top/Article/details/802030.shtml)
+- 2026-06-30 08:02 - [世界杯巴拉圭点球淘汰德国](https://www.share.minike.top/Article/details/35113.shtml)
+- 2026-06-30 07:53 - [巴拉圭先进球了](http://www.share.kurohicncr.top/Article/details/38751.shtml)
+- 2026-06-30 07:37 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/398979352.shtml)
+- 2026-06-30 08:03 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/563925222887.shtml)
+- 2026-06-30 07:44 - [千与千寻](http://www.blog.minike.top/Article/details/00090878.shtml)
+- 2026-06-30 07:58 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/445002.shtml)
+- 2026-06-30 07:42 - [委内瑞拉地震死亡人数升至1719人](http://www.blog.kurohicncr.top/Article/details/572255.shtml)
+- 2026-06-30 07:54 - [警犬“多多”助民警寻回失联老人](http://www.blog.minike.top/Article/details/643198.shtml)
+- 2026-06-30 07:49 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/29601177232.shtml)
+- 2026-06-30 07:38 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/806874.shtml)
+- 2026-06-30 07:53 - [又一美国科技巨头转向中国大模型](https://www.blog.minike.top/Article/details/5186421467.shtml)
+- 2026-06-30 07:58 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/904408558817.shtml)

@@ -1,58 +1,59 @@
-# Yeti一季度业绩超预期 盘前大涨10%
+# 北京温潮减河工程首座跨河桥梁建成通车
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-户外用品公司Yeti Holdings股价在周四盘前交易中大涨10%，此前该公司公布的第一季度财报营收和利润双双超出市场预期。 业绩全面超预期 财报显示，Yeti第一季度调整后每股收益为26美分，远高于FactSet分析师普遍预期的18美分。营收为3.804亿美元，同样超过市场预期的3.747亿美元。不过，按照美国通用会计准则计算，公司净利润为990万美元，合每股13美分，较去
+中新网北京6月22日电 (陈杭 周杰 高韦懿)记者22日从北京市水务局获悉，随着最后一批交通标线施划完成，北京温潮减河工程关键节点——温榆河左堤路桥正式建成投入使用，按期实现主汛期前通车目标。这座桥梁是温潮减河工程首座完工并投入使用的跨河路桥。 此次通车的温榆河左堤路桥位于温潮减河起点，横跨温榆河与温潮减河交汇处。桥梁全长267米，设计为双向单车道，整体呈南北走向，贯通了温榆河
 
 ## 正文
 
-户外用品公司Yeti Holdings股价在周四盘前交易中大涨10%，此前该公司公布的第一季度财报营收和利润双双超出市场预期。
+中新网北京6月22日电 (陈杭 周杰 高韦懿)记者22日从北京市水务局获悉，随着最后一批交通标线施划完成，北京温潮减河工程关键节点——温榆河左堤路桥正式建成投入使用，按期实现主汛期前通车目标。
 
-业绩全面超预期 财报显示，Yeti第一季度调整后每股收益为26美分，远高于FactSet分析师普遍预期的18美分。
+这座桥梁是温潮减河工程首座完工并投入使用的跨河路桥。
 
-营收为3.804亿美元，同样超过市场预期的3.747亿美元。
+此次通车的温榆河左堤路桥位于温潮减河起点，横跨温榆河与温潮减河交汇处。
 
-不过，按照美国通用会计准则计算，公司净利润为990万美元，合每股13美分，较去年同期的0.20美元有所下降，主要受关税成本影响。
+桥梁全长267米，设计为双向单车道，整体呈南北走向，贯通了温榆河左堤防汛巡护通道，将有力保障防汛巡查与应急处置车辆快速抵达重点防护区域，提升险情处置效率，在北京主汛期将要来临之际，为安全度汛筑牢坚实防线。
 
-公司首席执行官Matt Reintjes表示：“我们的第一季度业绩为2026年开了个好头，在第四季度的基础上进一步加速。
+同时，桥梁配套的慢行通道衔接了温榆河及在建温潮减河未来的滨水绿道，可满足市民休闲游览需求，并为附近居民提供出行便利。
 
-Yeti在美国的饮品容器和冷藏箱设备两大品类均看到了异常强劲的消费者终端需求。
+据温潮减河工程项目负责人介绍，该桥梁建设过程中面临地下水位高、冬季施工气温低、汛前工期紧张等挑战。
 
-” 各品类全面增长 从业务板块来看，冷藏箱及设备销售额增长11%至1.561亿美元，饮品容器销售额增长5%至2.169亿美元。
+北京市水务建设管理事务中心组织施工单位优化全流程施工组织，分区分段设置导行路前置施工等一系列管理与技术手段，系统性完善基坑支护、冬季保温养护、水下桩基护壁等专项措施。
 
-渠道方面，批发渠道销售增长19%，创下三年多来最佳季度表现；直销渠道销售持平于1.968亿美元。
+工程完工后，桥梁荷载及通行配套各项功能性试验全部顺利通过，主体与附属设施各项技术指标均满足设计要求。
 
 ## 相关推荐
 
-- 2026-06-30 07:31 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
-- 2026-06-30 07:45 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
-- 2026-06-30 07:52 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-30 07:57 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-30 07:41 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-30 07:31 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
-- 2026-06-30 07:58 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-30 07:56 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-30 07:41 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-30 07:54 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-30 07:57 - [德国淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-30 07:52 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-30 07:48 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-30 07:36 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-30 07:51 - [中国新一轮出口管制直指日本命脉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-30 07:42 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-30 08:04 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
+- 2026-06-30 07:49 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-30 07:44 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-30 07:59 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-30 07:57 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
+- 2026-06-30 08:02 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-30 07:55 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-30 07:57 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-30 07:51 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:53 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/860435.shtml)
-- 2026-06-30 07:30 - [王源近几年没有路演了](http://www.share.minike.top/Article/details/3277688.shtml)
-- 2026-06-30 07:41 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/132455609151.shtml)
-- 2026-06-30 07:35 - [千万不要随便扣肚脐](https://www.share.kurohicncr.top/Article/details/493277632.shtml)
-- 2026-06-30 07:40 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/73927.shtml)
-- 2026-06-30 07:47 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.minike.top/Article/details/34189864555.shtml)
-- 2026-06-30 07:53 - [王欣瑜温网开门红](http://www.blog.kurohicncr.top/Article/details/056914.shtml)
-- 2026-06-30 07:57 - [日本五次世界杯淘汰赛全败](https://www.share.kurohicncr.top/Article/details/3725988673.shtml)
-- 2026-06-30 07:51 - [王欣瑜晋级温网女单次轮](http://www.blog.minike.top/Article/details/948477251653.shtml)
-- 2026-06-30 07:39 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/760969019.shtml)
-- 2026-06-30 07:59 - [补时绝杀 巴西2-1淘汰日本](https://www.share.kurohicncr.top/Article/details/4783127.shtml)
-- 2026-06-30 07:32 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/08596923940.shtml)
-- 2026-06-30 07:42 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/45284.shtml)
-- 2026-06-30 07:48 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/46996.shtml)
-- 2026-06-30 07:42 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/7567343.shtml)
+- 2026-06-30 07:55 - [德国罚丢3粒点球](https://www.blog.minike.top/Article/details/0502123348.shtml)
+- 2026-06-30 07:52 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/3865428.shtml)
+- 2026-06-30 07:38 - [审核了不止十年的低创鬼畜](http://www.blog.minike.top/Article/details/97449581.shtml)
+- 2026-06-30 07:54 - [大蒜晒外面被路过女子连盆端走](https://www.blog.kurohicncr.top/Article/details/1551454.shtml)
+- 2026-06-30 07:54 - [F1奥地利站赛后复盘](http://www.blog.kurohicncr.top/Article/details/32807596912.shtml)
+- 2026-06-30 07:49 - [德国 传控](http://www.share.minike.top/Article/details/16843094275.shtml)
+- 2026-06-30 07:47 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/278257618661.shtml)
+- 2026-06-30 07:37 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.minike.top/Article/details/038507694.shtml)
+- 2026-06-30 07:37 - [第一炉香](https://www.share.kurohicncr.top/Article/details/081589.shtml)
+- 2026-06-30 08:00 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/69040.shtml)
+- 2026-06-30 07:40 - [谢依霖说杨幂是聚会第一把张罗手](http://www.share.kurohicncr.top/Article/details/62462.shtml)
+- 2026-06-30 07:54 - [被巴西绝杀后 日球员田中碧跪地痛哭](http://www.share.minike.top/Article/details/637140418.shtml)
+- 2026-06-30 07:42 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/92938509741.shtml)
+- 2026-06-30 07:37 - [董卿父亲报纸上发文悼念亡妻](https://www.share.minike.top/Article/details/794258030947.shtml)
+- 2026-06-30 07:47 - [南北多地暴雨和强对流天气持续](http://www.blog.kurohicncr.top/Article/details/83628047.shtml)

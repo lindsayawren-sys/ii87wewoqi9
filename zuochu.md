@@ -1,56 +1,45 @@
-# 受需求疲软影响，印度 4 月棕榈油进口量大跌 26%，降至四个月新低
+# 看玻璃海、喂魔鬼鱼、打卡海边书屋……12国媒体人解锁海南绝美海岛
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-印度知名行业机构表示，受机构需求疲软叠加棕榈油价格上涨、与竞品油脂价差收窄影响，棕榈油性价比优势减弱，精炼企业不愿加大采购，印度4月棕榈油进口量暴跌26%，创下四个月新低。 作为全球最大植物油进口国，印度进口量下滑，可能令印尼、马来西亚等主产国库存积压，并拖累马来西亚棕榈油基准期货（FCPOc3）行情。 总部位于孟买的印度溶剂萃取商协会（SEA）周三发布声明称： 印度4月棕榈油
+发布时间：2026年06月23日 07:30 来源：中国新闻网 6月22日，来自泰国、日本、韩国、俄罗斯、加拿大、巴西等12个国家的媒体人走进海南陵水分界洲岛，沉浸式探访这座中国首家海岛型 5A 级景区，近距离体验投喂魔鬼鱼、解锁绝美玻璃海，用镜头和笔触记录海南岛特有的山海风光与可持续海洋生态保护成果，向全球传递海南自贸港开放包容、人与自然共生的海岛形象。(记者 林士杰 李宇凡
 
 ## 正文
 
-印度知名行业机构表示，受机构需求疲软叠加棕榈油价格上涨、与竞品油脂价差收窄影响，棕榈油性价比优势减弱，精炼企业不愿加大采购，印度4月棕榈油进口量暴跌26%，创下四个月新低。
+发布时间：2026年06月23日 07:30 来源：中国新闻网 6月22日，来自泰国、日本、韩国、俄罗斯、加拿大、巴西等12个国家的媒体人走进海南陵水分界洲岛，沉浸式探访这座中国首家海岛型 5A 级景区，近距离体验投喂魔鬼鱼、解锁绝美玻璃海，用镜头和笔触记录海南岛特有的山海风光与可持续海洋生态保护成果，向全球传递海南自贸港开放包容、人与自然共生的海岛形象。
 
-作为全球最大植物油进口国，印度进口量下滑，可能令印尼、马来西亚等主产国库存积压，并拖累马来西亚棕榈油基准期货（FCPOc3）行情。
-
-总部位于孟买的印度溶剂萃取商协会（SEA）周三发布声明称： 印度4月棕榈油进口量从3月的68.9462万吨，降至51.3403万吨，为2025年12月以来最低值。
-
-同期豆油进口量大增25%，至36.035万吨，创四个月新高；葵花籽油进口量飙升约121%，达43.424万吨，创下22个月最高水平。
-
-声明补充称，受葵花籽油、豆油采购量大幅提振，印度植物油总进口量环比上升10%，至131万吨。
-
-印度棕榈油主要从印尼、马来西亚进口；豆油与葵花籽油则主要进口自阿根廷、巴西、俄罗斯及乌克兰。
-
-孟买某全球贸易商从业人士表示：目前精炼利润为负，精炼企业正观望棕榈油价格回调，暂不进行大额采购。
-
-该交易员称，印度目前遭遇食用油供应短缺，餐饮行业尤为明显，直接压低了棕榈油消费需求。
+(记者 林士杰 李宇凡 张月和 部分视频来源海南分界洲岛旅游区） 责任编辑：【陈海峰】
 
 ## 相关推荐
 
-- 2026-06-30 07:50 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-30 07:54 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
-- 2026-06-30 07:58 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-30 07:44 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-30 07:46 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-30 07:59 - [刘宇宁高情商化解谁站C位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
-- 2026-06-30 07:36 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-30 07:40 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-30 07:32 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
-- 2026-06-30 07:59 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-30 07:43 - [恋与深空制作组回应近期争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-30 07:46 - [高质量发展看新疆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-30 07:46 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-30 08:00 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-30 07:40 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-30 08:01 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-30 08:00 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-30 07:52 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-30 07:44 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-30 07:44 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-30 07:41 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:33 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/31388972990.shtml)
-- 2026-06-30 07:43 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/4561983.shtml)
-- 2026-06-30 07:57 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/615485953719.shtml)
-- 2026-06-30 07:54 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/2765992.shtml)
-- 2026-06-30 07:30 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/8217146100.shtml)
-- 2026-06-30 07:44 - [补时绝杀 巴西2-1淘汰日本](http://www.share.minike.top/Article/details/03059447909.shtml)
-- 2026-06-30 07:37 - [巴西补时绝杀日本](https://www.blog.kurohicncr.top/Article/details/133188648562.shtml)
-- 2026-06-30 07:32 - [问心2神一集鬼三集](http://www.blog.minike.top/Article/details/89751.shtml)
-- 2026-06-30 07:36 - [森保一致歉：世界第一目标没能实现](https://www.blog.minike.top/Article/details/5199892531.shtml)
-- 2026-06-30 07:32 - [亚洲球队全部告别世界杯](https://www.blog.kurohicncr.top/Article/details/1052715.shtml)
-- 2026-06-30 07:35 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/124059828.shtml)
-- 2026-06-30 07:51 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.share.minike.top/Article/details/5112233.shtml)
-- 2026-06-30 07:51 - [曝老詹对自由市场态度与以往截然不同](https://www.share.kurohicncr.top/Article/details/026453822802.shtml)
-- 2026-06-30 07:32 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.minike.top/Article/details/857485129598.shtml)
-- 2026-06-30 07:30 - [杨紫被质疑未使用原名纯属误解](https://www.blog.minike.top/Article/details/1878444.shtml)
+- 2026-06-30 07:38 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/822070.shtml)
+- 2026-06-30 07:42 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/542281963458.shtml)
+- 2026-06-30 07:52 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/25347.shtml)
+- 2026-06-30 07:59 - [日本领先巴西](https://www.share.kurohicncr.top/Article/details/48781857851.shtml)
+- 2026-06-30 07:58 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/254607566270.shtml)
+- 2026-06-30 07:42 - [德国进球被吹](http://www.blog.minike.top/Article/details/503464969.shtml)
+- 2026-06-30 07:55 - [爱很美味](https://www.share.kurohicncr.top/Article/details/6272098197.shtml)
+- 2026-06-30 07:36 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.minike.top/Article/details/73298474.shtml)
+- 2026-06-30 07:39 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/37605886568.shtml)
+- 2026-06-30 07:51 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/254777523181.shtml)
+- 2026-06-30 07:41 - [卢卡申科发布解放军仪仗队视频](http://www.blog.minike.top/Article/details/4853946704.shtml)
+- 2026-06-30 08:05 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/0727660605.shtml)
+- 2026-06-30 07:49 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/95877.shtml)
+- 2026-06-30 07:56 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/04800373.shtml)
+- 2026-06-30 07:36 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/837486879203.shtml)

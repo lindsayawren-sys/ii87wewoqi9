@@ -1,61 +1,59 @@
-# 西安碑林博物馆举办陕鲁碑刻与画像石拓片集珍展
+# “辽聊共同体”红色宣讲进基层 以抗战史铸牢共同体意识
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-中新网西安5月14日电 (记者 阿琳娜)记者14日从西安碑林博物馆获悉，“汉艺双楫——陕鲁碑刻与画像石拓片集珍展”将于15日在西安碑林博物馆展出，展览以“文字之碑”与“图像之石”为双翼，内容涵盖历史故事、神话传说、生产生活、祥禽瑞兽等丰富题材，系统呈现汉代文化在统一帝国下的多元表达与精神高度。 据介绍，汉代开创了中国大规模使用石刻的先河，迎来了石刻发展史上的第一个高潮。汉碑与画
+中新网沈阳6月22日电 (王涵) 6月22日，由辽宁省委统战部、辽宁省民族和宗教事务委员会主办，沈阳市委统战部、沈阳市民族和宗教事务局、沈阳市和平区委统战部承办的“辽聊共同体”系列活动——“红色抗战热土·圆梦聚力同心”铸牢中华民族共同体意识首场专题宣讲，在沈阳和平区举行。来自和平区10个街道的120名社区代表、50名少数民族联谊会代表及市区统战、民宗干部共200余人到场。 本次
 
 ## 正文
 
-中新网西安5月14日电 (记者 阿琳娜)记者14日从西安碑林博物馆获悉，“汉艺双楫——陕鲁碑刻与画像石拓片集珍展”将于15日在西安碑林博物馆展出，展览以“文字之碑”与“图像之石”为双翼，内容涵盖历史故事、神话传说、生产生活、祥禽瑞兽等丰富题材，系统呈现汉代文化在统一帝国下的多元表达与精神高度。
+中新网沈阳6月22日电 (王涵) 6月22日，由辽宁省委统战部、辽宁省民族和宗教事务委员会主办，沈阳市委统战部、沈阳市民族和宗教事务局、沈阳市和平区委统战部承办的“辽聊共同体”系列活动——“红色抗战热土·圆梦聚力同心”铸牢中华民族共同体意识首场专题宣讲，在沈阳和平区举行。
 
-据介绍，汉代开创了中国大规模使用石刻的先河，迎来了石刻发展史上的第一个高潮。
+来自和平区10个街道的120名社区代表、50名少数民族联谊会代表及市区统战、民宗干部共200余人到场。
 
-汉碑与画像石作为文字与图像两大核心类型，是研究汉代制度与社会生活的第一手资料。
+本次宣讲由沈阳“九·一八”历史博物馆红色印记宣讲团担纲，依托九一八事变95周年、新中国审判日本战犯70周年重要历史节点，综合运用馆藏史料、影像资料、情景讲述与现场互动，为各族群众带来一堂沉浸式红色课堂。
 
-联展打破地域界限，从“石刻渊薮”的西安碑林、“孔孟之乡”的济宁以及汉画重镇的米脂等三地博物馆的馆藏中，精选78件(套)汉碑、汉画像石拓片珍品，并特别展出西安碑林博物馆相关馆藏石刻及陶器文物31件。
+宣讲中，主讲人王浩涵以详实史料系统阐释十四年抗战作为世界反法西斯战争序幕的历史意义，解读伟大抗战精神的丰富内涵。
 
-展览设计以汉代美学为内核，提炼汉碑画像石经典图形，融合线条重构古拙灵动之姿；辅以斑驳肌理与红、黑、褐典雅色系，形成与黑白拓片呼应对比的视觉语言。
+宣讲员们从东北抗日义勇军揭竿而起，讲到东北抗联中各族群众并肩作战，生动讲述高鹏振组建抗日队伍、铁血少年营奋勇杀敌，以及杨靖宇、赵一曼等革命先烈舍身报国的英雄事迹。
 
-通过巨幅悬幕与门吏、舞人等特色装置，打破传统边界，构建融汇汉韵与当代审美的沉浸场域，立体呈现生机盎然的汉代石刻艺术世界。
+整场宣讲紧扣铸牢中华民族共同体意识主线，阐明抗战历史是各族人民共同的集体记忆，伟大抗战精神是全民族共有的精神财富，诠释了“国土不可分、国家不可乱、民族不可散、文明不可断”的坚定信念。
 
-三地博物馆精选馆藏，联合举办此展，旨在促进馆际资源整合与交流，实现协同发展，进而让公众更好地了解与感悟中国汉代石刻的丰富蕴含，获得和历史对话、与艺术神交的精神享受，以期传承弘扬中华优秀传统文化。
+“今天听完宣讲内心久久不能平静。
 
-据悉，此次展览由西安碑林博物馆、济宁市博物馆、米脂县博物馆联合主办，展期5个月。
+”和平区光复里社区副书记宣丰元观后深有感触，“当年各族同胞不分你我、携手抵御外侮，用血肉之躯守护家国，这就是民族团结最鲜活的见证。
 
 ## 相关推荐
 
-- 2026-06-30 07:37 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-30 07:50 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
-- 2026-06-30 07:59 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-30 07:58 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-30 07:35 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-30 07:49 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
-- 2026-06-30 07:47 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-30 07:39 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-30 07:37 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-30 07:41 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-30 07:30 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-30 07:58 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-30 07:59 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-30 07:43 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-30 07:48 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-30 07:42 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-30 07:44 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-30 07:54 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
+- 2026-06-30 07:42 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-30 08:02 - [王濛回复黄灿灿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-30 07:48 - [全球芯片巨头史诗级扩产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-30 08:00 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-30 07:49 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-30 07:43 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
+- 2026-06-30 08:05 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-30 08:02 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-30 07:44 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-30 07:39 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:42 - [卡塞米罗头球破门 巴西扳平日本](https://www.share.minike.top/Article/details/74357679759.shtml)
-- 2026-06-30 07:40 - [父母催婚话术是如何做到全国统一的](https://www.blog.minike.top/Article/details/560823291.shtml)
-- 2026-06-30 07:43 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/263080237480.shtml)
-- 2026-06-30 07:45 - [巴拉圭率先破门](https://www.blog.kurohicncr.top/Article/details/48013219481.shtml)
-- 2026-06-30 07:59 - [哈弗茨头球破门](https://www.blog.minike.top/Article/details/120444010037.shtml)
-- 2026-06-30 07:32 - [张凌赫 客串](https://www.blog.minike.top/Article/details/92315.shtml)
-- 2026-06-30 07:38 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/976979752860.shtml)
-- 2026-06-30 07:59 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/8066796498.shtml)
-- 2026-06-30 07:54 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/41822382.shtml)
-- 2026-06-30 07:30 - [日本领先巴西](http://www.blog.kurohicncr.top/Article/details/5122560.shtml)
-- 2026-06-30 07:50 - [韩国球迷凌晨4点接机怒骂主教练](http://www.blog.minike.top/Article/details/575197188244.shtml)
-- 2026-06-30 07:41 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://www.blog.minike.top/Article/details/71858891.shtml)
-- 2026-06-30 07:43 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/47222089477.shtml)
-- 2026-06-30 07:44 - [巴拉圭先进球了](http://www.blog.kurohicncr.top/Article/details/70313663165.shtml)
-- 2026-06-30 07:59 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.kurohicncr.top/Article/details/2231514.shtml)
+- 2026-06-30 07:44 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/647535.shtml)
+- 2026-06-30 08:04 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/46688.shtml)
+- 2026-06-30 07:53 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/72771.shtml)
+- 2026-06-30 07:40 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/982195131379.shtml)
+- 2026-06-30 07:39 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/0944189.shtml)
+- 2026-06-30 07:54 - [人类...完蛋了...](http://www.blog.minike.top/Article/details/93627416378.shtml)
+- 2026-06-30 07:49 - [刘宇宁是去进货了吗](https://www.share.minike.top/Article/details/1069857.shtml)
+- 2026-06-30 08:00 - [上市央企地产商 两年换了三任董事长](http://www.blog.minike.top/Article/details/49867679939.shtml)
+- 2026-06-30 07:52 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/7997202883.shtml)
+- 2026-06-30 07:40 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/41355.shtml)
+- 2026-06-30 07:41 - [王源近几年没有路演了](https://www.share.kurohicncr.top/Article/details/5319283842.shtml)
+- 2026-06-30 07:54 - [天道](https://www.share.kurohicncr.top/Article/details/59237335304.shtml)
+- 2026-06-30 07:46 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/4894384743.shtml)
+- 2026-06-30 07:53 - [德国队连续三届世界杯无缘16强](https://www.share.minike.top/Article/details/4942606.shtml)
+- 2026-06-30 07:38 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/3230906615.shtml)

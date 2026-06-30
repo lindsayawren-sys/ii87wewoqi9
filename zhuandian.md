@@ -1,59 +1,58 @@
-# 刘国中在云南调研时强调 抓实抓细常态化精准帮扶工作 持续巩固拓展脱贫攻坚成果
+# 华侨银行家黄仲咸：裸捐过亿身家助学、建两座大厦“养”慈善
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-新华社昆明5月14日电 中共中央政治局委员、国务院副总理刘国中12日至14日到云南调研。他强调，要深入学习贯彻习近平总书记重要讲话和重要指示批示精神，落实党中央、国务院部署，压紧压实责任，抓实抓细常态化精准帮扶工作，持续巩固拓展脱贫攻坚成果，促进乡村全面振兴，为推进中国式现代化提供基础支撑。 刘国中先后来到玉溪市、红河州和文山州，深入脱贫村、产业基地、帮扶车间、易地搬迁社区和学
+中新网北京6月22日电 题：华侨银行家黄仲咸：裸捐过亿身家助学、建两座大厦“养”慈善 中新网记者 刘洋 今年是印尼华侨银行家黄仲咸诞辰105周年。正于福建展出的“慈善丰碑——黄仲咸与教育基金会”主题展上，丰富的图文史料记录了这位从南安走出来的华侨艰苦创业、倾资兴学的历程。 福建省黄仲咸教育基金会秘书长刘清影也来自南安，她小时候就听村里人常提起一位南洋华侨，捐果苗、拖拉机、肥料和
 
 ## 正文
 
-新华社昆明5月14日电 中共中央政治局委员、国务院副总理刘国中12日至14日到云南调研。
+中新网北京6月22日电 题：华侨银行家黄仲咸：裸捐过亿身家助学、建两座大厦“养”慈善 中新网记者 刘洋 今年是印尼华侨银行家黄仲咸诞辰105周年。
 
-他强调，要深入学习贯彻习近平总书记重要讲话和重要指示批示精神，落实党中央、国务院部署，压紧压实责任，抓实抓细常态化精准帮扶工作，持续巩固拓展脱贫攻坚成果，促进乡村全面振兴，为推进中国式现代化提供基础支撑。
+正于福建展出的“慈善丰碑——黄仲咸与教育基金会”主题展上，丰富的图文史料记录了这位从南安走出来的华侨艰苦创业、倾资兴学的历程。
 
-刘国中先后来到玉溪市、红河州和文山州，深入脱贫村、产业基地、帮扶车间、易地搬迁社区和学校、乡镇卫生院，走访防止返贫致贫对象和脱贫户，调研“三保障”和产业就业帮扶等工作情况。
+福建省黄仲咸教育基金会秘书长刘清影也来自南安，她小时候就听村里人常提起一位南洋华侨，捐果苗、拖拉机、肥料和粮食。
 
-他强调，今年是开展常态化帮扶第一年，要做好政策与工作衔接，守牢不发生规模性返贫致贫底线。
+后来，刘清影到黄仲咸捐办的幼儿园做教师，又在他的公司和基金会任职，与他共事四十余年。
 
-要健全完善监测帮扶体系，科学确定和动态调整帮扶对象，做到早发现、早干预、早帮扶。
+接受中国侨网“华人故事”专访时，刘清影感慨道，黄老虽坐拥亿万身价，但仍保持着勤俭朴素的生活习惯。
 
-要精准落实教育、健康帮扶和住房安全保障政策，持续巩固农村饮水安全保障成果。
+“他是‘苦’出来的，所以做慈善很纯粹，并用长远的眼光和谋略，让慈善事业长久良性发展。
 
-要因地制宜加强产业分类指导和长期培育，健全帮扶项目资产长效管理机制，多渠道做好就业帮扶，促进农民增收。
+” 辗转南洋苦创业 黄仲咸1921年生于福建南安仙都村一户贫苦农家。
 
-要继续做好易地搬迁后续扶持，确保搬迁群众稳得住、逐步能致富。
+7岁起跟随父亲务农、砍柴、经营小买卖，从小习得谋生本领。
 
 ## 相关推荐
 
-- 2026-06-30 07:56 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
-- 2026-06-30 07:43 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
-- 2026-06-30 07:32 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-30 07:51 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-30 07:57 - [网友写差评被店家“挂”门口避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-30 07:48 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-30 07:59 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-30 07:32 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-30 07:46 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-30 07:37 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-30 07:46 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-30 07:43 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
-- 2026-06-30 07:53 - [大蒜晒外面被路过女子连盆端走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-30 08:03 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-30 07:50 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-30 07:54 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-30 07:46 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-30 07:59 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
+- 2026-06-30 07:57 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
+- 2026-06-30 07:52 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-30 07:43 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-30 08:01 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-30 08:01 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-30 07:46 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
+- 2026-06-30 07:43 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:34 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/65781429.shtml)
-- 2026-06-30 07:30 - [F1奥地利站赛后复盘](http://www.share.minike.top/Article/details/84773467.shtml)
-- 2026-06-30 07:35 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.share.minike.top/Article/details/57190183.shtml)
-- 2026-06-30 07:37 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/390297.shtml)
-- 2026-06-30 07:45 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/186745820860.shtml)
-- 2026-06-30 07:32 - [日本反击率先破门](https://www.blog.kurohicncr.top/Article/details/970435002466.shtml)
-- 2026-06-30 07:30 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/030069561556.shtml)
-- 2026-06-30 07:49 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.minike.top/Article/details/1860693.shtml)
-- 2026-06-30 07:42 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/82770323.shtml)
-- 2026-06-30 07:39 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.kurohicncr.top/Article/details/35490866702.shtml)
-- 2026-06-30 07:44 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/48854.shtml)
-- 2026-06-30 07:49 - [啊啊啊](http://www.blog.minike.top/Article/details/03079.shtml)
-- 2026-06-30 07:43 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/9355542595.shtml)
-- 2026-06-30 07:41 - [全球芯片巨头史诗级扩产](http://www.share.kurohicncr.top/Article/details/3719191.shtml)
-- 2026-06-30 07:56 - [点球大战](http://www.blog.kurohicncr.top/Article/details/564842348688.shtml)
+- 2026-06-30 07:53 - [日本五次世界杯淘汰赛全败](https://www.blog.minike.top/Article/details/1739201.shtml)
+- 2026-06-30 08:04 - [日本16强魔咒](http://www.share.minike.top/Article/details/645233076066.shtml)
+- 2026-06-30 07:55 - [金鹰奖视后提名预测](http://www.share.kurohicncr.top/Article/details/00675750441.shtml)
+- 2026-06-30 07:54 - [医药暴涨5.91%背后](https://www.share.minike.top/Article/details/79030.shtml)
+- 2026-06-30 08:02 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/38786526.shtml)
+- 2026-06-30 07:59 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.minike.top/Article/details/512870579891.shtml)
+- 2026-06-30 08:02 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.share.minike.top/Article/details/3277571.shtml)
+- 2026-06-30 07:36 - [田中碧失误](https://www.blog.minike.top/Article/details/0130547.shtml)
+- 2026-06-30 07:55 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/139737652.shtml)
+- 2026-06-30 07:36 - [女子遭下药退赔偿拟追刑责](http://www.blog.kurohicncr.top/Article/details/005530.shtml)
+- 2026-06-30 07:40 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.minike.top/Article/details/546872654.shtml)
+- 2026-06-30 07:48 - [德国 传控](https://www.blog.kurohicncr.top/Article/details/38401996624.shtml)
+- 2026-06-30 07:44 - [泰山景区回应修建刀片刺绳隔离网](https://www.blog.kurohicncr.top/Article/details/79177502231.shtml)
+- 2026-06-30 07:42 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/5060587176.shtml)
+- 2026-06-30 07:45 - [美人鱼](http://www.blog.minike.top/Article/details/795673319.shtml)

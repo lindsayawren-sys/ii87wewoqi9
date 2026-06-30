@@ -1,58 +1,57 @@
-# 华英农业或将易主！募资“补血”背后业绩承压
+# SpaceX周一盘前股价跌超4%，延续此前抛售行情
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-华英农业收到控股股东鼎新兴华通知，公司将易主。本次权益变动后公司控股股东将变更为信阳产投，实控人将变更为信阳市财政局。来源｜读创财经编辑｜靳恩琦 责编｜朱峰5月14日晚间，华英农业（002321）发布公告称，公司收到控股股东信阳市鼎新兴华产业投资合伙企业（有限合伙）（以下简称“鼎新兴华”）的通知，鼎新兴华全体合伙人共同签署了《关于鼎新兴华之清算分配协议》。在此之前，华英农业收到
+核心要点 SpaceX 周一盘前股价跌幅超4%，延续了此前的抛售行情。在完成创纪录的 IPO、股价迎来一波大涨之后，该股已连续两个完整交易日走低。 这家由埃隆・马斯克执掌的航天与人工智能企业，在 6 月 12 日完成轰动资本市场的上市后，跻身全球估值最高的企业之列。上市后前两个完整交易日，SpaceX 股价大幅飙升，周二其市值一度超越亚马逊，短暂超过微软，随后再度回落至两家企业
 
 ## 正文
 
-华英农业收到控股股东鼎新兴华通知，公司将易主。
+核心要点 SpaceX 周一盘前股价跌幅超4%，延续了此前的抛售行情。
 
-本次权益变动后公司控股股东将变更为信阳产投，实控人将变更为信阳市财政局。
+在完成创纪录的 IPO、股价迎来一波大涨之后，该股已连续两个完整交易日走低。
 
-来源｜读创财经编辑｜靳恩琦 责编｜朱峰5月14日晚间，华英农业（002321）发布公告称，公司收到控股股东信阳市鼎新兴华产业投资合伙企业（有限合伙）（以下简称“鼎新兴华”）的通知，鼎新兴华全体合伙人共同签署了《关于鼎新兴华之清算分配协议》。
+这家由埃隆・马斯克执掌的航天与人工智能企业，在 6 月 12 日完成轰动资本市场的上市后，跻身全球估值最高的企业之列。
 
-在此之前，华英农业收到鼎新兴华函告，鼎新兴华全体合伙人一致同意鼎新兴华解散，并将鼎新兴华持有的华英农业股份通过非交易过户方式分配给全体合伙人。
+上市后前两个完整交易日，SpaceX 股价大幅飙升，周二其市值一度超越亚马逊，短暂超过微软，随后再度回落至两家企业市值之下。
 
-华英农业表示，鼎新兴华完成股份分配后，其各合伙人由通过鼎新兴华间接持有华英农业股份将变为直接持股。
+在上周五六月节假期来临前，该股上周三、周四分别大跌 5%、3.6%。
 
-其中，信阳市产业投资集团有限公司（以下简称“信阳产投”）及其一致行动人信阳华信将合计持有华英农业21.81%股份。
+本次 IPO 发行价定为每股 135 美元，截至上周四收盘，该股较发行价依旧累计上涨 37%。
 
-本次权益变动后，华英农业控股股东将变更为信阳产投，实际控制人将变更为信阳市财政局。
+看多的投资者十分看好首席执行官埃隆・马斯克能够带领 SpaceX 实现长期收益增长。
 
-据公开资料，华英农业于2009年在深交所上市，公司聚焦鸭产业，深耕食品与羽绒两大产业链，覆盖种鸭养殖、孵化、商品鸭饲养、禽苗销售、饲料生产、屠宰加工、冻品销售、熟食及预制菜、羽绒加工与销售等全环节。
+该公司 2025 年净亏损 49 亿美元，2026 年一季度亏损 42.8 亿美元。
 
 ## 相关推荐
 
-- 2026-06-30 07:46 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-30 07:37 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-30 07:47 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-30 07:34 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-30 07:45 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-30 07:31 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-30 07:37 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
-- 2026-06-30 07:43 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-30 07:47 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-30 07:41 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
-- 2026-06-30 07:33 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-30 07:46 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-30 07:55 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-30 07:38 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
+- 2026-06-30 08:02 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-30 07:43 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-30 07:36 - [上半年全国特种设备安全形势总体平稳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-30 07:41 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-30 07:38 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-30 07:50 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
+- 2026-06-30 08:04 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-30 07:45 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-30 07:58 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:52 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/783067312466.shtml)
-- 2026-06-30 07:47 - [王健林甩卖超80座万达广场](https://www.share.minike.top/Article/details/5301526.shtml)
-- 2026-06-30 07:59 - [内马尔中场休息积极鼓励队友](https://www.blog.minike.top/Article/details/634515801996.shtml)
-- 2026-06-30 07:45 - [日本领先巴西](https://www.blog.kurohicncr.top/Article/details/52654.shtml)
-- 2026-06-30 07:35 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.minike.top/Article/details/1282850.shtml)
-- 2026-06-30 07:55 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/81259487709.shtml)
-- 2026-06-30 07:58 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/52361314542.shtml)
-- 2026-06-30 07:38 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/675498676302.shtml)
-- 2026-06-30 07:37 - [巴西把自己踢晕了](https://www.share.minike.top/Article/details/457934.shtml)
-- 2026-06-30 07:49 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/81497083.shtml)
-- 2026-06-30 07:58 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/90389812.shtml)
-- 2026-06-30 07:59 - [免费试吃发差评被店家挂店门避雷](https://www.blog.minike.top/Article/details/19310950211.shtml)
-- 2026-06-30 07:57 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/04538137.shtml)
-- 2026-06-30 07:55 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/404251.shtml)
-- 2026-06-30 07:39 - [如果有二次元高中是什么样子的？](http://www.share.minike.top/Article/details/0113887354.shtml)
+- 2026-06-30 07:55 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.minike.top/Article/details/84305188119.shtml)
+- 2026-06-30 07:43 - [德国队连续三届世界杯无缘16强](https://www.blog.minike.top/Article/details/40896.shtml)
+- 2026-06-30 07:58 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/0476719501.shtml)
+- 2026-06-30 08:00 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/850200.shtml)
+- 2026-06-30 07:52 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/75300511446.shtml)
+- 2026-06-30 08:04 - [世界杯：德国vs巴拉圭](https://www.share.minike.top/Article/details/66416722.shtml)
+- 2026-06-30 07:58 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/92324721024.shtml)
+- 2026-06-30 07:46 - [曝灰熊将莫兰特交易至开拓者](https://www.share.kurohicncr.top/Article/details/26543958.shtml)
+- 2026-06-30 08:03 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/70691135634.shtml)
+- 2026-06-30 07:41 - [爱很美味](http://www.share.minike.top/Article/details/48174851.shtml)
+- 2026-06-30 07:36 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/22485419941.shtml)
+- 2026-06-30 07:55 - [马耳他著名拱门坍塌致中国男子身亡](https://www.blog.kurohicncr.top/Article/details/31784906.shtml)
+- 2026-06-30 07:56 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/599537318843.shtml)
+- 2026-06-30 08:00 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/710859960359.shtml)
+- 2026-06-30 07:58 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/848277.shtml)

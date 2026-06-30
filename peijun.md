@@ -1,56 +1,57 @@
-# 美联储调查显示高物价困扰多数美国人 就业焦虑上升
+# 国台办：民进党当局已沦为外部势力侵害中华民族整体利益的帮凶
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-美联储的一项年度调查显示，绝大多数美国人在2025年对高物价感到担忧，并且越来越多人也开始对就业市场感到焦虑。 在去年就业增长接近停滞的背景下，42%的成年人表示找工作或保住工作是“次要或主要担忧”，高于2024年的37%。美联储的2025年《家庭经济与决策调查》显示，约九成受访者表示对物价上涨感到担忧。 这项去年10月的调查早于伊朗战争推高汽油价格并导致消费者价格指数创下近年
+中新网6月24日电 6月24日，国务院台办举行例行新闻发布会。有记者就赖清德借日菲侵权行径散播“台独”分裂谬论一事提问。 发言人张晗表示，日、菲宣布的拟划界海域位于台湾岛以东，中国在上述海域拥有专属经济区和大陆架。日菲绕开中方擅自启动所谓海域划界谈判，严重违反包括《联合国海洋公约》在内的国际法和国际关系基本准则，严重侵害中国海洋权益。大陆有关部门在相关海域依法开展执法巡查正当必
 
 ## 正文
 
-美联储的一项年度调查显示，绝大多数美国人在2025年对高物价感到担忧，并且越来越多人也开始对就业市场感到焦虑。
+中新网6月24日电 6月24日，国务院台办举行例行新闻发布会。
 
-在去年就业增长接近停滞的背景下，42%的成年人表示找工作或保住工作是“次要或主要担忧”，高于2024年的37%。
+有记者就赖清德借日菲侵权行径散播“台独”分裂谬论一事提问。
 
-美联储的2025年《家庭经济与决策调查》显示，约九成受访者表示对物价上涨感到担忧。
+发言人张晗表示，日、菲宣布的拟划界海域位于台湾岛以东，中国在上述海域拥有专属经济区和大陆架。
 
-这项去年10月的调查早于伊朗战争推高汽油价格并导致消费者价格指数创下近年来最快增速。
+日菲绕开中方擅自启动所谓海域划界谈判，严重违反包括《联合国海洋公约》在内的国际法和国际关系基本准则，严重侵害中国海洋权益。
 
-尽管如此，负担能力担忧在去年就已普遍存在，并预计将成为即将到来的中期选举的重要影响因素。
+大陆有关部门在相关海域依法开展执法巡查正当必要，是维护国家主权和海洋权益的正义之举。
 
-报告显示，73%的成年人表示“财务状况尚可”或“生活宽裕”，与2024年持平。
-
-但对于没有高中学历的人、非裔美国人、30岁以下人群以及年收入低于2.5万美元的人群，这一比例显著下降。
-
-报告凸显出美国消费者的分化，受益于股市强劲上涨的高收入群体继续支出，而低收入群体日益受到约束。
+张晗指出，民进党当局对日菲侵权行径装聋作哑、视而不见，却借机大肆散播“台独”分裂谬论，煽动“反中抗中”，已经沦为外部势力侵害中华民族整体利益的帮凶，卑劣无耻，必遭清算。
 
 ## 相关推荐
 
-- 2026-06-30 07:58 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-30 07:36 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-30 07:50 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-30 07:45 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-30 07:36 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-30 07:51 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-30 07:34 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
-- 2026-06-30 07:47 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-30 07:42 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
-- 2026-06-30 07:34 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-30 08:03 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-30 07:37 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-30 07:41 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-30 07:40 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
+- 2026-06-30 07:47 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-30 07:41 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-30 07:38 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-30 07:53 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-30 07:46 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-30 08:00 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-30 08:05 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-30 07:37 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-30 07:41 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-30 07:44 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-30 08:03 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:31 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/2335183286.shtml)
-- 2026-06-30 07:32 - [世界杯：德国vs巴拉圭](https://www.blog.minike.top/Article/details/909672169077.shtml)
-- 2026-06-30 07:33 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/43580.shtml)
-- 2026-06-30 07:51 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/42378295.shtml)
-- 2026-06-30 07:31 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/959468870597.shtml)
-- 2026-06-30 07:57 - [警犬“多多”助民警寻回失联老人](https://www.blog.kurohicncr.top/Article/details/429031.shtml)
-- 2026-06-30 07:57 - [詹姆斯 勇士](https://www.share.kurohicncr.top/Article/details/84067092.shtml)
-- 2026-06-30 07:31 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/93970444.shtml)
-- 2026-06-30 07:57 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/3809204590.shtml)
-- 2026-06-30 07:53 - [日本反击率先破门](http://www.blog.minike.top/Article/details/2311492146.shtml)
-- 2026-06-30 07:43 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.kurohicncr.top/Article/details/2380735744.shtml)
-- 2026-06-30 07:38 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/74648.shtml)
-- 2026-06-30 07:54 - [媒体评泰山建135公里刀片刺绳隔离网](https://www.share.kurohicncr.top/Article/details/23589.shtml)
-- 2026-06-30 07:30 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/0432873.shtml)
-- 2026-06-30 07:53 - [德国队世界杯点球大战首败](https://www.share.kurohicncr.top/Article/details/708965318327.shtml)
+- 2026-06-30 07:57 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/2506467.shtml)
+- 2026-06-30 07:47 - [森保一致歉：世界第一目标没能实现](http://www.blog.kurohicncr.top/Article/details/07561753.shtml)
+- 2026-06-30 07:56 - [张帅时隔四年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/0154248.shtml)
+- 2026-06-30 07:50 - [“柠檬茶能换怀表？”](https://www.blog.minike.top/Article/details/328079586.shtml)
+- 2026-06-30 07:44 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/817466401.shtml)
+- 2026-06-30 07:37 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/239157715405.shtml)
+- 2026-06-30 08:02 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/6897243.shtml)
+- 2026-06-30 07:41 - [二次元提前预演明日巴西对日本](https://www.blog.kurohicncr.top/Article/details/37155250.shtml)
+- 2026-06-30 07:48 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/35756417196.shtml)
+- 2026-06-30 07:42 - [齐思钧回复张月](https://www.share.minike.top/Article/details/77837481627.shtml)
+- 2026-06-30 07:48 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/47348.shtml)
+- 2026-06-30 07:55 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/98304145.shtml)
+- 2026-06-30 07:37 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/0959094.shtml)
+- 2026-06-30 07:40 - [巴拉圭先进球了](https://www.blog.kurohicncr.top/Article/details/21214.shtml)
+- 2026-06-30 07:47 - [巴拉圭点球大战淘汰德国进16强](https://www.share.kurohicncr.top/Article/details/944620.shtml)

@@ -1,46 +1,46 @@
-# 浙江华远：2025年座椅锁出货超1400万件
+# 赛轮轮胎：截至目前，墨西哥工厂生产的轮胎产品出口至美国的税率为0
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-证券日报网5月13日讯 ，浙江华远在接受调研者提问时表示，关于新能源车企供应链渗透：公司作为二级供应商，通过安道拓、佛吉亚等进入理想、小鹏、蔚来、比亚迪等供应链，提供座椅锁及紧固件。2025 年座椅锁出货超 1400 万件（同比+11%）。关于全年增长目标：基于 2026 年度预算，公司预计营收保持增长；HDM 水平驱动器、长丝杆等新品已获定点并即将量产，为新能源业务持续提供增
+证券日报网讯 6月22日，赛轮轮胎在互动平台回答投资者提问时表示，公司日常会根据各类原材料的市场情况以及需求计划灵活制定具体采购策略，并综合生产成本及市场需求等因素视情况确定价格调整策略，以尽量减少原材料价格波动对公司带来的不利影响。截至目前，墨西哥工厂生产的轮胎产品出口至美国的税率为0。（文章来源：证券日报）
 
 ## 正文
 
-证券日报网5月13日讯 ，浙江华远在接受调研者提问时表示，关于新能源车企供应链渗透：公司作为二级供应商，通过安道拓、佛吉亚等进入理想、小鹏、蔚来、比亚迪等供应链，提供座椅锁及紧固件。
+证券日报网讯 6月22日，赛轮轮胎在互动平台回答投资者提问时表示，公司日常会根据各类原材料的市场情况以及需求计划灵活制定具体采购策略，并综合生产成本及市场需求等因素视情况确定价格调整策略，以尽量减少原材料价格波动对公司带来的不利影响。
 
-2025 年座椅锁出货超 1400 万件（同比+11%）。
+截至目前，墨西哥工厂生产的轮胎产品出口至美国的税率为0。
 
-关于全年增长目标：基于 2026 年度预算，公司预计营收保持增长；HDM 水平驱动器、长丝杆等新品已获定点并即将量产，为新能源业务持续提供增量。
+（文章来源：证券日报）
 
 ## 相关推荐
 
-- 2026-06-30 07:35 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
-- 2026-06-30 07:38 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-30 07:59 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-30 07:34 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
-- 2026-06-30 07:36 - [日本球员说被绝杀非常不甘心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-30 07:52 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-30 07:59 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
-- 2026-06-30 07:57 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
-- 2026-06-30 07:46 - [马耳他著名拱门坍塌致一中国男子身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-30 07:46 - [周冬雨多次说演不了话剧文城](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-30 07:55 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-30 08:03 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-30 07:49 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-30 08:02 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-30 07:49 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-30 07:56 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-30 07:58 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-30 08:00 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
+- 2026-06-30 07:40 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-30 07:40 - [锐评T1战胜KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:58 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/02171702425.shtml)
-- 2026-06-30 07:40 - [爱很美味](http://www.share.minike.top/Article/details/775655681563.shtml)
-- 2026-06-30 07:34 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/6732187.shtml)
-- 2026-06-30 07:57 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.minike.top/Article/details/636274045.shtml)
-- 2026-06-30 07:48 - [《共患难》](https://www.blog.minike.top/Article/details/60785253703.shtml)
-- 2026-06-30 07:35 - [德国淘汰](http://www.blog.minike.top/Article/details/345039910.shtml)
-- 2026-06-30 07:51 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.share.kurohicncr.top/Article/details/252576182.shtml)
-- 2026-06-30 07:31 - [如果有二次元高中是什么样子的？](https://www.blog.kurohicncr.top/Article/details/560779125.shtml)
-- 2026-06-30 07:59 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/0736709905.shtml)
-- 2026-06-30 07:42 - [齐思钧回复张月](https://www.blog.kurohicncr.top/Article/details/81595724508.shtml)
-- 2026-06-30 07:32 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/55920025.shtml)
-- 2026-06-30 07:41 - [董卿父亲在报纸上发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/59148533068.shtml)
-- 2026-06-30 07:57 - [日本半场1比0领先巴西](https://www.blog.minike.top/Article/details/364725496.shtml)
-- 2026-06-30 07:53 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/9290636304.shtml)
-- 2026-06-30 07:34 - [巴西绝杀日本](https://www.share.kurohicncr.top/Article/details/06140946.shtml)
+- 2026-06-30 07:38 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/91151890470.shtml)
+- 2026-06-30 07:48 - [王楚钦孙颖莎晋级混双八强](http://www.share.minike.top/Article/details/664753627.shtml)
+- 2026-06-30 07:50 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.minike.top/Article/details/6414920829.shtml)
+- 2026-06-30 08:03 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/015234917843.shtml)
+- 2026-06-30 07:48 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/472655645.shtml)
+- 2026-06-30 07:58 - [庆祝中国共产党成立105周年音乐会](http://www.share.minike.top/Article/details/75072.shtml)
+- 2026-06-30 08:00 - [女心理师](http://www.share.kurohicncr.top/Article/details/89111472.shtml)
+- 2026-06-30 07:45 - [马耳他著名拱门坍塌致一中国男子身亡](http://www.share.minike.top/Article/details/39978977.shtml)
+- 2026-06-30 07:57 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/85151707.shtml)
+- 2026-06-30 07:38 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/320794.shtml)
+- 2026-06-30 07:41 - [郑钦文温网一轮游](https://www.blog.minike.top/Article/details/728788546774.shtml)
+- 2026-06-30 07:56 - [巴拉圭进球](https://www.blog.minike.top/Article/details/51961.shtml)
+- 2026-06-30 08:00 - [德国巴拉圭进入点球大战](https://www.blog.kurohicncr.top/Article/details/6276155.shtml)
+- 2026-06-30 07:50 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/09675513.shtml)
+- 2026-06-30 07:41 - [内马尔中场休息积极鼓励队友](http://www.blog.kurohicncr.top/Article/details/41742.shtml)

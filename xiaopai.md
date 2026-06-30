@@ -1,53 +1,60 @@
-# 文远知行-W第一季度总收入1.141亿元 同比增长57.6%
+# 广发银行：拟于本月底全面停办代理上海黄金交易所个人贵金属交易业务
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-文远知行-W（00800）公布2026年第一季度未经审计财务业绩，总收入为人民币1.141亿元，同比增长57.6%；毛利为人民币3960万元，同比增长55.9%，毛利率为34.7%；研发开支为人民币3.633亿元，同比增长11.5%。 公告称，公司的旗舰产品自动驾驶出租车是公司自动驾驶技术的有力证明，在公司的扩张和增长战略中起到核心作用。截至2026年4月30日，公司的全球自动
+6月22日金融一线消息，广发银行今日发布公告称，该行已于2022年8月12日、2025年12月25日发布《关于我行代理上海黄金交易所个人贵金属交易业务调整的公告》《关于调整代理上海黄金交易所个人贵金属业务的公告》。根据公告内容，该行已于2022年9月1日起暂停代理上海黄金交易所个人贵金属延期交收合约的开仓交易和现货实盘合约的买入交易，并提示客户及时关注贵金属交易账户资金情况，合
 
 ## 正文
 
-文远知行-W（00800）公布2026年第一季度未经审计财务业绩，总收入为人民币1.141亿元，同比增长57.6%；毛利为人民币3960万元，同比增长55.9%，毛利率为34.7%；研发开支为人民币3.633亿元，同比增长11.5%。
+6月22日金融一线消息，广发银行今日发布公告称，该行已于2022年8月12日、2025年12月25日发布《关于我行代理上海黄金交易所个人贵金属交易业务调整的公告》《关于调整代理上海黄金交易所个人贵金属业务的公告》。
 
-公告称，公司的旗舰产品自动驾驶出租车是公司自动驾驶技术的有力证明，在公司的扩张和增长战略中起到核心作用。
+根据公告内容，该行已于2022年9月1日起暂停代理上海黄金交易所个人贵金属延期交收合约的开仓交易和现货实盘合约的买入交易，并提示客户及时关注贵金属交易账户资金情况，合理控制仓位，择机办理延期交收合约的平仓和现货实盘合约的卖出交易。
 
-截至2026年4月30日，公司的全球自动驾驶出租车车队已达到约1300辆的新里程碑。
+为加强风险管理，保护投资者权益，该行拟于本月底全面停办代理上海黄金交易所个人贵金属交易业务。
 
-责任编辑：卢昱君
+本次停办代理上海黄金交易所个人贵金属交易业务的品种包括：Au99.99、Au100g、Au99.95、PGC30g、Au（T+D）、mAU（T+D）、Ag（T+D）、Au（T+N1）、Au（T+N2）等。
+
+广发银行表示，请有上述合约持仓、现货库存的客户，尽快通过该行手机银行渠道完成自主卖出、平仓及销户操作。
+
+业务停办后，客户可选择黄金积存或黄金ETF或白银ETF等平替产品继续开展贵金属方面的投资。
+
+若截至2026年6月25日15：30客户仍未完成上述操作，为保障客户账户的安全与权益，该行将于6月30日前依据《广发银行代理上海黄金交易所贵金属业务协议书（个人版）》的相关条款，对相关账户执行强制平仓或库存卖出操作。
+
+广发银行提醒，近期贵金属市场价格波动较大，请客户尽快择机操作，避免因统一处理影响投资者的自主决策。
 
 ## 相关推荐
 
-- 2026-06-30 07:54 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
-- 2026-06-30 07:40 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
-- 2026-06-30 07:34 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-30 07:53 - [郑钦文温网一轮游](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
-- 2026-06-30 07:39 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
-- 2026-06-30 07:58 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-30 07:30 - [郑钦文温网首轮出局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-30 07:35 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-30 07:36 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-30 07:50 - [德国4比5巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-30 07:58 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
-- 2026-06-30 07:44 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-30 07:35 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-30 07:49 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
-- 2026-06-30 07:59 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-30 07:45 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-30 07:59 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-30 08:00 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-30 07:58 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-30 08:00 - [二次元提前预演明日巴西对日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-30 07:52 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-30 07:51 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-30 07:53 - [武磊：巴西队赢的并不轻松](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
+- 2026-06-30 07:36 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
+- 2026-06-30 07:52 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-30 07:53 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-30 07:57 - [德国巴拉圭 折磨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-30 08:03 - [郑钦文温网首轮出局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-30 07:49 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:50 - [日本 高位逼抢](http://www.blog.minike.top/Article/details/940913957904.shtml)
-- 2026-06-30 07:58 - [张凌赫杨超越 峨眉](http://www.blog.minike.top/Article/details/360585.shtml)
-- 2026-06-30 07:58 - [日本16强魔咒](http://www.blog.minike.top/Article/details/247422.shtml)
-- 2026-06-30 07:40 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/98671001430.shtml)
-- 2026-06-30 07:52 - [高中五人学习小组全员超650分](http://www.blog.minike.top/Article/details/369804.shtml)
-- 2026-06-30 07:50 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/398036830951.shtml)
-- 2026-06-30 07:57 - [美股深夜大反弹 特斯拉飙涨8%](http://www.share.kurohicncr.top/Article/details/40295612.shtml)
-- 2026-06-30 07:50 - [刘必安等16人非法集资案二审宣判](https://www.share.kurohicncr.top/Article/details/14985.shtml)
-- 2026-06-30 07:46 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.kurohicncr.top/Article/details/9318644.shtml)
-- 2026-06-30 07:50 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/1830078.shtml)
-- 2026-06-30 07:39 - [严浩翔张峻豪师兄弟同台](http://www.blog.minike.top/Article/details/8792263.shtml)
-- 2026-06-30 07:35 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/191270.shtml)
-- 2026-06-30 07:56 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/225985439.shtml)
-- 2026-06-30 07:32 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/987766058447.shtml)
-- 2026-06-30 07:44 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.kurohicncr.top/Article/details/253028.shtml)
+- 2026-06-30 07:48 - [谢依霖说杨幂是聚会第一把张罗手](http://www.share.minike.top/Article/details/34327139.shtml)
+- 2026-06-30 08:03 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/46876736.shtml)
+- 2026-06-30 08:04 - [如果有二次元高中是什么样子的？](https://www.share.minike.top/Article/details/104639628671.shtml)
+- 2026-06-30 07:42 - [德国淘汰](https://www.share.kurohicncr.top/Article/details/83447.shtml)
+- 2026-06-30 08:04 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/7260618.shtml)
+- 2026-06-30 07:59 - [三星投资计划](https://www.blog.minike.top/Article/details/4268420964.shtml)
+- 2026-06-30 07:39 - [王欣瑜2-1击败科恰雷托](https://www.blog.minike.top/Article/details/49612940.shtml)
+- 2026-06-30 07:49 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/355189436.shtml)
+- 2026-06-30 07:58 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.kurohicncr.top/Article/details/54362.shtml)
+- 2026-06-30 07:37 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/38114838621.shtml)
+- 2026-06-30 07:40 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/916458558.shtml)
+- 2026-06-30 07:49 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/145293555108.shtml)
+- 2026-06-30 07:49 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/226430778.shtml)
+- 2026-06-30 07:37 - [急先锋](http://www.share.kurohicncr.top/Article/details/0687246.shtml)
+- 2026-06-30 07:56 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/77560892099.shtml)

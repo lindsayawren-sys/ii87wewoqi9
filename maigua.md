@@ -1,61 +1,57 @@
-# 行走美丽画卷｜黑龙江同江：三江水畔的渔猎与烟火
+# 关于邀请参加2026中国—印尼绿色和创新合作展览会的函
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-2016年11月30日，在中国文联十大、中国作协九大开幕式上的讲话中，习近平总书记指出，中华文化延续着我们国家和民族的精神血脉，既需要薪火相传、代代守护，也需要与时俱进、推陈出新。 位于黑龙江、松花江与乌苏里江三江流域的黑龙江省同江市八岔赫哲族乡八岔村，在江风与渔歌的浸润下，徐徐讲述着赫哲族人世代与江河共生的渔猎传奇，以及这片黑土地上传统与现代交织的生命故事。 2016年5月2
+各区贸促会，各行业委员会，各有关企业： 经国务院批准，中国贸促会将于2026年9月3日至5日在印度尼西亚雅加达举办2026年中国—印尼绿色和创新合作展览会(以下简称印尼展)。经公开招标，中国国际贸易促进委员会商业行业委员会为本届展会承办单位，将在中国贸促会的指导下展开筹备工作。 本届印尼展将在印尼雅加达展览中心(JIExpo)举办，展览面积约1500平方米，展出内容包括人工智能
 
 ## 正文
 
-2016年11月30日，在中国文联十大、中国作协九大开幕式上的讲话中，习近平总书记指出，中华文化延续着我们国家和民族的精神血脉，既需要薪火相传、代代守护，也需要与时俱进、推陈出新。
+各区贸促会，各行业委员会，各有关企业： 经国务院批准，中国贸促会将于2026年9月3日至5日在印度尼西亚雅加达举办2026年中国—印尼绿色和创新合作展览会(以下简称印尼展)。
 
-位于黑龙江、松花江与乌苏里江三江流域的黑龙江省同江市八岔赫哲族乡八岔村，在江风与渔歌的浸润下，徐徐讲述着赫哲族人世代与江河共生的渔猎传奇，以及这片黑土地上传统与现代交织的生命故事。
+经公开招标，中国国际贸易促进委员会商业行业委员会为本届展会承办单位，将在中国贸促会的指导下展开筹备工作。
 
-2016年5月24日，在黑龙江省考察调研期间，习近平总书记曾来到八岔村，参观赫哲族民俗展，观看国家级非物质文化遗产伊玛堪说唱教学。
+本届印尼展将在印尼雅加达展览中心(JIExpo)举办，展览面积约1500平方米，展出内容包括人工智能、智慧物流、信息通信、新能源汽车与配件、新能源产品、防灾减灾技术、安全应急产品、医疗用品、家电及电子产品、日用消费品等。
 
-作为中国东北地区的少数民族之一，赫哲族世代逐水而居。
+展会期间还将举办经贸合作论坛及企业对接洽谈会等配套活动。
 
-三江滋养之下，渔猎文化绵延不息，人与自然的关系，被写进日常生活，也沉淀为一种独特的生态智慧。
+展会还将设立机遇中国展示区，打造国家级对外展示窗口，集中展现我国高水平对外开放建设成效，宣介国内优良营商环境，持续加深双方经贸联系，助力构建中印尼经贸合作新格局。
 
-依托赫哲族文化资源，八岔村逐步探索出文旅融合的发展路径。
+为降低企业参展成本，中国贸促会将免收参展企业标准展位费及1立方米展品去程运费(每9平方米标准展位)。
 
-鱼皮画制作体验、全鱼宴、伊玛堪说唱等特色项目，成为吸引游客的重要内容；渔猎文化节、冬捕节等活动，让传统文化走出村落，进入更广阔的公共空间。
+此次组展，由中国贸促会商业行业委员会负责审核选取参展企业，分配展览位置，统筹展务工作。
 
-如今的八岔村，已发展成为远近闻名的“旅游村”，民宿、非遗体验与文化展示相互结合，带动村集体经济持续增长。
+为帮助广州企业依托中国贸促会境外经贸展览会平台开拓东南亚市场，邀请广州企业报名参展，共享发展机遇。
 
 ## 相关推荐
 
-- 2026-06-30 07:59 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-30 07:39 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
-- 2026-06-30 07:44 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
-- 2026-06-30 07:38 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-30 07:52 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-30 07:35 - [德国巴拉圭 折磨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-30 07:45 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-30 07:42 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
-- 2026-06-30 07:43 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-30 07:37 - [日本五次世界杯淘汰赛全败](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-30 07:50 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-30 07:50 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-30 07:53 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-30 07:49 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
-- 2026-06-30 07:54 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-30 07:36 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-30 08:02 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-30 07:47 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-30 08:03 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-30 07:44 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
+- 2026-06-30 07:45 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-30 08:01 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-30 07:57 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-30 07:58 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-30 07:51 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-30 07:58 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:53 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.kurohicncr.top/Article/details/04966368392.shtml)
-- 2026-06-30 07:35 - [王源近几年没有路演了](https://www.share.kurohicncr.top/Article/details/4683909295.shtml)
-- 2026-06-30 07:54 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/8017459876.shtml)
-- 2026-06-30 07:52 - [补时绝杀 巴西2-1淘汰日本](http://www.share.kurohicncr.top/Article/details/485303.shtml)
-- 2026-06-30 07:38 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/34822.shtml)
-- 2026-06-30 07:50 - [周冬雨多次说演不了话剧文城](http://www.blog.minike.top/Article/details/571255101.shtml)
-- 2026-06-30 07:38 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/10771616202.shtml)
-- 2026-06-30 07:52 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](http://www.share.minike.top/Article/details/1243033.shtml)
-- 2026-06-30 07:56 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/328393381385.shtml)
-- 2026-06-30 07:31 - [日本进球](https://www.share.minike.top/Article/details/173383.shtml)
-- 2026-06-30 07:53 - [如果有二次元高中是什么样子的？](https://www.share.kurohicncr.top/Article/details/92258253.shtml)
-- 2026-06-30 07:57 - [库尼亚赛后伸五指嘲讽日本](https://www.blog.minike.top/Article/details/03143173.shtml)
-- 2026-06-30 07:48 - [德国爆冷点球大战不敌巴拉圭](http://www.blog.kurohicncr.top/Article/details/5948756.shtml)
-- 2026-06-30 07:31 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/73304.shtml)
-- 2026-06-30 07:45 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/48960.shtml)
+- 2026-06-30 07:50 - [恋与深空道歉声明](http://www.share.kurohicncr.top/Article/details/232286.shtml)
+- 2026-06-30 07:50 - [张碧晨一开口梦回逐玉](https://www.share.kurohicncr.top/Article/details/200543238.shtml)
+- 2026-06-30 07:45 - [日本队5进世界杯淘汰赛0胜](http://www.blog.minike.top/Article/details/784136.shtml)
+- 2026-06-30 08:05 - [本届世界杯已有5名球员被控强奸](http://www.share.minike.top/Article/details/333009.shtml)
+- 2026-06-30 08:04 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/99953107755.shtml)
+- 2026-06-30 07:52 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/2659848917.shtml)
+- 2026-06-30 07:48 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.minike.top/Article/details/8552225.shtml)
+- 2026-06-30 07:42 - [武磊：巴西队赢的并不轻松](http://www.share.kurohicncr.top/Article/details/99381.shtml)
+- 2026-06-30 07:55 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.kurohicncr.top/Article/details/678800.shtml)
+- 2026-06-30 08:01 - [德国队连续三届世界杯无缘16强](http://www.blog.minike.top/Article/details/813493.shtml)
+- 2026-06-30 07:37 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.kurohicncr.top/Article/details/13208852.shtml)
+- 2026-06-30 07:58 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/98712.shtml)
+- 2026-06-30 07:52 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/05547.shtml)
+- 2026-06-30 07:54 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/441485962216.shtml)
+- 2026-06-30 07:51 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/5297176802.shtml)

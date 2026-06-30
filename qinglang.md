@@ -1,51 +1,55 @@
-# 中芯国际最新业绩出炉：2026年第一季度实现营业收入176.17亿元，同比增长8.1%
+# 欧洲央行副行长：预计通胀将在更长时间内维持高位
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-原标题：中芯国际最新业绩出炉 5月14日晚间，中芯国际公告称，2026年第一季度实现营业收入176.17亿元，同比增长8.1%；归属于上市公司股东的净利润为13.61亿元，同比增长0.4%。 公告称，二季度，公司给出的收入指引为环比增长14%到16%，毛利率指引为20%-22%，与上一季指引相比提升2个百分点。 中芯国际表示，基于客户需求和在手订单情况，相较于上个季度，公司对于
+欧洲央行副行长Boris Vujcic表示，考虑到通胀将在更长时间内维持高位，央行加息的决定是“稳健的”。 他周二在伦敦表示，与此同时，大多数长期通胀预期仍与欧洲央行2%的目标水平保持一致，并且目前的薪资增长并未显示出任何连锁反应。 “整体通胀和核心通胀都将在更长时间内维持高位——至2027年，”本月初接替Luis de Guindos出任欧洲央行副行长的Vujcic表示。“这
 
 ## 正文
 
-原标题：中芯国际最新业绩出炉 5月14日晚间，中芯国际公告称，2026年第一季度实现营业收入176.17亿元，同比增长8.1%；归属于上市公司股东的净利润为13.61亿元，同比增长0.4%。
+欧洲央行副行长Boris Vujcic表示，考虑到通胀将在更长时间内维持高位，央行加息的决定是“稳健的”。
 
-公告称，二季度，公司给出的收入指引为环比增长14%到16%，毛利率指引为20%-22%，与上一季指引相比提升2个百分点。
+他周二在伦敦表示，与此同时，大多数长期通胀预期仍与欧洲央行2%的目标水平保持一致，并且目前的薪资增长并未显示出任何连锁反应。
 
-中芯国际表示，基于客户需求和在手订单情况，相较于上个季度，公司对于今年的整体运营情况更加乐观。
+“整体通胀和核心通胀都将在更长时间内维持高位——至2027年，”本月初接替Luis de Guindos出任欧洲央行副行长的Vujcic表示。
 
-公司将紧密跟踪客户需求，灵活调配资源，加快产品回应速度，确保在复杂环境中依然能保持高品质的交付。
+“这基本上也是你们在上次会议上看到利率行动的理由。
 
-责任编辑：宋雅芳
+” 欧洲央行于6月11日将利率上调25个基点，目前正在评估未来几个月是否需要进一步收紧政策。
+
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-30 07:45 - [德国 传控](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
-- 2026-06-30 07:59 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-30 07:51 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-30 07:55 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
-- 2026-06-30 07:51 - [大蒜晒外面被路过女子连盆端走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-30 07:43 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-30 07:39 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-30 07:44 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
-- 2026-06-30 07:50 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-30 07:36 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-30 07:41 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-30 07:41 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-30 07:37 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-30 07:48 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-30 07:54 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
+- 2026-06-30 07:43 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-30 07:37 - [萨内 看笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-30 07:47 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-30 07:48 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
+- 2026-06-30 07:51 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
+- 2026-06-30 08:04 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-30 07:47 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-30 07:50 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-30 07:58 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:44 - [亚洲球队全部告别世界杯](http://www.share.minike.top/Article/details/152156792.shtml)
-- 2026-06-30 07:37 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/80013032.shtml)
-- 2026-06-30 07:59 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/7741356.shtml)
-- 2026-06-30 07:30 - [韩乔生吐槽世界杯扩军](https://www.share.minike.top/Article/details/422945707408.shtml)
-- 2026-06-30 07:48 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/036430672.shtml)
-- 2026-06-30 07:42 - [郑钦文温网首轮出局](http://www.blog.minike.top/Article/details/032110037.shtml)
-- 2026-06-30 07:38 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/556344427.shtml)
-- 2026-06-30 07:44 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/403488757658.shtml)
-- 2026-06-30 07:33 - [金鹰奖视后提名预测](https://www.share.kurohicncr.top/Article/details/458316998.shtml)
-- 2026-06-30 07:43 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/262903.shtml)
-- 2026-06-30 07:41 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/2335401.shtml)
-- 2026-06-30 07:40 - [审核了不止十年的低创鬼畜](http://www.blog.kurohicncr.top/Article/details/963697284631.shtml)
-- 2026-06-30 07:37 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/765014407.shtml)
-- 2026-06-30 07:55 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/61950.shtml)
-- 2026-06-30 07:57 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](http://www.blog.minike.top/Article/details/49926.shtml)
+- 2026-06-30 08:00 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/260280.shtml)
+- 2026-06-30 07:46 - [感动全网的699分女生想报考清华](http://www.blog.kurohicncr.top/Article/details/38381426.shtml)
+- 2026-06-30 07:57 - [德国巴拉圭进入点球大战](http://www.blog.kurohicncr.top/Article/details/561541.shtml)
+- 2026-06-30 07:52 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/4238272135.shtml)
+- 2026-06-30 07:54 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/68156778855.shtml)
+- 2026-06-30 08:02 - [本届世界杯已有5名球员被控强奸](https://www.share.kurohicncr.top/Article/details/944768881.shtml)
+- 2026-06-30 08:03 - [美人鱼](https://www.blog.minike.top/Article/details/78800829304.shtml)
+- 2026-06-30 08:02 - [青春环游记第三季](http://www.share.minike.top/Article/details/67562365946.shtml)
+- 2026-06-30 07:42 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/4036525969.shtml)
+- 2026-06-30 07:47 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/13209.shtml)
+- 2026-06-30 07:51 - [我觉得你是在无中生友](http://www.blog.kurohicncr.top/Article/details/60621.shtml)
+- 2026-06-30 07:49 - [巴西把自己踢晕了](http://www.share.minike.top/Article/details/74507697.shtml)
+- 2026-06-30 08:04 - [韩乔生吐槽世界杯扩军](https://www.share.minike.top/Article/details/6617087715.shtml)
+- 2026-06-30 07:56 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/609352.shtml)
+- 2026-06-30 07:43 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/8977788026.shtml)

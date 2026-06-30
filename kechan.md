@@ -1,53 +1,61 @@
-# 英国海军：富查伊拉附近海域一艘船只被未经授权人员开往伊朗水域
+# 放射检查“通关秘籍”，看完再也不慌
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-英国海上贸易行动中心表示，一名公司安全官员报告称，一艘停泊在阿联酋富查伊拉东北38海里的船只被未经授权的人员开走。 该船目前驶往伊朗领海。 行动中心表示正在调查此事。责任编辑：何云
+放射检查“通关秘籍”，看完再也不慌！| 健康体检 很多人去做X线、CT这些放射检查，心里都犯嘀咕：要准备什么？辐射会不会伤身体？检查前后要注意啥？别担心，这份超通俗的检查攻略，把所有要点都说得明明白白，照着做就够了！ 检查前 这些事一定要提前做好1 有什么特殊情况，千万别瞒着医生 去检查前，一定要主动跟医生说明：是否备孕、怀孕，有无药物过敏史，是否安装心脏支架、钢板、假牙或体内
 
 ## 正文
 
-英国海上贸易行动中心表示，一名公司安全官员报告称，一艘停泊在阿联酋富查伊拉东北38海里的船只被未经授权的人员开走。
+放射检查“通关秘籍”，看完再也不慌！
 
-该船目前驶往伊朗领海。
+| 健康体检 很多人去做X线、CT这些放射检查，心里都犯嘀咕：要准备什么？
 
-行动中心表示正在调查此事。
+辐射会不会伤身体？
 
-责任编辑：何云
+检查前后要注意啥？
+
+别担心，这份超通俗的检查攻略，把所有要点都说得明明白白，照着做就够了！
+
+检查前 这些事一定要提前做好1 有什么特殊情况，千万别瞒着医生 去检查前，一定要主动跟医生说明：是否备孕、怀孕，有无药物过敏史，是否安装心脏支架、钢板、假牙或体内有节育环，以及肝肾功能情况。
+
+这些情况医生必须知道，才能判断你能不能做检查、该用哪种方案，避免出问题。
+
+2 身上所有金属物品都要摘下来 项链、耳环、手镯、戒指，还有皮带、钥匙、手机，以及口袋里的小物件都拿出来。
 
 ## 相关推荐
 
-- 2026-06-30 07:38 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-30 07:51 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
-- 2026-06-30 07:39 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-30 07:37 - [德国淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-30 07:51 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-30 07:51 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-30 07:48 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
-- 2026-06-30 07:52 - [库尼亚赛后伸五指嘲讽日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-30 07:39 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
-- 2026-06-30 07:32 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
-- 2026-06-30 07:45 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
-- 2026-06-30 07:39 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
-- 2026-06-30 07:34 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-30 07:42 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
-- 2026-06-30 07:35 - [德国4比5巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-30 08:01 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-30 08:00 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-30 07:41 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-30 08:00 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-30 07:59 - [三星投资计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-30 07:41 - [大蒜晒外面被路过女子连盆端走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-30 07:41 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-30 07:38 - [大蒜晒外面被路过女子连盆端走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-30 08:05 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
+- 2026-06-30 07:57 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-30 08:02 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-30 08:04 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
+- 2026-06-30 08:05 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-30 07:52 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-30 08:05 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:33 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/752143.shtml)
-- 2026-06-30 07:32 - [刘必安等16人非法集资案二审宣判](http://www.share.minike.top/Article/details/457479210866.shtml)
-- 2026-06-30 07:44 - [巴西绝杀](http://www.share.minike.top/Article/details/371492253577.shtml)
-- 2026-06-30 07:44 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/13541728.shtml)
-- 2026-06-30 07:59 - [王灿兮被烫伤两年后维权成功](https://www.blog.kurohicncr.top/Article/details/170564794.shtml)
-- 2026-06-30 07:34 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/933094233876.shtml)
-- 2026-06-30 07:45 - [勇敢的心第二部](http://www.share.minike.top/Article/details/348552070.shtml)
-- 2026-06-30 07:39 - [警犬“多多”助民警寻回失联老人](https://www.blog.kurohicncr.top/Article/details/00386.shtml)
-- 2026-06-30 07:52 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.share.minike.top/Article/details/1454968881.shtml)
-- 2026-06-30 07:53 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.kurohicncr.top/Article/details/61436110.shtml)
-- 2026-06-30 07:30 - [孙兴慜发长文致歉](https://www.blog.kurohicncr.top/Article/details/512672833445.shtml)
-- 2026-06-30 07:45 - [德国巴拉圭加时](http://www.blog.minike.top/Article/details/918587659.shtml)
-- 2026-06-30 07:41 - [安切洛蒂 换人](http://www.share.kurohicncr.top/Article/details/473964001.shtml)
-- 2026-06-30 07:44 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/3382147455.shtml)
-- 2026-06-30 07:37 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/9177551122.shtml)
+- 2026-06-30 07:49 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/42474.shtml)
+- 2026-06-30 07:39 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/152622229.shtml)
+- 2026-06-30 08:00 - [德国 传控](https://www.blog.minike.top/Article/details/6078182519.shtml)
+- 2026-06-30 08:01 - [王欣瑜温网开门红](https://www.share.kurohicncr.top/Article/details/2347475.shtml)
+- 2026-06-30 07:57 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/7131427319.shtml)
+- 2026-06-30 07:45 - [美股深夜大反弹 特斯拉飙涨8%](https://www.blog.kurohicncr.top/Article/details/07907.shtml)
+- 2026-06-30 08:01 - [张凌赫杨超越 峨眉](https://www.blog.minike.top/Article/details/80531575704.shtml)
+- 2026-06-30 07:52 - [女子清吧被陌生人投放伟哥](https://www.blog.minike.top/Article/details/81554.shtml)
+- 2026-06-30 07:40 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/36642591.shtml)
+- 2026-06-30 07:45 - [巴西vs日本首发名单](http://www.blog.kurohicncr.top/Article/details/285734821.shtml)
+- 2026-06-30 08:03 - [点球大战 残酷](http://www.blog.kurohicncr.top/Article/details/538461.shtml)
+- 2026-06-30 07:56 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/39460834.shtml)
+- 2026-06-30 08:02 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/90274263.shtml)
+- 2026-06-30 07:49 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/11482550042.shtml)
+- 2026-06-30 07:54 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/022663.shtml)

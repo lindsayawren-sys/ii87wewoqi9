@@ -1,58 +1,49 @@
-# 美元因美联储加息概率上升走强
+# 百度ADR盘后上涨 花旗对其开启30天的看涨催化观察
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-周四美元保持坚挺，受美债收益率走高支撑，投资者开始计入美联储今年加息的预期。 中国在岸人民币交投于三年高位附近；离岸人民币兑美元连续第八个交易日走强，报 6.7845。 周四美元持稳，欧元兑美元小幅变动至 1.1717，本周料下跌 0.6%，为两个月最大跌幅。 美元指数（一篮子货币加权）最新报 98.48，本周迄今涨幅超 0.6%，创下伊朗战争爆发以来最佳周度表现。 美元兑日元
+百度在美国上市的ADR盘后交易上涨1.5%，此前花旗对该公司开启30天的看涨催化观察。 分析师Alicia Yap写道，百度“芯片和云业务的内在实力可能成为推动股价上涨的催化因素”， “虽然难以判断整体市场情绪何时会发生转变，但我们相信，一旦百度芯片业务分拆时间表及市场兴趣变得明朗，仍存在释放价值的机会”， 花旗给予百度“买入”评级，该公司股价今年以来下跌逾14%。责任编辑：李
 
 ## 正文
 
-周四美元保持坚挺，受美债收益率走高支撑，投资者开始计入美联储今年加息的预期。
+百度在美国上市的ADR盘后交易上涨1.5%，此前花旗对该公司开启30天的看涨催化观察。
 
-中国在岸人民币交投于三年高位附近；离岸人民币兑美元连续第八个交易日走强，报 6.7845。
+分析师Alicia Yap写道，百度“芯片和云业务的内在实力可能成为推动股价上涨的催化因素”， “虽然难以判断整体市场情绪何时会发生转变，但我们相信，一旦百度芯片业务分拆时间表及市场兴趣变得明朗，仍存在释放价值的机会”， 花旗给予百度“买入”评级，该公司股价今年以来下跌逾14%。
 
-周四美元持稳，欧元兑美元小幅变动至 1.1717，本周料下跌 0.6%，为两个月最大跌幅。
-
-美元指数（一篮子货币加权）最新报 98.48，本周迄今涨幅超 0.6%，创下伊朗战争爆发以来最佳周度表现。
-
-美元兑日元回吐早盘涨幅，小幅走低至 157.87；日本央行委员増田和幸表态称，若经济无明显放缓迹象，央行应迅速加息，日元获得支撑。
-
-过去两周，日本当局据信多次入市干预以抑制美元走强，但交易商当前计价美联储今年加息预期，日元承压。
-
-美元已收复当局上次干预支撑日元以来跌幅的 50%。
-
-通胀高烧不退 本周美元持续走强，源于美国国内通胀升温的证据。
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-30 07:50 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-30 07:49 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-30 07:43 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-30 07:36 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
-- 2026-06-30 07:56 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-30 07:35 - [德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
-- 2026-06-30 07:31 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-30 07:47 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
-- 2026-06-30 07:31 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-30 07:41 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-30 07:51 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-30 07:52 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
+- 2026-06-30 07:55 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-30 08:05 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-30 07:40 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-30 07:48 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-30 07:41 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-30 07:41 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-30 07:43 - [世界杯巴拉圭点球淘汰德国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-30 07:57 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-30 07:37 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-30 07:47 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-30 07:49 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-30 07:59 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-30 07:59 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:51 - [本科毕业生为何涌入专科学校](http://www.blog.kurohicncr.top/Article/details/76308948.shtml)
-- 2026-06-30 07:56 - [张帅时隔四年晋级温网第二轮](http://www.share.minike.top/Article/details/30169.shtml)
-- 2026-06-30 07:57 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/395575.shtml)
-- 2026-06-30 07:39 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/3775310.shtml)
-- 2026-06-30 07:42 - [问心2神一集鬼三集](http://www.blog.minike.top/Article/details/32424281110.shtml)
-- 2026-06-30 07:56 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.minike.top/Article/details/086918194034.shtml)
-- 2026-06-30 07:32 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/38265.shtml)
-- 2026-06-30 07:46 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/30871.shtml)
-- 2026-06-30 07:55 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/11018.shtml)
-- 2026-06-30 07:50 - [德国巴拉圭 折磨](http://www.blog.kurohicncr.top/Article/details/712763.shtml)
-- 2026-06-30 07:55 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.share.kurohicncr.top/Article/details/920240350423.shtml)
-- 2026-06-30 07:44 - [张帅时隔四年再取温网正赛胜利](http://www.share.minike.top/Article/details/26831859.shtml)
-- 2026-06-30 07:33 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.kurohicncr.top/Article/details/86074417912.shtml)
-- 2026-06-30 07:57 - [点菜也要教吗](https://www.share.kurohicncr.top/Article/details/7503667120.shtml)
-- 2026-06-30 07:52 - [董卿父亲报纸上发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/9366992.shtml)
+- 2026-06-30 07:44 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/3264461369.shtml)
+- 2026-06-30 07:56 - [《男人至死是傻得儿》](https://www.blog.minike.top/Article/details/793891399.shtml)
+- 2026-06-30 07:38 - [“草莓月亮”浪漫现身](https://www.share.kurohicncr.top/Article/details/107775105528.shtml)
+- 2026-06-30 07:47 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/02655903.shtml)
+- 2026-06-30 08:02 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/4510258627.shtml)
+- 2026-06-30 07:47 - [为什么会有「念旧」的心理？](https://www.share.kurohicncr.top/Article/details/26469717.shtml)
+- 2026-06-30 08:02 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/734636987.shtml)
+- 2026-06-30 08:01 - [周冬雨多次说演不了话剧文城](http://www.share.minike.top/Article/details/36233.shtml)
+- 2026-06-30 07:45 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/16056.shtml)
+- 2026-06-30 07:38 - [又一美国科技巨头转向中国大模型](http://www.share.minike.top/Article/details/4829516796.shtml)
+- 2026-06-30 07:45 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.minike.top/Article/details/95429220.shtml)
+- 2026-06-30 08:01 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/52075922842.shtml)
+- 2026-06-30 07:39 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/0683036.shtml)
+- 2026-06-30 07:47 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.minike.top/Article/details/1546334954.shtml)
+- 2026-06-30 07:49 - [王欣瑜连续4年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/326643982627.shtml)

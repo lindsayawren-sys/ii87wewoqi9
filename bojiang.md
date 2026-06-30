@@ -1,50 +1,59 @@
-# 联合国就副秘书长被以方短暂扣留作出回应
+# 6家国际大行集体看空黄金，国内多家银行上调保证金比例
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-中新网5月14日电 据联合国官网消息，当地时间13日，联合国秘书长副发言人哈克就联合国负责安全和安保事务的副秘书长吉勒·米肖在以色列机场被扣留一事表示，米肖已收到以色列外交部发来的致歉，以方将此事归因于人为失误。据外媒报道，米肖12日抵达以色列特拉维夫附近的本－古里安机场后，以色列方面没收了米肖的护照，并将他转移到等候区接受讯问，询问他最近访问加沙的情况，之后米肖被扣留了约45
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者丨叶麦穗 编辑丨方海平 曾芳 面对黄金“跌跌不休”的走势，又有国际大行下调黄金的价格展望。高盛日前将2026年年底的黄金目标价大幅下调至每盎司4900美元，调降幅度高达500美元。 这已经是第六家下调黄金展望的国际大行，此前还有德国商业银行、花旗、摩根大通、摩根士丹利和澳新银行，其中花旗一个月内甚至两次
 
 ## 正文
 
-中新网5月14日电 据联合国官网消息，当地时间13日，联合国秘书长副发言人哈克就联合国负责安全和安保事务的副秘书长吉勒·米肖在以色列机场被扣留一事表示，米肖已收到以色列外交部发来的致歉，以方将此事归因于人为失误。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-据外媒报道，米肖12日抵达以色列特拉维夫附近的本－古里安机场后，以色列方面没收了米肖的护照，并将他转移到等候区接受讯问，询问他最近访问加沙的情况，之后米肖被扣留了约45分钟。
+记者丨叶麦穗 编辑丨方海平 曾芳 面对黄金“跌跌不休”的走势，又有国际大行下调黄金的价格展望。
 
-以色列官员后来将这起事件描述为“身份误认事件”。
+高盛日前将2026年年底的黄金目标价大幅下调至每盎司4900美元，调降幅度高达500美元。
 
-事后，米肖在评论这起事件时表示，他所受到的待遇“很不寻常”，与他之前在任何其他国家经历过的都截然不同。
+这已经是第六家下调黄金展望的国际大行，此前还有德国商业银行、花旗、摩根大通、摩根士丹利和澳新银行，其中花旗一个月内甚至两次下调黄金的价格展望。
 
-事件发生后，米肖表示计划取消在以色列的所有正式会议。
+高盛加入看空黄金行列 高盛给出的理由是美联储年内降息无望，该行经济学家已将下次降息的时间点推迟至2027年，这将直接削弱黄金ETF后续的资金流入预期。
+
+同时，本周新任美联储主席沃什释放强于预期的“鹰派”信号，缓解了市场对美联储独立性的担忧，一定程度上削弱了黄金的避险光环。
+
+高盛警告称，若美联储年内真的启动加息，年底金价可能跌至每盎司4400美元。
+
+今年1月底，纽约商品交易所黄金期货主力合约价格一度突破每盎司5500美元，创下年内最高点。
 
 ## 相关推荐
 
-- 2026-06-30 07:50 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-30 07:41 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-30 07:57 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-30 07:44 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
-- 2026-06-30 07:57 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-30 07:31 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
-- 2026-06-30 07:58 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-30 07:40 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-30 07:44 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
-- 2026-06-30 07:30 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-30 08:05 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-30 08:05 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-30 07:56 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-30 08:00 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-30 07:48 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
+- 2026-06-30 07:45 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-30 07:43 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-30 07:53 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-30 07:37 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-30 07:45 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-30 07:43 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-30 07:58 - [德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
+- 2026-06-30 07:57 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:35 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/133540480399.shtml)
-- 2026-06-30 07:58 - [德国巴拉圭 折磨](http://www.share.kurohicncr.top/Article/details/266850.shtml)
-- 2026-06-30 07:44 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.minike.top/Article/details/67283.shtml)
-- 2026-06-30 07:36 - [勇士续约波尔津吉斯](http://www.share.kurohicncr.top/Article/details/626999932646.shtml)
-- 2026-06-30 07:53 - [斛珠夫人](http://www.blog.minike.top/Article/details/76252.shtml)
-- 2026-06-30 07:35 - [庆祝中国共产党成立105周年音乐会](https://www.share.kurohicncr.top/Article/details/8577357.shtml)
-- 2026-06-30 07:50 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/6748362449.shtml)
-- 2026-06-30 07:51 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/08491273824.shtml)
-- 2026-06-30 07:32 - [毒液2](http://www.share.kurohicncr.top/Article/details/217395450170.shtml)
-- 2026-06-30 07:58 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/4788840742.shtml)
-- 2026-06-30 07:41 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/015923.shtml)
-- 2026-06-30 07:48 - [逃狱兄弟](https://www.share.minike.top/Article/details/811478345546.shtml)
-- 2026-06-30 07:58 - [流金岁月](https://www.blog.minike.top/Article/details/832323.shtml)
-- 2026-06-30 07:59 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/352191880.shtml)
-- 2026-06-30 07:56 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/6437279880.shtml)
+- 2026-06-30 08:01 - [AI手机进入Agent时代](http://www.blog.minike.top/Article/details/45444219.shtml)
+- 2026-06-30 07:36 - [巴拉圭点球大战淘汰德国进16强](http://www.share.minike.top/Article/details/363947619.shtml)
+- 2026-06-30 07:59 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/97095358695.shtml)
+- 2026-06-30 07:59 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/6084306.shtml)
+- 2026-06-30 07:51 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/3927544297.shtml)
+- 2026-06-30 07:38 - [上市央企地产商 两年换了三任董事长](https://www.share.minike.top/Article/details/300679.shtml)
+- 2026-06-30 08:03 - [锐评T1战胜KC](http://www.blog.minike.top/Article/details/823973682903.shtml)
+- 2026-06-30 07:42 - [王楚钦孙颖莎晋级混双八强](http://www.share.minike.top/Article/details/757401521845.shtml)
+- 2026-06-30 07:40 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.minike.top/Article/details/2052170.shtml)
+- 2026-06-30 08:02 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.kurohicncr.top/Article/details/236011.shtml)
+- 2026-06-30 07:43 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/00301.shtml)
+- 2026-06-30 07:54 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.minike.top/Article/details/452903.shtml)
+- 2026-06-30 07:44 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/252152048641.shtml)
+- 2026-06-30 07:46 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/742948.shtml)
+- 2026-06-30 07:51 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/159037084047.shtml)

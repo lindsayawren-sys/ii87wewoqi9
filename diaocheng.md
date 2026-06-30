@@ -1,57 +1,58 @@
-# 国台办驳斥民进党炒作大陆旅游危险
+# 中央气象台：每 日 天 气 提 示（2026年06月23日）
 
-> 更新时间：2026-06-30 08:00:03 UTC+8
+> 更新时间：2026-06-30 08:06:02 UTC+8
 
 ## 摘要
 
-中新网5月13日电 5月13日，国台办举行例行新闻发布会。国台办发言人张晗针对民进党当局炒作所谓“大陆旅游危险”回应道，大陆良好的社会治安环境为世界公认。广大台湾同胞在大陆旅游观光、探亲访友，拥有安全舒适、便捷舒心的出行体验，这是有目共睹的事实。民进党当局不断蓄意抹黑，编造所谓“风险”，意图制造恐慌，阻挠破坏两岸交流和人员往来，升高两岸对立对抗。我要重申，只要不从事违法犯罪活动
+来源：中央气象台网站 昨日，贵州南部、湖南西部和北部、江西北部、安徽南部、江苏南部、上海、浙江北部和东部等地出现暴雨或大暴雨，贵州黔南局地出现特大暴雨。预计本周内，西南地区东部和南部、江南、华南西部等地将多较强降雨天气，主要降水过程为23-24日以及25-28日。 其中今天，贵州中南部、广西北部、湖南西部和南部、云南东北部以及安徽南部、浙江中北部和东南部、江西东北部和中部等地部
 
 ## 正文
 
-中新网5月13日电 5月13日，国台办举行例行新闻发布会。
+来源：中央气象台网站 昨日，贵州南部、湖南西部和北部、江西北部、安徽南部、江苏南部、上海、浙江北部和东部等地出现暴雨或大暴雨，贵州黔南局地出现特大暴雨。
 
-国台办发言人张晗针对民进党当局炒作所谓“大陆旅游危险”回应道，大陆良好的社会治安环境为世界公认。
+预计本周内，西南地区东部和南部、江南、华南西部等地将多较强降雨天气，主要降水过程为23-24日以及25-28日。
 
-广大台湾同胞在大陆旅游观光、探亲访友，拥有安全舒适、便捷舒心的出行体验，这是有目共睹的事实。
+其中今天，贵州中南部、广西北部、湖南西部和南部、云南东北部以及安徽南部、浙江中北部和东南部、江西东北部和中部等地部分地区有大到暴雨，贵州东南部、广西北部等地局地有大暴雨（100~220毫米）。
 
-民进党当局不断蓄意抹黑，编造所谓“风险”，意图制造恐慌，阻挠破坏两岸交流和人员往来，升高两岸对立对抗。
+上述部分地区伴有短时强降水（最大小时降雨量20~50毫米，局地可超过80毫米），局地有雷暴大风等强对流天气。
 
-我要重申，只要不从事违法犯罪活动，广大台湾同胞到大陆旅行交流，完全可以高高兴兴来、平平安安回。
+未来三天，华北、东北及内蒙古等地多雷雨天气。
 
-(中新网“燕新台”工作室)
+预计今天，蒙古东南部、东北地区西部、华北中北部、江南中南部、华南北部等地的部分地区将有8级以上雷暴大风或冰雹天气，其中，内蒙古东南部、辽宁西部、河北西部等地局地将有10级以上雷暴大风；内蒙古东部、东北地区中西部、华北中北部、江南北部、西南地区东部、华南西部等地的部分地区将有小时雨量大于20毫米的短时强降水天气。
+
+气象专家提醒，南方强降雨天气持续，公众外出时需注意安全，贵州、云南西部、广西北部、福建等地累计雨量大，局地发生山洪、地质灾害风险较高，应避免前往山谷、河道等低洼地带，做好暴雨次生灾害防御。
+
+另外，山西、河北、北京、辽宁、吉林、内蒙古等地将有雷雨天气，部分地区有雷暴大风或冰雹天气，公众需密切关注短时临近天气预报预警，合理安排出行计划。
 
 ## 相关推荐
 
-- 2026-06-30 07:47 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-30 07:48 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-30 07:49 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-30 07:54 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
-- 2026-06-30 07:53 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-30 07:41 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-30 07:37 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-30 07:59 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
-- 2026-06-30 07:50 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
-- 2026-06-30 07:36 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
-- 2026-06-30 07:31 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
-- 2026-06-30 07:36 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
-- 2026-06-30 07:50 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
-- 2026-06-30 07:34 - [网友写差评被店家“挂”门口避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-30 07:58 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-30 07:41 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-30 07:40 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-30 07:59 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-30 07:44 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
+- 2026-06-30 07:55 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-30 07:39 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-30 07:39 - [马耳他著名拱门坍塌致一中国男子身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
+- 2026-06-30 07:45 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-30 07:57 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-30 07:40 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-30 07:44 - [点球大战 残酷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-30 08:05 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:39 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/51605233241.shtml)
-- 2026-06-30 07:40 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/38799.shtml)
-- 2026-06-30 07:53 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/08489132946.shtml)
-- 2026-06-30 07:36 - [索马里女大使：想和中国一起搞事业](http://www.blog.minike.top/Article/details/86904077.shtml)
-- 2026-06-30 07:34 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.minike.top/Article/details/982788224.shtml)
-- 2026-06-30 07:56 - [这一刀 会很帅](https://www.share.minike.top/Article/details/052285773.shtml)
-- 2026-06-30 07:48 - [【大鸣王潮1566】真拿你没办法](http://www.share.kurohicncr.top/Article/details/1041315813.shtml)
-- 2026-06-30 07:46 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/270861512.shtml)
-- 2026-06-30 07:58 - [千与千寻](http://www.share.kurohicncr.top/Article/details/672752.shtml)
-- 2026-06-30 07:48 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/19149135.shtml)
-- 2026-06-30 07:34 - [德国vs巴拉圭](https://www.share.minike.top/Article/details/4747534.shtml)
-- 2026-06-30 07:57 - [网友写差评被店家“挂”门口避雷](http://www.blog.minike.top/Article/details/5696321162.shtml)
-- 2026-06-30 07:58 - [日本遭读秒绝杀 森保一：我水平不够](http://www.blog.minike.top/Article/details/6010822.shtml)
-- 2026-06-30 07:51 - [三星投资计划](https://www.share.minike.top/Article/details/714991894438.shtml)
-- 2026-06-30 07:56 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/93489.shtml)
+- 2026-06-30 07:49 - [穆祉丞年度人气艺人](http://www.blog.kurohicncr.top/Article/details/688067499352.shtml)
+- 2026-06-30 08:05 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/8958614.shtml)
+- 2026-06-30 07:42 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/757346.shtml)
+- 2026-06-30 07:36 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/59637217.shtml)
+- 2026-06-30 07:44 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/66743029.shtml)
+- 2026-06-30 08:01 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.minike.top/Article/details/977377538.shtml)
+- 2026-06-30 07:52 - [恋与深空道歉声明](http://www.share.minike.top/Article/details/854342662705.shtml)
+- 2026-06-30 07:49 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/61630517.shtml)
+- 2026-06-30 07:57 - [王楚钦说配合稍微有些陌生感](https://www.share.minike.top/Article/details/03903894145.shtml)
+- 2026-06-30 07:36 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/1943000.shtml)
+- 2026-06-30 07:54 - [刘宇宁是去进货了吗](http://www.blog.kurohicncr.top/Article/details/1158869.shtml)
+- 2026-06-30 08:01 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/43155.shtml)
+- 2026-06-30 07:46 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/72625.shtml)
+- 2026-06-30 07:42 - [德国 传控](http://www.blog.kurohicncr.top/Article/details/918647666.shtml)
+- 2026-06-30 07:38 - [问心2神一集鬼三集](http://www.blog.minike.top/Article/details/6356177734.shtml)
