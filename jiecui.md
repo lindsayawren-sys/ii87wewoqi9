@@ -1,52 +1,56 @@
-# 离境退税2.0版措施预计4月底前推出
+# 国台办：台胞到大陆旅行交流完全可以高高兴兴来、平平安安回
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-中国证券报记者4月14日在第六届消博会期间获悉，离境退税2.0版措施目前正在报批过程中，预计4月底前推出。 去年4月26日，商务部等六部门发布《关于进一步优化离境退税政策扩大入境消费的通知》。通知从推动离境退税商店增量扩容、丰富离境退税商品供给、提升离境退税服务水平三方面提出了8条具体举措。其中包括优化离境退税商店布局、扩大退税商店覆盖面、放宽离境退税商店备案条件、下调离境退税
+中新社北京5月13日电 (记者 徐雪莹 刘大炜)对于台陆委会再次称赴大陆旅游风险居高不下，国务院台办新闻发言人张晗13日在北京应询指，大陆良好的社会治安环境为世界公认。 她表示，只要不从事违法犯罪活动，广大台湾同胞到大陆旅行交流，完全可以高高兴兴来、平平安安回。 国台办例行新闻发布会当天举行，张晗答问时说，广大台湾同胞在大陆旅游观光、探亲访友，拥有安全舒适、便捷舒心的出行体验，
 
 ## 正文
 
-中国证券报记者4月14日在第六届消博会期间获悉，离境退税2.0版措施目前正在报批过程中，预计4月底前推出。
+中新社北京5月13日电 (记者 徐雪莹 刘大炜)对于台陆委会再次称赴大陆旅游风险居高不下，国务院台办新闻发言人张晗13日在北京应询指，大陆良好的社会治安环境为世界公认。
 
-去年4月26日，商务部等六部门发布《关于进一步优化离境退税政策扩大入境消费的通知》。
+她表示，只要不从事违法犯罪活动，广大台湾同胞到大陆旅行交流，完全可以高高兴兴来、平平安安回。
 
-通知从推动离境退税商店增量扩容、丰富离境退税商品供给、提升离境退税服务水平三方面提出了8条具体举措。
+国台办例行新闻发布会当天举行，张晗答问时说，广大台湾同胞在大陆旅游观光、探亲访友，拥有安全舒适、便捷舒心的出行体验，这是有目共睹的事实。
 
-其中包括优化离境退税商店布局、扩大退税商店覆盖面、放宽离境退税商店备案条件、下调离境退税起退点等。
+民进党当局不断蓄意抹黑，编造所谓“风险”，意图制造恐慌，阻挠破坏两岸交流和人员往来，升高两岸对立对抗。
 
-今年3月30日，商务部副部长盛秋平在国新办举行的新闻发布会上表示，将推出优化离境退税2.0版措施，让境外旅客购物更便利、更实惠，出台推动商品消费扩容升级的措施，扩大国货潮品、国际精品、时尚名品、外贸优品等消费。
+回答有关提问时，张晗还表示，我们一贯鼓励、支持包括旅游在内的两岸各领域交流往来，依法保护台湾同胞的正当权益。
 
-责任编辑：郭栩彤
+2025年台湾同胞来大陆近500万人次。
+
+她指出，民进党当局出于政治私利，恶意炒作、造谣抹黑大陆，企图制造“寒蝉效应”，目的是阻挠破坏两岸交流合作，升高两岸对立对抗，不得人心，不会得逞。
+
+就台陆委会称，国务院近日公布的《关于产业链供应链安全的规定》对在大陆外资与台商造成压力，张晗回应指出，该规定着力推进高水平对外开放，促进全球产业链供应链稳定畅通，填补了大陆在相关领域的立法空白，在大陆合法合规经营的台资企业受其保护。
 
 ## 相关推荐
 
-- 2026-06-30 07:29 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
-- 2026-06-30 07:51 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-30 07:44 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-30 07:36 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-30 07:28 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-30 07:27 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-30 07:37 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-30 07:47 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
-- 2026-06-30 07:37 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-30 07:53 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-30 07:40 - [德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-30 07:40 - [德国进球被吹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-30 07:59 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-30 07:48 - [张雪的一句“是我们”引发岛内热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-30 07:52 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-30 07:34 - [森保一致歉：世界第一目标没能实现](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-30 07:36 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-30 07:36 - [德国4比5巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-30 07:38 - [金鹰奖视后提名预测](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-30 07:46 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:49 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](http://www.share.kurohicncr.top/Article/details/25377.shtml)
-- 2026-06-30 07:52 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/3854901.shtml)
-- 2026-06-30 07:44 - [巴西绝杀日本](https://www.blog.kurohicncr.top/Article/details/932378063418.shtml)
-- 2026-06-30 07:39 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/0012253.shtml)
-- 2026-06-30 07:41 - [董卿父亲报纸上发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/8053016042.shtml)
-- 2026-06-30 07:30 - [美股](https://www.share.minike.top/Article/details/76103793239.shtml)
-- 2026-06-30 07:24 - [好像看到了人类带孩子崩溃的样子](http://www.blog.kurohicncr.top/Article/details/548541448469.shtml)
-- 2026-06-30 07:39 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/76978.shtml)
-- 2026-06-30 07:31 - [大蒜晒外面被路过女子连盆端走](https://www.share.kurohicncr.top/Article/details/05603.shtml)
-- 2026-06-30 07:29 - [多人在马路中间打羽毛球 交警回应](https://www.blog.kurohicncr.top/Article/details/119340.shtml)
-- 2026-06-30 07:51 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/1445719.shtml)
-- 2026-06-30 07:47 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/26021.shtml)
-- 2026-06-30 07:53 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/501989277.shtml)
-- 2026-06-30 07:47 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/69796028.shtml)
-- 2026-06-30 07:49 - [张帅时隔四年晋级温网第二轮](http://www.share.minike.top/Article/details/962807892651.shtml)
+- 2026-06-30 07:57 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/184041.shtml)
+- 2026-06-30 07:58 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.minike.top/Article/details/984545324.shtml)
+- 2026-06-30 07:32 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.kurohicncr.top/Article/details/748220714967.shtml)
+- 2026-06-30 07:42 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/9758521.shtml)
+- 2026-06-30 07:53 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/0305174.shtml)
+- 2026-06-30 07:37 - [杨紫被质疑未使用原名纯属误解](https://www.blog.minike.top/Article/details/82799728894.shtml)
+- 2026-06-30 07:36 - [张帅晋级温网次轮](https://www.share.kurohicncr.top/Article/details/86479075231.shtml)
+- 2026-06-30 07:55 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/36723182602.shtml)
+- 2026-06-30 07:33 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/72107317.shtml)
+- 2026-06-30 07:36 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.minike.top/Article/details/379149747618.shtml)
+- 2026-06-30 07:43 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.kurohicncr.top/Article/details/0735596470.shtml)
+- 2026-06-30 07:33 - [媒体评哈兰德之歌火了](http://www.blog.kurohicncr.top/Article/details/75850516.shtml)
+- 2026-06-30 07:56 - [峡谷事故团队组队时有人提醒会下雨](https://www.share.minike.top/Article/details/56164162339.shtml)
+- 2026-06-30 07:55 - [周冬雨多次说演不了话剧文城](https://www.blog.minike.top/Article/details/8010717.shtml)
+- 2026-06-30 07:41 - [国务院：稳步推进研究生考试招生改革](https://www.blog.minike.top/Article/details/327781057.shtml)

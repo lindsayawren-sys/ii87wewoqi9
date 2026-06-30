@@ -1,58 +1,56 @@
-# “会昌戏剧季004”十天上演近30部中外佳作
+# A股新晋“股王”突发，副总经理被刑拘！
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-中新网北京4月14日电 (记者 应妮)5月29日至6月7日，会昌戏剧季004将在江西会昌戏剧小镇举行。13日在京举行的发布会上，会昌戏剧小镇戏剧发起人赖声川、丁乃竺，与演员张震和国际著名戏剧和歌剧导演特拉维斯·普雷斯顿共同开启了本届戏剧季。本届戏剧季以“世界戏聚，梦圆会昌桃花源”为主题，将在十天时间内上演近30部中外佳作，举办近400场演出活动。 赖声川谈到，会昌是其父亲赖家球
+源杰科技副总经理陈文君因涉嫌刑事犯罪被公安机关刑事拘留。 源杰科技（688498）5月14日晚间公告，公司于近日收到公司副总经理陈文君家属的通知，陈文君因涉嫌刑事犯罪被公安机关刑事拘留，无法正常履行公司副总经理职责。 截至本公告披露日，公司未接到公安机关对该事件的通知。目前，公司生产经营情况正常、稳定，公司已经对该副总经理负责的相关工作做了妥善安排和处理，该事件不影响公司的正常
 
 ## 正文
 
-中新网北京4月14日电 (记者 应妮)5月29日至6月7日，会昌戏剧季004将在江西会昌戏剧小镇举行。
+源杰科技副总经理陈文君因涉嫌刑事犯罪被公安机关刑事拘留。
 
-13日在京举行的发布会上，会昌戏剧小镇戏剧发起人赖声川、丁乃竺，与演员张震和国际著名戏剧和歌剧导演特拉维斯·普雷斯顿共同开启了本届戏剧季。
+源杰科技（688498）5月14日晚间公告，公司于近日收到公司副总经理陈文君家属的通知，陈文君因涉嫌刑事犯罪被公安机关刑事拘留，无法正常履行公司副总经理职责。
 
-本届戏剧季以“世界戏聚，梦圆会昌桃花源”为主题，将在十天时间内上演近30部中外佳作，举办近400场演出活动。
+截至本公告披露日，公司未接到公安机关对该事件的通知。
 
-赖声川谈到，会昌是其父亲赖家球的故乡，20世纪80年代，一张照片、一封家书的出现，让赖声川和哥哥赖声羽开始会昌的寻亲之路，也把戏剧带回了家乡。
+目前，公司生产经营情况正常、稳定，公司已经对该副总经理负责的相关工作做了妥善安排和处理，该事件不影响公司的正常经营活动。
 
-迄今为止，会昌戏剧小镇已举办三届戏剧季，吸引全球数十个顶尖剧团及艺术家带来上千场演出。
+公告称，陈文君在任期间主要分管公司产品销售及营销相关工作，鉴于其已无法正常履行公司副总经理职责，为保障公司相关业务平稳衔接、不间断推进，公司于2026年5月14日召开第二届董事会第三十次会议，审议通过了《关于解聘公司高级管理人员的议案》，解除陈文君的副总经理职务，解聘后其仍在公司担任其他职务，解聘事项自董事会审议通过之日起生效。
 
-赖声川在这季将带来一部环境剧场作品《梦游》，演出发生在小镇历史悠久的古宅之中，以赣剧为引，取材自汤显祖《牡丹亭》，与古代文人和现代诗人邂逅。
-
-由杨丽萍任艺术总监、青年舞蹈家朱凤伟自编自导自演的原生态生命舞蹈剧场《天地树》，将展现天、地、树与人的关系与对话。
-
-今年是《暗恋桃花源》上演40周年，戏剧季期间将看到多版本齐演的盛况。
+今年以来，源杰科技股价持续走高，最新股价报1635元/股，目前为A股最高价个股，年内累计涨幅超150%；总市值为1405亿元。
 
 ## 相关推荐
 
-- 2026-06-30 07:52 - [日本球员说被绝杀非常不甘心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
-- 2026-06-30 07:36 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
-- 2026-06-30 07:49 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-30 07:42 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-30 07:29 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-30 07:41 - [中国新一轮出口管制直指日本命脉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-30 07:39 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
-- 2026-06-30 07:41 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-30 07:33 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
-- 2026-06-30 07:49 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-30 07:34 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-30 07:51 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
+- 2026-06-30 07:37 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-30 07:52 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-30 07:43 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-30 07:53 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-30 07:56 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-30 07:47 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-30 07:50 - [德国淘汰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-30 07:36 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-30 07:35 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-30 07:50 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
+- 2026-06-30 07:33 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
+- 2026-06-30 07:42 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-30 07:53 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-30 07:35 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:32 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/384180.shtml)
-- 2026-06-30 07:44 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/859493.shtml)
-- 2026-06-30 07:37 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/7924211.shtml)
-- 2026-06-30 07:30 - [又一美国科技巨头转向中国大模型](http://www.blog.kurohicncr.top/Article/details/10626342.shtml)
-- 2026-06-30 07:28 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/77432392096.shtml)
-- 2026-06-30 07:42 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/24254.shtml)
-- 2026-06-30 07:38 - [巴西把自己踢晕了](http://www.blog.kurohicncr.top/Article/details/8673390113.shtml)
-- 2026-06-30 07:24 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/918443892927.shtml)
-- 2026-06-30 07:39 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/39684555.shtml)
-- 2026-06-30 07:48 - [森保一 保守](http://www.blog.kurohicncr.top/Article/details/133501005982.shtml)
-- 2026-06-30 07:52 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/01260.shtml)
-- 2026-06-30 07:44 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/491782.shtml)
-- 2026-06-30 07:26 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/65493.shtml)
-- 2026-06-30 07:30 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/993331.shtml)
-- 2026-06-30 07:40 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/56489298839.shtml)
+- 2026-06-30 07:35 - [有什么好的高中网课推荐吗？](https://www.blog.kurohicncr.top/Article/details/55593129549.shtml)
+- 2026-06-30 07:35 - [周冬雨多次说演不了话剧文城](https://www.blog.minike.top/Article/details/04086326.shtml)
+- 2026-06-30 07:40 - [范志毅看好日本队淘汰巴西](http://www.blog.kurohicncr.top/Article/details/236954.shtml)
+- 2026-06-30 07:52 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/741602892.shtml)
+- 2026-06-30 07:40 - [好像看到了人类带孩子崩溃的样子](https://www.blog.kurohicncr.top/Article/details/7518349.shtml)
+- 2026-06-30 07:30 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/8888451091.shtml)
+- 2026-06-30 07:35 - [王源近几年没有路演了](https://www.share.kurohicncr.top/Article/details/592502673021.shtml)
+- 2026-06-30 07:58 - [二次元提前预演明日巴西对日本](http://www.blog.minike.top/Article/details/1673297.shtml)
+- 2026-06-30 07:37 - [郑钦文温网三连败西尼亚科娃](http://www.blog.kurohicncr.top/Article/details/3377825793.shtml)
+- 2026-06-30 07:48 - [网友写差评被店家“挂”门口避雷](https://www.share.minike.top/Article/details/748433.shtml)
+- 2026-06-30 07:33 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/464658955.shtml)
+- 2026-06-30 07:47 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/055714388.shtml)
+- 2026-06-30 07:40 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/2196819.shtml)
+- 2026-06-30 07:40 - [德国 传控](https://www.blog.minike.top/Article/details/459632568357.shtml)
+- 2026-06-30 07:33 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/4133379.shtml)

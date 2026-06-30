@@ -1,58 +1,58 @@
-# 第六届消博会主宾国加拿大国家馆开馆
+# 助数字经济等新业态出海 亚洲快链海缆在中国香港登陆
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-中新社海口4月13日电 (陶思阅)第六届中国国际消费品博览会(下称“消博会”)13日至18日在海南海口举行，加拿大以主宾国身份亮相今年消博会。多位加方人士和企业表示，愿深化与中国的合作。 13日下午，加拿大国家馆开馆时分，展位人头攒动。加拿大国际贸易部长马宁德·西杜在致辞中表示，消费者、采购商、参展商齐聚于此，期待能进一步深化加中双边经贸合作，让更多优质产品走进中国市场。 “中
+中新社北京5月14日电 中国联通消息，中国联通联合中国电信等12家境内外运营商共同建设的亚洲快链海缆(Asia Link Cable，ALC)14日在中国香港成功登陆，标志着中国面向亚太的国际数字通道能力再上新台阶。 作为“十五五”开局之年首条登陆中国的大容量国际海缆，ALC海缆在全球率先采用智能光网络海缆调度，与2025年11月同在中国香港登陆的由中国联通参建的SEA-H2X
 
 ## 正文
 
-中新社海口4月13日电 (陶思阅)第六届中国国际消费品博览会(下称“消博会”)13日至18日在海南海口举行，加拿大以主宾国身份亮相今年消博会。
+中新社北京5月14日电 中国联通消息，中国联通联合中国电信等12家境内外运营商共同建设的亚洲快链海缆(Asia Link Cable，ALC)14日在中国香港成功登陆，标志着中国面向亚太的国际数字通道能力再上新台阶。
 
-多位加方人士和企业表示，愿深化与中国的合作。
+作为“十五五”开局之年首条登陆中国的大容量国际海缆，ALC海缆在全球率先采用智能光网络海缆调度，与2025年11月同在中国香港登陆的由中国联通参建的SEA-H2X海缆一道，在中国香港、中国海南、新加坡实现“三地双登、异路热备”的优势，可实现毫秒级链路自动倒换，达到99.999%的超高可靠性。
 
-13日下午，加拿大国家馆开馆时分，展位人头攒动。
+ALC海缆全长约6100公里，路由覆盖中国香港、中国海南、新加坡、越南、菲律宾、马来西亚、文莱等亚太核心数字节点，是连接中国与东南亚的关键数字大动脉。
 
-加拿大国际贸易部长马宁德·西杜在致辞中表示，消费者、采购商、参展商齐聚于此，期待能进一步深化加中双边经贸合作，让更多优质产品走进中国市场。
+依托前瞻布局与技术创新，在性能指标上，ALC海缆单纤对容量达27Tbps，中国香港—中国海南—新加坡主干路由时延优化至32毫秒，按行业等效流量折算每秒可传递超800亿个Token(词元)，能够高效支撑超大规模AI跨国实时调度、跨境推理与全球算力协同，为数字经济、人工智能、Token经济等新业态出海提供了高速、稳定、安全的国际通道。
 
-“中国的仓储条件和运输效率具有很大优势，因此，对于追求新鲜的高价值农产品而言，中国是一个极其庞大的市场。
+此次ALC海缆成功登陆，使中国联通在亚太地区形成三条传统海缆(APCN2、APG、EAC)加三条新一代海缆(ADC、SEA-H2X、ALC)的多层立体网络架构，进一步巩固了中国在全球互联网格局中的网络优势。
 
-”加拿大艾伯塔省农业及灌溉部部长RJ·西德格森接受中新社采访时说，艾伯塔省的长期目标是继续发展对华贸易，不仅将农产品、原材料出口到中国，也希望进口中国的产品。
+依托ADC、SEA-H2X、ALC三条新一代海缆在中国香港三站登陆的协同效应，将夯实香港国际数字枢纽地位，深化粤港澳大湾区、海南自贸港与东盟国家的海缆互联互通，助力中国高水平对外开放与区域一体化发展。
 
-加拿大籍演员大山表达了类似的期待：“从加拿大消费者的角度来讲，特别期待中国电车重返加拿大市场。
-
-” 消博会已举行到第六届，参展企业也持续推进在中国市场的布局。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 07:40 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
-- 2026-06-30 07:26 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
-- 2026-06-30 07:24 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
-- 2026-06-30 07:39 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-30 07:50 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-30 07:33 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-30 07:36 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-30 07:47 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-30 07:24 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-30 07:28 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
-- 2026-06-30 07:49 - [网友写差评被店家“挂”门口避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-30 07:46 - [曝老詹对自由市场态度与以往截然不同](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-30 07:52 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-30 07:53 - [库尼亚赛后伸五指嘲讽日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-30 07:42 - [日本反击率先破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-30 07:43 - [网友写差评被店家“挂”门口避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-30 07:31 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-30 07:36 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-30 07:56 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
+- 2026-06-30 07:37 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-30 07:33 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
+- 2026-06-30 07:58 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-30 07:39 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-30 07:37 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-30 07:54 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-30 07:59 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:42 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/51075599.shtml)
-- 2026-06-30 07:49 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/897650197235.shtml)
-- 2026-06-30 07:49 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/738859.shtml)
-- 2026-06-30 07:39 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/76034679496.shtml)
-- 2026-06-30 07:45 - [媒体：手机测评该挤挤水分了](https://www.blog.minike.top/Article/details/789217786.shtml)
-- 2026-06-30 07:38 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.minike.top/Article/details/348743780.shtml)
-- 2026-06-30 07:53 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.kurohicncr.top/Article/details/206930.shtml)
-- 2026-06-30 07:38 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/55562.shtml)
-- 2026-06-30 07:50 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/6358944662.shtml)
-- 2026-06-30 07:50 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/83628.shtml)
-- 2026-06-30 07:51 - [内马尔替补](http://www.share.kurohicncr.top/Article/details/9814557.shtml)
-- 2026-06-30 07:24 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/26064861.shtml)
-- 2026-06-30 07:25 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.minike.top/Article/details/8887078006.shtml)
-- 2026-06-30 07:38 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/1316792783.shtml)
-- 2026-06-30 07:28 - [武磊：日本队有能力跟任何强队抗衡](http://www.share.minike.top/Article/details/284740017.shtml)
+- 2026-06-30 07:58 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/5452725663.shtml)
+- 2026-06-30 07:43 - [张雪的一句“是我们”引发岛内热议](http://www.share.minike.top/Article/details/6254296031.shtml)
+- 2026-06-30 07:41 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/119566849816.shtml)
+- 2026-06-30 07:52 - [网友写差评被店家“挂”门口避雷](https://www.share.minike.top/Article/details/4322261076.shtml)
+- 2026-06-30 07:58 - [世界杯：德国vs巴拉圭](http://www.blog.minike.top/Article/details/73373581.shtml)
+- 2026-06-30 07:47 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/39682815002.shtml)
+- 2026-06-30 07:40 - [不开心就去看三年前的购物订单](https://www.share.minike.top/Article/details/058469600.shtml)
+- 2026-06-30 07:46 - [中国新一轮出口管制直指日本命脉](https://www.blog.minike.top/Article/details/66830.shtml)
+- 2026-06-30 07:45 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/80333721.shtml)
+- 2026-06-30 07:48 - [“柠檬茶能换怀表？”](https://www.share.kurohicncr.top/Article/details/399377174415.shtml)
+- 2026-06-30 07:36 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/930699172236.shtml)
+- 2026-06-30 07:42 - [曝灰熊将莫兰特交易至开拓者](https://www.share.kurohicncr.top/Article/details/025844305869.shtml)
+- 2026-06-30 07:35 - [国务院：探索延长义务教育年限](http://www.blog.kurohicncr.top/Article/details/50294681927.shtml)
+- 2026-06-30 07:31 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/41518.shtml)
+- 2026-06-30 07:52 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/92183592705.shtml)

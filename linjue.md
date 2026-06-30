@@ -1,58 +1,43 @@
-# 4月银行体系资金相对充裕 央行缩量续作6个月期买断式逆回购 市场利率处于低位
+# 我国农村供水保障水平显著提升
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-财联社4月14日讯（记者 曹韵仪）今日，央行公告称为保持银行体系流动性充裕，2026年4月15日，中国人民银行将以固定数量、利率招标、多重价位中标方式开展5000亿元买断式逆回购操作，期限为6个月。 这是央行连续两个月缩量续作6个月期买断式逆回购，缩量规模与上月相同。同时，央行连续多个交易日在公开市场进行“地量”操作。业内人士表示，近期DR001已运行在1.2%—1.25%之间
+发布时间：2026年05月13日 13:30 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-财联社4月14日讯（记者 曹韵仪）今日，央行公告称为保持银行体系流动性充裕，2026年4月15日，中国人民银行将以固定数量、利率招标、多重价位中标方式开展5000亿元买断式逆回购操作，期限为6个月。
-
-这是央行连续两个月缩量续作6个月期买断式逆回购，缩量规模与上月相同。
-
-同时，央行连续多个交易日在公开市场进行“地量”操作。
-
-业内人士表示，近期DR001已运行在1.2%—1.25%之间，远低于政策利率，反映出市场流动性充裕。
-
-背后原因在于银行体系资金相对充裕，4月为季节性信贷增量“小月”，且季初阶段部分短贷可能到期，即存贷差可能阶段性扩大。
-
-央行连日“地量”操作 买断式逆回购再次缩量 今日央行公告，4月15日将以固定数量、利率招标、多重价位中标方式开展5000亿元买断式逆回购操作，期限为6个月（183天），到期日为2026年10月15日（遇节假日顺延）。
-
-这是央行连续两个月缩量续作6个月期买断式逆回购，缩量规模与上月相同。
-
-由于此前4月3个月期买断式逆回购已缩量3000亿，意味着4月两个期限品种的买断式逆回购合计缩量4000亿，缩量规模较上月扩大1000亿。
+发布时间：2026年05月13日 13:30 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 07:31 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-30 07:30 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-30 07:51 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-30 07:49 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
-- 2026-06-30 07:45 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
-- 2026-06-30 07:35 - [勇士续约波尔津吉斯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-30 07:34 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-30 07:29 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-30 07:29 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-30 07:31 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
-- 2026-06-30 07:28 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-30 07:26 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-30 07:31 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-30 07:53 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
+- 2026-06-30 07:46 - [王楚钦孙颖莎晋级混双八强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-30 07:31 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
+- 2026-06-30 07:33 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-30 07:42 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-30 07:47 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-30 07:37 - [巴拉圭点球大战淘汰德国进16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-30 07:40 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-30 07:31 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-30 07:32 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:25 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/95012655.shtml)
-- 2026-06-30 07:36 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/7170018.shtml)
-- 2026-06-30 07:36 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/16507.shtml)
-- 2026-06-30 07:34 - [我觉得你是在无中生友](http://www.share.kurohicncr.top/Article/details/067590.shtml)
-- 2026-06-30 07:24 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/59895235.shtml)
-- 2026-06-30 07:35 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/50681921.shtml)
-- 2026-06-30 07:30 - [南北多地暴雨和强对流天气持续](http://www.share.kurohicncr.top/Article/details/92125738242.shtml)
-- 2026-06-30 07:46 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/5937111.shtml)
-- 2026-06-30 07:41 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/12464.shtml)
-- 2026-06-30 07:28 - [关晓彤一路小跑迎接爸爸探班](https://www.share.kurohicncr.top/Article/details/17150272883.shtml)
-- 2026-06-30 07:37 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/7095524365.shtml)
-- 2026-06-30 07:51 - [德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/18838.shtml)
-- 2026-06-30 07:31 - [斛珠夫人](https://www.blog.minike.top/Article/details/86133763300.shtml)
-- 2026-06-30 07:25 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.kurohicncr.top/Article/details/031887851797.shtml)
-- 2026-06-30 07:50 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.kurohicncr.top/Article/details/649410.shtml)
+- 2026-06-30 07:53 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/68926722735.shtml)
+- 2026-06-30 07:55 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/0694008.shtml)
+- 2026-06-30 07:48 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/9977039197.shtml)
+- 2026-06-30 07:58 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/1546819211.shtml)
+- 2026-06-30 07:48 - [金鹰奖视后提名预测](http://www.share.kurohicncr.top/Article/details/6815429.shtml)
+- 2026-06-30 07:54 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.share.kurohicncr.top/Article/details/92905.shtml)
+- 2026-06-30 07:41 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/08021564958.shtml)
+- 2026-06-30 07:38 - [日本球员说被绝杀非常不甘心](https://www.share.minike.top/Article/details/58572.shtml)
+- 2026-06-30 07:33 - [巴拉圭率先破门](http://www.share.kurohicncr.top/Article/details/34254078545.shtml)
+- 2026-06-30 07:57 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/994615555357.shtml)
+- 2026-06-30 07:31 - [警犬“多多”助民警寻回失联老人](http://www.blog.minike.top/Article/details/037173836.shtml)
+- 2026-06-30 07:57 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/18746.shtml)
+- 2026-06-30 07:59 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.kurohicncr.top/Article/details/1279154.shtml)
+- 2026-06-30 07:49 - [德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/59574795814.shtml)
+- 2026-06-30 07:40 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/376625.shtml)

@@ -1,58 +1,45 @@
-# 法治引航 共筑上海民营经济发展沃土
+# 欧盟拟出台法案让儿童延迟使用社交媒体
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-中新网上海4月14日电 (范宇斌)13日，上海市委统战部、上海市工商联联合召开“法治引航 共话发展”民营经济法治营商环境建设专题圆桌会，加强政企沟通，进一步凝聚共识、汇集智慧。上海市委常委、统战部部长陈通出席会议并讲话。圆桌会是2026上海民营经济高质量发展服务月重点活动。上海全市全面落实民营经济促进法和上海市民营经济促进条例、优化营商环境条例，健全完善“公检法司”合作机制，共
+发布时间：2026年05月13日 16:23 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-中新网上海4月14日电 (范宇斌)13日，上海市委统战部、上海市工商联联合召开“法治引航 共话发展”民营经济法治营商环境建设专题圆桌会，加强政企沟通，进一步凝聚共识、汇集智慧。
-
-上海市委常委、统战部部长陈通出席会议并讲话。
-
-圆桌会是2026上海民营经济高质量发展服务月重点活动。
-
-上海全市全面落实民营经济促进法和上海市民营经济促进条例、优化营商环境条例，健全完善“公检法司”合作机制，共同营造市场化、法治化、国际化一流营商环境，为上海民营经济高质量发展提供了坚实的法治保障。
-
-会议指出，要落实建设法治化营商环境的政策措施，聚焦公平准入，依法保障民营企业平等参与市场竞争；聚焦权益保护，依法保护民营企业和企业家合法权益；聚焦执法监督，持续规范涉企行政执法行为。
-
-要协调司法、行政、法律服务等资源，针对企业破产保护、知识产权保护、涉外法治服务、网络法治生态等重点方面，提供有力法治服务保障。
-
-要强化企业合规经营，完善公司治理结构，弘扬企业家精神，不断提升企业科学管理水平，持续促进“两个健康”，共同为促进上海民营经济发展壮大作出新的更大贡献。
-
-会议还指出，推动上海法治营商环境建设，要汇聚民营经济法治营商环境建设的强大合力，积极探索建立信息共享、问题会商、联合调研、普法联动等多层次协作机制，构建完善的法治保障体系。
+发布时间：2026年05月13日 16:23 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 07:39 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-30 07:36 - [德国爆冷点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
-- 2026-06-30 07:32 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-30 07:39 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-30 07:48 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-30 07:32 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-30 07:48 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
-- 2026-06-30 07:29 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-30 07:49 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-30 07:33 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
-- 2026-06-30 07:25 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-30 07:46 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
+- 2026-06-30 07:32 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-30 07:43 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-30 07:54 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-30 07:58 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-30 07:36 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
+- 2026-06-30 07:52 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-30 07:59 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
+- 2026-06-30 07:34 - [世界杯巴拉圭点球淘汰德国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-30 07:37 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-30 07:58 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-30 07:56 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-30 07:44 - [德国4比5巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
+- 2026-06-30 07:46 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:31 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](http://www.blog.minike.top/Article/details/48916.shtml)
-- 2026-06-30 07:36 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/63708.shtml)
-- 2026-06-30 07:27 - [输球后日本球迷被强行披上巴西国旗](https://www.blog.kurohicncr.top/Article/details/2840557048.shtml)
-- 2026-06-30 07:52 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/67594.shtml)
-- 2026-06-30 07:44 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/92274443.shtml)
-- 2026-06-30 07:26 - [乔家的儿女](https://www.share.minike.top/Article/details/83464908.shtml)
-- 2026-06-30 07:25 - [“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/21357.shtml)
-- 2026-06-30 07:45 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/98506649.shtml)
-- 2026-06-30 07:28 - [内马尔替补](http://www.blog.kurohicncr.top/Article/details/28767.shtml)
-- 2026-06-30 07:25 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/36288304027.shtml)
-- 2026-06-30 07:45 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/875472411402.shtml)
-- 2026-06-30 07:37 - [周生如故](http://www.share.minike.top/Article/details/3702845028.shtml)
-- 2026-06-30 07:41 - [《男人至死是傻得儿》](https://www.blog.minike.top/Article/details/886468162.shtml)
-- 2026-06-30 07:40 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/00009.shtml)
-- 2026-06-30 07:44 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/129649.shtml)
+- 2026-06-30 07:57 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/74225422.shtml)
+- 2026-06-30 07:30 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/007024299739.shtml)
+- 2026-06-30 07:40 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/83342508607.shtml)
+- 2026-06-30 07:34 - [千与千寻](https://www.blog.minike.top/Article/details/52067.shtml)
+- 2026-06-30 08:00 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/3882159331.shtml)
+- 2026-06-30 07:48 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/2540974139.shtml)
+- 2026-06-30 07:43 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.minike.top/Article/details/52807082477.shtml)
+- 2026-06-30 07:54 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/17941310165.shtml)
+- 2026-06-30 07:30 - [为什么会有「念旧」的心理？](http://www.blog.kurohicncr.top/Article/details/25506.shtml)
+- 2026-06-30 07:39 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/349237.shtml)
+- 2026-06-30 07:34 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/27993.shtml)
+- 2026-06-30 07:39 - [大蒜晒外面被路过女子连盆端走](https://www.blog.kurohicncr.top/Article/details/666119536987.shtml)
+- 2026-06-30 07:31 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.minike.top/Article/details/135462547849.shtml)
+- 2026-06-30 07:33 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/65977.shtml)
+- 2026-06-30 07:42 - [DeepSeek启动成立来最大规模招聘](http://www.blog.minike.top/Article/details/070853.shtml)

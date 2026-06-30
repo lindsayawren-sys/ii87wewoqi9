@@ -1,57 +1,59 @@
-# 中俄青少年南京共学汉字 共写书法
+# 国际能源署：中东冲突引发严重供应冲击，今年全球石油缺口将达178万桶/日
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:02 UTC+8
 
 ## 摘要
 
-中新网南京4月14日电 (记者 朱晓颖)日前在南京市中山小学，40余名中俄青少年同上一节“中俄友好 趣学汉字”课，孩子们认真聆听共学汉字，持笔伏案共写书法。 “友好同心，以美育人——中俄教育年·南京市与普希金诺市教育文化交流活动”近日在南京举行。此次俄方代表团来访源于南京市中山小学与普希金诺市伊万捷耶夫卡区第七教育中心自2025年以来的友好交往。双方此前共办的“我心中的中国·我
+5月13日，国际能源署（IEA）发布5月石油市场报告。报告指出，受地区冲突导致的中东石油生产与航运中断影响，预计2026年全球石油供应将出现严重缺口，无法满足市场总需求。 报告显示，当前霍尔木兹海峡的油轮航运持续受限，海湾产油国的累计供应损失已突破10亿桶大关。目前，每日停产原油规模超过1400万桶，构成了“前所未有的供应冲击”。 基于最新形势，国际能源署大幅调整了市场供需预期
 
 ## 正文
 
-中新网南京4月14日电 (记者 朱晓颖)日前在南京市中山小学，40余名中俄青少年同上一节“中俄友好 趣学汉字”课，孩子们认真聆听共学汉字，持笔伏案共写书法。
+5月13日，国际能源署（IEA）发布5月石油市场报告。
 
-“友好同心，以美育人——中俄教育年·南京市与普希金诺市教育文化交流活动”近日在南京举行。
+报告指出，受地区冲突导致的中东石油生产与航运中断影响，预计2026年全球石油供应将出现严重缺口，无法满足市场总需求。
 
-此次俄方代表团来访源于南京市中山小学与普希金诺市伊万捷耶夫卡区第七教育中心自2025年以来的友好交往。
+报告显示，当前霍尔木兹海峡的油轮航运持续受限，海湾产油国的累计供应损失已突破10亿桶大关。
 
-双方此前共办的“我心中的中国·我心中的俄罗斯”绘画展评活动，成为中俄人文交流的典范案例。
+目前，每日停产原油规模超过1400万桶，构成了“前所未有的供应冲击”。
 
-“请你用两三根线条来画一个人，你会怎么画呢？
+基于最新形势，国际能源署大幅调整了市场供需预期。
 
-”“你会用身体摆成一个‘人’字吗？
+报告预测，2026年全球石油供应将比总需求低178万桶/日。
 
-”“把这个‘人’的脑袋画得又大又圆，表示人的头顶上是一望无边的‘天’”……南京市教学研究室小学语文教研员徐艳循循善诱。
+这一数据与上月报告预测的41万桶/日盈余，以及去年12月预测的近4000万桶/日盈余相比，发生了显著逆转。
 
-徐艳请大家观察教室里的人，再用课件演示田野里一个侧身站立的人演变成汉字“人”的过程，她请孩子们站起身，摆成造型“人”和“大”，和团队老师带领大家用毛笔写下“人”“大”“天”字。
+在供应端，受地缘政治冲突影响，国际能源署将2026年全年供应量预测值大幅下调390万桶/日，较此前预估的150万桶/日减量进一步扩大。
 
 ## 相关推荐
 
-- 2026-06-30 07:31 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
-- 2026-06-30 07:32 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
-- 2026-06-30 07:36 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-30 07:48 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-30 07:32 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-30 07:50 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-30 07:42 - [日本进球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-30 07:41 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-30 07:43 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-30 07:26 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-30 07:39 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-30 07:45 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-30 07:38 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-30 07:54 - [德国巴拉圭进入点球大战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-30 07:57 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
+- 2026-06-30 07:48 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-30 07:35 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-30 07:50 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-30 07:37 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
+- 2026-06-30 07:57 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-30 07:41 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
+- 2026-06-30 07:37 - [高质量发展看新疆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
+- 2026-06-30 07:42 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-30 07:39 - [张雪的一句“是我们”引发岛内热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:32 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/46042424625.shtml)
-- 2026-06-30 07:44 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/3689814391.shtml)
-- 2026-06-30 07:32 - [内马尔中场休息积极鼓励队友](https://www.share.kurohicncr.top/Article/details/843079331946.shtml)
-- 2026-06-30 07:39 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/17812410.shtml)
-- 2026-06-30 07:48 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/534892448961.shtml)
-- 2026-06-30 07:33 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.kurohicncr.top/Article/details/213687788.shtml)
-- 2026-06-30 07:49 - [韩国人为什么这么在乎输赢](https://www.blog.minike.top/Article/details/357798482.shtml)
-- 2026-06-30 07:35 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/330670194686.shtml)
-- 2026-06-30 07:38 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/38868.shtml)
-- 2026-06-30 07:46 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/79184634010.shtml)
-- 2026-06-30 07:28 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.kurohicncr.top/Article/details/7994358.shtml)
-- 2026-06-30 07:50 - [网友分享整套中医手术刀](http://www.share.kurohicncr.top/Article/details/7267083439.shtml)
-- 2026-06-30 07:33 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.share.minike.top/Article/details/221768.shtml)
-- 2026-06-30 07:46 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/270767929007.shtml)
-- 2026-06-30 07:43 - [南北多地暴雨和强对流天气持续](http://www.blog.kurohicncr.top/Article/details/241532172.shtml)
+- 2026-06-30 07:53 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/2133982038.shtml)
+- 2026-06-30 07:53 - [德国巴拉圭 折磨](https://www.share.minike.top/Article/details/01854150.shtml)
+- 2026-06-30 07:39 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/14451600135.shtml)
+- 2026-06-30 07:47 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/518871.shtml)
+- 2026-06-30 07:44 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/6982218661.shtml)
+- 2026-06-30 07:56 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/189478.shtml)
+- 2026-06-30 07:34 - [勇敢的心第二部](https://www.share.minike.top/Article/details/02103520564.shtml)
+- 2026-06-30 07:44 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.kurohicncr.top/Article/details/915954.shtml)
+- 2026-06-30 07:56 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/6968874730.shtml)
+- 2026-06-30 07:48 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/26756595.shtml)
+- 2026-06-30 07:42 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/47811821.shtml)
+- 2026-06-30 07:59 - [德国巴拉圭 折磨](http://www.share.minike.top/Article/details/384901119.shtml)
+- 2026-06-30 07:59 - [日本 高位逼抢](https://www.share.minike.top/Article/details/023920369407.shtml)
+- 2026-06-30 07:31 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/81747641.shtml)
+- 2026-06-30 07:58 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/922833.shtml)

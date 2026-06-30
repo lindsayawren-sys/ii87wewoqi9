@@ -1,56 +1,45 @@
-# 世界互联网大会亚太峰会彰显香港“内连外通”新动能
+# 新华社推出第三十二期“中国经济圆桌会”
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-中新社香港4月13日电 题：世界互联网大会亚太峰会彰显香港“内连外通”新动能 中新社记者 戴小橦 “连接河套深港科技创新合作区(简称‘河套合作区’)中深圳园区与香港园区的跨境行人桥正在加紧建设，有望不久后落成。”4月13日，在2026年世界互联网大会亚太峰会(简称“峰会”)现场，香港特区政府创新科技及工业局局长孙东透露了这一消息。而这座桥，正是香港“内连外通”、迈向数智未来的生
+视频：新华社推出第三十二期“中国经济圆桌会”来源：新华社新华社记者 编导：季晓庄 新华社音视频部制作
 
 ## 正文
 
-中新社香港4月13日电 题：世界互联网大会亚太峰会彰显香港“内连外通”新动能 中新社记者 戴小橦 “连接河套深港科技创新合作区(简称‘河套合作区’)中深圳园区与香港园区的跨境行人桥正在加紧建设，有望不久后落成。
-
-”4月13日，在2026年世界互联网大会亚太峰会(简称“峰会”)现场，香港特区政府创新科技及工业局局长孙东透露了这一消息。
-
-而这座桥，正是香港“内连外通”、迈向数智未来的生动注脚。
-
-当日，以“数智赋能 创新发展——携手构建网络空间命运共同体”为主题的峰会在香港开幕，吸引来自超过50个国家及地区的逾千名政商领袖、国际组织代表及专家学者参与。
-
-香港特区行政长官李家超在致辞中表示，峰会的高规格参与度，充分印证了香港在“一国两制”独特优势下的独特地位。
-
-在峰会现场，“杭州六小龙”之一的群核科技董事长黄晓煌表示，他比任何时候都更加确信，香港将是群核科技走向世界舞台的关键一站。
-
-孙东在接受记者采访时用一个具体的例子印证了香港“内连外通”的独特优势。
-
-他表示，深港两地已就河套合作区内的生物样品跨境流动达成共识，相关具体措施即将推出。
+视频：新华社推出第三十二期“中国经济圆桌会”来源：新华社新华社记者 编导：季晓庄 新华社音视频部制作
 
 ## 相关推荐
 
-- 2026-06-30 07:50 - [日本进球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-30 07:36 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
-- 2026-06-30 07:29 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-30 07:28 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-30 07:34 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-30 07:25 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-30 07:44 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-30 07:31 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-30 07:40 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
-- 2026-06-30 07:42 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-30 07:32 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
+- 2026-06-30 07:39 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-30 07:42 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
+- 2026-06-30 07:52 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-30 07:30 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
+- 2026-06-30 07:32 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-30 07:52 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-30 07:30 - [德国队世界杯点球大战首败](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-30 07:54 - [大蒜晒外面被路过女子连盆端走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-30 07:33 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
+- 2026-06-30 07:36 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-30 07:58 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-30 07:56 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:51 - [二次元提前预演明日巴西对日本](https://www.blog.kurohicncr.top/Article/details/102657.shtml)
-- 2026-06-30 07:51 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/10980.shtml)
-- 2026-06-30 07:30 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/907247600191.shtml)
-- 2026-06-30 07:29 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/257420.shtml)
-- 2026-06-30 07:27 - [Melo向柳智敏张元英道歉](http://www.share.kurohicncr.top/Article/details/248570.shtml)
-- 2026-06-30 07:33 - [德国进球被吹](https://www.blog.minike.top/Article/details/5488150377.shtml)
-- 2026-06-30 07:28 - [巴西扳平比分](https://www.share.kurohicncr.top/Article/details/378765.shtml)
-- 2026-06-30 07:31 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/19335596129.shtml)
-- 2026-06-30 07:37 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/41789838214.shtml)
-- 2026-06-30 07:24 - [巴西补时绝杀日本](http://www.blog.kurohicncr.top/Article/details/97444652.shtml)
-- 2026-06-30 07:24 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/457319.shtml)
-- 2026-06-30 07:53 - [又一美国科技巨头转向中国大模型](https://www.share.kurohicncr.top/Article/details/667534850833.shtml)
-- 2026-06-30 07:27 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/809847636.shtml)
-- 2026-06-30 07:24 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/31813521824.shtml)
-- 2026-06-30 07:45 - [齐思钧回复张月](http://www.blog.minike.top/Article/details/0242231.shtml)
+- 2026-06-30 07:50 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/440187583237.shtml)
+- 2026-06-30 07:30 - [德国罚丢3粒点球](http://www.share.minike.top/Article/details/2604682.shtml)
+- 2026-06-30 07:37 - [毒液2](http://www.blog.kurohicncr.top/Article/details/596392363944.shtml)
+- 2026-06-30 07:36 - [德国淘汰](http://www.share.kurohicncr.top/Article/details/9579308.shtml)
+- 2026-06-30 07:48 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/83524.shtml)
+- 2026-06-30 07:49 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/78682.shtml)
+- 2026-06-30 07:33 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/632231269401.shtml)
+- 2026-06-30 07:47 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/9805598103.shtml)
+- 2026-06-30 07:56 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/558115417871.shtml)
+- 2026-06-30 07:38 - [好像看到了人类带孩子崩溃的样子](https://www.blog.minike.top/Article/details/74463761.shtml)
+- 2026-06-30 07:39 - [恋与深空制作组回应近期争议](https://www.share.minike.top/Article/details/894307946.shtml)
+- 2026-06-30 07:34 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/043293890081.shtml)
+- 2026-06-30 07:57 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.minike.top/Article/details/5189631010.shtml)
+- 2026-06-30 07:32 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/189486043.shtml)
+- 2026-06-30 07:38 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/8823836.shtml)

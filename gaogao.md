@@ -1,58 +1,58 @@
-# 微创机器人-B午后涨超5% 瑞银将其目标价上调至35.90港元
+# A股风格突变！热门赛道调整，红利板块走强
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-微创机器人-B（02252）盘中涨超7%，截至发稿，股价上涨5.17%，现报29.30港元，成交额1.67亿港元。 微创机器人去年海外收入按年增长287%，其中图迈手术机器人销售量更增长超过五倍。瑞银表示，微创机器人聚焦于南美、南亚及中东欧等中等收入发展中国家，这些地区的手术机器人渗透率较低，需求庞大。 瑞银发布研报称，将微创机器人-B（02252）目标价由21.4港元上调至3
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！多个热门赛道熄火，银行等红利板块走强。 今日（5月14日），A股回调，沪指跌超1%失守4200点，创业板指、科创综指跌超2%；港股高开低走，盘中窄幅震荡。 具体来看，A股主要股指盘中震荡下探，尾盘加速下行。截至收盘，沪指跌1.52%报4177.92点，深证成指跌2.14%，创业板指跌2.16%，科创综指跌2
 
 ## 正文
 
-微创机器人-B（02252）盘中涨超7%，截至发稿，股价上涨5.17%，现报29.30港元，成交额1.67亿港元。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-微创机器人去年海外收入按年增长287%，其中图迈手术机器人销售量更增长超过五倍。
+多个热门赛道熄火，银行等红利板块走强。
 
-瑞银表示，微创机器人聚焦于南美、南亚及中东欧等中等收入发展中国家，这些地区的手术机器人渗透率较低，需求庞大。
+今日（5月14日），A股回调，沪指跌超1%失守4200点，创业板指、科创综指跌超2%；港股高开低走，盘中窄幅震荡。
 
-瑞银发布研报称，将微创机器人-B（02252）目标价由21.4港元上调至35.9港元；评级从“中性”升为“买入”； 料集团2026至2028年的预测收入年复合增长率（CAGR）达49.5%，每股盈利（EPS）年复合增长率高达185.5%，看好其强劲的海外销售潜力。
+具体来看，A股主要股指盘中震荡下探，尾盘加速下行。
 
-公司去年海外收入同比增长287%，其中“图迈”手术机器人销售量更增长超过五倍。
+截至收盘，沪指跌1.52%报4177.92点，深证成指跌2.14%，创业板指跌2.16%，科创综指跌2.36%，北证50指数跌近4%，沪深北三市合计成交约3.39万亿元，较此前一日增加1239亿元。
 
-不同于已发展市场，微创机器人聚焦于南美、南亚及中东欧等中等收入发展中国家，这些地区的手术机器人渗透率较低，需求庞大； 预计到2034年，这些地区累计将有超过10，000台腹腔镜手术机器人的安装需求，而微创机器人作为市场先驱之一，有望取得25%的市场份额。
+A股市场近4400股飘绿，近日强势的电力板块回落走低，节能风电逼近跌停，大唐发电盘中急速跳水；算力概念亦下挫，中国长城跌停，科华数据、浪潮信息跌超7%；工业气体概念逆市活跃，中船特气20%涨停再创新高，近4个交易日已斩获3个涨停板。
 
-责任编辑：卢昱君
+此外，农业板块整体走强，猪肉概念股表现亮眼，天域生物、神农集团等涨停；白色家电、银行板块涨幅居前。
+
+工业气体概念活跃 工业气体概念盘中强势拉升，截至收盘，中船特气20%涨停再创新高，正帆科技午后亦涨停；侨源股份涨近12%，盘中创出新高；和远气体涨停，凯美特气涨超5%，广钢气体等拉升。
 
 ## 相关推荐
 
-- 2026-06-30 07:33 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
-- 2026-06-30 07:28 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-30 07:26 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-30 07:51 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-30 07:25 - [高质量发展看新疆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-30 07:32 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-30 07:45 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-30 07:33 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
-- 2026-06-30 07:28 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-30 07:28 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-30 07:37 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-30 07:35 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
-- 2026-06-30 07:48 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-30 07:38 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-30 07:58 - [德国巴拉圭进入点球大战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-30 07:44 - [女子遭下药退赔偿拟追刑责](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-30 07:47 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-30 07:43 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-30 07:36 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-30 07:36 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-30 07:51 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-30 07:42 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
+- 2026-06-30 07:47 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-30 07:48 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-30 07:40 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-30 07:56 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:42 - [巴西替补奇兵读秒绝杀](http://www.share.minike.top/Article/details/892276288747.shtml)
-- 2026-06-30 07:30 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.minike.top/Article/details/6975967.shtml)
-- 2026-06-30 07:47 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/208005946614.shtml)
-- 2026-06-30 07:36 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/2269973869.shtml)
-- 2026-06-30 07:34 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/863616.shtml)
-- 2026-06-30 07:40 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/09708874.shtml)
-- 2026-06-30 07:32 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/936802123.shtml)
-- 2026-06-30 07:52 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/552724247.shtml)
-- 2026-06-30 07:32 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/53743.shtml)
-- 2026-06-30 07:38 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/0341806.shtml)
-- 2026-06-30 07:49 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/186058419746.shtml)
-- 2026-06-30 07:52 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/48266797359.shtml)
-- 2026-06-30 07:27 - [森保一致歉：世界第一目标没能实现](http://www.share.kurohicncr.top/Article/details/947707183899.shtml)
-- 2026-06-30 07:46 - [巴西扳平比分](https://www.blog.kurohicncr.top/Article/details/33702214.shtml)
-- 2026-06-30 07:33 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/86016331816.shtml)
+- 2026-06-30 07:37 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/44266931.shtml)
+- 2026-06-30 07:55 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/0878881.shtml)
+- 2026-06-30 07:34 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/64585256.shtml)
+- 2026-06-30 07:52 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/2067428960.shtml)
+- 2026-06-30 07:49 - [男子醉酒溺水获救后同行人拒协助抬人](http://www.share.minike.top/Article/details/55074659.shtml)
+- 2026-06-30 07:41 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/09111531798.shtml)
+- 2026-06-30 07:44 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/25662347.shtml)
+- 2026-06-30 07:57 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/417828.shtml)
+- 2026-06-30 07:33 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/3014610257.shtml)
+- 2026-06-30 07:51 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/57614933.shtml)
+- 2026-06-30 07:36 - [韩乔生吐槽世界杯扩军](https://www.blog.kurohicncr.top/Article/details/0304492.shtml)
+- 2026-06-30 07:34 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/7471865316.shtml)
+- 2026-06-30 07:41 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/90824.shtml)
+- 2026-06-30 07:37 - [藤森庆子赢得秘鲁总统选举](https://www.blog.minike.top/Article/details/70493216.shtml)
+- 2026-06-30 07:31 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/7182864.shtml)

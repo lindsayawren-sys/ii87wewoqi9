@@ -1,59 +1,57 @@
-# 华商瑞鑫定期开放债券近3年业绩同类第一 第九次开放申赎
+# 沈阳开启2026年国际博物馆日活动周
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-当前市场环境正对投资者提出新的考验。利率中枢持续下行，权益市场结构性机会与波动并存，如何在复杂环境中为资产寻找“确定性锚点”？据悉，由15年投资老将、华商基金多资产投资部总经理张永志掌舵的华商瑞鑫定期开放债券基金（002924）正值基金第九次开放期，或为投资者在波动的市场中提供了一条寻求长期稳健回报的配置路径。（自2026年4月20日15：00后，该基金将暂停申购、赎回、转换业
+中新网沈阳5月14日电 (记者 韩宏)沈阳市2026年国际博物馆日活动周14日在沈阳故宫博物院南广场启幕。 本次活动周从5月14日持续至5月21日，精心推出38项近60场精彩活动。作为活动周的重头戏，2026年国际博物馆日辽宁主会场活动将于5月16日至17日在沈阳博物馆举办，“辽宁省第四届文创市集”将同步开市，省内外40余家文博单位携特色文创集中亮相，尽显文博创意之美。辽宁省文
 
 ## 正文
 
-当前市场环境正对投资者提出新的考验。
+中新网沈阳5月14日电 (记者 韩宏)沈阳市2026年国际博物馆日活动周14日在沈阳故宫博物院南广场启幕。
 
-利率中枢持续下行，权益市场结构性机会与波动并存，如何在复杂环境中为资产寻找“确定性锚点”？
+本次活动周从5月14日持续至5月21日，精心推出38项近60场精彩活动。
 
-据悉，由15年投资老将、华商基金多资产投资部总经理张永志掌舵的华商瑞鑫定期开放债券基金（002924）正值基金第九次开放期，或为投资者在波动的市场中提供了一条寻求长期稳健回报的配置路径。
+作为活动周的重头戏，2026年国际博物馆日辽宁主会场活动将于5月16日至17日在沈阳博物馆举办，“辽宁省第四届文创市集”将同步开市，省内外40余家文博单位携特色文创集中亮相，尽显文博创意之美。
 
-（自2026年4月20日15：00后，该基金将暂停申购、赎回、转换业务，进入下一个封闭运作管理期，基金开放具体时间请以公司公告为准） 华商瑞鑫定期开放债券：中长期业绩领跑 历史业绩是投资逻辑最好印证，华商瑞鑫定期开放债券基金在不同时间维度上均交出了亮眼的答卷。
+辽宁省文物考古研究院将开展公益文物鉴赏与鉴定服务，让市民一站式享受丰富的文化体验。
 
-据权威基金评价机构3月公布的数据显示，截至2026年2月底，该基金近1年净值增长率达32.19%，业绩表现同类第二；近3年净值增长率达47.11%，业绩位列同类第一；拉长至5年，该基金净值增长率超56%，位列同类第二。
+届时，由沈阳博物馆举办的《绘梦三重缘——辽宁与红楼梦文化》主题展将正式亮相。
 
-同时，上述业绩均大幅跑赢同期业绩比较基准——中证全债指数（具体详见下表）。
+近年来，沈阳博物馆事业蓬勃发展，全市备案博物馆总数达33家，连续两年的年接待观众超1500万人次，“百馆工程”扎实推进，延时开放、博物馆夜游等创新服务深受民众喜爱，博物馆正在成为沈阳最亮眼的文化名片之一。
 
-这充分体现了该基金在“债筑底、股增强”策略下，凭借大类资产配置及专业的投资能力，所展现出的穿越周期的稳健底色。
+活动周期间，沈阳市各博物馆同步发力、各展风采。
 
-华商瑞鑫定期开放债券基金业绩表现 数据说明：业绩数据来自华商基金，托管行复核；排名数据来自基金评价机构；同期业绩比较基准来自万得信息。
+沈阳故宫博物院推出《弓马凝辉——清代宫廷骑射文物展》、百年院庆公益讲座、流动博物馆进校园等活动；张学良旧居陈列馆举办多场精品文物展，并于5月21日联合齐文化博物馆、沈阳博物馆推出《千年“足”迹——从蹴鞠到足球》专题展；沈阳“九·一八”历史博物馆举办红色专题展览与志愿宣讲；新乐遗址博物馆带来“桥连古今文明，陶承千年文脉”校馆共建制陶体验活动及史前文化特展；辽宁古生物博物馆推出《化石，跨越国界的科学语言》主题系列科普活动；沈阳抗美援朝烈士纪念馆、沈阳工业博物馆、沈阳警察博物馆及各有关高校博物馆等也将举办研学实践、公益讲座、专题展览等多元活动。
 
 ## 相关推荐
 
-- 2026-06-30 07:46 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
-- 2026-06-30 07:29 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
-- 2026-06-30 07:43 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-30 07:29 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-30 07:47 - [德国队世界杯点球大战首败](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
-- 2026-06-30 07:51 - [森保一 保守](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
-- 2026-06-30 07:28 - [高质量发展看新疆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
-- 2026-06-30 07:51 - [郑钦文温网首轮出局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
-- 2026-06-30 07:38 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
-- 2026-06-30 07:33 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-30 07:36 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
-- 2026-06-30 07:43 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-30 07:35 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-30 07:54 - [武磊：巴西队赢的并不轻松](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-30 07:36 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-30 07:41 - [勇士续约波尔津吉斯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-30 07:31 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-30 07:30 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-30 07:58 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-30 07:39 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-30 07:32 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
+- 2026-06-30 07:50 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
+- 2026-06-30 07:47 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-30 07:33 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:38 - [湖南祁东原文化馆被指贱卖](http://www.share.minike.top/Article/details/53937046.shtml)
-- 2026-06-30 07:28 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/4147553072.shtml)
-- 2026-06-30 07:51 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/0691877.shtml)
-- 2026-06-30 07:38 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.kurohicncr.top/Article/details/471579.shtml)
-- 2026-06-30 07:32 - [王楚钦孙颖莎晋级混双八强](http://www.blog.kurohicncr.top/Article/details/107755211229.shtml)
-- 2026-06-30 07:29 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/859196077.shtml)
-- 2026-06-30 07:39 - [日本领先巴西](https://www.blog.kurohicncr.top/Article/details/230837.shtml)
-- 2026-06-30 07:25 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/03332131.shtml)
-- 2026-06-30 07:50 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.minike.top/Article/details/470671043.shtml)
-- 2026-06-30 07:50 - [乔家的儿女](http://www.share.minike.top/Article/details/197547870519.shtml)
-- 2026-06-30 07:41 - [《共患难》](http://www.share.minike.top/Article/details/35514029.shtml)
-- 2026-06-30 07:53 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/65487341953.shtml)
-- 2026-06-30 07:42 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/7654659.shtml)
-- 2026-06-30 07:52 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/8141813439.shtml)
-- 2026-06-30 07:39 - [我觉得你是在无中生友](http://www.blog.minike.top/Article/details/65239238.shtml)
+- 2026-06-30 07:52 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/1341727213.shtml)
+- 2026-06-30 07:52 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/2884834642.shtml)
+- 2026-06-30 07:40 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/70997.shtml)
+- 2026-06-30 07:54 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/40125.shtml)
+- 2026-06-30 07:39 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/603180.shtml)
+- 2026-06-30 07:54 - [日本队5进世界杯淘汰赛0胜](http://www.blog.minike.top/Article/details/787832583550.shtml)
+- 2026-06-30 07:44 - [男子身高一米八二仍做断骨增高](http://www.blog.minike.top/Article/details/6519576700.shtml)
+- 2026-06-30 07:51 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/06230.shtml)
+- 2026-06-30 07:34 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/571184455550.shtml)
+- 2026-06-30 07:30 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/99137357.shtml)
+- 2026-06-30 07:49 - [德国进球被吹](https://www.blog.minike.top/Article/details/64295.shtml)
+- 2026-06-30 07:38 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/90861805632.shtml)
+- 2026-06-30 07:30 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/6510157241.shtml)
+- 2026-06-30 07:33 - [卡塞米罗头球破门](https://www.share.kurohicncr.top/Article/details/573265424.shtml)
+- 2026-06-30 07:46 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/19387626993.shtml)

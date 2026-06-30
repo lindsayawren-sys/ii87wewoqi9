@@ -1,58 +1,58 @@
-# 参议院住房法案或难助购房者，甚至可能损害租房者利益
+# 全面超预期，阿里AI迎商业化拐点！百亿港股互联网ETF华宝（513770）冲高3%，机构：关注大厂估值逻辑转向
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-禁止大型投资机构购买独栋住宅，在华盛顿达成了罕见的两党共识。不少住房维权人士将疫情后房价飙升归咎于华尔街机构大肆囤房。如今，随着特朗普总统发布行政令、参议院推进相关法案，这一禁令或将很快落地。但多位经济学家指出，该举措对平抑房价效果有限，反而可能减少独栋住宅租赁供给，让无力购房者的选择更少。 法案核心内容 上月，参议院以89 票赞成、10 票反对通过一项旨在提升住房可负担性的法
+5月14日，受亮眼财报提振，阿里巴巴-W表现强势，早盘一度冲高8%，收涨3.84%，带领港股互联网板块全天维持涨势。港股AI核心工具——港股互联网ETF华宝（513770）场内价格一度涨逾3%，收涨0.47%。 互联网龙头AI叙事进入业绩验证节点，昨日阿里巴巴、腾讯控股两大龙头发布最新财报，市场聚焦其AI资本开支及商业化进展。 数据显示，阿里AI正式迈入“商业化回报周期”。阿里
 
 ## 正文
 
-禁止大型投资机构购买独栋住宅，在华盛顿达成了罕见的两党共识。
+5月14日，受亮眼财报提振，阿里巴巴-W表现强势，早盘一度冲高8%，收涨3.84%，带领港股互联网板块全天维持涨势。
 
-不少住房维权人士将疫情后房价飙升归咎于华尔街机构大肆囤房。
+港股AI核心工具——港股互联网ETF华宝（513770）场内价格一度涨逾3%，收涨0.47%。
 
-如今，随着特朗普总统发布行政令、参议院推进相关法案，这一禁令或将很快落地。
+互联网龙头AI叙事进入业绩验证节点，昨日阿里巴巴、腾讯控股两大龙头发布最新财报，市场聚焦其AI资本开支及商业化进展。
 
-但多位经济学家指出，该举措对平抑房价效果有限，反而可能减少独栋住宅租赁供给，让无力购房者的选择更少。
+数据显示，阿里AI正式迈入“商业化回报周期”。
 
-法案核心内容 上月，参议院以89 票赞成、10 票反对通过一项旨在提升住房可负担性的法案，众议院今年早些时候已通过版本更窄的同类法案。
+阿里云外部商业化收入大增40%，为9个季度以来最快，其中AI相关收入占比达30%，连续11个季度三位数增长。
 
-参议院版本由共和党参议员蒂姆・斯科特与民主党参议员伊丽莎白・沃伦联合推动，目标是刺激住房建设、降低房价。
+阿里方面表示，AI模型与应用服务年化经常性收入将在6月突破100亿元，年底将翻三倍突破300亿元。
 
-法案核心条款：禁止持有 350 套及以上独栋住宅的大型机构投资者，再购入新的独栋住宅。
+未来五年AI基建投入将远超3800亿元，并有望实现芯片全栈自研。
 
-实际效果存疑：难降房价，或伤租客 1． 机构投资者占比极低，非房价主因 机构投资者仅持有美国极小部分独栋住宅存量： “机构投资者只是方便的替罪羊，并未触及核心问题。
+隔夜阿里巴巴美股应声大涨逾8%。
 
 ## 相关推荐
 
-- 2026-06-30 07:49 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-30 07:42 - [巴拉圭点球大战淘汰德国进16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-30 07:47 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-30 07:28 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-30 07:50 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-30 07:40 - [索马里女大使：想和中国一起搞事业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
-- 2026-06-30 07:37 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-30 07:45 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-30 07:40 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
-- 2026-06-30 07:26 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-30 07:39 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-30 07:43 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-30 07:32 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-30 07:36 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-30 07:48 - [点球大战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-30 07:43 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-30 07:47 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
+- 2026-06-30 07:54 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-30 07:43 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-30 07:51 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-30 07:55 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-30 07:52 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-30 07:41 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-30 07:59 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:36 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/287562828818.shtml)
-- 2026-06-30 07:32 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/87439883484.shtml)
-- 2026-06-30 07:47 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/656093.shtml)
-- 2026-06-30 07:52 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/6676141.shtml)
-- 2026-06-30 07:31 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/10633.shtml)
-- 2026-06-30 07:27 - [索马里女大使：想和中国一起搞事业](http://www.share.kurohicncr.top/Article/details/15493.shtml)
-- 2026-06-30 07:24 - [安切洛蒂 换人](https://www.blog.kurohicncr.top/Article/details/13282887537.shtml)
-- 2026-06-30 07:31 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/527463833075.shtml)
-- 2026-06-30 07:26 - [安切洛蒂 换人](http://www.blog.kurohicncr.top/Article/details/2623650.shtml)
-- 2026-06-30 07:41 - [失明的我带老妈去了趟“火星”](https://www.blog.minike.top/Article/details/662120694792.shtml)
-- 2026-06-30 07:52 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/10575185.shtml)
-- 2026-06-30 07:27 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/255470476487.shtml)
-- 2026-06-30 07:26 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/579041394085.shtml)
-- 2026-06-30 07:39 - [金牌调解](http://www.share.kurohicncr.top/Article/details/383180060269.shtml)
-- 2026-06-30 07:24 - [世界杯巴拉圭点球淘汰德国](http://www.share.minike.top/Article/details/60810.shtml)
+- 2026-06-30 07:33 - [世界杯“美洲德比”7月1日开打](http://www.share.kurohicncr.top/Article/details/63102596.shtml)
+- 2026-06-30 07:55 - [恋与深空道歉声明](http://www.share.minike.top/Article/details/849323.shtml)
+- 2026-06-30 07:31 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/51458.shtml)
+- 2026-06-30 07:35 - [马耳他著名拱门坍塌致中国男子身亡](http://www.share.kurohicncr.top/Article/details/73622834230.shtml)
+- 2026-06-30 07:38 - [啊啊啊](http://www.share.minike.top/Article/details/56476.shtml)
+- 2026-06-30 07:50 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/066968.shtml)
+- 2026-06-30 07:37 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/886621.shtml)
+- 2026-06-30 07:30 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/4706362.shtml)
+- 2026-06-30 07:58 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/8408882563.shtml)
+- 2026-06-30 07:56 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/9240123146.shtml)
+- 2026-06-30 07:35 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/389701005409.shtml)
+- 2026-06-30 07:49 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/5082237.shtml)
+- 2026-06-30 07:38 - [孙兴慜发长文致歉](https://www.share.minike.top/Article/details/1005076.shtml)
+- 2026-06-30 07:38 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](http://www.share.kurohicncr.top/Article/details/17880497155.shtml)
+- 2026-06-30 07:39 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/768861344.shtml)

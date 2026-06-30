@@ -1,57 +1,56 @@
-# 北京人艺话剧《张居正》香港上演 冯远征：以诚意之作深化京港戏剧交流
+# 中信建投期货：5月14日农产品早报
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月13日 12:37 来源：中国新闻网 4月10日至12日，北京人民艺术剧院话剧《张居正》在香港西九文化区戏曲中心大剧院上演。睽违十余载，北京人艺再度来港演出，让不少本地戏迷慕名而来。 作为北京人艺的经典历史大戏，话剧《张居正》由茅盾文学奖获奖同名小说改编。原作者熊召政历时数年，九易其稿，最终打破传统叙事，以现实与想象双线交织，将一代名臣张居正的改革风骨
+玉米：中性偏多 1．市场关注：小麦/稻谷饲用替代存在比例上限，市场对相关拍卖的利空消息逐渐消化，盘面出现利空阶段性出尽后的反弹，但本轮上涨幅度有限；饲用豆粕/玉米逐渐逼近物理安全垫；深加工报价持续向下试探，跌幅较为控制，部分收购价已出现回调；新季小麦与陈麦报价持续下调，饲用企业或调整替代比例接近理论上限。USDA新季评估中性偏多，美国及全球玉米期末库存将降至多年低位，供需格局较
 
 ## 正文
 
-发布时间：2026年04月13日 12:37 来源：中国新闻网 4月10日至12日，北京人民艺术剧院话剧《张居正》在香港西九文化区戏曲中心大剧院上演。
+玉米：中性偏多 1．市场关注：小麦/稻谷饲用替代存在比例上限，市场对相关拍卖的利空消息逐渐消化，盘面出现利空阶段性出尽后的反弹，但本轮上涨幅度有限；饲用豆粕/玉米逐渐逼近物理安全垫；深加工报价持续向下试探，跌幅较为控制，部分收购价已出现回调；新季小麦与陈麦报价持续下调，饲用企业或调整替代比例接近理论上限。
 
-睽违十余载，北京人艺再度来港演出，让不少本地戏迷慕名而来。
+USDA新季评估中性偏多，美国及全球玉米期末库存将降至多年低位，供需格局较本年度继续收紧，价格中枢同比上移。
 
-作为北京人艺的经典历史大戏，话剧《张居正》由茅盾文学奖获奖同名小说改编。
+玉米单边偏强预估未变，但需注意南美增产部分抵消了美国收紧幅度，价格上行节奏不会是流畅的单边上涨。
 
-原作者熊召政历时数年，九易其稿，最终打破传统叙事，以现实与想象双线交织，将一代名臣张居正的改革风骨和人生回望，搬上话剧舞台。
+2．观点总结：盘面出现利空消化后的回调，且此前一轮盘面对应的现货下降幅度有限，产业及渠道商方面信心充足，但谷物压制仍在，可考虑低位试多，月内运行区间2360-2420元/吨。
 
-此次来港演出，剧组对表演细节、调度舞美进行了再次打磨。
+豆粕：中性 1．海外市场基本消化USDA供需报告带来的利多，隔夜CBOT大豆小幅调整。
 
-冯远征希望，香港的观众能够喜欢这部作品，并且在观演之后受到触动和启发。
+近日聚焦中美领导人会晤能否达成新的美豆采购协议，随后交易重心将逐步转向6-8月美豆产区天气变化及新季单产兑现情况。
 
-此外，他也期待未来能与香港戏剧同行继续深化交流合作，共同向世界展现中国优秀戏剧的魅力。
+2．连盘豆粕短期主要跟随美盘运行，单边预计维持宽幅震荡。
 
-记者 程宇 香港报道 责任编辑：【苏亦瑜】
+若后续国内新增美豆采购兑现推升美盘中枢，豆粕价格可能呈现盘面偏强（定价进口成本上移）、基差承压（定价供应增加）的组合。
 
 ## 相关推荐
 
-- 2026-06-30 07:38 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-30 07:27 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-30 07:26 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-30 07:26 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-30 07:33 - [齐思钧回复张月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-30 07:27 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-30 07:49 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-30 07:26 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
-- 2026-06-30 07:50 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-30 07:38 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
-- 2026-06-30 07:51 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-30 07:37 - [恋与深空道歉声明](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-30 07:50 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-30 07:48 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-30 07:36 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
+- 2026-06-30 07:36 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-30 07:50 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-30 07:56 - [日本队5进世界杯淘汰赛0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-30 07:44 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-30 07:47 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-30 07:36 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:31 - [张雪的一句“是我们”引发岛内热议](http://www.blog.kurohicncr.top/Article/details/8028220.shtml)
-- 2026-06-30 07:24 - [TOP不是Prada全球普通人](http://www.share.minike.top/Article/details/17196703.shtml)
-- 2026-06-30 07:39 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/9870759410.shtml)
-- 2026-06-30 07:29 - [张雪的一句“是我们”引发岛内热议](http://www.blog.kurohicncr.top/Article/details/3167266011.shtml)
-- 2026-06-30 07:32 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/27161331.shtml)
-- 2026-06-30 07:37 - [苗族银饰](https://www.blog.kurohicncr.top/Article/details/866298970.shtml)
-- 2026-06-30 07:46 - [又一美国科技巨头转向中国大模型](http://www.share.minike.top/Article/details/3260576639.shtml)
-- 2026-06-30 07:52 - [日本16强魔咒](https://www.blog.kurohicncr.top/Article/details/8656053935.shtml)
-- 2026-06-30 07:42 - [巴西在进攻三区完成210脚传球](http://www.share.minike.top/Article/details/0370664.shtml)
-- 2026-06-30 07:30 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.kurohicncr.top/Article/details/6097096.shtml)
-- 2026-06-30 07:33 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.share.minike.top/Article/details/9586740943.shtml)
-- 2026-06-30 07:53 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.minike.top/Article/details/159870992060.shtml)
-- 2026-06-30 07:40 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/018632167.shtml)
-- 2026-06-30 07:36 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/77977.shtml)
-- 2026-06-30 07:27 - [大蒜晒外面被路过女子连盆端走](http://www.blog.kurohicncr.top/Article/details/134911.shtml)
+- 2026-06-30 07:33 - [德国队世界杯点球大战首败](https://www.blog.kurohicncr.top/Article/details/8730429041.shtml)
+- 2026-06-30 07:55 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/3342664946.shtml)
+- 2026-06-30 07:49 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/70002.shtml)
+- 2026-06-30 07:44 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/9542609340.shtml)
+- 2026-06-30 07:48 - [这种关系可能正在悄悄“催老”你](https://www.blog.kurohicncr.top/Article/details/719304419.shtml)
+- 2026-06-30 07:44 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/772322280690.shtml)
+- 2026-06-30 07:34 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.minike.top/Article/details/37689256.shtml)
+- 2026-06-30 07:56 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/33168.shtml)
+- 2026-06-30 07:32 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/39301738294.shtml)
+- 2026-06-30 07:36 - [安切洛蒂 换人](http://www.share.minike.top/Article/details/117322.shtml)
+- 2026-06-30 07:40 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.blog.kurohicncr.top/Article/details/829628432795.shtml)
+- 2026-06-30 07:58 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/31897237219.shtml)
+- 2026-06-30 07:40 - [日本淘汰](https://www.blog.minike.top/Article/details/4524286026.shtml)
+- 2026-06-30 07:56 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/86903041683.shtml)
+- 2026-06-30 07:41 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/47877627623.shtml)

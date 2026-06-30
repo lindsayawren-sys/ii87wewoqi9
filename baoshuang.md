@@ -1,58 +1,56 @@
-# （经济观察）“China Travel”不只“到此一游”
+# “九华山因有人露营失温去世导致封山”系谣言（2026·05·13）
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-中新社北京4月14日电 (记者 刘文文)韩国年轻人周末飞往上海，钻进弄堂深处定制专属旗袍；外国博主在社交平台分享写汉字、打太极的心得；非洲游客在景德镇陶艺工坊，体验千年制瓷工艺…… 从“走马观花”转向文化沉浸，从“到此一游”转为“深度畅游”，“China Travel”的叙事逻辑已悄然改写，入境游正成为中国服务业提质扩能的重要抓手。 “不断培育服务业新增长点”“促进日常生活服务
+辟谣 “九华山因有人露营失温去世导致封山”系谣言 详情：近日，有网民在某视频评论区留言“九华山因大雨有人露营失温去世，所以封了”，相关言论引发关注。经属地公安局核实，该信息为谣言。经查，系当地一名网民为博取眼球、吸引流量，在视频评论区蓄意编造并擅自发布不实内容。目前，安徽省池州市青阳县公安机关已依法对该造谣网民作出行政处罚。(来源：“安徽网络举报”微信公众号) 科普 夏季开空调
 
 ## 正文
 
-中新社北京4月14日电 (记者 刘文文)韩国年轻人周末飞往上海，钻进弄堂深处定制专属旗袍；外国博主在社交平台分享写汉字、打太极的心得；非洲游客在景德镇陶艺工坊，体验千年制瓷工艺…… 从“走马观花”转向文化沉浸，从“到此一游”转为“深度畅游”，“China Travel”的叙事逻辑已悄然改写，入境游正成为中国服务业提质扩能的重要抓手。
+辟谣 “九华山因有人露营失温去世导致封山”系谣言 详情：近日，有网民在某视频评论区留言“九华山因大雨有人露营失温去世，所以封了”，相关言论引发关注。
 
-“不断培育服务业新增长点”“促进日常生活服务更加便捷、公共服务高效适配、文旅体等服务创新发展”，近日召开的全国服务业大会传递出清晰信号。
+经属地公安局核实，该信息为谣言。
 
-作为培育“中国服务”品牌的重要一环，入境游服务正不断升级。
+经查，系当地一名网民为博取眼球、吸引流量，在视频评论区蓄意编造并擅自发布不实内容。
 
-近年来，中国持续加码入境便利化措施，让外国人来华旅游可以“说走就走”。
+目前，安徽省池州市青阳县公安机关已依法对该造谣网民作出行政处罚。
 
-数据显示，2025年，中国入境游客人次超1.5亿，同比增长超17%。
+(来源：“安徽网络举报”微信公众号) 科普 夏季开空调前必须做好这一步 详情：近日，中东部气温持续走高，华北多地将冲击今年首个35℃，高温季就此拉开帷幕。
 
-2026年清明假期，外国人出入境84.3万人次，较2025年同期增长20.9%。
+然而，闲置数月的空调，很可能吹出暗藏病菌的“脏风”。
 
-如果说入境便利化解决了“怎么来”的问题，那么让外国游客“留下来”并“沉进去”，则依赖配套服务的持续优化与旅游产品的多元供给。
+中国环境科学学会室内环境与健康分会对北京、深圳两座城市的家用空调开展入户调研。
 
-从导航APP上线多语言服务，到移动支付、即时通信不断优化，外国游客自由行的障碍正被持续扫清。
+结果显示，88%的家用空调散热片上细菌总数超标，平均值超过标准约40倍(标准为每平方厘米细菌数≤100个)；除细菌外，84%的空调散热片上霉菌总数同样超标。
 
 ## 相关推荐
 
-- 2026-06-30 07:27 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-30 07:51 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
-- 2026-06-30 07:34 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-30 07:25 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-30 07:39 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-30 07:48 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-30 07:38 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-30 07:32 - [日本16强魔咒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-30 07:32 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-30 07:43 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-30 07:24 - [库尼亚赛后伸五指嘲讽日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
-- 2026-06-30 07:50 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
+- 2026-06-30 07:39 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
+- 2026-06-30 07:31 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-30 07:57 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-30 07:50 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-30 07:44 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-30 07:42 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-30 07:43 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-30 07:58 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
+- 2026-06-30 07:38 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
+- 2026-06-30 07:30 - [武磊：巴西队赢的并不轻松](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:33 - [周生如故](http://www.blog.minike.top/Article/details/16066716229.shtml)
-- 2026-06-30 07:26 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/6743127177.shtml)
-- 2026-06-30 07:40 - [巴西绝杀](https://www.share.minike.top/Article/details/907917698.shtml)
-- 2026-06-30 07:35 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/11413546.shtml)
-- 2026-06-30 07:36 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/53506254521.shtml)
-- 2026-06-30 07:46 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/77286664.shtml)
-- 2026-06-30 07:51 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/6026176922.shtml)
-- 2026-06-30 07:44 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.minike.top/Article/details/4934573.shtml)
-- 2026-06-30 07:45 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/47897495.shtml)
-- 2026-06-30 07:52 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.minike.top/Article/details/06656895492.shtml)
-- 2026-06-30 07:52 - [日本五次世界杯淘汰赛全败](https://www.blog.minike.top/Article/details/06734575.shtml)
-- 2026-06-30 07:34 - [德国队连续三届世界杯无缘16强](http://www.blog.minike.top/Article/details/9959491.shtml)
-- 2026-06-30 07:25 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/44428.shtml)
-- 2026-06-30 07:26 - [我觉得你是在无中生友](https://www.blog.kurohicncr.top/Article/details/4557850197.shtml)
-- 2026-06-30 07:47 - [刘宇宁高情商化解谁站C位](http://www.share.minike.top/Article/details/080038429899.shtml)
+- 2026-06-30 07:59 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/4079728312.shtml)
+- 2026-06-30 07:50 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/90113.shtml)
+- 2026-06-30 07:55 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/3277044403.shtml)
+- 2026-06-30 07:45 - [千香](https://www.blog.kurohicncr.top/Article/details/562871900918.shtml)
+- 2026-06-30 07:34 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/317618695.shtml)
+- 2026-06-30 07:39 - [男子身高一米八二仍做断骨增高](http://www.blog.minike.top/Article/details/635793.shtml)
+- 2026-06-30 07:30 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/3733285.shtml)
+- 2026-06-30 07:40 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/957353228077.shtml)
+- 2026-06-30 07:31 - [德国vs巴拉圭](https://www.share.kurohicncr.top/Article/details/57114434180.shtml)
+- 2026-06-30 07:41 - [巴西扳平比分](http://www.share.minike.top/Article/details/64251559550.shtml)
+- 2026-06-30 07:48 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/48236.shtml)
+- 2026-06-30 07:54 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/1113094.shtml)
+- 2026-06-30 07:30 - [德国4比5巴拉圭](http://www.share.minike.top/Article/details/202867789.shtml)
+- 2026-06-30 07:59 - [董卿父亲在报纸上发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/18500094.shtml)
+- 2026-06-30 07:41 - [女子遭下药退赔偿拟追刑责](https://www.blog.minike.top/Article/details/2570382243.shtml)

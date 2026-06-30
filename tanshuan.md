@@ -1,61 +1,56 @@
-# 五日股价大涨45%，张小泉澄清公司与光模块、PCB无关联
+# 衢州发展：董事长和副总裁提前离任
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-近日，老字号刀剪企业张小泉（301055.SZ）股价持续走高。4月7日至13日，公司股价连续五个交易日上涨，累计涨幅达45.65%，期间4月10日涨幅达 11.94%，4月13日更是因单日涨幅17%登上龙虎榜，成交显著放量，引发市场关注。 股价异动背后，有市场传闻称，张小泉工业剪刀业务已切入光模块、PCB、新能源等高端制造供应链。 4月14日，据中证报，针对市场热议的传闻，张小
+5月13日，衢州发展（600208.SH）宣布，因工作调任，公司董事长付亚民、董事兼副总裁陈英骅将于5月29日提前离任，原定任期到期日为7月17日。 同时，衢州发展控股股东衢州智宝企业管理合伙企业（有限合伙）提名孔德壮和黄涛先生为公司董事会董事候选人。 41岁的孔德壮自今年4月担任衢州市工业控股集团有限公司党委副书记、董事、副总经理，在此之前曾任浙江省衢州市常山县金川街道人大工
 
 ## 正文
 
-近日，老字号刀剪企业张小泉（301055.SZ）股价持续走高。
+5月13日，衢州发展（600208.SH）宣布，因工作调任，公司董事长付亚民、董事兼副总裁陈英骅将于5月29日提前离任，原定任期到期日为7月17日。
 
-4月7日至13日，公司股价连续五个交易日上涨，累计涨幅达45.65%，期间4月10日涨幅达 11.94%，4月13日更是因单日涨幅17%登上龙虎榜，成交显著放量，引发市场关注。
+同时，衢州发展控股股东衢州智宝企业管理合伙企业（有限合伙）提名孔德壮和黄涛先生为公司董事会董事候选人。
 
-股价异动背后，有市场传闻称，张小泉工业剪刀业务已切入光模块、PCB、新能源等高端制造供应链。
+41岁的孔德壮自今年4月担任衢州市工业控股集团有限公司党委副书记、董事、副总经理，在此之前曾任浙江省衢州市常山县金川街道人大工委主任，衢州市常山县城市投资集团有限公司党委书记、董事长、总经理，衢州市慧城产业发展集团有限公司党委书记、董事长、总经理，衢州市慧城产业控股集团有限公司党委书记、董事长、总经理。
 
-4月14日，据中证报，针对市场热议的传闻，张小泉相关负责人就近期股价异动及市场传闻作出明确回应，否认其工业剪刀业务切入光模块、PCB 及新能源等高端制造供应链的说法，强调公司工业剪刀主要包括纱剪、套管剪、服装剪等品类，下游应用以服装纺织企业为主。
+38岁的黄涛，今年2月起任衢州工业发展集团有限公司董事长及总经理，2025年12月至今任衢州工业控股集团有限公司党委委员。
 
-4月14日，张小泉股价报收29.94元/股，下跌1.12%，总市值46.71亿人民币。
+在此之前曾担任衢州市衢江区健康产业集团有限公司副总经理，衢江区发改局副局长，衢江区重点项目建设服务中心主任，衢江区招商投资促进中心党组书记、主任。
 
-张小泉公司也发布了关于公司股价异动的公告，公告称公司股票交易于2026年4月9日、2026年4月10日、2026年4月13日连续三个交易日收盘价格涨幅偏离值累计达到31.71%（超过30%），达到深交所规定的异常波动标准。
+同一日，衢州发展宣布，拟为公司及公司全体董事、高级管理人员及其他相关责任人员购买责任险（以下简称“董高责任险”），保费支出不超过80万元/年，保险期限为12个月。
 
-针对公司股票交易异常波动的情况，经公司通过通讯结合现场问询等方式，对公司、持股5%以上股东及全体董事、高级管理人员核实，不存在应披露而未披露的重大事项，也不存在处于筹划阶段的重大事项。
+公告称，本次购买董高责任险符合《中华人民共和国公司法》《上市公司治理准则》等相关规定的要求，有利于进一步优化公司风险管控体系，促进公司董事、高级管理人员及其他相关责任人员合规履职，从而提升管理团队的积极性，促进公司持续、高质量发展。
 
-同时，公告明确，公司目前生产经营情况正常，内外部经营环境未发生重大变化，《2025 年年度报告》《2026 年第一季度报告》编制工作正常进行，预约披露时间为4月28日。
+澎湃新闻记者 庞静涛
 
 ## 相关推荐
 
-- 2026-06-30 07:37 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-30 07:47 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
-- 2026-06-30 07:31 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-30 07:52 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-30 07:47 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-30 07:40 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
-- 2026-06-30 07:24 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-30 07:30 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
-- 2026-06-30 07:48 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-30 07:48 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
-- 2026-06-30 07:33 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-30 07:30 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-30 07:34 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-30 07:33 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-30 07:52 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-30 07:48 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-30 07:32 - [武磊：巴西队赢的并不轻松](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-30 07:53 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-30 07:30 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-30 07:57 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-30 07:37 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-30 07:46 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-30 07:45 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-30 07:44 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-30 07:57 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:29 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/62595.shtml)
-- 2026-06-30 07:40 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/0332739.shtml)
-- 2026-06-30 07:51 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/8799824.shtml)
-- 2026-06-30 07:49 - [老外对中国cosplay竟这样评价…](http://www.blog.minike.top/Article/details/50035.shtml)
-- 2026-06-30 07:38 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/3588756802.shtml)
-- 2026-06-30 07:33 - [巴西把自己踢晕了](https://www.share.minike.top/Article/details/662102.shtml)
-- 2026-06-30 07:27 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/9038780888.shtml)
-- 2026-06-30 07:50 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/19346114.shtml)
-- 2026-06-30 07:52 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/85918957.shtml)
-- 2026-06-30 07:52 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/2172692.shtml)
-- 2026-06-30 07:42 - [速度与激情9](http://www.blog.minike.top/Article/details/957048178181.shtml)
-- 2026-06-30 07:49 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.kurohicncr.top/Article/details/8123780.shtml)
-- 2026-06-30 07:24 - [日本反击率先破门](https://www.share.minike.top/Article/details/856090396.shtml)
-- 2026-06-30 07:28 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/3076243710.shtml)
-- 2026-06-30 07:47 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/37719.shtml)
+- 2026-06-30 07:53 - [网瘾賊大的阿嬷](https://www.share.minike.top/Article/details/66666.shtml)
+- 2026-06-30 07:33 - [郑钦文温网一轮游](http://www.share.kurohicncr.top/Article/details/942554926.shtml)
+- 2026-06-30 07:58 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.blog.minike.top/Article/details/89635033356.shtml)
+- 2026-06-30 07:34 - [委内瑞拉地震死亡人数升至1719人](https://www.blog.kurohicncr.top/Article/details/87172982430.shtml)
+- 2026-06-30 07:45 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/64793.shtml)
+- 2026-06-30 07:32 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/380232655.shtml)
+- 2026-06-30 07:45 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.blog.kurohicncr.top/Article/details/4122046.shtml)
+- 2026-06-30 07:34 - [2026MSI应援曲《如果季中成回忆》](http://www.share.minike.top/Article/details/3062729281.shtml)
+- 2026-06-30 07:30 - [张帅时隔四年再取温网正赛胜利](https://www.share.minike.top/Article/details/491188662793.shtml)
+- 2026-06-30 07:57 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/19611454929.shtml)
+- 2026-06-30 07:43 - [女心理师](http://www.share.kurohicncr.top/Article/details/71874971.shtml)
+- 2026-06-30 07:38 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/94691335.shtml)
+- 2026-06-30 07:37 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/05375189079.shtml)
+- 2026-06-30 07:40 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/576439397163.shtml)
+- 2026-06-30 07:36 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/7800697.shtml)

@@ -1,59 +1,60 @@
-# 欧洲股市上涨 美伊和谈预期提振风险偏好
+# 新疆兵团：非遗进校园 匠心传文脉
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:02 UTC+8
 
 ## 摘要
 
-受投资者对美伊可能重启谈判的乐观情绪推动，欧洲股市上涨。 斯托克欧洲600指数收盘上涨1%，媒体和旅游板块领涨。能源股表现最弱，因布伦特原油跌破每桶100美元。 一位了解德黑兰方面讨论情况的人士透露，伊朗正考虑短期暂停该国通过霍尔木兹海峡的航运，以避免试探美国的封锁行动并破坏新一轮和谈。美国总统唐纳德·特朗普表示，在美军开始封锁伊朗港口后，德黑兰已主动联系寻求达成协议。 得益于
+中新网乌鲁木齐5月14日电 (史玉江)“以前觉得非遗离我们很远，现在剪纸、秦腔、掐丝珐琅都进了课堂，我们跟着学，越来越喜欢。”说起校园里的非遗课程，新疆生产建设兵团第八师石河子市学生李萌近日如是说。 如今，在新疆兵团各中小学、职业院校，非遗不再是书本里的词汇，而是融入课堂、社团和活动的鲜活文化符号。 近年来，第八师石河子市多所学校成立各类非遗社团，让学生在动手实践中感受传统技艺
 
 ## 正文
 
-受投资者对美伊可能重启谈判的乐观情绪推动，欧洲股市上涨。
+中新网乌鲁木齐5月14日电 (史玉江)“以前觉得非遗离我们很远，现在剪纸、秦腔、掐丝珐琅都进了课堂，我们跟着学，越来越喜欢。
 
-斯托克欧洲600指数收盘上涨1%，媒体和旅游板块领涨。
+”说起校园里的非遗课程，新疆生产建设兵团第八师石河子市学生李萌近日如是说。
 
-能源股表现最弱，因布伦特原油跌破每桶100美元。
+如今，在新疆兵团各中小学、职业院校，非遗不再是书本里的词汇，而是融入课堂、社团和活动的鲜活文化符号。
 
-一位了解德黑兰方面讨论情况的人士透露，伊朗正考虑短期暂停该国通过霍尔木兹海峡的航运，以避免试探美国的封锁行动并破坏新一轮和谈。
+近年来，第八师石河子市多所学校成立各类非遗社团，让学生在动手实践中感受传统技艺的魅力。
 
-美国总统唐纳德·特朗普表示，在美军开始封锁伊朗港口后，德黑兰已主动联系寻求达成协议。
+在石河子第五中学的剪纸艺术社团里，老师详细讲解剪纸技巧与民俗常识，手把手指导学生折叠、勾勒、剪裁，同学们用普通红纸创作出花鸟、福字等栩栩如生的剪纸作品。
 
-得益于市场情绪改善，欧洲股市本月以来反弹逾5%，正逼近战前水平。
+近来，石河子第八中学“戏韵灼心”戏曲社团联合石河子市艺术剧院豫剧团，将非遗豫剧融入日常教学：音乐课教唱豫剧经典，美术课深耕脸谱创作，语文课分析剧本文学，体育课融入戏曲身段，推动非遗传承从“一次性活动”转向“常态化育人”。
 
-与此同时，标普500指数已收复自冲突爆发以来的全部跌幅。
+近日，第十三师新星市红星二场学校操场上热闹非凡。
 
-责任编辑：李桐
+数百名学生手持鼓槌，伴随着激昂的节奏整齐踏步，红绸飞舞，安塞腰鼓的刚劲与活力在校园中蔓延…… “第一次接触安塞腰鼓，就被它雄浑的鼓声和整齐的舞步吸引。
 
 ## 相关推荐
 
-- 2026-06-30 07:29 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-30 07:45 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-30 07:29 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-30 07:43 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-30 07:48 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
-- 2026-06-30 07:42 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-30 07:25 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-30 07:42 - [如果有二次元高中是什么样子的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
-- 2026-06-30 07:38 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-30 07:44 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-30 07:32 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-30 07:53 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
-- 2026-06-30 07:28 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-30 07:38 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
+- 2026-06-30 08:00 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-30 07:34 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-30 07:51 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-30 07:57 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-30 07:32 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-30 07:30 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
+- 2026-06-30 07:41 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-30 07:31 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-30 07:59 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-30 07:39 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-30 07:57 - [田中碧失误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-30 07:32 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-30 07:44 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:24 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/52201.shtml)
-- 2026-06-30 07:50 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/6263869320.shtml)
-- 2026-06-30 07:29 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.kurohicncr.top/Article/details/3581230818.shtml)
-- 2026-06-30 07:52 - [老外对中国cosplay竟这样评价…](https://www.blog.minike.top/Article/details/10525585930.shtml)
-- 2026-06-30 07:44 - [医药暴涨5.91%背后](http://www.share.kurohicncr.top/Article/details/03888197.shtml)
-- 2026-06-30 07:46 - [张帅晋级温网次轮](https://www.share.kurohicncr.top/Article/details/65060335.shtml)
-- 2026-06-30 07:40 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/78436544338.shtml)
-- 2026-06-30 07:52 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/4896957.shtml)
-- 2026-06-30 07:34 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/281332215.shtml)
-- 2026-06-30 07:41 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/1311447.shtml)
-- 2026-06-30 07:43 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/08771.shtml)
-- 2026-06-30 07:34 - [巴西2比1日本](https://www.blog.minike.top/Article/details/862861.shtml)
-- 2026-06-30 07:30 - [我和我的家乡](http://www.blog.minike.top/Article/details/315250258.shtml)
-- 2026-06-30 07:52 - [明星大侦探第一季](http://www.share.minike.top/Article/details/45432.shtml)
-- 2026-06-30 07:51 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/6961658502.shtml)
+- 2026-06-30 07:40 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/123837499.shtml)
+- 2026-06-30 07:41 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/6403982.shtml)
+- 2026-06-30 07:49 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/498302.shtml)
+- 2026-06-30 07:34 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/8721325881.shtml)
+- 2026-06-30 07:36 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/455568.shtml)
+- 2026-06-30 07:57 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/95937.shtml)
+- 2026-06-30 07:54 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/176682.shtml)
+- 2026-06-30 07:40 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/6508012.shtml)
+- 2026-06-30 07:53 - [曝詹姆斯即将与勇士会面](https://www.share.kurohicncr.top/Article/details/709263298.shtml)
+- 2026-06-30 07:32 - [美人鱼](https://www.share.kurohicncr.top/Article/details/86119.shtml)
+- 2026-06-30 07:52 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/505748994310.shtml)
+- 2026-06-30 07:33 - [绘画区你赢了](https://www.blog.minike.top/Article/details/491795713311.shtml)
+- 2026-06-30 07:31 - [逃狱兄弟](https://www.share.minike.top/Article/details/464572312314.shtml)
+- 2026-06-30 07:47 - [花少8要去世界杯举办国](https://www.blog.minike.top/Article/details/966986923.shtml)
+- 2026-06-30 07:43 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/832680517843.shtml)

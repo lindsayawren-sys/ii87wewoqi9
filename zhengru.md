@@ -1,56 +1,47 @@
-# 霍尔木兹海峡“锁上加锁”！亚洲直面冲击：离经济危机还有多远？
+# 习近平为特朗普举行欢迎宴会
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:02 UTC+8
 
 ## 摘要
 
-财联社4月13日讯（编辑 潇湘）随着霍尔木兹海峡即将遭遇美伊“双重封锁”，越来越多市场人士当前担心，这场地缘冲突可能加剧亚洲地区的能源依赖型经济体——包括该地区的美国盟友——所面临的经济危机。 行业分析师Jennifer Welch等人在一份报告中写道，“对于全球经济和市场而言，最新事态发展使关注点重新转向下行风险——这预示着油价将上涨，全球经济增长将遭受更大冲击，通胀压力也将
+5月14日晚，国家主席习近平在人民大会堂金色大厅为美国总统特朗普举行欢迎宴会。 责任编辑：刘万里 SF014
 
 ## 正文
 
-财联社4月13日讯（编辑 潇湘）随着霍尔木兹海峡即将遭遇美伊“双重封锁”，越来越多市场人士当前担心，这场地缘冲突可能加剧亚洲地区的能源依赖型经济体——包括该地区的美国盟友——所面临的经济危机。
+5月14日晚，国家主席习近平在人民大会堂金色大厅为美国总统特朗普举行欢迎宴会。
 
-行业分析师Jennifer Welch等人在一份报告中写道，“对于全球经济和市场而言，最新事态发展使关注点重新转向下行风险——这预示着油价将上涨，全球经济增长将遭受更大冲击，通胀压力也将加剧。
-
-” 周一，全球基准布伦特原油价格一度上涨8.6%，突破每桶103美元，而欧洲天然气期货价格也一度飙升近18%。
-
-美国中央司令部已表示，美军将于美东时间周一上午10点（北京时间今晚22点）开始实施海峡封锁，该封锁仅适用于进出伊朗港口的船舶。
-
-就在特朗普宣布封锁计划数小时前，美国与伊朗在巴基斯坦举行的直接谈判未能达成协议。
-
-包括日本和韩国等美国盟友在内的亚洲国家，占到了通常经由该海峡运输能源的80%以上需求。
-
-该地区各国政府一直在努力安排替代的石油和天然气供应，并试图通过诸如调高空调温度等措施来减少能源消耗，同时推出各种措施来减轻对消费者和企业的冲击。
-
-新加坡韩礼士基金会贸易政策主管Deborah Elms表示，亚洲面临的问题不仅限于能源，从化肥到包装甚至纺织品供应等下游产业都将受到封锁的冲击。
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-30 07:48 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-30 07:48 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
-- 2026-06-30 07:49 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-30 07:43 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-30 07:30 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-30 07:44 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-30 07:31 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-30 07:24 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
-- 2026-06-30 07:49 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-30 07:37 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-30 07:58 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-30 07:56 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-30 07:34 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-30 07:46 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-30 07:39 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-30 07:46 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-30 07:59 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-30 07:45 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-30 07:49 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
+- 2026-06-30 07:34 - [为什么会有「念旧」的心理？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-30 07:30 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-30 07:58 - [中国新一轮出口管制直指日本命脉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-30 07:37 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:41 - [天道](https://www.blog.kurohicncr.top/Article/details/428378.shtml)
-- 2026-06-30 07:35 - [这几秒成世界杯最值钱广告位](https://www.share.minike.top/Article/details/28273504259.shtml)
-- 2026-06-30 07:36 - [张帅时隔四年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/280311850.shtml)
-- 2026-06-30 07:30 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/74767994570.shtml)
-- 2026-06-30 07:51 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/8163176.shtml)
-- 2026-06-30 07:27 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.kurohicncr.top/Article/details/05780164.shtml)
-- 2026-06-30 07:26 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/250265051854.shtml)
-- 2026-06-30 07:26 - [德国4比5巴拉圭](https://www.blog.kurohicncr.top/Article/details/9149357.shtml)
-- 2026-06-30 07:37 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.minike.top/Article/details/520483062166.shtml)
-- 2026-06-30 07:44 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/145377943876.shtml)
-- 2026-06-30 07:33 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/39364.shtml)
-- 2026-06-30 07:32 - [Melo向柳智敏张元英道歉](https://www.blog.kurohicncr.top/Article/details/43924.shtml)
-- 2026-06-30 07:49 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/174976516084.shtml)
-- 2026-06-30 07:52 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/996212312301.shtml)
-- 2026-06-30 07:51 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/02971122.shtml)
+- 2026-06-30 07:53 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/77241641.shtml)
+- 2026-06-30 07:46 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/480256726.shtml)
+- 2026-06-30 07:43 - [周冬雨多次说演不了话剧文城](http://www.blog.minike.top/Article/details/767401189.shtml)
+- 2026-06-30 07:30 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/670180655.shtml)
+- 2026-06-30 07:33 - [韩乔生吐槽世界杯扩军](http://www.blog.kurohicncr.top/Article/details/814878485933.shtml)
+- 2026-06-30 07:33 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/28497358535.shtml)
+- 2026-06-30 07:40 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/0272650.shtml)
+- 2026-06-30 07:46 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/73114611.shtml)
+- 2026-06-30 07:31 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/3067516124.shtml)
+- 2026-06-30 07:49 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.kurohicncr.top/Article/details/55327275668.shtml)
+- 2026-06-30 07:54 - [审核了不止十年的低创鬼畜](http://www.share.minike.top/Article/details/56556036.shtml)
+- 2026-06-30 07:42 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.kurohicncr.top/Article/details/35185.shtml)
+- 2026-06-30 07:42 - [杨紫获白玉兰视后争议不止](https://www.share.kurohicncr.top/Article/details/39191.shtml)
+- 2026-06-30 07:54 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.minike.top/Article/details/0880694.shtml)
+- 2026-06-30 07:37 - [感动全网的699分女生想报考清华](https://www.share.kurohicncr.top/Article/details/59237.shtml)

@@ -1,61 +1,56 @@
-# 中方：愿同匈牙利新一届政府加强高层交往
+# 南宁常住人口突破900万 加速建设面向东盟国际化大都市
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-中新网北京4月13日电 (记者 谢雁冰 黄钰钦)中国外交部发言人郭嘉昆13日主持例行记者会。 有记者提问：据报道，4月12日，匈牙利举行新一届国会选举。目前，蒂萨党主席毛焦尔已宣布胜选，青民盟主席欧尔班已承认败选并向毛焦尔表示祝贺。中方对此有何评论？对中匈关系未来发展有何期待？ 郭嘉昆：毛焦尔先生领导的蒂萨党在匈牙利新一届国会选举中获胜，中方对此表示祝贺。中方高度重视中匈关系发
+中新网南宁5月14日电(黄艳梅 刘海文 韦佳彤)广西南宁市统计局14日介绍，2025年末，南宁市常住人口首次突破900万大关，达901.66万人，成为广西首个跨入这一量级的城市。 2025年，在中国多地常住人口有所减少的背景下，南宁市常住人口净增4.47万人，同比增长0.5%。 作为中国距离东盟最近的省会城市，南宁正加快建设面向东盟开放合作的国际化大都市。分析指出，生态环境优越
 
 ## 正文
 
-中新网北京4月13日电 (记者 谢雁冰 黄钰钦)中国外交部发言人郭嘉昆13日主持例行记者会。
+中新网南宁5月14日电(黄艳梅 刘海文 韦佳彤)广西南宁市统计局14日介绍，2025年末，南宁市常住人口首次突破900万大关，达901.66万人，成为广西首个跨入这一量级的城市。
 
-有记者提问：据报道，4月12日，匈牙利举行新一届国会选举。
+2025年，在中国多地常住人口有所减少的背景下，南宁市常住人口净增4.47万人，同比增长0.5%。
 
-目前，蒂萨党主席毛焦尔已宣布胜选，青民盟主席欧尔班已承认败选并向毛焦尔表示祝贺。
+作为中国距离东盟最近的省会城市，南宁正加快建设面向东盟开放合作的国际化大都市。
 
-中方对此有何评论？
+分析指出，生态环境优越、产业升级提速、开放水平提升及民生持续改善，是南宁实现人口集聚的主要因素。
 
-对中匈关系未来发展有何期待？
+南宁市统计局副局长钟毓海当日接受媒体采访时介绍，“十四五”时期，南宁市聚焦“中国绿城”品牌建设，空气质量优良率保持在96.2%以上，建成区绿化覆盖率达43.02%，生态环境质量保持中国重点城市前列，城市吸引力不断增强。
 
-郭嘉昆：毛焦尔先生领导的蒂萨党在匈牙利新一届国会选举中获胜，中方对此表示祝贺。
+同期，南宁市生产总值连续突破5000亿元(人民币，下同)、6000亿元大关，经济规模稳步壮大。
 
-中方高度重视中匈关系发展，愿在相互尊重、平等相待、互利共赢的基础上，同匈牙利新一届政府加强高层交往，增进政治互信，拓展务实合作，扩大人文交流，造福两国人民。
+南宁跻身全球重要的新能源电池产业集聚区，电子信息产业向高新技术领域迈进，数智产业集聚效应加速显现。
 
-(完）
+作为中国—东盟博览会长期举办地，南宁在服务中国与东盟开放合作中的渠道作用日益凸显。
 
 ## 相关推荐
 
-- 2026-06-30 07:26 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
-- 2026-06-30 07:32 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-30 07:48 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-30 07:28 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-30 07:26 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-30 07:27 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-30 07:45 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
-- 2026-06-30 07:36 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
-- 2026-06-30 07:48 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-30 07:37 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-30 07:35 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-30 07:31 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-30 07:34 - [全球芯片巨头史诗级扩产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
-- 2026-06-30 07:26 - [田中碧失误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
-- 2026-06-30 07:37 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
+- 2026-06-30 07:48 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-30 07:40 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
+- 2026-06-30 07:43 - [德国4比5巴拉圭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-30 07:57 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-30 07:42 - [德国4比5巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
+- 2026-06-30 07:48 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-30 07:47 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-30 07:56 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-30 07:55 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-30 07:44 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:49 - [全球芯片巨头史诗级扩产](https://www.share.kurohicncr.top/Article/details/2162661.shtml)
-- 2026-06-30 07:53 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/995109082365.shtml)
-- 2026-06-30 07:24 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/12759.shtml)
-- 2026-06-30 07:24 - [毒液2](http://www.blog.kurohicncr.top/Article/details/01541611605.shtml)
-- 2026-06-30 07:39 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/26037552201.shtml)
-- 2026-06-30 07:43 - [输球后日本球迷被强行披上巴西国旗](https://www.share.kurohicncr.top/Article/details/2969998.shtml)
-- 2026-06-30 07:53 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/552570145532.shtml)
-- 2026-06-30 07:50 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/22469.shtml)
-- 2026-06-30 07:38 - [孙兴慜发长文致歉](http://www.share.minike.top/Article/details/6091231078.shtml)
-- 2026-06-30 07:40 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.kurohicncr.top/Article/details/3923642653.shtml)
-- 2026-06-30 07:39 - [张凌赫 客串](http://www.share.minike.top/Article/details/3361955.shtml)
-- 2026-06-30 07:24 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.minike.top/Article/details/808104612405.shtml)
-- 2026-06-30 07:47 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/705183.shtml)
-- 2026-06-30 07:38 - [庆祝中国共产党成立105周年音乐会](http://www.share.minike.top/Article/details/265419724791.shtml)
-- 2026-06-30 07:37 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/7473122.shtml)
+- 2026-06-30 07:42 - [王楚钦谈表演球](https://www.blog.kurohicncr.top/Article/details/79282.shtml)
+- 2026-06-30 07:48 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/62380630.shtml)
+- 2026-06-30 07:43 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/71325993.shtml)
+- 2026-06-30 07:47 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/705239541.shtml)
+- 2026-06-30 07:43 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.kurohicncr.top/Article/details/0715152.shtml)
+- 2026-06-30 07:40 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/955275791.shtml)
+- 2026-06-30 07:52 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/32218608388.shtml)
+- 2026-06-30 07:52 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/98088067.shtml)
+- 2026-06-30 07:51 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/935592298.shtml)
+- 2026-06-30 07:41 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/047228.shtml)
+- 2026-06-30 07:53 - [日本反击率先破门](https://www.share.kurohicncr.top/Article/details/476764232.shtml)
+- 2026-06-30 07:48 - [巴西绝杀日本](http://www.share.minike.top/Article/details/382008.shtml)
+- 2026-06-30 07:44 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/49030068180.shtml)
+- 2026-06-30 07:32 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.minike.top/Article/details/534172189.shtml)
+- 2026-06-30 07:40 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.minike.top/Article/details/432616948933.shtml)

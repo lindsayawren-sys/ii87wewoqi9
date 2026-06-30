@@ -1,56 +1,59 @@
-# 南方精工（002553）索赔案已有获赔后再提交立案，宜通世纪（300310）索赔案已有胜诉及获赔
+# 尾盘拉升，逆势大涨
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年4月9日，上海久诚律师事务所股票索赔律师许峰代理的南方精工（维权）（002553）虚假陈述投资者索赔案再向法院提交一次立案。 许峰律师代理的前期部分南方精工投资者索赔案件已经达成调解，投资者获赔到位，律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。（许峰律师专栏） 2023年7月10日，南方精
+01 5月14日，A股市场出现调整。上证580ETF易方达尾盘拉升，逆势大涨5.66%，是今天涨幅最大的ETF。畜牧养殖ETF广发、养殖ETF汇添富等养殖相关ETF涨幅居前。 02 5月14日，卫星ETF领跌，多只卫星ETF跌超5%，多只军工相关ETF跌幅也较大。 03 5月13日，证券ETF国泰、券商ETF华宝、香港证券ETF易方达等多只证券相关ETF资金净流入额居前，中证1
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年4月9日，上海久诚律师事务所股票索赔律师许峰代理的南方精工（维权）（002553）虚假陈述投资者索赔案再向法院提交一次立案。
+01 5月14日，A股市场出现调整。
 
-许峰律师代理的前期部分南方精工投资者索赔案件已经达成调解，投资者获赔到位，律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
+上证580ETF易方达尾盘拉升，逆势大涨5.66%，是今天涨幅最大的ETF。
 
-（许峰律师专栏） 2023年7月10日，南方精工公告收到《江苏证监局关于对江苏南方精工股份有限公司、史建伟、史维采取出具警示函措施的决定》。
+畜牧养殖ETF广发、养殖ETF汇添富等养殖相关ETF涨幅居前。
 
-经查，南方精工2023年6月19日在深圳证券交易所互动易平台上回复投资者有关人形机器人相关业务的内容不准确，导致公司股价连续多次涨停。
+02 5月14日，卫星ETF领跌，多只卫星ETF跌超5%，多只军工相关ETF跌幅也较大。
 
-在股价异动后，南方精工未及时了解造成交易异常波动的影响因素，未在6月26日、6月28日发布的股票交易异常波动公告中就公司在互动易平台发布内容进行澄清，未披露造成股价异常波动的影响因素，信息披露不完整。
+03 5月13日，证券ETF国泰、券商ETF华宝、香港证券ETF易方达等多只证券相关ETF资金净流入额居前，中证1000ETF南方、创业板ETF易方达等宽基ETF也有较多资金净流入。
 
-许峰律师认为，根据前期投资者获赔条件，在2023年6月20日到2023年7月5日之间买入南方精工股票，并在2023年7月5日后卖出或继续持有股票的投资者，目前还可发起索赔，已经进入倒计时，诉讼时效已经不足三个月，“过期作废”。
+上证580ETF易方达领涨 5月14日，上证580ETF易方达尾盘拉升，逆势大涨5.66%，是今天涨幅最大的ETF，溢价率达7.91%。
 
-（南方精工维权入口） 除了南方精工投资者索赔案再次提交法院立案，许峰律师提示，宜通世纪（维权）（300310）投资者索案目前还在持续推进中。
+科创新材料ETF汇添富、美国50ETF易方达，以及畜牧养殖ETF广发、养殖ETF汇添富等养殖相关ETF涨幅居前。
 
-许峰律师代理的部分宜通世纪投资者索赔案已调解获赔到位，目前也还在继续接受其他投资者的索赔委托，该案前期已有投资者胜诉判决以及调解获赔案例，还在诉讼时效内，建议投资者关注索赔事项。
+5月14日，中韩半导体ETF华泰柏瑞涨幅为1.68%，溢价率为32.71%，是目前全市场溢价率最高的ETF。
 
 ## 相关推荐
 
-- 2026-06-30 07:45 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-30 07:32 - [哈弗茨头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-30 07:50 - [森保一致歉：世界第一目标没能实现](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-30 07:44 - [森保一致歉：世界第一目标没能实现](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-30 07:36 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
-- 2026-06-30 07:31 - [田中碧失误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-30 07:47 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
-- 2026-06-30 07:48 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
-- 2026-06-30 07:51 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
-- 2026-06-30 07:27 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-30 07:35 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-30 07:54 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-30 07:58 - [王楚钦孙颖莎晋级混双八强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-30 07:42 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-30 07:49 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-30 07:59 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
+- 2026-06-30 07:33 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-30 07:38 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-30 07:34 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-30 07:49 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-30 07:41 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-30 07:35 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-30 07:54 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:38 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/144340079445.shtml)
-- 2026-06-30 07:43 - [佐野海舟远射破门](https://www.share.minike.top/Article/details/852431199073.shtml)
-- 2026-06-30 07:46 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/623066345067.shtml)
-- 2026-06-30 07:33 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/888347222.shtml)
-- 2026-06-30 07:45 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/3491139.shtml)
-- 2026-06-30 07:25 - [库尼亚赛后伸五指嘲讽日本](https://www.blog.minike.top/Article/details/143484696.shtml)
-- 2026-06-30 07:28 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/859374230226.shtml)
-- 2026-06-30 07:46 - [德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/1949939.shtml)
-- 2026-06-30 07:27 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/488079.shtml)
-- 2026-06-30 07:35 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/01720081.shtml)
-- 2026-06-30 07:33 - [刘宇宁高情商化解谁站C位](https://www.blog.kurohicncr.top/Article/details/401303.shtml)
-- 2026-06-30 07:39 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/09204.shtml)
-- 2026-06-30 07:34 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/48690222.shtml)
-- 2026-06-30 07:46 - [徐亮怒斥世界杯踢假球](http://www.share.minike.top/Article/details/0208095.shtml)
-- 2026-06-30 07:26 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/788002718292.shtml)
+- 2026-06-30 07:56 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.minike.top/Article/details/975896193475.shtml)
+- 2026-06-30 07:46 - [沙丘](http://www.share.minike.top/Article/details/5079573.shtml)
+- 2026-06-30 07:42 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/389793.shtml)
+- 2026-06-30 07:43 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/075721430.shtml)
+- 2026-06-30 07:46 - [周冬雨多次说演不了话剧文城](http://www.share.minike.top/Article/details/3287337471.shtml)
+- 2026-06-30 07:44 - [女子遭下药退赔偿拟追刑责](http://www.blog.kurohicncr.top/Article/details/785218185.shtml)
+- 2026-06-30 07:48 - [董卿父亲报纸上发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/835469254237.shtml)
+- 2026-06-30 07:48 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/168645.shtml)
+- 2026-06-30 07:54 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/358847.shtml)
+- 2026-06-30 07:48 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/121833347463.shtml)
+- 2026-06-30 07:40 - [王健林甩卖超80座万达广场](http://www.share.kurohicncr.top/Article/details/315538100633.shtml)
+- 2026-06-30 07:40 - [豆包收费了，你还会用吗？](https://www.blog.minike.top/Article/details/501501451509.shtml)
+- 2026-06-30 07:31 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/52743917783.shtml)
+- 2026-06-30 07:46 - [巴拉圭点球大战淘汰德国进16强](https://www.share.minike.top/Article/details/03524.shtml)
+- 2026-06-30 07:39 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/5866787.shtml)

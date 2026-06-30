@@ -1,56 +1,57 @@
-# 2025年中国基层医疗卫生机构诊疗人次达55.6亿
+# 优速通该取消吗？ 游客排队3小时怒怼迪士尼：质疑“插队特权”，近六成网友认为“明码标价没毛病”
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-中新社北京4月13日电 (记者 李纯)中国国家卫生健康委员会副主任郑哲13日在北京表示，2025年数据显示，全国基层医疗卫生机构诊疗人次达到55.6亿，占比已经超过半数达到52.6%，基层诊疗人次和占比持续提升，分级诊疗成效也在显现。当天，中国国务院新闻办公室举行政策例行吹风会，介绍《关于加快建设分级诊疗体系的若干措施》有关情况。 郑哲介绍，中国的医疗卫生服务可及性明显改善。现
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！文|《BUG》栏目 闫妍 今日，上海“迪士尼优速通”相关话题冲上热搜，真实又刺眼的游玩落差，引爆全网大范围热议，再度将景区“付费插队”“公平性”等争议推至舆论风口。 事因一段网传视频，一名男子带孩子在上海迪士尼乐园内游玩时，排队长达3小时，而购买“优速通”的游客通过专属通道持续入场。疑似因不满优速通相关规则
 
 ## 正文
 
-中新社北京4月13日电 (记者 李纯)中国国家卫生健康委员会副主任郑哲13日在北京表示，2025年数据显示，全国基层医疗卫生机构诊疗人次达到55.6亿，占比已经超过半数达到52.6%，基层诊疗人次和占比持续提升，分级诊疗成效也在显现。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-当天，中国国务院新闻办公室举行政策例行吹风会，介绍《关于加快建设分级诊疗体系的若干措施》有关情况。
+文|《BUG》栏目 闫妍 今日，上海“迪士尼优速通”相关话题冲上热搜，真实又刺眼的游玩落差，引爆全网大范围热议，再度将景区“付费插队”“公平性”等争议推至舆论风口。
 
-郑哲介绍，中国的医疗卫生服务可及性明显改善。
+事因一段网传视频，一名男子带孩子在上海迪士尼乐园内游玩时，排队长达3小时，而购买“优速通”的游客通过专属通道持续入场。
 
-现在全国有超过110万所医疗卫生机构覆盖城乡，基本医疗卫生服务覆盖14亿人，超过90%的居民可以在15分钟内到达最近的医疗服务点。
+疑似因不满优速通相关规则，与园方工作人员发生争执。
 
-他表示，基层医疗服务更加夯实。
+视频中，该男子向工作人员质疑：“迪士尼制定的规则，就是谁交钱多放谁（进去）是吗？
 
-乡镇卫生院、社区卫生服务中心科室设置不断丰富，设施设备水平稳步提高，民众基层就医环境持续改善。
+” 对于该事件后续处理进展，《BUG》栏目向上海迪士尼官方进行问询，截至发稿暂未收到回复。
 
-现在基层已经具备常见病诊疗和慢性病管理、公共卫生等基本服务能力。
+据悉，迪士尼优速通官方名称为‌迪士尼尊享卡‌，是上海迪士尼度假区提供的‌付费优先通行服务‌，允许游客在指定项目通过专用通道入场，大幅缩短排队时间。
 
-“我们也实施了全科医生特岗计划，农村订单定向免费医学生培养计划，落实自愿到农村工作的大学毕业生乡镇卫生院编制专项保障。
+但该服务需额外购买，不包含在基础门票内，其中单项体验定价140-180元，最贵的“臻享套装”则需要付费2530元。
 
 ## 相关推荐
 
-- 2026-06-30 07:29 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-30 07:53 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-30 07:51 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-30 07:46 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-30 07:52 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
-- 2026-06-30 07:24 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-30 07:27 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
-- 2026-06-30 07:27 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-30 07:44 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-30 07:50 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-30 07:58 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-30 07:33 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-30 07:47 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-30 07:47 - [为什么会有「念旧」的心理？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-30 07:57 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-30 07:41 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-30 07:45 - [郑钦文温网首轮出局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-30 07:43 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-30 07:49 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
+- 2026-06-30 07:32 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-30 07:38 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:26 - [湖南祁东原文化馆被指贱卖](https://www.share.kurohicncr.top/Article/details/458312.shtml)
-- 2026-06-30 07:40 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/300604.shtml)
-- 2026-06-30 07:39 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/445814153504.shtml)
-- 2026-06-30 07:51 - [速度与激情9](http://www.blog.minike.top/Article/details/97079.shtml)
-- 2026-06-30 07:40 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/86743450962.shtml)
-- 2026-06-30 07:41 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/670096.shtml)
-- 2026-06-30 07:50 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/797764792.shtml)
-- 2026-06-30 07:38 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.kurohicncr.top/Article/details/41700556603.shtml)
-- 2026-06-30 07:43 - [索马里女大使：想和中国一起搞事业](https://www.share.minike.top/Article/details/116854781620.shtml)
-- 2026-06-30 07:47 - [请回答王牌2019](http://www.blog.minike.top/Article/details/75997762616.shtml)
-- 2026-06-30 07:36 - [流金岁月](https://www.blog.minike.top/Article/details/47938330935.shtml)
-- 2026-06-30 07:42 - [刘念回应](https://www.share.kurohicncr.top/Article/details/14532444205.shtml)
-- 2026-06-30 07:29 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.kurohicncr.top/Article/details/64326.shtml)
-- 2026-06-30 07:24 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/4475866.shtml)
-- 2026-06-30 07:36 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/04151766.shtml)
+- 2026-06-30 07:30 - [杨紫获白玉兰视后争议不止](http://www.blog.minike.top/Article/details/977954169.shtml)
+- 2026-06-30 07:52 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/6946490.shtml)
+- 2026-06-30 07:32 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/942572.shtml)
+- 2026-06-30 07:30 - [韩国球迷凌晨4点接机怒骂主教练](https://www.share.kurohicncr.top/Article/details/6185170339.shtml)
+- 2026-06-30 07:42 - [审核了不止十年的低创鬼畜](https://www.share.minike.top/Article/details/6682334.shtml)
+- 2026-06-30 07:49 - [日本 高位逼抢](https://www.blog.kurohicncr.top/Article/details/069978304.shtml)
+- 2026-06-30 07:57 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/0342987348.shtml)
+- 2026-06-30 07:33 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/89076302163.shtml)
+- 2026-06-30 07:43 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/53416996.shtml)
+- 2026-06-30 07:35 - [“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/47103891.shtml)
+- 2026-06-30 07:40 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/0045301.shtml)
+- 2026-06-30 07:37 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/0710242.shtml)
+- 2026-06-30 07:37 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](http://www.share.kurohicncr.top/Article/details/058905252981.shtml)
+- 2026-06-30 07:59 - [媒体：手机测评该挤挤水分了](http://www.blog.minike.top/Article/details/9232316.shtml)
+- 2026-06-30 07:35 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/030371903665.shtml)

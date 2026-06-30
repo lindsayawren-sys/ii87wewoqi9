@@ -1,57 +1,57 @@
-# 吉比特Q1利润大涨超70%，巨人净利翻倍，游戏行业蒸蒸日上
+# 习近平：中美应该成为伙伴而不是对手
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-今（14）日盘后，吉比特发布Q1业绩预增公告。公告显示，吉比特预计Q1扣非净利润在4.6亿至5.4亿元，同比增长68%~97%。吉比特表示，利润大增主要因《杖剑传说（大陆版）》《道友来挖宝》《杖剑传说（境外版）》《问剑长生（境外版）》《九牧之野》等产品于2025年第二季度至第四季度陆续上线，相比上年同期贡献增量利润。值得一提的是，吉比特并非唯一一家在Q1取得净利润大幅增长的游戏
+视频：习近平：中美应该成为伙伴而不是对手来源：央视新闻客户端 5月14日晚，国家主席习近平在北京人民大会堂举行宴会，欢迎美国总统特朗普访华。 人民大会堂金色大厅华灯璀璨，两国元首先后发表致辞。 习近平强调，我们一致认为，中美关系是当今世界最重要的双边关系，只能搞好不能搞坏。两国合则两利、斗则俱伤，应该成为伙伴而不是对手。我们同意构建中美建设性战略稳定关系，推动中美关系稳定、健康
 
 ## 正文
 
-今（14）日盘后，吉比特发布Q1业绩预增公告。
+视频：习近平：中美应该成为伙伴而不是对手来源：央视新闻客户端 5月14日晚，国家主席习近平在北京人民大会堂举行宴会，欢迎美国总统特朗普访华。
 
-公告显示，吉比特预计Q1扣非净利润在4.6亿至5.4亿元，同比增长68%~97%。
+人民大会堂金色大厅华灯璀璨，两国元首先后发表致辞。
 
-吉比特表示，利润大增主要因《杖剑传说（大陆版）》《道友来挖宝》《杖剑传说（境外版）》《问剑长生（境外版）》《九牧之野》等产品于2025年第二季度至第四季度陆续上线，相比上年同期贡献增量利润。
+习近平强调，我们一致认为，中美关系是当今世界最重要的双边关系，只能搞好不能搞坏。
 
-值得一提的是，吉比特并非唯一一家在Q1取得净利润大幅增长的游戏厂商。
+两国合则两利、斗则俱伤，应该成为伙伴而不是对手。
 
-巨人网络上周发布公告，宣布业绩迎来爆发式增长，预计Q1扣非净利润9.5亿元至11.5 亿元，同比增长162.19%-217.38%。
+我们同意构建中美建设性战略稳定关系，推动中美关系稳定、健康、可持续发展，为世界带来更多和平、繁荣、进步。
 
-巨人增长核心为自研手游《超自然行动组》，该产品DAU突破1000万，跻身国内千万DAU级别长青游戏，2026年春节期间创下单日、单月流水新高。
-
-《超自然行动组》的持续表现亦带动巨人递延收入显著提升。
-
-2025年末公司递延收入达17.28亿元，2026年Q1末进一步提升至约 21 亿元，将在未来期间逐步确认，为巨人后续业绩增长提供支撑。
+总监制丨申勇 监制丨龚雪辉 记者丨王鹏飞 邢彬 摄像丨李铮 马超 段德文 钟锐 程铖 郭鸿 李增仁 鄂介甫 王策 张宇 录音丨程爱华
 
 ## 相关推荐
 
-- 2026-06-30 07:34 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-30 07:51 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-30 07:24 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-30 07:44 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-30 07:41 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
-- 2026-06-30 07:39 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-30 07:39 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
-- 2026-06-30 07:27 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
-- 2026-06-30 07:45 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-30 07:49 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
-- 2026-06-30 07:27 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-30 07:55 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-30 07:50 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-30 07:55 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-30 07:58 - [藤森庆子赢得秘鲁总统选举](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-30 07:43 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
+- 2026-06-30 07:38 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-30 07:58 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-30 07:43 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-30 07:45 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-30 07:30 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-30 07:33 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-30 07:40 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-30 07:46 - [网友写差评被店家“挂”门口避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
+- 2026-06-30 07:50 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-30 07:49 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:51 - [杨紫获白玉兰视后为何争议难平](http://www.blog.kurohicncr.top/Article/details/38835346163.shtml)
-- 2026-06-30 07:25 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/179212675.shtml)
-- 2026-06-30 07:33 - [一生一世](http://www.share.minike.top/Article/details/988953936.shtml)
-- 2026-06-30 07:30 - [感动全网的699分女生想报考清华](http://www.blog.minike.top/Article/details/42096658557.shtml)
-- 2026-06-30 07:51 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.kurohicncr.top/Article/details/97494262537.shtml)
-- 2026-06-30 07:43 - [德国队连续三届世界杯无缘16强](http://www.share.minike.top/Article/details/24661034.shtml)
-- 2026-06-30 07:49 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/388726385.shtml)
-- 2026-06-30 07:43 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/26026563914.shtml)
-- 2026-06-30 07:27 - [日本 高位逼抢](http://www.share.minike.top/Article/details/577582323524.shtml)
-- 2026-06-30 07:32 - [女子清吧被陌生人投放伟哥](http://www.blog.minike.top/Article/details/264841649653.shtml)
-- 2026-06-30 07:52 - [徐亮怒斥世界杯踢假球](https://www.share.kurohicncr.top/Article/details/87299.shtml)
-- 2026-06-30 07:24 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/7714886.shtml)
-- 2026-06-30 07:32 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/50764.shtml)
-- 2026-06-30 07:41 - [逃狱兄弟](https://www.share.minike.top/Article/details/7081252469.shtml)
-- 2026-06-30 07:36 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/789908821056.shtml)
+- 2026-06-30 07:58 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/91123184.shtml)
+- 2026-06-30 07:49 - [一生一世](https://www.blog.kurohicncr.top/Article/details/7834699291.shtml)
+- 2026-06-30 07:31 - [巴拉圭进球](http://www.blog.minike.top/Article/details/151034183.shtml)
+- 2026-06-30 07:36 - [女心理师](http://www.share.kurohicncr.top/Article/details/48370340.shtml)
+- 2026-06-30 07:46 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/006504973512.shtml)
+- 2026-06-30 07:32 - [千与千寻](http://www.blog.minike.top/Article/details/9209824.shtml)
+- 2026-06-30 07:42 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/455542.shtml)
+- 2026-06-30 07:35 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.share.kurohicncr.top/Article/details/069306674927.shtml)
+- 2026-06-30 07:59 - [Melo向柳智敏张元英道歉](http://www.blog.minike.top/Article/details/7830533.shtml)
+- 2026-06-30 07:48 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/5415301.shtml)
+- 2026-06-30 07:42 - [曝多支争冠球队有意塞克斯顿](http://www.share.minike.top/Article/details/56289225458.shtml)
+- 2026-06-30 07:44 - [《男人至死是傻得儿》](http://www.share.kurohicncr.top/Article/details/56351278158.shtml)
+- 2026-06-30 07:38 - [王楚钦孙颖莎晋级混双八强](http://www.share.kurohicncr.top/Article/details/3095547283.shtml)
+- 2026-06-30 07:41 - [徐亮怒斥世界杯踢假球](http://www.share.kurohicncr.top/Article/details/567249.shtml)
+- 2026-06-30 07:53 - [有酒店推行24小时退房制](http://www.blog.minike.top/Article/details/6720788.shtml)

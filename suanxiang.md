@@ -1,58 +1,56 @@
-# 分析师上调英特尔评级 凸显服务器芯片市场持续走强
+# 颖通控股上市后的新故事是投资了一家卖茶饮的香氛店
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-英特尔公司股价在周二尾盘交易中走低。此前Susquehanna上调了该公司的目标价，指出其处理器需求持续强劲。 该机构将目标价从65美元上调至80美元，称市场对CPU的需求“永不满足”，尤其是在服务器市场。分析师认为，得益于数据中心芯片的强劲表现，英特尔第一季度的业绩将与预期持平或略好于预期。 此次上调进一步增强了市场对英特尔将在AI驱动的计算周期中表现良好的预期。随着人工智能
+界面新闻记者 | 周芳颖 界面新闻编辑 | 楼婍沁 颖通控股上市后的首笔对外投资对象是一个本土芳疗护肤品牌。 颖通控股发布公告称，其全资附属公司颖通（中国）国际贸易有限责任公司已于2026年4月13日签署增资认购协议及股东协议，以人民币9750万元认购杭州白昼与梦生物科技有限公司新增注册资本人民币795037元，取得后者增资完成后15%的股权。 白昼与梦是芳疗功效护肤、个人护理
 
 ## 正文
 
-英特尔公司股价在周二尾盘交易中走低。
+界面新闻记者 | 周芳颖 界面新闻编辑 | 楼婍沁 颖通控股上市后的首笔对外投资对象是一个本土芳疗护肤品牌。
 
-此前Susquehanna上调了该公司的目标价，指出其处理器需求持续强劲。
+颖通控股发布公告称，其全资附属公司颖通（中国）国际贸易有限责任公司已于2026年4月13日签署增资认购协议及股东协议，以人民币9750万元认购杭州白昼与梦生物科技有限公司新增注册资本人民币795037元，取得后者增资完成后15%的股权。
 
-该机构将目标价从65美元上调至80美元，称市场对CPU的需求“永不满足”，尤其是在服务器市场。
+白昼与梦是芳疗功效护肤、个人护理及香氛品牌“馥郁满铺”的运营主体。
 
-分析师认为，得益于数据中心芯片的强劲表现，英特尔第一季度的业绩将与预期持平或略好于预期。
+该品牌定位为芳香疗愈情绪护肤品牌，最早起始于杭州一家芳疗小铺。
 
-此次上调进一步增强了市场对英特尔将在AI驱动的计算周期中表现良好的预期。
+综合公开信息，经过8年线下经营积累后，馥郁满铺于2021年转向芳疗护肤品开发，其首款精粹水产品120ml售价200多元，上市半年销售额超过1200万元。
 
-随着人工智能工作负载的增长，对包括CPU在内的服务器基础设施的需求也在增长，这使英特尔在市场中变得更加重要。
+颖通控股向界面时尚表示，该集团执行董事兼首席执行官林荆认为此次战略投资是集团优化资本配置、布局高增长赛道的举措，将帮助颖通控股把握功效护肤及个人护理行业的结构性增长机会，拓宽相关业务布局，并进一步丰富该集团品牌组合、优化业务结构。
 
-这一评级调整也正值市场对从事AI基础设施建设的半导体公司情绪发生变化之际。
+据林荆的说法，馥郁满铺已在芳疗功效护肤细分赛道中建立一定竞争优势，而颖通控股将在渠道资源、品牌拓展和市场渗透等方面支持馥郁满铺推进全渠道布局及国际化市场拓展。
 
-虽然大部分注意力一直集中在GPU上，但CPU对于处理和协调复杂工作负载正变得越来越重要。
+2023年至2025年，馥郁满铺接连获得凯辉基金、内向基金、挑战者创投等机构三轮融资。
 
 ## 相关推荐
 
-- 2026-06-30 07:47 - [大蒜晒外面被路过女子连盆端走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-30 07:42 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-30 07:26 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
-- 2026-06-30 07:35 - [德国队连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
-- 2026-06-30 07:33 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-30 07:43 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
-- 2026-06-30 07:48 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-30 07:40 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-30 07:53 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-30 07:46 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-30 07:36 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-30 07:48 - [森保一致歉：世界第一目标没能实现](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-30 07:58 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-30 07:59 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-30 07:58 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-30 07:33 - [网友写差评被店家“挂”门口避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-30 07:48 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-30 07:42 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-30 07:59 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-30 07:58 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-30 07:55 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-30 07:45 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:28 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/4215425514.shtml)
-- 2026-06-30 07:37 - [德国队世界杯点球大战首败](http://www.blog.kurohicncr.top/Article/details/076357503999.shtml)
-- 2026-06-30 07:28 - [锐评T1零封KC](http://www.share.minike.top/Article/details/3185113311.shtml)
-- 2026-06-30 07:31 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/9256908.shtml)
-- 2026-06-30 07:46 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/30961.shtml)
-- 2026-06-30 07:51 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/30478.shtml)
-- 2026-06-30 07:26 - [日本淘汰](https://www.blog.minike.top/Article/details/98063999.shtml)
-- 2026-06-30 07:26 - [巴西半场0比1日本](http://www.blog.kurohicncr.top/Article/details/704769730.shtml)
-- 2026-06-30 07:45 - [覃予萱晋级WTT美国大满贯女单32强](http://www.blog.kurohicncr.top/Article/details/017713.shtml)
-- 2026-06-30 07:44 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/708478035585.shtml)
-- 2026-06-30 07:24 - [金牌调解](https://www.share.kurohicncr.top/Article/details/7607477333.shtml)
-- 2026-06-30 07:39 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/8489936.shtml)
-- 2026-06-30 07:52 - [媒体：手机测评该挤挤水分了](https://www.share.minike.top/Article/details/7903232031.shtml)
-- 2026-06-30 07:47 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/853686951.shtml)
-- 2026-06-30 07:29 - [巴西在进攻三区完成210脚传球](https://www.blog.kurohicncr.top/Article/details/57595462241.shtml)
+- 2026-06-30 07:36 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/22054676020.shtml)
+- 2026-06-30 07:31 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/6665891.shtml)
+- 2026-06-30 07:38 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.blog.minike.top/Article/details/00266555878.shtml)
+- 2026-06-30 07:53 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/045604530575.shtml)
+- 2026-06-30 07:58 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.minike.top/Article/details/24851085494.shtml)
+- 2026-06-30 07:40 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/783002729740.shtml)
+- 2026-06-30 07:57 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/271633932.shtml)
+- 2026-06-30 07:56 - [男子醉酒溺水获救后同行人拒协助抬人](https://www.share.kurohicncr.top/Article/details/727308467.shtml)
+- 2026-06-30 07:37 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/6755738.shtml)
+- 2026-06-30 07:56 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/64226.shtml)
+- 2026-06-30 07:47 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/1223818.shtml)
+- 2026-06-30 07:33 - [世界杯“美洲德比”7月1日开打](http://www.blog.kurohicncr.top/Article/details/28173791753.shtml)
+- 2026-06-30 07:54 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/67846487568.shtml)
+- 2026-06-30 07:44 - [穆祉丞年度人气艺人](https://www.share.minike.top/Article/details/884257317841.shtml)
+- 2026-06-30 07:32 - [网红峡谷5人溺亡 有人提醒会下雨](https://www.share.minike.top/Article/details/068335790.shtml)

@@ -1,49 +1,58 @@
-# 以黎代表在华盛顿举行会谈
+# Yeti一季度业绩超预期 盘前大涨10%
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社华盛顿4月14日电以色列和黎巴嫩政府代表14日在美国首都华盛顿举行会谈。以方拒绝与黎巴嫩真主党讨论停火。（完）责任编辑：宋雅芳
+户外用品公司Yeti Holdings股价在周四盘前交易中大涨10%，此前该公司公布的第一季度财报营收和利润双双超出市场预期。 业绩全面超预期 财报显示，Yeti第一季度调整后每股收益为26美分，远高于FactSet分析师普遍预期的18美分。营收为3.804亿美元，同样超过市场预期的3.747亿美元。不过，按照美国通用会计准则计算，公司净利润为990万美元，合每股13美分，较去
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+户外用品公司Yeti Holdings股价在周四盘前交易中大涨10%，此前该公司公布的第一季度财报营收和利润双双超出市场预期。
 
-新华社华盛顿4月14日电以色列和黎巴嫩政府代表14日在美国首都华盛顿举行会谈。
+业绩全面超预期 财报显示，Yeti第一季度调整后每股收益为26美分，远高于FactSet分析师普遍预期的18美分。
 
-以方拒绝与黎巴嫩真主党讨论停火。
+营收为3.804亿美元，同样超过市场预期的3.747亿美元。
 
-（完）责任编辑：宋雅芳
+不过，按照美国通用会计准则计算，公司净利润为990万美元，合每股13美分，较去年同期的0.20美元有所下降，主要受关税成本影响。
+
+公司首席执行官Matt Reintjes表示：“我们的第一季度业绩为2026年开了个好头，在第四季度的基础上进一步加速。
+
+Yeti在美国的饮品容器和冷藏箱设备两大品类均看到了异常强劲的消费者终端需求。
+
+” 各品类全面增长 从业务板块来看，冷藏箱及设备销售额增长11%至1.561亿美元，饮品容器销售额增长5%至2.169亿美元。
+
+渠道方面，批发渠道销售增长19%，创下三年多来最佳季度表现；直销渠道销售持平于1.968亿美元。
 
 ## 相关推荐
 
-- 2026-06-30 07:37 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
-- 2026-06-30 07:35 - [巴拉圭先进球了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-30 07:45 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-30 07:49 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-30 07:39 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-30 07:44 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
-- 2026-06-30 07:37 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-30 07:39 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-30 07:31 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
-- 2026-06-30 07:33 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-30 07:31 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-30 07:31 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-30 07:45 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-30 07:52 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-30 07:57 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-30 07:41 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-30 07:31 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-30 07:58 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-30 07:56 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-30 07:41 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-30 07:54 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-30 07:57 - [德国淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-30 07:52 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:42 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.minike.top/Article/details/608716701740.shtml)
-- 2026-06-30 07:47 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/74710626.shtml)
-- 2026-06-30 07:24 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/368584082.shtml)
-- 2026-06-30 07:32 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/73648620225.shtml)
-- 2026-06-30 07:34 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/76027234.shtml)
-- 2026-06-30 07:38 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/28629199783.shtml)
-- 2026-06-30 07:52 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.share.minike.top/Article/details/81017878638.shtml)
-- 2026-06-30 07:36 - [陈小云又好好的养了自己一年](http://www.blog.minike.top/Article/details/752720039083.shtml)
-- 2026-06-30 07:33 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/3884244.shtml)
-- 2026-06-30 07:28 - [流金岁月](http://www.share.kurohicncr.top/Article/details/18763.shtml)
-- 2026-06-30 07:35 - [刘宇宁高情商化解谁站C位](https://www.share.kurohicncr.top/Article/details/02019359.shtml)
-- 2026-06-30 07:47 - [峡谷事故团队组队时有人提醒会下雨](http://www.blog.kurohicncr.top/Article/details/34673.shtml)
-- 2026-06-30 07:46 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.kurohicncr.top/Article/details/92292534.shtml)
-- 2026-06-30 07:24 - [点菜也要教吗](http://www.share.minike.top/Article/details/912943141.shtml)
-- 2026-06-30 07:29 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/41596512.shtml)
+- 2026-06-30 07:53 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/860435.shtml)
+- 2026-06-30 07:30 - [王源近几年没有路演了](http://www.share.minike.top/Article/details/3277688.shtml)
+- 2026-06-30 07:41 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/132455609151.shtml)
+- 2026-06-30 07:35 - [千万不要随便扣肚脐](https://www.share.kurohicncr.top/Article/details/493277632.shtml)
+- 2026-06-30 07:40 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/73927.shtml)
+- 2026-06-30 07:47 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.minike.top/Article/details/34189864555.shtml)
+- 2026-06-30 07:53 - [王欣瑜温网开门红](http://www.blog.kurohicncr.top/Article/details/056914.shtml)
+- 2026-06-30 07:57 - [日本五次世界杯淘汰赛全败](https://www.share.kurohicncr.top/Article/details/3725988673.shtml)
+- 2026-06-30 07:51 - [王欣瑜晋级温网女单次轮](http://www.blog.minike.top/Article/details/948477251653.shtml)
+- 2026-06-30 07:39 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/760969019.shtml)
+- 2026-06-30 07:59 - [补时绝杀 巴西2-1淘汰日本](https://www.share.kurohicncr.top/Article/details/4783127.shtml)
+- 2026-06-30 07:32 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/08596923940.shtml)
+- 2026-06-30 07:42 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/45284.shtml)
+- 2026-06-30 07:48 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/46996.shtml)
+- 2026-06-30 07:42 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/7567343.shtml)

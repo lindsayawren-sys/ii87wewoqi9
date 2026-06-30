@@ -1,61 +1,60 @@
-# 深夜，拉升！重大利好突袭！美伊谈判，传来最新消息！
+# Avon Technologies上半年业绩亮眼，每股收益56美分
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-美伊谈判传来重磅利好。 今晚，美股三大指数低开后集体拉升，纳指、标普500指数由跌转涨。消息面上，巴基斯坦国防部长阿西夫4月13日表示，美伊重启谈判的前景依然存在，新一轮谈判将很快开始。另据美媒报道，巴基斯坦、埃及和土耳其将在未来几天继续与美国和伊朗进行会谈，以弥合分歧，推动达成结束战争的协议。 高盛宏观交易团队认为，目前市场最严峻的尾部风险已显著收窄，若“压力峰值”已过，美股
+英国军事防护装备制造商Avon Technologies Plc周三公布2026财年上半年财报，非GAAP每股收益为0.56美元，营收达1.608亿美元，同比增长8.1%，超出市场预期。 上半年业绩全面增长 截至2026年3月31日的六个月内，公司营收为1.608亿美元，同比增长6.8%。调整后营业利润达2440万美元，同比增长39.4%，调整后营业利润率从11.8%大幅提升至
 
 ## 正文
 
-美伊谈判传来重磅利好。
+英国军事防护装备制造商Avon Technologies Plc周三公布2026财年上半年财报，非GAAP每股收益为0.56美元，营收达1.608亿美元，同比增长8.1%，超出市场预期。
 
-今晚，美股三大指数低开后集体拉升，纳指、标普500指数由跌转涨。
+上半年业绩全面增长 截至2026年3月31日的六个月内，公司营收为1.608亿美元，同比增长6.8%。
 
-消息面上，巴基斯坦国防部长阿西夫4月13日表示，美伊重启谈判的前景依然存在，新一轮谈判将很快开始。
+调整后营业利润达2440万美元，同比增长39.4%，调整后营业利润率从11.8%大幅提升至15.2%，已进入公司14%-16%的目标区间。
 
-另据美媒报道，巴基斯坦、埃及和土耳其将在未来几天继续与美国和伊朗进行会谈，以弥合分歧，推动达成结束战争的协议。
+调整后每股收益为56.4美分，同比增长45.4%。
 
-高盛宏观交易团队认为，目前市场最严峻的尾部风险已显著收窄，若“压力峰值”已过，美股有望重新聚焦前瞻视角，交易两位数盈利增长预期。
+法定口径下，税前利润从去年同期的310万美元大幅攀升至1350万美元，基本每股收益为35.0美分。
 
-摩根士丹利策略师也表示，企业盈利增速加快正在为标普500指数提供保护，美股已显现出处于调整“最后阶段”的迹象。
+公司同时宣布中期股息每股8.1美分，较去年同期的7.6美分增长6.6%。
 
-美股全线拉升 4月13日晚间，美股三大指数低开，随后集体拉升，纳指、标普500指数率先翻红，截至发稿，道指跌0.36%，纳指涨0.19%，标普500指数涨0.06%。
+中期盈利目标提前18个月达成 公司首席执行官表示，公司已提前18个月实现了中期增长、利润率、投资回报率和杠杆率目标。
 
-美股大型科技股涨跌不一，特斯拉涨超1%，谷歌、微软小幅上涨；苹果跌超1%，英伟达、亚马逊、博通、Meta均小幅下跌。
+这一成就得益于商业和制造执行的改善，特别是俄亥俄州工厂的产能提升和运营可靠性增强。
 
 ## 相关推荐
 
-- 2026-06-30 07:27 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-30 07:28 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-30 07:36 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-30 07:30 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-30 07:46 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-30 07:24 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-30 07:27 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-30 07:39 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-30 07:43 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
-- 2026-06-30 07:35 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-30 07:46 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-30 07:49 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
-- 2026-06-30 07:41 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-30 07:30 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-30 07:25 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-30 07:50 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-30 07:48 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-30 07:50 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
+- 2026-06-30 07:52 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
+- 2026-06-30 07:37 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-30 07:41 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-30 07:34 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-30 07:58 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-30 07:56 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-30 07:48 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-30 07:38 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-30 07:40 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-30 07:48 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-30 07:46 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:35 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/14210185442.shtml)
-- 2026-06-30 07:29 - [为什么会有「念旧」的心理？](https://www.share.kurohicncr.top/Article/details/34456.shtml)
-- 2026-06-30 07:31 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/85169552.shtml)
-- 2026-06-30 07:38 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/6129702.shtml)
-- 2026-06-30 07:41 - [模仿老妈打牌赢了和输了的区别！](http://www.share.minike.top/Article/details/20028532702.shtml)
-- 2026-06-30 07:43 - [上半年全国特种设备安全形势总体平稳](https://www.share.kurohicncr.top/Article/details/53063128530.shtml)
-- 2026-06-30 07:32 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/725773050.shtml)
-- 2026-06-30 07:43 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/38716295.shtml)
-- 2026-06-30 07:31 - [扬名立万](http://www.share.minike.top/Article/details/56379294391.shtml)
-- 2026-06-30 07:46 - [老外对中国cosplay竟这样评价…](https://www.blog.kurohicncr.top/Article/details/58406066.shtml)
-- 2026-06-30 07:51 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.kurohicncr.top/Article/details/900262221773.shtml)
-- 2026-06-30 07:34 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/26254.shtml)
-- 2026-06-30 07:25 - [杨紫获白玉兰视后争议不止](http://www.blog.minike.top/Article/details/03657217.shtml)
-- 2026-06-30 07:29 - [千香](https://www.blog.kurohicncr.top/Article/details/09843.shtml)
-- 2026-06-30 07:50 - [武磊：日本队有能力跟任何强队抗衡](https://www.share.kurohicncr.top/Article/details/855902.shtml)
+- 2026-06-30 07:53 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/74208961.shtml)
+- 2026-06-30 07:40 - [博世们还在犹豫 美的们已经卖断货](http://www.share.kurohicncr.top/Article/details/937422082296.shtml)
+- 2026-06-30 07:47 - [医药暴涨5.91%背后](https://www.share.minike.top/Article/details/42624.shtml)
+- 2026-06-30 07:53 - [“草莓月亮”浪漫现身](https://www.share.minike.top/Article/details/362995580980.shtml)
+- 2026-06-30 07:33 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/5457863.shtml)
+- 2026-06-30 07:41 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.minike.top/Article/details/17059415517.shtml)
+- 2026-06-30 07:31 - [张凌赫杨超越 峨眉](http://www.share.minike.top/Article/details/3901023.shtml)
+- 2026-06-30 07:45 - [“草莓月亮”浪漫现身](https://www.share.minike.top/Article/details/5015398.shtml)
+- 2026-06-30 07:43 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/3958936.shtml)
+- 2026-06-30 07:42 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/135921864919.shtml)
+- 2026-06-30 07:47 - [卡塞米罗头球破门](http://www.blog.minike.top/Article/details/83387989.shtml)
+- 2026-06-30 07:56 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](http://www.blog.kurohicncr.top/Article/details/4595796688.shtml)
+- 2026-06-30 07:45 - [沉睡花园](http://www.share.minike.top/Article/details/712983291284.shtml)
+- 2026-06-30 07:59 - [中国新一轮出口管制直指日本命脉](https://www.share.kurohicncr.top/Article/details/54432.shtml)
+- 2026-06-30 07:36 - [恋与深空制作组回应近期争议](https://www.share.kurohicncr.top/Article/details/845914904435.shtml)

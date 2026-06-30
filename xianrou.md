@@ -1,57 +1,58 @@
-# 国家医保局：进一步将口腔等3个领域纳入自查自纠范围
+# OEG延长巴斯海峡海上作业钻井支持合同
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-近日，国家医疗保障局在全国范围内组织开展2026年定点医药机构违法违规使用医保基金自查自纠工作。 自查自纠聚焦重点领域“逐渐细化、持续深化”。在既往心血管内科、骨科、血液净化、康复、医学影像、临床检验、肿瘤、麻醉、重症医学等9个重点领域的基础上，本年度进一步将口腔、内分泌、精神医学3个领域纳入自查自纠范围。各地医保部门以此为基础，结合实际组织开展自查，确保全面覆盖、不留死角。
+海上服务公司OEG已与一家全球运营商签订了一份为期多年的数百万美元合同延期协议，为澳大利亚巴斯海峡的海上钻井作业提供支持，合同有效期预计将持续至2036年该油田生产周期结束。 该协议涵盖了从OEG位于澳大利亚维多利亚州的Barry Beach工厂供应和制造200个经DNV认证的海上货物运输单元。 OEG还将提供这些单元的检查、维护和维修服务，以及起重和吊装支持。 该公司表示，此
 
 ## 正文
 
-近日，国家医疗保障局在全国范围内组织开展2026年定点医药机构违法违规使用医保基金自查自纠工作。
+海上服务公司OEG已与一家全球运营商签订了一份为期多年的数百万美元合同延期协议，为澳大利亚巴斯海峡的海上钻井作业提供支持，合同有效期预计将持续至2036年该油田生产周期结束。
 
-自查自纠聚焦重点领域“逐渐细化、持续深化”。
+该协议涵盖了从OEG位于澳大利亚维多利亚州的Barry Beach工厂供应和制造200个经DNV认证的海上货物运输单元。
 
-在既往心血管内科、骨科、血液净化、康复、医学影像、临床检验、肿瘤、麻醉、重症医学等9个重点领域的基础上，本年度进一步将口腔、内分泌、精神医学3个领域纳入自查自纠范围。
+OEG还将提供这些单元的检查、维护和维修服务，以及起重和吊装支持。
 
-各地医保部门以此为基础，结合实际组织开展自查，确保全面覆盖、不留死角。
+该公司表示，此次合同延期将使OEG在该地区为该运营商海上作业提供支持的货物运输单元及服务单元总数增至约700个。
 
-本次自查自纠工作分三个阶段有序推进。
+OEG澳新区域总监博·罗宾斯表示：“此次合同延期反映了一段多年来建立的长期合作关系。
 
-一是细化制定本地清单。
+它也凸显了长期租赁协议在支持运营规划和设备可用性、减少计划外维护以及帮助运营商提高效率、同时在整个油田生命周期内节省资本方面的价值。
 
-国家医保局已下发2026年定点医药机构违法违规使用医保基金典型问题清单，各地医保部门已于3月底前结合本地医保政策、诊疗项目规范，对问题清单进行细化完善。
+” 巴斯海峡自20世纪60年代末以来一直是澳大利亚主要的海上油气生产区域之一。
 
-二是组织全面自查。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-30 07:31 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
-- 2026-06-30 07:37 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-30 07:36 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-30 07:32 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
-- 2026-06-30 07:53 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-30 07:51 - [日本 高位逼抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-30 07:42 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
-- 2026-06-30 07:25 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-30 07:25 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-30 07:49 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-30 07:45 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-30 07:34 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-30 07:51 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-30 07:39 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
+- 2026-06-30 07:55 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-30 07:55 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-30 07:47 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-30 07:46 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-30 07:35 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-30 07:32 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-30 07:53 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-30 07:40 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
+- 2026-06-30 07:34 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:39 - [问心2神一集鬼三集](https://www.share.minike.top/Article/details/388879.shtml)
-- 2026-06-30 07:42 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/3783674.shtml)
-- 2026-06-30 07:50 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/168558498.shtml)
-- 2026-06-30 07:37 - [点菜也要教吗](https://www.blog.minike.top/Article/details/903808.shtml)
-- 2026-06-30 07:33 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/437105.shtml)
-- 2026-06-30 07:49 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/4041037772.shtml)
-- 2026-06-30 07:30 - [索马里女大使：想和中国一起搞事业](http://www.blog.kurohicncr.top/Article/details/09517.shtml)
-- 2026-06-30 07:42 - [巴西扳平比分](http://www.share.kurohicncr.top/Article/details/9670965.shtml)
-- 2026-06-30 07:31 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/401525.shtml)
-- 2026-06-30 07:29 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/637686599.shtml)
-- 2026-06-30 07:53 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/68080442.shtml)
-- 2026-06-30 07:33 - [南北多地暴雨和强对流天气持续](https://www.share.kurohicncr.top/Article/details/98794452.shtml)
-- 2026-06-30 07:51 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/2419179.shtml)
-- 2026-06-30 07:48 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/96421611.shtml)
-- 2026-06-30 07:39 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/83623543483.shtml)
+- 2026-06-30 07:50 - [老外对中国cosplay竟这样评价…](http://www.share.kurohicncr.top/Article/details/78073710.shtml)
+- 2026-06-30 07:44 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/8157823769.shtml)
+- 2026-06-30 07:49 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/65353931271.shtml)
+- 2026-06-30 07:58 - [王欣瑜2-1击败科恰雷托](http://www.blog.minike.top/Article/details/55574131491.shtml)
+- 2026-06-30 07:43 - [徐亮怒斥世界杯踢假球](http://www.blog.kurohicncr.top/Article/details/74904483898.shtml)
+- 2026-06-30 07:54 - [王欣瑜温网开门红](http://www.blog.minike.top/Article/details/20413.shtml)
+- 2026-06-30 07:56 - [南北多地暴雨和强对流天气持续](https://www.blog.kurohicncr.top/Article/details/01485832.shtml)
+- 2026-06-30 07:53 - [小娘惹](https://www.share.minike.top/Article/details/9714329690.shtml)
+- 2026-06-30 07:47 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.blog.minike.top/Article/details/755616201.shtml)
+- 2026-06-30 07:32 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/463122.shtml)
+- 2026-06-30 07:56 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.kurohicncr.top/Article/details/47605011819.shtml)
+- 2026-06-30 07:37 - [内马尔中场休息积极鼓励队友](http://www.share.kurohicncr.top/Article/details/09054449.shtml)
+- 2026-06-30 07:40 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/33016657.shtml)
+- 2026-06-30 07:39 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/08908113335.shtml)
+- 2026-06-30 07:34 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/543894401.shtml)

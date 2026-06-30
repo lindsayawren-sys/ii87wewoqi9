@@ -1,60 +1,61 @@
-# 国际能源署称油价将很快开始反映危机的严重程度
+# 东方嘉富人寿：时隔半年更换“掌门人”！搭班新总经理，何以稳中求进？
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-油价尚未反映出伊朗战争造成的这场前所未有的供应危机的严重程度，但很快就会反映出来，国际能源署（IEA）署长法提赫·比罗尔表示。 比罗尔在大西洋理事会主办的一场活动上表示，这场冲突以及霍尔木兹海峡近乎关闭，已导致大约每日1300万桶的供应停摆。 他警告说，敌对行动期间已有80多处能源设施受损，而恢复过程可能长达两年。这家总部位于巴黎的机构此前已将当前的供应中断描述为历史上最严重的
+来源：中保新知 继今年3月份新任总经理正式上岗后，时隔两个月，这家寿险公司又迎来董事长的变更。 5月13日，东方嘉富人寿发布公告称，根据股东方的工作安排，自2026年4月28日起，何欣不再担任东方嘉富人寿董事长。经公司第四届董事会第三十七次会议选举，童超当选公司董事长，童超的任职将在获得国家金融监督管理总局浙江监管局核准任职资格后正式生效。 需要注意的是，何欣担任东方嘉富人寿董
 
 ## 正文
 
-油价尚未反映出伊朗战争造成的这场前所未有的供应危机的严重程度，但很快就会反映出来，国际能源署（IEA）署长法提赫·比罗尔表示。
+来源：中保新知 继今年3月份新任总经理正式上岗后，时隔两个月，这家寿险公司又迎来董事长的变更。
 
-比罗尔在大西洋理事会主办的一场活动上表示，这场冲突以及霍尔木兹海峡近乎关闭，已导致大约每日1300万桶的供应停摆。
+5月13日，东方嘉富人寿发布公告称，根据股东方的工作安排，自2026年4月28日起，何欣不再担任东方嘉富人寿董事长。
 
-他警告说，敌对行动期间已有80多处能源设施受损，而恢复过程可能长达两年。
+经公司第四届董事会第三十七次会议选举，童超当选公司董事长，童超的任职将在获得国家金融监督管理总局浙江监管局核准任职资格后正式生效。
 
-这家总部位于巴黎的机构此前已将当前的供应中断描述为历史上最严重的一次。
+需要注意的是，何欣担任东方嘉富人寿董事长一职仅半年时间，如此短时间内更换董事长，在保险业内并不多见。
 
-“价格已经很高了，但并没有反映出问题的严重性——我同意确实存在脱节，”比罗尔说，“但我认为，很快我们就会看到两者趋于一致，而这对全球经济来说是一个极其敏感的问题。
+当然，这次人事调整也是东方嘉富人寿更名换姓之后变化的延续。
 
-” 伦敦市场的原油期货交易价格接近每桶100美元，这意味着自年初以来已上涨约64%，但仍明显低于俄罗斯2022年入侵乌克兰后触及的水平，也低于2008年创下的纪录高点。
+从增资扩股到更名换姓，再到领导班子调整、品牌更新、新战略发布等，东方嘉富人寿近几年变化很大。
 
-上个月，美国、日本和德国等国际能源署成员同意以前所未有的规模释放紧急石油储备，以帮助市场降温。
+无论是公司属性，还是发展方向，都有了新的定位与规划。
 
-责任编辑：丁文武
+随着新董事长的到来，这家寿险公司将迎来怎样的发展格局？
 
 ## 相关推荐
 
-- 2026-06-30 07:51 - [高质量发展看新疆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
-- 2026-06-30 07:51 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
-- 2026-06-30 07:34 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-30 07:29 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-30 07:51 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-30 07:33 - [老外对中国cosplay竟这样评价…](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-30 07:43 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
-- 2026-06-30 07:48 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-30 07:28 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-30 07:42 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-30 07:37 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-30 07:24 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
-- 2026-06-30 07:50 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
-- 2026-06-30 07:35 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-30 07:52 - [巴拉圭进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
+- 2026-06-30 07:57 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-30 07:39 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-30 07:46 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-30 07:34 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-30 07:30 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-30 07:46 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-30 07:50 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-30 07:30 - [德国队世界杯点球大战首败](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-30 07:44 - [索马里女大使：想和中国一起搞事业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
+- 2026-06-30 07:46 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-30 07:40 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-30 07:38 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-30 07:47 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-30 07:53 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:28 - [宗元舞2.0 迟来的50万女装福利](http://www.share.minike.top/Article/details/530268513961.shtml)
-- 2026-06-30 07:48 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.minike.top/Article/details/2500044654.shtml)
-- 2026-06-30 07:40 - [科技牛市下的最大考验是什么](http://www.blog.kurohicncr.top/Article/details/07312295.shtml)
-- 2026-06-30 07:37 - [啊啊啊](https://www.share.minike.top/Article/details/6610874.shtml)
-- 2026-06-30 07:49 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/5121888738.shtml)
-- 2026-06-30 07:47 - [女心理师](http://www.share.kurohicncr.top/Article/details/868214911299.shtml)
-- 2026-06-30 07:46 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/27162334730.shtml)
-- 2026-06-30 07:32 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/280729.shtml)
-- 2026-06-30 07:44 - [日本16强魔咒](http://www.blog.kurohicncr.top/Article/details/9225359192.shtml)
-- 2026-06-30 07:42 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/144441749814.shtml)
-- 2026-06-30 07:45 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/796855713.shtml)
-- 2026-06-30 07:50 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/986702266847.shtml)
-- 2026-06-30 07:49 - [千香](https://www.share.minike.top/Article/details/060707663939.shtml)
-- 2026-06-30 07:29 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/89846966.shtml)
-- 2026-06-30 07:26 - [天道](http://www.share.kurohicncr.top/Article/details/3465198106.shtml)
+- 2026-06-30 07:41 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/629169218.shtml)
+- 2026-06-30 07:36 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/8565878203.shtml)
+- 2026-06-30 07:53 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.share.minike.top/Article/details/116445217079.shtml)
+- 2026-06-30 07:57 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/597501135.shtml)
+- 2026-06-30 07:45 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/8231555.shtml)
+- 2026-06-30 07:35 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/3625041.shtml)
+- 2026-06-30 07:48 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/679836346.shtml)
+- 2026-06-30 07:50 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/81500.shtml)
+- 2026-06-30 07:35 - [世界杯巴拉圭点球淘汰德国](https://www.blog.minike.top/Article/details/6235200721.shtml)
+- 2026-06-30 07:45 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/642290819.shtml)
+- 2026-06-30 07:56 - [一生一世](https://www.share.minike.top/Article/details/8098484967.shtml)
+- 2026-06-30 07:57 - [田中碧失误](http://www.blog.minike.top/Article/details/40079393.shtml)
+- 2026-06-30 07:40 - [孙兴慜道歉](http://www.blog.kurohicncr.top/Article/details/6949036117.shtml)
+- 2026-06-30 07:42 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.minike.top/Article/details/848966.shtml)
+- 2026-06-30 07:52 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.share.minike.top/Article/details/9929368924.shtml)

@@ -1,57 +1,56 @@
-# 火灾毒烟比明火更致命 中毒急救步骤要记牢→
+# 央行：4月末社会融资规模存量为456.89万亿元，同比增长7.8%
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-当火灾发生时，许多人可能会认为火势的猛烈是造成伤亡的主要原因。实际上，大多数火灾造成的伤亡是因为吸入高温有毒烟气。高温烟气会灼伤鼻腔、咽喉等器官，引发窒息。 近日，发生在江苏和江西的两起火灾，部分人员因吸入一氧化碳中毒，所幸及时转移救治，脱离了生命危险。 高温烟气会灼伤鼻腔 咽喉等引发窒息 居民家中突发火灾 住户吸入高浓度有毒烟气昏迷 近日，江苏无锡江阴市一居民家中突发火灾，消
+2026年4月金融统计数据报告 一、社会融资规模存量同比增长7.8% 初步统计，2026年4月末社会融资规模存量为456.89万亿元，同比增长7.8%。其中，对实体经济发放的人民币贷款余额276.9万亿元，同比增长5.6%；对实体经济发放的外币贷款折合人民币余额1.13万亿元，同比下降3.8%；委托贷款余额11.23万亿元，同比下降0.1%；信托贷款余额4.67万亿元，同比增长
 
 ## 正文
 
-当火灾发生时，许多人可能会认为火势的猛烈是造成伤亡的主要原因。
+2026年4月金融统计数据报告 一、社会融资规模存量同比增长7.8% 初步统计，2026年4月末社会融资规模存量为456.89万亿元，同比增长7.8%。
 
-实际上，大多数火灾造成的伤亡是因为吸入高温有毒烟气。
+其中，对实体经济发放的人民币贷款余额276.9万亿元，同比增长5.6%；对实体经济发放的外币贷款折合人民币余额1.13万亿元，同比下降3.8%；委托贷款余额11.23万亿元，同比下降0.1%；信托贷款余额4.67万亿元，同比增长7.4%；未贴现的银行承兑汇票余额2.2万亿元，同比下降7.9%；企业债券余额35.52万亿元，同比增长8.3%；政府债券余额99.37万亿元，同比增长15.6%；非金融企业境内股票余额12.4万亿元，同比增长4.6%。
 
-高温烟气会灼伤鼻腔、咽喉等器官，引发窒息。
+从结构看，4月末对实体经济发放的人民币贷款余额占同期社会融资规模存量的60.6%，同比低1.3个百分点；对实体经济发放的外币贷款折合人民币余额占比0.2%，同比低0.1个百分点；委托贷款余额占比2.5%，同比低0.2个百分点；信托贷款余额占比1%，同比持平；未贴现的银行承兑汇票余额占比0.5%，同比低0.1个百分点；企业债券余额占比7.8%，同比高0.1个百分点；政府债券余额占比21.7%，同比高1.4个百分点；非金融企业境内股票余额占比2.7%，同比低0.1个百分点。
 
-近日，发生在江苏和江西的两起火灾，部分人员因吸入一氧化碳中毒，所幸及时转移救治，脱离了生命危险。
+二、前四个月社会融资规模增量累计为15.45万亿元 初步统计，2026年前四个月社会融资规模增量累计为15.45万亿元，比上年同期少8930亿元。
 
-高温烟气会灼伤鼻腔 咽喉等引发窒息 居民家中突发火灾 住户吸入高浓度有毒烟气昏迷 近日，江苏无锡江阴市一居民家中突发火灾，消防救援人员抵达现场后发现，屋内明火虽已熄灭，但室内依旧充斥着厚重、刺鼻的黑烟。
+其中，对实体经济发放的人民币贷款增加8.5万亿元，同比少增1.29万亿元；对实体经济发放的外币贷款折合人民币增加1036亿元，同比多增2134亿元；委托贷款减少941亿元，同比多减994亿元；信托贷款增加3亿元，同比少增451亿元；未贴现的银行承兑汇票增加513亿元，同比少增1992亿元；企业债券净融资1.5万亿元，同比多7393亿元；政府债券净融资4.45万亿元，同比少3990亿元；非金融企业境内股票融资2008亿元，同比多655亿元。
 
-两名住户因为长时间吸入高浓度有毒烟气，陷入昏迷，失去了自主逃生的能力。
+三、广义货币增长8.6% 4月末，广义货币（M2）余额353.04万亿元，同比增长8.6%。
 
-消防员立即将两人转移出来。
+狭义货币（M1）余额114.58万亿元，同比增长5%。
 
-当晚，男主人醉酒卧床吸烟，不慎引燃被褥等可燃物，由于燃烧不充分持续释放出大量有毒气体。
+流通中货币（M0）余额14.75万亿元，同比增长12.2%。
 
 ## 相关推荐
 
-- 2026-06-30 07:29 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-30 07:38 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-30 07:36 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-30 07:40 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-30 07:35 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-30 07:44 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
-- 2026-06-30 07:25 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-30 07:31 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-30 07:28 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-30 07:48 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
-- 2026-06-30 07:51 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
+- 2026-06-30 07:58 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-30 07:44 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-30 07:50 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-30 07:42 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-30 07:35 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-30 07:35 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-30 07:45 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-30 07:42 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-30 07:42 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-30 07:39 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:50 - [辛纳vs凯茨玛诺维奇](http://www.blog.kurohicncr.top/Article/details/28884536.shtml)
-- 2026-06-30 07:27 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/7039405828.shtml)
-- 2026-06-30 07:48 - [巴西vs日本首发名单](https://www.share.minike.top/Article/details/852346408.shtml)
-- 2026-06-30 07:26 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/930103116.shtml)
-- 2026-06-30 07:28 - [刘必安等16人非法集资案二审宣判](https://www.blog.minike.top/Article/details/372851962.shtml)
-- 2026-06-30 07:37 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/352898444721.shtml)
-- 2026-06-30 07:37 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/42058628.shtml)
-- 2026-06-30 07:29 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/57840731432.shtml)
-- 2026-06-30 07:44 - [赛博朋克边缘行者2预告片](http://www.blog.minike.top/Article/details/095303.shtml)
-- 2026-06-30 07:52 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/30694.shtml)
-- 2026-06-30 07:35 - [佐野海舟远射破门](https://www.share.kurohicncr.top/Article/details/108734.shtml)
-- 2026-06-30 07:51 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/66764770.shtml)
-- 2026-06-30 07:31 - [詹姆斯下赛季去哪](https://www.blog.minike.top/Article/details/38347142518.shtml)
-- 2026-06-30 07:53 - [花少8要去世界杯举办国](http://www.share.kurohicncr.top/Article/details/2110021.shtml)
-- 2026-06-30 07:27 - [王健林甩卖超80座万达广场](http://www.blog.kurohicncr.top/Article/details/12032.shtml)
+- 2026-06-30 07:51 - [巴西vs日本首发名单](https://www.share.minike.top/Article/details/26164.shtml)
+- 2026-06-30 07:30 - [日本16强魔咒](https://www.share.minike.top/Article/details/02114099838.shtml)
+- 2026-06-30 07:46 - [巴西扳平比分](http://www.blog.minike.top/Article/details/353234.shtml)
+- 2026-06-30 07:42 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/8835599456.shtml)
+- 2026-06-30 07:59 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/66517402330.shtml)
+- 2026-06-30 07:37 - [卡塞米罗头球破门 巴西扳平日本](https://www.share.minike.top/Article/details/24580098.shtml)
+- 2026-06-30 07:54 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.minike.top/Article/details/946508280107.shtml)
+- 2026-06-30 07:51 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/77948181.shtml)
+- 2026-06-30 07:47 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.minike.top/Article/details/9121207051.shtml)
+- 2026-06-30 07:30 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/832188907924.shtml)
+- 2026-06-30 07:32 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/978289.shtml)
+- 2026-06-30 07:32 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/507994.shtml)
+- 2026-06-30 07:59 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.share.minike.top/Article/details/726455418620.shtml)
+- 2026-06-30 07:39 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/01260.shtml)
+- 2026-06-30 07:32 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/740261601236.shtml)

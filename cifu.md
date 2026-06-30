@@ -1,60 +1,58 @@
-# 博时宏观观点：地缘扰动未消，市场震荡或将延续
+# 长城基金投资札记：市场高位，如何在分化中把握机遇？
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-美伊战事对市场的扰动预计仍将延续：债市整体偏震荡，短端或相对有支撑。A股将聚焦财报，资源品、科技和先进制造有望占优。原油、黄金均偏中性，中期看黄金或更为乐观。 海外方面，美伊地缘冲突略虽有缓和但仍有波折，油价暴涨推升3月美国通胀，CPI符合预期，核心CPI低于预期，美联储Q2继续观望，美债/美元/黄金对战争定价或已较为充分，预计流动性环境趋于缓和。 国内方面，中东地缘局势升温造
+节后市场迎来阶段性情绪修复，科技成为绝对主线，存储芯片、AI算力等硬科技板块集体爆发。与此同时，5月进入政策空窗期，中东冲突虽未升级但风险扰动仍在，中美元首会晤成为市场重要关注。 市场高位后，能否继续冲高？在估值分化加剧的背景下，又有哪些投资机会值得关注？来看看长城基金权益基金经理们最新研判~ 杨建华：科技仍有望是主线 从当前宏观环境看，本月中美元首会晤，会晤前氛围相对友好，国
 
 ## 正文
 
-美伊战事对市场的扰动预计仍将延续：债市整体偏震荡，短端或相对有支撑。
+节后市场迎来阶段性情绪修复，科技成为绝对主线，存储芯片、AI算力等硬科技板块集体爆发。
 
-A股将聚焦财报，资源品、科技和先进制造有望占优。
+与此同时，5月进入政策空窗期，中东冲突虽未升级但风险扰动仍在，中美元首会晤成为市场重要关注。
 
-原油、黄金均偏中性，中期看黄金或更为乐观。
+市场高位后，能否继续冲高？
 
-海外方面，美伊地缘冲突略虽有缓和但仍有波折，油价暴涨推升3月美国通胀，CPI符合预期，核心CPI低于预期，美联储Q2继续观望，美债/美元/黄金对战争定价或已较为充分，预计流动性环境趋于缓和。
+在估值分化加剧的背景下，又有哪些投资机会值得关注？
 
-国内方面，中东地缘局势升温造成能源供给扰动，石油链快速涨价，3月PPI环比大幅上涨1.0%，PPI同比从上月的-0.9%改善至0.5%，结束连续41个月的负增长。
+来看看长城基金权益基金经理们最新研判~ 杨建华：科技仍有望是主线 从当前宏观环境看，本月中美元首会晤，会晤前氛围相对友好，国内一季度GDP增长强劲，中国在地缘政治博弈中保持定力，处于相对有利的位置。
 
-油价短期仍为高中枢、高波动，加之去年通胀低基数，CPI和PPI同比预计仍将震荡上行。
+与此同时，上市公司业绩整体回暖，投资者信心在修复。
 
-市场策略方面，债券方面，上周债市收益率整体下行，超长端领涨，资金宽松下短端已较为拥挤，超长端在利空因素逐渐出尽后进入利差压缩行情。
+我们预计短期内行情仍值得期待。
 
-美伊冲突超预期缓和，但长期来看油价中枢有望系统性抬升，债市关注点逐渐由胀到滞，长端或存在一定交易性机会。
+方向上，科技仍有望是市场主线，看好景气度高、业绩持续兑现的科技成长股，也看好供给受限、需求稳定向上的资源股。
 
 ## 相关推荐
 
-- 2026-06-30 07:25 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-30 07:51 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-30 07:33 - [库尼亚赛后伸五指嘲讽日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-30 07:34 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
-- 2026-06-30 07:30 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-30 07:24 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
-- 2026-06-30 07:33 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
-- 2026-06-30 07:24 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
-- 2026-06-30 07:25 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-30 07:47 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
-- 2026-06-30 07:29 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-30 07:51 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-30 07:38 - [网友写差评被店家“挂”门口避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-30 07:38 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-30 07:42 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-30 07:51 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
+- 2026-06-30 07:45 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-30 07:38 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-30 07:58 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-30 07:44 - [大蒜晒外面被路过女子连盆端走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-30 07:45 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-30 07:56 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
+- 2026-06-30 07:52 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
+- 2026-06-30 07:44 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-30 07:32 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-30 07:57 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:37 - [美人鱼](http://www.share.kurohicncr.top/Article/details/119169338.shtml)
-- 2026-06-30 07:34 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.minike.top/Article/details/4670774060.shtml)
-- 2026-06-30 07:37 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/0263286.shtml)
-- 2026-06-30 07:31 - [周生如故](https://www.blog.kurohicncr.top/Article/details/08616884600.shtml)
-- 2026-06-30 07:40 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/01437.shtml)
-- 2026-06-30 07:29 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/3148236.shtml)
-- 2026-06-30 07:27 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/658622.shtml)
-- 2026-06-30 07:50 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/86669379227.shtml)
-- 2026-06-30 07:33 - [金刚川](http://www.share.minike.top/Article/details/058191.shtml)
-- 2026-06-30 07:33 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/81840158327.shtml)
-- 2026-06-30 07:49 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.minike.top/Article/details/826095032.shtml)
-- 2026-06-30 07:47 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.minike.top/Article/details/1580483.shtml)
-- 2026-06-30 07:50 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/944106.shtml)
-- 2026-06-30 07:51 - [人类...完蛋了...](https://www.share.kurohicncr.top/Article/details/8048233.shtml)
-- 2026-06-30 07:36 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/539423615892.shtml)
+- 2026-06-30 07:45 - [我觉得你是在无中生友](https://www.share.kurohicncr.top/Article/details/55669197529.shtml)
+- 2026-06-30 07:43 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/92310014309.shtml)
+- 2026-06-30 07:57 - [郑钦文温网一轮游](https://www.share.kurohicncr.top/Article/details/087257.shtml)
+- 2026-06-30 07:38 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/2844550.shtml)
+- 2026-06-30 07:38 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/0816804883.shtml)
+- 2026-06-30 07:48 - [《共患难》](https://www.share.kurohicncr.top/Article/details/163973637318.shtml)
+- 2026-06-30 07:31 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/1655116788.shtml)
+- 2026-06-30 07:57 - [媒体评泰山建135公里刀片刺绳隔离网](http://www.blog.kurohicncr.top/Article/details/678895.shtml)
+- 2026-06-30 07:49 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/65585.shtml)
+- 2026-06-30 07:49 - [齐思钧回复张月](https://www.blog.minike.top/Article/details/1593464.shtml)
+- 2026-06-30 07:58 - [吴易昺不敌德约科维奇 止步温网首轮](http://www.blog.minike.top/Article/details/911675442845.shtml)
+- 2026-06-30 07:38 - [藤森庆子赢得秘鲁总统选举](http://www.blog.minike.top/Article/details/09125.shtml)
+- 2026-06-30 07:33 - [速度与激情9](http://www.blog.minike.top/Article/details/989570112.shtml)
+- 2026-06-30 07:47 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/47452263.shtml)
+- 2026-06-30 07:57 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/1064952.shtml)

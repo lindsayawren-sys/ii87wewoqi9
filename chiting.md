@@ -1,48 +1,57 @@
-# 中国石油集团董事长戴厚良拜会阿联酋阿布扎比王储
+# 英国首相斯塔默的潜在对手斯特里廷准备辞职 并发起领导权争夺
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-4月13日，中国石油集团董事长戴厚良在京拜会阿联酋阿布扎比王储哈立德，双方就深化能源领域合作交换意见。中国石油集团副总经理张道伟以及总经理助理李强参加会见。（中国石油报）
+英国卫生大臣韦斯·斯特里廷的盟友表示，斯特里廷准备辞去政府职务，并对首相基尔·斯塔默的领导地位发起挑战。 他们表示，斯特里廷周三早上在唐宁街与斯塔默进行了简短会面，预计将在本周辞去内阁职务，并试图触发党内领导权竞争。由于涉及私下讨论，这些人士要求匿名。 如果斯特里廷发起挑战，斯塔默的盟友表示，首相很可能会选择参选应战。 受此消息影响，英镑下跌。英国10年期国债收益率报5.10%
 
 ## 正文
 
-4月13日，中国石油集团董事长戴厚良在京拜会阿联酋阿布扎比王储哈立德，双方就深化能源领域合作交换意见。
+英国卫生大臣韦斯·斯特里廷的盟友表示，斯特里廷准备辞去政府职务，并对首相基尔·斯塔默的领导地位发起挑战。
 
-中国石油集团副总经理张道伟以及总经理助理李强参加会见。
+他们表示，斯特里廷周三早上在唐宁街与斯塔默进行了简短会面，预计将在本周辞去内阁职务，并试图触发党内领导权竞争。
 
-（中国石油报）
+由于涉及私下讨论，这些人士要求匿名。
+
+如果斯特里廷发起挑战，斯塔默的盟友表示，首相很可能会选择参选应战。
+
+受此消息影响，英镑下跌。
+
+英国10年期国债收益率报5.10%，此前一度下滑至5.05%。
+
+斯特里廷的发言人并未否认其正准备辞职并挑战斯塔默的说法。
+
+他们说斯特里廷不会发表任何言论，以免分散人们对查尔斯三世国王在议会宣布政府立法议程的注意力。
 
 ## 相关推荐
 
-- 2026-06-30 07:50 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-30 07:38 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-30 07:38 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-30 07:25 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-30 07:46 - [森保一 保守](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-30 07:36 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-30 07:33 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
-- 2026-06-30 07:49 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-30 07:44 - [勇士续约波尔津吉斯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
-- 2026-06-30 07:26 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-30 07:26 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-30 07:25 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-30 07:39 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-30 07:39 - [高质量发展看新疆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-30 07:42 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-30 07:52 - [张雪的一句“是我们”引发岛内热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-30 07:50 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-30 07:55 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-30 07:52 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-30 07:55 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-30 07:46 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-30 07:51 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-30 07:45 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:47 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/42363147.shtml)
-- 2026-06-30 07:38 - [女子清吧被陌生人投放伟哥](https://www.blog.kurohicncr.top/Article/details/187974419476.shtml)
-- 2026-06-30 07:52 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/860961.shtml)
-- 2026-06-30 07:33 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/230703616138.shtml)
-- 2026-06-30 07:42 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/64482977765.shtml)
-- 2026-06-30 07:33 - [免费试吃发差评被店家挂店门避雷](https://www.blog.minike.top/Article/details/53753.shtml)
-- 2026-06-30 07:27 - [美人鱼](http://www.blog.minike.top/Article/details/0306161.shtml)
-- 2026-06-30 07:40 - [好像看到了人类带孩子崩溃的样子](https://www.share.minike.top/Article/details/7591480793.shtml)
-- 2026-06-30 07:47 - [美股深夜大反弹 特斯拉飙涨8%](http://www.blog.minike.top/Article/details/4251977.shtml)
-- 2026-06-30 07:35 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/895975377031.shtml)
-- 2026-06-30 07:26 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/989385164676.shtml)
-- 2026-06-30 07:53 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/29313.shtml)
-- 2026-06-30 07:41 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/1605744.shtml)
-- 2026-06-30 07:49 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.minike.top/Article/details/053116435.shtml)
-- 2026-06-30 07:40 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/42366523.shtml)
+- 2026-06-30 07:40 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/85653712.shtml)
+- 2026-06-30 07:35 - [田中碧失误](https://www.blog.minike.top/Article/details/55789173119.shtml)
+- 2026-06-30 07:57 - [亚洲球队全部告别世界杯](https://www.share.kurohicncr.top/Article/details/62654.shtml)
+- 2026-06-30 07:38 - [爱很美味](http://www.share.minike.top/Article/details/38527567977.shtml)
+- 2026-06-30 07:32 - [巴西vs日本](http://www.share.minike.top/Article/details/3199483244.shtml)
+- 2026-06-30 07:44 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.blog.kurohicncr.top/Article/details/800851281699.shtml)
+- 2026-06-30 07:31 - [巴西替补奇兵读秒绝杀](https://www.blog.kurohicncr.top/Article/details/9062816.shtml)
+- 2026-06-30 07:33 - [巴西vs日本首发名单](http://www.share.minike.top/Article/details/05650846.shtml)
+- 2026-06-30 07:44 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/24253917.shtml)
+- 2026-06-30 07:47 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.minike.top/Article/details/4648277660.shtml)
+- 2026-06-30 07:57 - [日本遭读秒绝杀 森保一：我水平不够](https://www.share.minike.top/Article/details/198109081.shtml)
+- 2026-06-30 07:56 - [巴西在进攻三区完成210脚传球](https://www.share.kurohicncr.top/Article/details/69106012130.shtml)
+- 2026-06-30 07:46 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/94846.shtml)
+- 2026-06-30 07:30 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/78539.shtml)
+- 2026-06-30 07:40 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/85350.shtml)

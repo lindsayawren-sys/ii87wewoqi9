@@ -1,55 +1,56 @@
-# 存储芯片涨价且需求强劲 韩国半导体出口额在3月份同比大增151%
+# 杭州互联网法院发布2025年度“司法指数” 折射AI双刃效应
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:02 UTC+8
 
 ## 摘要
 
-【TechWeb】4月14日消息，据外媒报道，去年下半年开始的存储芯片价格飙升，对三星电子和SK海力士这两大存储芯片制造商是利好，他们的业绩大幅提升，今年一季度的营收和净利润预计会相当可观。存储芯片价格飙升、需求强劲推升了三星电子和SK海力士的业绩，也拉升了他们所在的韩国半导体产业的业绩，出口额大幅增加。外媒援引韩国科学技术信息通信部的数据报道称，在全球AI数据中心需求强劲的推
+中新网杭州5月13日电(郭其钰)5月13日，杭州互联网法院发布2025年度互联网发展“司法指数”(下称“司法指数”)，对该院2025年积累的7万余件互联网纠纷案件的司法数据以及往年司法数据进行测算分析，为深入洞察互联网发展状况开启了一扇“司法窗口”。 互联网发展“司法指数”是基于客观、真实、已然的案件信息数据，从司法角度分析互联网发展实际状况，并提出相关对策建议。 如在涉人工智
 
 ## 正文
 
-【TechWeb】4月14日消息，据外媒报道，去年下半年开始的存储芯片价格飙升，对三星电子和SK海力士这两大存储芯片制造商是利好，他们的业绩大幅提升，今年一季度的营收和净利润预计会相当可观。
+中新网杭州5月13日电(郭其钰)5月13日，杭州互联网法院发布2025年度互联网发展“司法指数”(下称“司法指数”)，对该院2025年积累的7万余件互联网纠纷案件的司法数据以及往年司法数据进行测算分析，为深入洞察互联网发展状况开启了一扇“司法窗口”。
 
-存储芯片价格飙升、需求强劲推升了三星电子和SK海力士的业绩，也拉升了他们所在的韩国半导体产业的业绩，出口额大幅增加。
+互联网发展“司法指数”是基于客观、真实、已然的案件信息数据，从司法角度分析互联网发展实际状况，并提出相关对策建议。
 
-外媒援引韩国科学技术信息通信部的数据报道称，在全球AI数据中心需求强劲的推动下，3月份他们半导体的出口额达到了328.4亿美元，是去年同期130.6亿美元的两倍多，同比大增151%。
+如在涉人工智能领域，“司法指数”显示，2025年相关案件数量较2024年增加32%，涉及诸多行业、遍及生产经营与日常生活，表明人工智能正深入千行百业，深度重塑社会生产模式与大众生活形态，引领数字化时代的深刻变革。
 
-而除了半导体，智能手机、计算机等韩国重要出口产品的出口额，在3月份同比也有明显增加，其中智能手机的出口额同比增长57%，达到了15.4亿美元，计算机及相关设备的出口额达到了35.9亿美元，较去年同期的13.1亿美元也大幅增加。
+与此同时，“司法指数”中一级指数“网络安全”得分持续低于基准分，且与去年该一级指数得分相比仍有下降。
 
-在半导体、智能手机、计算机等产品的出口额同比大幅增加的推动下，3月份韩国信息与通信技术（ICT）产品的出口额同比也有大幅增加，达到了435.1亿美元，是去年同期205.2亿美元的两倍多。
+“具体分析，生成式人工智能在技术、用户与产业层面实现跨越式普及，其伴生风险从技术隐患全面升级为系统性社会治理难题。
 
-（海蓝）
+”杭州互联网法院副院长华立军举例说，人工智能深度伪造泛滥，换脸换声技术被用于制作虚假广告、实施电信诈骗，伪造公众人物形象等，误导公众、攫取暴利，严重冲击社会信任底线。
+
+“司法指数”中二级指数“全球治理参与度”主要反映涉外司法影响力，此项得分已连续7年增长，2025年较上一年度上升18.12%，体现互联网司法影响力进一步辐射全球。
+
+具体如跨境电子商务类案件，其增长幅度仍低于普通电子商务类案件，且案件数量、涉及的国家和地区数量增长均较为缓慢。
 
 ## 相关推荐
 
-- 2026-06-30 07:45 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-30 07:45 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-30 07:45 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-30 07:37 - [张雪的一句“是我们”引发岛内热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-30 07:48 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-30 07:40 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-30 07:39 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-30 07:33 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-30 07:38 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-30 07:36 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-30 07:46 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
-- 2026-06-30 07:46 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-30 07:35 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-30 07:58 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-30 07:51 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-30 07:49 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
+- 2026-06-30 07:52 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-30 07:44 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-30 07:40 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-30 07:48 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-30 07:36 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-30 07:46 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-30 07:45 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:28 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/7628942060.shtml)
-- 2026-06-30 07:25 - [王欣瑜2-1击败科恰雷托](http://www.share.minike.top/Article/details/7962910559.shtml)
-- 2026-06-30 07:36 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/99478.shtml)
-- 2026-06-30 07:44 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/289086734.shtml)
-- 2026-06-30 07:32 - [日本遭读秒绝杀 森保一：我水平不够](http://www.blog.kurohicncr.top/Article/details/85971752.shtml)
-- 2026-06-30 07:38 - [世界杯](http://www.share.kurohicncr.top/Article/details/27509649605.shtml)
-- 2026-06-30 07:42 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/928362141826.shtml)
-- 2026-06-30 07:28 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.kurohicncr.top/Article/details/56139161994.shtml)
-- 2026-06-30 07:42 - [王灿兮被烫伤两年后维权成功](http://www.blog.minike.top/Article/details/079463937.shtml)
-- 2026-06-30 07:53 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/3673325066.shtml)
-- 2026-06-30 07:42 - [王楚钦谈表演球](http://www.blog.kurohicncr.top/Article/details/7747346238.shtml)
-- 2026-06-30 07:51 - [上市央企地产商 两年换了三任董事长](https://www.blog.kurohicncr.top/Article/details/6841110878.shtml)
-- 2026-06-30 07:41 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/18939723.shtml)
-- 2026-06-30 07:50 - [全球芯片巨头史诗级扩产](http://www.blog.kurohicncr.top/Article/details/772063.shtml)
-- 2026-06-30 07:52 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/370432505.shtml)
+- 2026-06-30 07:35 - [德国进球被吹](http://www.blog.minike.top/Article/details/8715485.shtml)
+- 2026-06-30 07:45 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/2250962.shtml)
+- 2026-06-30 07:47 - [沉睡花园](https://www.share.minike.top/Article/details/935664377.shtml)
+- 2026-06-30 07:39 - [花少8要去世界杯举办国](https://www.share.kurohicncr.top/Article/details/527425.shtml)
+- 2026-06-30 07:36 - [森保一致歉：世界第一目标没能实现](http://www.blog.kurohicncr.top/Article/details/635096.shtml)
+- 2026-06-30 07:37 - [周冬雨多次说演不了话剧文城](http://www.share.minike.top/Article/details/972601363.shtml)
+- 2026-06-30 07:57 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/6066177.shtml)
+- 2026-06-30 07:37 - [巴西2比1日本](http://www.share.kurohicncr.top/Article/details/06277202.shtml)
+- 2026-06-30 07:50 - [起风了](http://www.share.kurohicncr.top/Article/details/56869433.shtml)
+- 2026-06-30 07:54 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.kurohicncr.top/Article/details/29906.shtml)
+- 2026-06-30 07:35 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/322941775.shtml)
+- 2026-06-30 07:43 - [毒液2](https://www.share.minike.top/Article/details/02242.shtml)
+- 2026-06-30 07:35 - [张帅时隔四年再取温网正赛胜利](http://www.share.kurohicncr.top/Article/details/046888010.shtml)
+- 2026-06-30 07:49 - [【大鸣王潮1566】真拿你没办法](http://www.share.minike.top/Article/details/997188078785.shtml)
+- 2026-06-30 07:54 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/93042645139.shtml)

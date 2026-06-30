@@ -1,57 +1,56 @@
-# 吉林国企改革成效显著 布局新赛道做强新动能
+# 赓续飞虎精神：一所昆明小学的跨洋情缘
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-中新网长春4月14日电 (高龙安 李彦国)记者14日从吉林省国资委获悉，该省国企改革取得扎实成效。截至2025年底，全省国有企业资产总额、营业收入、增加值较2022年增幅均超30%；省国资委监管企业营业收入突破千亿元，较“十四五”初期实现翻一番，监管企业利润翻三番，主要指标创近五年最佳水平。其中，监管企业资产总额达6592.1亿元，同比增长6.2%，规模位居东北三省首位。 吉林
+发布时间：2026年05月14日 15:05 来源：中国新闻网 石碾不语，飞虎留声。在云南省昆明市呈贡区第一小学(昆明飞虎小学)，一座座石碾造型的花坛静立校园。其原型为八十余年前中美军民共建抗战机场时使用的巨型石碾。这些重达几吨的石碾一寸寸压实了通往胜利的战地跑道，也碾实了当地民众与飞虎队跨越太平洋的情谊。 作为全国唯一“飞虎小学”，学校将历史基因融入日常：常态化开展红色研学，
 
 ## 正文
 
-中新网长春4月14日电 (高龙安 李彦国)记者14日从吉林省国资委获悉，该省国企改革取得扎实成效。
+发布时间：2026年05月14日 15:05 来源：中国新闻网 石碾不语，飞虎留声。
 
-截至2025年底，全省国有企业资产总额、营业收入、增加值较2022年增幅均超30%；省国资委监管企业营业收入突破千亿元，较“十四五”初期实现翻一番，监管企业利润翻三番，主要指标创近五年最佳水平。
+在云南省昆明市呈贡区第一小学(昆明飞虎小学)，一座座石碾造型的花坛静立校园。
 
-其中，监管企业资产总额达6592.1亿元，同比增长6.2%，规模位居东北三省首位。
+其原型为八十余年前中美军民共建抗战机场时使用的巨型石碾。
 
-吉林省国资委党委书记吕鑫介绍，近年来，该省深入推进国企改革，推动国有资本向新能源、新材料等战略性新兴产业集中，向现代农业、旅游等优势特色产业集中，向基础性、保障类、民生领域拓展，不断提升国资国企规模效应、集聚效应、融合效应。
+这些重达几吨的石碾一寸寸压实了通往胜利的战地跑道，也碾实了当地民众与飞虎队跨越太平洋的情谊。
 
-“十四五”期间，吉林省实现省属经营性国有资产集中统一监管，近千户企业整合重组为12个集团，形成治理更高效、支撑更有力的“吉字号”国企方阵。
+作为全国唯一“飞虎小学”，学校将历史基因融入日常：常态化开展红色研学，打造“飞虎校徽”、合唱团与青少年宣讲团，让飞虎精神传承落地。
 
-改革带动下，吉林国企投资力度与产业能级同步提升。
+一代代春城学子在触摸与讲述历史中赓续抗战精神、厚植爱国情怀。
 
-2025年，吉林省国资委监管企业完成投资248.3亿元，同比增长39%，创近五年新高。
+这所百年老校以文化为纽带，让珍贵的抗战记忆与跨越太平洋的友谊在新时代少年心中薪火相传。
 
-其中，战略性新兴产业投资达41亿元，为2024年的5.1倍，重点布局具身智能、半导体、康养等新赛道——组建具身智能机器人公司及创新中心，首款仿生机器人样机顺利下线；吉旅健康康养中心投运，500余张床位投入使用；吉林化纤碳纤维产销量位居全球第一，大型风电叶片主梁市场占有率达90%，实现量质同步提升。
+袁鸿凯 时文枝 云南昆明报道 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-30 07:34 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
-- 2026-06-30 07:28 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
-- 2026-06-30 07:46 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
-- 2026-06-30 07:50 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
-- 2026-06-30 07:25 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
-- 2026-06-30 07:50 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-30 07:51 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-30 07:48 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
-- 2026-06-30 07:46 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
-- 2026-06-30 07:43 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
-- 2026-06-30 07:41 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-30 07:50 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-30 07:55 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-30 07:51 - [高质量发展看新疆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-30 07:42 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-30 07:32 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-30 07:37 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-30 07:53 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-30 07:44 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-30 07:44 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-30 07:42 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:37 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/66030655.shtml)
-- 2026-06-30 07:27 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/860583224.shtml)
-- 2026-06-30 07:49 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.minike.top/Article/details/37706488218.shtml)
-- 2026-06-30 07:36 - [中国新一轮出口管制直指日本命脉](https://www.blog.kurohicncr.top/Article/details/5157287.shtml)
-- 2026-06-30 07:28 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/360216566.shtml)
-- 2026-06-30 07:26 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/101514.shtml)
-- 2026-06-30 07:50 - [流金岁月](https://www.share.minike.top/Article/details/055823651.shtml)
-- 2026-06-30 07:40 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/042750307509.shtml)
-- 2026-06-30 07:48 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/3823013.shtml)
-- 2026-06-30 07:47 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/1791223815.shtml)
-- 2026-06-30 07:40 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/30356164565.shtml)
-- 2026-06-30 07:43 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/620813.shtml)
-- 2026-06-30 07:36 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/5898813733.shtml)
-- 2026-06-30 07:33 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.minike.top/Article/details/3460513409.shtml)
-- 2026-06-30 07:31 - [徐亮怒斥世界杯踢假球](https://www.share.minike.top/Article/details/482487071.shtml)
+- 2026-06-30 07:47 - [问心2神一集鬼三集](http://www.share.minike.top/Article/details/664698.shtml)
+- 2026-06-30 07:33 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/759485391.shtml)
+- 2026-06-30 07:46 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/748315020.shtml)
+- 2026-06-30 07:52 - [森保一致歉：世界第一目标没能实现](https://www.blog.kurohicncr.top/Article/details/47699001502.shtml)
+- 2026-06-30 07:42 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/751665221701.shtml)
+- 2026-06-30 07:42 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/052504238.shtml)
+- 2026-06-30 07:35 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.minike.top/Article/details/683754196.shtml)
+- 2026-06-30 07:35 - [卡塞米罗头球破门](https://www.blog.minike.top/Article/details/33158639.shtml)
+- 2026-06-30 07:41 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/528125794.shtml)
+- 2026-06-30 07:59 - [张帅时隔四年再取温网正赛胜利](http://www.share.kurohicncr.top/Article/details/27817.shtml)
+- 2026-06-30 07:52 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/42813629.shtml)
+- 2026-06-30 07:30 - [人类...完蛋了...](https://www.share.minike.top/Article/details/653661.shtml)
+- 2026-06-30 07:49 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/7215851326.shtml)
+- 2026-06-30 07:51 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.kurohicncr.top/Article/details/3993124.shtml)
+- 2026-06-30 07:55 - [F1奥地利站赛后复盘](https://www.blog.minike.top/Article/details/2824497667.shtml)

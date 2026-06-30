@@ -1,59 +1,57 @@
-# 刚刚，利好来了！直线爆拉，中东大消息！
+# 长江有色: 中东僵持海峡关闭致湾区电解铝供应断裂 14日铝价或上涨
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国基金报 【导读】中东再次传来好消息，全球市场欢声笑语 中国基金报记者 泰勒 兄弟姐妹们啊，今天的行情，让我恍惚间觉得，大牛市 is back！ 虽然盘中略有跳水，但午后三大指数直线暴力拉升，沪指重回4000点，相信你们今天都没亏钱了吧！ 一起回顾下发生了什么事情。 4月14日，市场全天高开高走，沪
+长江铝价alu.ccmn.cn短评：特朗普携商界人员访华提振情绪，隔夜伦铝大涨2.14%；中东僵持海峡关闭致湾区电解铝供应断裂，国内出口改善支撑现货加强，预今现铝上涨。 【铝期货市场】：特朗普携商界人员访华提振情绪，隔夜伦铝强势拉涨，涨幅尚可，最新收盘报价3651美元/吨，收涨76美元，涨幅2.14%，成交量34379手增加18007手，持仓量672759手增加2473手。晚间
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+长江铝价alu.ccmn.cn短评：特朗普携商界人员访华提振情绪，隔夜伦铝大涨2.14%；中东僵持海峡关闭致湾区电解铝供应断裂，国内出口改善支撑现货加强，预今现铝上涨。
 
-来源：中国基金报 【导读】中东再次传来好消息，全球市场欢声笑语 中国基金报记者 泰勒 兄弟姐妹们啊，今天的行情，让我恍惚间觉得，大牛市 is back！
+【铝期货市场】：特朗普携商界人员访华提振情绪，隔夜伦铝强势拉涨，涨幅尚可，最新收盘报价3651美元/吨，收涨76美元，涨幅2.14%，成交量34379手增加18007手，持仓量672759手增加2473手。
 
-虽然盘中略有跳水，但午后三大指数直线暴力拉升，沪指重回4000点，相信你们今天都没亏钱了吧！
+晚间沪铝受外盘偏强走势带动走强，盘面疤痕次强势运行姿态；主力月2606合约最新收盘价报250550元/吨，涨310元，涨幅1.25%。
 
-一起回顾下发生了什么事情。
+伦敦金属交易所（LME）5月13日伦铝最新库存量报348750公吨，较上个交易日减少2250公吨，跌幅0.64%。
 
-4月14日，市场全天高开高走，沪指重返4000点上方，创业板指创阶段新高。
+长江铝业网讯：5月13日现货铝价，长江现货A00铝锭价报24570元/吨，涨190元；广东现货A00铝锭价报24460元/吨，涨140元。
 
-截至收盘，沪指涨0.95%，深成指涨1.61%，创业板指涨2.36%。
+宏观层面，受地缘冲突推动能源价格上涨及运输成本上升影响，美国4月生产者价格指数（PPI）同比飙升6%，环比升幅同样创下2022年以来最大，核心PPI亦录得三年多来的最大涨幅。
 
-两市共3723只个股上涨，71只个股涨停，1594只个股下跌。
+这一超预期数据进一步削弱了市场对美联储政策宽松的预期。
 
-算力产业链集体走强，鸿博股份（维权）、利通电子等多股涨停。
+不过，市场暂时淡化了强PPI带来的鹰派压力，焦点转向中美经贸磋商及特朗普访华带来的乐观情绪。
 
 ## 相关推荐
 
-- 2026-06-30 07:47 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-30 07:32 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-30 07:38 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-30 07:24 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
-- 2026-06-30 07:38 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
-- 2026-06-30 07:44 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
-- 2026-06-30 07:40 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-30 07:45 - [金鹰奖视后提名预测](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
-- 2026-06-30 07:37 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-30 07:32 - [库尼亚赛后伸五指嘲讽日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-30 07:27 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-30 07:51 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-30 07:49 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-30 07:40 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-30 07:47 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-30 07:30 - [全球芯片巨头史诗级扩产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-30 08:00 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-30 07:42 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-30 07:58 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-30 07:59 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-30 07:56 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-30 07:35 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-30 07:31 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-30 07:50 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:51 - [感动全网的699分女生想报考清华](https://www.share.kurohicncr.top/Article/details/4277966.shtml)
-- 2026-06-30 07:29 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/92360723545.shtml)
-- 2026-06-30 07:43 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/05233.shtml)
-- 2026-06-30 07:39 - [德国淘汰](https://www.share.kurohicncr.top/Article/details/2679908785.shtml)
-- 2026-06-30 07:37 - [豆包收费了，你还会用吗？](https://www.share.minike.top/Article/details/69422.shtml)
-- 2026-06-30 07:31 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/64857.shtml)
-- 2026-06-30 07:24 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/97388831.shtml)
-- 2026-06-30 07:35 - [刘宇宁高情商化解谁站C位](http://www.share.kurohicncr.top/Article/details/0758561711.shtml)
-- 2026-06-30 07:47 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.minike.top/Article/details/94042916.shtml)
-- 2026-06-30 07:48 - [库尼亚赛后伸五指嘲讽日本](https://www.share.kurohicncr.top/Article/details/703331769923.shtml)
-- 2026-06-30 07:41 - [德国巴拉圭 折磨](http://www.share.kurohicncr.top/Article/details/37370344188.shtml)
-- 2026-06-30 07:49 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/324626515111.shtml)
-- 2026-06-30 07:34 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/97389.shtml)
-- 2026-06-30 07:37 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/0331419264.shtml)
-- 2026-06-30 07:26 - [德国 传控](http://www.blog.kurohicncr.top/Article/details/47740.shtml)
+- 2026-06-30 07:46 - [巴西vs日本首发名单](http://www.share.kurohicncr.top/Article/details/302955191838.shtml)
+- 2026-06-30 07:58 - [点菜也要教吗](http://www.share.kurohicncr.top/Article/details/987423310.shtml)
+- 2026-06-30 07:47 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/9136347.shtml)
+- 2026-06-30 07:30 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/27571334535.shtml)
+- 2026-06-30 07:41 - [詹姆斯 勇士](https://www.share.kurohicncr.top/Article/details/467504127.shtml)
+- 2026-06-30 07:31 - [巴西绝杀日本](http://www.blog.kurohicncr.top/Article/details/30841.shtml)
+- 2026-06-30 07:42 - [巴西扳平比分](http://www.share.minike.top/Article/details/52968.shtml)
+- 2026-06-30 07:55 - [董卿父亲报纸上发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/24098.shtml)
+- 2026-06-30 07:46 - [如果有二次元高中是什么样子的？](https://www.share.kurohicncr.top/Article/details/882573269.shtml)
+- 2026-06-30 07:50 - [大蒜晒外面被路过女子连盆端走](http://www.blog.minike.top/Article/details/8469340.shtml)
+- 2026-06-30 07:55 - [老外对中国cosplay竟这样评价…](https://www.blog.kurohicncr.top/Article/details/74232.shtml)
+- 2026-06-30 07:30 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/0268812.shtml)
+- 2026-06-30 07:43 - [杨紫被质疑未使用原名纯属误解](http://www.blog.kurohicncr.top/Article/details/60842.shtml)
+- 2026-06-30 07:38 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](http://www.share.kurohicncr.top/Article/details/016204.shtml)
+- 2026-06-30 07:46 - [刘宇宁是去进货了吗](http://www.share.minike.top/Article/details/588837729.shtml)

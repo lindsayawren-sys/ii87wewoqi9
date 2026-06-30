@@ -1,57 +1,57 @@
-# 王毅同俄罗斯外长拉夫罗夫会谈
+# 美国国债跌至当日低点 4月份PPI数据高于预期
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-新华社北京4月14日电(记者曹嘉玥)4月14日，中共中央政治局委员、外交部长王毅在北京同来华访问的俄罗斯外长拉夫罗夫会谈。 王毅表示，当前国际局势剧烈动荡，单边霸权危害加重，全球治理体系面临深刻调整，人类和平发展事业遭受严峻挑战。面对复杂多变的外部环境，在习近平主席和普京总统亲自关心和战略引领下，中俄关系“不畏浮云遮望眼”，各领域合作“千磨万击还坚劲”。双方在国际舞台相互协调，
+受4月PPI数据各种指标普遍高于预期影响，美国国债期货全线大幅下跌。市场对到明年年中加息的预期增强，几乎完全消化一次25个基点的加息。 美国国债抹去当日涨幅，收益率曲线转为全线上升1至2个基点。 10年期国债收益率升至接近4.49%的盘中高点。 美联储会期对应的OIS合约隐含到2027年6月政策会议加息约24基点，周二收盘时为21基点。责任编辑：江学思
 
 ## 正文
 
-新华社北京4月14日电(记者曹嘉玥)4月14日，中共中央政治局委员、外交部长王毅在北京同来华访问的俄罗斯外长拉夫罗夫会谈。
+受4月PPI数据各种指标普遍高于预期影响，美国国债期货全线大幅下跌。
 
-王毅表示，当前国际局势剧烈动荡，单边霸权危害加重，全球治理体系面临深刻调整，人类和平发展事业遭受严峻挑战。
+市场对到明年年中加息的预期增强，几乎完全消化一次25个基点的加息。
 
-面对复杂多变的外部环境，在习近平主席和普京总统亲自关心和战略引领下，中俄关系“不畏浮云遮望眼”，各领域合作“千磨万击还坚劲”。
+美国国债抹去当日涨幅，收益率曲线转为全线上升1至2个基点。
 
-双方在国际舞台相互协调，相互呼应，向全世界表明逆流之中仍有正道、变局之下更有担当。
+10年期国债收益率升至接近4.49%的盘中高点。
 
-王毅说，今年是中俄战略协作伙伴关系建立30周年和《中俄睦邻友好合作条约》签署25周年，也是中国“十五五”开局之年。
+美联储会期对应的OIS合约隐含到2027年6月政策会议加息约24基点，周二收盘时为21基点。
 
-中俄双方要把握历史契机，顺应时代大势，全面落实两国元首达成的重要共识，推动中俄战略协作伙伴关系和各领域互利合作向更高水平发展。
-
-双方应加强在联合国等多边框架下合作，以上海合作组织成立25周年为契机，通过中俄合作落实天津峰会共识，支持吉尔吉斯斯坦办好今年峰会；共同维护好金砖国家团结势头，捍卫全球南方正当权益；继续就重大国际地区问题保持战略协作，携手践行多边主义和国际道义，共同推进世界多极化进程。
-
-拉夫罗夫表示，俄中是彼此尊重、高度互信的全面战略协作伙伴。
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-30 07:42 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
-- 2026-06-30 07:26 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-30 07:40 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
-- 2026-06-30 07:31 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-30 07:30 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-30 07:24 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-30 07:33 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-30 07:26 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-30 07:49 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
-- 2026-06-30 07:53 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-30 07:27 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-30 07:57 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
+- 2026-06-30 07:54 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-30 07:42 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-30 07:40 - [王楚钦说配合稍微有些陌生感](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-30 07:53 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-30 07:58 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-30 07:48 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-30 07:30 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-30 07:55 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-30 07:40 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-30 07:31 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-30 07:57 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-30 07:41 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-30 07:34 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
+- 2026-06-30 07:53 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:53 - [青春环游记第三季](https://www.blog.minike.top/Article/details/6301443.shtml)
-- 2026-06-30 07:41 - [刘念回应](https://www.blog.minike.top/Article/details/8805721.shtml)
-- 2026-06-30 07:52 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/24282071.shtml)
-- 2026-06-30 07:43 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/84004310.shtml)
-- 2026-06-30 07:33 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.blog.minike.top/Article/details/8783786.shtml)
-- 2026-06-30 07:39 - [男子醉酒溺水获救后同行人拒协助抬人](https://www.share.minike.top/Article/details/51431484437.shtml)
-- 2026-06-30 07:37 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/603689.shtml)
-- 2026-06-30 07:34 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/34286075.shtml)
-- 2026-06-30 07:42 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/501730348.shtml)
-- 2026-06-30 07:26 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/73502581527.shtml)
-- 2026-06-30 07:25 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/454289990.shtml)
-- 2026-06-30 07:36 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/4285519.shtml)
-- 2026-06-30 07:42 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/29650858729.shtml)
-- 2026-06-30 07:53 - [国务院：探索延长义务教育年限](http://www.blog.kurohicncr.top/Article/details/167102.shtml)
-- 2026-06-30 07:46 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/45867584153.shtml)
+- 2026-06-30 07:50 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/3157105172.shtml)
+- 2026-06-30 07:54 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.minike.top/Article/details/077785434.shtml)
+- 2026-06-30 07:53 - [巴西绝杀](https://www.blog.minike.top/Article/details/766454592757.shtml)
+- 2026-06-30 07:54 - [孙兴慜道歉](https://www.blog.kurohicncr.top/Article/details/401181.shtml)
+- 2026-06-30 07:55 - [巴西vs日本首发名单](http://www.blog.minike.top/Article/details/53061.shtml)
+- 2026-06-30 07:38 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/42746967.shtml)
+- 2026-06-30 07:51 - [德国4比5巴拉圭](http://www.share.kurohicncr.top/Article/details/936037669391.shtml)
+- 2026-06-30 07:41 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.kurohicncr.top/Article/details/175406863127.shtml)
+- 2026-06-30 07:31 - [恋与深空制作组回应近期争议](https://www.blog.kurohicncr.top/Article/details/42455247.shtml)
+- 2026-06-30 07:39 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.kurohicncr.top/Article/details/8689685.shtml)
+- 2026-06-30 07:54 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/72077.shtml)
+- 2026-06-30 07:42 - [巴西在进攻三区完成210脚传球](https://www.blog.minike.top/Article/details/633809303120.shtml)
+- 2026-06-30 07:45 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.minike.top/Article/details/4300619.shtml)
+- 2026-06-30 07:32 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/40610427.shtml)
+- 2026-06-30 07:32 - [数据前瞻巴西VS日本](http://www.share.minike.top/Article/details/03586.shtml)

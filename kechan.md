@@ -1,51 +1,53 @@
-# 上万美军人员正在执行封锁进出伊朗港口船只的任务
+# 英国海军：富查伊拉附近海域一艘船只被未经授权人员开往伊朗水域
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社华盛顿4月14日电美军中央司令部14日在社交媒体上说，超过1万名美国海军、海军陆战队和空军人员，十余艘军舰和数十架飞机正在执行封锁进出伊朗港口船只的任务。（完）责任编辑：宋雅芳
+英国海上贸易行动中心表示，一名公司安全官员报告称，一艘停泊在阿联酋富查伊拉东北38海里的船只被未经授权的人员开走。 该船目前驶往伊朗领海。 行动中心表示正在调查此事。责任编辑：何云
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+英国海上贸易行动中心表示，一名公司安全官员报告称，一艘停泊在阿联酋富查伊拉东北38海里的船只被未经授权的人员开走。
 
-新华社华盛顿4月14日电美军中央司令部14日在社交媒体上说，超过1万名美国海军、海军陆战队和空军人员，十余艘军舰和数十架飞机正在执行封锁进出伊朗港口船只的任务。
+该船目前驶往伊朗领海。
 
-（完）责任编辑：宋雅芳
+行动中心表示正在调查此事。
+
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-30 07:36 - [郑钦文温网三连败西尼亚科娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-30 07:48 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-30 07:43 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-30 07:47 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-30 07:27 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-30 07:38 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
-- 2026-06-30 07:33 - [庆祝中国共产党成立105周年音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-30 07:52 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-30 07:31 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
-- 2026-06-30 07:48 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-30 07:37 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-30 07:39 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-30 07:39 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
-- 2026-06-30 07:24 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-30 07:40 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-30 07:38 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-30 07:51 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-30 07:39 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
+- 2026-06-30 07:37 - [德国淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-30 07:51 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-30 07:51 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-30 07:48 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-30 07:52 - [库尼亚赛后伸五指嘲讽日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-30 07:39 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-30 07:32 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
+- 2026-06-30 07:45 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-30 07:39 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
+- 2026-06-30 07:34 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-30 07:42 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
+- 2026-06-30 07:35 - [德国4比5巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:33 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/384470271156.shtml)
-- 2026-06-30 07:29 - [【大鸣王潮1566】真拿你没办法](https://www.share.minike.top/Article/details/8041204.shtml)
-- 2026-06-30 07:39 - [男子身高一米八二仍做断骨增高](http://www.share.kurohicncr.top/Article/details/555759604.shtml)
-- 2026-06-30 07:32 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/7505803852.shtml)
-- 2026-06-30 07:40 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/45935748088.shtml)
-- 2026-06-30 07:50 - [库尼亚赛后伸五指嘲讽日本](https://www.share.kurohicncr.top/Article/details/0798226.shtml)
-- 2026-06-30 07:50 - [周生如故](http://www.share.kurohicncr.top/Article/details/422556010.shtml)
-- 2026-06-30 07:51 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/259518457328.shtml)
-- 2026-06-30 07:43 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/930998459511.shtml)
-- 2026-06-30 07:48 - [巴西vs日本首发名单](https://www.share.minike.top/Article/details/90360.shtml)
-- 2026-06-30 07:28 - [媒体评泰山建135公里刀片刺绳隔离网](https://www.share.minike.top/Article/details/91377368546.shtml)
-- 2026-06-30 07:42 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/0441099.shtml)
-- 2026-06-30 07:45 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/33855728412.shtml)
-- 2026-06-30 07:45 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/630407.shtml)
-- 2026-06-30 07:39 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/0472148.shtml)
+- 2026-06-30 07:33 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/752143.shtml)
+- 2026-06-30 07:32 - [刘必安等16人非法集资案二审宣判](http://www.share.minike.top/Article/details/457479210866.shtml)
+- 2026-06-30 07:44 - [巴西绝杀](http://www.share.minike.top/Article/details/371492253577.shtml)
+- 2026-06-30 07:44 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/13541728.shtml)
+- 2026-06-30 07:59 - [王灿兮被烫伤两年后维权成功](https://www.blog.kurohicncr.top/Article/details/170564794.shtml)
+- 2026-06-30 07:34 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/933094233876.shtml)
+- 2026-06-30 07:45 - [勇敢的心第二部](http://www.share.minike.top/Article/details/348552070.shtml)
+- 2026-06-30 07:39 - [警犬“多多”助民警寻回失联老人](https://www.blog.kurohicncr.top/Article/details/00386.shtml)
+- 2026-06-30 07:52 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.share.minike.top/Article/details/1454968881.shtml)
+- 2026-06-30 07:53 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.kurohicncr.top/Article/details/61436110.shtml)
+- 2026-06-30 07:30 - [孙兴慜发长文致歉](https://www.blog.kurohicncr.top/Article/details/512672833445.shtml)
+- 2026-06-30 07:45 - [德国巴拉圭加时](http://www.blog.minike.top/Article/details/918587659.shtml)
+- 2026-06-30 07:41 - [安切洛蒂 换人](http://www.share.kurohicncr.top/Article/details/473964001.shtml)
+- 2026-06-30 07:44 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/3382147455.shtml)
+- 2026-06-30 07:37 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/9177551122.shtml)

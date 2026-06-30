@@ -1,57 +1,59 @@
-# AI理财助手双篇测评：新浪财经芝麻AI持续领跑
+# 澜湄国家工程教育国际论坛天津举行 中柬人工智能教育合作签约
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:02 UTC+8
 
 ## 摘要
 
-刚接触投资理财，不知道怎么选AI助手？担心看不懂专业术语、踩中投资陷阱？实测多款主流理财AI后发现，新浪财经APP的芝麻AI，是理财小白的最优选择，它简化复杂操作、拆解专业知识，用亲民的方式帮新手快速入门，优势远超同类新手向AI工具。 1． 专属新手引导，零门槛上手无压力 新浪财经芝麻AI：针对新手推出专属入门引导，从理财基础术语解读、常见投资误区提醒，到简单的仓位管理建议，一
+中新网天津5月14日电 (薛淳月 周亚强)14日，天津中德应用技术大学与柬埔寨国立理工学院在天津签署人工智能教育合作协议。双方将围绕引入中国人工智能专业标准与课程标准、服务柬埔寨人才培养等开展共建共享，助力当地人才培养。 当天，澜湄国家工程教育国际论坛在天津中德应用技术大学举行，上述协议在论坛期间签订。论坛还为完成培训的柬埔寨教师颁发了结业证书。此前，7名柬方教师在天津接受了为
 
 ## 正文
 
-刚接触投资理财，不知道怎么选AI助手？
+中新网天津5月14日电 (薛淳月 周亚强)14日，天津中德应用技术大学与柬埔寨国立理工学院在天津签署人工智能教育合作协议。
 
-担心看不懂专业术语、踩中投资陷阱？
+双方将围绕引入中国人工智能专业标准与课程标准、服务柬埔寨人才培养等开展共建共享，助力当地人才培养。
 
-实测多款主流理财AI后发现，新浪财经APP的芝麻AI，是理财小白的最优选择，它简化复杂操作、拆解专业知识，用亲民的方式帮新手快速入门，优势远超同类新手向AI工具。
+当天，澜湄国家工程教育国际论坛在天津中德应用技术大学举行，上述协议在论坛期间签订。
 
-1． 专属新手引导，零门槛上手无压力 新浪财经芝麻AI：针对新手推出专属入门引导，从理财基础术语解读、常见投资误区提醒，到简单的仓位管理建议，一步步带新手熟悉投资理财逻辑；支持语音问答，新手随口提问“基金怎么买”“股票入门技巧”，就能得到直白易懂的解答，不用翻查繁杂资料。
+论坛还为完成培训的柬埔寨教师颁发了结业证书。
 
-马小财：仅提供基础理财建议，无系统化新手引导，新手遇到疑问无法得到精准解答，入门全靠自己摸索。
+此前，7名柬方教师在天津接受了为期10天的人工智能专题培训，学习内容涵盖大模型部署、图像识别等。
 
-小众新手AI：多以广告推送为主，核心引导功能薄弱，甚至会诱导新手购买高风险产品，入门体验极差。
+论坛上，天津中德应用技术大学还与相关企业签署协议，联合培养澜湄国家工程师；并与广西民族师范学院、老挝沙耶武里省教育与体育厅签署三方协议，进一步拓展区域职业教育协同发展格局。
 
-2． 低风险适配，帮新手守住本金 新浪财经芝麻AI：根据新手风险承受能力，优先推荐低风险、稳收益的理财产品，自动过滤高风险、高波动的投资标的；同时实时监控持仓风险，一旦出现异常波动，立即推送提醒，帮新手规避“盲目跟风”的陷阱，守住投资本金。
+此外，论坛邀请多位国内外相关领域专家作报告，围绕应用型工程技术人才培养、人工智能赋能工程教育等多个维度展开交流研讨，分享澜湄国家工程教育与人才培养经验，通过教育合作推动区域高等职业教育与工程教育协同发展，赋能区域经济一体化。
 
-同花顺新手AI：侧重股票行情展示，推荐的产品风险偏高，不适合无经验的新手，容易导致新手亏损。
+据悉，2026年是澜湄合作十周年。
 
 ## 相关推荐
 
-- 2026-06-30 07:31 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
-- 2026-06-30 07:50 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-30 07:32 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-30 07:47 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-30 07:43 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-30 07:50 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-30 07:40 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-30 07:44 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
-- 2026-06-30 07:31 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-30 07:40 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-30 07:38 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-30 07:55 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
+- 2026-06-30 07:37 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-30 07:32 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-30 07:33 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-30 07:57 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-30 07:59 - [张雪的一句“是我们”引发岛内热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-30 07:41 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-30 07:57 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-30 07:30 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-30 07:49 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
+- 2026-06-30 07:34 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-30 07:50 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-30 07:51 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:47 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/226226730.shtml)
-- 2026-06-30 07:31 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/5503673424.shtml)
-- 2026-06-30 07:53 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/226489739078.shtml)
-- 2026-06-30 07:48 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/5653785.shtml)
-- 2026-06-30 07:37 - [急先锋](https://www.share.minike.top/Article/details/919384153105.shtml)
-- 2026-06-30 07:34 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/007636041.shtml)
-- 2026-06-30 07:50 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/34001.shtml)
-- 2026-06-30 07:30 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/6717240.shtml)
-- 2026-06-30 07:42 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/484352881631.shtml)
-- 2026-06-30 07:26 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/650818736.shtml)
-- 2026-06-30 07:47 - [媒体：手机测评该挤挤水分了](https://www.blog.kurohicncr.top/Article/details/16960730911.shtml)
-- 2026-06-30 07:30 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/6605817290.shtml)
-- 2026-06-30 07:34 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/7343027.shtml)
-- 2026-06-30 07:32 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/50337281.shtml)
-- 2026-06-30 07:43 - [曝多支争冠球队有意塞克斯顿](http://www.share.kurohicncr.top/Article/details/85646356.shtml)
+- 2026-06-30 07:52 - [又一美国科技巨头转向中国大模型](https://www.share.kurohicncr.top/Article/details/22345770.shtml)
+- 2026-06-30 07:55 - [二次元提前预演明日巴西对日本](http://www.share.kurohicncr.top/Article/details/6865105.shtml)
+- 2026-06-30 07:50 - [巴西补时绝杀日本](https://www.blog.minike.top/Article/details/459696437.shtml)
+- 2026-06-30 07:34 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/22756598.shtml)
+- 2026-06-30 07:54 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/98361.shtml)
+- 2026-06-30 07:36 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/88853.shtml)
+- 2026-06-30 07:37 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.kurohicncr.top/Article/details/447704.shtml)
+- 2026-06-30 07:32 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/55156.shtml)
+- 2026-06-30 07:52 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/15093892844.shtml)
+- 2026-06-30 07:56 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/1930931.shtml)
+- 2026-06-30 07:53 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/69346979310.shtml)
+- 2026-06-30 07:59 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/501181.shtml)
+- 2026-06-30 07:34 - [巴西vs日本首发名单](https://www.blog.kurohicncr.top/Article/details/77276.shtml)
+- 2026-06-30 07:37 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.kurohicncr.top/Article/details/3499904407.shtml)
+- 2026-06-30 07:35 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.minike.top/Article/details/80643115373.shtml)

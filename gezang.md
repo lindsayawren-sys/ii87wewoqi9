@@ -1,47 +1,44 @@
-# 摩根大通就停火风险提示油价走势
+# 新华图讯丨习近平将举行仪式欢迎美国总统特朗普访华
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-摩根大通策略师许长泰表示，围绕美伊谈判的短期波动性可能使原油价格保持高位——若谈判破裂则接近100美元，若达成持久停火则可能下行至80美元左右。责任编辑：张俊 SF065
+5月14日上午，国家主席习近平将在北京人民大会堂东门外广场举行仪式，欢迎美国总统特朗普对中国进行国事访问。 文字：冯歆然 摄影：谢环驰 李响 编辑：赖向东 吴蓉 毕晓洋 虞东升 许睿
 
 ## 正文
 
-摩根大通策略师许长泰表示，围绕美伊谈判的短期波动性可能使原油价格保持高位——若谈判破裂则接近100美元，若达成持久停火则可能下行至80美元左右。
+5月14日上午，国家主席习近平将在北京人民大会堂东门外广场举行仪式，欢迎美国总统特朗普对中国进行国事访问。
 
-责任编辑：张俊 SF065
+文字：冯歆然 摄影：谢环驰 李响 编辑：赖向东 吴蓉 毕晓洋 虞东升 许睿
 
 ## 相关推荐
 
-- 2026-06-30 07:51 - [郑钦文温网一轮游](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-30 07:47 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-30 07:42 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
-- 2026-06-30 07:30 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-30 07:45 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-30 07:48 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
-- 2026-06-30 07:25 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-30 07:30 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-30 07:48 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-30 07:37 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-30 07:26 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
-- 2026-06-30 07:52 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
-- 2026-06-30 07:46 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-30 07:56 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
+- 2026-06-30 07:52 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-30 07:33 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-30 07:44 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-30 07:36 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-30 07:42 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-30 07:59 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-30 07:56 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-30 07:53 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-30 07:40 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:40 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.minike.top/Article/details/50366215.shtml)
-- 2026-06-30 07:31 - [我觉得你是在无中生友](https://www.blog.kurohicncr.top/Article/details/813647151961.shtml)
-- 2026-06-30 07:39 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/7962942631.shtml)
-- 2026-06-30 07:50 - [齐思钧回复张月](https://www.share.kurohicncr.top/Article/details/4474235.shtml)
-- 2026-06-30 07:42 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/97442245247.shtml)
-- 2026-06-30 07:47 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/85340.shtml)
-- 2026-06-30 07:46 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/219670420612.shtml)
-- 2026-06-30 07:36 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.minike.top/Article/details/528831168605.shtml)
-- 2026-06-30 07:37 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/944030.shtml)
-- 2026-06-30 07:49 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/69066272359.shtml)
-- 2026-06-30 07:49 - [免费试吃发差评被店家挂店门避雷](http://www.share.minike.top/Article/details/67987071460.shtml)
-- 2026-06-30 07:36 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/05552064549.shtml)
-- 2026-06-30 07:37 - [索马里女大使：想和中国一起搞事业](https://www.share.minike.top/Article/details/794363302080.shtml)
-- 2026-06-30 07:26 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/94380890808.shtml)
-- 2026-06-30 07:34 - [为什么会有「念旧」的心理？](http://www.blog.minike.top/Article/details/310877.shtml)
+- 2026-06-30 07:33 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/0586955468.shtml)
+- 2026-06-30 07:36 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/00681203.shtml)
+- 2026-06-30 07:34 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/2677779.shtml)
+- 2026-06-30 07:43 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/14507513906.shtml)
+- 2026-06-30 07:43 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/3974425966.shtml)
+- 2026-06-30 07:30 - [王健林甩卖超80座万达广场](https://www.blog.kurohicncr.top/Article/details/706804787.shtml)
+- 2026-06-30 07:31 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/395779449.shtml)
+- 2026-06-30 07:58 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/0995100.shtml)
+- 2026-06-30 07:50 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/60461985.shtml)
+- 2026-06-30 07:30 - [覃予萱晋级WTT美国大满贯女单32强](http://www.blog.kurohicncr.top/Article/details/3073736.shtml)
+- 2026-06-30 07:57 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/041749721119.shtml)
+- 2026-06-30 07:36 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/69855.shtml)
+- 2026-06-30 07:34 - [警犬“多多”助民警寻回失联老人](http://www.share.minike.top/Article/details/20054.shtml)
+- 2026-06-30 07:44 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/65479.shtml)
+- 2026-06-30 07:52 - [【大鸣王潮1566】真拿你没办法](https://www.blog.minike.top/Article/details/210008319194.shtml)

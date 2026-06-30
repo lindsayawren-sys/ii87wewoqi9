@@ -1,51 +1,59 @@
-# 酱板鸭销量大增 湖南常德多家企业加紧赶订单
+# 今年已有46家A股公司被立案调查，同比大增逾五成
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月13日 19:39 来源：中国新闻网 近日，一部在两岸受到关注的AI短片《雪山救狐狸》带火了酱板鸭。湖南常德酱板鸭销量大涨，相关企业连日来加紧赶订单。 精选的洞庭湖麻鸭，在辣椒与几十味天然香辛料的“调教”下，历经腌、酱、烤、卤、煮、蒸等十几道工序的“千锤百炼”，最终蜕变成一只只色泽油亮、酥香鲜嫩的酱板鸭。如今，常德酱板鸭已聚集成拥有42家企业的“鸭军团
+登录新浪财经APP 搜索【信披】查看更多考评等级 ST类公司占比逾四成 恰逢“5·15全国投资者保护宣传日”，A股严监管加码态势备受市场关注。 根据Wind数据，截至5月14日15：00，今年以来已有46家上市公司公告被立案调查，同比增长逾五成。其中，ST类公司占比逾四成。被调查的原因主要为涉嫌信息披露违法违规，也有少数公司明确原因为未按期披露定期报告、重大合同公告涉嫌误导性陈
 
 ## 正文
 
-发布时间：2026年04月13日 19:39 来源：中国新闻网 近日，一部在两岸受到关注的AI短片《雪山救狐狸》带火了酱板鸭。
+登录新浪财经APP 搜索【信披】查看更多考评等级 ST类公司占比逾四成 恰逢“5·15全国投资者保护宣传日”，A股严监管加码态势备受市场关注。
 
-湖南常德酱板鸭销量大涨，相关企业连日来加紧赶订单。
+根据Wind数据，截至5月14日15：00，今年以来已有46家上市公司公告被立案调查，同比增长逾五成。
 
-精选的洞庭湖麻鸭，在辣椒与几十味天然香辛料的“调教”下，历经腌、酱、烤、卤、煮、蒸等十几道工序的“千锤百炼”，最终蜕变成一只只色泽油亮、酥香鲜嫩的酱板鸭。
+其中，ST类公司占比逾四成。
 
-如今，常德酱板鸭已聚集成拥有42家企业的“鸭军团”，年产值近30亿元。
+被调查的原因主要为涉嫌信息披露违法违规，也有少数公司明确原因为未按期披露定期报告、重大合同公告涉嫌误导性陈述等。
 
-(蔡文龙 姜沛 代云 李雨钦 制作 刘鹏） 责任编辑：【罗攀】
+近年来，随着投资者日趋理性成熟，一些上市公司被立案调查后，便遭到投资者用脚投票，有些甚至触发面值退市。
+
+一旦违法违规行为被认定，上市公司及相关负责人还面临行政处罚、民事赔偿、刑事追责多重惩戒，违法违规代价大幅提高。
+
+南开大学金融发展研究院院长田利辉对第一财经称，全链条问责从根本上改变了违法成本的计算公式，威慑效果呈几何级数增长；投资者用脚投票，也说明市场正在完成从博弈心态到风险再定价的关键转变。
+
+A股生态正经历从投机驱动向价值驱动的深层蜕变。
 
 ## 相关推荐
 
-- 2026-06-30 07:32 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
-- 2026-06-30 07:24 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-30 07:38 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-30 07:45 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
-- 2026-06-30 07:26 - [森保一 保守](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-30 07:42 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-30 07:36 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-30 07:34 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-30 07:45 - [庆祝中国共产党成立105周年音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
-- 2026-06-30 07:39 - [女子遭下药退赔偿拟追刑责](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-30 07:33 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-30 07:48 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-30 07:51 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
+- 2026-06-30 07:42 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-30 07:44 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
+- 2026-06-30 07:52 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-30 07:55 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-30 07:37 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-30 07:34 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-30 07:47 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-30 07:37 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-30 07:46 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-30 07:51 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-30 07:45 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:45 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/082577820172.shtml)
-- 2026-06-30 07:43 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/193502.shtml)
-- 2026-06-30 07:34 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.kurohicncr.top/Article/details/237406.shtml)
-- 2026-06-30 07:42 - [巴西把自己踢晕了](http://www.blog.minike.top/Article/details/3396274945.shtml)
-- 2026-06-30 07:34 - [失明的我带老妈去了趟“火星”](https://www.blog.minike.top/Article/details/151116375.shtml)
-- 2026-06-30 07:38 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/10605405554.shtml)
-- 2026-06-30 07:47 - [德国队世界杯点球大战首败](http://www.share.kurohicncr.top/Article/details/045622111680.shtml)
-- 2026-06-30 07:27 - [请回答王牌2019](https://www.share.minike.top/Article/details/76828189903.shtml)
-- 2026-06-30 07:53 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/4991380.shtml)
-- 2026-06-30 07:24 - [女心理师](http://www.share.kurohicncr.top/Article/details/447067964.shtml)
-- 2026-06-30 07:30 - [德国巴拉圭 折磨](https://www.share.kurohicncr.top/Article/details/10866682.shtml)
-- 2026-06-30 07:25 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.kurohicncr.top/Article/details/9635891.shtml)
-- 2026-06-30 07:46 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://www.share.minike.top/Article/details/58869845607.shtml)
-- 2026-06-30 07:49 - [日本五次世界杯淘汰赛全败](http://www.blog.minike.top/Article/details/793374.shtml)
-- 2026-06-30 07:38 - [内马尔替补](http://www.share.kurohicncr.top/Article/details/2472567.shtml)
+- 2026-06-30 07:53 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/24999.shtml)
+- 2026-06-30 07:30 - [委内瑞拉地震死亡人数升至1719人](https://www.blog.kurohicncr.top/Article/details/445845123.shtml)
+- 2026-06-30 07:47 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/85525.shtml)
+- 2026-06-30 07:45 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/3779741407.shtml)
+- 2026-06-30 07:47 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/2497763.shtml)
+- 2026-06-30 07:55 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/43657.shtml)
+- 2026-06-30 07:46 - [日本球员说被绝杀非常不甘心](http://www.share.minike.top/Article/details/193412966.shtml)
+- 2026-06-30 07:32 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/164506229107.shtml)
+- 2026-06-30 07:59 - [恋与深空回应争议](https://www.share.minike.top/Article/details/35552394.shtml)
+- 2026-06-30 07:38 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/655477233472.shtml)
+- 2026-06-30 07:55 - [巴拉圭先进球了](https://www.blog.kurohicncr.top/Article/details/5726992.shtml)
+- 2026-06-30 07:40 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/29327.shtml)
+- 2026-06-30 07:40 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/61094669852.shtml)
+- 2026-06-30 07:47 - [庆祝中国共产党成立105周年音乐会](http://www.blog.minike.top/Article/details/5863196069.shtml)
+- 2026-06-30 07:55 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/6949013673.shtml)

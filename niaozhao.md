@@ -1,52 +1,56 @@
-# 恒大集团、恒大地产及许家印案一审开庭
+# A股“股王”源杰科技副总经理被刑拘
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-来源：深圳市中级人民法院微信公众号 2026年4月13日至14日，广东省深圳市中级人民法院对深圳市人民检察院提起公诉的被告单位恒大集团有限公司非法吸收公众存款、集资诈骗、违法发放贷款、欺诈发行证券、违规披露重要信息、单位行贿，被告单位恒大地产集团有限公司欺诈发行证券，被告人许家印非法吸收公众存款、集资诈骗、违法发放贷款、违法运用资金、欺诈发行证券、违规披露重要信息、职务侵占、单
+5月14日晚间，源杰科技（688498.SH）发布《关于副总经理无法正常履职暨离任的公告》，公告称，公司于近日收到公司副总经理陈文君家属的通知，陈文君因涉嫌刑事犯罪被公安机关刑事拘留，无法正常履行公司副总经理职责。截至本公告披露日，公司未接到公安机关对该事件的通知。公告称，陈文君在任期间主要分管公司产品销售及营销相关工作，鉴于其已无法正常履行公司副总经理职责，为保障公司相关业务
 
 ## 正文
 
-来源：深圳市中级人民法院微信公众号 2026年4月13日至14日，广东省深圳市中级人民法院对深圳市人民检察院提起公诉的被告单位恒大集团有限公司非法吸收公众存款、集资诈骗、违法发放贷款、欺诈发行证券、违规披露重要信息、单位行贿，被告单位恒大地产集团有限公司欺诈发行证券，被告人许家印非法吸收公众存款、集资诈骗、违法发放贷款、违法运用资金、欺诈发行证券、违规披露重要信息、职务侵占、单位行贿一案进行了公开开庭审理。
+5月14日晚间，源杰科技（688498.SH）发布《关于副总经理无法正常履职暨离任的公告》，公告称，公司于近日收到公司副总经理陈文君家属的通知，陈文君因涉嫌刑事犯罪被公安机关刑事拘留，无法正常履行公司副总经理职责。
 
-庭审中，法庭主持控辩双方围绕指控的事实进行了法庭调查及法庭辩论，被告单位、许家印进行了最后陈述。
+截至本公告披露日，公司未接到公安机关对该事件的通知。
 
-许家印当庭表示认罪悔罪。
+公告称，陈文君在任期间主要分管公司产品销售及营销相关工作，鉴于其已无法正常履行公司副总经理职责，为保障公司相关业务平稳衔接、不间断推进，经提名委员会建议，公司于5月14日召开第二届董事会第三十次会议，审议通过了《关于解聘公司高级管理人员的议案》，解除陈文君的副总经理职务，解聘后其仍在公司担任其他职务，解聘事项自董事会审议通过之日起生效。
 
-法庭将择期宣判。
+源杰科技在公告中还称，目前，公司生产经营情况正常、稳定，公司已经对该副总经理负责的相关工作做了妥善安排和处理，该事件不影响公司的正常经营活动。
 
-部分人大代表、政协委员，被告人亲属，集资参与人代表等旁听了庭审。
+Wind数据显示，截至5月14日收盘，源杰科技股价收报1635元/股，依然位居A股“股王”位置，总市值1405亿元。
 
-责任编辑：凌辰
+（文章来源：中国经营报）
 
 ## 相关推荐
 
-- 2026-06-30 07:51 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-30 07:41 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-30 07:50 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-30 07:36 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
-- 2026-06-30 07:50 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-30 07:36 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-30 07:49 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
-- 2026-06-30 07:26 - [恋与深空道歉声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-30 07:41 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-30 07:40 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-30 07:40 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-30 07:56 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-30 07:33 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
+- 2026-06-30 07:53 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-30 07:30 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-30 07:33 - [郑钦文温网首轮出局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
+- 2026-06-30 07:50 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-30 07:39 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-30 07:55 - [德国巴拉圭进入点球大战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-30 07:48 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-30 07:35 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-30 07:31 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-30 07:51 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-30 07:45 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:46 - [补时绝杀 巴西2-1淘汰日本](http://www.share.minike.top/Article/details/94142.shtml)
-- 2026-06-30 07:25 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/714954047.shtml)
-- 2026-06-30 07:33 - [女心理师](http://www.share.minike.top/Article/details/370705.shtml)
-- 2026-06-30 07:40 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/179807.shtml)
-- 2026-06-30 07:53 - [德国4比5巴拉圭](http://www.blog.kurohicncr.top/Article/details/9056616.shtml)
-- 2026-06-30 07:45 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/175438164.shtml)
-- 2026-06-30 07:29 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/721975.shtml)
-- 2026-06-30 07:45 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/351111158.shtml)
-- 2026-06-30 07:44 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.minike.top/Article/details/34447050.shtml)
-- 2026-06-30 07:38 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/63091212.shtml)
-- 2026-06-30 07:28 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/913618.shtml)
-- 2026-06-30 07:45 - [德国爆冷点球大战不敌巴拉圭](https://www.blog.minike.top/Article/details/5628532588.shtml)
-- 2026-06-30 07:33 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/576385.shtml)
-- 2026-06-30 07:36 - [武磊：日本队有能力跟任何强队抗衡](http://www.share.minike.top/Article/details/59595973812.shtml)
-- 2026-06-30 07:33 - [徐亮怒斥世界杯踢假球](https://www.share.minike.top/Article/details/413637458.shtml)
+- 2026-06-30 07:54 - [董卿父亲在报纸上发文悼念亡妻](http://www.share.minike.top/Article/details/9805877516.shtml)
+- 2026-06-30 07:30 - [日本领先巴西](http://www.share.kurohicncr.top/Article/details/92384.shtml)
+- 2026-06-30 07:36 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/520468725498.shtml)
+- 2026-06-30 07:49 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://www.blog.kurohicncr.top/Article/details/356112.shtml)
+- 2026-06-30 07:50 - [人类...完蛋了...](https://www.share.minike.top/Article/details/809036.shtml)
+- 2026-06-30 07:48 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/252313784.shtml)
+- 2026-06-30 07:41 - [一生一世](http://www.blog.minike.top/Article/details/98739.shtml)
+- 2026-06-30 07:53 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/983880.shtml)
+- 2026-06-30 07:51 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/36142407.shtml)
+- 2026-06-30 07:41 - [马耳他著名拱门坍塌致中国男子身亡](http://www.share.minike.top/Article/details/372413274717.shtml)
+- 2026-06-30 07:33 - [世界杯：德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/52547387876.shtml)
+- 2026-06-30 07:48 - [世界杯](http://www.share.kurohicncr.top/Article/details/082734389.shtml)
+- 2026-06-30 07:41 - [森保一 保守](http://www.blog.kurohicncr.top/Article/details/833693400.shtml)
+- 2026-06-30 07:32 - [媒体评泰山建135公里刀片刺绳隔离网](https://www.blog.minike.top/Article/details/338129408173.shtml)
+- 2026-06-30 07:55 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/628424474.shtml)

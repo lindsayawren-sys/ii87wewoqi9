@@ -1,56 +1,59 @@
-# a2牛奶公司因供应中断下调业绩指引，股价下跌15%
+# 陕西持续壮大特色现代农业 农民收入稳步提升
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-供应链摩擦开始体现在盈利指引中，a2牛奶公司（ACOPY）正在调整预期，因为供应链中断正波及其中囯业务。该公司下调了营收和利润展望，指出部分与伊朗冲突相关的出货延迟已减少了分销商和零售终端的产品供应。管理层称此问题为暂时性，但指出在该公司原本准备继续扩大市场份额之际，中文标签婴儿配方奶粉的供应缺口已开始影响市场供应。 供应链多个环节似乎都在承受压力。航空货运的可用性和成本已受到
+中新网西安5月14日电 (李一璠)“陕西省率先建成覆盖全体农户的防止返贫监测预警平台，开发上线‘农户画像’功能，以大数据模型算法精准筛查返贫致贫风险农户，实现全员全域常态监测、动态清零。”陕西省农业农村厅党组书记李育江14日表示。 当日，陕西省人民政府新闻办公室举办新闻发布会，解读《中共陕西省委 陕西省人民政府关于锚定农业农村现代化扎实推进乡村全面振兴的实施意见》。 记者关注到
 
 ## 正文
 
-供应链摩擦开始体现在盈利指引中，a2牛奶公司（ACOPY）正在调整预期，因为供应链中断正波及其中囯业务。
+中新网西安5月14日电 (李一璠)“陕西省率先建成覆盖全体农户的防止返贫监测预警平台，开发上线‘农户画像’功能，以大数据模型算法精准筛查返贫致贫风险农户，实现全员全域常态监测、动态清零。
 
-该公司下调了营收和利润展望，指出部分与伊朗冲突相关的出货延迟已减少了分销商和零售终端的产品供应。
+”陕西省农业农村厅党组书记李育江14日表示。
 
-管理层称此问题为暂时性，但指出在该公司原本准备继续扩大市场份额之际，中文标签婴儿配方奶粉的供应缺口已开始影响市场供应。
+当日，陕西省人民政府新闻办公室举办新闻发布会，解读《中共陕西省委 陕西省人民政府关于锚定农业农村现代化扎实推进乡村全面振兴的实施意见》。
 
-供应链多个环节似乎都在承受压力。
+记者关注到，该实施意见围绕“两条底线、一个中心、三项重点和一大支撑保障”进行部署：持续守牢粮食安全底线和确保长久守牢不发生规模性返贫致贫底线，始终坚持把增加农民收入作为“三农”工作的中心任务，统筹乡村发展、乡村建设和乡村治理三项重点工作，强化改革赋能和要素保障。
 
-航空货运的可用性和成本已受到中东紧张局势的间接影响，而海运运力仍不均衡。
+“‘十四五’时期，陕西省农村居民人均可支配收入从2020年的13316元增长到2025年的19286元，年均增长7.7%。
 
-与此同时，上游生产环节也在收紧，新莱特乳品工厂的未完成采购订单积压，加上额外检验措施导致产品放行和清关时间延长。
+”陕西省农业农村厅副厅长杨晓军表示。
 
-管理层表示，这些因素可能在4月和5月对产品供应产生实质性影响，可能拖累销售，同时也会产生一次性的物流成本，并因第四季度销售延迟而将部分现金回款推至2026-27财年。
+近年来，该省深入实施特色现代农业重点产业链建设五年行动，坚持部省共建、链群同构，强龙头、补链条、兴业态、树品牌，形成了“省抓千亿级、市抓百亿级、县抓十亿级”的特色产业发展体系。
 
-投资者反应迅速，惠灵顿市场股价下跌15%，创下自2024年8月以来的最大单日跌幅。
+苹果等8条重点产业链综合产值达到6649亿元，带动市级发展31条超百亿元、县级发展155条超十亿元产业链，特色产业发展成效显著。
 
 ## 相关推荐
 
-- 2026-06-30 07:45 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-30 07:27 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
-- 2026-06-30 07:35 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-30 07:44 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-30 07:42 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
-- 2026-06-30 07:41 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
-- 2026-06-30 07:44 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-30 07:36 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-30 07:46 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-30 07:51 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-30 07:38 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-30 07:48 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-30 07:48 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-30 07:58 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-30 07:33 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
+- 2026-06-30 07:33 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-30 07:35 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-30 07:48 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-30 07:39 - [全球芯片巨头史诗级扩产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-30 07:54 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-30 07:58 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-30 07:59 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-30 07:39 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:44 - [武磊：日本队有能力跟任何强队抗衡](https://www.share.minike.top/Article/details/07645120.shtml)
-- 2026-06-30 07:38 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/3082966129.shtml)
-- 2026-06-30 07:40 - [张帅时隔四年晋级温网第二轮](http://www.blog.minike.top/Article/details/9371705.shtml)
-- 2026-06-30 07:37 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/600378297.shtml)
-- 2026-06-30 07:36 - [王欣瑜温网开门红](https://www.blog.minike.top/Article/details/802637.shtml)
-- 2026-06-30 07:34 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/437368789561.shtml)
-- 2026-06-30 07:24 - [宗元舞2.0 迟来的50万女装福利](https://www.share.kurohicncr.top/Article/details/74690449.shtml)
-- 2026-06-30 07:53 - [多人在马路中间打羽毛球 交警回应](https://www.blog.minike.top/Article/details/83913.shtml)
-- 2026-06-30 07:28 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/22365249689.shtml)
-- 2026-06-30 07:53 - [曝灰熊将莫兰特交易至开拓者](https://www.share.minike.top/Article/details/2747478063.shtml)
-- 2026-06-30 07:42 - [德国巴拉圭 折磨](https://www.share.kurohicncr.top/Article/details/3196284.shtml)
-- 2026-06-30 07:49 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/8645974.shtml)
-- 2026-06-30 07:24 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/3012572150.shtml)
-- 2026-06-30 07:38 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/529062369.shtml)
-- 2026-06-30 07:38 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](http://www.share.kurohicncr.top/Article/details/7791957713.shtml)
+- 2026-06-30 07:38 - [德国罚丢3粒点球](https://www.share.kurohicncr.top/Article/details/38657466.shtml)
+- 2026-06-30 07:53 - [杨紫获白玉兰视后争议不止](http://www.blog.kurohicncr.top/Article/details/1674162.shtml)
+- 2026-06-30 07:55 - [审核了不止十年的低创鬼畜](http://www.blog.minike.top/Article/details/45003341.shtml)
+- 2026-06-30 07:44 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/68164.shtml)
+- 2026-06-30 07:41 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/219227850.shtml)
+- 2026-06-30 07:34 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/436925410223.shtml)
+- 2026-06-30 07:51 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/29647715502.shtml)
+- 2026-06-30 07:56 - [马耳他著名拱门坍塌致中国男子身亡](http://www.blog.kurohicncr.top/Article/details/20586473519.shtml)
+- 2026-06-30 07:31 - [张帅晋级温网次轮](https://www.blog.minike.top/Article/details/45413927.shtml)
+- 2026-06-30 07:39 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](http://www.share.minike.top/Article/details/22440186669.shtml)
+- 2026-06-30 07:34 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/74419.shtml)
+- 2026-06-30 07:40 - [张凌赫杨超越 峨眉](http://www.blog.minike.top/Article/details/06213.shtml)
+- 2026-06-30 07:49 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/3928217373.shtml)
+- 2026-06-30 07:41 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.kurohicncr.top/Article/details/71266389708.shtml)
+- 2026-06-30 07:44 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/67449554253.shtml)

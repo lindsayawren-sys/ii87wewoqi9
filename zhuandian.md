@@ -1,60 +1,59 @@
-# 亚马逊同意收购Globalstar，并扩大与苹果的卫星合作
+# 刘国中在云南调研时强调 抓实抓细常态化精准帮扶工作 持续巩固拓展脱贫攻坚成果
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-亚马逊宣布计划收购Globalstar并与苹果合作，扩大其卫星网络，在直连设备服务领域与Starlink直接竞争。 亚马逊股价周二上涨约4%，此前该公司宣布计划收购Globalstar，并扩大其低地球轨道卫星网络以提供直连设备连接服务。 此次收购将把Globalstar的卫星资产整合到亚马逊的Leo网络中。亚马逊还披露了与苹果公司达成的一项独立协议，将为iPhone和Apple
+新华社昆明5月14日电 中共中央政治局委员、国务院副总理刘国中12日至14日到云南调研。他强调，要深入学习贯彻习近平总书记重要讲话和重要指示批示精神，落实党中央、国务院部署，压紧压实责任，抓实抓细常态化精准帮扶工作，持续巩固拓展脱贫攻坚成果，促进乡村全面振兴，为推进中国式现代化提供基础支撑。 刘国中先后来到玉溪市、红河州和文山州，深入脱贫村、产业基地、帮扶车间、易地搬迁社区和学
 
 ## 正文
 
-亚马逊宣布计划收购Globalstar并与苹果合作，扩大其卫星网络，在直连设备服务领域与Starlink直接竞争。
+新华社昆明5月14日电 中共中央政治局委员、国务院副总理刘国中12日至14日到云南调研。
 
-亚马逊股价周二上涨约4%，此前该公司宣布计划收购Globalstar，并扩大其低地球轨道卫星网络以提供直连设备连接服务。
+他强调，要深入学习贯彻习近平总书记重要讲话和重要指示批示精神，落实党中央、国务院部署，压紧压实责任，抓实抓细常态化精准帮扶工作，持续巩固拓展脱贫攻坚成果，促进乡村全面振兴，为推进中国式现代化提供基础支撑。
 
-此次收购将把Globalstar的卫星资产整合到亚马逊的Leo网络中。
+刘国中先后来到玉溪市、红河州和文山州，深入脱贫村、产业基地、帮扶车间、易地搬迁社区和学校、乡镇卫生院，走访防止返贫致贫对象和脱贫户，调研“三保障”和产业就业帮扶等工作情况。
 
-亚马逊还披露了与苹果公司达成的一项独立协议，将为iPhone和Apple Watch用户提供卫星服务。
+他强调，今年是开展常态化帮扶第一年，要做好政策与工作衔接，守牢不发生规模性返贫致贫底线。
 
-该服务可在无蜂窝网络覆盖时发送紧急短信和道路救援请求。
+要健全完善监测帮扶体系，科学确定和动态调整帮扶对象，做到早发现、早干预、早帮扶。
 
-亚马逊预计Globalstar交易将于2027年完成，尚需获得监管批准并满足其他条件。
+要精准落实教育、健康帮扶和住房安全保障政策，持续巩固农村饮水安全保障成果。
 
-该公司表示，Globalstar股东可选择收取现金或亚马逊股票作为对价，并适用标准的比例分配机制。
+要因地制宜加强产业分类指导和长期培育，健全帮扶项目资产长效管理机制，多渠道做好就业帮扶，促进农民增收。
 
-此次卫星领域的推进使亚马逊能够在新兴的天基移动连接市场更直接地与Starlink竞争。
+要继续做好易地搬迁后续扶持，确保搬迁群众稳得住、逐步能致富。
 
 ## 相关推荐
 
-- 2026-06-30 07:53 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-30 07:32 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-30 07:35 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
-- 2026-06-30 07:35 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-30 07:51 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
-- 2026-06-30 07:32 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-30 07:51 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
-- 2026-06-30 07:51 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
-- 2026-06-30 07:36 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
-- 2026-06-30 07:45 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-30 07:36 - [曝老詹对自由市场态度与以往截然不同](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-30 07:40 - [德国罚丢3粒点球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-30 07:30 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-30 07:46 - [森保一 保守](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
+- 2026-06-30 07:56 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-30 07:43 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-30 07:32 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-30 07:51 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-30 07:57 - [网友写差评被店家“挂”门口避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-30 07:48 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-30 07:59 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-30 07:32 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-30 07:46 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
+- 2026-06-30 07:37 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-30 07:46 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-30 07:43 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
+- 2026-06-30 07:53 - [大蒜晒外面被路过女子连盆端走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:24 - [恋与深空制作组回应近期争议](https://www.blog.minike.top/Article/details/022546493.shtml)
-- 2026-06-30 07:51 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/4927026.shtml)
-- 2026-06-30 07:26 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/835654.shtml)
-- 2026-06-30 07:29 - [马耳他著名拱门坍塌致一中国男子身亡](http://www.blog.minike.top/Article/details/55237822665.shtml)
-- 2026-06-30 07:48 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/5829364070.shtml)
-- 2026-06-30 07:34 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/68482058.shtml)
-- 2026-06-30 07:29 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/332256556545.shtml)
-- 2026-06-30 07:25 - [周冬雨多次说演不了话剧文城](http://www.share.minike.top/Article/details/025101030428.shtml)
-- 2026-06-30 07:49 - [杨紫获白玉兰视后争议不止](https://www.blog.kurohicncr.top/Article/details/2004028.shtml)
-- 2026-06-30 07:39 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.minike.top/Article/details/775800224455.shtml)
-- 2026-06-30 07:26 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/76945.shtml)
-- 2026-06-30 07:30 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.kurohicncr.top/Article/details/071088227.shtml)
-- 2026-06-30 07:42 - [一生一世](https://www.blog.kurohicncr.top/Article/details/923149820210.shtml)
-- 2026-06-30 07:32 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/241525.shtml)
-- 2026-06-30 07:51 - [三星投资计划](https://www.blog.minike.top/Article/details/5493939.shtml)
+- 2026-06-30 07:34 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/65781429.shtml)
+- 2026-06-30 07:30 - [F1奥地利站赛后复盘](http://www.share.minike.top/Article/details/84773467.shtml)
+- 2026-06-30 07:35 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.share.minike.top/Article/details/57190183.shtml)
+- 2026-06-30 07:37 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/390297.shtml)
+- 2026-06-30 07:45 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/186745820860.shtml)
+- 2026-06-30 07:32 - [日本反击率先破门](https://www.blog.kurohicncr.top/Article/details/970435002466.shtml)
+- 2026-06-30 07:30 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/030069561556.shtml)
+- 2026-06-30 07:49 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.minike.top/Article/details/1860693.shtml)
+- 2026-06-30 07:42 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/82770323.shtml)
+- 2026-06-30 07:39 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.kurohicncr.top/Article/details/35490866702.shtml)
+- 2026-06-30 07:44 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/48854.shtml)
+- 2026-06-30 07:49 - [啊啊啊](http://www.blog.minike.top/Article/details/03079.shtml)
+- 2026-06-30 07:43 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/9355542595.shtml)
+- 2026-06-30 07:41 - [全球芯片巨头史诗级扩产](http://www.share.kurohicncr.top/Article/details/3719191.shtml)
+- 2026-06-30 07:56 - [点球大战](http://www.blog.kurohicncr.top/Article/details/564842348688.shtml)

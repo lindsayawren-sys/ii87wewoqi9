@@ -1,57 +1,45 @@
-# 控股股东增持至50%！中铁工业净利润下滑、现金流却大增，持续破净困局何时解？
+# 哈三联：阿塞那平原料及制剂正在审评中
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-记者|闫峰峰 编辑|何建川 近日，中铁工业发布股东权益变动公告，自2025年5月控股股东中国中铁股份有限公司（以下简称中国中铁）发布增持计划以来，中国中铁累计已增持0.87%的公司股份，持股比例达到50%，已触及5%的整数倍。 《每日经济新闻》记者发现，中铁工业控股股东历史上两次增持后均走出中长线行情。而本次增持计划发布以来，中铁工业股价有所活跃，不过仍然破净。中铁工业2025
+证券日报网5月13日讯 ，哈三联在接受调研者提问时表示，阿塞那平原料及制剂正在审评中，具体进度请随时关注公司相关公告。
 
 ## 正文
 
-记者|闫峰峰 编辑|何建川 近日，中铁工业发布股东权益变动公告，自2025年5月控股股东中国中铁股份有限公司（以下简称中国中铁）发布增持计划以来，中国中铁累计已增持0.87%的公司股份，持股比例达到50%，已触及5%的整数倍。
-
-《每日经济新闻》记者发现，中铁工业控股股东历史上两次增持后均走出中长线行情。
-
-而本次增持计划发布以来，中铁工业股价有所活跃，不过仍然破净。
-
-中铁工业2025年的营业收入和净利润均有所下滑，不过经营活动产生的现金流净额却大幅增加，合同负债也创出历史新高。
-
-对于公司所在行业的景气情况以及公司的市值管理计划，《每日经济新闻》记者进行了采访。
-
-中铁工业发布的公告显示，控股股东中国中铁增持公司股份已触及5%的整数倍。
-
-根据公告，中国中铁于2025年6月26日至2026年4月13日期间，通过集中竞价交易方式累计增持公司股份1941.42万股，占公司总股本的0.87%，增持价格区间为7.48元/股至8.42元/股。
-
-本次增持后，中国中铁持有中铁工业的股份比例由49.13%提升至50.00%，持股比例已触及5%的整数倍。
+证券日报网5月13日讯 ，哈三联在接受调研者提问时表示，阿塞那平原料及制剂正在审评中，具体进度请随时关注公司相关公告。
 
 ## 相关推荐
 
-- 2026-06-30 07:31 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
-- 2026-06-30 07:51 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
-- 2026-06-30 07:49 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-30 07:27 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-30 07:32 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-30 07:28 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-30 07:42 - [巴拉圭进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-30 07:30 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-30 07:38 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-30 07:38 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
-- 2026-06-30 07:49 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-30 07:43 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-30 07:36 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-30 07:59 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-30 07:43 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-30 07:31 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-30 07:55 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
+- 2026-06-30 07:33 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-30 07:53 - [巴拉圭点球大战淘汰德国进16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-30 07:43 - [德国淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
+- 2026-06-30 07:34 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-30 07:46 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-30 07:50 - [全球芯片巨头史诗级扩产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-30 07:43 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:33 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/672865932589.shtml)
-- 2026-06-30 07:52 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.minike.top/Article/details/20834393821.shtml)
-- 2026-06-30 07:44 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/798522464.shtml)
-- 2026-06-30 07:34 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/9396150.shtml)
-- 2026-06-30 07:37 - [扬名立万](https://www.share.minike.top/Article/details/7517917174.shtml)
-- 2026-06-30 07:53 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/681111074.shtml)
-- 2026-06-30 07:47 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/405059.shtml)
-- 2026-06-30 07:48 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/09274626.shtml)
-- 2026-06-30 07:46 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.kurohicncr.top/Article/details/30105056625.shtml)
-- 2026-06-30 07:33 - [曝詹姆斯即将与勇士会面](https://www.share.kurohicncr.top/Article/details/768839171030.shtml)
-- 2026-06-30 07:32 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/73427.shtml)
-- 2026-06-30 07:53 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://www.blog.minike.top/Article/details/16041083.shtml)
-- 2026-06-30 07:41 - [美股](http://www.share.kurohicncr.top/Article/details/18233075.shtml)
-- 2026-06-30 07:30 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/409619596547.shtml)
-- 2026-06-30 07:49 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/783248071.shtml)
+- 2026-06-30 07:50 - [急先锋](http://www.share.minike.top/Article/details/19931609.shtml)
+- 2026-06-30 07:40 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/78677140.shtml)
+- 2026-06-30 07:41 - [日本反击率先破门](http://www.share.minike.top/Article/details/342821.shtml)
+- 2026-06-30 07:56 - [巴拉圭先进球了](http://www.share.minike.top/Article/details/8840741382.shtml)
+- 2026-06-30 07:53 - [日本五次世界杯淘汰赛全败](http://www.blog.minike.top/Article/details/9337327.shtml)
+- 2026-06-30 07:37 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/4495262875.shtml)
+- 2026-06-30 07:59 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/7751691.shtml)
+- 2026-06-30 07:50 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/88542.shtml)
+- 2026-06-30 07:51 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/63307.shtml)
+- 2026-06-30 07:50 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/81082.shtml)
+- 2026-06-30 07:30 - [庆祝中国共产党成立105周年音乐会](https://www.share.minike.top/Article/details/52891.shtml)
+- 2026-06-30 07:55 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/92260.shtml)
+- 2026-06-30 07:48 - [DeepSeek V4正式版要来了](https://www.share.kurohicncr.top/Article/details/022863703810.shtml)
+- 2026-06-30 07:33 - [内马尔中场休息积极鼓励队友](https://www.share.kurohicncr.top/Article/details/5209302628.shtml)
+- 2026-06-30 07:30 - [速度与激情9](http://www.blog.minike.top/Article/details/57400276330.shtml)

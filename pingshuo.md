@@ -1,61 +1,61 @@
-# 美国债市：国债走高 受到油价涨幅收窄的提振
+# 东西问丨张冰梅：为什么这座中国图书馆以美国总统名字命名？
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-美国国债期货在美国时段走高，收复了开盘时的跌幅，带动现货收益率全线下落1至3个基点。随着油价日内涨幅收窄，美债获得支撑。尽管美国开始对进出伊朗港口的船只实施封锁，但WTI原油期货尾盘涨幅仅为1%。美国总统特朗普表示伊朗就在周一上午还在寻求达成协议，这限制了油价涨幅。 纽约时间下午3点过后不久，10年期美债收益率接近盘中低点，日内下跌约2个基点至4.3%。长期国债收益率跌幅更小，
+中新社重庆5月13日电 题：为什么这座中国图书馆以美国总统名字命名？ ——专访重庆图书馆馆长张冰梅 中新社记者 钟旖 2026年5月1日，位于重庆市渝中区的罗斯福图书馆旧址，历经修缮与功能升级，以复合型公共文化空间的全新面貌对公众开放。作为中国历史上唯一一座以外国元首名字命名的图书馆，这座建筑跨越八十余载风云，承载着抗战烽火记忆，镌刻着中美友好印记。 一座图书馆为何被冠以外国总
 
 ## 正文
 
-美国国债期货在美国时段走高，收复了开盘时的跌幅，带动现货收益率全线下落1至3个基点。
+中新社重庆5月13日电 题：为什么这座中国图书馆以美国总统名字命名？
 
-随着油价日内涨幅收窄，美债获得支撑。
+——专访重庆图书馆馆长张冰梅 中新社记者 钟旖 2026年5月1日，位于重庆市渝中区的罗斯福图书馆旧址，历经修缮与功能升级，以复合型公共文化空间的全新面貌对公众开放。
 
-尽管美国开始对进出伊朗港口的船只实施封锁，但WTI原油期货尾盘涨幅仅为1%。
+作为中国历史上唯一一座以外国元首名字命名的图书馆，这座建筑跨越八十余载风云，承载着抗战烽火记忆，镌刻着中美友好印记。
 
-美国总统特朗普表示伊朗就在周一上午还在寻求达成协议，这限制了油价涨幅。
+一座图书馆为何被冠以外国总统之名？
 
-纽约时间下午3点过后不久，10年期美债收益率接近盘中低点，日内下跌约2个基点至4.3%。
+它在不同历史阶段承担了哪些文化功能？
 
-长期国债收益率跌幅更小，推动5年和30年期国债收益率日内扩大近2个基点。
+又将以何种姿态融入当下城市文化生活？
 
-WTI在亚洲早盘一度接近106美元/桶后回落。
+近日，重庆图书馆馆长张冰梅就此接受中新社“东西问”专访。
 
-标普500指数在现货收盘前上涨约0.5%，该指数周一低开。
+现将访谈实录摘要如下： 中新社记者：作为中国历史上唯一一座以外国总统名字命名的图书馆，罗斯福图书馆因何而建？
 
 ## 相关推荐
 
-- 2026-06-30 07:50 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-30 07:41 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
-- 2026-06-30 07:29 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-30 07:25 - [巴拉圭先进球了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-30 07:28 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-30 07:52 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-30 07:51 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-30 07:40 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-30 07:35 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-30 07:47 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-30 07:43 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-30 07:28 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-30 07:38 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-30 07:53 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-30 07:42 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-30 07:40 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-30 07:33 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
+- 2026-06-30 07:31 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-30 07:45 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-30 07:56 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-30 07:30 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-30 07:40 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-30 07:38 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-30 07:31 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-30 07:44 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-30 07:35 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-30 07:58 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-30 07:49 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-30 07:58 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-30 07:36 - [王楚钦孙颖莎晋级混双八强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:46 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/7696137.shtml)
-- 2026-06-30 07:40 - [刘念回应](http://www.share.minike.top/Article/details/071274.shtml)
-- 2026-06-30 07:31 - [内马尔中场休息积极鼓励队友](https://www.blog.kurohicncr.top/Article/details/4096115.shtml)
-- 2026-06-30 07:43 - [佐野海舟远射破门](https://www.share.kurohicncr.top/Article/details/46254.shtml)
-- 2026-06-30 07:43 - [中国新一轮出口管制直指日本命脉](https://www.blog.kurohicncr.top/Article/details/394196461085.shtml)
-- 2026-06-30 07:47 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.kurohicncr.top/Article/details/46455798.shtml)
-- 2026-06-30 07:44 - [点菜也要教吗](http://www.share.kurohicncr.top/Article/details/41807500287.shtml)
-- 2026-06-30 07:33 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/342969284403.shtml)
-- 2026-06-30 07:47 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/920847156.shtml)
-- 2026-06-30 07:42 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/9598891.shtml)
-- 2026-06-30 07:27 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/2501455.shtml)
-- 2026-06-30 07:25 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/664990.shtml)
-- 2026-06-30 07:30 - [詹姆斯下赛季去哪](https://www.blog.minike.top/Article/details/2485055950.shtml)
-- 2026-06-30 07:38 - [女子遭下药退赔偿拟追刑责](https://www.blog.minike.top/Article/details/273773.shtml)
-- 2026-06-30 07:35 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/4968563.shtml)
+- 2026-06-30 07:51 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/8734691931.shtml)
+- 2026-06-30 07:53 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/87225.shtml)
+- 2026-06-30 07:31 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/74283932.shtml)
+- 2026-06-30 07:44 - [森保一 保守](http://www.share.minike.top/Article/details/69338.shtml)
+- 2026-06-30 07:32 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/980825871333.shtml)
+- 2026-06-30 07:39 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/88320974.shtml)
+- 2026-06-30 07:37 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/68713021747.shtml)
+- 2026-06-30 07:38 - [郑钦文温网首轮出局](https://www.share.kurohicncr.top/Article/details/764230.shtml)
+- 2026-06-30 07:45 - [张雪的一句“是我们”引发岛内热议](http://www.blog.minike.top/Article/details/673114879.shtml)
+- 2026-06-30 07:32 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/16957483260.shtml)
+- 2026-06-30 07:53 - [范志毅看好日本队淘汰巴西](https://www.share.kurohicncr.top/Article/details/934900179.shtml)
+- 2026-06-30 07:40 - [田中碧失误](https://www.share.minike.top/Article/details/18742.shtml)
+- 2026-06-30 07:49 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/79423.shtml)
+- 2026-06-30 07:32 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/1932514212.shtml)
+- 2026-06-30 07:52 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/643969.shtml)

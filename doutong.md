@@ -1,60 +1,59 @@
-# 瑞士联合私人银行在黄金下跌10%后重建头寸，维持6000美元目标价
+# 思科营收展望超出分析师预期 计划裁员以聚焦快速增长的人工智能市场
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-瑞士联合私人银行在近期抛售中离场观望后，正重新回归黄金市场，这表明尽管存在短期波动，但长期走势可能依然完好。这家瑞士私人银行此前因伊朗冲突引发利率担忧加剧和流动性紧缩——投资者抛售黄金以弥补其他领域的损失——而将黄金配置从约10%大幅削减至3%。如今，该行正逐步在全权委托投资组合中重建头寸，配置已恢复至约6%。该行亚洲全权委托投资管理主管帕拉斯·古普塔表示，在拥挤交易平仓之后，
+思科本财季营收展望超出分析师预期，这家美国网络设备巨头计划裁员数千人，以专注快速增长的人工智能（AI）市场。 思科预计截至7月份的财季营收有望达到167亿至169亿美元。剔除部分项目后，每股收益料达1.16至1.18美元。汇编的数据显示，分析师此前预计其营收和每股收益分别为158亿美元和1.07美元。 强劲的业绩展望推动思科股价在盘后交易中一度飙升16%。截至周三收盘，该公司股
 
 ## 正文
 
-瑞士联合私人银行在近期抛售中离场观望后，正重新回归黄金市场，这表明尽管存在短期波动，但长期走势可能依然完好。
+思科本财季营收展望超出分析师预期，这家美国网络设备巨头计划裁员数千人，以专注快速增长的人工智能（AI）市场。
 
-这家瑞士私人银行此前因伊朗冲突引发利率担忧加剧和流动性紧缩——投资者抛售黄金以弥补其他领域的损失——而将黄金配置从约10%大幅削减至3%。
+思科预计截至7月份的财季营收有望达到167亿至169亿美元。
 
-如今，该行正逐步在全权委托投资组合中重建头寸，配置已恢复至约6%。
+剔除部分项目后，每股收益料达1.16至1.18美元。
 
-该行亚洲全权委托投资管理主管帕拉斯·古普塔表示，在拥挤交易平仓之后，机构投资者和散户投资者的持仓似乎更加均衡。
+汇编的数据显示，分析师此前预计其营收和每股收益分别为158亿美元和1.07美元。
 
-此次重新调整正值黄金自战争爆发以来已下跌约10%，尽管自2025年初以来仍上涨约80%。
+强劲的业绩展望推动思科股价在盘后交易中一度飙升16%。
 
-瑞士联合私人银行继续预计金价到年底将达到每盎司6000美元，并指出结构性需求驱动因素——如央行购金、财政赤字担忧以及持续的地缘政治紧张局势——可能长期支撑金价。
+截至周三收盘，该公司股价今年以来已上涨32%。
 
-该行的持仓主要通过实物黄金支持的交易所交易基金来实现，其立场与澳新银行和高盛等其它主要机构的观点基本一致，这些机构也对黄金维持了建设性的长期展望。
+思科首席执行官Chuck Robbins在博客文章中表示，计划裁员不到4000个岗位，低于员工总数的5%。
 
-然而，就短期而言，走势可能仍不稳定。
+此次裁员将产生最多10亿美元的遣散费用和其他一次性支出。
 
 ## 相关推荐
 
-- 2026-06-30 07:26 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-30 07:50 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
-- 2026-06-30 07:38 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
-- 2026-06-30 07:32 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-30 07:31 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-30 07:28 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-30 07:40 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-30 07:34 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-30 07:47 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
-- 2026-06-30 07:29 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-30 07:49 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-30 07:45 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-30 07:30 - [德国队连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-30 07:44 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-30 07:56 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-30 07:46 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-30 07:46 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-30 07:58 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-30 07:44 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-30 07:42 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-30 07:41 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
+- 2026-06-30 07:41 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-30 07:48 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-30 07:35 - [郑钦文温网首轮出局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-30 07:50 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-30 07:34 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-30 07:35 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:36 - [武磊：巴西队赢的并不轻松](http://www.blog.minike.top/Article/details/49486256068.shtml)
-- 2026-06-30 07:52 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.minike.top/Article/details/536043.shtml)
-- 2026-06-30 07:37 - [曝老詹对自由市场态度与以往截然不同](http://www.share.kurohicncr.top/Article/details/7284377465.shtml)
-- 2026-06-30 07:24 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/7543592.shtml)
-- 2026-06-30 07:29 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/973882264.shtml)
-- 2026-06-30 07:45 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/878326869684.shtml)
-- 2026-06-30 07:41 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/11625197083.shtml)
-- 2026-06-30 07:27 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/0008599.shtml)
-- 2026-06-30 07:46 - [男子醉酒溺水获救后同行人拒协助抬人](https://www.share.minike.top/Article/details/11349.shtml)
-- 2026-06-30 07:24 - [日本球员说被绝杀非常不甘心](https://www.blog.kurohicncr.top/Article/details/953783175.shtml)
-- 2026-06-30 07:51 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/29847.shtml)
-- 2026-06-30 07:42 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/5202726923.shtml)
-- 2026-06-30 07:51 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/758250805091.shtml)
-- 2026-06-30 07:33 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/45081.shtml)
-- 2026-06-30 07:51 - [世界杯](http://www.blog.kurohicncr.top/Article/details/064928536.shtml)
+- 2026-06-30 07:39 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.kurohicncr.top/Article/details/910599422.shtml)
+- 2026-06-30 07:56 - [庆祝中国共产党成立105周年音乐会](https://www.share.kurohicncr.top/Article/details/2031871.shtml)
+- 2026-06-30 07:53 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/32536595065.shtml)
+- 2026-06-30 07:38 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](http://www.share.kurohicncr.top/Article/details/61299116.shtml)
+- 2026-06-30 07:47 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/06390868365.shtml)
+- 2026-06-30 07:52 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/6485541789.shtml)
+- 2026-06-30 07:35 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/88014533150.shtml)
+- 2026-06-30 07:50 - [美人鱼](https://www.share.minike.top/Article/details/462462540.shtml)
+- 2026-06-30 07:44 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/00746866.shtml)
+- 2026-06-30 07:58 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/5422707541.shtml)
+- 2026-06-30 07:55 - [健全中小学教师工资长效联动机制](http://www.share.minike.top/Article/details/2155281696.shtml)
+- 2026-06-30 07:37 - [巴西vs日本](https://www.share.kurohicncr.top/Article/details/9863480899.shtml)
+- 2026-06-30 07:50 - [二次元提前预演明日巴西对日本](https://www.share.kurohicncr.top/Article/details/253640895163.shtml)
+- 2026-06-30 07:42 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/8372745342.shtml)
+- 2026-06-30 07:50 - [辛纳vs凯茨玛诺维奇](https://www.share.minike.top/Article/details/868379874.shtml)

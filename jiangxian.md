@@ -1,56 +1,59 @@
-# 火爆朋友圈的SBTI测试究竟准不准
+# 身体出现这些症状，可能是甲状腺在“报警”
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-火爆朋友圈的SBTI测试究竟准不准 专家提醒：理性看待性格标签的价值与局限 许倩倩 杨璞 扬子晚报近期，SBTI(Silly Big Personality Test，直译为“傻乎乎大人格测试”)测试在全网掀起热潮，从社交平台的个人分享到职场团队的性格分析，成为大众探索自我、理解他人的热门工具。有人将其视为自我认知的“密钥”，也有人质疑其科学性与实用性。南京市中西医结合医院脑病
+春夏交替，气温骤升、气压起伏，很多人都悄悄出现了身体 “小情绪”：总觉得睡不醒、莫名心慌烦躁、体重忽上忽下，连脖子都隐隐发紧不适……别只当是普通的换季不适，这些症状，很可能是甲状腺在向你发出“报警”信号。这些症状可能是甲状腺在“报警” 甲状腺是人体重要的内分泌器官，虽然体积小巧，却在调节人体新陈代谢、心率、体温等方面，发挥着不可或缺的作用。 有甲亢倾向的人群，常见这些表现： 容
 
 ## 正文
 
-火爆朋友圈的SBTI测试究竟准不准 专家提醒：理性看待性格标签的价值与局限 许倩倩 杨璞 扬子晚报近期，SBTI(Silly Big Personality Test，直译为“傻乎乎大人格测试”)测试在全网掀起热潮，从社交平台的个人分享到职场团队的性格分析，成为大众探索自我、理解他人的热门工具。
+春夏交替，气温骤升、气压起伏，很多人都悄悄出现了身体 “小情绪”：总觉得睡不醒、莫名心慌烦躁、体重忽上忽下，连脖子都隐隐发紧不适……别只当是普通的换季不适，这些症状，很可能是甲状腺在向你发出“报警”信号。
 
-有人将其视为自我认知的“密钥”，也有人质疑其科学性与实用性。
+这些症状可能是甲状腺在“报警” 甲状腺是人体重要的内分泌器官，虽然体积小巧，却在调节人体新陈代谢、心率、体温等方面，发挥着不可或缺的作用。
 
-南京市中西医结合医院脑病科(神经内科)副主任医师、国家二级心理咨询师张林提醒，从医学心理学角度而言，其价值与局限需要结合科学理论与现实场景客观审视。
+有甲亢倾向的人群，常见这些表现： 容易莫名心慌、手抖，怕热多汗，体重不明原因下降，情绪急躁易怒、烦躁不安，夜间入睡困难、失眠，排便次数也会明显增多。
 
-通讯员 杨璞 扬子晚报/紫牛新闻记者 许倩倩 测试局限性与潜在风险并存 张林介绍，SBTI测试的理论根基可追溯至瑞士心理学家卡尔·荣格1921年提出的《心理类型学》，其类型学属于“特质论”范畴，强调人格的稳定性与分类性。
+本身有甲状腺结节的人群，还可能出现颈部隐痛、异物感或压迫不适。
 
-“SBTI测试通过简化荣格的复杂理论，将抽象的心理特质转化为易于理解的标签，契合了大众对‘快速自我定位’的心理需求。
+若是偏向甲减，多会出现这些症状： 畏寒怕冷、浑身乏力，整日昏沉嗜睡、总也睡不够，面部、眼睑浮肿，记忆力减退、反应迟钝，皮肤干燥粗糙，脱发问题也会明显加重。
 
-”张林表示，但信度(测试结果的稳定性)与效度(测试结果的准确性)是评估心理测试科学性的核心指标。
+还要格外留意亚急性甲状腺炎： 这类问题多在感冒、咽痛1~2周后出现，典型表现为颈部明显疼痛，按压耳后、下颌区域时痛感会加重，部分人还会在午后、夜间出现不明原因的低热。
 
-目前，SBTI测试的信效度并未得到广泛认可的学术验证。
+提醒：仅出现一两种轻微不适，不必过度焦虑。
 
-” 在效度方面，SBTI测试的“类型划分”过于绝对化，忽略了人格的连续性与复杂性。
+但如果多种症状同时出现，与日常状态差异极大，尤其是颈部出现肿块、伴随疼痛不适时，一定要及时就医检查。
 
 ## 相关推荐
 
-- 2026-06-30 07:26 - [张雪的一句“是我们”引发岛内热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
-- 2026-06-30 07:47 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
-- 2026-06-30 07:41 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-30 07:52 - [索马里女大使：想和中国一起搞事业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-30 07:31 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-30 07:32 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
-- 2026-06-30 07:49 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
-- 2026-06-30 07:31 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-30 07:29 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
-- 2026-06-30 07:39 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
+- 2026-06-30 07:51 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-30 07:54 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
+- 2026-06-30 07:32 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-30 07:38 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-30 07:54 - [王楚钦孙颖莎晋级混双八强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-30 07:49 - [武磊：巴西队赢的并不轻松](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-30 07:59 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-30 07:59 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-30 07:36 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-30 07:36 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-30 07:53 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-30 07:51 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
+- 2026-06-30 07:39 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:53 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/89517.shtml)
-- 2026-06-30 07:41 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/9249990.shtml)
-- 2026-06-30 07:28 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/219634.shtml)
-- 2026-06-30 07:40 - [内马尔中场休息积极鼓励队友](https://www.share.minike.top/Article/details/55175008.shtml)
-- 2026-06-30 07:51 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](http://www.share.minike.top/Article/details/832592.shtml)
-- 2026-06-30 07:45 - [杨紫获白玉兰视后争议不止](http://www.share.minike.top/Article/details/76761214.shtml)
-- 2026-06-30 07:43 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.minike.top/Article/details/78209906451.shtml)
-- 2026-06-30 07:33 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.kurohicncr.top/Article/details/4681341947.shtml)
-- 2026-06-30 07:34 - [扬名立万](https://www.blog.minike.top/Article/details/4897308.shtml)
-- 2026-06-30 07:49 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/93463.shtml)
-- 2026-06-30 07:45 - [刘宇宁高情商化解谁站C位](http://www.blog.minike.top/Article/details/6582128584.shtml)
-- 2026-06-30 07:26 - [如果有二次元高中是什么样子的？](http://www.blog.kurohicncr.top/Article/details/56591609.shtml)
-- 2026-06-30 07:43 - [如果有二次元高中是什么样子的？](http://www.share.minike.top/Article/details/758157.shtml)
-- 2026-06-30 07:35 - [德国巴拉圭进入点球大战](https://www.blog.kurohicncr.top/Article/details/00294746080.shtml)
-- 2026-06-30 07:25 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/420253754171.shtml)
+- 2026-06-30 07:49 - [本届世界杯已有5名球员被控强奸](https://www.share.minike.top/Article/details/375919601043.shtml)
+- 2026-06-30 07:37 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/571256.shtml)
+- 2026-06-30 07:47 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/4182817130.shtml)
+- 2026-06-30 07:52 - [本届世界杯已有5名球员被控强奸](https://www.share.minike.top/Article/details/24607.shtml)
+- 2026-06-30 07:50 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/39729991834.shtml)
+- 2026-06-30 07:51 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/455122.shtml)
+- 2026-06-30 07:37 - [高质量发展看新疆](http://www.blog.minike.top/Article/details/3936267249.shtml)
+- 2026-06-30 07:33 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/76841149891.shtml)
+- 2026-06-30 07:58 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/04386156.shtml)
+- 2026-06-30 07:32 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/121373777317.shtml)
+- 2026-06-30 07:35 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/79746786586.shtml)
+- 2026-06-30 07:38 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/14924240.shtml)
+- 2026-06-30 07:32 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/877218089669.shtml)
+- 2026-06-30 07:54 - [警犬“多多”助民警寻回失联老人](https://www.share.minike.top/Article/details/211125542.shtml)
+- 2026-06-30 07:46 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/78918740181.shtml)

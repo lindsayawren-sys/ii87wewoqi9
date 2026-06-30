@@ -1,61 +1,60 @@
-# 湖北警方公布一批非正规途径访问境外网站案件
+# 4月末社融存量同比增7.8%，贷款增速放缓，释放哪些信号？
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-中新网武汉4月14日电 (记者 武一力)湖北省公安厅14日公布一批通过非正规渠道链接国际互联网引发的典型违法犯罪案例，提醒广大网民筑牢网络安全屏障。 去年9月，某高校学生李某在视频平台被一则声称“轻松月入百万元”的招聘广告吸引。“招聘方”向他提供一款境外聊天软件进一步联系，并承诺只要协助边境走私，一单就能获利五六万元。 在对方诱导下，李某乘坐飞机到达广西南宁，翻越边境铁丝网偷渡
+每经记者|张寿林 每经编辑|陈俊杰 5月14日，人民银行披露金融统计数据。从增量看，初步统计，2026年前四个月社会融资规模增量累计为15.45万亿元，比上年同期少8930亿元。其中，对实体经济发放的人民币贷款增加8.5万亿元。 从存量看，初步统计，2026年4月末社会融资规模存量为456.89万亿元，同比增长7.8%。其中，对实体经济发放的人民币贷款余额276.9万亿元，同比
 
 ## 正文
 
-中新网武汉4月14日电 (记者 武一力)湖北省公安厅14日公布一批通过非正规渠道链接国际互联网引发的典型违法犯罪案例，提醒广大网民筑牢网络安全屏障。
+每经记者|张寿林 每经编辑|陈俊杰 5月14日，人民银行披露金融统计数据。
 
-去年9月，某高校学生李某在视频平台被一则声称“轻松月入百万元”的招聘广告吸引。
+从增量看，初步统计，2026年前四个月社会融资规模增量累计为15.45万亿元，比上年同期少8930亿元。
 
-“招聘方”向他提供一款境外聊天软件进一步联系，并承诺只要协助边境走私，一单就能获利五六万元。
+其中，对实体经济发放的人民币贷款增加8.5万亿元。
 
-在对方诱导下，李某乘坐飞机到达广西南宁，翻越边境铁丝网偷渡出境，手机、身份证立即被没收。
+从存量看，初步统计，2026年4月末社会融资规模存量为456.89万亿元，同比增长7.8%。
 
-警方接到李某家属报警后，迅速锁定其大概位置，帮助他回到中国。
+其中，对实体经济发放的人民币贷款余额276.9万亿元，同比增长5.6%，环比下滑0.2个百分点。
 
-去年10月，某反诈中心民警发现居民陈女士有大额取现行为。
+东方金诚王青、李晓峰、冯琳联合解读，当前货币金融的重点是做好五篇大文章，估测4月末科技贷款、绿色贷款、普惠贷款、养老产业贷款、数字经济产业贷款余额还会保持两位数高增，企业贷款成本也将延续下行势头。
 
-经调查，陈女士在网上结识一名“理财导师”，对方称自己在做海外投资，并发来盈利截图。
+整体而言，当前金融数据呈现总量趋稳、结构向优、价格下降的态势。
 
-陈女士按照对方要求登录某境外投资平台并注册账户，并在银行取出11万元现金，打算把这笔钱放到对方指定的地点，完成“平台充值”。
+央行数据显示，4月末，对实体经济发放的人民币贷款余额276.9万亿元，同比增长5.6%，环比下滑0.2个百分点。
 
 ## 相关推荐
 
-- 2026-06-30 07:30 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-30 07:36 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-30 07:50 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-30 07:47 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
-- 2026-06-30 07:37 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
-- 2026-06-30 07:35 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-30 07:33 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
-- 2026-06-30 07:31 - [张雪的一句“是我们”引发岛内热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
-- 2026-06-30 07:39 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-30 07:39 - [德国淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
-- 2026-06-30 07:33 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-30 07:41 - [恋与深空道歉声明](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-30 07:33 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-30 07:32 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-30 07:52 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
+- 2026-06-30 07:48 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-30 07:37 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-30 07:40 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-30 07:32 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-30 07:53 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-30 07:44 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-30 07:30 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-30 07:52 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
+- 2026-06-30 07:30 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-30 07:41 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
+- 2026-06-30 07:32 - [郑钦文温网一轮游](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-30 07:38 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-30 07:31 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-30 07:55 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:36 - [男子醉酒溺水获救后同行人拒协助抬人](http://www.blog.minike.top/Article/details/35240.shtml)
-- 2026-06-30 07:43 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/830180712778.shtml)
-- 2026-06-30 07:42 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/971324616499.shtml)
-- 2026-06-30 07:38 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/06374.shtml)
-- 2026-06-30 07:24 - [德国队世界杯点球大战首败](http://www.share.minike.top/Article/details/77531930.shtml)
-- 2026-06-30 07:30 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/0807015.shtml)
-- 2026-06-30 07:25 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/14474278.shtml)
-- 2026-06-30 07:25 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/6841679.shtml)
-- 2026-06-30 07:26 - [巴拉圭先进球了](https://www.blog.minike.top/Article/details/84011602.shtml)
-- 2026-06-30 07:41 - [庆祝中国共产党成立105周年大会将举行](http://www.share.minike.top/Article/details/669772.shtml)
-- 2026-06-30 07:31 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/25268.shtml)
-- 2026-06-30 07:37 - [又一家县级医院关停门诊输液大厅](https://www.share.minike.top/Article/details/7389800.shtml)
-- 2026-06-30 07:45 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/75907.shtml)
-- 2026-06-30 07:49 - [扫黑风暴](https://www.blog.minike.top/Article/details/9478574575.shtml)
-- 2026-06-30 07:42 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/072830.shtml)
+- 2026-06-30 07:52 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/455607552.shtml)
+- 2026-06-30 07:57 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/507617801.shtml)
+- 2026-06-30 07:32 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/194027504.shtml)
+- 2026-06-30 07:46 - [巴西2比1日本](https://www.blog.minike.top/Article/details/463166.shtml)
+- 2026-06-30 07:36 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/772774.shtml)
+- 2026-06-30 07:41 - [吴易昺不敌德约科维奇 止步温网首轮](https://www.share.kurohicncr.top/Article/details/840330425.shtml)
+- 2026-06-30 07:56 - [王灿兮被烫伤两年后维权成功](http://www.share.minike.top/Article/details/411973173.shtml)
+- 2026-06-30 07:40 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/1113382.shtml)
+- 2026-06-30 07:40 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/51268506.shtml)
+- 2026-06-30 07:35 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/41318155.shtml)
+- 2026-06-30 07:52 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/5744935714.shtml)
+- 2026-06-30 07:31 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/820755.shtml)
+- 2026-06-30 07:51 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.kurohicncr.top/Article/details/2832211.shtml)
+- 2026-06-30 07:40 - [德国巴拉圭 折磨](https://www.blog.minike.top/Article/details/89764804326.shtml)
+- 2026-06-30 07:36 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.minike.top/Article/details/50221.shtml)

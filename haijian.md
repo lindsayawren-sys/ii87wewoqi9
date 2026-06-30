@@ -1,61 +1,60 @@
-# 美国3月生产者价格涨幅低于预期 尽管战争相关的能源成本飙升
+# 退保“降温”明显！一季度九成险企综合退保率低于1%
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-尽管与伊朗战争相关的能源成本大幅上升，美国3月批发价格涨幅仍低于预期。 美国劳工统计局周二公布的数据显示，3月生产者价格指数环比上涨0.5%，2月升幅经修正后也是0.5%。剔除食品和能源的核心指标仅上涨0.1%。 这项生产者价格数据公布前，上周公布的数据显示，美国3月消费者价格因汽油价格飙升而上涨，但核心通胀低于预期。对消费者而言，当前最初的影响主要仍局限于能源领域；但未来数月
+综合退保率是评估人身险公司现金流情况的重要指标，也是衡量保险公司业务质量的关键窗口。5月13日，北京商报记者梳理70家人身险公司的综合退保率数据发现，今年一季度，人身险行业退保情况总体趋稳，行业综合退保率优化明显。不仅多数公司的综合退保率降至1%以下的低位，全行业均值更是降至0.59%的低位。这一数据背后，折射出行业经营逻辑、消费者行为以及宏观环境的深层次变化。 综合退保率优化
 
 ## 正文
 
-尽管与伊朗战争相关的能源成本大幅上升，美国3月批发价格涨幅仍低于预期。
+综合退保率是评估人身险公司现金流情况的重要指标，也是衡量保险公司业务质量的关键窗口。
 
-美国劳工统计局周二公布的数据显示，3月生产者价格指数环比上涨0.5%，2月升幅经修正后也是0.5%。
+5月13日，北京商报记者梳理70家人身险公司的综合退保率数据发现，今年一季度，人身险行业退保情况总体趋稳，行业综合退保率优化明显。
 
-剔除食品和能源的核心指标仅上涨0.1%。
+不仅多数公司的综合退保率降至1%以下的低位，全行业均值更是降至0.59%的低位。
 
-这项生产者价格数据公布前，上周公布的数据显示，美国3月消费者价格因汽油价格飙升而上涨，但核心通胀低于预期。
+这一数据背后，折射出行业经营逻辑、消费者行为以及宏观环境的深层次变化。
 
-对消费者而言，当前最初的影响主要仍局限于能源领域；但未来数月，随着战争对生产和航运造成扰动，企业可能面临更广泛工业投入品成本上升的压力。
+综合退保率优化 综合退保率是保险行业高度关注的指标，它不仅反映了消费者对产品的持有信心，更直接关系到险企的资产负债匹配与流动性安全。
 
-美国劳工统计局表示，汽油价格近16%的涨幅占商品价格涨幅的近一半，而商品价格涨幅创下2023年8月以来的最高。
+据北京商报记者不完全统计，目前已经披露一季度偿付能力报告的人身险公司中，70家险企披露了综合退保率指标，整体来看，行业的退保率情况来到了低位。
 
-尽管运输和仓储成本大幅上涨，但服务价格基本持平。
+数据显示，这70家公司的综合退保率平均值为0.59%，去年同期为0.8%；中位数为0.48%，去年同期为0.55%，两项指标优化明显。
 
-责任编辑：陈钰嘉
+更值得注意的是，一季度共有63家险企的综合退保率保持在1%以内，占比高达90%；另有6家险企综合退保率控制在1%—2%之间。
 
 ## 相关推荐
 
-- 2026-06-30 07:49 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-30 07:31 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
-- 2026-06-30 07:43 - [德国进球被吹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-30 07:37 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-30 07:52 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-30 07:44 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
-- 2026-06-30 07:41 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-30 07:42 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-30 07:41 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
-- 2026-06-30 07:37 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-30 07:34 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-30 07:45 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-30 07:33 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-30 07:48 - [库尼亚赛后伸五指嘲讽日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-30 07:27 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-30 07:57 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-30 07:41 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-30 07:40 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-30 07:51 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-30 07:50 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-30 07:47 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-30 07:31 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-30 07:36 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-30 07:52 - [感动全网的699分女生想报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-30 07:44 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-30 07:30 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-30 07:35 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-30 07:58 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-30 07:32 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:49 - [人类...完蛋了...](https://www.blog.minike.top/Article/details/017144688520.shtml)
-- 2026-06-30 07:54 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/9700821.shtml)
-- 2026-06-30 07:24 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/878045723.shtml)
-- 2026-06-30 07:35 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.minike.top/Article/details/684321478.shtml)
-- 2026-06-30 07:33 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/17344700107.shtml)
-- 2026-06-30 07:49 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/637513578.shtml)
-- 2026-06-30 07:39 - [德国淘汰](https://www.share.kurohicncr.top/Article/details/78585729.shtml)
-- 2026-06-30 07:42 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/925418.shtml)
-- 2026-06-30 07:52 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/46387241.shtml)
-- 2026-06-30 07:34 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/26922165558.shtml)
-- 2026-06-30 07:36 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/6528412854.shtml)
-- 2026-06-30 07:42 - [巴西vs日本首发名单](http://www.share.minike.top/Article/details/0567702201.shtml)
-- 2026-06-30 07:37 - [穆祉丞年度人气艺人](https://www.share.kurohicncr.top/Article/details/69818485441.shtml)
-- 2026-06-30 07:52 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/66455123.shtml)
-- 2026-06-30 07:33 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/2834576.shtml)
+- 2026-06-30 07:51 - [巴西扳平比分](http://www.blog.minike.top/Article/details/514343916579.shtml)
+- 2026-06-30 07:57 - [日本领先巴西](http://www.blog.kurohicncr.top/Article/details/3867291.shtml)
+- 2026-06-30 07:30 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/716171174.shtml)
+- 2026-06-30 07:49 - [吴易昺不敌德约科维奇 止步温网首轮](https://www.blog.minike.top/Article/details/415664.shtml)
+- 2026-06-30 07:46 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/83220210902.shtml)
+- 2026-06-30 07:52 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/707434407193.shtml)
+- 2026-06-30 07:34 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/8301183.shtml)
+- 2026-06-30 07:41 - [本科毕业生为何涌入专科学校](https://www.blog.minike.top/Article/details/214655286.shtml)
+- 2026-06-30 07:30 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.minike.top/Article/details/842053.shtml)
+- 2026-06-30 07:35 - [德国4比5巴拉圭](http://www.share.minike.top/Article/details/159387744226.shtml)
+- 2026-06-30 07:30 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/153998988.shtml)
+- 2026-06-30 07:59 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/23564905.shtml)
+- 2026-06-30 07:54 - [德国巴拉圭进入点球大战](http://www.share.kurohicncr.top/Article/details/06783512.shtml)
+- 2026-06-30 07:57 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/40891089402.shtml)
+- 2026-06-30 07:47 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/41440.shtml)

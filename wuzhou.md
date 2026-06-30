@@ -1,48 +1,60 @@
-# 伊朗国防部：美方军事干预霍尔木兹海峡的企图将失败
+# 一见·从世界期待中，感受中美元首外交的分量
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-当地时间13日，伊朗国防部发言人表示，美国总统特朗普任何军事干预霍尔木兹海峡和阿曼湾的企图都将失败。 责任编辑：丁文武
+应中国国家主席习近平邀请，美国总统特朗普于5月13日至15日对中国进行国事访问。 时隔9年，美国总统再次访华。中美关系史上的又一重要时刻，迅速吸引全球媒体的聚光灯。 中美关系，当今世界最重要的双边关系之一。太平洋两岸的这两个大国如何相处，事关国际局势走向。而元首外交，始终是中美关系的“定盘星”。从这个角度，更能看到全球目光聚焦北京凝聚的分量。 对中美关系而言，元首外交具有不可替
 
 ## 正文
 
-当地时间13日，伊朗国防部发言人表示，美国总统特朗普任何军事干预霍尔木兹海峡和阿曼湾的企图都将失败。
+应中国国家主席习近平邀请，美国总统特朗普于5月13日至15日对中国进行国事访问。
 
-责任编辑：丁文武
+时隔9年，美国总统再次访华。
+
+中美关系史上的又一重要时刻，迅速吸引全球媒体的聚光灯。
+
+中美关系，当今世界最重要的双边关系之一。
+
+太平洋两岸的这两个大国如何相处，事关国际局势走向。
+
+而元首外交，始终是中美关系的“定盘星”。
+
+从这个角度，更能看到全球目光聚焦北京凝聚的分量。
+
+对中美关系而言，元首外交具有不可替代的战略引领作用。
 
 ## 相关推荐
 
-- 2026-06-30 07:50 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
-- 2026-06-30 07:33 - [齐思钧回复张月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-30 07:36 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-30 07:37 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-30 07:37 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-30 07:29 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
-- 2026-06-30 07:45 - [安切洛蒂 换人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-30 07:41 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-30 07:50 - [巴拉圭先进球了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
-- 2026-06-30 07:48 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-30 07:30 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-30 07:28 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-30 07:32 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-30 07:45 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-30 07:47 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-30 07:40 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-30 07:48 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-30 07:31 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
+- 2026-06-30 07:47 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-30 07:45 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-30 07:53 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-30 07:50 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-30 07:56 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-30 07:38 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-30 07:36 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-30 07:54 - [周冬雨多次说演不了话剧文城](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-30 07:47 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
+- 2026-06-30 07:43 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:30 - [曝詹姆斯即将与勇士会面](http://www.share.minike.top/Article/details/87752064747.shtml)
-- 2026-06-30 07:52 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/04538729600.shtml)
-- 2026-06-30 07:30 - [世界杯巴拉圭点球淘汰德国](http://www.share.kurohicncr.top/Article/details/32575213.shtml)
-- 2026-06-30 07:37 - [张雪的一句“是我们”引发岛内热议](http://www.share.minike.top/Article/details/234185384587.shtml)
-- 2026-06-30 07:51 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](http://www.blog.kurohicncr.top/Article/details/63990.shtml)
-- 2026-06-30 07:43 - [严浩翔张峻豪师兄弟同台](http://www.blog.minike.top/Article/details/7228544.shtml)
-- 2026-06-30 07:30 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/420464883713.shtml)
-- 2026-06-30 07:24 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/164731626074.shtml)
-- 2026-06-30 07:39 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/596680.shtml)
-- 2026-06-30 07:51 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/4201029.shtml)
-- 2026-06-30 07:39 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/54067.shtml)
-- 2026-06-30 07:37 - [巴西醒醒 这是淘汰赛](https://www.blog.minike.top/Article/details/1984683.shtml)
-- 2026-06-30 07:48 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.kurohicncr.top/Article/details/384826.shtml)
-- 2026-06-30 07:38 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/309639.shtml)
-- 2026-06-30 07:31 - [AI手机进入Agent时代](http://www.share.minike.top/Article/details/74737724.shtml)
+- 2026-06-30 07:34 - [男子身高一米八二仍做断骨增高](https://www.blog.kurohicncr.top/Article/details/18911699.shtml)
+- 2026-06-30 07:37 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/25527518117.shtml)
+- 2026-06-30 07:50 - [巴西2比1日本](http://www.blog.kurohicncr.top/Article/details/42136.shtml)
+- 2026-06-30 07:39 - [老外对中国cosplay竟这样评价…](https://www.blog.minike.top/Article/details/570151.shtml)
+- 2026-06-30 07:53 - [这一刀 会很帅](https://www.share.minike.top/Article/details/099579329041.shtml)
+- 2026-06-30 07:42 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/3208484175.shtml)
+- 2026-06-30 07:40 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.kurohicncr.top/Article/details/45470544.shtml)
+- 2026-06-30 07:33 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/52716676.shtml)
+- 2026-06-30 07:54 - [《共患难》](https://www.share.minike.top/Article/details/52972536268.shtml)
+- 2026-06-30 07:58 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/77962.shtml)
+- 2026-06-30 07:50 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/12078529460.shtml)
+- 2026-06-30 07:49 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/2158501030.shtml)
+- 2026-06-30 07:58 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/89467.shtml)
+- 2026-06-30 07:48 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/27050.shtml)
+- 2026-06-30 07:41 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/4216278558.shtml)

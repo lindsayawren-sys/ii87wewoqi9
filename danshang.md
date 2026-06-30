@@ -1,57 +1,51 @@
-# 霍尼韦尔将为里奥格兰德LNG扩建项目提供液化技术
+# 浙江华远：公司于2025年3月27日成功在深圳证券交易所创业板挂牌上市
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-霍尼韦尔已获得一份合同，将为其液化技术和设备，这些设备将用于NextDecade位于得克萨斯州的里奥格兰德LNG项目的新增生产线。 该协议是与工程、采购和施工承包商Bechtel Energy签署的，涵盖位于布朗斯维尔的4号和5号生产线。 霍尼韦尔将提供其绕管式换热器设备和C3MR液化工艺技术，旨在优化生产、提高可靠性并降低运营成本。 该公司的技术已在该项目的前三条液化生产线上
+证券日报网5月13日讯，浙江华远在接受调研者提问时表示，在股本结构方面，公司目前注册资本为人民币425，294，118.00元，对应总股本同样为425，294，118股，每股面值1元。其中，有限售条件的流通A股为255，498，000股，无限售条件的流通A股为169，796，118股。至于资本市场进展，这是公司2025年的高光时刻：我们的IPO申请于2023年3月通过深交所上市
 
 ## 正文
 
-霍尼韦尔已获得一份合同，将为其液化技术和设备，这些设备将用于NextDecade位于得克萨斯州的里奥格兰德LNG项目的新增生产线。
+证券日报网5月13日讯，浙江华远在接受调研者提问时表示，在股本结构方面，公司目前注册资本为人民币425，294，118.00元，对应总股本同样为425，294，118股，每股面值1元。
 
-该协议是与工程、采购和施工承包商Bechtel Energy签署的，涵盖位于布朗斯维尔的4号和5号生产线。
+其中，有限售条件的流通A股为255，498，000股，无限售条件的流通A股为169，796，118股。
 
-霍尼韦尔将提供其绕管式换热器设备和C3MR液化工艺技术，旨在优化生产、提高可靠性并降低运营成本。
-
-该公司的技术已在该项目的前三条液化生产线上使用。
-
-新增两条生产线预计将使里奥格兰德LNG的总液化产能提高超过66%，从每年1800万吨增至每年3000万吨。
-
-全部五条生产线预计将于2031年中期前投入运营。
-
-霍尼韦尔天然气与液化天然气业务总裁克里斯蒂娜·安德森补充道：“随着能源需求的增长，液化天然气将继续在满足这一需求和支持全球能源安全方面发挥重要作用。
-
-霍尼韦尔可扩展、可定制的技术帮助生产商优化设施性能和效率，我们与客户密切合作，提供满足其各自目标的解决方案。
+至于资本市场进展，这是公司2025年的高光时刻：我们的IPO申请于2023年3月通过深交所上市委审议，并在2024年12月获得证监会注册批文，最终于2025年3月27日成功在深圳证券交易所创业板挂牌上市，正式开启了资本市场的征程。
 
 ## 相关推荐
 
-- 2026-06-30 07:39 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-30 07:25 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-30 07:40 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-30 07:32 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
-- 2026-06-30 07:25 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
-- 2026-06-30 07:43 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-30 07:35 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-30 07:27 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-30 07:24 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-30 07:40 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
-- 2026-06-30 07:43 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-30 07:50 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-30 07:30 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-30 07:53 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-30 07:31 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-30 07:31 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
+- 2026-06-30 07:43 - [德国淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-30 07:56 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-30 07:50 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-30 07:39 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-30 07:43 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
+- 2026-06-30 07:45 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-30 07:33 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-30 07:36 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-30 07:44 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-30 07:45 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:49 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/74934308.shtml)
-- 2026-06-30 07:50 - [电影《后室》讲了一个什么故事？](http://www.share.minike.top/Article/details/86317268173.shtml)
-- 2026-06-30 07:46 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/98034.shtml)
-- 2026-06-30 07:32 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/992691.shtml)
-- 2026-06-30 07:44 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/308292.shtml)
-- 2026-06-30 07:25 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.kurohicncr.top/Article/details/346091796404.shtml)
-- 2026-06-30 07:42 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](http://www.blog.minike.top/Article/details/63434903.shtml)
-- 2026-06-30 07:41 - [浪姐成团夜爆笑吐槽](http://www.blog.kurohicncr.top/Article/details/311531575876.shtml)
-- 2026-06-30 07:32 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/71523000894.shtml)
-- 2026-06-30 07:36 - [南北多地暴雨和强对流天气持续](https://www.share.kurohicncr.top/Article/details/1405436461.shtml)
-- 2026-06-30 07:40 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/49193073940.shtml)
-- 2026-06-30 07:30 - [世界杯巴拉圭点球淘汰德国](http://www.blog.kurohicncr.top/Article/details/07930242.shtml)
-- 2026-06-30 07:32 - [急先锋](http://www.share.kurohicncr.top/Article/details/6875947267.shtml)
-- 2026-06-30 07:46 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](http://www.blog.minike.top/Article/details/17739259.shtml)
-- 2026-06-30 07:47 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/4496158623.shtml)
+- 2026-06-30 07:56 - [王楚钦孙颖莎晋级混双八强](https://www.share.minike.top/Article/details/6154823668.shtml)
+- 2026-06-30 07:56 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.minike.top/Article/details/24168887854.shtml)
+- 2026-06-30 07:52 - [世界杯](https://www.share.minike.top/Article/details/99177973911.shtml)
+- 2026-06-30 07:32 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/034372190.shtml)
+- 2026-06-30 07:32 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.minike.top/Article/details/3504366156.shtml)
+- 2026-06-30 07:40 - [日本16强魔咒](https://www.blog.kurohicncr.top/Article/details/50065.shtml)
+- 2026-06-30 07:51 - [美股](http://www.share.minike.top/Article/details/79272962617.shtml)
+- 2026-06-30 07:43 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/549236.shtml)
+- 2026-06-30 07:51 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/769015.shtml)
+- 2026-06-30 07:57 - [爱很美味](https://www.share.kurohicncr.top/Article/details/29545574279.shtml)
+- 2026-06-30 07:44 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/77683920832.shtml)
+- 2026-06-30 07:50 - [网红峡谷5人溺亡 有人提醒会下雨](https://www.blog.minike.top/Article/details/622162001121.shtml)
+- 2026-06-30 07:39 - [周冬雨多次说演不了话剧文城](http://www.blog.minike.top/Article/details/67792.shtml)
+- 2026-06-30 07:58 - [毒液2](https://www.blog.kurohicncr.top/Article/details/548243.shtml)
+- 2026-06-30 07:36 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/7004259.shtml)

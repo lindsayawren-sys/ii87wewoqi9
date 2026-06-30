@@ -1,56 +1,60 @@
-# 春到黄河“几”字弯
+# 瑞典殷拓集团拟斥资94亿英镑收购英国天祥集团
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-中新网巴彦淖尔4月13日电 题：春到黄河“几”字弯 中新网记者 张林虎 春回河套，黄河冰消。地处黄河“几”字弯的内蒙古自治区巴彦淖尔市，正迎来一年中最忙碌的春播时节。不过，这里的春播不只在田垄之间，也在水面之下、大棚之内。 盐碱池里育“蒙蟹” 这几天，杭锦后旗二道桥镇南小召渔场格外热闹。工人们围在标准化养殖池塘边，将一箱箱蟹苗轻轻倾倒，水花溅起，小蟹迅速四散游开。 “今年3个基
+当地时间13日，英国产品测试与认证机构天祥集团（Intertek）发布声明称，在多次以估值过低为由拒绝前期报价后，该公司目前倾向于接受瑞典私募股权公司殷拓集团（EQT）提出的94亿英镑（约合127.2亿美元）收购要约。 根据最新提出的收购方案，殷拓集团将向天祥集团股东支付每股60英镑的现金，并派发1.1英镑的年度股息。这一报价较4月15日（即殷拓集团首次公开收购意向的前一日）的
 
 ## 正文
 
-中新网巴彦淖尔4月13日电 题：春到黄河“几”字弯 中新网记者 张林虎 春回河套，黄河冰消。
+当地时间13日，英国产品测试与认证机构天祥集团（Intertek）发布声明称，在多次以估值过低为由拒绝前期报价后，该公司目前倾向于接受瑞典私募股权公司殷拓集团（EQT）提出的94亿英镑（约合127.2亿美元）收购要约。
 
-地处黄河“几”字弯的内蒙古自治区巴彦淖尔市，正迎来一年中最忙碌的春播时节。
+根据最新提出的收购方案，殷拓集团将向天祥集团股东支付每股60英镑的现金，并派发1.1英镑的年度股息。
 
-不过，这里的春播不只在田垄之间，也在水面之下、大棚之内。
+这一报价较4月15日（即殷拓集团首次公开收购意向的前一日）的收盘价溢价约40%。
 
-盐碱池里育“蒙蟹” 这几天，杭锦后旗二道桥镇南小召渔场格外热闹。
+天祥集团指出，为配合殷拓集团开展确认性尽职调查，目前已暂停其内部的战略评估工作。
 
-工人们围在标准化养殖池塘边，将一箱箱蟹苗轻轻倾倒，水花溅起，小蟹迅速四散游开。
+据悉，该项战略评估此前旨在探讨将集团分拆为两家独立企业的可行性。
 
-“今年3个基地一共要放5.3万斤蟹苗，总计300万只。
+天祥集团同时强调，目前尚无法确保双方最终能达成实质性收购。
 
-”负责人王栋蹲在池边，指着水里隐约可见的小蟹说，“到9月中旬，这批螃蟹就能成熟上市了。
+根据相关监管规定，殷拓集团必须在6月11日前宣布确定的正式收购意向，或者宣布放弃收购计划。
 
-” 王栋说的“三个基地”，分布在该旗二道桥镇、沙海镇和蒙海镇，共计1500亩养殖水面。
+责任编辑：龙运翔
 
 ## 相关推荐
 
-- 2026-06-30 07:40 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
-- 2026-06-30 07:42 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-30 07:38 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-30 07:31 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-30 07:30 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-30 07:39 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-30 07:48 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
-- 2026-06-30 07:40 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-30 07:30 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-30 07:25 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-30 07:55 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-30 07:33 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-30 07:37 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-30 07:31 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-30 07:37 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-30 07:51 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-30 07:53 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-30 07:33 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
+- 2026-06-30 07:47 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-30 07:49 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-30 07:31 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-30 07:34 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-30 07:41 - [田中碧失误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-30 07:37 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:38 - [德国淘汰](https://www.blog.kurohicncr.top/Article/details/7180646.shtml)
-- 2026-06-30 07:36 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/016617.shtml)
-- 2026-06-30 07:47 - [藤森庆子赢得秘鲁总统选举](http://www.share.minike.top/Article/details/4107581.shtml)
-- 2026-06-30 07:47 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.share.kurohicncr.top/Article/details/553438890.shtml)
-- 2026-06-30 07:24 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/70987499991.shtml)
-- 2026-06-30 07:42 - [又一家县级医院关停门诊输液大厅](http://www.share.minike.top/Article/details/85555388.shtml)
-- 2026-06-30 07:29 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/543528.shtml)
-- 2026-06-30 07:38 - [问心2神一集鬼三集](http://www.blog.minike.top/Article/details/70702.shtml)
-- 2026-06-30 07:50 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.kurohicncr.top/Article/details/1084828940.shtml)
-- 2026-06-30 07:36 - [曝灰熊将莫兰特交易至开拓者](http://www.share.minike.top/Article/details/05139.shtml)
-- 2026-06-30 07:50 - [德国队连续三届世界杯无缘16强](https://www.share.minike.top/Article/details/88001.shtml)
-- 2026-06-30 07:36 - [一生一世](https://www.share.minike.top/Article/details/649431.shtml)
-- 2026-06-30 07:49 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/23632.shtml)
-- 2026-06-30 07:44 - [警犬“多多”助民警寻回失联老人](https://www.share.minike.top/Article/details/009573407.shtml)
-- 2026-06-30 07:31 - [德国巴拉圭 折磨](http://www.blog.minike.top/Article/details/4959442478.shtml)
+- 2026-06-30 07:40 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/71781895360.shtml)
+- 2026-06-30 07:59 - [上市央企地产商 两年换了三任董事长](http://www.share.kurohicncr.top/Article/details/631978127.shtml)
+- 2026-06-30 07:34 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/4013522054.shtml)
+- 2026-06-30 07:51 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/65655382.shtml)
+- 2026-06-30 07:41 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/3561734.shtml)
+- 2026-06-30 07:43 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/2261645.shtml)
+- 2026-06-30 07:39 - [扬名立万](https://www.blog.minike.top/Article/details/798831986075.shtml)
+- 2026-06-30 07:58 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.minike.top/Article/details/495029018.shtml)
+- 2026-06-30 07:56 - [王欣瑜2-1击败科恰雷托](http://www.blog.minike.top/Article/details/7728209697.shtml)
+- 2026-06-30 07:31 - [湖南祁东原文化馆被指贱卖](http://www.blog.kurohicncr.top/Article/details/60058976.shtml)
+- 2026-06-30 07:54 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/27053435.shtml)
+- 2026-06-30 07:36 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/7397316.shtml)
+- 2026-06-30 07:42 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/91813361.shtml)
+- 2026-06-30 07:55 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/3119013.shtml)
+- 2026-06-30 07:34 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/30612.shtml)

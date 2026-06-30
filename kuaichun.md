@@ -1,49 +1,56 @@
-# 国务院任免国家工作人员
+# 午盘：道指跌逾200点 纳指上涨0.8%
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-中新网4月14日电 据人社部网站消息，国务院任免国家工作人员。 任命赵文芳为国家铁路局副局长。 免去孙卫东的外交部副部长职务；免去安路生的国家铁路局副局长职务。
+北京时间5月14日凌晨，美股周三午盘走势分化，道指下跌逾200点。芯片股上涨带动纳指走高。美国4月PPI同比飙升6%，创2022年以来最大涨幅，显示美国通胀压力升温。PPI报告后美债收益率升至10个月高位。 道指跌228.45点，跌幅为0.46%，报49532.11点；纳指涨215.93点，涨幅为0.83%，报26304.13点；标普500指数涨23.57点，涨幅为0.32%，
 
 ## 正文
 
-中新网4月14日电 据人社部网站消息，国务院任免国家工作人员。
+北京时间5月14日凌晨，美股周三午盘走势分化，道指下跌逾200点。
 
-任命赵文芳为国家铁路局副局长。
+芯片股上涨带动纳指走高。
 
-免去孙卫东的外交部副部长职务；免去安路生的国家铁路局副局长职务。
+美国4月PPI同比飙升6%，创2022年以来最大涨幅，显示美国通胀压力升温。
+
+PPI报告后美债收益率升至10个月高位。
+
+道指跌228.45点，跌幅为0.46%，报49532.11点；纳指涨215.93点，涨幅为0.83%，报26304.13点；标普500指数涨23.57点，涨幅为0.32%，报7424.53点。
+
+科技股表现优于市场其他板块，而因伊朗战争导致的能源价格上涨所引发的通胀担忧，对零售和银行等其他板块构成了压力。
+
+英伟达股价上涨超过1%。
+
+AMD上涨1%，美光科技上涨逾5%。
 
 ## 相关推荐
 
-- 2026-06-30 07:48 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-30 07:36 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-30 07:42 - [曝老詹对自由市场态度与以往截然不同](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-30 07:27 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-30 07:50 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-30 07:36 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
-- 2026-06-30 07:30 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-30 07:37 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-30 07:34 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-30 07:50 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-30 07:32 - [巴西2比1日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-30 07:31 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-30 07:37 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-30 07:53 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-30 07:42 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-30 07:32 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-30 07:48 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-30 07:57 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-30 07:40 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
+- 2026-06-30 07:36 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-30 07:42 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
+- 2026-06-30 07:58 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-30 08:00 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:38 - [巴西绝杀](http://www.share.minike.top/Article/details/68538831.shtml)
-- 2026-06-30 07:52 - [王楚钦孙颖莎晋级混双八强](http://www.share.kurohicncr.top/Article/details/434709651.shtml)
-- 2026-06-30 07:42 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/04826014.shtml)
-- 2026-06-30 07:34 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/7941564634.shtml)
-- 2026-06-30 07:39 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/2451609463.shtml)
-- 2026-06-30 07:50 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/111158130271.shtml)
-- 2026-06-30 07:29 - [张帅时隔四年再取温网正赛胜利](https://www.share.minike.top/Article/details/692952625119.shtml)
-- 2026-06-30 07:48 - [巴西2比1日本](http://www.blog.kurohicncr.top/Article/details/14960491.shtml)
-- 2026-06-30 07:31 - [张帅晋级温网次轮](https://www.blog.kurohicncr.top/Article/details/4415439039.shtml)
-- 2026-06-30 07:27 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/87236.shtml)
-- 2026-06-30 07:37 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/451172.shtml)
-- 2026-06-30 07:46 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.minike.top/Article/details/11661306.shtml)
-- 2026-06-30 07:49 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/715770.shtml)
-- 2026-06-30 07:37 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/481340.shtml)
-- 2026-06-30 07:43 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/128416.shtml)
+- 2026-06-30 07:48 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/84485.shtml)
+- 2026-06-30 07:48 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.kurohicncr.top/Article/details/064004048743.shtml)
+- 2026-06-30 07:34 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://www.blog.minike.top/Article/details/5691224.shtml)
+- 2026-06-30 07:56 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.minike.top/Article/details/9351293.shtml)
+- 2026-06-30 07:43 - [美股](https://www.blog.minike.top/Article/details/133723309839.shtml)
+- 2026-06-30 07:32 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.minike.top/Article/details/48029833721.shtml)
+- 2026-06-30 07:51 - [詹姆斯 勇士](http://www.share.kurohicncr.top/Article/details/22625.shtml)
+- 2026-06-30 07:31 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/77950394.shtml)
+- 2026-06-30 07:53 - [武磊：巴西队赢的并不轻松](https://www.blog.minike.top/Article/details/933734.shtml)
+- 2026-06-30 07:39 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/115622810618.shtml)
+- 2026-06-30 07:59 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/7355728309.shtml)
+- 2026-06-30 07:45 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/529617616359.shtml)
+- 2026-06-30 07:41 - [勇士续约波尔津吉斯](http://www.blog.kurohicncr.top/Article/details/040757573380.shtml)
+- 2026-06-30 07:31 - [张碧晨一开口梦回逐玉](http://www.share.kurohicncr.top/Article/details/4594899145.shtml)
+- 2026-06-30 07:50 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/03009444.shtml)

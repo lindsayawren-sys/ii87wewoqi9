@@ -1,59 +1,57 @@
-# 76载同心同行，中国和印尼情谊跨越山海
+# 珠江流域启动Ⅳ级应急响应
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-中新网4月13日电 2026年是中国和印度尼西亚建交76周年。1950年4月13日，两国正式建立外交关系，印尼成为最早同新中国建交的国家之一。 2026年，站在新的历史起点上，两国关系正以构建命运共同体为引领，在经贸、基建、科技、人文等领域不断结出累累硕果。一组图了解中国和印尼关系发展与友好往来历程。 七十余载的深厚情谊，为双方务实合作筑牢根基。 坚实的经贸合作，始终是中国和印
+中新网广州5月14日电 (记者 王坚)珠江防总14日17时启动防汛Ⅳ级应急响应，水利部珠江水利委员会(下称“珠江委”)同步启动洪水防御Ⅳ级应急响应。 珠江委介绍，受高空槽、切变线、偏南气流共同影响，预计14至16日，珠江流域西北部及东部仍将有强降雨过程，以大到暴雨为主，局地大暴雨，其中北盘江、红水河、珠江三角洲、东江、韩江、粤东沿海诸河等地累计雨量将有100至150毫米，局地可
 
 ## 正文
 
-中新网4月13日电 2026年是中国和印度尼西亚建交76周年。
+中新网广州5月14日电 (记者 王坚)珠江防总14日17时启动防汛Ⅳ级应急响应，水利部珠江水利委员会(下称“珠江委”)同步启动洪水防御Ⅳ级应急响应。
 
-1950年4月13日，两国正式建立外交关系，印尼成为最早同新中国建交的国家之一。
+珠江委介绍，受高空槽、切变线、偏南气流共同影响，预计14至16日，珠江流域西北部及东部仍将有强降雨过程，以大到暴雨为主，局地大暴雨，其中北盘江、红水河、珠江三角洲、东江、韩江、粤东沿海诸河等地累计雨量将有100至150毫米，局地可能超过200毫米。
 
-2026年，站在新的历史起点上，两国关系正以构建命运共同体为引领，在经贸、基建、科技、人文等领域不断结出累累硕果。
+珠江委表示，受强降雨影响，西江上游、东江、韩江等主要河流将出现明显涨水过程，暴雨区内部分中小河流可能发生超警洪水，山洪灾害发生风险较高。
 
-一组图了解中国和印尼关系发展与友好往来历程。
+按照《珠江防汛抗旱总指挥部防汛抗旱应急预案》《珠江流域(片)水旱灾害防御应急响应工作规程》，珠江防总于5月14日17时启动防汛Ⅳ级应急响应，珠江委同步启动洪水防御Ⅳ级应急响应。
 
-七十余载的深厚情谊，为双方务实合作筑牢根基。
+连日来，珠江防总、珠江委密切监视流域雨水汛情发展态势，加密滚动预测预报和会商研判，强化防汛联合值守，第一时间向有关地方发出防御通知和汛情通报，督促指导做好流域水库群联合调度、水工程安全度汛、中小河流洪水和山洪灾害防御等工作。
 
-坚实的经贸合作，始终是中国和印尼关系行稳致远的“压舱石”。
-
-多年来，两国贸易投资往来持续深化、热度不减，合作领域不断拓宽、结构持续优化，为两国经济发展注入了源源不断的动力。
-
-经贸合作的深化，为基础设施互联互通奠定了坚实基础。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 07:39 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-30 07:40 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-30 07:36 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-30 07:29 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
-- 2026-06-30 07:36 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-30 07:52 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
-- 2026-06-30 07:25 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-30 07:37 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-30 07:46 - [齐思钧回复张月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
-- 2026-06-30 07:39 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
-- 2026-06-30 07:42 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
-- 2026-06-30 07:26 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-30 07:47 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-30 07:43 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-30 07:51 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-30 07:46 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-30 07:59 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-30 07:34 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-30 07:52 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-30 07:59 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-30 07:34 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-30 07:48 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-30 07:42 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-30 07:54 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-30 07:52 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-30 07:35 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-30 07:35 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-30 07:43 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:25 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/7650504.shtml)
-- 2026-06-30 07:36 - [巴西2比1日本](https://www.blog.kurohicncr.top/Article/details/334060317.shtml)
-- 2026-06-30 07:26 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/737000.shtml)
-- 2026-06-30 07:27 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/2300486913.shtml)
-- 2026-06-30 07:51 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/29519.shtml)
-- 2026-06-30 07:45 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/37999488942.shtml)
-- 2026-06-30 07:50 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.kurohicncr.top/Article/details/8075079670.shtml)
-- 2026-06-30 07:42 - [媒体评泰山建135公里刀片刺绳隔离网](https://www.share.minike.top/Article/details/573315.shtml)
-- 2026-06-30 07:51 - [德国罚丢3粒点球](http://www.share.kurohicncr.top/Article/details/974653.shtml)
-- 2026-06-30 07:50 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.minike.top/Article/details/2032928854.shtml)
-- 2026-06-30 07:36 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/21231.shtml)
-- 2026-06-30 07:49 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/627691240966.shtml)
-- 2026-06-30 07:25 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/77873847.shtml)
-- 2026-06-30 07:34 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/141121758106.shtml)
-- 2026-06-30 07:24 - [张雪的一句“是我们”引发岛内热议](http://www.share.minike.top/Article/details/6476884.shtml)
+- 2026-06-30 07:39 - [【大鸣王潮1566】真拿你没办法](http://www.share.kurohicncr.top/Article/details/959371.shtml)
+- 2026-06-30 07:40 - [周生如故](http://www.share.kurohicncr.top/Article/details/818757.shtml)
+- 2026-06-30 07:45 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/830777172.shtml)
+- 2026-06-30 07:32 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.minike.top/Article/details/433416613.shtml)
+- 2026-06-30 07:34 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/03347.shtml)
+- 2026-06-30 07:33 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/05702574.shtml)
+- 2026-06-30 07:42 - [美股](http://www.blog.minike.top/Article/details/023847516108.shtml)
+- 2026-06-30 07:39 - [巴西扳平比分](https://www.blog.minike.top/Article/details/85776856219.shtml)
+- 2026-06-30 07:40 - [齐思钧回复张月](https://www.share.minike.top/Article/details/08335825169.shtml)
+- 2026-06-30 07:58 - [好像看到了人类带孩子崩溃的样子](http://www.blog.minike.top/Article/details/53135871111.shtml)
+- 2026-06-30 07:33 - [父母催婚话术是如何做到全国统一的](https://www.share.minike.top/Article/details/08468456964.shtml)
+- 2026-06-30 07:31 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.kurohicncr.top/Article/details/7503651.shtml)
+- 2026-06-30 07:36 - [输球后日本球迷被强行披上巴西国旗](http://www.blog.kurohicncr.top/Article/details/78737925.shtml)
+- 2026-06-30 07:42 - [点球大战](http://www.blog.minike.top/Article/details/951647090388.shtml)
+- 2026-06-30 07:52 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/8501387.shtml)

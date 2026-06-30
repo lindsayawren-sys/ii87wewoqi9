@@ -1,44 +1,57 @@
-# “津”非昔比丨这个春天必须冲天津海棠
+# 智能机器人上门做保洁
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月13日 10:05 来源：人民网-人民视频 责任编辑：【杨彦宇】
+门铃响起，广东深圳市民陈子舜开门一看，和保洁阿姨一起上门的还有一位新“同事”——一台有修长机械臂的具身智能机器人。 前不久，自变量机器人科技(深圳)有限公司与58集团合作，在深圳推出智能保洁服务，首批机器人保洁员“上岗”，与保洁阿姨一同完成家庭清洁服务。一时间，尝鲜者众多，排队半个月，陈子舜“抢”订了一单。 清洁开始，机器人负责客厅和餐厅的垃圾清理、桌面整理，保洁阿姨则直奔卧室
 
 ## 正文
 
-发布时间：2026年04月13日 10:05 来源：人民网-人民视频 责任编辑：【杨彦宇】
+门铃响起，广东深圳市民陈子舜开门一看，和保洁阿姨一起上门的还有一位新“同事”——一台有修长机械臂的具身智能机器人。
+
+前不久，自变量机器人科技(深圳)有限公司与58集团合作，在深圳推出智能保洁服务，首批机器人保洁员“上岗”，与保洁阿姨一同完成家庭清洁服务。
+
+一时间，尝鲜者众多，排队半个月，陈子舜“抢”订了一单。
+
+清洁开始，机器人负责客厅和餐厅的垃圾清理、桌面整理，保洁阿姨则直奔卧室开展工作。
+
+在客厅，机器人小心地避开障碍物，缓步前行，精准抓取散落的杂物，分门别类地归置整齐，然后拿起抹布清理桌面，动作缓慢却有序。
+
+58集团深圳城市经理黎子文介绍，在人机协作保洁模式里，目前机器人承担重复性、高强度的工作，包括收拾桌面、整理沙发、摆放鞋子等，保洁阿姨则负责复杂精细、深度清洁的工作，如边角清洁、台面整理、厨卫深度处理、消杀等，双方分工有序。
+
+机器人保洁员一边实践，一边通过学习海量家庭场景，快速迭代能力。
+
+“每次完成任务后，它都会将脱敏后的感知数据和操作数据回传至训练平台，帮助模型迭代升级。
 
 ## 相关推荐
 
-- 2026-06-30 07:25 - [德国 传控](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-30 07:49 - [郑钦文温网首轮出局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-30 07:27 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
-- 2026-06-30 07:40 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
-- 2026-06-30 07:35 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
-- 2026-06-30 07:52 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-30 07:24 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
-- 2026-06-30 07:24 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-30 07:27 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-30 07:47 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-30 07:34 - [德国巴拉圭加时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-30 07:53 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
+- 2026-06-30 07:42 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
+- 2026-06-30 07:56 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-30 07:45 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-30 07:36 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-30 07:37 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-30 07:57 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-30 07:54 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-30 07:57 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-30 07:40 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-30 07:57 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
+- 2026-06-30 07:33 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:50 - [吴易昺不敌德约科维奇 止步温网首轮](https://www.share.kurohicncr.top/Article/details/928665.shtml)
-- 2026-06-30 07:24 - [多人在马路中间打羽毛球 交警回应](https://www.blog.kurohicncr.top/Article/details/97672589.shtml)
-- 2026-06-30 07:32 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/164233226.shtml)
-- 2026-06-30 07:25 - [曝老詹对自由市场态度与以往截然不同](http://www.blog.minike.top/Article/details/3448352776.shtml)
-- 2026-06-30 07:31 - [急先锋](http://www.share.kurohicncr.top/Article/details/19931954.shtml)
-- 2026-06-30 07:47 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/9619282.shtml)
-- 2026-06-30 07:52 - [小娘惹](http://www.share.minike.top/Article/details/53725.shtml)
-- 2026-06-30 07:47 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/109072732027.shtml)
-- 2026-06-30 07:44 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/159772.shtml)
-- 2026-06-30 07:54 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.minike.top/Article/details/131578.shtml)
-- 2026-06-30 07:47 - [曝灰熊将莫兰特交易至开拓者](https://www.blog.minike.top/Article/details/5807138.shtml)
-- 2026-06-30 07:27 - [王楚钦孙颖莎晋级混双八强](https://www.blog.minike.top/Article/details/361934.shtml)
-- 2026-06-30 07:32 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.kurohicncr.top/Article/details/385219155.shtml)
-- 2026-06-30 07:42 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/5433197.shtml)
-- 2026-06-30 07:32 - [委内瑞拉地震死亡人数升至1719人](https://www.blog.minike.top/Article/details/0228982.shtml)
+- 2026-06-30 07:54 - [速度与激情9](https://www.share.minike.top/Article/details/0761410415.shtml)
+- 2026-06-30 07:31 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/122594262.shtml)
+- 2026-06-30 07:57 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/81376850.shtml)
+- 2026-06-30 07:30 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/4533936668.shtml)
+- 2026-06-30 07:35 - [世界杯：德国vs巴拉圭](https://www.share.kurohicncr.top/Article/details/225768.shtml)
+- 2026-06-30 07:33 - [我觉得你是在无中生友](http://www.blog.kurohicncr.top/Article/details/030978.shtml)
+- 2026-06-30 07:56 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/56089945.shtml)
+- 2026-06-30 07:42 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.kurohicncr.top/Article/details/4882647591.shtml)
+- 2026-06-30 07:58 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/75209.shtml)
+- 2026-06-30 07:54 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/58890924609.shtml)
+- 2026-06-30 07:52 - [德国vs巴拉圭](https://www.share.kurohicncr.top/Article/details/7630649284.shtml)
+- 2026-06-30 07:30 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/06830606.shtml)
+- 2026-06-30 07:42 - [德国淘汰](http://www.blog.minike.top/Article/details/9737966568.shtml)
+- 2026-06-30 07:57 - [恋与深空道歉声明](https://www.blog.kurohicncr.top/Article/details/041435129.shtml)
+- 2026-06-30 07:31 - [巴西2-1绝杀日本](http://www.share.minike.top/Article/details/55936.shtml)

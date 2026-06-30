@@ -1,52 +1,61 @@
-# 中国银河证券：聘任张瑞兵兼任公司合规总监
+# 印度限制珠宝出口商黄金免税进口额度，以抑制黄金需求
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！人民财讯4月13日电，中国银河证券公告称，董事会会议审议通过，同意聘任公司业务总监、执行委员会委员张瑞兵兼任公司合规总监。 履历资料显示，张瑞兵出生于1983年，于2006年7月参加工作，长期在中国建银投资有限责任公司工作，担任过战略发展部总经理等职。后于2023年12月加入中国银河证券，2024年4月至今
+印度政府在一份官方通告中表示，该国于周四收紧了珠宝出口商的黄金免税进口规则，将每张进口许可证的黄金进口量上限设为100公斤。作为全球第二大黄金消费国，印度正以此举抑制黄金进口需求。 本周早些时候，这个南亚国家已将黄金和白银进口关税从6%上调至15%，旨在减少两类贵金属的海外采购规模，缓解油价高企给外汇储备带来的压力。 印度是全球主要黄金珠宝出口国之一。印度政府通过预先授权计划，
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+印度政府在一份官方通告中表示，该国于周四收紧了珠宝出口商的黄金免税进口规则，将每张进口许可证的黄金进口量上限设为100公斤。
 
-人民财讯4月13日电，中国银河证券公告称，董事会会议审议通过，同意聘任公司业务总监、执行委员会委员张瑞兵兼任公司合规总监。
+作为全球第二大黄金消费国，印度正以此举抑制黄金进口需求。
 
-履历资料显示，张瑞兵出生于1983年，于2006年7月参加工作，长期在中国建银投资有限责任公司工作，担任过战略发展部总经理等职。
+本周早些时候，这个南亚国家已将黄金和白银进口关税从6%上调至15%，旨在减少两类贵金属的海外采购规模，缓解油价高企给外汇储备带来的压力。
 
-后于2023年12月加入中国银河证券，2024年4月至今任该公司业务总监、执行委员会委员、战略发展总部总经理。
+印度是全球主要黄金珠宝出口国之一。
 
-责任编辑：刘万里 SF014
+印度政府通过预先授权计划，允许珠宝制造商和珠宝商为出口业务免税进口黄金。
+
+印度政府于周四修订珠宝出口商进口新规：每张许可证黄金进口限额100公斤，且后续新许可证的申领，须至少完成前期50%的出口履约义务。
+
+通告还指出，首次申请企业必须接受地方监管部门对生产厂房的实地核查，核实企业真实存续情况、产能及实际经营状态。
+
+持证企业还须每两周提交一次报告，由独立注册会计师鉴证，详细列明在该政策框架下的黄金进口与出口明细。
 
 ## 相关推荐
 
-- 2026-06-30 07:30 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-30 07:36 - [德国 传控](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-30 07:42 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-30 07:37 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-30 07:32 - [王楚钦孙颖莎晋级混双八强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-30 07:37 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-30 07:30 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-30 07:49 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-30 07:39 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-30 07:39 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-30 07:49 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-30 07:47 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
+- 2026-06-30 07:43 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-30 07:34 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-30 07:49 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-30 07:50 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-30 07:55 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-30 07:31 - [德国队连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-30 07:45 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-30 07:32 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-30 07:37 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
+- 2026-06-30 07:55 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-30 07:38 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-30 07:49 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-30 07:48 - [德国进球被吹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-30 07:30 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-30 07:35 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:43 - [明星大侦探第一季](https://www.share.minike.top/Article/details/23900003.shtml)
-- 2026-06-30 07:28 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.minike.top/Article/details/35871.shtml)
-- 2026-06-30 07:24 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/06653.shtml)
-- 2026-06-30 07:39 - [韩乔生吐槽世界杯扩军](https://www.share.kurohicncr.top/Article/details/350134.shtml)
-- 2026-06-30 07:35 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/1124339.shtml)
-- 2026-06-30 07:52 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/622950547020.shtml)
-- 2026-06-30 07:29 - [建议不要突然完全停止喝咖啡](https://www.share.minike.top/Article/details/37750.shtml)
-- 2026-06-30 07:34 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/770881195321.shtml)
-- 2026-06-30 07:46 - [流金岁月](https://www.blog.minike.top/Article/details/717930813.shtml)
-- 2026-06-30 07:53 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/0955455.shtml)
-- 2026-06-30 07:44 - [日本球员说被绝杀非常不甘心](https://www.blog.minike.top/Article/details/456976526.shtml)
-- 2026-06-30 07:47 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/7100943.shtml)
-- 2026-06-30 07:34 - [起风了](http://www.share.kurohicncr.top/Article/details/5258695.shtml)
-- 2026-06-30 07:24 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.kurohicncr.top/Article/details/86377732.shtml)
-- 2026-06-30 07:28 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/139652556899.shtml)
+- 2026-06-30 07:45 - [女子遭下药退赔偿拟追刑责](http://www.share.kurohicncr.top/Article/details/631251614.shtml)
+- 2026-06-30 07:49 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/14466.shtml)
+- 2026-06-30 07:39 - [曝灰熊将莫兰特交易至开拓者](http://www.share.kurohicncr.top/Article/details/09374031200.shtml)
+- 2026-06-30 07:30 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/08018236370.shtml)
+- 2026-06-30 07:37 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/0505210642.shtml)
+- 2026-06-30 07:46 - [本届世界杯已有5名球员被控强奸](http://www.blog.kurohicncr.top/Article/details/207886585.shtml)
+- 2026-06-30 07:55 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/866219946362.shtml)
+- 2026-06-30 07:33 - [武磊：日本队有能力跟任何强队抗衡](http://www.blog.kurohicncr.top/Article/details/873785697.shtml)
+- 2026-06-30 07:41 - [女子健身不当 居然“脑子漏水”了](http://www.share.kurohicncr.top/Article/details/949481047.shtml)
+- 2026-06-30 07:40 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.minike.top/Article/details/285451.shtml)
+- 2026-06-30 07:48 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/7446283.shtml)
+- 2026-06-30 07:55 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/74732.shtml)
+- 2026-06-30 07:51 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.share.minike.top/Article/details/81794747.shtml)
+- 2026-06-30 07:42 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/95684418.shtml)
+- 2026-06-30 07:34 - [网红峡谷5人溺亡 有人提醒会下雨](https://www.blog.kurohicncr.top/Article/details/099874340807.shtml)

@@ -1,49 +1,59 @@
-# 三维化学：公司高度重视新材料、新技术发展方向
+# 国台办：民进党当局应摒弃政治操弄 推动两岸旅游交流早日恢复正常
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-证券日报网4月13日讯 ，三维化学在接受调研者提问时表示，公司高度重视新材料、新技术发展方向，如有项目承接或合作机会，公司将根据自身实际情况和相关行业趋势，依托“科技+工程+实业”互驱联动优势，坚持内生外延发展并重的原则，依法依规审慎决策，着力推动公司高质量发展。（文章来源：证券日报）
+中新网5月13日电 5月13日，国台办举行例行新闻发布会。有记者问，今年“五一”大陆旅游市场火爆，厦金“小三通”客流爆满，金门成为大陆游客热门目的地。岛内业界人士纷纷呼吁民进党当局尽快扩大开放两岸观光旅游，吸引陆客来台。请问对此有何评论？ 发言人张晗表示，大陆方面始终积极推动两岸人员往来正常化和各领域交流常态化，率先推出一系列便利措施，展现了诚意和善意。岛内旅游业界多次呼吁民进
 
 ## 正文
 
-证券日报网4月13日讯 ，三维化学在接受调研者提问时表示，公司高度重视新材料、新技术发展方向，如有项目承接或合作机会，公司将根据自身实际情况和相关行业趋势，依托“科技+工程+实业”互驱联动优势，坚持内生外延发展并重的原则，依法依规审慎决策，着力推动公司高质量发展。
+中新网5月13日电 5月13日，国台办举行例行新闻发布会。
 
-（文章来源：证券日报）
+有记者问，今年“五一”大陆旅游市场火爆，厦金“小三通”客流爆满，金门成为大陆游客热门目的地。
+
+岛内业界人士纷纷呼吁民进党当局尽快扩大开放两岸观光旅游，吸引陆客来台。
+
+请问对此有何评论？
+
+发言人张晗表示，大陆方面始终积极推动两岸人员往来正常化和各领域交流常态化，率先推出一系列便利措施，展现了诚意和善意。
+
+岛内旅游业界多次呼吁民进党当局顺应民意，尽快解除对两岸旅游交流的限制。
+
+民进党当局应正视岛内业界呼声和民众需求，摒弃政治操弄，尽快解除人为障碍，推动两岸旅游交流早日恢复正常。
 
 ## 相关推荐
 
-- 2026-06-30 07:50 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-30 07:35 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-30 07:41 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
-- 2026-06-30 07:38 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-30 07:24 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-30 07:52 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-30 07:45 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-30 07:51 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-30 07:47 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-30 07:26 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-30 07:44 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-30 07:30 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
-- 2026-06-30 07:42 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
-- 2026-06-30 07:37 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-30 07:28 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
+- 2026-06-30 07:44 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-30 07:52 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-30 07:52 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-30 07:44 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-30 07:57 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-30 07:54 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-30 07:35 - [周冬雨多次说演不了话剧文城](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-30 07:42 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-30 07:33 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-30 07:39 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-30 07:49 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-30 07:45 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-30 07:35 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-30 07:41 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
+- 2026-06-30 07:55 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:36 - [巴西把自己踢晕了](https://www.blog.minike.top/Article/details/25958.shtml)
-- 2026-06-30 07:50 - [起风了](http://www.blog.kurohicncr.top/Article/details/51208035296.shtml)
-- 2026-06-30 07:43 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/60687.shtml)
-- 2026-06-30 07:41 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/05717.shtml)
-- 2026-06-30 07:35 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/609222.shtml)
-- 2026-06-30 07:51 - [德国4比5巴拉圭](https://www.blog.minike.top/Article/details/361987924.shtml)
-- 2026-06-30 07:37 - [巴西vs日本](https://www.blog.minike.top/Article/details/54706.shtml)
-- 2026-06-30 07:31 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/62154443779.shtml)
-- 2026-06-30 07:31 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/79674914.shtml)
-- 2026-06-30 07:52 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/422398833530.shtml)
-- 2026-06-30 07:41 - [又一美国科技巨头转向中国大模型](http://www.share.kurohicncr.top/Article/details/36423945495.shtml)
-- 2026-06-30 07:51 - [日本淘汰](https://www.blog.minike.top/Article/details/495793.shtml)
-- 2026-06-30 07:38 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.kurohicncr.top/Article/details/9906439.shtml)
-- 2026-06-30 07:33 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.minike.top/Article/details/87531.shtml)
-- 2026-06-30 07:43 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/83452649478.shtml)
+- 2026-06-30 07:48 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/653359139.shtml)
+- 2026-06-30 07:37 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/96093021.shtml)
+- 2026-06-30 07:57 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/6208888.shtml)
+- 2026-06-30 07:32 - [哈弗茨头球破门](http://www.share.minike.top/Article/details/005218768846.shtml)
+- 2026-06-30 07:30 - [吴易昺不敌德约科维奇 止步温网首轮](https://www.blog.minike.top/Article/details/833030853936.shtml)
+- 2026-06-30 07:35 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/817690917.shtml)
+- 2026-06-30 07:47 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/217356.shtml)
+- 2026-06-30 07:55 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.kurohicncr.top/Article/details/27709389.shtml)
+- 2026-06-30 07:44 - [巴西补时绝杀日本](http://www.blog.kurohicncr.top/Article/details/830315014.shtml)
+- 2026-06-30 07:37 - [爱很美味](https://www.share.kurohicncr.top/Article/details/104626498.shtml)
+- 2026-06-30 07:45 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.minike.top/Article/details/639925.shtml)
+- 2026-06-30 07:57 - [啊啊啊](http://www.blog.minike.top/Article/details/774917835365.shtml)
+- 2026-06-30 07:56 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/539210662.shtml)
+- 2026-06-30 07:36 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/533554313397.shtml)
+- 2026-06-30 07:47 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/372283465651.shtml)

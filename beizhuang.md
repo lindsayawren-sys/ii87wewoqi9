@@ -1,61 +1,61 @@
-# 纪录片《中老铁路纪行》将在中老两国首播
+# *ST大晟靠“财技”保壳？2025年审计费用翻倍 新设多家子公司疑似“空壳” 第四季度收入占比显著提升
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:02 UTC+8
 
 ## 摘要
 
-4月14日起，三集纪录片《中老铁路纪行》将在中央广播电视总台和老挝国家电视台同步首播，爱奇艺、优酷、腾讯、哔哩哔哩等视频平台及各省级卫视将陆续播出。 纪录片共3集75分钟，以英国摄影师托马斯·希顿(Thomas Heaton)展开中老跨国旅行为主线，拍摄了他乘坐中老铁路国际旅客列车从中国昆明出发抵达老挝万象的所见所闻。其间，摄影师全面了解中老铁路建设过程，深度体验铁路运营维护工
+出品：新浪财经上市公司研究院 作者：渚 2025年，*ST大晟在游戏业务营收增长停滞的情况下，影视剧业务营收同比激增13倍，将总营收拉回至3亿元以上，成功实现“保壳”。但2025年及今年一季度，公司均出现增收不增利情形，归母净亏损同比分别扩大27.43%、68.18%，未弥补亏损高达16.92亿元。 *ST大晟能够成功保壳的另一推手是新任控股股东唐山文旅的“慷慨解囊”。2025
 
 ## 正文
 
-4月14日起，三集纪录片《中老铁路纪行》将在中央广播电视总台和老挝国家电视台同步首播，爱奇艺、优酷、腾讯、哔哩哔哩等视频平台及各省级卫视将陆续播出。
+出品：新浪财经上市公司研究院 作者：渚 2025年，*ST大晟在游戏业务营收增长停滞的情况下，影视剧业务营收同比激增13倍，将总营收拉回至3亿元以上，成功实现“保壳”。
 
-纪录片共3集75分钟，以英国摄影师托马斯·希顿(Thomas Heaton)展开中老跨国旅行为主线，拍摄了他乘坐中老铁路国际旅客列车从中国昆明出发抵达老挝万象的所见所闻。
+但2025年及今年一季度，公司均出现增收不增利情形，归母净亏损同比分别扩大27.43%、68.18%，未弥补亏损高达16.92亿元。
 
-其间，摄影师全面了解中老铁路建设过程，深度体验铁路运营维护工作，切身感受了中老两国7座城镇、乡村的美丽风光、传统文化和社会生活。
+*ST大晟能够成功保壳的另一推手是新任控股股东唐山文旅的“慷慨解囊”。
 
-2025年12月13日起，《中老铁路纪行》在国家地理(National Geographic)南亚频道播出后产生强烈反响，南亚区实时触达人次达1286.1万，收视率达0.117，位列同时段全年龄层收视排名第一，受到海外观众欢迎。
+2025年12月26日，双方签署《债务豁免协议》，约定豁免公司3000万元债务。
 
-今年3月6日起，该纪录片在国家地理(National Geographic)欧洲区、中东区、拉美区、非洲区陆续播出，欧洲区实时触达人次达2018.9万。
+彼时，公司已累计向唐山文旅借款2.18亿元。
 
-其中，德国收视率0.177，位列该国同时段全年龄层收视排名第一；法国收视率0.203，位列该国同时段全年龄层收视排名第二。
+此外，2025年*ST大晟新设了一批无电话、无邮箱、无网址且实缴资本为0的“壳”公司，审计费用从2024年的70万元翻倍至150万元。
 
-英国摄影师托马斯·希顿通过海外社交媒体发布宣传片，引发广泛讨论。
+下半年收入占比陡增 靠“财技”保壳？
 
-不少海外受众通过Instagram和Facebook纷纷留言，表示出对纪录片及中老铁路的浓厚兴趣：“非常期待这个节目”“希望有机会乘坐这趟列车”“这将是一段奇妙的旅程”……该纪录片由《人民铁道》报业有限公司、五洲传播中心、国家地理(National Geographic)、云南广播电视台联合出品，新加坡棱聚影视传媒有限公司制作。
+2025年4月底，*ST大晟正式披露2024年年度报告，因营业收入低于3亿元且净利润为负，股票被实施退市风险警示。
 
 ## 相关推荐
 
-- 2026-06-30 07:38 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-30 07:48 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-30 07:48 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-30 07:34 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
-- 2026-06-30 07:39 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-30 07:24 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-30 07:44 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-30 07:45 - [郑钦文温网首轮出局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
-- 2026-06-30 07:31 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-30 07:25 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
-- 2026-06-30 07:50 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-30 07:42 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
-- 2026-06-30 07:27 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-30 07:42 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
-- 2026-06-30 07:44 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-30 07:37 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-30 07:31 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-30 07:51 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-30 07:57 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-30 07:30 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-30 07:45 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-30 07:47 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-30 07:50 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-30 07:32 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-30 07:50 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-30 07:50 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-30 07:54 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-30 07:44 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-30 07:51 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-30 07:48 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:29 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/12620182.shtml)
-- 2026-06-30 07:48 - [哈弗茨头球破门](https://www.blog.minike.top/Article/details/0079856.shtml)
-- 2026-06-30 07:49 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/225494273987.shtml)
-- 2026-06-30 07:29 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/21832.shtml)
-- 2026-06-30 07:33 - [美股深夜大反弹 特斯拉飙涨8%](https://www.share.minike.top/Article/details/971320121.shtml)
-- 2026-06-30 07:35 - [吴易昺不敌德约科维奇 止步温网首轮](https://www.blog.minike.top/Article/details/2403620177.shtml)
-- 2026-06-30 07:49 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/1257288.shtml)
-- 2026-06-30 07:32 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/05403.shtml)
-- 2026-06-30 07:38 - [高中五人学习小组全员超650分](https://www.share.minike.top/Article/details/958096354.shtml)
-- 2026-06-30 07:50 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/53823.shtml)
-- 2026-06-30 07:25 - [浪姐成团夜爆笑吐槽](http://www.blog.kurohicncr.top/Article/details/720546818.shtml)
-- 2026-06-30 07:34 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/76842741930.shtml)
-- 2026-06-30 07:53 - [曝詹姆斯即将与勇士会面](http://www.share.kurohicncr.top/Article/details/42090647585.shtml)
-- 2026-06-30 07:47 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/84084916613.shtml)
-- 2026-06-30 07:43 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/4222662.shtml)
+- 2026-06-30 07:44 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.kurohicncr.top/Article/details/333201.shtml)
+- 2026-06-30 07:38 - [詹姆斯下赛季去哪](http://www.share.kurohicncr.top/Article/details/970449101367.shtml)
+- 2026-06-30 07:34 - [这种关系可能正在悄悄“催老”你](https://www.blog.minike.top/Article/details/1717025416.shtml)
+- 2026-06-30 07:52 - [曝詹姆斯即将与勇士会面](https://www.blog.minike.top/Article/details/8957355.shtml)
+- 2026-06-30 07:42 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/457552109354.shtml)
+- 2026-06-30 07:39 - [全球芯片巨头史诗级扩产](http://www.share.kurohicncr.top/Article/details/4306423.shtml)
+- 2026-06-30 07:53 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/865431.shtml)
+- 2026-06-30 07:44 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/9482080149.shtml)
+- 2026-06-30 07:56 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/74036769703.shtml)
+- 2026-06-30 07:47 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/5427655451.shtml)
+- 2026-06-30 07:52 - [曝詹姆斯即将与勇士会面](https://www.blog.kurohicncr.top/Article/details/861358.shtml)
+- 2026-06-30 07:43 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/00938777997.shtml)
+- 2026-06-30 07:38 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/4839992425.shtml)
+- 2026-06-30 07:34 - [DeepSeek V4正式版要来了](http://www.blog.minike.top/Article/details/49301622049.shtml)
+- 2026-06-30 07:41 - [日本反击率先破门](https://www.blog.kurohicncr.top/Article/details/4365146.shtml)

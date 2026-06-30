@@ -1,58 +1,61 @@
-# 无人驾驶智能游船航线亮相“湾区之心”广州南沙
+# 重庆将首次发布《投资重庆机会清单》 面向全球释放合作机遇
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-中新网广州4月13日电 (记者 王坚)据广州市南沙区政府13日消息，广州南沙首条无人驾驶智能游船航线近日正式亮相。该智能游船凭借全自动航行、一体化智慧座舱及多元化娱乐配套，打造出兼具科技感与舒适性的水上出行新方式，成为广州文旅新亮点。 据介绍，广州南沙蕉门河无人船项目作为粤港澳大湾区海陆空全空间无人体系示范点重点项目，不仅提供了全新的观光体验，更展示了无人驾驶技术在水上交通场景
+中新网重庆5月14日电 (梁钦卿)第八届中国西部国际投资贸易洽谈会(下称“西洽会”)将于5月21日至24日在重庆举行。重庆市经济信息委总经济师唐忠伟14日在新闻发布会上透露，重庆将在本届西洽会上首次发布《投资重庆机会清单》，汇集200余个项目，总投资超5000亿元，面向全球释放重庆在先进制造、绿色低碳、数字经济等领域的合作机遇。据介绍，本届西洽会在国际化能级上实现新提升，不仅成
 
 ## 正文
 
-中新网广州4月13日电 (记者 王坚)据广州市南沙区政府13日消息，广州南沙首条无人驾驶智能游船航线近日正式亮相。
+中新网重庆5月14日电 (梁钦卿)第八届中国西部国际投资贸易洽谈会(下称“西洽会”)将于5月21日至24日在重庆举行。
 
-该智能游船凭借全自动航行、一体化智慧座舱及多元化娱乐配套，打造出兼具科技感与舒适性的水上出行新方式，成为广州文旅新亮点。
+重庆市经济信息委总经济师唐忠伟14日在新闻发布会上透露，重庆将在本届西洽会上首次发布《投资重庆机会清单》，汇集200余个项目，总投资超5000亿元，面向全球释放重庆在先进制造、绿色低碳、数字经济等领域的合作机遇。
 
-据介绍，广州南沙蕉门河无人船项目作为粤港澳大湾区海陆空全空间无人体系示范点重点项目，不仅提供了全新的观光体验，更展示了无人驾驶技术在水上交通场景的成熟应用。
+据介绍，本届西洽会在国际化能级上实现新提升，不仅成功邀请到英国、韩国京畿道分别担任主宾国和主宾城，还邀请到西门子、葛兰素史克、德勤、英中贸易协会等国际知名企业和机构的高层参会，开放合作的深度和广度持续拓展。
 
-记者看到，从外观来看，无人驾驶智能游船整体采用流畅的流线型船体，整体色调选用简约高级的科技白，充满未来感和动态美学。
+西洽会是重庆对外开放合作、集聚优质资源、赋能产业升级的重要平台，也是集中展示重庆市先进制造业发展成效的重要窗口。
 
-走进船舱内，船上没有舵手，却能精准地沿着既定航线前行。
+本届西洽会开幕式上，将举办重大项目集中签约，围绕“33618”现代制造业集群体系建设，重点签约一批补链、强链、延链项目，涵盖智能网联新能源汽车、新一代电子信息、生物医药等重点领域。
 
-游船以无人驾驶科技为依托，搭载智能导航和智慧操作系统，全程自主平稳航行，彻底告别传统游船操作模式，科技感拉满。
+此外，本届西洽会还将举办2026重庆市“AI+制造”供需对接专场活动，聚焦人工智能赋能制造业转型升级，发布人工智能公共服务平台、全国“AI+制造”新赛道体系报告等新成果、新应用，集中推介优质“AI+制造”创新产品，畅通技术供给与产业需求对接通道，推动人工智能在制造业全领域深度落地、规模化应用。
 
-游客在船上可轻松实现一键智能操控，随心调节船上温度、湿度，还能自由切换船舱玻璃私密性，再加上便捷的船上点餐服务，全程沉浸式享受舒适便捷的水上出行体验。
+同时，还将举办“满天星”行动计划专场签约活动，聚焦人工智能、开源生态、汽车软件、数字内容等前沿赛道，与行业重点企业集中签约落地一批优质项目，预计新增软件领域就业岗位超过3000个，持续壮大软件产业人才队伍，助力重庆市数字经济高质量发展。
 
-同时游船坐拥360度全景开阔视野，将蕉门河两岸风光一览无余，舱内更是配置多功能电子显示屏KTV音响一体机，兼顾观光与娱乐，打破传统水上游览的单一模式，实现一边游船河，一边唱K。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 07:49 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-30 07:25 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-30 07:34 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-30 07:42 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-30 07:24 - [日本队5进世界杯淘汰赛0胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-30 07:29 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-30 07:36 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
-- 2026-06-30 07:44 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-30 07:34 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
-- 2026-06-30 07:52 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-30 07:52 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-30 07:28 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-30 07:41 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-30 07:39 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-30 07:59 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-30 07:45 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-30 07:33 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-30 07:35 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-30 07:42 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-30 07:56 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-30 07:58 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-30 07:33 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
+- 2026-06-30 07:56 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-30 07:49 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-30 07:31 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-30 07:56 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-30 07:49 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:37 - [科技牛市下的最大考验是什么](http://www.share.kurohicncr.top/Article/details/6700821480.shtml)
-- 2026-06-30 07:35 - [森保一致歉：世界第一目标没能实现](https://www.share.minike.top/Article/details/0488284.shtml)
-- 2026-06-30 07:31 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.kurohicncr.top/Article/details/6173980297.shtml)
-- 2026-06-30 07:51 - [曝詹姆斯即将与勇士会面](https://www.blog.kurohicncr.top/Article/details/195191086.shtml)
-- 2026-06-30 07:53 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/05294.shtml)
-- 2026-06-30 07:29 - [郑钦文温网一轮游](https://www.share.kurohicncr.top/Article/details/263335981301.shtml)
-- 2026-06-30 07:37 - [巴拉圭点球大战淘汰德国进16强](http://www.blog.kurohicncr.top/Article/details/130162531822.shtml)
-- 2026-06-30 07:24 - [巴西vs日本首发名单](http://www.blog.kurohicncr.top/Article/details/7312476.shtml)
-- 2026-06-30 07:25 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.kurohicncr.top/Article/details/25658195.shtml)
-- 2026-06-30 07:38 - [森保一致歉：世界第一目标没能实现](http://www.blog.kurohicncr.top/Article/details/84604320117.shtml)
-- 2026-06-30 07:34 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/6730884924.shtml)
-- 2026-06-30 07:41 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/498658289.shtml)
-- 2026-06-30 07:45 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/1176201.shtml)
-- 2026-06-30 07:45 - [日本 高位逼抢](http://www.share.minike.top/Article/details/794319.shtml)
-- 2026-06-30 07:47 - [一见倾心](http://www.blog.minike.top/Article/details/2203410.shtml)
+- 2026-06-30 07:37 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/860096146.shtml)
+- 2026-06-30 07:41 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/17185.shtml)
+- 2026-06-30 07:34 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/384867.shtml)
+- 2026-06-30 07:55 - [杨紫被质疑未使用原名纯属误解](https://www.blog.minike.top/Article/details/311429901.shtml)
+- 2026-06-30 07:57 - [日本领先巴西](https://www.share.kurohicncr.top/Article/details/6984839505.shtml)
+- 2026-06-30 07:51 - [世界杯](https://www.blog.minike.top/Article/details/990000.shtml)
+- 2026-06-30 07:40 - [媒体：手机测评该挤挤水分了](http://www.blog.kurohicncr.top/Article/details/52985097.shtml)
+- 2026-06-30 07:38 - [送你一朵小红花](https://www.share.minike.top/Article/details/6384464.shtml)
+- 2026-06-30 07:56 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/1415402.shtml)
+- 2026-06-30 07:55 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/64185891399.shtml)
+- 2026-06-30 07:31 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/11114.shtml)
+- 2026-06-30 07:31 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/06773863.shtml)
+- 2026-06-30 07:52 - [张帅时隔四年再取温网正赛胜利](http://www.share.kurohicncr.top/Article/details/93361.shtml)
+- 2026-06-30 07:49 - [安切洛蒂 换人](https://www.share.kurohicncr.top/Article/details/002174090066.shtml)
+- 2026-06-30 07:36 - [德国巴拉圭加时](http://www.share.kurohicncr.top/Article/details/67604220120.shtml)

@@ -1,61 +1,56 @@
-# 最高法：一季度人民法院受理各类案件1060.79万件
+# 石榴花开 籽籽同心丨葡萄架下团结如歌 火焰山旁文脉共鸣
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-中新网4月14日电 据最高人民法院微信公众号消息，4月14日，最高人民法院公布2026年第一季度司法审判工作主要数据。数据显示，第一季度，人民法院受理各类案件1060.79万件。 ——司法审判工作总体情况 受理各类案件1060.79万件，同比略有下降。其中，受理刑事案件、民商事案件数量同比下降，受理行政案件、执行案件数量同比上升。 反映审判质量、效率、效果的多数关键指标同比持续
+央广网吐鲁番5月14日消息(记者丁安)提起新疆吐鲁番，人们总会想起那串串晶莹剔透的葡萄、炽热如火的火焰山，而在火焰山脚下，葡萄沟景区旁，还有一条百年古巷——青蛙巷。 从幼儿园孩童的节气吟唱，到研学课堂的文化传承，再到民宿创客的邻里守望，青蛙巷已成为中华民族共同体意识在基层生根发芽、开花结果的生动缩影。 青蛙巷里童声起 五月的吐鲁番，石榴花开正盛。吐鲁番市高昌区第六幼儿园的孩子们
 
 ## 正文
 
-中新网4月14日电 据最高人民法院微信公众号消息，4月14日，最高人民法院公布2026年第一季度司法审判工作主要数据。
+央广网吐鲁番5月14日消息(记者丁安)提起新疆吐鲁番，人们总会想起那串串晶莹剔透的葡萄、炽热如火的火焰山，而在火焰山脚下，葡萄沟景区旁，还有一条百年古巷——青蛙巷。
 
-数据显示，第一季度，人民法院受理各类案件1060.79万件。
+从幼儿园孩童的节气吟唱，到研学课堂的文化传承，再到民宿创客的邻里守望，青蛙巷已成为中华民族共同体意识在基层生根发芽、开花结果的生动缩影。
 
-——司法审判工作总体情况 受理各类案件1060.79万件，同比略有下降。
+青蛙巷里童声起 五月的吐鲁番，石榴花开正盛。
 
-其中，受理刑事案件、民商事案件数量同比下降，受理行政案件、执行案件数量同比上升。
+吐鲁番市高昌区第六幼儿园的孩子们身着各民族服饰，在青蛙巷里表演二十四节气主题节目。
 
-反映审判质量、效率、效果的多数关键指标同比持续趋优，其中上诉率、申诉申请再审率同比均下降0.08个百分点。
+小班“豆班”的孩子像豆子般被呵护着，中班“苗班”的孩子如新芽般蓬勃成长，大班“果班”的孩子即将步入小学，班级命名本身就蕴含着中华传统文化的深厚底蕴。
 
-截至2026年3月底，全国法院两年以上未结诉讼案件数量同比下降8.87%，长期未结诉讼案件清理工作成效明显。
+“我们让孩子观察杏树从发芽、开花到结果的全过程，制作杏皮水、杏酱，结合吐鲁番杏花节、桑葚节，让他们感受在这里生活的幸福。
 
-先行调解案件348.29万件，调解成功119.36万件，同比增长205.11%。
+”幼儿园党支部书记、园长聂琴介绍，自2023年起，幼儿园定期组织幼儿前往葡萄沟、交河故城、火焰山、坎儿井等地研学，让孩子们在行走中了解历史文化，增强对祖国的认同。
 
-持续深化多元解纷机制，最高人民法院等20家单位联合出台《关于深化“总对总”多元化纠纷解决机制改革的意见》，推动“总对总”工作高质量发展，“总对总”合作单位调解组织在人民法院指导下先行调解纠纷16.6万件，同比增长13.28%。
+今年，幼儿园还开展了节约用水主题的坎儿井研学，设立小菜园让孩子们亲手种植小麦、红薯和韭菜，通过剥花生、挖红薯、烤红薯等劳动体验，感受收获的喜悦。
 
 ## 相关推荐
 
-- 2026-06-30 07:33 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-30 07:36 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-30 07:50 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-30 07:42 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-30 07:24 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
-- 2026-06-30 07:51 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-30 07:36 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
-- 2026-06-30 07:31 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-30 07:45 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
-- 2026-06-30 07:27 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-30 07:24 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-30 07:38 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-30 07:29 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-30 07:34 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-30 07:43 - [金鹰奖视后提名预测](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-30 07:35 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-30 07:42 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-30 07:38 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-30 07:34 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-30 07:42 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-30 07:47 - [感动全网的699分女生想报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-30 07:48 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-30 07:53 - [恋与深空道歉声明](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-30 07:56 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-30 07:48 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:46 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.minike.top/Article/details/339402167718.shtml)
-- 2026-06-30 07:53 - [警犬“多多”助民警寻回失联老人](http://www.share.minike.top/Article/details/7645362479.shtml)
-- 2026-06-30 07:33 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/367167321.shtml)
-- 2026-06-30 07:47 - [田中碧失误](https://www.blog.minike.top/Article/details/77276.shtml)
-- 2026-06-30 07:35 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/62714453.shtml)
-- 2026-06-30 07:46 - [输球后日本球迷被强行披上巴西国旗](http://www.blog.minike.top/Article/details/4179397.shtml)
-- 2026-06-30 07:28 - [委内瑞拉地震死亡人数升至1719人](https://www.blog.minike.top/Article/details/392909331538.shtml)
-- 2026-06-30 07:27 - [沙丘](https://www.share.kurohicncr.top/Article/details/866276803402.shtml)
-- 2026-06-30 07:47 - [日本 高位逼抢](https://www.blog.kurohicncr.top/Article/details/82121570.shtml)
-- 2026-06-30 07:51 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/907146.shtml)
-- 2026-06-30 07:27 - [高中五人学习小组全员超650分](https://www.blog.minike.top/Article/details/086006.shtml)
-- 2026-06-30 07:24 - [巴西若输日本将创36年最差纪录](http://www.share.minike.top/Article/details/98733.shtml)
-- 2026-06-30 07:35 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/37192577726.shtml)
-- 2026-06-30 07:45 - [森保一 保守](https://www.share.kurohicncr.top/Article/details/27260945.shtml)
-- 2026-06-30 07:50 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/74952427243.shtml)
+- 2026-06-30 07:32 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/825245066.shtml)
+- 2026-06-30 07:31 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/29659050.shtml)
+- 2026-06-30 07:43 - [一见倾心](http://www.share.minike.top/Article/details/29184330.shtml)
+- 2026-06-30 07:36 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/772105563941.shtml)
+- 2026-06-30 07:30 - [美股](https://www.share.minike.top/Article/details/9321087909.shtml)
+- 2026-06-30 07:42 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/4054881589.shtml)
+- 2026-06-30 07:40 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/03404544543.shtml)
+- 2026-06-30 07:51 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.minike.top/Article/details/21884460301.shtml)
+- 2026-06-30 07:48 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/63894991741.shtml)
+- 2026-06-30 07:36 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/735343453544.shtml)
+- 2026-06-30 07:33 - [张凌赫杨超越 峨眉](http://www.share.minike.top/Article/details/31495.shtml)
+- 2026-06-30 07:47 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/8770370.shtml)
+- 2026-06-30 07:52 - [杨紫获白玉兰视后争议不止](http://www.blog.minike.top/Article/details/76857657.shtml)
+- 2026-06-30 07:44 - [董卿父亲在报纸上发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/911187.shtml)
+- 2026-06-30 07:49 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.share.kurohicncr.top/Article/details/54909371511.shtml)

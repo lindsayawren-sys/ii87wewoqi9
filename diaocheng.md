@@ -1,44 +1,57 @@
-# 4月14日央行开展10亿元7天期逆回购操作
+# 国台办驳斥民进党炒作大陆旅游危险
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-中新网4月14日电 据央行网站消息，2026年4月14日中国人民银行以固定利率、数量招标方式开展了10亿元7天期逆回购操作，全额满足了一级交易商需求。具体情况如下：
+中新网5月13日电 5月13日，国台办举行例行新闻发布会。国台办发言人张晗针对民进党当局炒作所谓“大陆旅游危险”回应道，大陆良好的社会治安环境为世界公认。广大台湾同胞在大陆旅游观光、探亲访友，拥有安全舒适、便捷舒心的出行体验，这是有目共睹的事实。民进党当局不断蓄意抹黑，编造所谓“风险”，意图制造恐慌，阻挠破坏两岸交流和人员往来，升高两岸对立对抗。我要重申，只要不从事违法犯罪活动
 
 ## 正文
 
-中新网4月14日电 据央行网站消息，2026年4月14日中国人民银行以固定利率、数量招标方式开展了10亿元7天期逆回购操作，全额满足了一级交易商需求。
+中新网5月13日电 5月13日，国台办举行例行新闻发布会。
 
-具体情况如下：
+国台办发言人张晗针对民进党当局炒作所谓“大陆旅游危险”回应道，大陆良好的社会治安环境为世界公认。
+
+广大台湾同胞在大陆旅游观光、探亲访友，拥有安全舒适、便捷舒心的出行体验，这是有目共睹的事实。
+
+民进党当局不断蓄意抹黑，编造所谓“风险”，意图制造恐慌，阻挠破坏两岸交流和人员往来，升高两岸对立对抗。
+
+我要重申，只要不从事违法犯罪活动，广大台湾同胞到大陆旅行交流，完全可以高高兴兴来、平平安安回。
+
+(中新网“燕新台”工作室)
 
 ## 相关推荐
 
-- 2026-06-30 07:48 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
-- 2026-06-30 07:44 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-30 07:45 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
-- 2026-06-30 07:28 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-30 07:24 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
-- 2026-06-30 07:33 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
-- 2026-06-30 07:41 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-30 07:36 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-30 07:51 - [德国巴拉圭进入点球大战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-30 07:52 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-30 07:47 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
+- 2026-06-30 07:48 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
+- 2026-06-30 07:49 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-30 07:54 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-30 07:53 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-30 07:41 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-30 07:37 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-30 07:59 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-30 07:50 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
+- 2026-06-30 07:36 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
+- 2026-06-30 07:31 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-30 07:36 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-30 07:50 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
+- 2026-06-30 07:34 - [网友写差评被店家“挂”门口避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-30 07:58 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:26 - [武磊：巴西队赢的并不轻松](http://www.blog.kurohicncr.top/Article/details/9312865.shtml)
-- 2026-06-30 07:53 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/95706787.shtml)
-- 2026-06-30 07:40 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/142695.shtml)
-- 2026-06-30 07:29 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/947531970.shtml)
-- 2026-06-30 07:30 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/339439375.shtml)
-- 2026-06-30 07:52 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/490563141831.shtml)
-- 2026-06-30 07:42 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/27822220.shtml)
-- 2026-06-30 07:42 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/771995075128.shtml)
-- 2026-06-30 07:50 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/269860135.shtml)
-- 2026-06-30 07:34 - [刘宇宁是去进货了吗](https://www.blog.minike.top/Article/details/87316.shtml)
-- 2026-06-30 07:52 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/683740240.shtml)
-- 2026-06-30 07:42 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/994648089395.shtml)
-- 2026-06-30 07:46 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/745053024987.shtml)
-- 2026-06-30 07:43 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/71910925460.shtml)
-- 2026-06-30 07:49 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.minike.top/Article/details/64971110230.shtml)
+- 2026-06-30 07:39 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/51605233241.shtml)
+- 2026-06-30 07:40 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/38799.shtml)
+- 2026-06-30 07:53 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/08489132946.shtml)
+- 2026-06-30 07:36 - [索马里女大使：想和中国一起搞事业](http://www.blog.minike.top/Article/details/86904077.shtml)
+- 2026-06-30 07:34 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.minike.top/Article/details/982788224.shtml)
+- 2026-06-30 07:56 - [这一刀 会很帅](https://www.share.minike.top/Article/details/052285773.shtml)
+- 2026-06-30 07:48 - [【大鸣王潮1566】真拿你没办法](http://www.share.kurohicncr.top/Article/details/1041315813.shtml)
+- 2026-06-30 07:46 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/270861512.shtml)
+- 2026-06-30 07:58 - [千与千寻](http://www.share.kurohicncr.top/Article/details/672752.shtml)
+- 2026-06-30 07:48 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/19149135.shtml)
+- 2026-06-30 07:34 - [德国vs巴拉圭](https://www.share.minike.top/Article/details/4747534.shtml)
+- 2026-06-30 07:57 - [网友写差评被店家“挂”门口避雷](http://www.blog.minike.top/Article/details/5696321162.shtml)
+- 2026-06-30 07:58 - [日本遭读秒绝杀 森保一：我水平不够](http://www.blog.minike.top/Article/details/6010822.shtml)
+- 2026-06-30 07:51 - [三星投资计划](https://www.share.minike.top/Article/details/714991894438.shtml)
+- 2026-06-30 07:56 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/93489.shtml)

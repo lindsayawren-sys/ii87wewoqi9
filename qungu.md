@@ -1,51 +1,57 @@
-# 国际海事组织：任何国家无权封锁国际海峡
+# 伊朗空袭行动期间摩萨德局长到访阿联酋 协助战事协同部署
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社伦敦4月13日电（记者高文成）国际海事组织秘书长多明格斯13日说，任何国家无权封锁国际海峡。 他在记者会上回答美国封锁霍尔木兹海峡是否违反国际法的问题时说，根据国际法，任何国家不能阻止国际海峡中的航行自由。（完）责任编辑：宋雅芳
+据阿拉伯官员及知情人士透露，以色列情报机构摩萨德负责人在与伊朗交战期间，至少两次到访阿联酋，就战事开展协同对接，此举也凸显出以色列与这个海湾阿拉伯国家的合作关系正不断深化。 知情人士称，摩萨德局长戴维・巴尔内亚曾分别于 3 月和 4 月两次秘密访问阿联酋。 本轮冲突期间，两国展现出高度密切的安全协同态势。据报道，阿联酋对伊朗实施了多轮军事打击，包括袭击波斯湾伊朗拉万岛的一处炼油
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+据阿拉伯官员及知情人士透露，以色列情报机构摩萨德负责人在与伊朗交战期间，至少两次到访阿联酋，就战事开展协同对接，此举也凸显出以色列与这个海湾阿拉伯国家的合作关系正不断深化。
 
-新华社伦敦4月13日电（记者高文成）国际海事组织秘书长多明格斯13日说，任何国家无权封锁国际海峡。
+知情人士称，摩萨德局长戴维・巴尔内亚曾分别于 3 月和 4 月两次秘密访问阿联酋。
 
-他在记者会上回答美国封锁霍尔木兹海峡是否违反国际法的问题时说，根据国际法，任何国家不能阻止国际海峡中的航行自由。
+本轮冲突期间，两国展现出高度密切的安全协同态势。
 
-（完）责任编辑：宋雅芳
+据报道，阿联酋对伊朗实施了多轮军事打击，包括袭击波斯湾伊朗拉万岛的一处炼油厂；与此同时，以色列向阿联酋部署了铁穹防空系统，并派遣数十名军事人员负责操作部署，协助阿联酋抵御伊朗弹道武器袭击。
+
+阿联酋外交部与以色列总理办公室暂未就此置评请求作出回应。
+
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-30 07:41 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-30 07:45 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-30 07:26 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
-- 2026-06-30 07:28 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
-- 2026-06-30 07:35 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-30 07:40 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-30 07:24 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
-- 2026-06-30 07:48 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-30 07:42 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-30 07:41 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-30 07:33 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-30 07:48 - [德国4比5巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-30 07:53 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-30 07:37 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-30 07:48 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-30 07:58 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-30 07:45 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-30 07:36 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-30 07:31 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-30 07:42 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-30 07:57 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-30 07:47 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-30 07:37 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-30 07:32 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
+- 2026-06-30 07:36 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
+- 2026-06-30 07:33 - [日本队5进世界杯淘汰赛0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-30 07:39 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-30 07:43 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:43 - [世界杯](https://www.blog.kurohicncr.top/Article/details/8968580.shtml)
-- 2026-06-30 07:32 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/1853490.shtml)
-- 2026-06-30 07:32 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/33550285763.shtml)
-- 2026-06-30 07:40 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/686958541002.shtml)
-- 2026-06-30 07:54 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/70791775765.shtml)
-- 2026-06-30 07:42 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/727084755.shtml)
-- 2026-06-30 07:42 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/66091723529.shtml)
-- 2026-06-30 07:27 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/87945706.shtml)
-- 2026-06-30 07:44 - [巴西补时绝杀日本](http://www.blog.minike.top/Article/details/28918889.shtml)
-- 2026-06-30 07:40 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/10140.shtml)
-- 2026-06-30 07:37 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/39105521.shtml)
-- 2026-06-30 07:43 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/2758654.shtml)
-- 2026-06-30 07:41 - [覃予萱晋级WTT美国大满贯女单32强](http://www.blog.minike.top/Article/details/24012499204.shtml)
-- 2026-06-30 07:24 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.kurohicncr.top/Article/details/09007247981.shtml)
-- 2026-06-30 07:35 - [武磊：日本队有能力跟任何强队抗衡](https://www.blog.kurohicncr.top/Article/details/615315276498.shtml)
+- 2026-06-30 07:51 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.minike.top/Article/details/7089518656.shtml)
+- 2026-06-30 07:47 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.blog.minike.top/Article/details/39293962.shtml)
+- 2026-06-30 07:44 - [如何改变自己太负责任的性格?](https://www.blog.kurohicncr.top/Article/details/732036813.shtml)
+- 2026-06-30 07:57 - [日本进球](http://www.blog.kurohicncr.top/Article/details/023342162.shtml)
+- 2026-06-30 07:51 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.kurohicncr.top/Article/details/46713946.shtml)
+- 2026-06-30 07:35 - [孙兴慜道歉](http://www.blog.kurohicncr.top/Article/details/733112.shtml)
+- 2026-06-30 07:56 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/59430534239.shtml)
+- 2026-06-30 07:59 - [巴西补时绝杀日本](https://www.share.minike.top/Article/details/83620502218.shtml)
+- 2026-06-30 07:58 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/57303849669.shtml)
+- 2026-06-30 07:34 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/4605160.shtml)
+- 2026-06-30 07:55 - [爱很美味](http://www.blog.minike.top/Article/details/29008.shtml)
+- 2026-06-30 07:42 - [王楚钦孙颖莎晋级混双八强](http://www.share.kurohicncr.top/Article/details/4263113770.shtml)
+- 2026-06-30 07:51 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/56229511.shtml)
+- 2026-06-30 07:41 - [赛博朋克边缘行者2预告片](http://www.blog.minike.top/Article/details/641255.shtml)
+- 2026-06-30 07:41 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/571694139199.shtml)

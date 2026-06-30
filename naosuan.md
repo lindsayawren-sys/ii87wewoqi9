@@ -1,57 +1,53 @@
-# 【行业新闻】中材科技（苏州）有限公司70MPa大容积IV型储氢气瓶助力全球首台兆瓦级氢燃料航空发动机成功首飞
+# 【这个城市有点潮】云南昆明：春城的初夏温柔 “紫”属于你
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-导读：2026年4月4日，我国自主研制的全球首款兆瓦级氢燃料航空涡桨发动机AEP100，在株洲芦淞机场配装7.5吨级无人运输机完成首飞。此次首飞开创全球兆瓦级氢燃料航空发动机试飞先河，标志着我国绿色航空动力技术实现里程碑式突破。作为核心氢能储运装备供应商，中材科技（苏州）有限公司（以下简称“苏州有限”）为该项目配套的70MPa大容积IV型储氢气瓶组全程稳定运行，以硬核技术为国产
+发布时间：2026年05月13日 15:34 来源：中国新闻网 五月的昆明，蓝花楹如约倾泻。高饱和的蓝紫色，席卷街巷江畔，从教场中路到盘龙江畔，春城被晕染成一片蓝紫色的海。这是属于昆明的初夏温柔，是花开有时，“紫”属于你。 责任编辑：【刘湃】
 
 ## 正文
 
-导读：2026年4月4日，我国自主研制的全球首款兆瓦级氢燃料航空涡桨发动机AEP100，在株洲芦淞机场配装7.5吨级无人运输机完成首飞。
+发布时间：2026年05月13日 15:34 来源：中国新闻网 五月的昆明，蓝花楹如约倾泻。
 
-此次首飞开创全球兆瓦级氢燃料航空发动机试飞先河，标志着我国绿色航空动力技术实现里程碑式突破。
+高饱和的蓝紫色，席卷街巷江畔，从教场中路到盘龙江畔，春城被晕染成一片蓝紫色的海。
 
-作为核心氢能储运装备供应商，中材科技（苏州）有限公司（以下简称“苏州有限”）为该项目配套的70MPa大容积IV型储氢气瓶组全程稳定运行，以硬核技术为国产氢动力航空提供安全高效的储氢保障，彰显了公司在高端复合材料储氢容器领域的领先地位。
+这是属于昆明的初夏温柔，是花开有时，“紫”属于你。
 
-首飞期间，AEP100发动机运行良好，顺利完成全部预定试飞科目。
-
-作为飞机动力系统关键储氢载体，苏州有限研发的70MPa大容积IV型储氢气瓶，凭借全维度核心优势及突出的轻量化性能，完美适配航空领域严苛标准，助力实现飞行全程零碳排放。
-
-该气瓶核心优势显著：实现高压力与大容积的有机结合，大幅提升储氢效率，满足无人运输机长航程作业需求；实现国产高性能碳纤维在高压储氢容器的规模应用，采用“塑料内胆+碳纤维全缠绕”结构，轻量化设计有效降低机身自重，提升了运载效率；依托“材料—设计—工艺—仿真一体化”技术体系，采用先进生产工艺并通过严苛测试，安全性能优异；针对项目需求进行定制化设计，与飞机动力系统完美适配，核心环节实现国产化，助力氢燃料航空装备全链条自主可控。
-
-航空领域储氢装备需适配极端工况并实现长期稳定安全运行，此次配套的70MPa大容积IV型储氢气瓶，是苏州有限深耕高端场景研发的标杆产品，依托成熟技术实现多重突破，处于行业领先水平。
-
-目前，公司70MPa IV型储氢瓶已取得多规格国标认证，形成了覆盖乘用车、商用车、轨道交通、船舶、航空等多场景的产品矩阵，充分展现了深厚技术积累与市场响应能力。
+责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-30 07:37 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-30 07:52 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-30 07:29 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-30 07:29 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-30 07:39 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
-- 2026-06-30 07:39 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-30 07:47 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
-- 2026-06-30 07:51 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
-- 2026-06-30 07:47 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-30 07:36 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-30 07:44 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-30 07:48 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
+- 2026-06-30 07:44 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-30 07:53 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-30 07:33 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-30 07:51 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-30 07:42 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-30 07:50 - [郑钦文温网首轮出局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-30 07:39 - [恋与深空道歉声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-30 07:37 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-30 07:43 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-30 07:52 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-30 07:52 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-30 07:30 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-30 07:34 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-30 07:59 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:49 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/738765292660.shtml)
-- 2026-06-30 07:26 - [送你一朵小红花](http://www.blog.minike.top/Article/details/665889215830.shtml)
-- 2026-06-30 07:40 - [德国爆冷点球大战不敌巴拉圭](https://www.blog.minike.top/Article/details/559684.shtml)
-- 2026-06-30 07:43 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.share.kurohicncr.top/Article/details/80476557024.shtml)
-- 2026-06-30 07:47 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/829553854.shtml)
-- 2026-06-30 07:52 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/33285466.shtml)
-- 2026-06-30 07:43 - [逃狱兄弟](http://www.blog.minike.top/Article/details/2115999098.shtml)
-- 2026-06-30 07:35 - [勇士续约波尔津吉斯](https://www.share.minike.top/Article/details/410640010.shtml)
-- 2026-06-30 07:25 - [又一美国科技巨头转向中国大模型](https://www.blog.minike.top/Article/details/371378.shtml)
-- 2026-06-30 07:28 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/65212.shtml)
-- 2026-06-30 07:49 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/26162280.shtml)
-- 2026-06-30 07:40 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/942929275.shtml)
-- 2026-06-30 07:46 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/19670328.shtml)
-- 2026-06-30 07:24 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/91159510292.shtml)
-- 2026-06-30 07:24 - [郑钦文温网首轮出局](http://www.share.kurohicncr.top/Article/details/46776.shtml)
+- 2026-06-30 07:31 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/4580240329.shtml)
+- 2026-06-30 07:59 - [速度与激情9](https://www.share.minike.top/Article/details/54092.shtml)
+- 2026-06-30 07:32 - [小娘惹](http://www.share.minike.top/Article/details/90636541.shtml)
+- 2026-06-30 07:48 - [第一炉香](https://www.share.minike.top/Article/details/76113640532.shtml)
+- 2026-06-30 07:33 - [内马尔中场休息积极鼓励队友](http://www.blog.kurohicncr.top/Article/details/58019715.shtml)
+- 2026-06-30 07:59 - [郑钦文温网三连败西尼亚科娃](https://www.share.kurohicncr.top/Article/details/781532022.shtml)
+- 2026-06-30 07:47 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/5021389229.shtml)
+- 2026-06-30 07:31 - [高质量发展看新疆](http://www.share.minike.top/Article/details/978417.shtml)
+- 2026-06-30 07:38 - [卢卡申科发布解放军仪仗队视频](https://www.blog.kurohicncr.top/Article/details/566746.shtml)
+- 2026-06-30 07:34 - [德国爆冷点球大战不敌巴拉圭](http://www.blog.kurohicncr.top/Article/details/3890013.shtml)
+- 2026-06-30 07:48 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.minike.top/Article/details/735004507.shtml)
+- 2026-06-30 07:50 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/77527559.shtml)
+- 2026-06-30 07:56 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.kurohicncr.top/Article/details/8725767691.shtml)
+- 2026-06-30 07:55 - [委内瑞拉地震死亡人数升至1719人](http://www.share.kurohicncr.top/Article/details/445555.shtml)
+- 2026-06-30 07:41 - [周冬雨多次说演不了话剧文城](http://www.blog.minike.top/Article/details/5407078.shtml)

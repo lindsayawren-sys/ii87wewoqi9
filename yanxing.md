@@ -1,47 +1,60 @@
-# 重庆邮局海关劳务派遣服务采购项目中标公告
+# 【张忆东策略世界】存储板块点评：行情或由普涨转向结构分化，关注后续HBM涨价预期
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-1.项目名称：重庆邮局海关劳务派遣服务采购项目 2.采购人：中华人民共和国重庆邮局海关 3.采购方式：比选 4.开标时间：2026年4月8日5.中标供应商：重庆外商服务有限公司 6.中标价格：58元/人/月 7.中标主要内容：重庆邮局海关劳务派遣服务采购项目 8.评审人员：孟佳、向宁、石茜尹 9.联系人：石老师 联系电话：023-63392400 10.公示期：2026年4月8
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：张忆东策略世界 我们更新近期存储板块核心判断：行业基本面景气延续向上，Q2 涨价趋势已得到产业链充分验证，板块后续投资主线正式从全面普涨转向结构性分化。当前市场关注点已不再停留于存储价格能否实现环比上涨，转而聚焦价格绝对上行高度、高景气价格中枢维持时长，以及各下游终端对持续涨价的成本承受力差异。消费电
 
 ## 正文
 
-1.项目名称：重庆邮局海关劳务派遣服务采购项目 2.采购人：中华人民共和国重庆邮局海关 3.采购方式：比选 4.开标时间：2026年4月8日5.中标供应商：重庆外商服务有限公司 6.中标价格：58元/人/月 7.中标主要内容：重庆邮局海关劳务派遣服务采购项目 8.评审人员：孟佳、向宁、石茜尹 9.联系人：石老师 联系电话：023-63392400 10.公示期：2026年4月8日至2026年4月11日。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-中小企业声明函.pdf
+来源：张忆东策略世界 我们更新近期存储板块核心判断：行业基本面景气延续向上，Q2 涨价趋势已得到产业链充分验证，板块后续投资主线正式从全面普涨转向结构性分化。
+
+当前市场关注点已不再停留于存储价格能否实现环比上涨，转而聚焦价格绝对上行高度、高景气价格中枢维持时长，以及各下游终端对持续涨价的成本承受力差异。
+
+消费电子与 AI 服务器两大需求链条景气度背离，成为主导后续行情的核心变量：（1）消费电子：终端需求承压明显加剧，行业后续涨价节奏或将逐步收敛。
+
+（2）AI 相关存储需求：仍是全年景气核心，涨价弹性与景气持续性显著优于消费电子。
+
+现阶段全球头部 CSP 资本开支集体上修，2026 年北美四大云厂商合计资本开支已超 6500 亿美元。
+
+其中谷歌大幅上调至 1800-1900 亿美元（此前 1750-1850 亿美元）、微软上调至 1900 亿美元（同比增速 60% 以上）、亚马逊维持 2000 亿美元指引不变、Meta 上调至 1250-1450 亿美元（此前 1150-1350 亿美元），明确指向 AI 基础设施的高强度投入。
+
+只要全球算力集群资本开支投放力度未出现明显下修，AI 相关存储的高景气态势就难以快速逆转，这也是本轮存储基本面和行情走强的核心底层变化。
 
 ## 相关推荐
 
-- 2026-06-30 07:48 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-30 07:51 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-30 07:26 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
-- 2026-06-30 07:37 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
-- 2026-06-30 07:33 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-30 07:24 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-30 07:47 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-30 07:41 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-30 07:42 - [德国巴拉圭进入点球大战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
-- 2026-06-30 07:46 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
-- 2026-06-30 07:32 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-30 07:32 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
-- 2026-06-30 07:39 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-30 07:50 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-30 07:30 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-30 07:52 - [森保一 保守](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
+- 2026-06-30 07:45 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-30 07:54 - [德国4比5巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-30 07:38 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-30 07:44 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-30 07:41 - [德国进球被吹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-30 07:30 - [曝老詹对自由市场态度与以往截然不同](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-30 07:50 - [武磊：巴西队赢的并不轻松](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-30 07:38 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-30 07:46 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-30 07:41 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-30 07:56 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:29 - [大蒜晒外面被路过女子连盆端走](http://www.blog.kurohicncr.top/Article/details/68155735.shtml)
-- 2026-06-30 07:46 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/127214211713.shtml)
-- 2026-06-30 07:29 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/99616904313.shtml)
-- 2026-06-30 07:43 - [博世们还在犹豫 美的们已经卖断货](http://www.share.minike.top/Article/details/5575932.shtml)
-- 2026-06-30 07:31 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/178104770.shtml)
-- 2026-06-30 07:31 - [德国vs巴拉圭](https://www.share.kurohicncr.top/Article/details/053683800.shtml)
-- 2026-06-30 07:48 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/4726937.shtml)
-- 2026-06-30 07:50 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.kurohicncr.top/Article/details/0960026.shtml)
-- 2026-06-30 07:28 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/306469.shtml)
-- 2026-06-30 07:52 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/7404554928.shtml)
-- 2026-06-30 07:39 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.blog.kurohicncr.top/Article/details/3274537253.shtml)
-- 2026-06-30 07:28 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.share.kurohicncr.top/Article/details/296070582.shtml)
-- 2026-06-30 07:51 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/204676709199.shtml)
-- 2026-06-30 07:47 - [巴西vs日本首发名单](https://www.share.minike.top/Article/details/400111.shtml)
-- 2026-06-30 07:24 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/45212.shtml)
+- 2026-06-30 07:57 - [Melo向柳智敏张元英道歉](http://www.share.minike.top/Article/details/722117370.shtml)
+- 2026-06-30 07:59 - [董卿父亲报纸上发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/11666201.shtml)
+- 2026-06-30 07:46 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/4123843521.shtml)
+- 2026-06-30 07:43 - [起风了](https://www.share.minike.top/Article/details/391025995471.shtml)
+- 2026-06-30 07:43 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.minike.top/Article/details/768657602643.shtml)
+- 2026-06-30 07:37 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/9992743.shtml)
+- 2026-06-30 07:49 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/983131058.shtml)
+- 2026-06-30 07:53 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://www.share.minike.top/Article/details/68464075250.shtml)
+- 2026-06-30 07:43 - [湖南祁东原文化馆被指贱卖](http://www.blog.kurohicncr.top/Article/details/57424374353.shtml)
+- 2026-06-30 07:31 - [媒体评泰山建135公里刀片刺绳隔离网](http://www.share.minike.top/Article/details/31310.shtml)
+- 2026-06-30 07:33 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/97238086211.shtml)
+- 2026-06-30 07:37 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/1022026.shtml)
+- 2026-06-30 07:39 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/57528334279.shtml)
+- 2026-06-30 07:45 - [小娘惹](http://www.share.kurohicncr.top/Article/details/745755732339.shtml)
+- 2026-06-30 07:54 - [辛纳vs凯茨玛诺维奇](http://www.share.minike.top/Article/details/50424658857.shtml)

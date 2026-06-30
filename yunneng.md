@@ -1,59 +1,57 @@
-# 湖南自主磁驱技术打入全球高端制造供应链
+# 七折起拍！前海财险20%股权再寻买家，经营困局亟待突围
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-中新网长沙4月13日电(向一鹏 李杰敏)湖南省科技厅13日透露，湖南凌翔磁浮科技有限责任公司自主研制的新能源电池磁驱产线，成功交付一家全球新能源汽车与储能领域头部企业，并部署于其在华生产基地。这标志着湖南自主磁驱技术成功打入全球高端制造供应链。 磁驱技术以电磁力替代机械力，是工业自动化的核心技术。此次交付的磁驱产线专为储能电芯的高精度检测与自动化贴标工艺量身打造，针对传统产线精
+来源：国际金融报 5月14日，《国际金融报》记者从阿里司法拍卖平台获悉，新疆前海联合财产保险股份有限公司（下称“前海财险”）20%股权将于5月22日由北京金融法院进行拍卖。 该笔股权由深圳市钜盛华股份有限公司（下称“钜盛华”）持有，目前处于冻结状态，起拍价为3080万元，相当于在评估价4400万元的基础上打了七折。 股权风波迭起之余，前海财险还长期深陷净利润亏损、偿付能力不达标
 
 ## 正文
 
-中新网长沙4月13日电(向一鹏 李杰敏)湖南省科技厅13日透露，湖南凌翔磁浮科技有限责任公司自主研制的新能源电池磁驱产线，成功交付一家全球新能源汽车与储能领域头部企业，并部署于其在华生产基地。
+来源：国际金融报 5月14日，《国际金融报》记者从阿里司法拍卖平台获悉，新疆前海联合财产保险股份有限公司（下称“前海财险”）20%股权将于5月22日由北京金融法院进行拍卖。
 
-这标志着湖南自主磁驱技术成功打入全球高端制造供应链。
+该笔股权由深圳市钜盛华股份有限公司（下称“钜盛华”）持有，目前处于冻结状态，起拍价为3080万元，相当于在评估价4400万元的基础上打了七折。
 
-磁驱技术以电磁力替代机械力，是工业自动化的核心技术。
+股权风波迭起之余，前海财险还长期深陷净利润亏损、偿付能力不达标等多重困境。
 
-此次交付的磁驱产线专为储能电芯的高精度检测与自动化贴标工艺量身打造，针对传统产线精度不足、适配性差的痛点，实现了电芯检测、自动贴标、输送距离和产能设计等全面迭代升级，核心指标已达到行业领先水平。
+步入成立的第十个年头，这家险企能否走出经营泥潭、重回稳健发展轨道仍充满变数。
 
-近年来，湖南积极推动制造业智能化、绿色化、融合化发展，聚焦产业转型升级中的技术难点、痛点，部署实施了一批重大科技攻关项目。
+股权拍卖三度重启 根据北京金融法院的评估委托书，此次拍卖是在执行中融人寿保险股份有限公司与钜盛华、深圳市宝能投资集团有限公司（下称“宝能集团”）的民事纠纷时引发的。
 
-此次交付的磁驱产线依托2025年湖南省重点研发计划项目“高精度磁悬浮输送系统关键技术研究及示范应用”支持，项目聚焦高动态响应与精准定位、系统集成与智能化、能效优化等方向，联合产业链上下游开展协同攻关，在高动态响应伺服控制、模块化智能控制单元、能量回收技术等方面取得系列突破。
+2024年9月，法院判决钜盛华、宝能集团执行20.25亿元。
 
-下一步，湖南省科技厅将紧扣现代化产业体系发展需求，强化企业科技创新主体地位，支持龙头企业牵头组建创新联合体，持续推动更多关键核心技术突破与成果转化应用，推动更多“湖南智造”走向世界。
+为清偿这笔债务，法院相继冻结了钜盛华旗下多项资产，当中就包括前海财险20%股权，以及新疆前海联合基金管理有限公司（下称“前海联合基金”）30%股权等。
 
-(完)
+2025年2月，前海联合基金30%股权历经五次挂牌、四次流拍后，最终被上海证券以3766.22万元成功竞得。
 
 ## 相关推荐
 
-- 2026-06-30 07:48 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-30 07:43 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
-- 2026-06-30 07:36 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-30 07:40 - [德国队世界杯点球大战首败](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-30 07:35 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-30 07:53 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-30 07:49 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
-- 2026-06-30 07:40 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-30 07:35 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-30 07:39 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-30 07:29 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-30 07:26 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-30 07:53 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-30 07:50 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-30 07:53 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-30 07:58 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-30 07:36 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-30 07:59 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-30 07:39 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-30 07:36 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-30 07:47 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-30 07:56 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-30 07:41 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-30 07:54 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:27 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/498584531388.shtml)
-- 2026-06-30 07:51 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://www.blog.minike.top/Article/details/7069552083.shtml)
-- 2026-06-30 07:33 - [德国爆冷点球大战不敌巴拉圭](https://www.blog.minike.top/Article/details/710618596.shtml)
-- 2026-06-30 07:39 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.minike.top/Article/details/873735252.shtml)
-- 2026-06-30 07:30 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.kurohicncr.top/Article/details/262675.shtml)
-- 2026-06-30 07:36 - [郑钦文温网首轮出局](https://www.blog.minike.top/Article/details/94865917.shtml)
-- 2026-06-30 07:50 - [德国vs巴拉圭](https://www.share.kurohicncr.top/Article/details/04411.shtml)
-- 2026-06-30 07:49 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.kurohicncr.top/Article/details/438286811.shtml)
-- 2026-06-30 07:42 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/72654.shtml)
-- 2026-06-30 07:51 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/7594221691.shtml)
-- 2026-06-30 07:27 - [男子醉酒溺水获救后同行人拒协助抬人](http://www.share.kurohicncr.top/Article/details/7607477358.shtml)
-- 2026-06-30 07:24 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://www.blog.minike.top/Article/details/10067.shtml)
-- 2026-06-30 07:49 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.kurohicncr.top/Article/details/59412.shtml)
-- 2026-06-30 07:37 - [日本反击率先破门](http://www.share.minike.top/Article/details/9074284612.shtml)
-- 2026-06-30 07:47 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/60902995.shtml)
+- 2026-06-30 07:40 - [刘必安等16人非法集资案二审宣判](https://www.share.minike.top/Article/details/63531866.shtml)
+- 2026-06-30 07:58 - [起风了](http://www.share.minike.top/Article/details/21312.shtml)
+- 2026-06-30 07:42 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/33513.shtml)
+- 2026-06-30 07:49 - [安切洛蒂 换人](https://www.share.kurohicncr.top/Article/details/414182.shtml)
+- 2026-06-30 07:30 - [恋与深空道歉声明](http://www.share.kurohicncr.top/Article/details/74874.shtml)
+- 2026-06-30 07:36 - [急先锋](http://www.blog.minike.top/Article/details/35841758.shtml)
+- 2026-06-30 07:57 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/48926228503.shtml)
+- 2026-06-30 07:56 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/812679.shtml)
+- 2026-06-30 07:55 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/77586666.shtml)
+- 2026-06-30 07:37 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/9232593.shtml)
+- 2026-06-30 07:54 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/80728176429.shtml)
+- 2026-06-30 07:59 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/9549685.shtml)
+- 2026-06-30 07:42 - [马耳他著名拱门坍塌致中国男子身亡](http://www.blog.kurohicncr.top/Article/details/12042.shtml)
+- 2026-06-30 07:49 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/265989.shtml)
+- 2026-06-30 07:39 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/770653770.shtml)

@@ -1,59 +1,56 @@
-# 津巴布韦锂精矿出口松动？龙头独家回应：已获20万吨配额
+# 菲律宾参议院拟于18日组建弹劾法庭，启动对副总统杜特尔特弹劾程序
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月13日，锂矿板块震荡走高，盛新锂能、大中矿业等多股收盘涨停，天华新能涨17.42%。 消息面上，津巴布韦政府对锂精矿出口已有所松动，多家中企获得出口配额。 对此，中国证券报记者求证中矿资源、盛新锂能、华友钴业等公司。 中矿资源相关负责人表示：“确有此事，我们获得了20万吨的配额，与公司在当地每个月的产量
+菲律宾参议院议长艾伦·彼得·卡耶塔诺14日宣布，菲参议院将于5月18日正式改组为弹劾法庭，就副总统莎拉·杜特尔特弹劾案进行审前准备。卡耶塔诺当日在向众议院宣读的信函中指出，由24名参议员组成的弹劾法庭将于下周一召开会议，重点审议并确定庭审规则及程序，具体审判日期将在随后敲定。 根据菲律宾宪法规定，现任总统费迪南德·马科斯不得连任。现年47岁的杜特尔特此前被视为2028年总统大选
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+菲律宾参议院议长艾伦·彼得·卡耶塔诺14日宣布，菲参议院将于5月18日正式改组为弹劾法庭，就副总统莎拉·杜特尔特弹劾案进行审前准备。
 
-4月13日，锂矿板块震荡走高，盛新锂能、大中矿业等多股收盘涨停，天华新能涨17.42%。
+卡耶塔诺当日在向众议院宣读的信函中指出，由24名参议员组成的弹劾法庭将于下周一召开会议，重点审议并确定庭审规则及程序，具体审判日期将在随后敲定。
 
-消息面上，津巴布韦政府对锂精矿出口已有所松动，多家中企获得出口配额。
+根据菲律宾宪法规定，现任总统费迪南德·马科斯不得连任。
 
-对此，中国证券报记者求证中矿资源、盛新锂能、华友钴业等公司。
+现年47岁的杜特尔特此前被视为2028年总统大选的最热门人选。
 
-中矿资源相关负责人表示：“确有此事，我们获得了20万吨的配额，与公司在当地每个月的产量差不多。
+然而，一旦弹劾罪名成立，她将被罢免现任职务，并终身被褫夺担任公职的资格。
 
-” 盛新锂能相关负责人表示：“公司获得了津巴布韦锂精矿的出口配额，我们在当地锂精矿的年产能大概为29万吨，津巴布韦政府给的配额可以满足我们生产使用。
+针对杜特尔特的弹劾指控主要包括涉嫌滥用公共资金、巨额财产来源不明，以及威胁总统马科斯夫妇及前众议长的人身安全。
 
-” 日前，盛新锂能在业绩说明会上表示，公司津巴布韦萨比星矿山产能约占公司2026年锂盐所需锂矿原料的1/3左右。
+对于上述指控，杜特尔特已予以全面否认。
 
-华友钴业表示，目前没有收到津巴布韦政府发布的相关通知，要以官方通知为准。
+责任编辑：龙运翔
 
 ## 相关推荐
 
-- 2026-06-30 07:48 - [金鹰奖视后提名预测](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-30 07:42 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
-- 2026-06-30 07:39 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-30 07:27 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-30 07:36 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
-- 2026-06-30 07:37 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-30 07:31 - [高质量发展看新疆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
-- 2026-06-30 07:40 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
-- 2026-06-30 07:52 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-30 07:26 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-30 07:26 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
-- 2026-06-30 07:33 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-30 07:53 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-30 07:51 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-30 07:31 - [点球大战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-30 07:43 - [德国淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-30 07:55 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-30 07:52 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-30 07:33 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-30 07:59 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
+- 2026-06-30 07:41 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-30 07:49 - [德国罚丢3粒点球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-30 07:38 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:42 - [输球后日本球迷被强行披上巴西国旗](http://www.blog.minike.top/Article/details/8145624484.shtml)
-- 2026-06-30 07:39 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/853148789700.shtml)
-- 2026-06-30 07:47 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/65442453.shtml)
-- 2026-06-30 07:51 - [警犬“多多”助民警寻回失联老人](http://www.share.minike.top/Article/details/926469793.shtml)
-- 2026-06-30 07:31 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/943945.shtml)
-- 2026-06-30 07:39 - [日本领先巴西](https://www.share.kurohicncr.top/Article/details/7276177.shtml)
-- 2026-06-30 07:51 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/0264971.shtml)
-- 2026-06-30 07:46 - [81岁老人被男子买光菜回家车祸去世](https://www.share.kurohicncr.top/Article/details/6723230.shtml)
-- 2026-06-30 07:39 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/146433658732.shtml)
-- 2026-06-30 07:42 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/176749.shtml)
-- 2026-06-30 07:48 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/671860236.shtml)
-- 2026-06-30 07:42 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/58475.shtml)
-- 2026-06-30 07:37 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.kurohicncr.top/Article/details/2366170.shtml)
-- 2026-06-30 07:39 - [齐思钧回复张月](http://www.share.minike.top/Article/details/14058.shtml)
-- 2026-06-30 07:51 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/42627686.shtml)
+- 2026-06-30 07:31 - [王楚钦孙颖莎晋级混双八强](https://www.share.minike.top/Article/details/307181739.shtml)
+- 2026-06-30 07:37 - [二次元提前预演明日巴西对日本](https://www.share.minike.top/Article/details/123533846074.shtml)
+- 2026-06-30 07:34 - [德国巴拉圭 折磨](http://www.share.kurohicncr.top/Article/details/67046508297.shtml)
+- 2026-06-30 07:47 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/31121129.shtml)
+- 2026-06-30 08:00 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/609195909805.shtml)
+- 2026-06-30 07:43 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/9219541.shtml)
+- 2026-06-30 07:39 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/60833.shtml)
+- 2026-06-30 07:49 - [武磊：日本队有能力跟任何强队抗衡](https://www.blog.kurohicncr.top/Article/details/923263316.shtml)
+- 2026-06-30 07:46 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/7090626.shtml)
+- 2026-06-30 07:55 - [天道](http://www.blog.kurohicncr.top/Article/details/1647846.shtml)
+- 2026-06-30 07:35 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/58946.shtml)
+- 2026-06-30 07:33 - [这一刀 会很帅](http://www.share.minike.top/Article/details/967960078969.shtml)
+- 2026-06-30 07:50 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/635645503.shtml)
+- 2026-06-30 07:54 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/868693484.shtml)
+- 2026-06-30 07:42 - [张雪的一句“是我们”引发岛内热议](http://www.blog.minike.top/Article/details/5997964979.shtml)

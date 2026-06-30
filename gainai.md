@@ -1,45 +1,56 @@
-# 亿缕阳光·乡见｜田头科技范儿
+# 花旗：京东物流目标价升至18港元 维持“买入”评级
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月14日 16:16 来源：人民网-人民视频 责任编辑：【杨彦宇】
+花旗发布研报称，京东物流（02618）首季业绩略高于市场预期，虽然燃油成本上涨带来额外成本，但毛利率改善抵销了相关影响。考虑到股份回购计划及人民币升值等因素，花旗将京东物流目标价由17港元上调至18港元，维持“买入”评级，并微调2026至2028年盈利预测。该行认为，尽管面对油价及非经营收入方面的挑战，京东物流估值不高且效率持续改善，因此看好其前景。 该行预计京东物流有机收入增
 
 ## 正文
 
-发布时间：2026年04月14日 16:16 来源：人民网-人民视频 责任编辑：【杨彦宇】
+花旗发布研报称，京东物流（02618）首季业绩略高于市场预期，虽然燃油成本上涨带来额外成本，但毛利率改善抵销了相关影响。
+
+考虑到股份回购计划及人民币升值等因素，花旗将京东物流目标价由17港元上调至18港元，维持“买入”评级，并微调2026至2028年盈利预测。
+
+该行认为，尽管面对油价及非经营收入方面的挑战，京东物流估值不高且效率持续改善，因此看好其前景。
+
+该行预计京东物流有机收入增长将持续至第二季，并在下半年受惠于德邦业务比较基数正常化而加速。
+
+管理层提到，次季油价飙升带来的额外成本约占总收入的1%，但该行认为效率提升可在很大程度上抵销相关影响。
+
+该行提到，京东物流首季收入同比增长29%至606亿元人民币，高于市场预期，其中自营一体化供应链客户（1P ISC）、第三方一体化供应链客户（3P ISC）及其他客户分别增长32%、15.5%及32%。
+
+毛利率由去年同期的7.2%提升至8%，经调整经营利润率则由今年第一季0.5%改善至1.8%，主要受惠于较低基数及经营开支控制。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 07:45 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
-- 2026-06-30 07:30 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-30 07:39 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-30 07:46 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-30 07:24 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
-- 2026-06-30 07:34 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-30 07:27 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-30 07:50 - [刘宇宁高情商化解谁站C位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-30 07:39 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-30 07:37 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
-- 2026-06-30 07:25 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-30 07:39 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
-- 2026-06-30 07:35 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-30 07:36 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
+- 2026-06-30 07:50 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-30 07:44 - [日本队5进世界杯淘汰赛0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-30 07:56 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
+- 2026-06-30 07:48 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-30 07:52 - [德国淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-30 07:43 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
+- 2026-06-30 07:38 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-30 07:46 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-30 07:34 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:50 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/5463023.shtml)
-- 2026-06-30 07:43 - [毒液2](https://www.blog.minike.top/Article/details/05636.shtml)
-- 2026-06-30 07:50 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/712830217367.shtml)
-- 2026-06-30 07:39 - [输球后日本球迷被强行披上巴西国旗](http://www.blog.kurohicncr.top/Article/details/692739.shtml)
-- 2026-06-30 07:45 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/8442597580.shtml)
-- 2026-06-30 07:53 - [《男人至死是傻得儿》](https://www.share.minike.top/Article/details/542385925.shtml)
-- 2026-06-30 07:26 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.minike.top/Article/details/41030.shtml)
-- 2026-06-30 07:41 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/875989.shtml)
-- 2026-06-30 07:30 - [女心理师](https://www.blog.kurohicncr.top/Article/details/6340201117.shtml)
-- 2026-06-30 07:44 - [日本进球](http://www.blog.kurohicncr.top/Article/details/51672245.shtml)
-- 2026-06-30 07:28 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/1801938.shtml)
-- 2026-06-30 07:43 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/811604.shtml)
-- 2026-06-30 07:24 - [南北多地暴雨和强对流天气持续](https://www.blog.kurohicncr.top/Article/details/6922188.shtml)
-- 2026-06-30 07:46 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.kurohicncr.top/Article/details/315161425903.shtml)
-- 2026-06-30 07:30 - [藤森庆子赢得秘鲁总统选举](http://www.share.kurohicncr.top/Article/details/94030743783.shtml)
+- 2026-06-30 07:39 - [二次元提前预演明日巴西对日本](https://www.share.kurohicncr.top/Article/details/143472200.shtml)
+- 2026-06-30 07:37 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/472040.shtml)
+- 2026-06-30 07:59 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/66217985150.shtml)
+- 2026-06-30 07:50 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/477230636252.shtml)
+- 2026-06-30 07:59 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/6018961.shtml)
+- 2026-06-30 07:44 - [这种关系可能正在悄悄“催老”你](https://www.blog.kurohicncr.top/Article/details/4810898287.shtml)
+- 2026-06-30 07:55 - [卢卡申科发布解放军仪仗队视频](https://www.blog.minike.top/Article/details/595418638.shtml)
+- 2026-06-30 07:49 - [上半年全国特种设备安全形势总体平稳](https://www.share.minike.top/Article/details/40269765.shtml)
+- 2026-06-30 07:42 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/236455595460.shtml)
+- 2026-06-30 07:47 - [庆祝中国共产党成立105周年音乐会](http://www.share.kurohicncr.top/Article/details/38378.shtml)
+- 2026-06-30 07:47 - [我和我的家乡](http://www.blog.minike.top/Article/details/780646979.shtml)
+- 2026-06-30 07:55 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.kurohicncr.top/Article/details/692295936305.shtml)
+- 2026-06-30 07:55 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/19342242942.shtml)
+- 2026-06-30 07:43 - [豆包收费了，你还会用吗？](http://www.blog.kurohicncr.top/Article/details/968380157674.shtml)
+- 2026-06-30 07:57 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/60114.shtml)

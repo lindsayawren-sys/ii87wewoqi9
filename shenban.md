@@ -1,57 +1,50 @@
-# 光峰科技获某新能源车企定点，为其独家供应前装智慧座舱产品
+# 首个香港科研载荷登入“天宫”：“太空慧眼”精准监测温室气体排放
 
-> 更新时间：2026-06-30 07:54:02 UTC+8
+> 更新时间：2026-06-30 08:00:02 UTC+8
 
 ## 摘要
 
-4月14日，光峰科技（688007.SH）发布公告称，与某新能源车企签署采购合作相关协议，成为其定点供应商，为其独家供应前装智慧座舱产品。 光峰科技表示，将严格遵循该车企的订单需求，按规定时间节点完成指定产品的开发、试验验证、生产准备及交付工作。 光峰科技是首批科创板上市公司，同时也是科创板广东省第一股、全球激光显示第一股。2007年，光峰科技原创发明ALPD®半导体激光光源技
+发布时间：2026年05月14日 10:24 来源：中国新闻网 近日，搭载天舟十号货运飞船的长征七号遥十一运载火箭在文昌航天发射场成功升空。作为中国空间站的物资补给“后勤官”，天舟十号此次搭载的试验载荷数量为历次之最。其中，由香港科技大学牵头研制的全球首款轻小型、高精度温室气体点源协同探测仪“天韵相机”(MUSICO)，成为香港首个登上中国“天宫”的科研载荷。 记者 程宇 香港
 
 ## 正文
 
-4月14日，光峰科技（688007.SH）发布公告称，与某新能源车企签署采购合作相关协议，成为其定点供应商，为其独家供应前装智慧座舱产品。
+发布时间：2026年05月14日 10:24 来源：中国新闻网 近日，搭载天舟十号货运飞船的长征七号遥十一运载火箭在文昌航天发射场成功升空。
 
-光峰科技表示，将严格遵循该车企的订单需求，按规定时间节点完成指定产品的开发、试验验证、生产准备及交付工作。
+作为中国空间站的物资补给“后勤官”，天舟十号此次搭载的试验载荷数量为历次之最。
 
-光峰科技是首批科创板上市公司，同时也是科创板广东省第一股、全球激光显示第一股。
+其中，由香港科技大学牵头研制的全球首款轻小型、高精度温室气体点源协同探测仪“天韵相机”(MUSICO)，成为香港首个登上中国“天宫”的科研载荷。
 
-2007年，光峰科技原创发明ALPD®半导体激光光源技术，并在影院、专业显示、车载等领域得到广泛应用。
-
-此次定点合作的落地，是光峰科技在车载光学赛道的重要布局。
-
-待产品量产后，公司将根据该车企实际订单交付情况确认产品收入，预计在项目生命周期内为公司经营业绩带来积极影响。
-
-责任编辑：张乔松
+记者 程宇 香港报道 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 07:52 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-30 07:42 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
-- 2026-06-30 07:28 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-30 07:45 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
-- 2026-06-30 07:25 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
-- 2026-06-30 07:44 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-30 07:35 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
-- 2026-06-30 07:39 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-30 07:25 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
-- 2026-06-30 07:33 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
-- 2026-06-30 07:34 - [Melo向柳智敏张元英道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
-- 2026-06-30 07:42 - [三星投资计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-30 07:48 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-30 07:31 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-30 07:37 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
+- 2026-06-30 07:42 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-30 07:53 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-30 07:59 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-30 07:57 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-30 07:48 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
+- 2026-06-30 07:58 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-30 07:44 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-30 07:43 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-30 07:52 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
+- 2026-06-30 07:30 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:33 - [花少8要去世界杯举办国](https://www.blog.kurohicncr.top/Article/details/8326073070.shtml)
-- 2026-06-30 07:34 - [德国 传控](http://www.blog.minike.top/Article/details/958086.shtml)
-- 2026-06-30 07:25 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.kurohicncr.top/Article/details/96950001640.shtml)
-- 2026-06-30 07:52 - [日本五次世界杯淘汰赛全败](https://www.blog.kurohicncr.top/Article/details/8219891778.shtml)
-- 2026-06-30 07:32 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/651135477593.shtml)
-- 2026-06-30 07:31 - [花少8要去世界杯举办国](https://www.blog.minike.top/Article/details/88932.shtml)
-- 2026-06-30 07:44 - [德国 传控](https://www.share.kurohicncr.top/Article/details/44448455929.shtml)
-- 2026-06-30 07:43 - [巴拉圭点球大战淘汰德国进16强](http://www.share.kurohicncr.top/Article/details/736653126791.shtml)
-- 2026-06-30 07:44 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/7445961.shtml)
-- 2026-06-30 07:36 - [人类...完蛋了...](https://www.share.minike.top/Article/details/518065.shtml)
-- 2026-06-30 07:32 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/157322.shtml)
-- 2026-06-30 07:27 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/47241826280.shtml)
-- 2026-06-30 07:30 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.kurohicncr.top/Article/details/16578.shtml)
-- 2026-06-30 07:52 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/845619648697.shtml)
-- 2026-06-30 07:29 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/2666580.shtml)
+- 2026-06-30 07:31 - [我和我的家乡](http://www.share.minike.top/Article/details/2345665904.shtml)
+- 2026-06-30 07:33 - [本届世界杯已有5名球员被控强奸](http://www.blog.minike.top/Article/details/21568.shtml)
+- 2026-06-30 07:44 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.minike.top/Article/details/214588239.shtml)
+- 2026-06-30 07:57 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/5970294536.shtml)
+- 2026-06-30 07:34 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/8743800943.shtml)
+- 2026-06-30 07:37 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/0861745130.shtml)
+- 2026-06-30 07:31 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](http://www.share.minike.top/Article/details/17302.shtml)
+- 2026-06-30 07:59 - [审核了不止十年的低创鬼畜](https://www.blog.minike.top/Article/details/392116932.shtml)
+- 2026-06-30 07:41 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/9445513.shtml)
+- 2026-06-30 07:58 - [穆祉丞年度人气艺人](https://www.blog.kurohicncr.top/Article/details/183948.shtml)
+- 2026-06-30 07:36 - [德国队世界杯点球大战首败](http://www.share.minike.top/Article/details/63919473.shtml)
+- 2026-06-30 07:56 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/8276359.shtml)
+- 2026-06-30 07:35 - [马耳他著名拱门坍塌致一中国男子身亡](https://www.blog.minike.top/Article/details/10199.shtml)
+- 2026-06-30 07:45 - [美人鱼](http://www.share.kurohicncr.top/Article/details/4416245831.shtml)
+- 2026-06-30 07:39 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/13846620593.shtml)
