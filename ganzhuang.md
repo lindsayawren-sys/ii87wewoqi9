@@ -1,44 +1,48 @@
-<h1>伊朗布什尔核电站二号机组恢复建设</h1><br>
+<h1>爱奇艺AI艺人库争议背后：为何要推进，如何保证演员和观众权益？</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>当地时间16日，俄罗斯国家原子能公司相关负责人表示，伊朗布什尔核电站二号机组相关建设工作已经恢复，混凝土浇筑和钢筋施工等作业重新启动。 该负责人同时表示，目前尚未决定是否让全部俄罗斯工作人员返回布什尔核电站。 布什尔核电站在此前美国和以色列针对伊朗的军事行动期间曾多次遭到袭击，但据伊朗方面表示，该处核反应堆未受到损坏。（总台记者 李健南 李曌）</p><br>
+<p>AI替代论延伸到影视行业，爱奇艺“AI艺人库”引发热议。 4月21日凌晨，爱奇艺再次发关于旗下纳逗Pro艺人库的说明称，纳逗Pro艺人库是为AIGC创作者与艺人方提供高效对接沟通的规范化合作平台。不存在未经艺人同意将其纳入纳逗Pro艺人库的情况。关于AI技术对影视创作的积极影响，爱奇艺始终尊重包括艺人在内的所有创作者，这是最重要的基本原则。 前一日，在爱奇艺世界·大会上，爱奇艺</p><br>
 <h2>正文</h2><br>
-<p>当地时间16日，俄罗斯国家原子能公司相关负责人表示，伊朗布什尔核电站二号机组相关建设工作已经恢复，混凝土浇筑和钢筋施工等作业重新启动。</p><br>
-<p>该负责人同时表示，目前尚未决定是否让全部俄罗斯工作人员返回布什尔核电站。</p><br>
-<p>布什尔核电站在此前美国和以色列针对伊朗的军事行动期间曾多次遭到袭击，但据伊朗方面表示，该处核反应堆未受到损坏。</p><br>
-<p>（总台记者 李健南 李曌）</p><br>
+<p>AI替代论延伸到影视行业，爱奇艺“AI艺人库”引发热议。</p><br>
+<p>4月21日凌晨，爱奇艺再次发关于旗下纳逗Pro艺人库的说明称，纳逗Pro艺人库是为AIGC创作者与艺人方提供高效对接沟通的规范化合作平台。</p><br>
+<p>不存在未经艺人同意将其纳入纳逗Pro艺人库的情况。</p><br>
+<p>关于AI技术对影视创作的积极影响，爱奇艺始终尊重包括艺人在内的所有创作者，这是最重要的基本原则。</p><br>
+<p>前一日，在爱奇艺世界·大会上，爱奇艺高级副总裁刘文峰表示，目前爱奇艺专业级影视制作平台纳逗Pro的艺人库，已有超百位艺人签约入驻。</p><br>
+<p>该消息一出，即引发网友对AI技术替代真人表演的广泛争议。</p><br>
+<p>值得关注的是，新浪娱乐在推送博文时@了于和伟、张若昀、王楚然等多位艺人，很快，多位被@的艺人团队发布声明否认AI授权。</p><br>
+<p>后经确认，于和伟、张若昀、王楚然并未入驻纳逗Pro艺人库。</p><br>
 <h2>相关推荐</h2><br>
-<h3>日本进球</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md</p><br>
-<h3>补时绝杀 巴西2-1淘汰日本</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md</p><br>
-<h3>感动全网的699分女生想报考清华</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md</p><br>
-<h3>我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md</p><br>
-<h3>德国 传控</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md</p><br>
-<h3>如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md</p><br>
-<h3>急先锋</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md</p><br>
-<h3>德国队世界杯点球大战首败</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md</p><br>
-<h3>全网说丑的格力玫瑰空调卖了5万台</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md</p><br>
-<h3>致敬！中国首批缉毒警已全体退休</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md</p><br>
-<h3>终于把好哥们处成了情侣!</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md</p><br>
-<h3>中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md</p><br>
-<h3>“草莓月亮”浪漫现身</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md</p><br>
-<h3>德国北部枪击事件致5死</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md</p><br>
-<h3>董路：谁赢谁是“正路子”</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md</p><br>
+<h3>人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md</p><br>
+<h3>德国巴拉圭进入点球大战</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md</p><br>
+<h3>世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md</p><br>
+<h3>18岁体育生离世由爷爷奶奶抚养长大</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md</p><br>
+<h3>泰山景区回应修建刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md</p><br>
+<h3>明星大侦探第一季</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md</p><br>
+<h3>刘宇宁高情商化解谁站C位</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md</p><br>
+<h3>本届世界杯已有5名球员被控强奸</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md</p><br>
+<h3>女子发现孩子非现任亲生状告前任索赔</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md</p><br>
+<h3>奔跑吧·黄河篇第二季</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md</p><br>
+<h3>一见倾心</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md</p><br>
+<h3>日本球迷被强行披上巴西国旗</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md</p><br>
+<h3>李在明90度鞠躬感谢韩国两大财阀</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md</p><br>
+<h3>巴西2-1绝杀日本</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md</p><br>
+<h3>老人卖菜获博主帮助后遇车祸去世</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>日本队主帅道歉</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:http://www.share.minike.top/Article/details/5987169.shtml</p><br>
-<h3>泰山建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://www.share.minike.top/Article/details/919247484800.shtml</p><br>
-<h3>杨紫肖战余生请多指教拍立得</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/235395589068.shtml</p><br>
-<h3>马航MH370传来最新消息</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:https://www.share.minike.top/Article/details/4925479.shtml</p><br>
-<h3>杨紫获白玉兰视后为何争议难平</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:http://www.blog.minike.top/Article/details/4541931021.shtml</p><br>
-<h3>陈幸同晋级WTT美国大满贯女单32强</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://www.blog.minike.top/Article/details/414992564089.shtml</p><br>
-<h3>已经看完《三国第一部：争洛阳》的人，如何评价这部电影？</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:http://www.blog.minike.top/Article/details/99120.shtml</p><br>
-<h3>巴西绝杀日本</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:http://www.share.minike.top/Article/details/2843314971.shtml</p><br>
-<h3>莫兰特转投开拓者效力</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://www.share.minike.top/Article/details/54466.shtml</p><br>
-<h3>巴西2比1日本</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:http://www.blog.minike.top/Article/details/9901335.shtml</p><br>
-<h3>曝娱乐圈大部分明星失业</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/5593875.shtml</p><br>
-<h3>老人卖菜获博主帮助后遇车祸去世</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/697230396.shtml</p><br>
-<h3>俄乌双方伤亡近180万人</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://www.blog.minike.top/Article/details/7415234413.shtml</p><br>
-<h3>日本主帅赛后回应淘汰出局</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/69144253368.shtml</p><br>
-<h3>FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/580442.shtml</p><br>
+<h3>失明的我带老妈去了趟“火星”</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/4265993.shtml</p><br>
+<h3>荀彧和曹操反目成仇的根本原因是什么？</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://www.share.minike.top/Article/details/56430071.shtml</p><br>
+<h3>ASMR 千禧年百货大楼初代柜姐给你化大头贴妆</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/794287.shtml</p><br>
+<h3>【Reaction】女生最少的5款游戏</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/347710668.shtml</p><br>
+<h3>杨紫学位证上就是杨紫</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://www.share.minike.top/Article/details/04292.shtml</p><br>
+<h3>披荆斩棘的哥哥</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/28112.shtml</p><br>
+<h3>中国新一轮出口管制直指日本命脉</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:http://www.blog.minike.top/Article/details/49212215.shtml</p><br>
+<h3>一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://www.share.minike.top/Article/details/4971004.shtml</p><br>
+<h3>找到了10年前跪舔b站的视频</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/664130667.shtml</p><br>
+<h3>杨紫被质疑未使用原名纯属误解</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/604945936051.shtml</p><br>
+<h3>千香</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/504812.shtml</p><br>
+<h3>男子造谣东鹏老板不喝自家饮料被拘</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/4113517866.shtml</p><br>
+<h3>恐怖世界 第三集 埃温霍姆村</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:http://www.blog.minike.top/Article/details/165906.shtml</p><br>
+<h3>奔跑吧·黄河篇第二季</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/223329619.shtml</p><br>
+<h3>主人解开狗绳2只狗将路人撕咬致死</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:http://www.share.minike.top/Article/details/53759.shtml</p><br>

@@ -1,45 +1,46 @@
-<h1>在家就能“住院”？家庭病床服务指南来了</h1><br>
+<h1>蓝猫头鹰资本以24亿美元收购西拉房地产信托</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>为满足失能、高龄、慢性病等特殊人群居家医疗需求，国家卫生健康委、国家中医药局14日发布了《家庭病床服务指南(试行)》，对家庭病床服务对象、服务内容、服务要求都作出了具体的规定。 从“跑医院”到“等上门” ，究竟哪些人群可享受家庭病床服务？如何申请？家庭病床都能提供哪些服务？医保报销吗？来看业内专家的解读。 哪些人群可享受家庭病床服务？ 《指南》明确，家庭病床服务遵循“安全适宜、</p><br>
+<p>交易完成后，西拉将变为私有公司 简要摘要 西拉房地产信托将被蓝猫头鹰资本旗下多家关联公司收购，此项全现金交易估值约 24 亿美元。 西拉房地产信托宣布，将被蓝猫头鹰资本的部分关联公司以全现金方式收购，交易价值约24 亿美元。 西拉股价上涨 19%，报 30.30 美元。 公司周一表示，根据交易条款，蓝猫头鹰房地产资本的关联公司将以每股30.38 美元的价格，收购西拉全部已发行普</p><br>
 <h2>正文</h2><br>
-<p>为满足失能、高龄、慢性病等特殊人群居家医疗需求，国家卫生健康委、国家中医药局14日发布了《家庭病床服务指南(试行)》，对家庭病床服务对象、服务内容、服务要求都作出了具体的规定。</p><br>
-<p>从“跑医院”到“等上门” ，究竟哪些人群可享受家庭病床服务？</p><br>
-<p>如何申请？</p><br>
-<p>家庭病床都能提供哪些服务？</p><br>
-<p>医保报销吗？</p><br>
-<p>来看业内专家的解读。</p><br>
-<p>哪些人群可享受家庭病床服务？</p><br>
-<p>《指南》明确，家庭病床服务遵循“安全适宜、自愿参与、属地管理、动态调整”原则，保障失能、高龄、慢性病、残疾人等重点人群居家医疗需求。</p><br>
+<p>交易完成后，西拉将变为私有公司 简要摘要 西拉房地产信托将被蓝猫头鹰资本旗下多家关联公司收购，此项全现金交易估值约 24 亿美元。</p><br>
+<p>西拉房地产信托宣布，将被蓝猫头鹰资本的部分关联公司以全现金方式收购，交易价值约24 亿美元。</p><br>
+<p>西拉股价上涨 19%，报 30.30 美元。</p><br>
+<p>公司周一表示，根据交易条款，蓝猫头鹰房地产资本的关联公司将以每股30.38 美元的价格，收购西拉全部已发行普通股。</p><br>
+<p>两家公司称，该收购价格较消息披露前最后一个完整交易日 —— 上周五的西拉收盘价有19% 的溢价，较其 30 个交易日成交量加权平均价溢价近 26%。</p><br>
+<p>西拉首席执行官迈克尔・西顿表示，该交易预计在第二或第三季度完成，将为股东 “带来显著且即时的实际收益”。</p><br>
+<p>他补充道：“西拉管理团队始终将股东利益置于首位，通过启动战略流程并与蓝猫头鹰管理基金完成本次交易，充分体现了这一承诺。</p><br>
+<p>蓝猫头鹰是全球领先的净租赁资产与售后回租投资机构。</p><br>
 <h2>相关推荐</h2><br>
-<h3>四川宜宾地震瞬间鱼群乱跳</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md</p><br>
-<h3>国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md</p><br>
-<h3>《我落泪情绪零碎》</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md</p><br>
-<h3>警方介入洪明甫死亡威胁</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md</p><br>
-<h3>低智商犯罪三江口团建来了</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md</p><br>
-<h3>日本五次世界杯淘汰赛全败</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md</p><br>
-<h3>德国队世界杯点球大战首败</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md</p><br>
-<h3>巴西醒醒 这是淘汰赛</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md</p><br>
-<h3>曝iPhone18Pro机密文件现身暗网</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md</p><br>
-<h3>古代人对纳妾的态度是什么样的？</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md</p><br>
-<h3>男子在京东买到“同仁堂”假药</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md</p><br>
-<h3>咕嘎万能小摊1：沉浸式制作惠灵顿牛排</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md</p><br>
+<h3>青春环游记第三季</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md</p><br>
+<h3>感动全网的699分女生想报考清华</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md</p><br>
+<h3>电影抓特务上映11天破亿</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md</p><br>
+<h3>巴西足球能否再现昔日荣光</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md</p><br>
+<h3>【Reaction】女生最少的5款游戏</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md</p><br>
+<h3>《我落泪情绪零碎》</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md</p><br>
+<h3>德国队世界杯点球大战首败</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md</p><br>
+<h3>王楚钦孙颖莎混双对手产生</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md</p><br>
+<h3>中国新一轮出口管制直指日本命脉</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md</p><br>
+<h3>啊啊啊</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md</p><br>
+<h3>我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md</p><br>
+<h3>佐野海舟远射破门</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md</p><br>
+<h3>国务院：探索延长义务教育年限</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>斗破苍穹</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:http://www.blog.minike.top/Article/details/2489421145.shtml</p><br>
-<h3>恋与深空回应争议</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://www.blog.minike.top/Article/details/00506.shtml</p><br>
-<h3>巴西绝杀</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:http://www.blog.minike.top/Article/details/1603137861.shtml</p><br>
-<h3>我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:http://www.blog.minike.top/Article/details/45551034051.shtml</p><br>
-<h3>我设置了全宇宙最安全的密码</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/654101.shtml</p><br>
-<h3>中国猪圈装空调让欧洲网友破防</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/54961.shtml</p><br>
-<h3>欧洲家电巨头为何输掉了这个夏天</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://www.blog.minike.top/Article/details/56360739987.shtml</p><br>
-<h3>《虎吹最难绷の一集》</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/535344104.shtml</p><br>
-<h3>2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:http://www.share.minike.top/Article/details/893155175.shtml</p><br>
-<h3>未来的飞机可能会用电吗？</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/2432395331.shtml</p><br>
-<h3>古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:http://www.share.minike.top/Article/details/628621360.shtml</p><br>
-<h3>青春环游记第三季</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/6221371893.shtml</p><br>
-<h3>黄晓明晒和周杰伦的合照</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/14843793828.shtml</p><br>
-<h3>人类...完蛋了...</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/2047973.shtml</p><br>
-<h3>韩国道歉完日本道歉</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/925421976.shtml</p><br>
+<h3>男子在非洲务工死亡 公司不认可工亡</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/514741.shtml</p><br>
+<h3>世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/886512.shtml</p><br>
+<h3>德国连续三届世界杯无缘16强</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/1363707706.shtml</p><br>
+<h3>这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://www.blog.minike.top/Article/details/769284.shtml</p><br>
+<h3>网瘾賊大的阿嬷</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://www.share.minike.top/Article/details/8997550.shtml</p><br>
+<h3>黄晓明晒和周杰伦的合照</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:http://www.blog.minike.top/Article/details/024364723.shtml</p><br>
+<h3>欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/83119.shtml</p><br>
+<h3>《名肘探科比》：科比大战裂口女</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/98697447807.shtml</p><br>
+<h3>扬名立万</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:http://www.blog.minike.top/Article/details/7223246.shtml</p><br>
+<h3>孙兴慜道歉</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/05638717216.shtml</p><br>
+<h3>巴西vs日本</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/26134.shtml</p><br>
+<h3>韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://www.share.minike.top/Article/details/78684465.shtml</p><br>
+<h3>世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:http://www.blog.minike.top/Article/details/843597.shtml</p><br>
+<h3>王灿兮被烫伤两年后维权成功</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/9495662.shtml</p><br>
+<h3>峡谷事故团队组队时有人提醒会下雨</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:http://www.blog.minike.top/Article/details/1044938293.shtml</p><br>

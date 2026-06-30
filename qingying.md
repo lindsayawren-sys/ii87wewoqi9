@@ -1,43 +1,47 @@
-<h1>打破感官壁垒 视障人士在浙江省博物馆“看见”历史</h1><br>
+<h1>中国长安朱华荣：未来三到五年，全球汽车产业竞争格局将重新形成</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新网杭州5月16日电(曹丹)5月16日，在第三十六个全国助残日与“5·18国际博物馆日”来临之际，“触摸文明”视障人士体验活动在浙江省博物馆举行。来自杭州市淳安县的26位视障人士走进博物馆，通过触摸、聆听与交流，沉浸式感受中华文明的温度与魅力。 在人文探索体验馆，视障人士用手依次触摸浙江省博物馆9件镇馆之宝的仿制品。 志愿者董臻讲解良渚玉琮王时，鼓励大家将手探到玉琮中间的孔洞</p><br>
+<p>4月21日，“中国长安汽车集团全球战略发布会”举行，主题为：创新创业 智启长安。中国长安汽车集团有限公司党委书记、董事长朱华荣谈到，中国长安现在这个多能源的这种企业，中国长安汽车在现阶段多能源技术路线上的优势非常明显，将有力助推中国品牌全球化发展。 他指出，当前汽车产业已经进入淘汰赛，马太效应空前加剧。“我坚信，未来三到五年，全球汽车产业的竞争格局将会重新形成。单一企业很难独自</p><br>
 <h2>正文</h2><br>
-<p>中新网杭州5月16日电(曹丹)5月16日，在第三十六个全国助残日与“5·18国际博物馆日”来临之际，“触摸文明”视障人士体验活动在浙江省博物馆举行。</p><br>
-<p>来自杭州市淳安县的26位视障人士走进博物馆，通过触摸、聆听与交流，沉浸式感受中华文明的温度与魅力。</p><br>
-<p>在人文探索体验馆，视障人士用手依次触摸浙江省博物馆9件镇馆之宝的仿制品。</p><br>
-<p>志愿者董臻讲解良渚玉琮王时，鼓励大家将手探到玉琮中间的孔洞中——这件中国最早的微雕作品之一，孔洞以竹管加解玉砂上下对钻而成，因两端未完全对齐，孔壁留有一道棱。</p><br>
-<p>“这是工艺的不完美性，也是唯有触摸方能感知的细节。</p><br>
-<p>”董臻感慨道，“步入博物馆，面对未知的历史，视力健全者与视障者其实没有区别，我们都在'摸黑'前行。</p><br>
-<p>” 现场，教育员用生动语言描述文物的时代背景与使用场景，并引导视障人士用双手细细感知文物的纹饰、形状与材质。</p><br>
-<p>有人轻轻摩挲战国伎乐铜屋模型仿制品中乐师的乐器，有人反复感受唐落霞式“彩凤鸣岐”七弦琴仿制品边缘灵动起伏的线条，还有人用手指勾勒以《富春山居图·剩山图》为蓝本的浮雕线条。</p><br>
+<p>4月21日，“中国长安汽车集团全球战略发布会”举行，主题为：创新创业 智启长安。</p><br>
+<p>中国长安汽车集团有限公司党委书记、董事长朱华荣谈到，中国长安现在这个多能源的这种企业，中国长安汽车在现阶段多能源技术路线上的优势非常明显，将有力助推中国品牌全球化发展。</p><br>
+<p>他指出，当前汽车产业已经进入淘汰赛，马太效应空前加剧。</p><br>
+<p>“我坚信，未来三到五年，全球汽车产业的竞争格局将会重新形成。</p><br>
+<p>单一企业很难独自承担在智驾、芯片、能源等领域巨额的研发投入，汽车企业如果仅仅依靠造车、卖车这一持续了百年的传统模式，很难实现高质量发展。</p><br>
+<p>” 因此，朱华荣认为，汽车产业必须打破边界，跨界融合，携手产业内外的科技合作伙伴，共同建设开放、共赢、可持续的合作生态，实现从“制造”向“生态”的跃迁。</p><br>
+<p>新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。</p><br>
+<p>责任编辑：李昂</p><br>
 <h2>相关推荐</h2><br>
-<h3>我吃遍了西安最強的街頭小吃，第九家強得離譜！</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md</p><br>
-<h3>明星大侦探第一季</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md</p><br>
-<h3>有什么好的高中网课推荐吗？</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md</p><br>
-<h3>日耳曼拖拉机</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md</p><br>
-<h3>女儿从清华毕业 爸爸晒出17年对比照</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md</p><br>
-<h3>左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md</p><br>
-<h3>速度与激情9</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md</p><br>
-<h3>金价跳水 水贝市场显现出“两重天”</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md</p><br>
-<h3>人可以极简主义到什么程度？</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md</p><br>
-<h3>锐评T1战胜KC</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md</p><br>
+<h3>输球后日本球迷被强行披上巴西国旗</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md</p><br>
+<h3>IGN评测电影版后室</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md</p><br>
+<h3>ASMR 千禧年百货大楼初代柜姐给你化大头贴妆</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md</p><br>
+<h3>扬名立万</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md</p><br>
+<h3>杨紫肖战余生请多指教拍立得</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md</p><br>
+<h3>第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md</p><br>
+<h3>HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md</p><br>
+<h3>网红峡谷5人溺亡 有人提醒会下雨</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md</p><br>
+<h3>世界杯巴拉圭点球淘汰德国</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md</p><br>
+<h3>名记：灰熊将莫兰特交易至开拓者</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md</p><br>
+<h3>金鹰奖视后提名预测</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md</p><br>
+<h3>iPhone18e曝光</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md</p><br>
+<h3>四川凉山落石砸毁车辆 3人遇难</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md</p><br>
+<h3>我觉得你是在无中生友</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>明星大侦探第一季</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://www.blog.minike.top/Article/details/6803252.shtml</p><br>
-<h3>韩国道歉完日本道歉</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://www.blog.minike.top/Article/details/58777506536.shtml</p><br>
-<h3>博世们还在犹豫 美的们已经卖断货</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/74906063.shtml</p><br>
-<h3>一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/7197593.shtml</p><br>
-<h3>哈弗茨头球破门</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/09380.shtml</p><br>
-<h3>马宁怒怼巴拉圭教练组</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://www.blog.minike.top/Article/details/76176.shtml</p><br>
-<h3>欧洲家电巨头为何输掉了这个夏天</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/178729091.shtml</p><br>
-<h3>人民锐评：网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://www.share.minike.top/Article/details/0775743088.shtml</p><br>
-<h3>女子健身不当 居然“脑子漏水”了</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/042176439172.shtml</p><br>
-<h3>疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/1529425963.shtml</p><br>
-<h3>法媒点赞中国小区楼顶“人工降雨”</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/38384627725.shtml</p><br>
-<h3>欧洲民众抢购空调降温</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/77977.shtml</p><br>
-<h3>蜘蛛侠:英雄归来</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.blog.minike.top/Article/details/91154656.shtml</p><br>
-<h3>妻子撞死家暴丈夫案二审案情反转</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:http://www.share.minike.top/Article/details/1740890.shtml</p><br>
-<h3>木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/4081781222.shtml</p><br>
+<h3>全球芯片巨头史诗级扩产</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:http://www.share.minike.top/Article/details/415863796347.shtml</p><br>
+<h3>挪威国家队紧急从本土订购大批海鲜</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://www.blog.minike.top/Article/details/874412.shtml</p><br>
+<h3>女子清吧被陌生人投放伟哥</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/5040816.shtml</p><br>
+<h3>媒体：手机测评该挤挤水分了</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/9680201.shtml</p><br>
+<h3>世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/38168.shtml</p><br>
+<h3>《贺子珍》</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/287845869.shtml</p><br>
+<h3>武磊：巴西队赢的并不轻松</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:http://www.share.minike.top/Article/details/52895.shtml</p><br>
+<h3>日本主帅：未能夺冠深感抱歉</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/04559.shtml</p><br>
+<h3>内马尔中场休息积极鼓励队友</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://www.share.minike.top/Article/details/59552593.shtml</p><br>
+<h3>⚡逼尔摩斯教你玩球⚡</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/959006082922.shtml</p><br>
+<h3>如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/0161680.shtml</p><br>
+<h3>花少8要去世界杯举办国</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://www.share.minike.top/Article/details/9863518.shtml</p><br>
+<h3>如何评价《龙之家族》第三季第二集？</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.blog.minike.top/Article/details/522350661.shtml</p><br>
+<h3>美团、淘宝闪购、京东外卖达成共识</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/4670074475.shtml</p><br>
+<h3>《贺子珍》</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/35988.shtml</p><br>

@@ -1,43 +1,39 @@
-<h1>切勿出借个人外汇额度！400余名老人被当换汇“黄牛”工具人</h1><br>
+<h1>圣贝拉集团：受托人根据股份奖励计划购买20万股</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>近日，上海警方通报一起非法汇兑案，不法分子拉拢400余名老年人充当换汇“黄牛”工具人，涉案金额达4500余万元。 去年12月，上海市部分银行向警方反映，出现大量老年人集中换汇情况。经核查，这些老人多虚构个人出国旅游理由购汇，实际并无出境记录。后经警方调查，嫌疑人唐某、张某以给好处费为诱饵，组织老人在小微、郊区银行网点违规购汇，再倒卖牟利。 二人作案手法不同，唐某唆使老人骗购外汇</p><br>
+<p>圣贝拉集团（02508）发布公告，于2026年4月17日，受托人根据圣贝拉2025年股份奖励计划在市场上购买合共20万股股份，平均交易价约为每股股份4.46港元，交易总额约为89.2万港元。于本公告日期，受托人已在市场上购买合共297.6万股股份，交易总额约为1260万港元。责任编辑：卢昱君</p><br>
 <h2>正文</h2><br>
-<p>近日，上海警方通报一起非法汇兑案，不法分子拉拢400余名老年人充当换汇“黄牛”工具人，涉案金额达4500余万元。</p><br>
-<p>去年12月，上海市部分银行向警方反映，出现大量老年人集中换汇情况。</p><br>
-<p>经核查，这些老人多虚构个人出国旅游理由购汇，实际并无出境记录。</p><br>
-<p>后经警方调查，嫌疑人唐某、张某以给好处费为诱饵，组织老人在小微、郊区银行网点违规购汇，再倒卖牟利。</p><br>
-<p>二人作案手法不同，唐某唆使老人骗购外汇，张某指使老人兑换外币。</p><br>
-<p>为突破每人每年5万美元购汇限额，他们在公园、老年社群招募人员，涉案老人达400余名。</p><br>
-<p>今年4月，警方抓获唐某、张某等6名嫌疑人。</p><br>
-<p>目前，唐某涉嫌骗购外汇罪、张某涉嫌非法经营罪被批捕，其余4人被采取刑事强制措施。</p><br>
+<p>圣贝拉集团（02508）发布公告，于2026年4月17日，受托人根据圣贝拉2025年股份奖励计划在市场上购买合共20万股股份，平均交易价约为每股股份4.46港元，交易总额约为89.2万港元。</p><br>
+<p>于本公告日期，受托人已在市场上购买合共297.6万股股份，交易总额约为1260万港元。</p><br>
+<p>责任编辑：卢昱君</p><br>
 <h2>相关推荐</h2><br>
-<h3>有哪些被认为是现代才有的东西其实古代就有了？</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md</p><br>
-<h3>7月1日起 一批新规即将落地</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md</p><br>
-<h3>沉睡花园</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md</p><br>
-<h3>卡塞米罗头球破门</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md</p><br>
-<h3>为什么会有「念旧」的心理？</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md</p><br>
-<h3>高考填志愿父亲和女儿产生分歧</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md</p><br>
-<h3>未来五年，教育强国这样建设</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md</p><br>
-<h3>手底下人带不动怎么办？</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md</p><br>
-<h3>马航MH370传来最新消息</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md</p><br>
-<h3>巴拉圭先进球了</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md</p><br>
+<h3>郑钦文温网三连败西尼亚科娃</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md</p><br>
+<h3>古代时期普通老百姓能喝上酒吗？</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md</p><br>
+<h3>AI手机进入Agent时代</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md</p><br>
+<h3>“荒唐”背后的韩国足球</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md</p><br>
+<h3>董路：谁赢谁是“正路子”</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md</p><br>
+<h3>四川凉山落石砸毁车辆 3人遇难</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md</p><br>
+<h3>巴西绝杀日本：漫画般结局换了主角</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md</p><br>
+<h3>德国队世界杯点球大战首败</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md</p><br>
+<h3>巴拉圭先进球了</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md</p><br>
+<h3>豆包收费了，你还会用吗？</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md</p><br>
+<h3>央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>孙颖莎王楚钦晋级8强</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://www.blog.minike.top/Article/details/26317019.shtml</p><br>
-<h3>女子发现孩子非现任亲生状告前任索赔</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://www.share.minike.top/Article/details/2966048.shtml</p><br>
-<h3>郑钦文 四年一轮游</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:http://www.blog.minike.top/Article/details/82051857565.shtml</p><br>
-<h3>日本进球</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.share.minike.top/Article/details/88880.shtml</p><br>
-<h3>董卿父亲报纸上发文悼念亡妻</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:http://www.blog.minike.top/Article/details/812090.shtml</p><br>
-<h3>德国队连续三届世界杯无缘16强</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/6551649851.shtml</p><br>
-<h3>4种红薯的满分吃法！有手就会…但能让你大为震撼！</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://www.share.minike.top/Article/details/916306797.shtml</p><br>
-<h3>世界杯：荷兰vs摩洛哥</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/61891297720.shtml</p><br>
-<h3>檀健次王楚然吻戏看热了</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:http://www.share.minike.top/Article/details/95631075.shtml</p><br>
-<h3>iPhoneUltra黑色机模</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/596486.shtml</p><br>
-<h3>英语考了145的人竟然教数学</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:http://www.blog.minike.top/Article/details/14355.shtml</p><br>
-<h3>全球芯片巨头史诗级扩产</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://www.blog.minike.top/Article/details/36731105479.shtml</p><br>
-<h3>电影抓特务上映11天破亿</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/524768408.shtml</p><br>
-<h3>男生180+，有腹肌是什么体验？</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/53457530300.shtml</p><br>
-<h3>国务院：鼓励行业龙头企业举办职校</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/150582490.shtml</p><br>
+<h3>《虎吹最难绷の一集》</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.share.minike.top/Article/details/7366417204.shtml</p><br>
+<h3>酒店推行“24小时退房”引热议</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/682554021.shtml</p><br>
+<h3>中国新一轮出口管制直指日本命脉</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:http://www.blog.minike.top/Article/details/488675432670.shtml</p><br>
+<h3>王楚钦说配合稍微有些陌生感</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/86126382.shtml</p><br>
+<h3>日本队被绝杀后鞠躬致谢观众</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/181509634.shtml</p><br>
+<h3>如何评价杨紫白玉兰获奖</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://www.blog.minike.top/Article/details/310631409.shtml</p><br>
+<h3>内马尔未登场 安切洛蒂赛后回应</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:http://www.blog.minike.top/Article/details/4466620.shtml</p><br>
+<h3>马宁怒怼巴拉圭教练组</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/638128.shtml</p><br>
+<h3>人民锐评：网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/78359704.shtml</p><br>
+<h3>德国爆冷点球大战不敌巴拉圭</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/8994229.shtml</p><br>
+<h3>德国爆冷点球大战不敌巴拉圭</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/701662635170.shtml</p><br>
+<h3>美人鱼</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/85295332.shtml</p><br>
+<h3>大货车掉落螺丝扎进骑手护目镜</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://www.share.minike.top/Article/details/2770084.shtml</p><br>
+<h3>这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:http://www.share.minike.top/Article/details/69450901.shtml</p><br>
+<h3>梅德韦杰夫列举俄罗斯面临的七大挑战</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/451086622.shtml</p><br>

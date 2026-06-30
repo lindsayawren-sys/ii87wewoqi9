@@ -1,47 +1,44 @@
-<h1>新“股王”持股5亿的副总被刑拘！源杰科技闪崩超7%，带崩CPO！</h1><br>
+<h1>美国开放1600亿美元关税退税申报 沃尔玛等零售巨头迎巨额回款</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：南财社 “股王”的位置不好坐啊。刚登上A股新“股王”没多久，源杰科技就出事了。 5月14日晚，源杰科技发布公告称，副总经理陈文君因涉嫌刑事犯罪被公安机关刑事拘留，无法正常履行副总经理职责。并强调该事件不会影响公司的正常经营活动。 源杰科技虽然迅速进行“切割”，但却没“切割”彻底。公告中，源杰科技称董事</p><br>
+<p>受今年 2 月美国最高法院相关裁决影响，沃尔玛、塔吉特等美国一众进口商合计可申领超 1600 亿美元关税退款。特朗普政府于周一正式上线关税退税申报平台。 市场原本预期退税流程顺畅、资金快速到账，但企业方与华尔街分析师均下调预期，普遍认为退款难以短期内兑现。贸易律师提示，整个申领流程存在繁杂的行政审批壁垒与潜在法律风险，特朗普政府也不排除在最后阶段提起上诉。 格雷霍克律所首席贸易</p><br>
 <h2>正文</h2><br>
-<p>炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！</p><br>
-<p>来源：南财社 “股王”的位置不好坐啊。</p><br>
-<p>刚登上A股新“股王”没多久，源杰科技就出事了。</p><br>
-<p>5月14日晚，源杰科技发布公告称，副总经理陈文君因涉嫌刑事犯罪被公安机关刑事拘留，无法正常履行副总经理职责。</p><br>
-<p>并强调该事件不会影响公司的正常经营活动。</p><br>
-<p>源杰科技虽然迅速进行“切割”，但却没“切割”彻底。</p><br>
-<p>公告中，源杰科技称董事会审议通过，解除陈文君总经理的职务。</p><br>
-<p>但解聘后，其仍在公司担任其他职务。</p><br>
+<p>受今年 2 月美国最高法院相关裁决影响，沃尔玛、塔吉特等美国一众进口商合计可申领超 1600 亿美元关税退款。</p><br>
+<p>特朗普政府于周一正式上线关税退税申报平台。</p><br>
+<p>市场原本预期退税流程顺畅、资金快速到账，但企业方与华尔街分析师均下调预期，普遍认为退款难以短期内兑现。</p><br>
+<p>贸易律师提示，整个申领流程存在繁杂的行政审批壁垒与潜在法律风险，特朗普政府也不排除在最后阶段提起上诉。</p><br>
+<p>格雷霍克律所首席贸易律师马修・塞利格曼表示：“进口商普遍不看好政府会简化退税流程，业内预判官方会刻意设置门槛、拖延退款进度。</p><br>
+<p>最高法院早已裁定该批关税不合规，但目前推进依旧拖沓，企业对此十分无奈。</p><br>
+<p>” 关税退税申报平台正式启用 美国海关与边境保护局（CBP）于周一上线全新退税申报系统 —— 入境事务统一管理处理系统（CAPE）。</p><br>
+<p>根据海关说明，进口商可通过该系统申报此前依据特朗普政府现已失效的紧急关税权限所缴纳的税款，后续由官方统一核算并发放退税。</p><br>
 <h2>相关推荐</h2><br>
-<h3>补时绝杀 巴西2-1淘汰日本</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md</p><br>
-<h3>齐思钧回复张月</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md</p><br>
-<h3>日本将帅赛后采访纷纷哽咽落泪</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md</p><br>
-<h3>世界杯名画巴拉圭钢铁防线</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md</p><br>
-<h3>女子遭下药退赔偿拟追刑责</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md</p><br>
-<h3>领克900大型SUV值得购买吗?</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md</p><br>
-<h3>内马尔未登场 安切洛蒂赛后回应</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md</p><br>
-<h3>欧洲装一台空调有多难</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md</p><br>
-<h3>《贺子珍》</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md</p><br>
-<h3>【Reaction】女生最少的5款游戏</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md</p><br>
-<h3>2021江苏卫视跨年演唱会</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md</p><br>
-<h3>孙颖莎王楚钦晋级8强</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md</p><br>
-<h3>曝娱乐圈大部分明星失业</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md</p><br>
-<h3>杨某诋毁袁隆平院士科研成果被刑拘</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md</p><br>
+<h3>卡塞米罗头球破门</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md</p><br>
+<h3>教育部披露：高考生篡改7名同学志愿</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md</p><br>
+<h3>曝老詹对自由市场态度与以往截然不同</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md</p><br>
+<h3>【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md</p><br>
+<h3>全新问界M9现身美国街头</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md</p><br>
+<h3>4000美元是黄金新一轮下跌的开始吗</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md</p><br>
+<h3>已经看完《三国第一部：争洛阳》的人，如何评价这部电影？</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md</p><br>
+<h3>巴拉圭门将</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md</p><br>
+<h3>日本淘汰</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md</p><br>
+<h3>孙兴慜道歉</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md</p><br>
+<h3>王菲谢霆锋十指紧扣好甜</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>日本将帅赛后采访纷纷哽咽落泪</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/27815561152.shtml</p><br>
-<h3>欧洲装一台空调有多难</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/116688.shtml</p><br>
-<h3>萨内 看笑了</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/9817282.shtml</p><br>
-<h3>日本主帅赛后回应淘汰出局</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/510304122048.shtml</p><br>
-<h3>如何看待武亮说大学生生活费1500就够用这一言论？</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/90503983.shtml</p><br>
-<h3>低智商犯罪三江口团建来了</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/79910812.shtml</p><br>
-<h3>索马里女大使：想和中国一起搞事业</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://www.share.minike.top/Article/details/5137289.shtml</p><br>
-<h3>欧洲装一台空调有多难</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/096150689153.shtml</p><br>
-<h3>日本将帅赛后采访纷纷哽咽落泪</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/88163.shtml</p><br>
-<h3>网瘾賊大的阿嬷</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://www.blog.minike.top/Article/details/3869261741.shtml</p><br>
-<h3>【Reaction】女生最少的5款游戏</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/651430.shtml</p><br>
-<h3>本届世界杯已有5名球员被控强奸</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://www.share.minike.top/Article/details/9125160.shtml</p><br>
-<h3>覃予萱晋级WTT美国大满贯女单32强</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/382637.shtml</p><br>
-<h3>想问一下学日语的大佬，自学日语要怎么学？</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:http://www.share.minike.top/Article/details/56501944815.shtml</p><br>
-<h3>四川宜宾地震为何震感明显</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/142216.shtml</p><br>
+<h3>有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://www.share.minike.top/Article/details/3611654.shtml</p><br>
+<h3>【涤墨作战7人870】望：我从地狱杀回来了！</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/07859.shtml</p><br>
+<h3>豆包收费了，你还会用吗？</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://www.blog.minike.top/Article/details/492897790.shtml</p><br>
+<h3>英语考了145的人竟然教数学</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://www.share.minike.top/Article/details/1936764097.shtml</p><br>
+<h3>恋与深空已删除锅里洗澡文案</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/665250183229.shtml</p><br>
+<h3>日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/656946696.shtml</p><br>
+<h3>中国对日本再出重拳</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/4950780.shtml</p><br>
+<h3>斗破苍穹</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/3506851.shtml</p><br>
+<h3>日本五次世界杯淘汰赛全败</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:http://www.share.minike.top/Article/details/99237617363.shtml</p><br>
+<h3>宜宾地震食客避难后折返 无人逃单</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.share.minike.top/Article/details/920521222654.shtml</p><br>
+<h3>法媒点赞中国小区楼顶“人工降雨”</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/0175809.shtml</p><br>
+<h3>iPhone18e曝光</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:http://www.share.minike.top/Article/details/038225.shtml</p><br>
+<h3>咕嘎万能小摊1：沉浸式制作惠灵顿牛排</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://www.share.minike.top/Article/details/153317.shtml</p><br>
+<h3>法媒点赞中国小区楼顶“人工降雨”</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.blog.minike.top/Article/details/677876.shtml</p><br>
+<h3>第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/818613660233.shtml</p><br>

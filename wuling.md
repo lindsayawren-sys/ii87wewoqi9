@@ -1,46 +1,46 @@
-<h1>2026年国际博物馆日扬州主会场活动启幕</h1><br>
+<h1>监管出手！*ST天喻信披违规被罚，两类投资者可索赔</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新网扬州5月16日电 (徐珊珊 尹一帆)以馆为桥联结世界，以文为脉点亮青春。5月16日上午，以“博物馆：联结世界的桥梁”为主题的2026年国际博物馆日扬州主会场活动暨“拥抱文博”扬州青少年文化实践行动在扬州博物馆启动。扬州市副市长李林、扬州市委宣传部副部长江勇、扬州市文化广电和旅游局局长胡彩云等领导出席，并与青少年代表共同为活动启幕。 本次活动以博物馆为纽带，串联文物活化、场</p><br>
+<p>登录新浪财经APP 搜索【信披】查看更多考评等级 一、监管下发预处罚 4月17日，*ST天喻（维权）公告收到湖北证监局《行政处罚事先告知书》，湖北证监局拟对公司责令改正、给予警告，并处600万元罚款，*ST天喻实际控制人罚款1350万元。 经查，公司涉嫌未按规定披露关联交易、实际控制人非经营性资金占用及重大担保，导致定期报告存在重大遗漏。 早在2025年5月，该公司实控人之一就</p><br>
 <h2>正文</h2><br>
-<p>中新网扬州5月16日电 (徐珊珊 尹一帆)以馆为桥联结世界，以文为脉点亮青春。</p><br>
-<p>5月16日上午，以“博物馆：联结世界的桥梁”为主题的2026年国际博物馆日扬州主会场活动暨“拥抱文博”扬州青少年文化实践行动在扬州博物馆启动。</p><br>
-<p>扬州市副市长李林、扬州市委宣传部副部长江勇、扬州市文化广电和旅游局局长胡彩云等领导出席，并与青少年代表共同为活动启幕。</p><br>
-<p>本次活动以博物馆为纽带，串联文物活化、场馆联动、青春研学、文化传承等多项内容，推动博物馆从文化保管者向文明传播者、青春赋能者转变，让青少年在拥抱文博中感受文化力量，让扬州千年文脉在新时代绽放光彩。</p><br>
-<p>活动现场，扬州市文化广电和旅游局正式发布2026年“5·18国际博物馆日”系列活动安排。</p><br>
-<p>围绕今年国际博物馆日主题，扬州全市各级博物馆将推出精品展览、社教惠民、研学实践等40余场活动，构建“大馆带小馆、全城一盘棋”的文博新格局，让更多馆藏珍贵文物真正“活”起来。</p><br>
-<p>同时，2026年“拥抱文博”扬州青少年文化实践行动正式发布。</p><br>
-<p>该行动依托江苏省“拥抱文博”青少年文化实践行动部署，精心策划“读文博场馆、创青春造物、研运河文脉、赏非遗国潮”四大板块、24项特色活动，依托“拥抱文博”青少年智慧平台，为全市大中小学生提供文博资讯、线上投稿、研学推荐等一站式服务，引导青少年从“参观者”成长为“传播者”，以青春之声讲述扬州故事。</p><br>
+<p>登录新浪财经APP 搜索【信披】查看更多考评等级 一、监管下发预处罚 4月17日，*ST天喻（维权）公告收到湖北证监局《行政处罚事先告知书》，湖北证监局拟对公司责令改正、给予警告，并处600万元罚款，*ST天喻实际控制人罚款1350万元。</p><br>
+<p>经查，公司涉嫌未按规定披露关联交易、实际控制人非经营性资金占用及重大担保，导致定期报告存在重大遗漏。</p><br>
+<p>早在2025年5月，该公司实控人之一就因涉嫌挪用资金被武汉公安局立案侦查，此次行政处罚是监管对其信披违规的进一步追责。</p><br>
+<p>信息披露是上市公司与投资者沟通的重要桥梁，也是投资者做出投资决策的重要依据。</p><br>
+<p>尤其是新证券法实施以来，对信息披露的要求更加细致严格，同时，对违法责任的追究也明显加重。</p><br>
+<p>二、两类投资者可索赔 鉴于*ST天喻已处于退市风险警示状态，若公司后续无法改善经营或满足撤销风险警示的条件，或将面临退市。</p><br>
+<p>这意味着，通过民事诉讼向违规主体索赔，可能是受损投资者挽回损失的唯一有效途径。</p><br>
+<p>上海沪紫律师事务所刘鹏律师表示在本案中因公司虚假陈述行为遭受损失的，适格投资者可以通过诉讼等多元化方式积极向公司及有关责任人员追偿，主动维护自身的合法权益。</p><br>
 <h2>相关推荐</h2><br>
-<h3>全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md</p><br>
-<h3>男子醉酒溺水获救后同行人拒协助抬人</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md</p><br>
-<h3>郑钦文 四年一轮游</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md</p><br>
-<h3>王灿兮被烫伤两年后维权成功</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md</p><br>
-<h3>黄晓明晒和周杰伦的合照</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md</p><br>
-<h3>世界杯：荷兰vs摩洛哥</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md</p><br>
-<h3>德国进球被吹</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md</p><br>
-<h3>如何评价《龙之家族》第三季第二集？</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md</p><br>
-<h3>【大鸣王潮1566】真拿你没办法</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md</p><br>
-<h3>日本反击率先破门</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md</p><br>
-<h3>这些7月新规影响你我</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md</p><br>
-<h3>如果有二次元高中是什么样子的？</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md</p><br>
-<h3>低智商犯罪三江口团建来了</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md</p><br>
+<h3>热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md</p><br>
+<h3>金牌调解</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md</p><br>
+<h3>为什么纣王似乎对周文王的扩张完全无动于衷？</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md</p><br>
+<h3>消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md</p><br>
+<h3>送你一朵小红花</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md</p><br>
+<h3>媒体：手机测评该挤挤水分了</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md</p><br>
+<h3>黄晓明夸昆凌引杨颖对比</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md</p><br>
+<h3>日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md</p><br>
+<h3>毕业以后，你最怀念的大学记忆是什么？</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md</p><br>
+<h3>张碧晨一开口梦回逐玉</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md</p><br>
+<h3>大货车掉落螺丝扎进骑手护目镜</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md</p><br>
+<h3>起风了</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md</p><br>
+<h3>承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>“荒唐”背后的韩国足球</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/5655355046.shtml</p><br>
-<h3>卢卡申科发布解放军仪仗队视频</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/399930504.shtml</p><br>
-<h3>日本球迷输球后集体捡垃圾</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:http://www.blog.minike.top/Article/details/212217842.shtml</p><br>
-<h3>F1奥地利站赛后复盘</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/90936476.shtml</p><br>
-<h3>现在叛逆期的孩子最怕的是什么？</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://www.blog.minike.top/Article/details/782928545.shtml</p><br>
-<h3>张月收到黄灿灿辣货两眼发光</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:http://www.blog.minike.top/Article/details/508926574.shtml</p><br>
-<h3>男子在京东买到“同仁堂”假药</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/97885.shtml</p><br>
-<h3>我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/74081.shtml</p><br>
-<h3>曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/101565.shtml</p><br>
-<h3>Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://www.blog.minike.top/Article/details/0430312.shtml</p><br>
-<h3>点球大战 残酷</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://www.share.minike.top/Article/details/3484774.shtml</p><br>
-<h3>杨紫获白玉兰视后为何争议难平</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/1892953.shtml</p><br>
-<h3>男子醉酒溺水获救后同行人拒协助抬人</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/14453768.shtml</p><br>
-<h3>张雪的一句“是我们”引发岛内热议</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.share.minike.top/Article/details/293936020288.shtml</p><br>
-<h3>超神人辉夜姬 第二集</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/508386.shtml</p><br>
+<h3>一切民族英雄都是中华民族的脊梁</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://www.blog.minike.top/Article/details/759654.shtml</p><br>
+<h3>德国巴拉圭加时</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:http://www.share.minike.top/Article/details/830962332.shtml</p><br>
+<h3>曝詹姆斯即将与勇士会面</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/216837004697.shtml</p><br>
+<h3>如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:http://www.blog.minike.top/Article/details/66881461133.shtml</p><br>
+<h3>点球大战</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:http://www.blog.minike.top/Article/details/420425098.shtml</p><br>
+<h3>房价什么时候能涨</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/132950.shtml</p><br>
+<h3>如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://www.blog.minike.top/Article/details/50255.shtml</p><br>
+<h3>你的妻子大喷菇—《植物娘大战僵尸》特别篇</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/098714142693.shtml</p><br>
+<h3>日本五次世界杯淘汰赛全败</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/361527552061.shtml</p><br>
+<h3>流金岁月</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://www.blog.minike.top/Article/details/335511763677.shtml</p><br>
+<h3>诺伊尔尽力了</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/31395900.shtml</p><br>
+<h3>覃予萱晋级WTT美国大满贯女单32强</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://www.blog.minike.top/Article/details/54872601085.shtml</p><br>
+<h3>“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/75237581569.shtml</p><br>
+<h3>王欣瑜连续4年晋级温网第二轮</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:http://www.blog.minike.top/Article/details/1199960.shtml</p><br>
+<h3>想问一下学日语的大佬，自学日语要怎么学？</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/31167370457.shtml</p><br>

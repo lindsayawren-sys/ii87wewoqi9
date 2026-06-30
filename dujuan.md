@@ -1,45 +1,45 @@
-<h1>聚焦科学补硒 专家学者齐聚河南济源探寻硒产业融合发展路径</h1><br>
+<h1>出土大量陶器等遗物 陕西蓝田杨家沟遗址考古最新成果公布</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新网济源5月17日电 (李海珠)5月17日是全民科学补硒日。当日，一场聚焦硒健康与硒科学的专家会议在河南济源启幕，来自营养与健康领域的多位专家学者齐聚愚公故里，围绕硒资源开发、营养融合、产业升级等议题进行交流对话。 济源工业产业基础扎实，是亚洲最大的绿色铅锌加工基地、全国最大的白银生产基地。同时，济源丰富的硒资源，近年来，济源不仅建立了多个科研平台，还集聚了一批骨干企业，致力</p><br>
+<p>4月21日上午，陕西省考古研究院公布了陕西蓝田杨家沟遗址考古成果。杨家沟遗址位于陕西省西安市蓝田县汤峪镇杨家沟村西的台地上，面积约15万平方米。2023年至2024年，为配合西安至十堰高铁工程建设，考古人员对该遗址进行了发掘，共发现各类遗迹1845个，年代包含客省庄文化、西周、汉唐、明清等时期，此次主要公布杨家沟遗址客省庄文化遗存考古发掘情况。 据介绍，考古人员在该遗址共发现客</p><br>
 <h2>正文</h2><br>
-<p>中新网济源5月17日电 (李海珠)5月17日是全民科学补硒日。</p><br>
-<p>当日，一场聚焦硒健康与硒科学的专家会议在河南济源启幕，来自营养与健康领域的多位专家学者齐聚愚公故里，围绕硒资源开发、营养融合、产业升级等议题进行交流对话。</p><br>
-<p>济源工业产业基础扎实，是亚洲最大的绿色铅锌加工基地、全国最大的白银生产基地。</p><br>
-<p>同时，济源丰富的硒资源，近年来，济源不仅建立了多个科研平台，还集聚了一批骨干企业，致力于探寻一条以创新链驱动产业链、以科技赋能硒健康产业发展的新路径。</p><br>
-<p>近年来，国内硒产业发展势头迅猛，市场前景广阔。</p><br>
-<p>同时，含硒产品质量参差不齐、标准执行不统一、产品标示和说明混乱等问题依然存在。</p><br>
-<p>对此，河南省市场监管局相关负责人表示，将持续强化硒产业标准供给及全链条质量安全监管，引导该省硒产业加快向标准化、品牌化、高端化迈进。</p><br>
-<p>“近年来，济源依托资源禀赋与创新驱动发展理念，将有色金属产业链延伸，并与大健康产业深度融合，在硒资源开发利用及硒产业高质量发展领域走在全国前列。</p><br>
+<p>4月21日上午，陕西省考古研究院公布了陕西蓝田杨家沟遗址考古成果。</p><br>
+<p>杨家沟遗址位于陕西省西安市蓝田县汤峪镇杨家沟村西的台地上，面积约15万平方米。</p><br>
+<p>2023年至2024年，为配合西安至十堰高铁工程建设，考古人员对该遗址进行了发掘，共发现各类遗迹1845个，年代包含客省庄文化、西周、汉唐、明清等时期，此次主要公布杨家沟遗址客省庄文化遗存考古发掘情况。</p><br>
+<p>据介绍，考古人员在该遗址共发现客省庄文化遗迹170个，包含灰坑、房址、陶窑、墓葬等；出土大量陶器、石器、骨器等遗物，有单把鬲、单把斝(侈口)、敛口斝、篮纹折肩罐、侈口小罐、双耳罐、“灰坑盖”、圆陶片、陶刀、骨锥等，陶器以灰陶为主，少量灰黑陶、红褐陶等。</p><br>
+<p>此次考古发掘还发现了7处“灰坑葬”，据了解，这是一种特殊的埋葬方式，在客省庄文化遗址中广泛分布，一般在灰坑底部或中部近坑壁处发现人骨，多单人，也有二人合葬，多为屈肢葬。</p><br>
+<p>通过对人骨进行碳十四测年，绝对年代在距今4100年至3900年。</p><br>
+<p>专家介绍，该遗址的发掘，为深入研究客省庄文化的内涵、分期、聚落形态、生业与环境等提供了新资料。</p><br>
+<p>(总台记者 杨雨桐 赵亮)</p><br>
 <h2>相关推荐</h2><br>
-<h3>欧洲家电巨头为何输掉了这个夏天</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md</p><br>
-<h3>男子在京东买到“同仁堂”假药</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md</p><br>
-<h3>有哪些被认为是现代才有的东西其实古代就有了？</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md</p><br>
-<h3>咕嘎万能小摊1：沉浸式制作惠灵顿牛排</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md</p><br>
-<h3>人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md</p><br>
-<h3>卖菜老人获博主帮助后遇车祸去世</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md</p><br>
-<h3>郑钦文温网三连败西尼亚科娃</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md</p><br>
-<h3>王欣瑜连续4年晋级温网第二轮</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md</p><br>
-<h3>“中国养猪场都用上空调了”！这是真的吗？【主播说三农】</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md</p><br>
-<h3>古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md</p><br>
-<h3>人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md</p><br>
-<h3>勇敢的心第二部</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md</p><br>
+<h3>GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md</p><br>
+<h3>巴西醒醒 这是淘汰赛</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md</p><br>
+<h3>欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md</p><br>
+<h3>藤森庆子赢得秘鲁总统选举</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md</p><br>
+<h3>“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md</p><br>
+<h3>沙丘</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md</p><br>
+<h3>索马里女大使：想和中国一起搞事业</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md</p><br>
+<h3>第一次对自信的力量有了实感</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md</p><br>
+<h3>深扒韩国队淘汰背后原因</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md</p><br>
+<h3>iPhoneUltra黑色机模</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md</p><br>
+<h3>道友？你来真的啊？【凡人官方二创大会】</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md</p><br>
+<h3>美人鱼</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>当我知道豆包有后台审核人员</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:http://www.blog.minike.top/Article/details/6528479.shtml</p><br>
-<h3>诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:http://www.share.minike.top/Article/details/0725220.shtml</p><br>
-<h3>《虎吹最难绷の一集》</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:https://www.blog.minike.top/Article/details/7380949.shtml</p><br>
-<h3>男子诋毁袁隆平科研成果被刑拘</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/2927031548.shtml</p><br>
-<h3>科学备孕男女都要上心</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/0116184.shtml</p><br>
-<h3>泰山建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/754480609.shtml</p><br>
-<h3>巴西醒醒 这是淘汰赛</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/95741675757.shtml</p><br>
-<h3>又一家县级医院关停门诊输液大厅</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/849830507.shtml</p><br>
-<h3>人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://www.blog.minike.top/Article/details/985357702631.shtml</p><br>
-<h3>李在明90度鞠躬感谢韩国两大财阀</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/725569207736.shtml</p><br>
-<h3>为什么纣王似乎对周文王的扩张完全无动于衷？</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:http://www.blog.minike.top/Article/details/356038739027.shtml</p><br>
-<h3>日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:http://www.blog.minike.top/Article/details/80198046.shtml</p><br>
-<h3>上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://www.share.minike.top/Article/details/370155118.shtml</p><br>
-<h3>点球大战 残酷</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/35594.shtml</p><br>
-<h3>恐怖世界 第三集 埃温霍姆村</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/5538521690.shtml</p><br>
+<h3>曝老詹对自由市场态度与以往截然不同</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:http://www.share.minike.top/Article/details/496421106710.shtml</p><br>
+<h3>欧洲家电巨头为何输掉了这个夏天</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://www.share.minike.top/Article/details/039762793.shtml</p><br>
+<h3>郑钦文温网一轮游</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/63145.shtml</p><br>
+<h3>【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://www.blog.minike.top/Article/details/479116663.shtml</p><br>
+<h3>巴拉圭先进球了</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/092551893.shtml</p><br>
+<h3>张月收到黄灿灿辣货两眼发光</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/9799453974.shtml</p><br>
+<h3>王曼昱被突如其来的话筒逗笑了</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:http://www.blog.minike.top/Article/details/12575.shtml</p><br>
+<h3>为什么香港的冲厕水是咸的？</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/09725242.shtml</p><br>
+<h3>为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/306388.shtml</p><br>
+<h3>内马尔替补</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://www.share.minike.top/Article/details/04226390.shtml</p><br>
+<h3>四川宜宾地震瞬间鱼群乱跳</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:http://www.share.minike.top/Article/details/7067457.shtml</p><br>
+<h3>女儿从清华毕业 爸爸晒出17年对比照</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/0358853653.shtml</p><br>
+<h3>汉语是世界上最言简意赅的语言吗？</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/5973090.shtml</p><br>
+<h3>李在明90度鞠躬感谢韩国两大财阀</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:http://www.share.minike.top/Article/details/6701635.shtml</p><br>
+<h3>豆包收费了，你还会用吗？</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://www.blog.minike.top/Article/details/7171296.shtml</p><br>

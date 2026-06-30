@@ -1,46 +1,41 @@
-<h1>英国即将与海湾合作委员会达成自贸协定</h1><br>
+<h1>高瓴据悉拟为新基金募集80亿美元 包括接洽外部投资者及动用自有资金</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>据知情人士透露，历经数年谈判，英国与海湾合作委员会各国即将敲定筹备已久的自由贸易协定。 英国自2022年起便同海合会成员国（沙特、阿联酋、卡塔尔、科威特、巴林、阿曼）展开自贸协定谈判。 消息人士透露，双方数日之内有望达成原则性协议，海合会秘书长贾西姆・布达伊维预计本周前往伦敦。 一名英国官员表示谈判已进入深度推进阶段，英政府发言人也称相关谈判仍在进行，且属于优先推进事项。 英政</p><br>
+<p>据知情人士称，高瓴投资管理已与投资者接洽，并计划动用部分自有资金，为其五年来首批新基金募资80亿美元。 知情人士称，这家投资管理机构计划为一只专注亚洲的并购基金募集70亿美元，并为一项成长型策略募集约10亿至15亿美元。由于相关信息未公开，这些人士不愿具名。他们补充称，高瓴计划向这些基金合计投入10亿至20亿美元 的自有资金。 高瓴上一轮基金募资于2021年完成，规模达180亿</p><br>
 <h2>正文</h2><br>
-<p>据知情人士透露，历经数年谈判，英国与海湾合作委员会各国即将敲定筹备已久的自由贸易协定。</p><br>
-<p>英国自2022年起便同海合会成员国（沙特、阿联酋、卡塔尔、科威特、巴林、阿曼）展开自贸协定谈判。</p><br>
-<p>消息人士透露，双方数日之内有望达成原则性协议，海合会秘书长贾西姆・布达伊维预计本周前往伦敦。</p><br>
-<p>一名英国官员表示谈判已进入深度推进阶段，英政府发言人也称相关谈判仍在进行，且属于优先推进事项。</p><br>
-<p>英政府预估，这份自贸协定到2036年有望使英国年度国内生产总值增加16亿至31亿英镑，折合将拉动英国长期GDP提升0.06%至0.11%。</p><br>
-<p>目前海湾国家集团与英国双边贸易额已超530亿美元。</p><br>
-<p>责任编辑：李桐</p><br>
+<p>据知情人士称，高瓴投资管理已与投资者接洽，并计划动用部分自有资金，为其五年来首批新基金募资80亿美元。</p><br>
+<p>知情人士称，这家投资管理机构计划为一只专注亚洲的并购基金募集70亿美元，并为一项成长型策略募集约10亿至15亿美元。</p><br>
+<p>由于相关信息未公开，这些人士不愿具名。</p><br>
+<p>他们补充称，高瓴计划向这些基金合计投入10亿至20亿美元 的自有资金。</p><br>
+<p>高瓴上一轮基金募资于2021年完成，规模达180亿美元。</p><br>
+<p>责任编辑：于健 SF069</p><br>
 <h2>相关推荐</h2><br>
-<h3>法总统候选人：拒绝与中国激烈对抗</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md</p><br>
-<h3>为什么会有「念旧」的心理？</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md</p><br>
-<h3>送你一朵小红花</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md</p><br>
-<h3>巴西把自己踢晕了</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md</p><br>
-<h3>【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md</p><br>
-<h3>【涤墨作战7人870】望：我从地狱杀回来了！</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md</p><br>
-<h3>普京为何将俄乌谈判时间表与伊朗挂钩</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md</p><br>
-<h3>女子用家人生日买彩票中1032万</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md</p><br>
-<h3>王楚钦孙颖莎晋级混双八强</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md</p><br>
-<h3>男子中医院拔火罐致浅2度烧伤</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md</p><br>
-<h3>蜘蛛侠:平行宇宙</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md</p><br>
-<h3>第一炉香</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md</p><br>
-<h3>高考结束了，你会让孩子在家玩手机吗？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md</p><br>
-<h3>日本博主：日本足球真的垃圾</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md</p><br>
+<h3>外国游客开始涌入中国农村</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md</p><br>
+<h3>开电动汽车真的很省钱吗？</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md</p><br>
+<h3>勇敢的心第二部</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md</p><br>
+<h3>蜘蛛侠:英雄归来</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md</p><br>
+<h3>郑钦文温网三连败西尼亚科娃</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md</p><br>
+<h3>“荒唐”背后的韩国足球</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md</p><br>
+<h3>全新问界M9现身美国街头</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md</p><br>
+<h3>李在明向韩国两大财阀90度鞠躬</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md</p><br>
+<h3>《恋与深空》被指触碰民族伤痛红线</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md</p><br>
+<h3>萨内 看笑了</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:http://www.blog.minike.top/Article/details/91658879975.shtml</p><br>
-<h3>国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://www.blog.minike.top/Article/details/5046152057.shtml</p><br>
-<h3>板面：为什么那么多人爱吃？？！</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://www.share.minike.top/Article/details/926743.shtml</p><br>
-<h3>第一炉香</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:https://www.blog.minike.top/Article/details/59145074303.shtml</p><br>
-<h3>如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/1255625.shtml</p><br>
-<h3>世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://www.blog.minike.top/Article/details/725639308553.shtml</p><br>
-<h3>男子醉酒溺水获救后同行人拒协助抬人</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:http://www.share.minike.top/Article/details/88073731.shtml</p><br>
-<h3>4种红薯的满分吃法！有手就会…但能让你大为震撼！</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/47482248.shtml</p><br>
-<h3>我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/28081.shtml</p><br>
-<h3>女儿从清华毕业 爸爸晒出17年对比照</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/84630613.shtml</p><br>
-<h3>古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/86737.shtml</p><br>
-<h3>庆祝建党105周年特别节目</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/85877.shtml</p><br>
-<h3>巴西在进攻三区完成210脚传球</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/445559360180.shtml</p><br>
-<h3>恋与深空回应争议</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://www.share.minike.top/Article/details/38667.shtml</p><br>
-<h3>啥比桑吉尔夫排位练蓝防（最不抽象的一集）</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.share.minike.top/Article/details/16428112416.shtml</p><br>
+<h3>对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://www.blog.minike.top/Article/details/19947743.shtml</p><br>
+<h3>吴易昺不敌德约科维奇 止步温网首轮</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/7134288.shtml</p><br>
+<h3>球评巴西绝杀逆转日本</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://www.blog.minike.top/Article/details/203028456.shtml</p><br>
+<h3>左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/65171812506.shtml</p><br>
+<h3>外国游客开始涌入中国农村</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/48748.shtml</p><br>
+<h3>佐野海舟远射破门</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:http://www.share.minike.top/Article/details/5712124.shtml</p><br>
+<h3>汉语是世界上最言简意赅的语言吗？</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://www.blog.minike.top/Article/details/9835739578.shtml</p><br>
+<h3>法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/819108.shtml</p><br>
+<h3>板面：为什么那么多人爱吃？？！</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.share.minike.top/Article/details/900292.shtml</p><br>
+<h3>女子遭下药退赔偿拟追刑责</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://www.blog.minike.top/Article/details/96208.shtml</p><br>
+<h3>国务院：探索延长义务教育年限</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://www.share.minike.top/Article/details/07727036472.shtml</p><br>
+<h3>致敬！中国首批缉毒警已全体退休</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://www.share.minike.top/Article/details/198862319587.shtml</p><br>
+<h3>妻子撞死家暴丈夫案二审案情反转</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:http://www.blog.minike.top/Article/details/324447208.shtml</p><br>
+<h3>王灿兮被烫伤两年后维权成功</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/57416.shtml</p><br>
+<h3>有哪些值得一提的生活窍门？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/688610923315.shtml</p><br>

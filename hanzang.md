@@ -1,47 +1,46 @@
-<h1>蔚来李斌谈管理：重要是建立全员经营机制，不是当“皇帝”</h1><br>
+<h1>社区流浪宠物治理如何破局？专家支招</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。谈及公司管理方法，蔚来创始人、董事长、CEO李斌表示，重要的不是一个人显得雷厉风行、说一不二，而是在公司里建立起一种机制。 他表示，很多时候大家都觉得只有“雷霆万钧之势、说一不二的作风，在公司里像皇帝一样”才能叫管理。但不同的公司有不同的管理文化，不同的创始人也有</p><br>
+<p>社区流浪宠物治理如何破局 本报记者 韩丹东 接到业主投诉停放在地下车库的车辆被流浪猫留下脚印后，社区动物文明建设协会志愿者当即实地查看，一边在车位周围喷洒特制香水，一边寻找流浪猫，发现后将其带离车库。这是近日发生在浙江省杭州市钱塘区海天社区的一幕流浪宠物治理场景。 值得注意的是，海天社区建立了“政府、社区、业委会、物业、社会组织”五方协同共管平台，解决流浪宠物治理难题。受访专家</p><br>
 <h2>正文</h2><br>
-<p>专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。</p><br>
-<p>谈及公司管理方法，蔚来创始人、董事长、CEO李斌表示，重要的不是一个人显得雷厉风行、说一不二，而是在公司里建立起一种机制。</p><br>
-<p>他表示，很多时候大家都觉得只有“雷霆万钧之势、说一不二的作风，在公司里像皇帝一样”才能叫管理。</p><br>
-<p>但不同的公司有不同的管理文化，不同的创始人也有个性差异。</p><br>
-<p>“最重要的是要建立一种全员经营的意识。</p><br>
-<p>” 李斌指出，一个人再能干，什么事、多少钱都必须经过自己批，那根本管不过来。</p><br>
-<p>“一年一千多亿的营收，那么多的支出，把自己累死也没有意义”。</p><br>
-<p>他介绍，蔚来从前年下半年开始，就在公司推动基于用户价值创造的全员经营的组织变革。</p><br>
+<p>社区流浪宠物治理如何破局 本报记者 韩丹东 接到业主投诉停放在地下车库的车辆被流浪猫留下脚印后，社区动物文明建设协会志愿者当即实地查看，一边在车位周围喷洒特制香水，一边寻找流浪猫，发现后将其带离车库。</p><br>
+<p>这是近日发生在浙江省杭州市钱塘区海天社区的一幕流浪宠物治理场景。</p><br>
+<p>值得注意的是，海天社区建立了“政府、社区、业委会、物业、社会组织”五方协同共管平台，解决流浪宠物治理难题。</p><br>
+<p>受访专家认为，流浪宠物治理早已超越单纯的动物问题，成为影响居民生活的一道公共事务难题，其解决之道在于立足社区自治、推动多方联动、坚持科学人道、完善长效机制，走出一条人与动物和谐相处的新路。</p><br>
+<p>专门组织管理流浪宠物 据海天社区工作人员李昊(化名)向《法治日报》记者介绍，社区常住人口超1.2万人，饲养的宠物数量众多，曾几何时，宠物遗弃现象时有发生，流浪猫犬扰民、伤人、污染环境等问题不断引发居民投诉，导致邻里关系紧张。</p><br>
+<p>2020年12月，海天社区发出动物文明建设倡议书，明确文明养宠与流浪宠物科学管理两大方向。</p><br>
+<p>2021年1月，海天社区动物文明建设协会完成备案，统筹志愿力量、对接公共资源、开展日常治理，改变了以往爱心人士单打独斗的局面。</p><br>
+<p>同年10月，社区联合发布《海天社区居民动物文明建设公约》。</p><br>
 <h2>相关推荐</h2><br>
-<h3>德国北部枪击事件致5死</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md</p><br>
-<h3>王欣瑜连续4年晋级温网第二轮</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md</p><br>
-<h3>黄晓明夸昆凌引杨颖对比</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md</p><br>
-<h3>男子醉酒溺水获救后同行人拒搭手</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md</p><br>
-<h3>人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md</p><br>
-<h3>李在明90度鞠躬感谢韩国两大财阀</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md</p><br>
-<h3>首届《哈基米歌王争霸赛》总决赛</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md</p><br>
-<h3>有人见过武则天的画像吗，非常好奇？</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md</p><br>
-<h3>超神人辉夜姬 第二集</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md</p><br>
-<h3>教育部披露：高考生篡改7名同学志愿</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md</p><br>
-<h3>有哪些值得一提的生活窍门？</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md</p><br>
-<h3>扬名立万</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md</p><br>
-<h3>金牌调解</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md</p><br>
-<h3>电子游戏中有哪些关于武器的“刻板印象”？</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md</p><br>
+<h3>电影抓特务上映11天破亿</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md</p><br>
+<h3>iPhoneUltra黑色机模</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md</p><br>
+<h3>王欣瑜连续4年晋级温网第二轮</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md</p><br>
+<h3>李在明90度鞠躬感谢韩国两大财阀</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md</p><br>
+<h3>2021湖南卫视跨年演唱会</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md</p><br>
+<h3>古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md</p><br>
+<h3>德国罚丢3粒点球</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md</p><br>
+<h3>扫黑风暴</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md</p><br>
+<h3>如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md</p><br>
+<h3>欧洲装一台空调有多难</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md</p><br>
+<h3>欧洲装一台空调有多难</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md</p><br>
+<h3>恋与深空回应争议</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md</p><br>
+<h3>阿娇瘦了10斤</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>国内最大沙漠发洪水意味着什么</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/636551326.shtml</p><br>
-<h3>如何改变自己太负责任的性格?</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/6734444.shtml</p><br>
-<h3>球评巴西绝杀逆转日本</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:http://www.blog.minike.top/Article/details/0813591696.shtml</p><br>
-<h3>81岁老人被男子买光菜回家车祸去世</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://www.blog.minike.top/Article/details/17740122.shtml</p><br>
-<h3>全网说丑的玫瑰空调卖了5万台</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://www.share.minike.top/Article/details/82833486.shtml</p><br>
-<h3>怕iPhone涨价的用户已紧急换新</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/2334664978.shtml</p><br>
-<h3>德国进球被吹</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://www.share.minike.top/Article/details/1547142.shtml</p><br>
-<h3>极端热浪席卷欧洲多国，热一热百姓让领导先凉快？</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://www.blog.minike.top/Article/details/27229.shtml</p><br>
-<h3>贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/99506254.shtml</p><br>
-<h3>不开心就去看三年前的购物订单</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:http://www.blog.minike.top/Article/details/6105010146.shtml</p><br>
-<h3>委内瑞拉地震死亡人数升至1719人</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/38179407.shtml</p><br>
-<h3>MSI应援曲 如果季中成回忆</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/449969799422.shtml</p><br>
-<h3>《赛博朋克：边缘行者 2》｜官方预告片</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://www.share.minike.top/Article/details/32884287679.shtml</p><br>
-<h3>荀彧和曹操反目成仇的根本原因是什么？</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:http://www.share.minike.top/Article/details/0678974441.shtml</p><br>
-<h3>这种关系可能正在悄悄“催老”你</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/62134.shtml</p><br>
+<h3>金牌调解</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://www.blog.minike.top/Article/details/9938672.shtml</p><br>
+<h3>《共患难》</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/09270561.shtml</p><br>
+<h3>董路：谁赢谁是“正路子”</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/89441444235.shtml</p><br>
+<h3>董卿母亲癌症去世</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/0438420952.shtml</p><br>
+<h3>上市央企地产商 两年换了三任董事长</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://www.blog.minike.top/Article/details/94169854.shtml</p><br>
+<h3>为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://www.share.minike.top/Article/details/73201.shtml</p><br>
+<h3>男生180+，有腹肌是什么体验？</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:http://www.blog.minike.top/Article/details/21450041.shtml</p><br>
+<h3>周冬雨多次说演不了话剧文城</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/09793.shtml</p><br>
+<h3>疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:http://www.blog.minike.top/Article/details/94514136142.shtml</p><br>
+<h3>黄晓明夸昆凌引杨颖对比</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/154149.shtml</p><br>
+<h3>大蒜晒外面被路过女子连盆端走</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/38833722246.shtml</p><br>
+<h3>张雪的一句“是我们”引发岛内热议</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://www.share.minike.top/Article/details/8322317.shtml</p><br>
+<h3>点球大战</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://www.blog.minike.top/Article/details/5426627.shtml</p><br>
+<h3>全新问界M9现身美国街头</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://www.share.minike.top/Article/details/337968090.shtml</p><br>
+<h3>iPhoneUltra黑色机模</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/83961.shtml</p><br>

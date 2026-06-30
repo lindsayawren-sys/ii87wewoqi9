@@ -1,46 +1,47 @@
-<h1>第12届黑龙江省科普讲解大赛举办 104位选手同台竞技</h1><br>
+<h1>刚宣布不超15亿理财，又拟定增募资13亿，骄成超声多缺钱？</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新网哈尔滨5月16日电 (记者 姜辉)15日，由黑龙江省科技厅、黑龙江省委宣传部、黑龙江省总工会、黑龙江省科协联合主办的第十二届黑龙江省科普讲解大赛在哈尔滨市深哈产业园举办。大赛以奋进“十五五”科技谱新篇为主题，汇聚黑龙江省35家推荐单位、104位参赛选手同台竞技。 比赛现场，来自黑龙江省各市地、省直部门及基层单位的选手们围绕前沿科技、生态保护、生命健康、龙江特色产业、生活科</p><br>
+<p>登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：尺度商业 文 | 张佳儒 编辑 | 刘振涛 前脚刚宣布用闲置资金理财，一副“不差钱”的姿态；后脚就披露定增预案，向外界募资，又显得“缺钱”。这样的矛盾操作，就发生在骄成超声身上。 4月17日，骄成超声公告股东会会议资料，定增相关议案将在股东大会审议。此</p><br>
 <h2>正文</h2><br>
-<p>中新网哈尔滨5月16日电 (记者 姜辉)15日，由黑龙江省科技厅、黑龙江省委宣传部、黑龙江省总工会、黑龙江省科协联合主办的第十二届黑龙江省科普讲解大赛在哈尔滨市深哈产业园举办。</p><br>
-<p>大赛以奋进“十五五”科技谱新篇为主题，汇聚黑龙江省35家推荐单位、104位参赛选手同台竞技。</p><br>
-<p>比赛现场，来自黑龙江省各市地、省直部门及基层单位的选手们围绕前沿科技、生态保护、生命健康、龙江特色产业、生活科学等多元领域，用通俗语言拆解专业知识，以多媒体手段增强传播效果，将严谨科学知识转化为生动有趣的“科学故事会”。</p><br>
-<p>我秀科普环节中，选手们结合科普实践感悟创意展示，尽显个人风采与科普情怀；我讲科学环节里，选手们紧扣主题、逻辑严谨，兼具科学性与普及性；总决赛评委问答环节，进一步检验选手知识储备与应变能力，现场高潮迭起、精彩纷呈。</p><br>
-<p>经过半决赛、总决赛的激烈角逐，最终来自齐齐哈尔市公安局富拉尔基分局陈智豪、哈尔滨工业大学冯浩凯、黑龙江农业经济职业学院肖子恒等3名选手荣获特等奖，来自黑龙江省科学技术馆倪爽、哈尔滨工业大学邱月、双鸭山市公安局四方台分局孙澳、抚远海关牛磊、双鸭山市人民医院孙宁、鹤岗市公安局反恐与巡特警支队李泽林、鸡西市树梁中学王欣宇等7名选手荣获一等奖，以上10名选手同时摘得2026年“十佳科普使者”桂冠。</p><br>
-<p>大赛还评出二等奖20名、三等奖74名及优秀组织奖若干。</p><br>
-<p>下一步，黑龙江省科技厅将从参赛选手中择优遴选参与黑龙江省重大科普示范活动，持续搭建科普交流展示平台，推动科技创新与科学普及两翼齐飞。</p><br>
-<p>(完)</p><br>
+<p>登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！</p><br>
+<p>来源：尺度商业 文 | 张佳儒 编辑 | 刘振涛 前脚刚宣布用闲置资金理财，一副“不差钱”的姿态；后脚就披露定增预案，向外界募资，又显得“缺钱”。</p><br>
+<p>这样的矛盾操作，就发生在骄成超声身上。</p><br>
+<p>4月17日，骄成超声公告股东会会议资料，定增相关议案将在股东大会审议。</p><br>
+<p>此前的4月10日，公司披露定增预案，拟募资13.44亿元，其中1.7亿元用于补充流动资金。</p><br>
+<p>而就在3月30日，骄成超声董事会审议通过拟使用不超过7亿元的暂时闲置募集资金和不超过8亿元的闲置自有资金购买理财产品的议案。</p><br>
+<p>在前述额度及期限范围内，资金可以滚动使用。</p><br>
+<p>骄成超声之所以有闲置资金理财，与其2025年业绩表现有关：营收与净利润双双创下历史新高，货币资金规模增长。</p><br>
 <h2>相关推荐</h2><br>
-<h3>当我知道豆包有后台审核人员</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md</p><br>
-<h3>四川凉山落石砸毁车辆 3人遇难</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md</p><br>
-<h3>世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md</p><br>
-<h3>法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md</p><br>
-<h3>“荒唐”背后的韩国足球</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md</p><br>
-<h3>2021湖南卫视跨年演唱会</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md</p><br>
-<h3>日本将帅赛后采访纷纷哽咽落泪</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md</p><br>
-<h3>内马尔未登场 安切洛蒂赛后回应</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md</p><br>
-<h3>马航370搜寻最新消息</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md</p><br>
-<h3>明星大侦探第四季</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md</p><br>
-<h3>陈幸同晋级WTT美国大满贯女单32强</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md</p><br>
-<h3>【Reaction】女生最少的5款游戏</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md</p><br>
-<h3>王楚钦孙颖莎vs皮斯特耶库库洛娃</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md</p><br>
+<h3>男子造谣东鹏老板不喝自家饮料被拘</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md</p><br>
+<h3>请回答王牌2019</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md</p><br>
+<h3>中国代表在联合国点名日本所犯罪行</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md</p><br>
+<h3>博世们还在犹豫 美的们已经卖断货</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md</p><br>
+<h3>曝娱乐圈大部分明星失业</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md</p><br>
+<h3>五哈和他们的朋友</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md</p><br>
+<h3>终于把好哥们处成了情侣!</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md</p><br>
+<h3>流金岁月</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md</p><br>
+<h3>啊啊啊</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md</p><br>
+<h3>一见倾心</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md</p><br>
+<h3>如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md</p><br>
+<h3>自然光｜papi酱&窦文涛：驴与跑步机</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md</p><br>
+<h3>警方介入洪明甫死亡威胁</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md</p><br>
+<h3>上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>日耳曼拖拉机</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://www.share.minike.top/Article/details/0903474007.shtml</p><br>
-<h3>荀彧和曹操反目成仇的根本原因是什么？</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:http://www.blog.minike.top/Article/details/06144.shtml</p><br>
-<h3>男生180+，有腹肌是什么体验？</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/470759513771.shtml</p><br>
-<h3>点球大战 残酷</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:http://www.share.minike.top/Article/details/838088540891.shtml</p><br>
-<h3>千与千寻</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://www.share.minike.top/Article/details/98189537.shtml</p><br>
-<h3>巴西2比1日本</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:http://www.share.minike.top/Article/details/32543.shtml</p><br>
-<h3>欧洲空调卖疯了 下一个爆款是储能吗</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/402681.shtml</p><br>
-<h3>普京为何将俄乌谈判时间表与伊朗挂钩</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:http://www.share.minike.top/Article/details/771261.shtml</p><br>
-<h3>有哪些被认为是现代才有的东西其实古代就有了？</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/6226034.shtml</p><br>
-<h3>老人卖菜获博主帮助后遇车祸去世</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:http://www.share.minike.top/Article/details/144857411904.shtml</p><br>
-<h3>法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:http://www.blog.minike.top/Article/details/019882593.shtml</p><br>
-<h3>王濛回复黄灿灿</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:http://www.blog.minike.top/Article/details/94830.shtml</p><br>
-<h3>女子遭家暴逃跑致丈夫身亡二审细节</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://www.blog.minike.top/Article/details/5321092.shtml</p><br>
-<h3>城市规划有可能成为「屎山代码」吗？</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://www.blog.minike.top/Article/details/186435258.shtml</p><br>
-<h3>免费试吃发差评被店家挂店门避雷</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/87802574.shtml</p><br>
+<h3>球评巴西绝杀逆转日本</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.blog.minike.top/Article/details/32338171.shtml</p><br>
+<h3>央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/588045.shtml</p><br>
+<h3>日本球迷输球后集体捡垃圾</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:http://www.blog.minike.top/Article/details/331325045.shtml</p><br>
+<h3>如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://www.share.minike.top/Article/details/7786880.shtml</p><br>
+<h3>老外对中国cosplay竟这样评价…</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/204050.shtml</p><br>
+<h3>MSI应援曲 如果季中成回忆</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:http://www.share.minike.top/Article/details/416997228246.shtml</p><br>
+<h3>2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/6546902.shtml</p><br>
+<h3>你这一辈子有没有为进山姆拼过命？</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.blog.minike.top/Article/details/6096194346.shtml</p><br>
+<h3>恋与深空道歉声明</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/56979.shtml</p><br>
+<h3>警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/4166278.shtml</p><br>
+<h3>日本进球</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/701369320867.shtml</p><br>
+<h3>曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://www.blog.minike.top/Article/details/25514195438.shtml</p><br>
+<h3>你人生中最艰难的时候是怎么熬过来的？</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://www.share.minike.top/Article/details/3012628538.shtml</p><br>
+<h3>承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:http://www.blog.minike.top/Article/details/792523229.shtml</p><br>
+<h3>高考结束，该不该外出打工体验？</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/667797836.shtml</p><br>

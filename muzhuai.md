@@ -1,44 +1,43 @@
-<h1>尼泊尔侨界举行“同心筑梦 聚力促统”专题座谈会</h1><br>
+<h1>三明治连锁品牌Jersey Mike’s秘密提交IPO申请</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新网加德满都5月15日电 (记者 崔楠)尼泊尔侨界14日在尼首都加德满都举行“同心筑梦聚力促统”专题座谈会。 中国驻尼泊尔大使张茂明、首席馆员周攀公使衔参赞，尼泊尔华侨华人协会会长、尼泊尔中国和平统一促进会会长金晓东及40余名在尼侨胞出席座谈会。 金晓东首先介绍了其日前回国出席“文脉中华·同心筑梦”实地参访等活动的有关情况。他指出，相关参访使海外侨胞进一步了解祖国发展成就，也</p><br>
+<p>核心要点 Jersey Mike’s 于周一宣布，已秘密提交 IPO 申请。 此次公告发布的一年多前，黑石集团收购了这家三明治连锁的多数股权，据报道当时对其估值约 80 亿美元。 黑石交易完成后，Jersey Mike’s 聘请了前Wingstop首席执行官查理・莫里森执掌公司。莫里森曾执掌这家鸡翅连锁品牌十年，带领其完成 IPO 并实现历史性增长。 Jersey Mike’s</p><br>
 <h2>正文</h2><br>
-<p>中新网加德满都5月15日电 (记者 崔楠)尼泊尔侨界14日在尼首都加德满都举行“同心筑梦聚力促统”专题座谈会。</p><br>
-<p>中国驻尼泊尔大使张茂明、首席馆员周攀公使衔参赞，尼泊尔华侨华人协会会长、尼泊尔中国和平统一促进会会长金晓东及40余名在尼侨胞出席座谈会。</p><br>
-<p>金晓东首先介绍了其日前回国出席“文脉中华·同心筑梦”实地参访等活动的有关情况。</p><br>
-<p>他指出，相关参访使海外侨胞进一步了解祖国发展成就，也更加深刻认识到海外统促会在凝聚侨心、促进交流、推动祖国统一事业中的责任。</p><br>
-<p>随后，多名旅尼侨胞在座谈会上踊跃发言。</p><br>
-<p>尼泊尔华侨华人协会副会长黄二东表示，自己在尼泊尔打拼二十多年，越发感受到祖国强大，海外侨胞才更有底气。</p><br>
-<p>他表示，台湾是中国不可分割的一部分，一个中国原则不容动摇。</p><br>
-<p>海外侨胞将坚定反“独”促统立场，一同维护中华民族共同家园。</p><br>
+<p>核心要点 Jersey Mike’s 于周一宣布，已秘密提交 IPO 申请。</p><br>
+<p>此次公告发布的一年多前，黑石集团收购了这家三明治连锁的多数股权，据报道当时对其估值约 80 亿美元。</p><br>
+<p>黑石交易完成后，Jersey Mike’s 聘请了前Wingstop首席执行官查理・莫里森执掌公司。</p><br>
+<p>莫里森曾执掌这家鸡翅连锁品牌十年，带领其完成 IPO 并实现历史性增长。</p><br>
+<p>Jersey Mike’s 在全美拥有超过 3000 家门店，是美国第二大潜艇三明治连锁品牌，仅次于赛百味。</p><br>
+<p>根据特许经营披露文件，Jersey Mike’s 2025 年营收为3098 亿美元，同比增长 10.6%；2025 年净利润1.836 亿美元，低于上年的 2.388 亿美元。</p><br>
+<p>创始人彼得・坎克罗于 1971 年 14 岁时就在泽西海岸的一家三明治店打工；四年后，他凑钱买下了这家名为 Mike’s Subs 的小店。</p><br>
+<p>坎克罗随后更名并开启特许经营模式。</p><br>
 <h2>相关推荐</h2><br>
-<h3>HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md</p><br>
-<h3>找到了10年前跪舔b站的视频</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md</p><br>
-<h3>王楚钦孙颖莎晋级混双八强</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md</p><br>
-<h3>点球大战和诺伊尔都救不回德国队</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md</p><br>
-<h3>【涤墨作战7人870】望：我从地狱杀回来了！</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md</p><br>
-<h3>【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md</p><br>
-<h3>斗破苍穹</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md</p><br>
-<h3>女子健身不当 居然“脑子漏水”了</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md</p><br>
-<h3>拆解FIFA和世界杯的暗面</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md</p><br>
-<h3>欧洲家电巨头为何输掉了这个夏天</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md</p><br>
-<h3>美股收盘 热门中概股普涨</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md</p><br>
+<h3>巴拉圭进球</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md</p><br>
+<h3>教育部披露：高考生篡改7名同学志愿</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md</p><br>
+<h3>杨紫被质疑未使用原名纯属误解</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md</p><br>
+<h3>四川宜宾地震为何震感明显</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md</p><br>
+<h3>考入南大计算机，复读考清北值吗？</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md</p><br>
+<h3>MSI应援曲 如果季中成回忆</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md</p><br>
+<h3>德国队世界杯点球大战首败</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md</p><br>
+<h3>致敬！中国首批缉毒警已全体退休</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md</p><br>
+<h3>德国北部枪击事件致5死</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md</p><br>
+<h3>2021湖南卫视跨年演唱会</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>日本球迷输球后集体捡垃圾</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/297418.shtml</p><br>
-<h3>我把队友的7连跪剪成了艺术</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/1937712176.shtml</p><br>
-<h3>全网说丑的玫瑰空调卖了5万台</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:http://www.blog.minike.top/Article/details/00938234797.shtml</p><br>
-<h3>武磊：日本队有能力跟任何强队抗衡</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/995125193697.shtml</p><br>
-<h3>阿娇瘦了10斤</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://www.blog.minike.top/Article/details/53935392.shtml</p><br>
-<h3>巴拉圭先进球了</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:http://www.blog.minike.top/Article/details/49982304569.shtml</p><br>
-<h3>《赛博朋克：边缘行者 2》｜官方预告片</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/8586406686.shtml</p><br>
-<h3>苗族银饰</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/6279017451.shtml</p><br>
-<h3>商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/938551734.shtml</p><br>
-<h3>穆祉丞回应获年度人气艺人</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.blog.minike.top/Article/details/72969.shtml</p><br>
-<h3>iPhone18e曝光</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/354684460.shtml</p><br>
-<h3>巴拉圭进球</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/980741980232.shtml</p><br>
-<h3>疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:http://www.blog.minike.top/Article/details/42423123.shtml</p><br>
-<h3>巴西在进攻三区完成210脚传球</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://www.blog.minike.top/Article/details/39513731.shtml</p><br>
-<h3>德国连续三届世界杯无缘16强</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://www.blog.minike.top/Article/details/960150230525.shtml</p><br>
+<h3>被巴西绝杀后 日球员田中碧跪地痛哭</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:http://www.share.minike.top/Article/details/2433361000.shtml</p><br>
+<h3>巴西醒醒 这是淘汰赛</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/0517395.shtml</p><br>
+<h3>全网说丑的格力玫瑰空调卖了5万台</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://www.blog.minike.top/Article/details/2944019827.shtml</p><br>
+<h3>亚洲球队全部告别世界杯</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/3956809829.shtml</p><br>
+<h3>老外对中国cosplay竟这样评价…</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/48459.shtml</p><br>
+<h3>巴拉圭门将</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://www.share.minike.top/Article/details/077263542.shtml</p><br>
+<h3>老外对中国cosplay竟这样评价…</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/6744608731.shtml</p><br>
+<h3>勇士续约波尔津吉斯</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/655100.shtml</p><br>
+<h3>日耳曼拖拉机</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/475401.shtml</p><br>
+<h3>87克大金链到老庙黄金维修少了11克</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/0487685.shtml</p><br>
+<h3>中国代表在联合国点名日本所犯罪行</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/486244.shtml</p><br>
+<h3>致敬！中国首批缉毒警已全体退休</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.blog.minike.top/Article/details/1807523885.shtml</p><br>
+<h3>日本反击率先破门</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/32881.shtml</p><br>
+<h3>【Reaction】女生最少的5款游戏</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/05821488.shtml</p><br>
+<h3>世界杯：荷兰vs摩洛哥</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://www.share.minike.top/Article/details/5839110841.shtml</p><br>

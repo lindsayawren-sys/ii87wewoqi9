@@ -1,43 +1,46 @@
-<h1>重庆举行水库大坝安全管理应急示范演练 机器狗、水下机器人齐上阵</h1><br>
+<h1>强降雨致漓江排筏全线封航 桂林海事部门筑牢水上安全防线</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新网重庆5月16日电 (记者 刘相琳)重庆市2026年度水库大坝安全管理应急示范演练15日在云阳县太地水库举行。演练以强降雨引发水库险情为背景，动用无人机、无人船、机器狗、水下机器人等智能装备，构建“水陆空”一体化应急处置体系，为重庆水库安全度汛提供实战示范。 本次演练模拟杉树沟流域发生强降雨、太地水库可能发生险情的情景，聚焦极端天气情况下可能出现的重大风险挑战，涵盖监测预报</p><br>
+<p>中新网桂林4月21日电(黄艺坛 欧惠兰)受今年首轮强降雨影响，漓江水位快速上涨。为保障汛期船舶航行安全，4月21日7时30分起，桂林海事局根据水情变化对漓江各航段排筏逐段实施封航管制，截至8时15分，漓江排筏已实施全线封航。 截至21日14时，桂林水文站实测水位达144.29米，水上交通安全风险陡增。预警通知方面，桂林海事局依托气象、水文、海事三方实时信息共享机制，安排专人24</p><br>
 <h2>正文</h2><br>
-<p>中新网重庆5月16日电 (记者 刘相琳)重庆市2026年度水库大坝安全管理应急示范演练15日在云阳县太地水库举行。</p><br>
-<p>演练以强降雨引发水库险情为背景，动用无人机、无人船、机器狗、水下机器人等智能装备，构建“水陆空”一体化应急处置体系，为重庆水库安全度汛提供实战示范。</p><br>
-<p>本次演练模拟杉树沟流域发生强降雨、太地水库可能发生险情的情景，聚焦极端天气情况下可能出现的重大风险挑战，涵盖监测预报、会商研判、动态预警、风险分析、高新技术支撑、应急转移等关键环节，并设置智能巡查分析、应急救援、大坝管涌封堵、群众转移、紧急泄洪和反恐处置等典型险情处置场景，为全市水库应急演练提供蓝本和示范。</p><br>
-<p>水利、气象、应急、公安、镇政府等多部门协同作战，科学应对流域洪水、水库失事、山洪灾害“三大风险”。</p><br>
-<p>云阳县副县长吴大伦表示，云阳地处三峡库区腹心，共有注册登记水库178座，位居重庆第4位，安全管理任务艰巨。</p><br>
-<p>近年来，云阳县严格落实水库安全“三个责任人”，构建全员参与、全程管控、全域覆盖的人防体系；145座乡镇水库实现国企统一管理，115座完成标准化达标创建；同时构建“天空地水工”立体监测体系，配备无人机、无人船、水下机器人等智能设备和视频监控系统496套，监测在线率稳定在99%以上，以水利新质生产力提升安全管控效能。</p><br>
-<p>云阳县将以此次演练为契机，进一步压实责任、补齐短板，全力守护群众生命财产安全和一库碧水安澜。</p><br>
-<p>重庆市水利局副局长黄明忠在点评中强调，重庆各区县要充分运用“水利工程运行智管”应用，强化汛期“四预”管理，做实水库抢险预案，明确非常溢洪道开挖、群众转移组织等关键环节，病险水库和小型土石坝要提前在现场储备铺盖彩条布、编织袋、砂石料等抢险物资，切实保障极端情况下“拿得出、用得上”。</p><br>
+<p>中新网桂林4月21日电(黄艺坛 欧惠兰)受今年首轮强降雨影响，漓江水位快速上涨。</p><br>
+<p>为保障汛期船舶航行安全，4月21日7时30分起，桂林海事局根据水情变化对漓江各航段排筏逐段实施封航管制，截至8时15分，漓江排筏已实施全线封航。</p><br>
+<p>截至21日14时，桂林水文站实测水位达144.29米，水上交通安全风险陡增。</p><br>
+<p>预警通知方面，桂林海事局依托气象、水文、海事三方实时信息共享机制，安排专人24小时关注水位、降雨、流速等关键数据，通过甚高频定点播报、辖区航运企业定向推送、码头电子屏滚动显示等多种渠道，确保预警信息直达船员、船主及相关从业人员。</p><br>
+<p>现场管控环节，桂林海事局通过“岸上巡查+水上巡航+科技监控”相结合的模式，对漓江市区段、重点浅滩、桥梁水域、码头泊位等关键区域开展全面排查。</p><br>
+<p>通过视频监控系统对核心水域进行24小时不间断盯防，重点核查船舶系泊加固情况，坚决遏制违法航行、违规作业行为。</p><br>
+<p>同时，加大对岸边逗留人员的疏导力度，全力防范意外风险。</p><br>
+<p>应急保障方面，桂林海事局优化应急力量部署，在漓江干流重点水域前置海事巡逻艇和应急救援队伍，配齐救生衣、救生圈、抛投器等应急救援装备；同步与地方应急、消防、医疗、航道等部门建立健全应急联动机制，明确救援流程和协作分工，确保一旦发生险情能够快速响应、高效处置。</p><br>
 <h2>相关推荐</h2><br>
-<h3>想问一下学日语的大佬，自学日语要怎么学？</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md</p><br>
-<h3>德国爆冷点球大战不敌巴拉圭</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md</p><br>
-<h3>蔚来回应高压水枪洗车掉漆</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md</p><br>
-<h3>又一家县级医院关停门诊输液大厅</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md</p><br>
-<h3>【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md</p><br>
-<h3>韩国道歉完日本道歉</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md</p><br>
-<h3>德国身价是巴拉圭6倍</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md</p><br>
-<h3>为什么纣王似乎对周文王的扩张完全无动于衷？</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md</p><br>
-<h3>杨紫大银幕成绩单如何</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md</p><br>
-<h3>男子醉酒溺水获救后同行人拒搭手</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md</p><br>
+<h3>深扒韩国队淘汰背后原因</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md</p><br>
+<h3>沉睡花园</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md</p><br>
+<h3>【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md</p><br>
+<h3>Melo向柳智敏张元英道歉</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md</p><br>
+<h3>2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md</p><br>
+<h3>DeepSeek启动成立来最大规模招聘</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md</p><br>
+<h3>拆解FIFA和世界杯的暗面</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md</p><br>
+<h3>马耳他著名拱门坍塌致中国男子身亡</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md</p><br>
+<h3>王楚钦说配合稍微有些陌生感</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md</p><br>
+<h3>IGN评测电影版后室</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md</p><br>
+<h3>一切民族英雄都是中华民族的脊梁</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md</p><br>
+<h3>庆祝建党105周年特别节目</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md</p><br>
+<h3>日本队被绝杀后鞠躬致谢观众</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>杨紫获白玉兰视后为何争议难平</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:http://www.blog.minike.top/Article/details/69060776.shtml</p><br>
-<h3>国内最大沙漠发洪水意味着什么</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/877646.shtml</p><br>
-<h3>国内最大沙漠发洪水意味着什么</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/675810733.shtml</p><br>
-<h3>孙兴慜道歉</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/7041172.shtml</p><br>
-<h3>如何评价杨紫白玉兰获奖</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/769427691.shtml</p><br>
-<h3>为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/6855917.shtml</p><br>
-<h3>全球芯片巨头史诗级扩产</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/73828297899.shtml</p><br>
-<h3>内马尔安慰日本球员</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/663294.shtml</p><br>
-<h3>流金岁月</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.share.minike.top/Article/details/74077.shtml</p><br>
-<h3>吴启华卖肖像权拍AI电影</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/2146405.shtml</p><br>
-<h3>泰山建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/2019644.shtml</p><br>
-<h3>Melo向柳智敏张元英道歉</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/230009396059.shtml</p><br>
-<h3>法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://www.share.minike.top/Article/details/47281164.shtml</p><br>
-<h3>这种关系可能正在悄悄“催老”你</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://www.share.minike.top/Article/details/1235487306.shtml</p><br>
-<h3>爱直接对嘴喝饮料的人天塌了</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://www.share.minike.top/Article/details/6102517342.shtml</p><br>
+<h3>莫兰特被交易到开拓者</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:http://www.share.minike.top/Article/details/785916.shtml</p><br>
+<h3>巴拉圭进球</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:http://www.share.minike.top/Article/details/5735088.shtml</p><br>
+<h3>《虎吹最难绷の一集》</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/36305809.shtml</p><br>
+<h3>18岁体育生离世由爷爷奶奶抚养长大</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:http://www.blog.minike.top/Article/details/9236595.shtml</p><br>
+<h3>欧洲空调卖疯了 下一个爆款是储能吗</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/3698392.shtml</p><br>
+<h3>送你一朵小红花</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:http://www.share.minike.top/Article/details/379690309193.shtml</p><br>
+<h3>豆包收费了，你还会用吗？</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/252203495461.shtml</p><br>
+<h3>孙兴慜发长文致歉</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/23706.shtml</p><br>
+<h3>男子造谣东鹏老板不喝自家饮料被拘</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:http://www.share.minike.top/Article/details/98063528122.shtml</p><br>
+<h3>萨内 看笑了</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/42098495257.shtml</p><br>
+<h3>张碧晨一开口梦回逐玉</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://www.blog.minike.top/Article/details/8553588.shtml</p><br>
+<h3>英语考了145的人竟然教数学</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/353865136.shtml</p><br>
+<h3>德国连续三届世界杯无缘16强</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/26519463.shtml</p><br>
+<h3>董路：谁赢谁是“正路子”</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:http://www.blog.minike.top/Article/details/403920853.shtml</p><br>
+<h3>极限挑战第一季</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:http://www.blog.minike.top/Article/details/10762.shtml</p><br>

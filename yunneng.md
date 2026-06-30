@@ -1,46 +1,45 @@
-<h1>蔚来李斌：换电是护城河，不急于开放，要有“情投意合”的深度战略伙伴才会开放</h1><br>
+<h1>致远互联：2025年营收9.03亿元 经营现金流显著改善</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。蔚来创始人、董事长、CEO李斌线上参与对话。 关于换电网络的开放问题，李斌表示，蔚来肯定愿意开放换电，但也不急于开放。 李斌坦言，公司也要算ROI。现在很多人买蔚来，还是因为能换电。“我要算一下，我现在开放，到底是赚得多还是赚得少？如果现在开放，假设另一个品牌的车</p><br>
+<p>4月20日晚间，致远互联(688369.SH)同步发布2025年年报与2026年一季报。2025年报显示，公司营业总收入9.03亿元，同比增长6.69%，期内公司持续加强经营性现金流及收入质量管理，通过全流程运营优化、回款机制强化、项目质量提升等举措，实现现金流大幅改善，财务健康度与业绩确定性同步提升。2026年一季报显示，公司营业总收入1.29亿元，同比增长22.21%。期内</p><br>
 <h2>正文</h2><br>
-<p>专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。</p><br>
-<p>蔚来创始人、董事长、CEO李斌线上参与对话。</p><br>
-<p>关于换电网络的开放问题，李斌表示，蔚来肯定愿意开放换电，但也不急于开放。</p><br>
-<p>李斌坦言，公司也要算ROI。</p><br>
-<p>现在很多人买蔚来，还是因为能换电。</p><br>
-<p>“我要算一下，我现在开放，到底是赚得多还是赚得少？</p><br>
-<p>如果现在开放，假设另一个品牌的车加入换电网络，用十年、十五年，蔚来能赚一些换电服务费或电力交易的钱，但当下可能会因为开放换电而对自身销量产生影响。</p><br>
-<p>所以我要平衡一下。</p><br>
+<p>4月20日晚间，致远互联(688369.SH)同步发布2025年年报与2026年一季报。</p><br>
+<p>2025年报显示，公司营业总收入9.03亿元，同比增长6.69%，期内公司持续加强经营性现金流及收入质量管理，通过全流程运营优化、回款机制强化、项目质量提升等举措，实现现金流大幅改善，财务健康度与业绩确定性同步提升。</p><br>
+<p>2026年一季报显示，公司营业总收入1.29亿元，同比增长22.21%。</p><br>
+<p>期内公司订单交付与验收节奏明显优化，归母净利润亏损持续收窄，盈利质量边际提升，研发投入稳健增长、效率优化，整体经营呈现向上向好态势。</p><br>
+<p>据悉，2025年公司经营活动产生的现金流量净额同比少流出7842.24万元，现金流状况大幅改善，资金使用效率与抗风险能力显著提升，为稳健经营与长期创新投入提供坚实保障。</p><br>
+<p>同时，业绩蓄水池持续充盈，合同负债同比增长30.36%，预示未来收入确定性显著增强，为后续业绩持续释放提供强劲支撑，充分体现客户认可度与订单交付保障能力。</p><br>
+<p>此外，资产质量持续优化，应收账款余额同比下降15.22%，回款能力、运营效率与资产周转同步提升，资产结构更加健康，经营风险进一步降低，为可持续发展筑牢安全垫。</p><br>
+<p>公司方面表示，通过全面预算管控、组织架构优化、精细化运营管理等一系列举措，有效控制期间费用，提升经营效率。</p><br>
 <h2>相关推荐</h2><br>
-<h3>恋与深空</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md</p><br>
-<h3>日本将帅赛后采访纷纷哽咽落泪</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md</p><br>
-<h3>锐评：网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md</p><br>
-<h3>歌剧老师锐评歌手第6期</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md</p><br>
-<h3>爱很美味</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md</p><br>
-<h3>7月1日起 一批新规即将落地</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md</p><br>
-<h3>贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md</p><br>
-<h3>亚洲球队全部告别世界杯</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md</p><br>
-<h3>⚡逼尔摩斯教你玩球⚡</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md</p><br>
-<h3>国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md</p><br>
-<h3>森保一致歉：世界第一目标没能实现</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md</p><br>
-<h3>世界杯</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md</p><br>
-<h3>女心理师</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md</p><br>
+<h3>杨紫肖战余生请多指教拍立得</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md</p><br>
+<h3>杨紫学位证上就是杨紫</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md</p><br>
+<h3>电子游戏中有哪些关于武器的“刻板印象”？</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md</p><br>
+<h3>内马尔替补</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md</p><br>
+<h3>巴西vs日本</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md</p><br>
+<h3>酒店推行“24小时退房”引热议</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md</p><br>
+<h3>老外对中国cosplay竟这样评价…</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md</p><br>
+<h3>金牌调解</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md</p><br>
+<h3>如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md</p><br>
+<h3>天道</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md</p><br>
+<h3>男子P图现任妻子照片冒充前妻</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md</p><br>
+<h3>爱很美味</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>爆冷出局！德国点球大战不敌巴拉圭</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/49728990108.shtml</p><br>
-<h3>李在明向韩国两大财阀90度鞠躬</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/75607543526.shtml</p><br>
-<h3>毒液2</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:https://www.blog.minike.top/Article/details/544504016.shtml</p><br>
-<h3>第一次对自信的力量有了实感</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/216196985.shtml</p><br>
-<h3>李在明向韩国两大财阀90度鞠躬</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/447744.shtml</p><br>
-<h3>高考填志愿父亲和女儿产生分歧</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://www.share.minike.top/Article/details/128618435.shtml</p><br>
-<h3>曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:http://www.share.minike.top/Article/details/226144.shtml</p><br>
-<h3>挪威国家队紧急从本土订购大批海鲜</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/09561871.shtml</p><br>
-<h3>藤森庆子赢得秘鲁总统选举</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://www.share.minike.top/Article/details/876365.shtml</p><br>
-<h3>男子醉酒溺水获救后同行人拒协助抬人</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/661685.shtml</p><br>
-<h3>警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://www.blog.minike.top/Article/details/184768.shtml</p><br>
-<h3>小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:http://www.share.minike.top/Article/details/0869947.shtml</p><br>
-<h3>第3集丨“柠檬茶能换怀表？”</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://www.share.minike.top/Article/details/25609902.shtml</p><br>
-<h3>巴西在进攻三区完成210脚传球</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/656159.shtml</p><br>
-<h3>德国进球被吹</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:http://www.share.minike.top/Article/details/10525735099.shtml</p><br>
+<h3>女儿从清华毕业 爸爸晒出17年对比照</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://www.blog.minike.top/Article/details/95977.shtml</p><br>
+<h3>日本球员说被绝杀非常不甘心</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:http://www.blog.minike.top/Article/details/5434924576.shtml</p><br>
+<h3>韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://www.share.minike.top/Article/details/871383156.shtml</p><br>
+<h3>如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:http://www.share.minike.top/Article/details/92374.shtml</p><br>
+<h3>大蒜晒外面被路过女子连盆端走</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:http://www.blog.minike.top/Article/details/432936405.shtml</p><br>
+<h3>啊啊啊</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://www.blog.minike.top/Article/details/38346801750.shtml</p><br>
+<h3>欧洲空调卖疯了 下一个爆款是储能吗</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://www.blog.minike.top/Article/details/003924079276.shtml</p><br>
+<h3>高质量发展看新疆</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/9959077708.shtml</p><br>
+<h3>泰山景区回应修建刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://www.share.minike.top/Article/details/16043.shtml</p><br>
+<h3>全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:http://www.share.minike.top/Article/details/26556.shtml</p><br>
+<h3>女子健身不当 居然“脑子漏水”了</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/231058.shtml</p><br>
+<h3>收到补税提醒尽快办理 明起有滞纳金</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/76241165337.shtml</p><br>
+<h3>这几秒成世界杯最值钱广告位</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/988974922704.shtml</p><br>
+<h3>美股收盘 热门中概股普涨</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/578070170.shtml</p><br>
+<h3>巴西绝杀日本：漫画般结局换了主角</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/7580787.shtml</p><br>

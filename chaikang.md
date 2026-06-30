@@ -1,48 +1,48 @@
-<h1>中新人物丨对话维妮娜：在乘风之前，她已经跑了很久</h1><br>
+<h1>全国城镇水务行业专家学者齐聚深圳 探访水务“硬核科技”</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新网北京5月16日电（记者 王诗尧）“一天，一天，贴近你的心……” 刚打开手机APP，准备拍短视频的维妮娜，就被这段最近席卷各大平台的《心愿便利贴》“突袭”了。她愣了几秒，随即有些不好意思地笑着关掉页面。朋友在旁边打趣：“看来你私下也没少刷。” 这首带给无数人欢笑、引人跟唱模仿的《心愿便利贴》，出自《乘风2026》的首场公演。而那场热闹又沸腾的演出尾声，由维妮娜遗憾淘汰、落泪</p><br>
+<p>中新网深圳4月20日电 (记者 王坚)中国城镇供水排水协会2026年会暨城镇水务技术与产品展示14日至19日在深圳举行。会议期间，全国城镇水务行业专家学者实地探访深圳市滨河水质净化厂提标扩建工程，了解深圳河湾流域水环境治理的重点民生工程背后的水务“硬核科技”。 据介绍，深圳市滨河水质净化厂由深圳环境水务集团投资建设、中建八局承建，坐落于福田、罗湖区交汇的城央腹地，是守护片区水环</p><br>
 <h2>正文</h2><br>
-<p>中新网北京5月16日电（记者 王诗尧）“一天，一天，贴近你的心……” 刚打开手机APP，准备拍短视频的维妮娜，就被这段最近席卷各大平台的《心愿便利贴》“突袭”了。</p><br>
-<p>她愣了几秒，随即有些不好意思地笑着关掉页面。</p><br>
-<p>朋友在旁边打趣：“看来你私下也没少刷。</p><br>
-<p>” 这首带给无数人欢笑、引人跟唱模仿的《心愿便利贴》，出自《乘风2026》的首场公演。</p><br>
-<p>而那场热闹又沸腾的演出尾声，由维妮娜遗憾淘汰、落泪收场。</p><br>
-<p>很多观众第一次记住这个名字，也是在那一刻。</p><br>
-<p>维妮娜是谁？</p><br>
-<p>她为什么会来参加“浪姐”？</p><br>
+<p>中新网深圳4月20日电 (记者 王坚)中国城镇供水排水协会2026年会暨城镇水务技术与产品展示14日至19日在深圳举行。</p><br>
+<p>会议期间，全国城镇水务行业专家学者实地探访深圳市滨河水质净化厂提标扩建工程，了解深圳河湾流域水环境治理的重点民生工程背后的水务“硬核科技”。</p><br>
+<p>据介绍，深圳市滨河水质净化厂由深圳环境水务集团投资建设、中建八局承建，坐落于福田、罗湖区交汇的城央腹地，是守护片区水环境质量的核心水务设施。</p><br>
+<p>该项目立足城市核心区水务设施升级改造需求，始终以“滨水阳台河畔碧汀”为建设愿景，以工艺革新提升净水效能，以生态融合打造城市美景。</p><br>
+<p>据了解，滨河水质净化厂通过导入先进技术与集约化模式，推动水务产业向高效、低碳、智能化转型。</p><br>
+<p>针对原有厂区处理能力不足、工艺标准偏低、空间与城市割裂等问题，此次提标扩建工程立足长远、系统谋划，在不新增过多城市建设用地的前提下，全面推进工艺迭代与功能升级。</p><br>
+<p>值得一提的是，该项目以“改拆结合、分步开展、有序推进”为原则，将工程分为两区四个阶段进行建设，拆除线与新建线独立运行，保障了施工期间“不停产、不减量、不降标”。</p><br>
+<p>项目采用创新的AOA工艺，充分利用原水中的内碳源，实现深度脱氮除磷。</p><br>
 <h2>相关推荐</h2><br>
-<h3>日耳曼拖拉机</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md</p><br>
-<h3>博世们还在犹豫 美的们已经卖断货</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md</p><br>
-<h3>日本反击率先破门</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md</p><br>
-<h3>男子醉酒溺水获救后同行人拒协助抬人</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md</p><br>
-<h3>法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md</p><br>
-<h3>老外对中国cosplay竟这样评价…</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md</p><br>
-<h3>日本遭读秒绝杀 森保一：我水平不够</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md</p><br>
-<h3>日本将帅赛后采访纷纷哽咽落泪</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md</p><br>
-<h3>杨紫学位证上就是杨紫</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md</p><br>
-<h3>庆祝建党105周年特别节目</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md</p><br>
-<h3>左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md</p><br>
-<h3>古代人对纳妾的态度是什么样的？</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md</p><br>
-<h3>王楚钦孙颖莎vs皮斯特耶库库洛娃</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md</p><br>
-<h3>如何改变自己太负责任的性格?</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md</p><br>
-<h3>日本球迷输球后集体捡垃圾</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md</p><br>
+<h3>赵今麦因“瘦而不柴”的体态出圈</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md</p><br>
+<h3>日本博主：日本足球真的垃圾</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md</p><br>
+<h3>杨紫大银幕成绩单</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md</p><br>
+<h3>人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md</p><br>
+<h3>起风了</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md</p><br>
+<h3>马航370搜寻最新消息</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md</p><br>
+<h3>齐思钧回复张月</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md</p><br>
+<h3>中国猪圈装空调让欧洲网友破防</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md</p><br>
+<h3>花少8要去世界杯举办国</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md</p><br>
+<h3>如果有二次元高中是什么样子的？</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md</p><br>
+<h3>《虎吹最难绷の一集》</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md</p><br>
+<h3>杨某诋毁袁隆平院士科研成果被刑拘</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md</p><br>
+<h3>孙兴慜道歉</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md</p><br>
+<h3>董卿母亲癌症去世</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md</p><br>
+<h3>孙兴慜道歉</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>董卿父亲报纸上发文悼念亡妻</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:http://www.blog.minike.top/Article/details/0249260.shtml</p><br>
-<h3>⚡逼尔摩斯教你玩球⚡</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/081474037.shtml</p><br>
-<h3>本届世界杯已有5名球员被控强奸</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/363344.shtml</p><br>
-<h3>为什么会有「念旧」的心理？</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://www.share.minike.top/Article/details/07495.shtml</p><br>
-<h3>泰山景区建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/0314980.shtml</p><br>
-<h3>陈幸同晋级WTT美国大满贯女单32强</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/48342.shtml</p><br>
-<h3>外国游客开始涌入中国农村</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:http://www.share.minike.top/Article/details/244336967.shtml</p><br>
-<h3>科学备孕男女都要上心</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/45997.shtml</p><br>
-<h3>你这一辈子有没有为进山姆拼过命？</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/38531286686.shtml</p><br>
-<h3>巴西绝杀日本</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://www.blog.minike.top/Article/details/94801109.shtml</p><br>
-<h3>欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/03603183.shtml</p><br>
-<h3>点球大战 残酷</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/37735917.shtml</p><br>
-<h3>马杜罗账号在纽约发文致谢各国援助</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.share.minike.top/Article/details/95347358.shtml</p><br>
-<h3>如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/2210002.shtml</p><br>
-<h3>巴西绝杀日本</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:http://www.share.minike.top/Article/details/3356342215.shtml</p><br>
+<h3>刘宇宁高情商化解谁站C位</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:http://www.share.minike.top/Article/details/139640941682.shtml</p><br>
+<h3>日本主帅赛后回应淘汰出局</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://www.blog.minike.top/Article/details/277212.shtml</p><br>
+<h3>《我落泪情绪零碎》</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:http://www.blog.minike.top/Article/details/09543272.shtml</p><br>
+<h3>女子清吧被陌生人投放伟哥</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:http://www.blog.minike.top/Article/details/90788662340.shtml</p><br>
+<h3>锐评T1战胜KC</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://www.share.minike.top/Article/details/27986287025.shtml</p><br>
+<h3>恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/11273653.shtml</p><br>
+<h3>未来五年，教育强国这样建设</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://www.blog.minike.top/Article/details/986204.shtml</p><br>
+<h3>诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:http://www.blog.minike.top/Article/details/97671.shtml</p><br>
+<h3>为什么会有「念旧」的心理？</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:http://www.blog.minike.top/Article/details/482688524430.shtml</p><br>
+<h3>中国新一轮出口管制直指日本命脉</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:http://www.share.minike.top/Article/details/6226947046.shtml</p><br>
+<h3>齐思钧回复张月</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/763430.shtml</p><br>
+<h3>我和我的家乡</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:http://www.blog.minike.top/Article/details/9028808022.shtml</p><br>
+<h3>恋与深空</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.blog.minike.top/Article/details/659478948.shtml</p><br>
+<h3>尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://www.share.minike.top/Article/details/994727.shtml</p><br>
+<h3>房价什么时候能涨</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://www.blog.minike.top/Article/details/9101058.shtml</p><br>

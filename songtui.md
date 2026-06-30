@@ -1,47 +1,42 @@
-<h1>美国务院说以色列黎巴嫩停火将延长45天</h1><br>
+<h1>四川累计外送电量突破2万亿千瓦时</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新社华盛顿5月15日电 (记者 沙晗汀)美国国务院发言人托马斯·皮戈特当地时间15日表示，以色列与黎巴嫩已同意将美国总统特朗普于4月16日宣布的停火协议延长45天。 皮戈特当天在社交媒体发文说，“4月16日达成的停止敌对行动协议将延长45天，以实现进一步进展”。 皮戈特还说，以色列和黎巴嫩14日和15日在华盛顿举行的会谈“富有成效”。以色列和黎巴嫩政府代表将于6月2日到3日再</p><br>
+<p>炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！总台央视记者 孙渊 记者从国家电网了解到，目前，四川累计外送电量突破2万亿千瓦时，这一规模约相当于江苏、浙江、安徽三省2025年全社会用电量之和。 最新数据显示，截至4月21日，四川累计外送电量达到20004.15亿千瓦时，突破2万亿千瓦时，其中，超99.98%为水电和新能源，相当于替代燃煤消耗约6.5亿吨</p><br>
 <h2>正文</h2><br>
-<p>中新社华盛顿5月15日电 (记者 沙晗汀)美国国务院发言人托马斯·皮戈特当地时间15日表示，以色列与黎巴嫩已同意将美国总统特朗普于4月16日宣布的停火协议延长45天。</p><br>
-<p>皮戈特当天在社交媒体发文说，“4月16日达成的停止敌对行动协议将延长45天，以实现进一步进展”。</p><br>
-<p>皮戈特还说，以色列和黎巴嫩14日和15日在华盛顿举行的会谈“富有成效”。</p><br>
-<p>以色列和黎巴嫩政府代表将于6月2日到3日再次举行会谈。</p><br>
-<p>两国军方代表将于5月29日举行会谈。</p><br>
-<p>皮戈特表示，“希望会谈能推动两国之间实现长久和平、承认对方领土和主权完整、在边境实现真正稳定”。</p><br>
-<p>据路透社报道，自3月2日以色列和黎巴嫩冲突以来，这是双方举行的第三次会谈。</p><br>
-<p>尽管双方达成“停火”协议，但实际上冲突并未停止。</p><br>
+<p>炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！</p><br>
+<p>总台央视记者 孙渊 记者从国家电网了解到，目前，四川累计外送电量突破2万亿千瓦时，这一规模约相当于江苏、浙江、安徽三省2025年全社会用电量之和。</p><br>
+<p>最新数据显示，截至4月21日，四川累计外送电量达到20004.15亿千瓦时，突破2万亿千瓦时，其中，超99.98%为水电和新能源，相当于替代燃煤消耗约6.5亿吨，减排二氧化碳约16亿吨。</p><br>
+<p>作为我国重要的清洁能源基地，以及“西电东送”重要起点，四川自1998年开始向省外送电，目前已建成7条特高压直流外送通道，跨区跨省外送能力超6260万千瓦，位居全国首位。</p><br>
+<p>目前，四川电力总装机已达到1.6亿千瓦，其中，水电装机超1亿千瓦，占绝对主力，此外，风、光等新能源装机超3200万千瓦，成为第二大电源。</p><br>
+<p>当前，四川正加快推进金沙江上游、雅砻江、大渡河流域水风光一体化清洁能源基地规划建设，引导甘孜、阿坝、凉山风光资源富集地区规模化、基地化、集约化发展。</p><br>
+<p>责任编辑：张乔松</p><br>
 <h2>相关推荐</h2><br>
-<h3>吴易昺不敌德约科维奇 止步温网首轮</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md</p><br>
-<h3>2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md</p><br>
-<h3>急先锋</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md</p><br>
-<h3>毒液2</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md</p><br>
-<h3>王菲谢霆锋十指紧扣好甜</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md</p><br>
-<h3>电影抓特务上映11天破亿</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md</p><br>
-<h3>峡谷事故团队组队时有人提醒会下雨</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md</p><br>
-<h3>“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md</p><br>
-<h3>中国对日本再出重拳</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md</p><br>
-<h3>FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md</p><br>
-<h3>德国进球被吹</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md</p><br>
-<h3>美股深夜大反弹 特斯拉飙涨8%</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md</p><br>
-<h3>手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md</p><br>
-<h3>库尼亚赛后伸五指嘲讽日本</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md</p><br>
+<h3>手底下人带不动怎么办？</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md</p><br>
+<h3>“柠檬茶能换怀表？”</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md</p><br>
+<h3>库尼亚赛后伸五指嘲讽日本</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md</p><br>
+<h3>恋与深空道歉声明</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md</p><br>
+<h3>齐思钧回复张月</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md</p><br>
+<h3>曝詹姆斯即将与勇士会面</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md</p><br>
+<h3>明星大侦探第四季</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md</p><br>
+<h3>王楚钦说配合稍微有些陌生感</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md</p><br>
+<h3>如何看待武亮说大学生生活费1500就够用这一言论？</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md</p><br>
+<h3>网瘾賊大的阿嬷</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>德国队世界杯点球大战首败</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/102627926049.shtml</p><br>
-<h3>《恋与深空》被指触碰民族伤痛红线</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/1492086.shtml</p><br>
-<h3>千香</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:http://www.share.minike.top/Article/details/7802164.shtml</p><br>
-<h3>刘宇宁是去进货了吗</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:http://www.blog.minike.top/Article/details/188524687.shtml</p><br>
-<h3>美媒：美军第五舰队司令部已无法使用</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:http://www.share.minike.top/Article/details/628220380011.shtml</p><br>
-<h3>沉睡花园</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://www.share.minike.top/Article/details/26730.shtml</p><br>
-<h3>妻子撞死家暴丈夫案二审案情反转</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/82369113313.shtml</p><br>
-<h3>森保一致歉：世界第一目标没能实现</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:http://www.share.minike.top/Article/details/75187.shtml</p><br>
-<h3>卡塞米罗头球破门</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/574327303.shtml</p><br>
-<h3>第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://www.blog.minike.top/Article/details/745048086090.shtml</p><br>
-<h3>恋与深空已删除锅里洗澡文案</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/8195310.shtml</p><br>
-<h3>日本球迷输球后集体捡垃圾</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://www.blog.minike.top/Article/details/30869.shtml</p><br>
-<h3>GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:http://www.share.minike.top/Article/details/082973.shtml</p><br>
-<h3>李在明90度鞠躬感谢韩国两大财阀</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/5118325.shtml</p><br>
-<h3>全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/3439401.shtml</p><br>
+<h3>《鸣潮》玄方主题曲 MV | 定玄</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:http://www.share.minike.top/Article/details/79161086.shtml</p><br>
+<h3>张月收到黄灿灿辣货两眼发光</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:http://www.share.minike.top/Article/details/52478.shtml</p><br>
+<h3>奔跑吧·黄河篇第二季</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://www.share.minike.top/Article/details/818912092473.shtml</p><br>
+<h3>有哪些被认为是现代才有的东西其实古代就有了？</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:http://www.blog.minike.top/Article/details/04477829525.shtml</p><br>
+<h3>如何评价《龙之家族》第三季第二集？</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.blog.minike.top/Article/details/76415452.shtml</p><br>
+<h3>曝詹姆斯即将与勇士会面</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:http://www.blog.minike.top/Article/details/18108306.shtml</p><br>
+<h3>啥比桑吉尔夫排位练蓝防（最不抽象的一集）</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/441937709998.shtml</p><br>
+<h3>国务院：稳步推进研究生考试招生改革</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/526866.shtml</p><br>
+<h3>内马尔未登场 安切洛蒂赛后回应</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:http://www.blog.minike.top/Article/details/78104.shtml</p><br>
+<h3>iPhoneUltra黑色机模</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://www.share.minike.top/Article/details/300958598.shtml</p><br>
+<h3>日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:http://www.blog.minike.top/Article/details/10940399076.shtml</p><br>
+<h3>女儿从清华毕业 爸爸晒出17年对比照</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://www.blog.minike.top/Article/details/240937954.shtml</p><br>
+<h3>如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/725325977503.shtml</p><br>
+<h3>毕业以后，你最怀念的大学记忆是什么？</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/73864.shtml</p><br>
+<h3>博世们还在犹豫 美的们已经卖断货</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:http://www.share.minike.top/Article/details/793414716932.shtml</p><br>

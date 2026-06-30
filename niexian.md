@@ -1,46 +1,48 @@
-<h1>今年前4个月欧盟非法入境人次同比下降40%</h1><br>
+<h1>两年来宁夏法院受理知识产权案件2159件 增幅13.75%</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新社布鲁塞尔5月15日电 (记者 德永健)欧盟边境与海岸警卫局15日通报，由于中地中海一线、东地中海一线、西非一线等非法入境人次明显回落，今年前4个月欧盟非法入境人次较去年同期下降40%。 欧盟边境与海岸警卫局当日在一份公告中称，初步统计数据显示，今年前4个月，欧盟非法入境累计2.85余万人次，较去年同期下降40%。 具体而言，在“重灾区”中地中海一线(目的地意大利)，今年前</p><br>
+<p>中新网银川4月21日电 (记者 杨迪)记者21日从宁夏法院“知识产权司法保护”新闻发布会上获悉，2024-2025年度，宁夏法院共受理各类知识产权案件2159件，结案1929件，结案率89.35%；受理案件数比2022-2023年增加261件，增幅13.75%；结案数增加186件，增幅10.67%。 数据显示，近两年宁夏知识产权案件数量呈现“V”形反转，2024年宁夏法院知识产</p><br>
 <h2>正文</h2><br>
-<p>中新社布鲁塞尔5月15日电 (记者 德永健)欧盟边境与海岸警卫局15日通报，由于中地中海一线、东地中海一线、西非一线等非法入境人次明显回落，今年前4个月欧盟非法入境人次较去年同期下降40%。</p><br>
-<p>欧盟边境与海岸警卫局当日在一份公告中称，初步统计数据显示，今年前4个月，欧盟非法入境累计2.85余万人次，较去年同期下降40%。</p><br>
-<p>具体而言，在“重灾区”中地中海一线(目的地意大利)，今年前4个月非法入境近8500人次，较去年同期下降46%，非法入境人员主要来自孟加拉国、索马里和苏丹，利比亚是主要中转站。</p><br>
-<p>在东地中海一线(目的地希腊等国)，今年前4个月非法入境逾8400人次，较去年同期下降32%，非法入境人员主要来自阿富汗、苏丹和也门，从利比亚至希腊克里特岛的非法入境路线依然活跃。</p><br>
-<p>在西非一线，得益于毛里塔尼亚、塞内加尔、冈比亚等国加大边境管控力度，今年前4个月非法入境逾2300人次，较去年同期下降78%，非法入境人员主要来自冈比亚、塞内加尔和几内亚。</p><br>
-<p>在西巴尔干一线，今年前4个月非法入境逾2800人次，较去年同期下降19%，非法入境人员主要来自土耳其、埃及和阿富汗。</p><br>
-<p>在欧盟东部陆地边境，今年前4个月非法入境逾1100人次，较去年同期下降49%，非法入境人员主要来自乌克兰、俄罗斯和黎巴嫩。</p><br>
-<p>与上述路线相反，在西地中海一线(目的地西班牙等国)，今年前4个月非法入境近5200人次，较去年同期增加50%，非法入境人员主要来自阿尔及利亚、马里和摩洛哥，阿尔及利亚是主要中转站。</p><br>
+<p>中新网银川4月21日电 (记者 杨迪)记者21日从宁夏法院“知识产权司法保护”新闻发布会上获悉，2024-2025年度，宁夏法院共受理各类知识产权案件2159件，结案1929件，结案率89.35%；受理案件数比2022-2023年增加261件，增幅13.75%；结案数增加186件，增幅10.67%。</p><br>
+<p>数据显示，近两年宁夏知识产权案件数量呈现“V”形反转，2024年宁夏法院知识产权收结案数较前两年出现明显阶段性回落，标志着通过优化司法裁判规则与指引、规范商业维权、深化多元解纷和强化行政执法协作等举措，在“抓前端、治未病”上取得了实质性成效。</p><br>
+<p>2025年，案件总量有所回升，整体走势呈现出保护需求的刚性增长，需加大知识产权矛盾纠纷源头治理，鼓励创新发展。</p><br>
+<p>据介绍，近两年宁夏法院通过案件繁简分流机制，大幅缩短案件审理周期，提升审判工作效率。</p><br>
+<p>数据显示，案件总体调撤率长期稳定在50%的高位，不仅大幅降低了当事人诉累，更实现了法律效果与社会效果的统一。</p><br>
+<p>值得关注的是，宁夏法院受理的知识产权案件与本地区经济结构高度相关，知识产权审判始终紧扣宁夏“六新六特六优+N”产业脉搏。</p><br>
+<p>近年来，宁夏法院依法审结涉“贺兰山东麓葡萄酒”“中宁枸杞”“盐池滩羊”“灵武长枣”等国家地理标志产品的知识产权案件1224件，并与市场监管等部门建立协同保护工作机制，共同推动《宁夏回族自治区知识产权保护条例》的出台与实施。</p><br>
+<p>(完)</p><br>
 <h2>相关推荐</h2><br>
-<h3>女子遭下药退赔偿拟追刑责</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md</p><br>
-<h3>美人鱼</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md</p><br>
-<h3>我设置了全宇宙最安全的密码</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md</p><br>
-<h3>恋与深空已删除锅里洗澡文案</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md</p><br>
-<h3>德国进球被吹</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md</p><br>
-<h3>《名肘探科比》：科比大战裂口女</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md</p><br>
-<h3>黄晓明晒和周杰伦的合照</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md</p><br>
-<h3>手底下人带不动怎么办？</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md</p><br>
-<h3>美人鱼</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md</p><br>
-<h3>浪姐成团夜爆笑吐槽</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md</p><br>
-<h3>欧盟分楼层开空调惹争议</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md</p><br>
-<h3>徐亮怒斥世界杯踢假球</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md</p><br>
-<h3>韩国道歉完日本道歉</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md</p><br>
+<h3>巴拉圭点球大战淘汰德国进16强</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md</p><br>
+<h3>歌剧老师锐评歌手第6期</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md</p><br>
+<h3>如果有二次元高中是什么样子的？</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md</p><br>
+<h3>如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md</p><br>
+<h3>吴易昺不敌德约科维奇 止步温网首轮</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md</p><br>
+<h3>德国巴拉圭加时</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md</p><br>
+<h3>德国北部枪击事件致5死</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md</p><br>
+<h3>赛博朋克边缘行者2预告片</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md</p><br>
+<h3>荀彧和曹操反目成仇的根本原因是什么？</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md</p><br>
+<h3>【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md</p><br>
+<h3>日本淘汰</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md</p><br>
+<h3>你人生中最艰难的时候是怎么熬过来的？</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md</p><br>
+<h3>德国爆冷点球大战不敌巴拉圭</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md</p><br>
+<h3>MSI应援曲 如果季中成回忆</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md</p><br>
+<h3>国务院：鼓励行业龙头企业举办职校</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>巴拉圭进球</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://www.blog.minike.top/Article/details/85815939.shtml</p><br>
-<h3>点球大战和诺伊尔都救不回德国队</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.share.minike.top/Article/details/92289330933.shtml</p><br>
-<h3>斛珠夫人</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/02363.shtml</p><br>
-<h3>德国巴拉圭进入点球大战</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://www.blog.minike.top/Article/details/14668409.shtml</p><br>
-<h3>曝灰熊将莫兰特交易至开拓者</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/2574993404.shtml</p><br>
-<h3>世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/677073.shtml</p><br>
-<h3>徐亮怒斥世界杯踢假球</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://www.blog.minike.top/Article/details/04838.shtml</p><br>
-<h3>领克900大型SUV值得购买吗?</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://www.blog.minike.top/Article/details/337629086419.shtml</p><br>
-<h3>电影抓特务上映11天破亿</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://www.share.minike.top/Article/details/87116432.shtml</p><br>
-<h3>为什么香港的冲厕水是咸的？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/669611717106.shtml</p><br>
-<h3>收到补税提醒尽快办理 明起有滞纳金</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:http://www.blog.minike.top/Article/details/688483554229.shtml</p><br>
-<h3>沙丘</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:http://www.blog.minike.top/Article/details/86042.shtml</p><br>
-<h3>Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:http://www.share.minike.top/Article/details/80769860875.shtml</p><br>
-<h3>巴西醒醒 这是淘汰赛</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:http://www.blog.minike.top/Article/details/71814552340.shtml</p><br>
-<h3>一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:http://www.blog.minike.top/Article/details/245622006.shtml</p><br>
+<h3>巴拉圭门将</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/339697329317.shtml</p><br>
+<h3>任素汐舞台上唱《王招君》</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/495131423015.shtml</p><br>
+<h3>明星大侦探第一季</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/58027927993.shtml</p><br>
+<h3>沙丘</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://www.share.minike.top/Article/details/30236345.shtml</p><br>
+<h3>欧盟分楼层开空调惹争议</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:http://www.share.minike.top/Article/details/5414930907.shtml</p><br>
+<h3>HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/9588973541.shtml</p><br>
+<h3>《名肘探科比》：科比大战裂口女</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:http://www.blog.minike.top/Article/details/770993.shtml</p><br>
+<h3>奔跑吧·黄河篇第二季</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://www.share.minike.top/Article/details/63002730591.shtml</p><br>
+<h3>沙丘</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/996886232.shtml</p><br>
+<h3>如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:http://www.blog.minike.top/Article/details/5187157017.shtml</p><br>
+<h3>美股</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.share.minike.top/Article/details/678821.shtml</p><br>
+<h3>不开心就去看三年前的购物订单</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://www.share.minike.top/Article/details/738221687502.shtml</p><br>
+<h3>点球大战</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/182229.shtml</p><br>
+<h3>教育部披露：高考生篡改7名同学志愿</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/2362169521.shtml</p><br>
+<h3>⚡逼尔摩斯教你玩球⚡</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://www.blog.minike.top/Article/details/912749285.shtml</p><br>

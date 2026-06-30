@@ -1,48 +1,43 @@
-<h1>缺油少墨持续发酵 日本可果美番茄酱改用透明包装</h1><br>
+<h1>中国东方教育与香港职业训练局签署合作意向书，共同推进“职专毕业生留港计划”</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>5月15日，据央视新闻，由于中东局势持续紧张导致印刷油墨原料短缺，日本食品企业可果美（KAGOME）公司被迫决定将旗下多款番茄酱包装改为透明包装，并大幅删减原包装所印的西红柿图案。 当地时间5月15日，可果美对外公布包装调整方案，这款拥有四十余年经典设计的番茄酱产品，即将告别沿用多年的白色底色、密集西红柿图案的彩色外观。自5月下旬起，产品包装将全面更换为透明样式，仅保留少量核心</p><br>
+<p>4月17日，中国东方教育（00667.HK）与香港职业训练局（VTC）正式签署《合作意向书》。双方将围绕“职专毕业生留港计划”（VPAS）展开全面合作，面向内地学校招收学生来港修读大专文凭课程，并提供就业推荐及长期发展支持，助力学生实现“升学—就业—留港”一体化发展目标。 作为本次合作的主导方，中国东方教育将充分发挥旗下学校的教学资源优势，协助香港职业训练局在内地开展VPAS计</p><br>
 <h2>正文</h2><br>
-<p>5月15日，据央视新闻，由于中东局势持续紧张导致印刷油墨原料短缺，日本食品企业可果美（KAGOME）公司被迫决定将旗下多款番茄酱包装改为透明包装，并大幅删减原包装所印的西红柿图案。</p><br>
-<p>当地时间5月15日，可果美对外公布包装调整方案，这款拥有四十余年经典设计的番茄酱产品，即将告别沿用多年的白色底色、密集西红柿图案的彩色外观。</p><br>
-<p>自5月下旬起，产品包装将全面更换为透明样式，仅保留少量核心图案，大幅削减彩色油墨使用量，经测算可直接节约近一半印刷油墨。</p><br>
-<p>公司对此向消费者致歉，称此举是在油墨供应持续紧张、难以找到稳定替代原料的背景下，为优先保障市场供货做出的无奈调整，产品本身配方、口味、规格均不发生改变，后续包装能否恢复原样，将根据全球原料供应形势动态调整。</p><br>
-<p>可果美是日本拥有超百年历史的国民级食品企业，1899年正式创立，深耕番茄制品、果蔬饮品领域，总部位于日本名古屋，1903年便开启番茄酱生产业务，如今稳居日本番茄酱市场龙头地位，番茄酱品类市场占有率超58%，番茄汁市场份额超63%，品牌影响力覆盖全日本，同时业务辐射亚洲多国市场。</p><br>
-<p>此次调整包装的经典番茄酱产品，是可果美核心王牌单品，也是日本国民调味选择，沿用数十年的彩色番茄图案包装，早已成为消费者熟知的品牌视觉符号。</p><br>
-<p>这是继休闲食品巨头卡乐比宣布多款产品由彩色包装改为黑白印刷后，日本又一食品生产商启用透明简化包装，以此应对印刷油墨短缺问题，保障商品持续供应。</p><br>
-<p>5月12日，日本零食巨头卡乐比（Calbee）通知其供应商，由于中东局势持续紧张，作为印刷油墨原料的石脑油（石化原料）供应趋于不稳定，公司计划从本月下旬开始，将部分薯片、虾条、水果麦片等主力商品包装，临时调整为仅使用黑白两色的简化设计。</p><br>
+<p>4月17日，中国东方教育（00667.HK）与香港职业训练局（VTC）正式签署《合作意向书》。</p><br>
+<p>双方将围绕“职专毕业生留港计划”（VPAS）展开全面合作，面向内地学校招收学生来港修读大专文凭课程，并提供就业推荐及长期发展支持，助力学生实现“升学—就业—留港”一体化发展目标。</p><br>
+<p>作为本次合作的主导方，中国东方教育将充分发挥旗下学校的教学资源优势，协助香港职业训练局在内地开展VPAS计划的宣传与招生工作。</p><br>
+<p>根据该计划，内地学生可来港就读大专文凭课程，毕业后获推荐在港就业，累计居住满7年即可申请成为香港永久居民，获得香港身份。</p><br>
+<p>合作覆盖香港职业训练局旗下多所院校，包括酒店及旅游学院、中华厨艺学院、国际厨艺学院及香港专业教育学院，涉及酒店及旅游学科领域。</p><br>
+<p>未来，双方还将定期组织学生互访、烹饪技能比赛、教学团队交流等活动，全面提升学生在中西烹饪文化与实务技能方面的专业能力。</p><br>
+<p>此外，双方已就IT及汽车培训领域的合作可能性进行了积极探讨。</p><br>
+<p>此次合作是中国东方教育推进职业教育国际化战略的重要里程碑，为内地学生打造出一条系统化、可持续的海外升学、就业及留港发展通道。</p><br>
 <h2>相关推荐</h2><br>
-<h3>覃予萱晋级WTT美国大满贯女单32强</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md</p><br>
-<h3>扬名立万</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md</p><br>
-<h3>啥比桑吉尔夫排位练蓝防（最不抽象的一集）</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md</p><br>
-<h3>本届世界杯已有5名球员被控强奸</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md</p><br>
-<h3>孙兴慜道歉</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md</p><br>
-<h3>曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md</p><br>
-<h3>城市规划有可能成为「屎山代码」吗？</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md</p><br>
-<h3>马航370搜寻最新消息</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md</p><br>
-<h3>领克07GT搭载超跑同源MRC悬架</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md</p><br>
-<h3>第一炉香</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md</p><br>
-<h3>诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md</p><br>
-<h3>毕业以后，你最怀念的大学记忆是什么？</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md</p><br>
-<h3>这种关系可能正在悄悄“催老”你</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md</p><br>
-<h3>披荆斩棘的哥哥</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md</p><br>
-<h3>杨某诋毁袁隆平院士科研成果被刑拘</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md</p><br>
+<h3>锐评：网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md</p><br>
+<h3>李在明90度鞠躬感谢韩国两大财阀</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md</p><br>
+<h3>乔家的儿女</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md</p><br>
+<h3>2026年WTT美国大满贯，国乒自带球桌是真实的吗？</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md</p><br>
+<h3>你这一辈子有没有为进山姆拼过命？</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md</p><br>
+<h3>"超算小姐，这一次，我一定要带你出去..."</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md</p><br>
+<h3>如何看待武亮说大学生生活费1500就够用这一言论？</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md</p><br>
+<h3>挪威国家队紧急从本土订购大批海鲜</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md</p><br>
+<h3>商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md</p><br>
+<h3>怕iPhone涨价的用户已紧急换新</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>奔跑吧·黄河篇第二季</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://www.blog.minike.top/Article/details/9141440912.shtml</p><br>
-<h3>科学备孕男女都要上心</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://www.share.minike.top/Article/details/59913.shtml</p><br>
-<h3>曝灰熊将莫兰特交易至开拓者</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/846329067972.shtml</p><br>
-<h3>为什么会有「念旧」的心理？</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/483319602141.shtml</p><br>
-<h3>4000美元是黄金新一轮下跌的开始吗</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://www.blog.minike.top/Article/details/99408.shtml</p><br>
-<h3>GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://www.share.minike.top/Article/details/10198304960.shtml</p><br>
-<h3>巴西替补奇兵读秒绝杀</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/3650229477.shtml</p><br>
-<h3>2021江苏卫视跨年演唱会</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/366355.shtml</p><br>
-<h3>手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/5290502026.shtml</p><br>
-<h3>四川宜宾地震为何震感明显</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://www.share.minike.top/Article/details/8635525.shtml</p><br>
-<h3>卢卡申科发布解放军仪仗队视频</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/95019961893.shtml</p><br>
-<h3>网瘾賊大的阿嬷</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/1364729.shtml</p><br>
-<h3>蔚来回应高压水枪洗车掉漆</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://www.share.minike.top/Article/details/63616070.shtml</p><br>
-<h3>"超算小姐，这一次，我一定要带你出去..."</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/943655896468.shtml</p><br>
-<h3>郑钦文 四年一轮游</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/18964113.shtml</p><br>
+<h3>马耳他著名拱门坍塌致一中国男子身亡</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:http://www.blog.minike.top/Article/details/03382252.shtml</p><br>
+<h3>沙丘</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:http://www.blog.minike.top/Article/details/124103436.shtml</p><br>
+<h3>高质量发展看新疆</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:http://www.blog.minike.top/Article/details/854266367.shtml</p><br>
+<h3>如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/758301.shtml</p><br>
+<h3>第3集丨“柠檬茶能换怀表？”</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://www.blog.minike.top/Article/details/15696.shtml</p><br>
+<h3>德国淘汰</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/75770.shtml</p><br>
+<h3>泰山建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:http://www.blog.minike.top/Article/details/04307443769.shtml</p><br>
+<h3>媒体评泰山建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/5402249.shtml</p><br>
+<h3>沉睡花园</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:http://www.share.minike.top/Article/details/2827851983.shtml</p><br>
+<h3>怕iPhone涨价的用户已紧急换新</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/55074020110.shtml</p><br>
+<h3>韩国球迷凌晨4点接机怒骂主教练</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/825867967242.shtml</p><br>
+<h3>如何看待武亮说大学生生活费1500就够用这一言论？</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/00766.shtml</p><br>
+<h3>徐亮怒斥世界杯踢假球</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:http://www.share.minike.top/Article/details/7457231.shtml</p><br>
+<h3>法媒点赞中国小区楼顶“人工降雨”</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:http://www.share.minike.top/Article/details/721528.shtml</p><br>
+<h3>如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/767379.shtml</p><br>

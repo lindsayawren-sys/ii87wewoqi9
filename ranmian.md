@@ -1,45 +1,40 @@
-<h1>文脉华章丨四川的博物馆太夯了！1年1.06亿人次认证</h1><br>
+<h1>“简历优化坊”“朋辈化妆间”亮相湖南校园 助力毕业生自信求职</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>川观新闻记者 吴晓铃 视频剪辑 周芷冰 四川的博物馆究竟有多热？5月15日，四川省文物局、重庆市文旅委与四川省博物馆学会、重庆市博物馆协会联合发布《2025年川渝博物馆事业发展报告》。报告显示，过去一年，川渝两地博物馆共接待观众超1.51亿人次，其中四川全年累计接待观众就达1.06亿人次，同比增长23.54%，创下历史新高。备案博物馆数量达459家，全年推出的临展特展达到了13</p><br>
+<p>发布时间：2026年04月20日 21:16 来源：中国新闻网 近日，湖南湘潭，随着“智汇潇湘 才聚湖南”2026年湖南省促进高校毕业生就业创业行动启动，一场别开生面的春季毕业生供需见面会在湘潭大学举行。“简历优化坊”“朋辈化妆间”等创新服务举措纷纷亮相，为同学们提供一对一简历“问诊”服务，并提供正装借用服务、量身打造职业形象，为毕业生自信求职、企业高效揽才助力。(徐志雄 王成</p><br>
 <h2>正文</h2><br>
-<p>川观新闻记者 吴晓铃 视频剪辑 周芷冰 四川的博物馆究竟有多热？</p><br>
-<p>5月15日，四川省文物局、重庆市文旅委与四川省博物馆学会、重庆市博物馆协会联合发布《2025年川渝博物馆事业发展报告》。</p><br>
-<p>报告显示，过去一年，川渝两地博物馆共接待观众超1.51亿人次，其中四川全年累计接待观众就达1.06亿人次，同比增长23.54%，创下历史新高。</p><br>
-<p>备案博物馆数量达459家，全年推出的临展特展达到了1384之多。</p><br>
-<p>1.06亿人次 观众人次再创历史新高 很多喜欢逛博物馆的观众，都亲身体会过四川博物馆的热度。</p><br>
-<p>三星堆博物馆的门票抢到算运气、成都博物馆几层楼的展厅里总是人头涌动，要是春节去成都武侯祠博物馆逛一下大庙会，更是热闹到接踵摩肩的程度。</p><br>
-<p>观众“体感”绝对真实。</p><br>
-<p>数据显示，过去一年，四川各大博物馆全年累计接待观众1.06亿人次，同比增长23.54%，再创历史新高。</p><br>
+<p>发布时间：2026年04月20日 21:16 来源：中国新闻网 近日，湖南湘潭，随着“智汇潇湘 才聚湖南”2026年湖南省促进高校毕业生就业创业行动启动，一场别开生面的春季毕业生供需见面会在湘潭大学举行。</p><br>
+<p>“简历优化坊”“朋辈化妆间”等创新服务举措纷纷亮相，为同学们提供一对一简历“问诊”服务，并提供正装借用服务、量身打造职业形象，为毕业生自信求职、企业高效揽才助力。</p><br>
+<p>(徐志雄 王成奇 方健) 责任编辑：【于晓】</p><br>
 <h2>相关推荐</h2><br>
-<h3>啊啊啊</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md</p><br>
-<h3>【硬核拆解】汽车人到底离我们有多远？</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md</p><br>
-<h3>宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md</p><br>
-<h3>法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md</p><br>
-<h3>勇士续约波尔津吉斯</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md</p><br>
-<h3>美人鱼</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md</p><br>
-<h3>金鹰奖视后提名预测</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md</p><br>
-<h3>美股深夜大反弹 特斯拉飙涨8%</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md</p><br>
-<h3>日本队5进世界杯淘汰赛0胜</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md</p><br>
-<h3>日本博主：日本足球真的垃圾</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md</p><br>
-<h3>日本队5进世界杯淘汰赛0胜</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md</p><br>
-<h3>极端热浪席卷欧洲多国，热一热百姓让领导先凉快？</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md</p><br>
+<h3>一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md</p><br>
+<h3>杨紫学位证上就是杨紫</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md</p><br>
+<h3>萨内 看笑了</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md</p><br>
+<h3>球评巴西绝杀逆转日本</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md</p><br>
+<h3>青春环游记第三季</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md</p><br>
+<h3>德国北部枪击事件致5死</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md</p><br>
+<h3>这种关系可能正在悄悄“催老”你</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md</p><br>
+<h3>全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md</p><br>
+<h3>张雪的一句“是我们”引发岛内热议</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md</p><br>
+<h3>赵今麦因“瘦而不柴”的体态出圈</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md</p><br>
+<h3>勇敢的心第二部</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md</p><br>
+<h3>金价跳水 水贝市场显现出“两重天”</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>徐亮怒斥世界杯踢假球</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/38536.shtml</p><br>
-<h3>如何看待武亮说大学生生活费1500就够用这一言论？</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:https://www.share.minike.top/Article/details/815045038184.shtml</p><br>
-<h3>黄晓明夸昆凌引杨颖对比</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:http://www.blog.minike.top/Article/details/92308484277.shtml</p><br>
-<h3>iPhoneUltra黑色机模</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/201353194.shtml</p><br>
-<h3>2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/2760429457.shtml</p><br>
-<h3>日本球迷输球后集体捡垃圾</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://www.share.minike.top/Article/details/84994105.shtml</p><br>
-<h3>上市央企地产商 两年换了三任董事长</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/49471.shtml</p><br>
-<h3>巴拉圭点球大战淘汰德国进16强</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://www.blog.minike.top/Article/details/6625080.shtml</p><br>
-<h3>如何看待武亮说大学生生活费1500就够用这一言论？</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:http://www.blog.minike.top/Article/details/3608502074.shtml</p><br>
-<h3>这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:http://www.blog.minike.top/Article/details/2715856.shtml</p><br>
-<h3>2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/49470208.shtml</p><br>
-<h3>日本主帅：未能夺冠深感抱歉</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://www.blog.minike.top/Article/details/811861244262.shtml</p><br>
-<h3>王健林甩卖超80座万达广场</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/77262845751.shtml</p><br>
-<h3>当我知道豆包有后台审核人员</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:http://www.share.minike.top/Article/details/25668874543.shtml</p><br>
-<h3>巴拉圭率先破门</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://www.share.minike.top/Article/details/633606391758.shtml</p><br>
+<h3>人类...完蛋了...</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://www.share.minike.top/Article/details/785721214368.shtml</p><br>
+<h3>李准基参加文彩元婚礼</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://www.blog.minike.top/Article/details/66974229.shtml</p><br>
+<h3>杨紫学位证上就是杨紫</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:http://www.share.minike.top/Article/details/05858121702.shtml</p><br>
+<h3>这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/3468274.shtml</p><br>
+<h3>超神人辉夜姬 第二集</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:http://www.share.minike.top/Article/details/3846215541.shtml</p><br>
+<h3>陈小春人老了干什么也不心酸</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/258807929928.shtml</p><br>
+<h3>董卿父亲报纸上发文悼念亡妻</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://www.share.minike.top/Article/details/40784813.shtml</p><br>
+<h3>马耳他著名拱门坍塌致一中国男子身亡</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://www.share.minike.top/Article/details/376888.shtml</p><br>
+<h3>男子中医院拔火罐致浅2度烧伤</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/2495663.shtml</p><br>
+<h3>阿娇瘦了10斤</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://www.blog.minike.top/Article/details/40152567067.shtml</p><br>
+<h3>德国巴拉圭加时</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://www.blog.minike.top/Article/details/8665397.shtml</p><br>
+<h3>对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://www.blog.minike.top/Article/details/646648.shtml</p><br>
+<h3>《我落泪情绪零碎》</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://www.share.minike.top/Article/details/85540.shtml</p><br>
+<h3>网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:http://www.share.minike.top/Article/details/848841712953.shtml</p><br>
+<h3>天道</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/9947981812.shtml</p><br>

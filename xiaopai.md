@@ -1,48 +1,47 @@
-<h1>博时市场点评5月15日：两市继续调整，沪指跌超1%</h1><br>
+<h1>收盘：国内期货主力合约涨多跌少 多晶硅涨停</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>🌟【博时市场点评5月15日】两市继续调整，沪指跌超1% 📝每日观点 🎈今日沪深三大指数继续调整，沪指、深证成指均跌超1%，两市成交较昨日小幅缩量至3.37万亿。昨日人民银行公布4月金融统计数据，整体呈现出“信贷偏弱、融资结构重塑、货币总量平稳”的特征。其中新增人民币贷款-100亿元，为去年7月以来第二次负增，从结构上看，居民端消费仍待改善，企业端则呈现短端票据融资新高、中长期贷</p><br>
+<p>4月20日收盘，国内期货主力合约涨多跌少。多晶硅上涨9%触及涨停，20号胶、橡胶、焦煤、碳酸锂、焦炭、玻璃涨超2%；下跌方面，丙烯、乙二醇、苹果跌超3%，原油、燃油、聚丙烯、甲醇、纯苯、PX0>对二甲苯、塑料（PVC）跌超2%。 本轮多晶硅价格的反弹，起点可以追溯到4月10日。当天，工信部在重要会议上再次提及并明确释放信号：“十五五”时期将坚决破除光伏行业“内卷式”竞争。这一表</p><br>
 <h2>正文</h2><br>
-<p>🌟【博时市场点评5月15日】两市继续调整，沪指跌超1% 📝每日观点 🎈今日沪深三大指数继续调整，沪指、深证成指均跌超1%，两市成交较昨日小幅缩量至3.37万亿。</p><br>
-<p>昨日人民银行公布4月金融统计数据，整体呈现出“信贷偏弱、融资结构重塑、货币总量平稳”的特征。</p><br>
-<p>其中新增人民币贷款-100亿元，为去年7月以来第二次负增，从结构上看，居民端消费仍待改善，企业端则呈现短端票据融资新高、中长期贷款减少的特点，显示真实融资需求仍然偏弱。</p><br>
-<p>社融单月新增6207亿元，也低于市场预期，结构上政府债受到此前高基数压制，企业债券成亮眼支撑。</p><br>
-<p>M2回升，M1回落，剪刀差走扩，其中非银存款对于M2贡献较大，股市上涨带来的存款搬家效应明显。</p><br>
-<p>4月金融数据显示，地产基建等过往支撑信贷扩张的旧经济动能持续退坡，与此同时，科技创新、先进制造等“新质生产力”领域对股权、债券等直接融资的依赖度远高于对信贷的依赖。</p><br>
-<p>从整体看，社融与信贷增速下行，但高技术制造业、AI产业链投资保持高增，铁路、船舶、航空航天等产业资本开支旺盛，经济总量不弱、结构深度分化或将成为二季度的主线运行特征。</p><br>
-<p>🔥消息面 🎈中国人民银行5月14日发布的金融统计数据报告显示，4月末，广义货币（M2）余额、社会融资规模存量、人民币贷款余额分别同比增长8.6%、7.8%和5.6%。</p><br>
+<p>4月20日收盘，国内期货主力合约涨多跌少。</p><br>
+<p>多晶硅上涨9%触及涨停，20号胶、橡胶、焦煤、碳酸锂、焦炭、玻璃涨超2%；下跌方面，丙烯、乙二醇、苹果跌超3%，原油、燃油、聚丙烯、甲醇、纯苯、PX0>对二甲苯、塑料（PVC）跌超2%。</p><br>
+<p>本轮多晶硅价格的反弹，起点可以追溯到4月10日。</p><br>
+<p>当天，工信部在重要会议上再次提及并明确释放信号：“十五五”时期将坚决破除光伏行业“内卷式”竞争。</p><br>
+<p>这一表态为长期陷于价格战泥潭的光伏产业链注入了强烈的政策预期； 紧接着在今早（4月20日）八点多，工信部网站发布消息显示，工信部等四部门已于4月17日联合召开光伏行业座谈会，再次强调要扎实推进“反内卷”工作。</p><br>
+<p>政策层面连续发声，或为点燃本轮市场情绪的关键火花。</p><br>
+<p>国泰君安期货分析师认为，综合来看，多晶硅此轮上涨，更多是由“反内卷”政策预期驱动，而非基本面出现强劲反转。</p><br>
+<p>展望后市，行情能否持续，需要观察两个层面的验证：一是政策具体细则能否稳步推进，从而真正引导行业走出低价竞争；二是即将到来的5-6月传统旺季，国内装机需求能否如期启动，有效消化高库存。</p><br>
 <h2>相关推荐</h2><br>
-<h3>奔跑吧·黄河篇第二季</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md</p><br>
-<h3>博世们还在犹豫 美的们已经卖断货</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md</p><br>
-<h3>4000美元是黄金新一轮下跌的开始吗</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md</p><br>
-<h3>美加墨世界杯：亚洲足球的得意与失意</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md</p><br>
-<h3>国务院：鼓励行业龙头企业举办职校</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md</p><br>
-<h3>森保一致歉：世界第一目标没能实现</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md</p><br>
-<h3>你人生中最艰难的时候是怎么熬过来的？</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md</p><br>
-<h3>德国vs巴拉圭</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md</p><br>
-<h3>领克900大型SUV值得购买吗?</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md</p><br>
-<h3>武磊：巴西队赢的并不轻松</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md</p><br>
-<h3>女子遭下药退赔偿拟追刑责</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md</p><br>
-<h3>四川宜宾地震为何震感明显</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md</p><br>
-<h3>德国队世界杯点球大战首败</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md</p><br>
-<h3>好像看到了人类带孩子崩溃的样子</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md</p><br>
-<h3>法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md</p><br>
+<h3>起风了</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md</p><br>
+<h3>「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md</p><br>
+<h3>古代时期普通老百姓能喝上酒吗？</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md</p><br>
+<h3>巴拉圭率先破门</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md</p><br>
+<h3>金鹰奖视后提名预测</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md</p><br>
+<h3>德国淘汰</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md</p><br>
+<h3>商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md</p><br>
+<h3>欧洲家电巨头为何输掉了这个夏天</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md</p><br>
+<h3>巴西2-1绝杀日本</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md</p><br>
+<h3>世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md</p><br>
+<h3>金价跳水 水贝市场显现出“两重天”</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md</p><br>
+<h3>点球大战 残酷</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md</p><br>
+<h3>日本遭读秒绝杀 森保一：我水平不够</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md</p><br>
+<h3>上市央企地产商 两年换了三任董事长</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/37541343.shtml</p><br>
-<h3>送你一朵小红花</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/420213485294.shtml</p><br>
-<h3>周生如故</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/9284107.shtml</p><br>
-<h3>德国巴拉圭 折磨</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://www.blog.minike.top/Article/details/0713670410.shtml</p><br>
-<h3>输球后日本球迷被强行披上巴西国旗</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:http://www.share.minike.top/Article/details/283981671126.shtml</p><br>
-<h3>承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:http://www.share.minike.top/Article/details/27876.shtml</p><br>
-<h3>考入南大计算机，复读考清北值吗？</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/11056430694.shtml</p><br>
-<h3>媒体：手机测评该挤挤水分了</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:http://www.share.minike.top/Article/details/14662123.shtml</p><br>
-<h3>诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/038741086.shtml</p><br>
-<h3>法媒点赞中国小区楼顶“人工降雨”</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:http://www.blog.minike.top/Article/details/0680842331.shtml</p><br>
-<h3>人民锐评网红诋毁袁隆平造谣企业家</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/5406468046.shtml</p><br>
-<h3>恋与深空道歉声明</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:http://www.blog.minike.top/Article/details/52622.shtml</p><br>
-<h3>王菲谢霆锋十指紧扣好甜</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/11380.shtml</p><br>
-<h3>输球后日本球迷被强行披上巴西国旗</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/598246.shtml</p><br>
-<h3>美股收盘 热门中概股普涨</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/65052.shtml</p><br>
+<h3>城市规划有可能成为「屎山代码」吗？</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/289561029451.shtml</p><br>
+<h3>湖北云南的这些涉汛信息都是假的</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:http://www.blog.minike.top/Article/details/35065088.shtml</p><br>
+<h3>有什么好的高中网课推荐吗？</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://www.blog.minike.top/Article/details/2259044414.shtml</p><br>
+<h3>世界杯巴拉圭点球淘汰德国</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://www.share.minike.top/Article/details/03083.shtml</p><br>
+<h3>檀健次王楚然吻戏看热了</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://www.share.minike.top/Article/details/476817.shtml</p><br>
+<h3>大蒜晒外面被路过女子连盆端走</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/498208.shtml</p><br>
+<h3>速度与激情9</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://www.blog.minike.top/Article/details/105402668.shtml</p><br>
+<h3>免费试吃发差评被店家挂店门避雷</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:http://www.blog.minike.top/Article/details/67456498243.shtml</p><br>
+<h3>本届世界杯已有5名球员被控强奸</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://www.share.minike.top/Article/details/49664298663.shtml</p><br>
+<h3>把毒品藏在哪里，60秒内不会被发现？</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:http://www.blog.minike.top/Article/details/88932979694.shtml</p><br>
+<h3>千与千寻</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:http://www.share.minike.top/Article/details/726751553580.shtml</p><br>
+<h3>我设置了全宇宙最安全的密码</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/68754594109.shtml</p><br>
+<h3>杨紫大银幕成绩单</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/675421749.shtml</p><br>
+<h3>女心理师</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/224253704897.shtml</p><br>
+<h3>全网说丑的格力玫瑰空调卖了5万台</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:http://www.share.minike.top/Article/details/3573372471.shtml</p><br>

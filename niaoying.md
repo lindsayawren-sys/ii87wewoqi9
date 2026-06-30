@@ -1,47 +1,43 @@
-<h1>台主流媒体：中美元首会晤涉台表述为台湾问题划红线</h1><br>
+<h1>GQY视讯业绩预告修正 受损股民可索赔</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新社台北5月15日电 中美元首会晤14日举行，其间大陆方面涉台重要表述受到台湾社会高度关注，15日出版的主流报纸多以此为头版主题。有评论指，相关表述为台湾问题“划红线”，民进党当局应务实调整两岸政策。岛内舆论注意到，大陆方面此次涉台表述的语气较以往更加强烈。《联合报》文章认为，“台湾问题是中美关系中最重要的问题”“‘台独’与台海和平水火不容”等语句，重申了中美关系的政治基础和</p><br>
+<p>2026年4月16日晚，宁波GQY视讯（维权）股份有限公司（简称：GQY视讯，代码：300076）发布《2025年度业绩预告修正公告》。 曾代理投资者告赢130余家上市公司并获赔的浙江裕丰律师事务所厉健律师表示，根据业绩修正公告，该公司涉嫌证券虚假陈述，受损投资者可依法索赔。（厉健律师专栏） 公告显示，公司于2026年1月31日在巨潮资讯网以临时公告的方式披露了《2025年度业</p><br>
 <h2>正文</h2><br>
-<p>中新社台北5月15日电 中美元首会晤14日举行，其间大陆方面涉台重要表述受到台湾社会高度关注，15日出版的主流报纸多以此为头版主题。</p><br>
-<p>有评论指，相关表述为台湾问题“划红线”，民进党当局应务实调整两岸政策。</p><br>
-<p>岛内舆论注意到，大陆方面此次涉台表述的语气较以往更加强烈。</p><br>
-<p>《联合报》文章认为，“台湾问题是中美关系中最重要的问题”“‘台独’与台海和平水火不容”等语句，重申了中美关系的政治基础和红线是一个中国原则，也是在提醒和警告美方，台海要和平，就必须管控“台独”。</p><br>
-<p>《经济日报》社论指出，此次元首会晤期间，大陆方面除再次强调台湾问题是不可逾越的红线，更首次表达台湾问题若处理不当，甚至可能引发中美冲突，凸显大陆方面对台海议题的高度敏感与强硬立场。</p><br>
-<p>《中国时报》社论认为，这次中美元首会晤的成果，在于奠定互信架构。</p><br>
-<p>中美关系和平稳定是台湾之福，台湾更应顺势而为。</p><br>
-<p>民进党当局应务实调整两岸政策，与和平稳定、交流合作的大方向逐渐趋近，不能再死守所谓“抗中”基本盘。</p><br>
+<p>2026年4月16日晚，宁波GQY视讯（维权）股份有限公司（简称：GQY视讯，代码：300076）发布《2025年度业绩预告修正公告》。</p><br>
+<p>曾代理投资者告赢130余家上市公司并获赔的浙江裕丰律师事务所厉健律师表示，根据业绩修正公告，该公司涉嫌证券虚假陈述，受损投资者可依法索赔。</p><br>
+<p>（厉健律师专栏） 公告显示，公司于2026年1月31日在巨潮资讯网以临时公告的方式披露了《2025年度业绩预告》，2025年度预计实现归属于上市公司股东的净利润为亏损6，000万元至亏损9，000万元，预计扣除非经常性损益后的净利润为亏损6，900 万元至亏损9，900万元，预计营业收入为10，200万元至14，400万元。</p><br>
+<p>修正后预计营业收入7，500万元-8，400万元。</p><br>
+<p>根据最高人民法院虚假陈述司法解释，上市公司等因证券虚假陈述行为导致投资者权益受损，投资者可以依法起诉索赔，索赔范围包括投资差额损失、佣金和印花税损失。</p><br>
+<p>厉健律师表示，根据司法解释，暂定：在2026年1月31日到2026年4月16日期间买入GQY视讯股票，并在2026年4月16日收盘时持有该股票的受损股民，可依法索赔。</p><br>
+<p>索赔条件最终以法院认定为准。</p><br>
+<p>（GQY视讯维权入口） 投资者索赔需提供证券开户信息查询单、股票对账单（2026年1月1日至今）、联系方式等。</p><br>
 <h2>相关推荐</h2><br>
-<h3>恋与深空回应敖尹来源</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md</p><br>
-<h3>你这一辈子有没有为进山姆拼过命？</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md</p><br>
-<h3>国务院：鼓励行业龙头企业举办职校</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md</p><br>
-<h3>网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md</p><br>
-<h3>花少8要去世界杯举办国</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md</p><br>
-<h3>任素汐舞台上唱《王招君》</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md</p><br>
-<h3>「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md</p><br>
-<h3>周冬雨多次说演不了话剧文城</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md</p><br>
-<h3>网红峡谷5人溺亡 有人提醒会下雨</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md</p><br>
-<h3>青春环游记第三季</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md</p><br>
-<h3>起风了</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md</p><br>
-<h3>库尼亚赛后伸五指嘲讽日本</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md</p><br>
-<h3>高考结束了，你会让孩子在家玩手机吗？</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md</p><br>
-<h3>我吃遍了西安最強的街頭小吃，第九家強得離譜！</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md</p><br>
+<h3>《共患难》</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md</p><br>
+<h3>孙兴慜道歉</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md</p><br>
+<h3>大蒜晒外面被路过女子连盆端走</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md</p><br>
+<h3>中国代表在联合国点名日本所犯罪行</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md</p><br>
+<h3>张碧晨一开口梦回逐玉</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md</p><br>
+<h3>李在明向韩国两大财阀90度鞠躬</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md</p><br>
+<h3>詹姆斯 勇士</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md</p><br>
+<h3>金价跳水 水贝市场显现出“两重天”</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md</p><br>
+<h3>深圳交警集中曝光典型违法案例</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md</p><br>
+<h3>斗破苍穹</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>浪姐成团夜爆笑吐槽</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/58836.shtml</p><br>
-<h3>马航MH370传来最新消息</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:http://www.blog.minike.top/Article/details/040501777.shtml</p><br>
-<h3>杨某诋毁袁隆平院士科研成果被刑拘</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/216983919.shtml</p><br>
-<h3>老人卖菜获博主帮助后遇车祸去世</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://www.share.minike.top/Article/details/129281535.shtml</p><br>
-<h3>古代人对纳妾的态度是什么样的？</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:http://www.blog.minike.top/Article/details/901530725.shtml</p><br>
-<h3>王楚钦说配合稍微有些陌生感</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/806393690636.shtml</p><br>
-<h3>逃狱兄弟</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://www.share.minike.top/Article/details/97955.shtml</p><br>
-<h3>你这一辈子有没有为进山姆拼过命？</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://www.blog.minike.top/Article/details/03825094.shtml</p><br>
-<h3>张碧晨一开口梦回逐玉</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/37055002.shtml</p><br>
-<h3>2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/841673152.shtml</p><br>
-<h3>当我知道豆包有后台审核人员</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/987415000.shtml</p><br>
-<h3>德国4比5巴拉圭</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/858304177206.shtml</p><br>
-<h3>咕嘎万能小摊1：沉浸式制作惠灵顿牛排</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/592917.shtml</p><br>
-<h3>我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:http://www.blog.minike.top/Article/details/9285782938.shtml</p><br>
-<h3>日本球员说被绝杀非常不甘心</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:http://www.share.minike.top/Article/details/94642.shtml</p><br>
+<h3>大货车掉落螺丝扎进骑手护目镜</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://www.share.minike.top/Article/details/04301447095.shtml</p><br>
+<h3>可以细成这样？1600万预算，颠覆我认知的改造！</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:http://www.blog.minike.top/Article/details/27216.shtml</p><br>
+<h3>日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:http://www.share.minike.top/Article/details/244042758201.shtml</p><br>
+<h3>这几秒成世界杯最值钱广告位</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/2424891643.shtml</p><br>
+<h3>女子用家人生日买彩票中1032万</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:http://www.share.minike.top/Article/details/904654240.shtml</p><br>
+<h3>本届世界杯已有5名球员被控强奸</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/166524924.shtml</p><br>
+<h3>恐怖世界 第三集 埃温霍姆村</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/4417714.shtml</p><br>
+<h3>“中国养猪场都用上空调了”！这是真的吗？【主播说三农】</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://www.share.minike.top/Article/details/436070.shtml</p><br>
+<h3>网瘾賊大的阿嬷</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/68749520.shtml</p><br>
+<h3>马航MH370传来最新消息</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://www.blog.minike.top/Article/details/42764.shtml</p><br>
+<h3>为什么小组赛出局会让韩国人破防</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/0261241812.shtml</p><br>
+<h3>81岁老人被男子买光菜回家车祸去世</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://www.blog.minike.top/Article/details/192215224116.shtml</p><br>
+<h3>板面：为什么那么多人爱吃？？！</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://www.blog.minike.top/Article/details/2487474.shtml</p><br>
+<h3>电子游戏中有哪些关于武器的“刻板印象”？</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/116860.shtml</p><br>
+<h3>爆冷出局！德国点球大战不敌巴拉圭</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:http://www.blog.minike.top/Article/details/389819625815.shtml</p><br>

@@ -1,46 +1,45 @@
-<h1>酒价内参5月18日价格发布：青花郎上涨5元/瓶</h1><br>
+<h1>“青藏湖”盐、“手打”挂面又引新争议 “心机商标”咋成了打不死的小强？</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月18日整体大幅上行。如果主要单品各取一瓶整体打包售卖，今日总售价为10030元，较昨日强劲上涨47元，创下“酒价内参”3月21日升级为当前11款酒品以来的最高纪录，同时总价首次站上万元整数关口。市场延续强势上攻，终端交投情绪升温，茅</p><br>
+<p>“供港壹号”牛奶、“多半”袋面仍在售，“青藏湖”盐、“手打”挂面又引新争议 “心机商标”咋成了打不死的小强？ 律师建议，进一步明确描述性商标的注册门槛，加强事中事后监管，提高企业违法成本 本报讯 (记者陈曦)“四川能生产青藏湖盐？”4月17日，北京消费者曲女士有些哭笑不得地告诉记者，自己前几天在某电商平台购买了一款青藏湖盐，产品外包装以蓝天、湖水和雪山为背景。曲女士本以为其产地</p><br>
 <h2>正文</h2><br>
-<p>新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月18日整体大幅上行。</p><br>
-<p>如果主要单品各取一瓶整体打包售卖，今日总售价为10030元，较昨日强劲上涨47元，创下“酒价内参”3月21日升级为当前11款酒品以来的最高纪录，同时总价首次站上万元整数关口。</p><br>
-<p>市场延续强势上攻，终端交投情绪升温，茅台系及其他酱香品种的表现尤为突出。</p><br>
-<p>今日白酒市场11大单品九涨两跌，赢家占据绝对优势。</p><br>
-<p>上涨方面，精品茅台的涨幅居前，大幅上涨21元/瓶至2425元，创下近一月最大增幅，价格再创近一个月新高，i茅台16日提价效应持续向终端传导；国窖1573与古井贡古20均上涨6元/瓶，前者创近一月最高价格纪录；习酒君品、青花郎及青花汾20均上涨5元/瓶，其中青花郎亦创下近一月最高价纪录；飞天茅台上涨3元/瓶，固守在1740元上方；五粮液普五八代与五粮液1618均小幅上涨1元/瓶。</p><br>
-<p>下跌方面，洋河梦之蓝M6+与水晶剑南春均下跌3元/瓶，前者终结此前的六连阳，连续上涨累积了一定卖盘压力，但今日价格仍处于月内次高位。</p><br>
-<p>“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。</p><br>
-<p>随着元旦官方i茅台平台开售1499元/瓶的飞天茅台(3月31日上调至1539元/瓶)，1月9日开售2299元/瓶的精品茅台(5月16日上调至2359元/瓶)，这一新渠道对两款产品终端零售均价的磁吸式影响力逐步显现。</p><br>
+<p>“供港壹号”牛奶、“多半”袋面仍在售，“青藏湖”盐、“手打”挂面又引新争议 “心机商标”咋成了打不死的小强？</p><br>
+<p>律师建议，进一步明确描述性商标的注册门槛，加强事中事后监管，提高企业违法成本 本报讯 (记者陈曦)“四川能生产青藏湖盐？</p><br>
+<p>”4月17日，北京消费者曲女士有些哭笑不得地告诉记者，自己前几天在某电商平台购买了一款青藏湖盐，产品外包装以蓝天、湖水和雪山为背景。</p><br>
+<p>曲女士本以为其产地是青藏地区，没想到包装袋上的生产地址是四川自贡。</p><br>
+<p>按照曲女士发来的链接，记者点击进入该产品的销售页面，却在“青藏湖”三个字后面发现了“TM”标志。</p><br>
+<p>据了解，在商标注册过程中，申请人在收到《商标注册申请受理通知书》后可使用TM标志。</p><br>
+<p>“青藏湖”难道是这款食用盐的商标而非产地？</p><br>
+<p>当被问及这个问题，店铺客服人员含糊其辞，一直向记者强调“产品是未加碘精纯盐”“来自千年盐都，品质有保证”。</p><br>
 <h2>相关推荐</h2><br>
-<h3>网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md</p><br>
-<h3>全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md</p><br>
-<h3>恋与深空已删除锅里洗澡文案</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md</p><br>
-<h3>莫兰特转投开拓者效力</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md</p><br>
-<h3>男子在京东买到“同仁堂”假药</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md</p><br>
-<h3>热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md</p><br>
-<h3>美加墨世界杯：亚洲足球的得意与失意</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md</p><br>
-<h3>曝詹姆斯即将与勇士会面</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md</p><br>
-<h3>酒店推行“24小时退房”引热议</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md</p><br>
-<h3>庆祝中国共产党成立105周年大会将举行</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md</p><br>
-<h3>青春环游记第三季</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md</p><br>
-<h3>2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md</p><br>
-<h3>名记：灰熊将莫兰特交易至开拓者</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md</p><br>
+<h3>爆冷出局！德国点球大战不敌巴拉圭</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md</p><br>
+<h3>博世们还在犹豫 美的们已经卖断货</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md</p><br>
+<h3>《鸣潮》玄方主题曲 MV | 定玄</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md</p><br>
+<h3>爱很美味</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md</p><br>
+<h3>中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md</p><br>
+<h3>HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md</p><br>
+<h3>莫兰特被交易到开拓者</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md</p><br>
+<h3>已经看完《三国第一部：争洛阳》的人，如何评价这部电影？</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md</p><br>
+<h3>低智商犯罪三江口团建来了</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md</p><br>
+<h3>蜘蛛侠:平行宇宙</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md</p><br>
+<h3>诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md</p><br>
+<h3>输球后日本球迷被强行披上巴西国旗</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>世界杯巴拉圭点球淘汰德国</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://www.share.minike.top/Article/details/2081154.shtml</p><br>
-<h3>谢依霖说杨幂是聚会第一把张罗手</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://www.blog.minike.top/Article/details/6473440453.shtml</p><br>
-<h3>有人见过武则天的画像吗，非常好奇？</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/0351784.shtml</p><br>
-<h3>上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/85573.shtml</p><br>
-<h3>“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/135601670.shtml</p><br>
-<h3>日本球迷输球后集体捡垃圾</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://www.share.minike.top/Article/details/5610738.shtml</p><br>
-<h3>房价什么时候能涨</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/977795.shtml</p><br>
-<h3>这种关系可能正在悄悄“催老”你</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/7804742.shtml</p><br>
-<h3>青春环游记第三季</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:http://www.blog.minike.top/Article/details/358055.shtml</p><br>
-<h3>上市央企地产商 两年换了三任董事长</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://www.blog.minike.top/Article/details/309106.shtml</p><br>
-<h3>巴西2比1日本</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://www.blog.minike.top/Article/details/329555.shtml</p><br>
-<h3>低智商犯罪三江口团建来了</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://www.blog.minike.top/Article/details/43444.shtml</p><br>
-<h3>《虎吹最难绷の一集》</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://www.blog.minike.top/Article/details/482655.shtml</p><br>
-<h3>为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:http://www.blog.minike.top/Article/details/275156.shtml</p><br>
-<h3>媒体：手机测评该挤挤水分了</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:http://www.blog.minike.top/Article/details/9772034767.shtml</p><br>
+<h3>女子遭家暴逃跑致丈夫身亡二审细节</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://www.blog.minike.top/Article/details/7533511.shtml</p><br>
+<h3>千万不要随便扣肚脐</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/76436541388.shtml</p><br>
+<h3>日本队5进世界杯淘汰赛0胜</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:http://www.share.minike.top/Article/details/01144.shtml</p><br>
+<h3>上市央企地产商 两年换了三任董事长</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/951404.shtml</p><br>
+<h3>郑钦文温网首轮出局</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:http://www.share.minike.top/Article/details/7725376596.shtml</p><br>
+<h3>有哪些值得一提的生活窍门？</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/940383.shtml</p><br>
+<h3>周生如故</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:http://www.share.minike.top/Article/details/30041.shtml</p><br>
+<h3>曝灰熊将莫兰特交易至开拓者</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/8484278566.shtml</p><br>
+<h3>普京为何将俄乌谈判时间表与伊朗挂钩</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://www.blog.minike.top/Article/details/77578647.shtml</p><br>
+<h3>《共患难》</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/82089868040.shtml</p><br>
+<h3>巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/3597317636.shtml</p><br>
+<h3>杨紫被质疑未使用原名纯属误解</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/4304721565.shtml</p><br>
+<h3>德国巴拉圭 折磨</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/29977.shtml</p><br>
+<h3>日本进球</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:http://www.share.minike.top/Article/details/23382.shtml</p><br>
+<h3>【大鸣王潮1566】真拿你没办法</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/430702724722.shtml</p><br>

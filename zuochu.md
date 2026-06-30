@@ -1,47 +1,47 @@
-<h1>阿克曼和洛布年初在科技投资上采取了不同的策略</h1><br>
+<h1>牧原股份一季度净亏损12.15亿元，同比转亏</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>华尔街两位备受瞩目的亿万富翁选股专家——他们都曾是口若悬河的激进投资者——今年采取了截然相反的策略：比尔·阿克曼押注微软并清仓谷歌母公司Alphabet而丹尼尔·洛布则反其道而行之。 阿克曼在X平台表示，其旗下对冲基金潘兴广场（Pershing Square）于2月在微软股价下跌后开始建仓，称投资者未能充分认可微软365办公套件及人工智能领域的投资价值。 另一方面，根据最新监管</p><br>
+<p>4月21日，上市猪企牧原股份（002714.SZ）发布2026年一季报。 报告期内，牧原股份实现营业收入298.94亿元，同比下降17.1%。归母净利润为-12.15亿元，同比转亏，上年同期为44.91亿元，同比下降127.05%。扣非净利润为-11.41亿元，上年同期为45.09亿元，同比下降125.32%。基本每股收益-0.22元，上年同期为0.83元。 牧原股份表示，净利</p><br>
 <h2>正文</h2><br>
-<p>华尔街两位备受瞩目的亿万富翁选股专家——他们都曾是口若悬河的激进投资者——今年采取了截然相反的策略：比尔·阿克曼押注微软并清仓谷歌母公司Alphabet而丹尼尔·洛布则反其道而行之。</p><br>
-<p>阿克曼在X平台表示，其旗下对冲基金潘兴广场（Pershing Square）于2月在微软股价下跌后开始建仓，称投资者未能充分认可微软365办公套件及人工智能领域的投资价值。</p><br>
-<p>另一方面，根据最新监管文件显示，洛布旗下的对冲基金Third Point在第一季度卖出了92.5万股微软股票，清仓了该基金自2022年底以来持有的头寸。</p><br>
-<p>阿克曼和洛布曾是华尔街最活跃的激进投资者，他们通过提出从剥离业务部门到解雇首席执行官等各种建议，敦促公司提升业绩。</p><br>
-<p>近年来，两人都采取了更为低调的姿态，避开了那些曾引发头条新闻的公开争斗，转而专注于选股并持仓观望。</p><br>
-<p>投资者们密切关注着两人的选股动向，仔细研读他们的季度申报文件。</p><br>
-<p>根据监管文件显示，洛布旗下的Third Point报告称，第一季度买入了谷歌母公司Alphabet的17.5万股，而阿克曼则减持了其持有的该公司大部分股份。</p><br>
-<p>有消息人士称，阿克曼已在第二季度清仓了剩余的Alphabet持股。</p><br>
+<p>4月21日，上市猪企牧原股份（002714.SZ）发布2026年一季报。</p><br>
+<p>报告期内，牧原股份实现营业收入298.94亿元，同比下降17.1%。</p><br>
+<p>归母净利润为-12.15亿元，同比转亏，上年同期为44.91亿元，同比下降127.05%。</p><br>
+<p>扣非净利润为-11.41亿元，上年同期为45.09亿元，同比下降125.32%。</p><br>
+<p>基本每股收益-0.22元，上年同期为0.83元。</p><br>
+<p>牧原股份表示，净利润本期较上年同期减少，主要系生猪价格下降，收入减少所致。</p><br>
+<p>2025年，牧原股份实现营业收入1441.45亿元，同比增4.49%。</p><br>
+<p>归属于上市公司股东的净利润154.87亿元，同比下降13.39%。</p><br>
 <h2>相关推荐</h2><br>
-<h3>木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md</p><br>
-<h3>巴西vs日本</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md</p><br>
-<h3>名记：灰熊将莫兰特交易至开拓者</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md</p><br>
-<h3>董路：谁赢谁是“正路子”</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md</p><br>
-<h3>蜘蛛侠:平行宇宙</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md</p><br>
-<h3>未来的飞机可能会用电吗？</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md</p><br>
-<h3>教育部披露：高考生篡改7名同学志愿</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md</p><br>
-<h3>内马尔中场休息积极鼓励队友</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md</p><br>
-<h3>古代时期普通老百姓能喝上酒吗？</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md</p><br>
-<h3>马航MH370传来最新消息</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md</p><br>
-<h3>Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md</p><br>
-<h3>世界杯欧洲队7战南美仅1胜</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md</p><br>
-<h3>黄晓明晒和周杰伦的合照</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md</p><br>
-<h3>日本五次世界杯淘汰赛全败</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md</p><br>
+<h3>恋与深空回应争议</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md</p><br>
+<h3>媒体：手机测评该挤挤水分了</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md</p><br>
+<h3>爱直接对嘴喝饮料的人天塌了</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md</p><br>
+<h3>怕iPhone涨价的用户已紧急换新</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md</p><br>
+<h3>郑钦文温网一轮游</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md</p><br>
+<h3>如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md</p><br>
+<h3>俄乌双方伤亡近180万人</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md</p><br>
+<h3>大货车掉落螺丝扎进骑手护目镜</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md</p><br>
+<h3>董路：谁赢谁是“正路子”</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md</p><br>
+<h3>你人生中最艰难的时候是怎么熬过来的？</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md</p><br>
+<h3>日本将帅赛后采访纷纷哽咽落泪</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md</p><br>
+<h3>这种关系可能正在悄悄“催老”你</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md</p><br>
+<h3>如何评价《龙之家族》第三季第二集？</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md</p><br>
+<h3>刘宇宁是去进货了吗</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/27151888.shtml</p><br>
-<h3>德国4比5巴拉圭</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/21925.shtml</p><br>
-<h3>极限挑战第一季</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/3164205.shtml</p><br>
-<h3>木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/02206190486.shtml</p><br>
-<h3>致敬！中国首批缉毒警已全体退休</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:http://www.blog.minike.top/Article/details/3296459576.shtml</p><br>
-<h3>我和我的家乡</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/251738765896.shtml</p><br>
-<h3>德国队连续三届世界杯无缘16强</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:https://www.share.minike.top/Article/details/492514195.shtml</p><br>
-<h3>欧洲装一台空调有多难</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/31756818661.shtml</p><br>
-<h3>“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/268983.shtml</p><br>
-<h3>人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://www.blog.minike.top/Article/details/023823.shtml</p><br>
-<h3>《鸣潮》玄方主题曲 MV | 定玄</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/94455.shtml</p><br>
-<h3>深扒韩国队淘汰背后原因</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:http://www.blog.minike.top/Article/details/440813.shtml</p><br>
-<h3>郑钦文温网一轮游</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/83366797812.shtml</p><br>
-<h3>日本队5进世界杯淘汰赛0胜</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/2274791.shtml</p><br>
-<h3>欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/59379.shtml</p><br>
+<h3>巴西在进攻三区完成210脚传球</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://www.blog.minike.top/Article/details/66868839608.shtml</p><br>
+<h3>⚡逼尔摩斯教你玩球⚡</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/24191781768.shtml</p><br>
+<h3>iPhoneUltra黑色机模</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/49326572135.shtml</p><br>
+<h3>这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:http://www.share.minike.top/Article/details/38657.shtml</p><br>
+<h3>宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:http://www.share.minike.top/Article/details/8189164.shtml</p><br>
+<h3>高考结束，该不该外出打工体验？</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:http://www.blog.minike.top/Article/details/4458579806.shtml</p><br>
+<h3>德国淘汰</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/55683026374.shtml</p><br>
+<h3>古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/302797.shtml</p><br>
+<h3>日本主帅：未能夺冠深感抱歉</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://www.blog.minike.top/Article/details/340943531.shtml</p><br>
+<h3>德国进球被吹</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:http://www.share.minike.top/Article/details/507038900.shtml</p><br>
+<h3>⚡逼尔摩斯教你玩球⚡</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://www.blog.minike.top/Article/details/05187745569.shtml</p><br>
+<h3>斗破苍穹</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/6699088.shtml</p><br>
+<h3>【硬核拆解】汽车人到底离我们有多远？</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/740849.shtml</p><br>
+<h3>要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/757453890066.shtml</p><br>
+<h3>点球大战和诺伊尔都救不回德国队</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/294075578469.shtml</p><br>

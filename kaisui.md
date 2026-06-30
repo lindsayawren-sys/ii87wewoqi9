@@ -1,47 +1,47 @@
-<h1>光模块当前估值如何？</h1><br>
+<h1>2168亿元支持336个重大项目 扶持政策密集出台 促进经济发展</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>周五（5月15日），创业板人工智能震荡下挫，光模块CPO领跌，太辰光、长芯博创、联特科技等多股跌超5%，“易中天”表现分化，天孚通信收涨2%继续新高，中际旭创跌超2%，新易盛跌逾1%。此外，AI应用、算力租赁等逆市活跃，易点天下领涨9%，润泽科技涨近3%。 热门ETF方面，光模块CPO占比50%的创业板人工智能ETF华宝（159363）盘中多空激烈博弈，午后震荡回落，场内收跌1</p><br>
+<p>视频丨2168亿元支持336个重大项目 扶持政策密集出台 促进经济发展 近期，从中央到地方密集出台扶持政策，促进经济发展，助力高质量发展提质升级。 视频：促进经济发展 扶持政策密集出台来源：央视新闻客户端 2026年第二批“两重”建设项目清单下达 近日，国家发展改革委会同有关部门组织下达了2026年第二批“两重”建设项目清单，共安排超长期特别国债资金2168亿元支持336个重大</p><br>
 <h2>正文</h2><br>
-<p>周五（5月15日），创业板人工智能震荡下挫，光模块CPO领跌，太辰光、长芯博创、联特科技等多股跌超5%，“易中天”表现分化，天孚通信收涨2%继续新高，中际旭创跌超2%，新易盛跌逾1%。</p><br>
-<p>此外，AI应用、算力租赁等逆市活跃，易点天下领涨9%，润泽科技涨近3%。</p><br>
-<p>热门ETF方面，光模块CPO占比50%的创业板人工智能ETF华宝（159363）盘中多空激烈博弈，午后震荡回落，场内收跌1.14%回踩五日线，单日成交17亿元，交投居全市场AI主题ETF首位。</p><br>
-<p>资金逢跌大举净申购，单日增持6600万份。</p><br>
-<p>市场分析来看，资金逢跌大举抢筹创业板人工智能，布局后市光模块等算力硬件行情，背后或有三大逻辑： 1、英伟达股价七连涨创历史新高。</p><br>
-<p>作为创业板人工智能先行指标，英伟达持续走强强化了市场对光模块等算力产业链的乐观预期。</p><br>
-<p>2、云厂商资本开支持续加码。</p><br>
-<p>海外云厂商AI变现加速、资本开支指引全面上调，下半年AIDC建设将提速，光模块或持续受益于量价齐升。</p><br>
+<p>视频丨2168亿元支持336个重大项目 扶持政策密集出台 促进经济发展 近期，从中央到地方密集出台扶持政策，促进经济发展，助力高质量发展提质升级。</p><br>
+<p>视频：促进经济发展 扶持政策密集出台来源：央视新闻客户端 2026年第二批“两重”建设项目清单下达 近日，国家发展改革委会同有关部门组织下达了2026年第二批“两重”建设项目清单，共安排超长期特别国债资金2168亿元支持336个重大项目，涉及人工智能、城市地下管网建设改造、长江经济带交通基础设施、高标准农田、高等教育提质升级、“三北”工程等重点领域。</p><br>
+<p>加上此前已下达的3897亿元，今年累计安排“两重”建设资金6065亿元，占全年8000亿元的76%，下达进度明显快于去年。</p><br>
+<p>上海浦东： 发布服务贸易高质量发展三年行动方案 前不久，上海市浦东新区正式发布了“浦东新区推动服务贸易高质量发展三年行动方案”，定下全区服务贸易规模突破1400亿美元，数字贸易总额超700亿美元的发展目标。</p><br>
+<p>与此同时，浦东32项重大工程项目已陆续启动，总投资达578亿元。</p><br>
+<p>上海市浦东新区科技和经济委员会 徐凌燕：推动集成电路、生物医药、智能网联汽车、软件信息服务业4个集群迈上5000亿元规模，人工智能、智能终端2个集群冲刺2000亿元规模。</p><br>
+<p>下一步，浦东还将用好自贸区高水平制度型开放2.0和综改2.0等改革工具，在离岸金融、科创综保区等领域深入突破。</p><br>
+<p>深圳：发布推动数字创意产业发展扶持计划 广东深圳近日发布推动数字创意产业发展扶持计划，重点支持游戏、影视、动漫、演出等产业领域和新型业态，每家申报单位可在每个扶持方向中最多申报1个项目，年度总资助金额最高2000万元。</p><br>
 <h2>相关推荐</h2><br>
-<h3>中国猪圈装空调让欧洲网友破防</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md</p><br>
-<h3>内马尔替补</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md</p><br>
-<h3>浪姐成团夜爆笑吐槽</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md</p><br>
-<h3>本科毕业生为何涌入专科学校</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md</p><br>
-<h3>「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md</p><br>
-<h3>荷兰VS摩洛哥</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md</p><br>
-<h3>现在叛逆期的孩子最怕的是什么？</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md</p><br>
-<h3>欧洲家电巨头为何输掉了这个夏天</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md</p><br>
-<h3>健全中小学教师工资长效联动机制</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md</p><br>
-<h3>王健林甩卖超80座万达广场</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md</p><br>
-<h3>4000美元是黄金新一轮下跌的开始吗</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md</p><br>
-<h3>四川宜宾地震瞬间鱼群乱跳</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md</p><br>
-<h3>国务院：鼓励行业龙头企业举办职校</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md</p><br>
-<h3>巴西绝杀</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md</p><br>
+<h3>我把队友的7连跪剪成了艺术</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md</p><br>
+<h3>郑钦文 四年一轮游</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md</p><br>
+<h3>把毒品藏在哪里，60秒内不会被发现？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md</p><br>
+<h3>世界杯欧洲队7战南美仅1胜</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md</p><br>
+<h3>黄晓明晒和周杰伦的合照</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md</p><br>
+<h3>库尼亚赛后伸五指嘲讽日本</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md</p><br>
+<h3>老外对中国cosplay竟这样评价…</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md</p><br>
+<h3>欧洲家电巨头为何输掉了这个夏天</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md</p><br>
+<h3>美股</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md</p><br>
+<h3>电子游戏中有哪些关于武器的“刻板印象”？</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md</p><br>
+<h3>这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md</p><br>
+<h3>高考结束了，你会让孩子在家玩手机吗？</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md</p><br>
+<h3>如果有二次元高中是什么样子的？</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md</p><br>
+<h3>日本球迷输球后集体捡垃圾</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>2026年WTT美国大满贯，国乒自带球桌是真实的吗？</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://www.blog.minike.top/Article/details/4666516.shtml</p><br>
-<h3>杨紫大银幕成绩单如何</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/3962716.shtml</p><br>
-<h3>湖北云南这些涉汛信息都是假的</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:http://www.share.minike.top/Article/details/291716858.shtml</p><br>
-<h3>人类...完蛋了...</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.blog.minike.top/Article/details/60396083621.shtml</p><br>
-<h3>科学备孕男女都要上心</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/117524284421.shtml</p><br>
-<h3>世界杯巴拉圭点球淘汰德国</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/94479528.shtml</p><br>
-<h3>普京为何将俄乌谈判时间表与伊朗挂钩</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/55875786.shtml</p><br>
-<h3>这些7月新规影响你我</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/542387.shtml</p><br>
-<h3>庆祝中国共产党成立105周年大会将举行</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://www.blog.minike.top/Article/details/54516.shtml</p><br>
-<h3>四川凉山落石砸毁车辆 3人遇难</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/6655800687.shtml</p><br>
-<h3>高考结束，该不该外出打工体验？</h3><br><p>更新时间：2026-06-30 09:03<br><br> | 来源:https://www.blog.minike.top/Article/details/156078030.shtml</p><br>
-<h3>为什么香港的冲厕水是咸的？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/452622666.shtml</p><br>
-<h3>日本进球</h3><br><p>更新时间：2026-06-30 09:02<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/76513738632.shtml</p><br>
-<h3>恋与深空回应敖尹来源</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/488982.shtml</p><br>
-<h3>日本博主：日本足球真的垃圾</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/3465072.shtml</p><br>
+<h3>请回答王牌2019</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://www.share.minike.top/Article/details/84438811192.shtml</p><br>
+<h3>覃予萱晋级WTT美国大满贯女单32强</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/762194.shtml</p><br>
+<h3>明星大侦探第一季</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://www.share.minike.top/Article/details/294081020.shtml</p><br>
+<h3>千香</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://www.blog.minike.top/Article/details/629247773147.shtml</p><br>
+<h3>世界杯巴拉圭点球淘汰德国</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://www.blog.minike.top/Article/details/2872749563.shtml</p><br>
+<h3>巴西在进攻三区完成210脚传球</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/588982.shtml</p><br>
+<h3>刘宇宁高情商化解谁站C位</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://www.blog.minike.top/Article/details/20886.shtml</p><br>
+<h3>高考填志愿父亲和女儿产生分歧</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/812163757.shtml</p><br>
+<h3>王灿兮被烫伤两年后维权成功</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://www.share.minike.top/Article/details/4846617969.shtml</p><br>
+<h3>流金岁月</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://www.blog.minike.top/Article/details/85888328493.shtml</p><br>
+<h3>致敬！中国首批缉毒警已全体退休</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/716317.shtml</p><br>
+<h3>李在明90度鞠躬感谢韩国两大财阀</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://www.share.minike.top/Article/details/9754201.shtml</p><br>
+<h3>爱很美味</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/12927.shtml</p><br>
+<h3>董卿母亲癌症去世</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://www.blog.minike.top/Article/details/62110679627.shtml</p><br>
+<h3>FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:http://www.blog.minike.top/Article/details/40758354.shtml</p><br>

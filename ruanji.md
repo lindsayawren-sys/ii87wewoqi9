@@ -1,45 +1,41 @@
-<h1>Frontera Energy Q1持续经营净利润1310万美元，战略重组顺利推进</h1><br>
+<h1>晶科电子股份控股股东集团及高管拟进一步增持公司H股</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>Frontera Energy公布2026年第一季度财报。公司持续经营业务营收为2683万美元，同比增长7%。持续经营净利润为1305万美元，合每股收益0.18美元，高于去年同期的1177万美元。调整后EBITDA为2848万美元，同比增长3%。 港口与管道业务贡献主要收入 第一季度港口营收为1265万美元，来自ODL管道投资的收益为1418万美元。港口业务方面，滚装货物处理量</p><br>
+<p>晶科电子股份（02551）公布，公司于2026年4月20日收到公司控股股东集团及高级管理人员的通知，基于对集团未来发展前景的乐观判断和集团将持续、稳定及健康发展的信心，以及对集团长远投资价值的充分认同，控股股东集团及高管计划自本公告之日起3个月内于公开市场交易中进一步增持公司H股股份。 截至本公告日期，控股股东集团于合共65，218，835股H股股份及171，316，739股内</p><br>
 <h2>正文</h2><br>
-<p>Frontera Energy公布2026年第一季度财报。</p><br>
-<p>公司持续经营业务营收为2683万美元，同比增长7%。</p><br>
-<p>持续经营净利润为1305万美元，合每股收益0.18美元，高于去年同期的1177万美元。</p><br>
-<p>调整后EBITDA为2848万美元，同比增长3%。</p><br>
-<p>港口与管道业务贡献主要收入 第一季度港口营收为1265万美元，来自ODL管道投资的收益为1418万美元。</p><br>
-<p>港口业务方面，滚装货物处理量达38，067台，同比增长109%；集装箱处理量为3，851 TEU，同比增长207%。</p><br>
-<p>ODL管道一季度输油量为23.4万桶/日，继续保持稳定运营。</p><br>
-<p>战略重组取得关键进展 公司董事会主席Gabriel de Alba表示，股东已批准将哥伦比亚油气资产出售给Parex Resources，交易企业价值为7.5亿美元，预计将向股东返还至多4.7亿美元资本。</p><br>
+<p>晶科电子股份（02551）公布，公司于2026年4月20日收到公司控股股东集团及高级管理人员的通知，基于对集团未来发展前景的乐观判断和集团将持续、稳定及健康发展的信心，以及对集团长远投资价值的充分认同，控股股东集团及高管计划自本公告之日起3个月内于公开市场交易中进一步增持公司H股股份。</p><br>
+<p>截至本公告日期，控股股东集团于合共65，218，835股H股股份及171，316，739股内资股中拥有权益，合计占公司已发行股份总数约44.04%。</p><br>
+<p>按照控股股东集团的意向，于本次增持计划实施后，控股股东集团于公司的总持股量将预计不会导致根据《公司收购及合并守则》规则26，就香港上市公司的控股股东于任何 12个月期间所持30%至50%的股权而言作出强制要约的责任（即将不会使其总持股量较其于建议收购事项前十二个月的最低持股水平增加超过2%）。</p><br>
+<p>根据公司所得资料及据董事会所知，预计本次增持计划完成后，公司将继续符合上市规则最低公众持股量的百分比规定。</p><br>
+<p>责任编辑：卢昱君</p><br>
 <h2>相关推荐</h2><br>
-<h3>张碧晨一开口梦回逐玉</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md</p><br>
-<h3>欧洲民众抢购空调降温</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md</p><br>
-<h3>杨紫获白玉兰视后争议不止</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md</p><br>
-<h3>金鹰奖视后提名预测</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md</p><br>
-<h3>亚洲球队全部告别世界杯</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md</p><br>
-<h3>覃予萱晋级WTT美国大满贯女单32强</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md</p><br>
-<h3>把毒品藏在哪里，60秒内不会被发现？</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md</p><br>
-<h3>四川宜宾地震瞬间鱼群乱跳</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md</p><br>
-<h3>王源近几年没有路演了</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md</p><br>
-<h3>庆祝建党105周年特别节目</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md</p><br>
-<h3>收到补税提醒尽快办理 明起有滞纳金</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md</p><br>
-<h3>王曼昱被突如其来的话筒逗笑了</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md</p><br>
+<h3>日本博主：日本足球真的垃圾</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md</p><br>
+<h3>谢依霖说杨幂是聚会第一把张罗手</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md</p><br>
+<h3>陈小春人老了干什么也不心酸</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md</p><br>
+<h3>杨紫大银幕成绩单</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md</p><br>
+<h3>手底下人带不动怎么办？</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md</p><br>
+<h3>王楚钦孙颖莎晋级混双八强</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md</p><br>
+<h3>郑钦文温网三连败西尼亚科娃</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md</p><br>
+<h3>本届世界杯已有5名球员被控强奸</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md</p><br>
+<h3>歌剧老师锐评歌手第6期</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md</p><br>
+<h3>大蒜晒外面被路过女子连盆端走</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md</p><br>
+<h3>有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>有哪些值得一提的生活窍门？</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/9455653925.shtml</p><br>
-<h3>荀彧和曹操反目成仇的根本原因是什么？</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/26664890.shtml</p><br>
-<h3>极端热浪席卷欧洲多国，热一热百姓让领导先凉快？</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:https://www.share.minike.top/Article/details/77423131606.shtml</p><br>
-<h3>董卿父亲报纸上发文悼念亡妻</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://www.blog.minike.top/Article/details/82489.shtml</p><br>
-<h3>MSI应援曲 如果季中成回忆</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/05671.shtml</p><br>
-<h3>欧盟分楼层开空调惹争议</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://www.share.minike.top/Article/details/42251.shtml</p><br>
-<h3>四川宜宾地震瞬间鱼群乱跳</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://www.blog.minike.top/Article/details/41295543.shtml</p><br>
-<h3>恋与深空</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/629944049.shtml</p><br>
-<h3>男子醉酒溺水获救后同行人拒搭手</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/914906591.shtml</p><br>
-<h3>森保一致歉：世界第一目标没能实现</h3><br><p>更新时间：2026-06-30 09:05<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/7716136.shtml</p><br>
-<h3>郑钦文 四年一轮游</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:http://www.blog.minike.top/Article/details/754991.shtml</p><br>
-<h3>女心理师</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/95644.shtml</p><br>
-<h3>深扒韩国队淘汰背后原因</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/49770391662.shtml</p><br>
-<h3>韩国道歉完日本道歉</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/638636808535.shtml</p><br>
-<h3>主人解开狗绳2只狗将路人撕咬致死</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/532380723877.shtml</p><br>
+<h3>又一家县级医院关停门诊输液大厅</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://www.blog.minike.top/Article/details/8264472.shtml</p><br>
+<h3>领克07GT搭载超跑同源MRC悬架</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/11409883328.shtml</p><br>
+<h3>起风了</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.blog.minike.top/Article/details/886624031824.shtml</p><br>
+<h3>金鹰奖视后提名预测</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/07343.shtml</p><br>
+<h3>奔跑吧·黄河篇第二季</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/349983342.shtml</p><br>
+<h3>毒液2</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/774367481926.shtml</p><br>
+<h3>日本主帅赛后回应淘汰出局</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/97686182204.shtml</p><br>
+<h3>恐怖世界 第三集 埃温霍姆村</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://www.share.minike.top/Article/details/5863464131.shtml</p><br>
+<h3>日本球迷输球后集体捡垃圾</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/659488061391.shtml</p><br>
+<h3>巴西绝杀</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:http://www.blog.minike.top/Article/details/536968.shtml</p><br>
+<h3>德国爆冷点球大战不敌巴拉圭</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://www.blog.minike.top/Article/details/48108.shtml</p><br>
+<h3>为什么香港的冲厕水是咸的？</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://www.share.minike.top/Article/details/76492.shtml</p><br>
+<h3>陈幸同晋级WTT美国大满贯女单32强</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:http://www.blog.minike.top/Article/details/934583.shtml</p><br>
+<h3>速度与激情9</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/41105078.shtml</p><br>
+<h3>中国新一轮出口管制直指日本命脉</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/53465452826.shtml</p><br>

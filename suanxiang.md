@@ -1,48 +1,44 @@
-<h1>巨力索具被证监会立案</h1><br>
+<h1>2026年汉诺威工博会“投资中国”展区系列活动启动</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:31:19 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新网北京5月16日电(记者 谢艺观)巨力索具15日晚发布公告，公司于5月15日收到中国证监会下发的《中国证券监督管理委员会立案告知书》，因公司涉嫌信息披露误导性陈述违法违规，2026年5月13日，中国证监会决定对公司立案。 公告称，截至目前，公司经营状况正常。立案调查期间，公司将积极配合中国证监会的各项工作，并持续关注上述事项的进展情况，严格按照规定及监管要求履行信息披露义务</p><br>
+<p>中新社汉诺威4月20日电 (记者 马秀秀)当地时间20日，2026年汉诺威工博会“投资中国”展区及系列配套活动在德国汉诺威展览中心启动。 作为汉诺威工博会期间面向国际专业观众开展中国投资促进与产业合作对接的重要平台，“投资中国”展区集中展示中国重点地区产业发展优势、开放平台建设成果和国际合作机遇。 在上午举行的“投资中国”展区启动仪式上，与会嘉宾表示，在当前全球产业格局深度调整</p><br>
 <h2>正文</h2><br>
-<p>中新网北京5月16日电(记者 谢艺观)巨力索具15日晚发布公告，公司于5月15日收到中国证监会下发的《中国证券监督管理委员会立案告知书》，因公司涉嫌信息披露误导性陈述违法违规，2026年5月13日，中国证监会决定对公司立案。</p><br>
-<p>公告称，截至目前，公司经营状况正常。</p><br>
-<p>立案调查期间，公司将积极配合中国证监会的各项工作，并持续关注上述事项的进展情况，严格按照规定及监管要求履行信息披露义务。</p><br>
-<p>今年3月，深交所就曾对巨力索具及相关当事人作出通报批评处分，违规行为包括，“商业航天”属于市场热点概念，但巨力索具对商业航天业务的信息发布不完整，风险提示不充分；未及时核实并澄清相关市场传闻。</p><br>
-<p>公开信息显示，巨力索具股份有限公司始建于1985年，是中国规模大、品种齐全、制造专业的索具制造公司。</p><br>
-<p>2010年1月26日巨力索具在深交所上市。</p><br>
-<p>天眼查信息显示，巨力索具的母公司为巨力集团，其中，杨建忠持股83%、杨子持股17%，且杨子担任公司副董事长。</p><br>
-<p>巨力索具一季报显示，公司实现营业收入5.6亿元，同比增长14.67%；归属于上市公司股东的净利润为371.16万元，同比下降38%。</p><br>
+<p>中新社汉诺威4月20日电 (记者 马秀秀)当地时间20日，2026年汉诺威工博会“投资中国”展区及系列配套活动在德国汉诺威展览中心启动。</p><br>
+<p>作为汉诺威工博会期间面向国际专业观众开展中国投资促进与产业合作对接的重要平台，“投资中国”展区集中展示中国重点地区产业发展优势、开放平台建设成果和国际合作机遇。</p><br>
+<p>在上午举行的“投资中国”展区启动仪式上，与会嘉宾表示，在当前全球产业格局深度调整背景下，深化务实合作、加强产业链供应链对接、拓展先进制造和工业智能化等领域合作具有重要现实意义。</p><br>
+<p>当日下午，“投资中国”专场活动举行。</p><br>
+<p>中国商务部投资促进事务局副局长于广生致辞表示，当前中国正持续扩大高水平对外开放，加快发展新质生产力，在先进制造、数字经济、绿色低碳、人工智能等领域不断取得新进展，愿继续发挥桥梁纽带作用，为中德企业提供政策解读、资源对接、项目撮合和平台支持，推动更多合作项目从意向走向落地。</p><br>
+<p>中国驻汉堡总领馆参赞王昊致辞表示，中德经贸合作始终展现出较强韧性和活力，“投资中国”系列活动持续在汉诺威工博会期间举办，有助于德国工商界进一步了解中国市场机遇和开放环境，深化双方在先进制造、绿色转型等领域务实合作。</p><br>
+<p>专题交流环节，与会专家围绕隐形冠军企业本土化发展和中德工业人工智能合作作专题演讲。</p><br>
+<p>北京市、陕西省代表介绍有关地区开放发展和投资合作情况，多所机构和企业代表围绕机器人、智能自动化、先进材料、具身智能等方向分享实践经验和思考。</p><br>
 <h2>相关推荐</h2><br>
-<h3>把毒品藏在哪里，60秒内不会被发现？</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md</p><br>
-<h3>杨紫获白玉兰视后为何争议难平</h3><br><p>更新时间：2026-06-30 09:04<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md</p><br>
-<h3>有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md</p><br>
-<h3>卢卡申科发布解放军仪仗队视频</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md</p><br>
-<h3>7月1日起 一批新规即将落地</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md</p><br>
-<h3>男子中医院拔火罐致浅2度烧伤</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md</p><br>
-<h3>人可以极简主义到什么程度？</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md</p><br>
-<h3>有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md</p><br>
-<h3>手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md</p><br>
-<h3>王源近几年没有路演了</h3><br><p>更新时间：2026-06-30 09:01<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md</p><br>
-<h3>曝iPhone18Pro机密文件现身暗网</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md</p><br>
-<h3>一生一世</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md</p><br>
-<h3>恋与深空已删除锅里洗澡文案</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md</p><br>
-<h3>爆冷出局！德国点球大战不敌巴拉圭</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md</p><br>
-<h3>承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md</p><br>
+<h3>名记：灰熊将莫兰特交易至开拓者</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md</p><br>
+<h3>德国4比5巴拉圭</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md</p><br>
+<h3>本届世界杯已有5名球员被控强奸</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md</p><br>
+<h3>阿娇瘦了10斤</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md</p><br>
+<h3>点球大战 残酷</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md</p><br>
+<h3>如何把斧兵改造成精英怪？提高攻速移速！！！</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md</p><br>
+<h3>存储芯片龙头提示风险</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md</p><br>
+<h3>德国队回应爆冷淘汰</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md</p><br>
+<h3>日本博主：日本足球真的垃圾</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md</p><br>
+<h3>泰山景区建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md</p><br>
+<h3>小娘惹</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:http://www.share.minike.top/Article/details/68740855.shtml</p><br>
-<h3>日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/8903001054.shtml</p><br>
-<h3>恋与深空已删除锅里洗澡文案</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:http://www.share.minike.top/Article/details/88538036304.shtml</p><br>
-<h3>贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://www.blog.minike.top/Article/details/365674.shtml</p><br>
-<h3>苗族银饰</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://www.blog.minike.top/Article/details/86158640498.shtml</p><br>
-<h3>热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:http://www.blog.minike.top/Article/details/984021200587.shtml</p><br>
-<h3>齐思钧回复张月</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:http://www.share.minike.top/Article/details/0162016.shtml</p><br>
-<h3>女子健身不当 居然“脑子漏水”了</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/70129525.shtml</p><br>
-<h3>德国北部枪击事件致5死</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://www.blog.minike.top/Article/details/50294.shtml</p><br>
-<h3>武磊：巴西队赢的并不轻松</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://www.share.minike.top/Article/details/652680049.shtml</p><br>
-<h3>马耳他著名拱门坍塌致一中国男子身亡</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://www.blog.minike.top/Article/details/954653594.shtml</p><br>
-<h3>美人鱼</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/3039296.shtml</p><br>
-<h3>巴西醒醒 这是淘汰赛</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/00368846282.shtml</p><br>
-<h3>天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:http://www.blog.minike.top/Article/details/78950333.shtml</p><br>
-<h3>欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/5294707.shtml</p><br>
+<h3>峡谷事故团队组队时有人提醒会下雨</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:http://www.blog.minike.top/Article/details/9173324575.shtml</p><br>
+<h3>承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:http://www.share.minike.top/Article/details/680483427208.shtml</p><br>
+<h3>第一次对自信的力量有了实感</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/506073.shtml</p><br>
+<h3>巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/234068582544.shtml</p><br>
+<h3>iPhone18e曝光</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/854366034.shtml</p><br>
+<h3>德国巴拉圭加时</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/3732494.shtml</p><br>
+<h3>为什么小组赛出局会让韩国人破防</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:http://www.share.minike.top/Article/details/2197727946.shtml</p><br>
+<h3>毒液2</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/37274581.shtml</p><br>
+<h3>2021湖南卫视跨年演唱会</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/71101786.shtml</p><br>
+<h3>第3集丨“柠檬茶能换怀表？”</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://www.blog.minike.top/Article/details/4718898000.shtml</p><br>
+<h3>德国巴拉圭进入点球大战</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:http://www.blog.minike.top/Article/details/79823485.shtml</p><br>
+<h3>“中国养猪场都用上空调了”！这是真的吗？【主播说三农】</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/68619785.shtml</p><br>
+<h3>杨紫肖战余生请多指教拍立得</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://www.share.minike.top/Article/details/734913595.shtml</p><br>
+<h3>当我知道豆包有后台审核人员</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/31222262239.shtml</p><br>
+<h3>领克900大型SUV值得购买吗?</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/15791983810.shtml</p><br>
