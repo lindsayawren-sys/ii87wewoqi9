@@ -1,43 +1,43 @@
-<h1>欧盟计划削减电力税并加快推广清洁能源</h1><br>
+<h1>花旗详解霍尔木兹海峡三种情景：油价最高或飙至130美元</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:48:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>文件草案显示，作为应对伊朗战争能源影响的部分措施，欧盟计划降低电力税并加快推广清洁技术，以减轻消费者因油气价格飙升而承受的压力。 欧盟执委会的提案草案拟于4月22日发布，提出了旨在遏制能源账单的短期措施，以及欧洲加快摆脱化石燃料的计划，以保护欧洲大陆免受未来油气供应中断的影响。根据该草案，欧盟执委会将于5月提议修改欧盟税收规则，确保电力税率低于化石燃料，并使各国政府更容易将能源</p><br>
+<p>随着美伊两周停火协议即将于4月22日到期，花旗集团在最新报告中勾勒了霍尔木兹海峡局势的三种可能走向，并分别给出了相应的油价预测。 基准情景：停火延长，油价逐步回落 花旗认为最可能出现的情景是，本周双方签署停火延长协议，海峡航运与石油生产在5月逐步恢复，并在6月底前达到中断前水平。 即便如此，全球原油及成品油库存仍将减少约9亿桶，其中包含已损失的5亿桶以及因复产延迟和冲突破坏导致</p><br>
 <h2>正文</h2><br>
-<p>文件草案显示，作为应对伊朗战争能源影响的部分措施，欧盟计划降低电力税并加快推广清洁技术，以减轻消费者因油气价格飙升而承受的压力。</p><br>
-<p>欧盟执委会的提案草案拟于4月22日发布，提出了旨在遏制能源账单的短期措施，以及欧洲加快摆脱化石燃料的计划，以保护欧洲大陆免受未来油气供应中断的影响。</p><br>
-<p>根据该草案，欧盟执委会将于5月提议修改欧盟税收规则，确保电力税率低于化石燃料，并使各国政府更容易将能源密集行业的电力税降至零。</p><br>
-<p>草案称，欧盟还将于下月向各成员国能源部长提供一份节能投资和低碳技术清单，以替代石油和天然气；同时将提出一项法律提案，要求各国激励对智能电网技术的投资，以帮助将更多清洁能源纳入电力结构。</p><br>
-<p>欧盟计划草案的其他内容（正式发布前可能有所调整）显示，欧盟将从本月起协调各国天然气储气工作，以避免企业同时抢购导致价格飙升。</p><br>
-<p>责任编辑：王永生</p><br>
+<p>随着美伊两周停火协议即将于4月22日到期，花旗集团在最新报告中勾勒了霍尔木兹海峡局势的三种可能走向，并分别给出了相应的油价预测。</p><br>
+<p>基准情景：停火延长，油价逐步回落 花旗认为最可能出现的情景是，本周双方签署停火延长协议，海峡航运与石油生产在5月逐步恢复，并在6月底前达到中断前水平。</p><br>
+<p>即便如此，全球原油及成品油库存仍将减少约9亿桶，其中包含已损失的5亿桶以及因复产延迟和冲突破坏导致的额外4亿桶损失。</p><br>
+<p>花旗大宗商品研究全球主管指出，每过去一天，全球就会消耗约1300万桶原油及油品。</p><br>
+<p>在这一情景下，花旗预计布伦特原油第二季度均价为95美元/桶，第三、第四季度分别回落至80美元和75美元/桶。</p><br>
+<p>值得注意的是，即使冲突本周立即结束，到6月底全球原油库存仍将降至八年来最低水平。</p><br>
+<p>重建这些库存即使假设战后迅速恢复每日100万桶的过剩供应，也可能需要两年多时间。</p><br>
+<p>恶化情景：中断延长一月，油价升至110美元 如果霍尔木兹海峡的通行中断再持续一个月（即从4月20日起算再延长四周），同时曼德海峡和富查伊拉的绕行航线维持现状，那么总损失量预计将上升至约13亿桶。</p><br>
 <h2>相关推荐</h2><br>
-<h3>超神人辉夜姬 第二集</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md</p><br>
-<h3>锐评：网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md</p><br>
-<h3>巴西在进攻三区完成210脚传球</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md</p><br>
-<h3>男子醉酒溺水获救后同行人拒协助抬人</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md</p><br>
-<h3>赛博朋克边缘行者2预告片</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md</p><br>
-<h3>世界杯欧洲队7战南美仅1胜</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md</p><br>
-<h3>武磊：日本队有能力跟任何强队抗衡</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md</p><br>
-<h3>阿娇瘦了10斤</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md</p><br>
-<h3>领克900大型SUV值得购买吗?</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md</p><br>
-<h3>如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md</p><br>
-<h3>媒体评泰山建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md</p><br>
-<h3>恋与深空回应争议</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md</p><br>
+<h3>巴西2-1绝杀日本</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md</p><br>
+<h3>毕业以后，你最怀念的大学记忆是什么？</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md</p><br>
+<h3>普京为何将俄乌谈判时间表与伊朗挂钩</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md</p><br>
+<h3>左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md</p><br>
+<h3>急先锋</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md</p><br>
+<h3>欧盟分楼层开空调惹争议</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md</p><br>
+<h3>87克大金链到老庙黄金维修少了11克</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md</p><br>
+<h3>人类...完蛋了...</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md</p><br>
+<h3>索马里女大使：想和中国一起搞事业</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md</p><br>
+<h3>女子遭下药退赔偿拟追刑责</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>AI手机进入Agent时代</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md</p><br>
-<h3>刘宇宁高情商化解谁站C位</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md</p><br>
-<h3>hanser X 赖美云《室内系的Track Maker》</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md</p><br>
-<h3>为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md</p><br>
-<h3>全球芯片巨头史诗级扩产</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md</p><br>
-<h3>欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md</p><br>
-<h3>中方对白俄罗斯平民伤亡表示关切</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md</p><br>
-<h3>王健林甩卖超80座万达广场</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md</p><br>
-<h3>MSI应援曲 如果季中成回忆</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md</p><br>
-<h3>沙丘</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md</p><br>
-<h3>金价跳水 水贝市场显现出“两重天”</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md</p><br>
-<h3>国务院：探索延长义务教育年限</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md</p><br>
-<h3>宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md</p><br>
-<h3>如何把斧兵改造成精英怪？提高攻速移速！！！</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md</p><br>
-<h3>陈幸同晋级WTT美国大满贯女单32强</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md</p><br>
+<h3>蜘蛛侠:平行宇宙</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md</p><br>
+<h3>女心理师</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md</p><br>
+<h3>扬名立万</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md</p><br>
+<h3>Melo向柳智敏张元英道歉</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md</p><br>
+<h3>巴西2比1日本</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md</p><br>
+<h3>高考填志愿父亲和女儿产生分歧</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md</p><br>
+<h3>日本球员说被绝杀非常不甘心</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md</p><br>
+<h3>王曼昱被突如其来的话筒逗笑了</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md</p><br>
+<h3>送你一朵小红花</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md</p><br>
+<h3>巴西足球能否再现昔日荣光</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md</p><br>
+<h3>啊啊啊</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md</p><br>
+<h3>四川宜宾地震为何震感明显</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md</p><br>
+<h3>点球大战和诺伊尔都救不回德国队</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md</p><br>
+<h3>网友写差评被店家“挂”门口避雷</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md</p><br>
+<h3>手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md</p><br>

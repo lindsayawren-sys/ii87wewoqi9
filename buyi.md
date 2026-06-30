@@ -1,43 +1,40 @@
-<h1>小摩：更新中金公司模型 目标价微升至24.5港元</h1><br>
+<h1>习近平同莫桑比克总统查波举行会谈</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:48:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>摩根大通发布研报称，已更新中金公司（03908）的模型，以反映去年第四季业绩及管理层就中金以换股方式吸收合并东兴证券（601198.SH）及信达证券（601059.SH）进度的最新评论。小摩现假设合并将于2026年第三季完成，较原先预期的第二季有所推迟，上调明后两年净利润预测2.5%及4.6%。该行将中金公司2026年12月底的目标价由24港元升至24.5港元，维持“增持”评级</p><br>
+<p>4月21日，国家主席习近平在北京同来华进行国事访问的莫桑比克总统查波举行会谈。</p><br>
 <h2>正文</h2><br>
-<p>摩根大通发布研报称，已更新中金公司（03908）的模型，以反映去年第四季业绩及管理层就中金以换股方式吸收合并东兴证券（601198.SH）及信达证券（601059.SH）进度的最新评论。</p><br>
-<p>小摩现假设合并将于2026年第三季完成，较原先预期的第二季有所推迟，上调明后两年净利润预测2.5%及4.6%。</p><br>
-<p>该行将中金公司2026年12月底的目标价由24港元升至24.5港元，维持“增持”评级。</p><br>
-<p>责任编辑：史丽君</p><br>
+<p>4月21日，国家主席习近平在北京同来华进行国事访问的莫桑比克总统查波举行会谈。</p><br>
 <h2>相关推荐</h2><br>
-<h3>内马尔中场休息积极鼓励队友</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md</p><br>
-<h3>ASMR 千禧年百货大楼初代柜姐给你化大头贴妆</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md</p><br>
-<h3>女儿从清华毕业 爸爸晒出17年对比照</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md</p><br>
-<h3>送你一朵小红花</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md</p><br>
-<h3>法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md</p><br>
-<h3>日本球迷输球后集体捡垃圾</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md</p><br>
-<h3>【Reaction】女生最少的5款游戏</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md</p><br>
-<h3>上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md</p><br>
-<h3>手底下人带不动怎么办？</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md</p><br>
-<h3>武磊：日本队有能力跟任何强队抗衡</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md</p><br>
-<h3>日本将帅赛后采访纷纷哽咽落泪</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md</p><br>
-<h3>《鸣潮》玄方主题曲 MV | 定玄</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md</p><br>
-<h3>领克07GT搭载超跑同源MRC悬架</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md</p><br>
-<h3>恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md</p><br>
+<h3>送你一朵小红花</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md</p><br>
+<h3>奔跑吧·黄河篇第二季</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md</p><br>
+<h3>现在叛逆期的孩子最怕的是什么？</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md</p><br>
+<h3>杨紫大银幕成绩单如何</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md</p><br>
+<h3>一见倾心</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md</p><br>
+<h3>自然光｜papi酱&窦文涛：驴与跑步机</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md</p><br>
+<h3>中国新一轮出口管制直指日本命脉</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md</p><br>
+<h3>「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md</p><br>
+<h3>未来的飞机可能会用电吗？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md</p><br>
+<h3>勇敢的心第二部</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md</p><br>
+<h3>赛博朋克边缘行者2预告片</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md</p><br>
+<h3>网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md</p><br>
+<h3>大货车掉落螺丝扎进骑手护目镜</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md</p><br>
+<h3>中国对日本再出重拳</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md</p><br>
-<h3>不开心就去看三年前的购物订单</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md</p><br>
-<h3>德国vs巴拉圭</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md</p><br>
-<h3>欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md</p><br>
-<h3>健全中小学教师工资长效联动机制</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md</p><br>
-<h3>德国巴拉圭 折磨</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md</p><br>
-<h3>人类...完蛋了...</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md</p><br>
-<h3>大学生遇地震裹被子从5楼冲下</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md</p><br>
-<h3>苗族银饰</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md</p><br>
-<h3>中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md</p><br>
-<h3>上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md</p><br>
-<h3>亚洲球队全部出局</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md</p><br>
-<h3>女子用家人生日买彩票中1032万</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md</p><br>
-<h3>如果有二次元高中是什么样子的？</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md</p><br>
-<h3>毕业以后，你最怀念的大学记忆是什么？</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md</p><br>
+<h3>首届《哈基米歌王争霸赛》总决赛</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md</p><br>
+<h3>世界杯</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md</p><br>
+<h3>如何看待 NBA2026 年休赛期美媒称 勇士正试图同时获得詹姆斯和浓眉？这可能实现吗？</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md</p><br>
+<h3>《我落泪情绪零碎》</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md</p><br>
+<h3>怕iPhone涨价的用户已紧急换新</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md</p><br>
+<h3>iPhoneUltra黑色机模</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md</p><br>
+<h3>啥比桑吉尔夫排位练蓝防（最不抽象的一集）</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md</p><br>
+<h3>AI手机进入Agent时代</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md</p><br>
+<h3>疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md</p><br>
+<h3>【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md</p><br>
+<h3>小娘惹</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md</p><br>
+<h3>王楚钦说配合稍微有些陌生感</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md</p><br>
+<h3>本科毕业生为何涌入专科学校</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md</p><br>
+<h3>日本主帅赛后回应淘汰出局</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md</p><br>
+<h3>陈露发视频求和解遭拒</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md</p><br>

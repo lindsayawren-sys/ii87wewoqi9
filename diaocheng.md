@@ -1,47 +1,47 @@
-<h1>高盛高管以1280万美元出售香港房产 凸显香港高端物业市场重新活跃</h1><br>
+<h1>特朗普敦促法官不要让戴蒙在摩根大通终止服务的诉讼案中逃脱责任</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:48:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>高盛一位高级主管近期完成了一笔香港高端住宅出售交易，这可能预示着该市豪宅市场正在发生动能转换。根据土地注册处文件，负责该公司亚太区私人财富管理业务的李硕培以1亿港元（约合1280万美元）的价格出售了其位于赤柱伊甸园的住宅。买家为Deknam Ltd．，这是一家由CVC Capital Partners合伙人Nik Rowold共同持有的公司，使这笔交易与另一位全球金融界的高层人</p><br>
+<p>唐纳德·特朗普的律师表示，摩根大通被指在2021年1月6日国会山骚乱后将特朗普列入“黑名单”，而该行的首席执行官杰米·戴蒙无法逃避责任。 特朗普声称，戴蒙亲自指示摩根大通停止与他保持客户关系，随后又将他的名字加入行业“黑名单”，违反了佛罗里达州有关不公平商业行为的法律。特朗普的律师Alejandro Brito在周一提交的文件中再次提出这一指控，并敦促法官将这起“终止银行服务”</p><br>
 <h2>正文</h2><br>
-<p>高盛一位高级主管近期完成了一笔香港高端住宅出售交易，这可能预示着该市豪宅市场正在发生动能转换。</p><br>
-<p>根据土地注册处文件，负责该公司亚太区私人财富管理业务的李硕培以1亿港元（约合1280万美元）的价格出售了其位于赤柱伊甸园的住宅。</p><br>
-<p>买家为Deknam Ltd．，这是一家由CVC Capital Partners合伙人Nik Rowold共同持有的公司，使这笔交易与另一位全球金融界的高层人士关联起来。</p><br>
-<p>这笔交易相较于最初购买价格实现了可观的增值，该物业的售价几乎是李硕培及其妻子2006年支付3520万港元时的三倍。</p><br>
-<p>这笔交易的时机值得关注，因为商界领袖和金融界资深人士近期重新成为香港豪宅市场的活跃买家。</p><br>
-<p>这一活动可能表明，在经历了长期疲软之后，市场出现初步企稳迹象，尤其是在资金往往率先流动的顶级市场。</p><br>
-<p>从交易结构来看，这笔交易的定价似乎正好低于关键的税收门槛。</p><br>
-<p>香港政府于2月底将1亿港元以上住宅交易的从价印花税税率从4.25%上调至6.5%，而此次交易价格恰好为1亿港元，可能使买家得以规避更高的印花税。</p><br>
+<p>唐纳德·特朗普的律师表示，摩根大通被指在2021年1月6日国会山骚乱后将特朗普列入“黑名单”，而该行的首席执行官杰米·戴蒙无法逃避责任。</p><br>
+<p>特朗普声称，戴蒙亲自指示摩根大通停止与他保持客户关系，随后又将他的名字加入行业“黑名单”，违反了佛罗里达州有关不公平商业行为的法律。</p><br>
+<p>特朗普的律师Alejandro Brito在周一提交的文件中再次提出这一指控，并敦促法官将这起“终止银行服务”的诉讼继续留在佛州审理。</p><br>
+<p>摩根大通正寻求将案件移至纽约审理。</p><br>
+<p>该行称，特朗普没有拿出证据证明戴蒙在其中扮演了任何角色，也没有证据表明所谓的“黑名单”确实存在。</p><br>
+<p>摩根大通还表示，即便特朗普能够提供此类证据，他作为摩根大通客户所签署的账户协议仍要求相关争议在纽约进行诉讼。</p><br>
+<p>这起诉讼是特朗普针对银行展开行动的一部分。</p><br>
+<p>他称这些银行错误地拒绝向保守派人士提供服务。</p><br>
 <h2>相关推荐</h2><br>
-<h3>速度与激情9</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md</p><br>
-<h3>梅德韦杰夫列举俄罗斯面临的七大挑战</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md</p><br>
-<h3>日本遭读秒绝杀 森保一：我水平不够</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md</p><br>
-<h3>失明的我带老妈去了趟“火星”</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md</p><br>
-<h3>租房时你会更看重「住得舒服」，还是「每天通勤更方便」？</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md</p><br>
-<h3>热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md</p><br>
-<h3>武磊：日本队有能力跟任何强队抗衡</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md</p><br>
-<h3>中国新一轮出口管制直指日本命脉</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md</p><br>
-<h3>世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md</p><br>
-<h3>为什么香港的冲厕水是咸的？</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md</p><br>
-<h3>美媒：美军第五舰队司令部已无法使用</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md</p><br>
-<h3>王楚钦孙颖莎晋级混双八强</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md</p><br>
-<h3>孙兴慜道歉</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md</p><br>
-<h3>王菲谢霆锋十指紧扣好甜</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md</p><br>
+<h3>网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md</p><br>
+<h3>杨紫大银幕成绩单如何</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md</p><br>
+<h3>点球大战和诺伊尔都救不回德国队</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md</p><br>
+<h3>极限挑战第一季</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md</p><br>
+<h3>内马尔替补</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md</p><br>
+<h3>啊啊啊</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md</p><br>
+<h3>国务院：稳步推进研究生考试招生改革</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md</p><br>
+<h3>德国淘汰</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md</p><br>
+<h3>莫兰特转投开拓者效力</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md</p><br>
+<h3>日本反击率先破门</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md</p><br>
+<h3>扫黑风暴</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md</p><br>
+<h3>租房时你会更看重「住得舒服」，还是「每天通勤更方便」？</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md</p><br>
+<h3>网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md</p><br>
+<h3>日耳曼拖拉机</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>诺伊尔尽力了</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md</p><br>
-<h3>深圳交警集中曝光典型违法案例</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md</p><br>
-<h3>第一次对自信的力量有了实感</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md</p><br>
-<h3>湖北云南的这些涉汛信息都是假的</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md</p><br>
-<h3>沉睡花园</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md</p><br>
-<h3>法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md</p><br>
-<h3>网瘾賊大的阿嬷</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md</p><br>
-<h3>男子醉酒溺水获救后同行人拒协助抬人</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md</p><br>
-<h3>世界杯：荷兰vs摩洛哥</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md</p><br>
-<h3>爆冷出局！德国点球大战不敌巴拉圭</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md</p><br>
-<h3>小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md</p><br>
-<h3>咕嘎万能小摊1：沉浸式制作惠灵顿牛排</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md</p><br>
-<h3>“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md</p><br>
-<h3>男生180+，有腹肌是什么体验？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md</p><br>
-<h3>男子醉酒溺水获救后同行人拒搭手</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md</p><br>
+<h3>森保一致歉：我执教能力不足</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md</p><br>
+<h3>蜘蛛侠:英雄归来</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md</p><br>
+<h3>GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md</p><br>
+<h3>如果有二次元高中是什么样子的？</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md</p><br>
+<h3>FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md</p><br>
+<h3>警方介入洪明甫死亡威胁</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md</p><br>
+<h3>网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md</p><br>
+<h3>恐怖世界 第三集 埃温霍姆村</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md</p><br>
+<h3>一生一世</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md</p><br>
+<h3>为什么很多企业推行“扁平化管理”后，效率反而下降了？</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md</p><br>
+<h3>hanser X 赖美云《室内系的Track Maker》</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md</p><br>
+<h3>请回答王牌2019</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md</p><br>
+<h3>致敬！中国首批缉毒警已全体退休</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md</p><br>
+<h3>恋与深空回应敖尹来源</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md</p><br>
+<h3>王曼昱被突如其来的话筒逗笑了</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md</p><br>

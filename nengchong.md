@@ -1,42 +1,46 @@
-<h1>以总理：与伊朗的停火可能很快结束</h1><br>
+<h1>山东省高校图书馆“十大镇馆之宝”评选结果揭晓</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:48:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新网4月13日电 综合外媒13日报道，以色列总理内塔尼亚胡说，与伊朗的停火可能很快结束。 在内阁会议上，内塔尼亚胡表示，伊朗与美国之间的停火协议“可能随时发生变化”。</p><br>
+<p>中新网济南4月22日电(任群 赵晓)齐鲁典藏·千载文脉——山东省高校图书馆“十大镇馆之宝”评选结果22日正式揭晓。经过为期一个多月的评选，来自山东大学、中国海洋大学、山东中医药大学、山东师范大学等11所高校图书馆，共计110种珍贵古籍与特色文献被评选为各馆“十大镇馆之宝”。 此次评选由山东省高等学校图书情报工作委员会主办，山东大学图书馆承办，严格遵循历史文物性、学术资料性、艺术</p><br>
 <h2>正文</h2><br>
-<p>中新网4月13日电 综合外媒13日报道，以色列总理内塔尼亚胡说，与伊朗的停火可能很快结束。</p><br>
-<p>在内阁会议上，内塔尼亚胡表示，伊朗与美国之间的停火协议“可能随时发生变化”。</p><br>
+<p>中新网济南4月22日电(任群 赵晓)齐鲁典藏·千载文脉——山东省高校图书馆“十大镇馆之宝”评选结果22日正式揭晓。</p><br>
+<p>经过为期一个多月的评选，来自山东大学、中国海洋大学、山东中医药大学、山东师范大学等11所高校图书馆，共计110种珍贵古籍与特色文献被评选为各馆“十大镇馆之宝”。</p><br>
+<p>此次评选由山东省高等学校图书情报工作委员会主办，山东大学图书馆承办，严格遵循历史文物性、学术资料性、艺术代表性等核心标准。</p><br>
+<p>历经本馆遴选、公众投票、专家评审、综合审议及结果公示五个阶段，各馆先从馆藏中精选20部候选珍品。</p><br>
+<p>4月初起，活动启动线上平台展示并开放公众投票，吸引数万人次参与，极大提升古籍的社会认知度。</p><br>
+<p>在专家评审环节，国内多位古籍整理专家对候选典籍进行了专业评分。</p><br>
+<p>山东大学文学院教授、著名文献学家杜泽逊在评审中表示，高校图书馆评选“镇馆之宝”，不仅要看文物价值，书本身也要“响当当”，有学术权威性、学校专业代表性和较高的文献价值。</p><br>
+<p>此次评选出的各馆“十大镇馆之宝”形态丰富，包含古籍、舆图、绘图本、碑帖、拓片、书法绣品等，反映了山东省高校图书馆体系的多元构成与深厚积累。</p><br>
 <h2>相关推荐</h2><br>
-<h3>现在叛逆期的孩子最怕的是什么？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md</p><br>
-<h3>董卿父亲报纸上发文悼念亡妻</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md</p><br>
-<h3>全球芯片巨头史诗级扩产</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md</p><br>
-<h3>杨紫大银幕成绩单如何</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md</p><br>
-<h3>巴西2比1日本</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md</p><br>
-<h3>点球大战和诺伊尔都救不回德国队</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md</p><br>
-<h3>巴拉圭率先破门</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md</p><br>
-<h3>时光音乐会</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md</p><br>
-<h3>泰山建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md</p><br>
-<h3>被巴西绝杀后 日球员田中碧跪地痛哭</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md</p><br>
-<h3>巴西2-1绝杀日本</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md</p><br>
-<h3>杨紫学位证上就是杨紫</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md</p><br>
-<h3>千与千寻</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md</p><br>
-<h3>勇士续约波尔津吉斯</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md</p><br>
-<h3>国务院：探索延长义务教育年限</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md</p><br>
+<h3>郑钦文温网三连败西尼亚科娃</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md</p><br>
+<h3>男子诋毁袁隆平科研成果被刑拘</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md</p><br>
+<h3>巴西在进攻三区完成210脚传球</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md</p><br>
+<h3>如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md</p><br>
+<h3>【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md</p><br>
+<h3>毕业以后，你最怀念的大学记忆是什么？</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md</p><br>
+<h3>张月收到黄灿灿辣货两眼发光</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md</p><br>
+<h3>FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md</p><br>
+<h3>高考结束，该不该外出打工体验？</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md</p><br>
+<h3>急先锋</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md</p><br>
+<h3>任素汐舞台上唱《王招君》</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md</p><br>
+<h3>韩国道歉完日本道歉</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md</p><br>
+<h3>吴易昺不敌德约科维奇 止步温网首轮</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>深扒韩国队淘汰背后原因</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md</p><br>
-<h3>房价什么时候能涨</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md</p><br>
-<h3>商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md</p><br>
-<h3>梅德韦杰夫列举俄罗斯面临的七大挑战</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md</p><br>
-<h3>欧洲家电巨头为何输掉了这个夏天</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md</p><br>
-<h3>巴西2-1绝杀日本</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md</p><br>
-<h3>俄乌双方伤亡近180万人</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md</p><br>
-<h3>国内最大沙漠发洪水意味着什么</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md</p><br>
-<h3>快递到家不能这样拆</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md</p><br>
-<h3>本科毕业生为何涌入专科学校</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md</p><br>
-<h3>亚洲球队全部出局</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md</p><br>
-<h3>HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md</p><br>
-<h3>《我落泪情绪零碎》</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md</p><br>
-<h3>点球大战和诺伊尔都救不回德国队</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md</p><br>
-<h3>美人鱼</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md</p><br>
+<h3>德国爆冷点球大战不敌巴拉圭</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md</p><br>
+<h3>赛博朋克边缘行者2预告片</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md</p><br>
+<h3>浪姐成团夜爆笑吐槽</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md</p><br>
+<h3>杨紫肖战余生请多指教拍立得</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md</p><br>
+<h3>赛博朋克边缘行者2预告片</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md</p><br>
+<h3>为什么会有「念旧」的心理？</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md</p><br>
+<h3>如何评价DeepSeek 提出的 DSpark 推理加速方案？</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md</p><br>
+<h3>王楚钦孙颖莎vs皮斯特耶库库洛娃</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md</p><br>
+<h3>深圳交警集中曝光典型违法案例</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md</p><br>
+<h3>巴西醒醒 这是淘汰赛</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md</p><br>
+<h3>郑钦文温网一轮游</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md</p><br>
+<h3>苗族银饰</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md</p><br>
+<h3>中方对白俄罗斯平民伤亡表示关切</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md</p><br>
+<h3>杨紫大银幕成绩单如何</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md</p><br>
+<h3>拆解FIFA和世界杯的暗面</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md</p><br>

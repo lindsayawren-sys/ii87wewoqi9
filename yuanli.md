@@ -1,44 +1,47 @@
-<h1>中国央行将开展5000亿元买断式逆回购操作</h1><br>
+<h1>“人类的任务还很重”！刘振民谈南极冰山崩解再敲气候警钟</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:48:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新社北京4月14日电 中国央行14日发布公告称，将于4月15日以固定数量、利率招标、多重价位中标方式开展5000亿元(人民币，下同)买断式逆回购操作，期限为6个月(183天)。 据悉，4月将有6000亿元6个月期买断式逆回购到期。这意味着，15日央行将开展的买断式逆回购操作是缩量续作。根据央行公布的数据算得，4月买断式逆回购净回笼4000亿元。 东方金诚首席宏观分析师王青认为</p><br>
+<p>发布时间：2026年04月22日 22:43 来源：中国新闻网 近日，南大洋编号为A23a的冰山发生“末次”崩解，引发广泛关注。4月22日，中国气候变化事务特使刘振民在全球共享发展行动论坛第三届高级别会议期间接受中新社记者专访时指出，这一事件再度为全球敲响气候警钟，表明气候变化风险正持续加剧且迫在眉睫。 刘振民强调，南极、北极以及格陵兰岛的冰盖消融将直接导致海平面上升，而若陆地</p><br>
 <h2>正文</h2><br>
-<p>中新社北京4月14日电 中国央行14日发布公告称，将于4月15日以固定数量、利率招标、多重价位中标方式开展5000亿元(人民币，下同)买断式逆回购操作，期限为6个月(183天)。</p><br>
-<p>据悉，4月将有6000亿元6个月期买断式逆回购到期。</p><br>
-<p>这意味着，15日央行将开展的买断式逆回购操作是缩量续作。</p><br>
-<p>根据央行公布的数据算得，4月买断式逆回购净回笼4000亿元。</p><br>
-<p>东方金诚首席宏观分析师王青认为，央行缩量续作的原因在于，今年1至2月，净投放中长期流动性较上年同期增加。</p><br>
-<p>然而一季度银行信贷投放较为温和，4月以来政府债券发行节奏也未明显加快。</p><br>
-<p>这些因素综合作用下，4月初以来资金面进一步向偏松方向演化，需要适时“收水”。</p><br>
-<p>业内专家表示，影响银行体系流动性的因素很多，要全面看待各种因素对流动性总量的影响。</p><br>
+<p>发布时间：2026年04月22日 22:43 来源：中国新闻网 近日，南大洋编号为A23a的冰山发生“末次”崩解，引发广泛关注。</p><br>
+<p>4月22日，中国气候变化事务特使刘振民在全球共享发展行动论坛第三届高级别会议期间接受中新社记者专访时指出，这一事件再度为全球敲响气候警钟，表明气候变化风险正持续加剧且迫在眉睫。</p><br>
+<p>刘振民强调，南极、北极以及格陵兰岛的冰盖消融将直接导致海平面上升，而若陆地冰川加速融化，则可能引发大江大河水源断流，其影响将更为深远且难以弥补。</p><br>
+<p>为此，他呼吁各国切实加快气候行动步伐。</p><br>
+<p>刘振民重申，中国在2030年前实现碳达峰、2060年前实现碳中和的承诺坚定不移。</p><br>
+<p>同时，他敦促发达国家应率先于2050年前实现碳中和，以期为全球携手遏制气候变化争取关键窗口期。</p><br>
+<p>“人类的任务还很重”，刘振民说。</p><br>
+<p>(记者 郎佳慧) 责任编辑：【李岩】</p><br>
 <h2>相关推荐</h2><br>
-<h3>《鸣潮》玄方主题曲 MV | 定玄</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md</p><br>
-<h3>有人见过武则天的画像吗，非常好奇？</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md</p><br>
-<h3>国内最大沙漠发洪水意味着什么</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md</p><br>
-<h3>左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md</p><br>
-<h3>日本球迷被强行披上巴西国旗</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md</p><br>
-<h3>《共患难》</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md</p><br>
-<h3>古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md</p><br>
-<h3>如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md</p><br>
-<h3>斛珠夫人</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md</p><br>
-<h3>宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md</p><br>
-<h3>对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md</p><br>
+<h3>吴易昺不敌德约科维奇 止步温网首轮</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md</p><br>
+<h3>开电动汽车真的很省钱吗？</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md</p><br>
+<h3>巴西足球能否再现昔日荣光</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md</p><br>
+<h3>当我知道豆包有后台审核人员</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md</p><br>
+<h3>papi酱已退出papitube关联公司</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md</p><br>
+<h3>DeepSeek启动成立来最大规模招聘</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md</p><br>
+<h3>有人见过武则天的画像吗，非常好奇？</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md</p><br>
+<h3>全新问界M9现身美国街头</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md</p><br>
+<h3>老人卖菜获博主帮助后遇车祸去世</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md</p><br>
+<h3>王楚钦孙颖莎vs皮斯特耶库库洛娃</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md</p><br>
+<h3>陈露发视频求和解遭拒</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md</p><br>
+<h3>哈弗茨崩溃道歉：我们踢得太差了</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md</p><br>
+<h3>张雪的一句“是我们”引发岛内热议</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md</p><br>
+<h3>孙兴慜发长文致歉</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md</p><br>
-<h3>妻子撞死家暴丈夫案二审案情反转</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md</p><br>
-<h3>球评巴西绝杀逆转日本</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md</p><br>
-<h3>陈小春人老了干什么也不心酸</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md</p><br>
-<h3>网红峡谷5人溺亡 有人提醒会下雨</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md</p><br>
-<h3>曝iPhone18Pro机密文件现身暗网</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md</p><br>
-<h3>想问一下学日语的大佬，自学日语要怎么学？</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md</p><br>
-<h3>【涤墨作战7人870】望：我从地狱杀回来了！</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md</p><br>
-<h3>毕业以后，你最怀念的大学记忆是什么？</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md</p><br>
-<h3>HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md</p><br>
-<h3>网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md</p><br>
-<h3>巴西足球能否再现昔日荣光</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md</p><br>
-<h3>“中国养猪场都用上空调了”！这是真的吗？【主播说三农】</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md</p><br>
-<h3>央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md</p><br>
-<h3>被巴西绝杀后 日球员田中碧跪地痛哭</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md</p><br>
+<h3>日本队5进世界杯淘汰赛0胜</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md</p><br>
+<h3>莫兰特被交易到开拓者</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md</p><br>
+<h3>日本将帅赛后采访纷纷哽咽落泪</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md</p><br>
+<h3>杨某诋毁袁隆平院士科研成果被刑拘</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md</p><br>
+<h3>请回答王牌2019</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md</p><br>
+<h3>承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md</p><br>
+<h3>美团、淘宝闪购、京东外卖达成共识</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md</p><br>
+<h3>刘宇宁是去进货了吗</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md</p><br>
+<h3>金刚川</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md</p><br>
+<h3>大货车掉落螺丝扎进骑手护目镜</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md</p><br>
+<h3>如何看待 NBA2026 年休赛期美媒称 勇士正试图同时获得詹姆斯和浓眉？这可能实现吗？</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md</p><br>
+<h3>“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md</p><br>
+<h3>恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md</p><br>
+<h3>逃狱兄弟</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md</p><br>
+<h3>王楚钦说配合稍微有些陌生感</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md</p><br>

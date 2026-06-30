@@ -1,45 +1,47 @@
-<h1>美国两名联邦众议员因涉性丑闻正式辞任</h1><br>
+<h1>美伊局势最新动态：伊朗扣押船只，美方维持海上封锁</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:48:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>因涉嫌性丑闻遭调查，美国加利福尼亚州州长热门候选人、民主党籍联邦众议员埃里克·斯沃韦尔14日在国会复会后正式辞任众议员，此前他已宣布放弃竞选加州州长。同样涉嫌性丑闻的得克萨斯州共和党籍众议员托尼·冈萨雷斯当天也正式辞任。美国方面10日曝光斯沃韦尔因涉嫌性侵和性骚扰等遭检察机关调查，称至少有4名女性指控斯沃韦尔涉嫌强奸罪和其他性行为不端罪。14日有消息称，另有第五名女子指控斯沃韦</p><br>
+<p>中新网4月22日电 当地时间22日，伊朗方面称，他们在霍尔木兹海峡扣押了三艘货轮。与此同时，美方宣布延长停火期限但维持对伊海上封锁，伊朗明确表示，拒绝在封锁威胁下参与谈判。 伊朗扣押三艘货轮 意图表明两大信息 据卡塔尔半岛新闻网报道，伊朗伊斯兰革命卫队海军部队于22日在霍尔木兹海峡至少扣押了三艘船只。随后，伊朗伊斯兰革命卫队发表官方声明称，其中两艘货船“敌人”有关，伊朗方面指控</p><br>
 <h2>正文</h2><br>
-<p>因涉嫌性丑闻遭调查，美国加利福尼亚州州长热门候选人、民主党籍联邦众议员埃里克·斯沃韦尔14日在国会复会后正式辞任众议员，此前他已宣布放弃竞选加州州长。</p><br>
-<p>同样涉嫌性丑闻的得克萨斯州共和党籍众议员托尼·冈萨雷斯当天也正式辞任。</p><br>
-<p>美国方面10日曝光斯沃韦尔因涉嫌性侵和性骚扰等遭检察机关调查，称至少有4名女性指控斯沃韦尔涉嫌强奸罪和其他性行为不端罪。</p><br>
-<p>14日有消息称，另有第五名女子指控斯沃韦尔性侵。</p><br>
-<p>斯沃韦尔在社交媒体发表声明，称他为自己过去犯下的“判断错误”对家人、工作人员和选民“深表歉意”，并“承担责任”。</p><br>
-<p>但斯沃韦尔仍坚称，一些针对他的说法是“虚假的”，将予以反驳。</p><br>
-<p>斯沃韦尔的律师14日发表声明称，针对斯沃韦尔的指控是“精心策划且明目张胆的政治攻击”。</p><br>
-<p>在有众议员表示将提交动议将其驱逐后，斯沃韦尔12日宣布放弃竞选加州州长，13日宣布将辞任联邦众议员。</p><br>
+<p>中新网4月22日电 当地时间22日，伊朗方面称，他们在霍尔木兹海峡扣押了三艘货轮。</p><br>
+<p>与此同时，美方宣布延长停火期限但维持对伊海上封锁，伊朗明确表示，拒绝在封锁威胁下参与谈判。</p><br>
+<p>伊朗扣押三艘货轮 意图表明两大信息 据卡塔尔半岛新闻网报道，伊朗伊斯兰革命卫队海军部队于22日在霍尔木兹海峡至少扣押了三艘船只。</p><br>
+<p>随后，伊朗伊斯兰革命卫队发表官方声明称，其中两艘货船“敌人”有关，伊朗方面指控其在缺乏必要许可的情况下航行，并篡改导航系统，从而危及海上安全。</p><br>
+<p>船舶追踪平台显示，这两艘船于22日停泊在伊朗海岸附近。</p><br>
+<p>卡塔尔半岛新闻网分析称，伊朗方面试图借此传递两个明确信息。</p><br>
+<p>首先，他们试图表明霍尔木兹海峡处于其控制和管辖之下。</p><br>
+<p>伊朗此前曾声明，通过这一关键咽喉要道的过境行为必须获得伊斯兰革命卫队批准，并且他们已经宣布了靠近伊朗海岸线的一条新航道。</p><br>
 <h2>相关推荐</h2><br>
-<h3>恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md</p><br>
-<h3>苗族银饰</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md</p><br>
-<h3>⚡逼尔摩斯教你玩球⚡</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md</p><br>
-<h3>乔家的儿女</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md</p><br>
-<h3>如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md</p><br>
-<h3>第3集丨“柠檬茶能换怀表？”</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md</p><br>
-<h3>冲学校再转专业可行吗</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md</p><br>
-<h3>古代时期普通老百姓能喝上酒吗？</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md</p><br>
-<h3>【涤墨作战7人870】望：我从地狱杀回来了！</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md</p><br>
-<h3>Melo向柳智敏张元英道歉</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md</p><br>
-<h3>巴西绝杀日本：漫画般结局换了主角</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md</p><br>
-<h3>大学生遇地震裹被子从5楼冲下</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md</p><br>
+<h3>《赛博朋克：边缘行者 2》｜官方预告片</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md</p><br>
+<h3>对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md</p><br>
+<h3>中国对日本再出重拳</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md</p><br>
+<h3>为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md</p><br>
+<h3>【硬核拆解】汽车人到底离我们有多远？</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md</p><br>
+<h3>卢卡申科发布解放军仪仗队视频</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md</p><br>
+<h3>黄晓明夸昆凌引杨颖对比</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md</p><br>
+<h3>《男人至死是傻得儿》</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md</p><br>
+<h3>日本队被绝杀后鞠躬致谢观众</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md</p><br>
+<h3>哈弗茨崩溃道歉：我们踢得太差了</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md</p><br>
+<h3>韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md</p><br>
+<h3>恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md</p><br>
+<h3>金鹰奖视后提名预测</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md</p><br>
+<h3>欧洲民众抢购空调降温</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>已经看完《三国第一部：争洛阳》的人，如何评价这部电影？</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md</p><br>
-<h3>浪姐成团夜爆笑吐槽</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md</p><br>
-<h3>巴拉圭先进球了</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md</p><br>
-<h3>乔家的儿女</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md</p><br>
-<h3>世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md</p><br>
-<h3>马航370搜寻最新消息</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md</p><br>
-<h3>警方介入洪明甫死亡威胁</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md</p><br>
-<h3>美团、淘宝闪购、京东外卖达成共识</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md</p><br>
-<h3>诺伊尔尽力了</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md</p><br>
-<h3>怕iPhone涨价的用户已紧急换新</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md</p><br>
-<h3>佐野海舟远射破门</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md</p><br>
-<h3>这种关系可能正在悄悄“催老”你</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md</p><br>
-<h3>贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md</p><br>
-<h3>人类...完蛋了...</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md</p><br>
-<h3>男子醉酒溺水获救后同行人拒搭手</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md</p><br>
+<h3>"超算小姐，这一次，我一定要带你出去..."</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md</p><br>
+<h3>存储芯片龙头提示风险</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md</p><br>
+<h3>致敬！中国首批缉毒警已全体退休</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md</p><br>
+<h3>“法德大战”泡汤了</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md</p><br>
+<h3>美股深夜大反弹 特斯拉飙涨8%</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md</p><br>
+<h3>阿娇瘦了10斤</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md</p><br>
+<h3>ASMR 千禧年百货大楼初代柜姐给你化大头贴妆</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md</p><br>
+<h3>世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md</p><br>
+<h3>中方对白俄罗斯平民伤亡表示关切</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md</p><br>
+<h3>天道</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md</p><br>
+<h3>好像看到了人类带孩子崩溃的样子</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md</p><br>
+<h3>曹雪芹为什么写贾母痛批私定终身，才子佳人小说不是婚姻自主、人文觉醒的反封建文学吗？</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md</p><br>
+<h3>法总统候选人：拒绝与中国激烈对抗</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md</p><br>
+<h3>湖北云南的这些涉汛信息都是假的</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md</p><br>
+<h3>索马里女大使：想和中国一起搞事业</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md</p><br>

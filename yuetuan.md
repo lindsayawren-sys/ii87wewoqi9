@@ -1,44 +1,44 @@
-<h1>报告称：中国走向消费强国有四方面有利条件</h1><br>
+<h1>民进党当局称“大陆涉台措施是企图以商逼政” 国台办回应</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:48:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新网海口4月13日电 (记者 王子谦)13日在海口举办的“2026消费发展学术交流发布活动”发布报告建议，未来5年至10年，中国要加快从消费大国走向消费强国，以对冲全球不确定性，推进经济发展方式转变，有效满足城乡居民发展需求。这份《从消费大国走向消费强国——2026年中国消费研究报告》(简称《报告》) 分析，中国走向消费强国拥有多方面有利条件，一是中国拥有14亿多人口和全球规</p><br>
+<p>4月22日，国务院台办举行例行新闻发布会。有记者问，近日，台湾商业总会邀集岛内旅行、旅馆、食品等七大产业代表召开对大陆近期惠台政策看法的记者会，呼吁民进党当局应以民生为重，不应将民生问题政治化，甚至牺牲基层群众生存空间。民进党当局回应称，“大陆涉台措施是企图以商逼政”，业界应与其站在一起，共同要求大陆尽快与其展开协商。请问对此有何评论？发言人张晗答问表示，台湾商业总会及相关产业</p><br>
 <h2>正文</h2><br>
-<p>中新网海口4月13日电 (记者 王子谦)13日在海口举办的“2026消费发展学术交流发布活动”发布报告建议，未来5年至10年，中国要加快从消费大国走向消费强国，以对冲全球不确定性，推进经济发展方式转变，有效满足城乡居民发展需求。</p><br>
-<p>这份《从消费大国走向消费强国——2026年中国消费研究报告》(简称《报告》) 分析，中国走向消费强国拥有多方面有利条件，一是中国拥有14亿多人口和全球规模最大的中等收入群体；二是中国人均GDP已超过1.3万美元，正处在消费结构升级的关键阶段；三是中国拥有完整的产业体系支撑消费强国建设；四是政策调整持续推进扩大国内需求、提振消费、建设国内大市场。</p><br>
-<p>《报告》认为，中国已成为全球消费大国，2024年中国最终消费占全球比重由2012年的8%持续攀升至12.98%，2020年至2024年最终消费累计贡献全球13.81%。</p><br>
-<p>但与此同时，中国离消费强国仍有较大差距。</p><br>
-<p>在消费规模上，2024年中国最终消费10.6万亿美元，相当于美国最终消费规模的44.48%；在最终消费率上，中国最终消费率长期偏低；在消费结构上，服务消费占比有巨大提升空间。</p><br>
-<p>《报告》估算，如果中国最终消费占全球的比重达到中国制造业增加值占全球的比重，将新增不少于10万亿美元的消费市场。</p><br>
-<p>报告发布机构中国(海南)改革发展研究院院长迟福林建议，“十五五”时期要提速“民生大国”建设，加大基本公共服务投资，深入推进以人为本的新型城镇化。</p><br>
-<p>同时，深化以拉动消费为重点的结构性改革，包括深化收入分配制度改革，推动服务业制度型开放等。</p><br>
+<p>4月22日，国务院台办举行例行新闻发布会。</p><br>
+<p>有记者问，近日，台湾商业总会邀集岛内旅行、旅馆、食品等七大产业代表召开对大陆近期惠台政策看法的记者会，呼吁民进党当局应以民生为重，不应将民生问题政治化，甚至牺牲基层群众生存空间。</p><br>
+<p>民进党当局回应称，“大陆涉台措施是企图以商逼政”，业界应与其站在一起，共同要求大陆尽快与其展开协商。</p><br>
+<p>请问对此有何评论？</p><br>
+<p>发言人张晗答问表示，台湾商业总会及相关产业界表达的心声，充分反映了近期我们发布的10项促进两岸交流合作的政策措施，符合岛内产业复苏需求，有利于解决经济民生痛点。</p><br>
+<p>民进党当局无视岛内民意，无视台湾同胞利益福祉，对于大陆方面释出的善意诚意和出台的惠台利民政策措施，只会一味抹黑攻击，并借机进行政治操弄，妄想在不承认“九二共识”的情况下，恢复两岸协商对话，这些惯用伎俩骗不了人，也不可能得逞，只会让他们越来越站在岛内主流民意的对立面。</p><br>
+<p>她说，交流融合是两岸同胞的愿望和福祉所在，两岸同胞走亲走近走到一起的大潮流，谁也阻挡不了。</p><br>
+<p>民进党当局应停止政治操弄，顺应民心所向和大势所趋，在促进两岸交流合作上转变态度。</p><br>
 <h2>相关推荐</h2><br>
-<h3>恐怖世界 第三集 埃温霍姆村</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md</p><br>
-<h3>免费试吃发差评被店家挂店门避雷</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md</p><br>
-<h3>papi酱已退出papitube关联公司</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md</p><br>
-<h3>法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md</p><br>
-<h3>宜宾地震食客避难后折返 无人逃单</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md</p><br>
-<h3>恋与深空回应敖尹来源</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md</p><br>
-<h3>未来的飞机可能会用电吗？</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md</p><br>
-<h3>恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md</p><br>
-<h3>我设置了全宇宙最安全的密码</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md</p><br>
-<h3>iPhoneUltra黑色机模</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md</p><br>
-<h3>庆祝中国共产党成立105周年大会将举行</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md</p><br>
+<h3>杨紫获白玉兰视后争议不止</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md</p><br>
+<h3>赛博朋克边缘行者2预告片</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md</p><br>
+<h3>全球芯片巨头史诗级扩产</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md</p><br>
+<h3>德国 传控</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md</p><br>
+<h3>名记：灰熊将莫兰特交易至开拓者</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md</p><br>
+<h3>IGN评测电影版后室</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md</p><br>
+<h3>手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md</p><br>
+<h3>马耳他著名拱门坍塌致中国男子身亡</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md</p><br>
+<h3>人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md</p><br>
+<h3>韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md</p><br>
+<h3>可以细成这样？1600万预算，颠覆我认知的改造！</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>巴西绝杀日本</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md</p><br>
-<h3>吴易昺不敌德约科维奇 止步温网首轮</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md</p><br>
-<h3>房价什么时候能涨</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md</p><br>
-<h3>点球大战 残酷</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md</p><br>
-<h3>韩国世界杯出局是主帅一个人的锅吗</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md</p><br>
-<h3>巴西足球能否再现昔日荣光</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md</p><br>
-<h3>第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md</p><br>
-<h3>蜘蛛侠:英雄归来</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md</p><br>
-<h3>这些7月新规影响你我</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md</p><br>
-<h3>韩国道歉完日本道歉</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md</p><br>
-<h3>德国队连续三届世界杯无缘16强</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md</p><br>
-<h3>点球大战</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md</p><br>
-<h3>美人鱼</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md</p><br>
-<h3>美股收盘 热门中概股普涨</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md</p><br>
-<h3>发明linux、python、redis、nginx、sqlite的人算不算天才？</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md</p><br>
+<h3>“柠檬茶能换怀表？”</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md</p><br>
+<h3>2021湖南卫视跨年演唱会</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md</p><br>
+<h3>法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md</p><br>
+<h3>2021江苏卫视跨年演唱会</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md</p><br>
+<h3>豆包收费了，你还会用吗？</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md</p><br>
+<h3>沉睡花园</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md</p><br>
+<h3>4000美元是黄金新一轮下跌的开始吗</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md</p><br>
+<h3>金牌调解</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md</p><br>
+<h3>德国vs巴拉圭</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md</p><br>
+<h3>我把队友的7连跪剪成了艺术</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md</p><br>
+<h3>杨紫肖战余生请多指教拍立得</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md</p><br>
+<h3>杨紫被质疑未使用原名纯属误解</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md</p><br>
+<h3>为什么会有「念旧」的心理？</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md</p><br>
+<h3>免费试吃发差评被店家挂店门避雷</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md</p><br>
+<h3>郑钦文温网首轮出局</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md</p><br>

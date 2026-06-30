@@ -1,41 +1,46 @@
-<h1>南非任命白人资深政治家迈耶为新任驻美大使</h1><br>
+<h1>AT&T营收微升，得益于高端连接业务增长</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:48:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新网4月15日电 据法新社消息，当地时间14日，南非总统办公室宣布罗尔夫·迈耶将担任下一任南非驻美国大使。 南非总统发言人表示，迈耶将在完成华盛顿方面所有程序后立即开始工作。 据介绍，迈耶现年78岁，属于南非白人少数族裔阿非利卡人，曾在种族隔离政府中担任部长，其本人也曾积极致力于废除种族隔离制度。 据介绍，鉴于南非与美国特朗普政府之间紧张的关系，这一职位被视为特别敏感。此前，</p><br>
+<p>专题：聚焦美股2026年第一季度财报 这家电信公司的后付费电话服务和高速互联网业务持续新增用户 简要摘要 AT&T 最新季度营收增长 2.9% 至 315 亿美元，调整后每股收益 57 美分。 美国电话电报公司（AT&T）最新季度营收实现增长，主要依托其高端连接业务的发展，同时后付费电话服务和高速互联网业务的用户持续新增。 这家电信公司周三公布，一季度持续经营业务每股收益为 5</p><br>
 <h2>正文</h2><br>
-<p>中新网4月15日电 据法新社消息，当地时间14日，南非总统办公室宣布罗尔夫·迈耶将担任下一任南非驻美国大使。</p><br>
-<p>南非总统发言人表示，迈耶将在完成华盛顿方面所有程序后立即开始工作。</p><br>
-<p>据介绍，迈耶现年78岁，属于南非白人少数族裔阿非利卡人，曾在种族隔离政府中担任部长，其本人也曾积极致力于废除种族隔离制度。</p><br>
-<p>据介绍，鉴于南非与美国特朗普政府之间紧张的关系，这一职位被视为特别敏感。</p><br>
-<p>此前，两国关系因一系列问题而紧张，包括南非在国际法院对以色列提起的种族灭绝诉讼，以及特朗普关于南非白人阿非利卡人在后种族隔离政府时期遭受迫害的有争议说法等。</p><br>
-<p>2025年3月，美国驱逐了南非前任驻美大使，原因是他批评了特朗普的“让美国再次伟大”(MAGA)运动。</p><br>
+<p>专题：聚焦美股2026年第一季度财报 这家电信公司的后付费电话服务和高速互联网业务持续新增用户 简要摘要 AT&T 最新季度营收增长 2.9% 至 315 亿美元，调整后每股收益 57 美分。</p><br>
+<p>美国电话电报公司（AT&T）最新季度营收实现增长，主要依托其高端连接业务的发展，同时后付费电话服务和高速互联网业务的用户持续新增。</p><br>
+<p>这家电信公司周三公布，一季度持续经营业务每股收益为 54 美分，上年同期为 61 美分。</p><br>
+<p>调整后每股收益 57 美分，高于 FactSet 统计分析师预期的 55 美分。</p><br>
+<p>营收同比增长 2.9%，至 315 亿美元，超出分析师预期的 312.5 亿美元。</p><br>
+<p>自由现金流从上一年同期的 31 亿美元降至 25 亿美元。</p><br>
+<p>公司表示，这一降幅反映了其加快光纤部署进度所带来的资本投资增加。</p><br>
+<p>今年早些时候，AT&T 表示将按三个新业务板块进行业绩报告，分别为：高端连接、传统业务以及拉丁美洲业务。</p><br>
 <h2>相关推荐</h2><br>
-<h3>Melo向柳智敏张元英道歉</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md</p><br>
-<h3>房价什么时候能涨</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md</p><br>
-<h3>莫兰特被交易到开拓者</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md</p><br>
-<h3>我吃遍了西安最強的街頭小吃，第九家強得離譜！</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md</p><br>
-<h3>巴西足球能否再现昔日荣光</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md</p><br>
-<h3>孙兴慜发长文致歉</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md</p><br>
-<h3>韩国球迷凌晨4点接机怒骂主教练</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md</p><br>
-<h3>papi酱已退出papitube关联公司</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md</p><br>
-<h3>恋与深空已删除锅里洗澡文案</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md</p><br>
-<h3>为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md</p><br>
+<h3>王菲谢霆锋十指紧扣好甜</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md</p><br>
+<h3>佐野海舟远射破门</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md</p><br>
+<h3>妻子撞死家暴丈夫案二审案情反转</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md</p><br>
+<h3>委内瑞拉地震死亡人数升至1719人</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md</p><br>
+<h3>杨紫大银幕成绩单如何</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md</p><br>
+<h3>如何改变自己太负责任的性格?</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md</p><br>
+<h3>韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md</p><br>
+<h3>四川凉山落石砸毁车辆 3人遇难</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md</p><br>
+<h3>男子P图现任妻子照片冒充前妻</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md</p><br>
+<h3>第一次对自信的力量有了实感</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md</p><br>
+<h3>博世们还在犹豫 美的们已经卖断货</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md</p><br>
+<h3>巴拉圭先进球了</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md</p><br>
+<h3>美团、淘宝闪购、京东外卖达成共识</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>巴西vs日本</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md</p><br>
-<h3>时光音乐会</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md</p><br>
-<h3>斛珠夫人</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md</p><br>
-<h3>【涤墨作战7人870】望：我从地狱杀回来了！</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md</p><br>
-<h3>我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md</p><br>
-<h3>湖北云南的这些涉汛信息都是假的</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md</p><br>
-<h3>勇敢的心第二部</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md</p><br>
-<h3>黄晓明晒和周杰伦的合照</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md</p><br>
-<h3>你人生中最艰难的时候是怎么熬过来的？</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md</p><br>
-<h3>李在明90度鞠躬感谢韩国两大财阀</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md</p><br>
-<h3>国务院：稳步推进研究生考试招生改革</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md</p><br>
-<h3>庆祝建党105周年特别节目</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md</p><br>
-<h3>孙颖莎王楚钦晋级8强</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md</p><br>
-<h3>周生如故</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md</p><br>
-<h3>警方介入洪明甫死亡威胁</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md</p><br>
+<h3>名记：灰熊将莫兰特交易至开拓者</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md</p><br>
+<h3>一切民族英雄都是中华民族的脊梁</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md</p><br>
+<h3>为什么很多企业推行“扁平化管理”后，效率反而下降了？</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md</p><br>
+<h3>法总统候选人：拒绝与中国激烈对抗</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md</p><br>
+<h3>五哈和他们的朋友</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md</p><br>
+<h3>天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md</p><br>
+<h3>博世们还在犹豫 美的们已经卖断货</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md</p><br>
+<h3>iPhone18e曝光</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md</p><br>
+<h3>存储芯片龙头提示风险</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md</p><br>
+<h3>哈弗茨崩溃道歉：我们踢得太差了</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md</p><br>
+<h3>孙颖莎王楚钦晋级8强</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md</p><br>
+<h3>莫兰特转投开拓者效力</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md</p><br>
+<h3>18岁体育生离世由爷爷奶奶抚养长大</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md</p><br>
+<h3>韩国球迷凌晨4点接机怒骂主教练</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md</p><br>
+<h3>FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md</p><br>

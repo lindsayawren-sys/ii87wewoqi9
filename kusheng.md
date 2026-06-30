@@ -1,43 +1,44 @@
-<h1>山东墨龙遭Barclays PLC减持574.96万股 每股作价8.472港元</h1><br>
+<h1>降息大消息！凯文·沃什：不会当特朗普的“提线木偶”</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:48:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>香港联交所最新数据显示，4月8日，Barclays PLC减持山东墨龙（00568）574.96万股，每股作价8.472港元，总金额约为4871.06万港元。减持后最新持股数目为1908.4万股，最新持股比例为7.45%。责任编辑：卢昱君</p><br>
+<p>美东时间4月21日，美股三大指数集体收跌。截至收盘，道指跌293.18点，跌幅为0.59%，报49149.38点；纳指跌144.43点，跌幅为0.59%，报24259.96点；标普500指数跌45.13点，跌幅为0.63%，报7064.01点。 据新华社报道，美国总统特朗普21日在社交媒体发表声明说，将延长同伊朗的停火期限，直至伊朗方面提交其方案并完成相关磋商。4月22日，日经</p><br>
 <h2>正文</h2><br>
-<p>香港联交所最新数据显示，4月8日，Barclays PLC减持山东墨龙（00568）574.96万股，每股作价8.472港元，总金额约为4871.06万港元。</p><br>
-<p>减持后最新持股数目为1908.4万股，最新持股比例为7.45%。</p><br>
-<p>责任编辑：卢昱君</p><br>
+<p>美东时间4月21日，美股三大指数集体收跌。</p><br>
+<p>截至收盘，道指跌293.18点，跌幅为0.59%，报49149.38点；纳指跌144.43点，跌幅为0.59%，报24259.96点；标普500指数跌45.13点，跌幅为0.63%，报7064.01点。</p><br>
+<p>据新华社报道，美国总统特朗普21日在社交媒体发表声明说，将延长同伊朗的停火期限，直至伊朗方面提交其方案并完成相关磋商。</p><br>
+<p>4月22日，日经225指数开盘跌0.41%，报59104.11点；韩国KOSPI指数开盘微跌，报6387.57点。</p><br>
+<p>美国国会参议院银行委员会21日就沃什的美联储主席提名举行听证会。</p><br>
+<p>在问答环节中，沃什强调不会成为特朗普的“提线木偶”，没有向特朗普做出任何关于降息的承诺。</p><br>
+<p>沃什还强调，美联储货币政策的独立性至关重要，并阐述了其“改革”美联储的主张。</p><br>
+<p>美股三大指数集体收跌 美东时间4月21日，美股三大指数集体收跌。</p><br>
 <h2>相关推荐</h2><br>
-<h3>巴西2-1绝杀日本</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md</p><br>
-<h3>王濛回复黄灿灿</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md</p><br>
-<h3>王濛回复黄灿灿</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md</p><br>
-<h3>诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md</p><br>
-<h3>房价什么时候能涨</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md</p><br>
-<h3>德国连续三届世界杯无缘16强</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md</p><br>
-<h3>泰山建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md</p><br>
-<h3>全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md</p><br>
-<h3>杨紫大银幕成绩单</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md</p><br>
-<h3>如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md</p><br>
-<h3>蔚来回应高压水枪洗车掉漆</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md</p><br>
-<h3>詹姆斯 勇士</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md</p><br>
-<h3>这一刀 会很帅</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md</p><br>
-<h3>日耳曼拖拉机</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md</p><br>
-<h3>不开心就去看三年前的购物订单</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md</p><br>
+<h3>杨紫获白玉兰视后为何争议难平</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md</p><br>
+<h3>庆祝建党105周年特别节目</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md</p><br>
+<h3>荷兰VS摩洛哥</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md</p><br>
+<h3>起风了</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md</p><br>
+<h3>天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md</p><br>
+<h3>日本反击率先破门</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md</p><br>
+<h3>木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md</p><br>
+<h3>张月收到黄灿灿辣货两眼发光</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md</p><br>
+<h3>“柠檬茶能换怀表？”</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md</p><br>
+<h3>郑钦文温网首轮出局</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md</p><br>
+<h3>承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>日本队主帅道歉</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md</p><br>
-<h3>为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md</p><br>
-<h3>房价什么时候能涨</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md</p><br>
-<h3>蜘蛛侠:英雄归来</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md</p><br>
-<h3>【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md</p><br>
-<h3>德国队世界杯点球大战首败</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md</p><br>
-<h3>IGN评测电影版后室</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md</p><br>
-<h3>英语考了145的人竟然教数学</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md</p><br>
-<h3>欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md</p><br>
-<h3>如何改变自己太负责任的性格?</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md</p><br>
-<h3>巴西2比1日本</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md</p><br>
-<h3>周生如故</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md</p><br>
-<h3>浪姐成团夜爆笑吐槽</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md</p><br>
-<h3>王曼昱被突如其来的话筒逗笑了</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md</p><br>
-<h3>千香</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md</p><br>
+<h3>巴西替补奇兵读秒绝杀</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md</p><br>
+<h3>人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md</p><br>
+<h3>金牌调解</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md</p><br>
+<h3>齐思钧回复张月</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md</p><br>
+<h3>王楚钦孙颖莎晋级混双八强</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md</p><br>
+<h3>消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md</p><br>
+<h3>如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md</p><br>
+<h3>德国队世界杯点球大战首败</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md</p><br>
+<h3>日本五次世界杯淘汰赛全败</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md</p><br>
+<h3>日本反击率先破门</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md</p><br>
+<h3>我和我的家乡</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md</p><br>
+<h3>欧洲空调卖疯了 下一个爆款是储能吗</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md</p><br>
+<h3>iPhoneUltra黑色机模</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md</p><br>
+<h3>逃狱兄弟</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md</p><br>
+<h3>英语考了145的人竟然教数学</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md</p><br>

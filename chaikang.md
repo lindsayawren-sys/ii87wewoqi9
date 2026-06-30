@@ -1,44 +1,44 @@
-<h1>中俄人才合作新平台在上合示范区发布</h1><br>
+<h1>东西问｜漳州月港：中国拥抱全球化时代的历史开端</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:48:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新社青岛4月14日电 (王禹)2026中国—俄罗斯产教融合发展会议暨中俄人才信息数据平台发布会14日在中国—上海合作组织地方经贸合作示范区(简称“上合示范区”)举办，中国—上海合作组织经贸学院现场正式发布中俄人才信息数据平台。 据介绍，中俄人才信息数据平台将整合中俄双方教育、产业、人才等信息资源，通过智能化匹配实现人才供需精准对接与校企高效合作，有效破除跨境人才对接壁垒，提升</p><br>
+<p>中新社福建漳州4月21日电 题：漳州月港：中国拥抱全球化时代的历史开端 作者 姜波 中国古迹遗址保护协会副理事长、山东大学教授 2008年，英国牛津大学鲍德林图书馆清理馆藏时，一幅融合东西方制图技艺的古老中国航海图重见天日。这幅与《顺风相送》互为姊妹篇的珍贵海图上，有诸多远洋航线汇聚于闽南海域，而著名的漳州月港也坐落于这里。这一考古发现，为一段被尘封的海洋传奇提供了实物佐证：在</p><br>
 <h2>正文</h2><br>
-<p>中新社青岛4月14日电 (王禹)2026中国—俄罗斯产教融合发展会议暨中俄人才信息数据平台发布会14日在中国—上海合作组织地方经贸合作示范区(简称“上合示范区”)举办，中国—上海合作组织经贸学院现场正式发布中俄人才信息数据平台。</p><br>
-<p>据介绍，中俄人才信息数据平台将整合中俄双方教育、产业、人才等信息资源，通过智能化匹配实现人才供需精准对接与校企高效合作，有效破除跨境人才对接壁垒，提升协同育人效能，为深化中俄产教融合、服务区域经贸高质量发展提供有力支撑。</p><br>
-<p>圣彼得堡彼得大帝理工大学、南乌拉尔国立大学、山东科技大学等高校和机构获颁中俄人才信息数据平台首批合作伙伴证书。</p><br>
-<p>中俄人才信息数据平台将联动两国高校优化人才培养模式，促进课程设置与产业需求对接，形成“产教融合、校企联动”的可持续生态。</p><br>
-<p>圣彼得堡彼得大帝理工大学副校长德米特里·弗拉基米罗维奇表示，俄中两国经贸联系日益紧密，人文交流持续深化，唯有坚持互学互鉴、经验共享、知识互通，才能应对时代挑战、实现共同发展。</p><br>
-<p>上合示范区管委会副主任郝国新表示，近年来，该示范区不断推动中俄两国高校和企业开展产教协同对接，期待中俄人才信息数据平台切实发挥桥梁作用，让人才流动成为中俄交流合作的“赋能器”，为两国开展多层次、宽领域合作注入人才新动能。</p><br>
-<p>活动现场，多项中俄教育合作项目集中签约落地，西伯利亚联邦大学(中国)招生中心同步揭牌成立。</p><br>
-<p>(完)</p><br>
+<p>中新社福建漳州4月21日电 题：漳州月港：中国拥抱全球化时代的历史开端 作者 姜波 中国古迹遗址保护协会副理事长、山东大学教授 2008年，英国牛津大学鲍德林图书馆清理馆藏时，一幅融合东西方制图技艺的古老中国航海图重见天日。</p><br>
+<p>这幅与《顺风相送》互为姊妹篇的珍贵海图上，有诸多远洋航线汇聚于闽南海域，而著名的漳州月港也坐落于这里。</p><br>
+<p>这一考古发现，为一段被尘封的海洋传奇提供了实物佐证：在15至16世纪人类掀起第一次全球化浪潮的大航海时代，漳州月港正是中国融入全球体系、走向全球化的关键开端。</p><br>
+<p>从全球史和海洋史的角度审视，“地理大发现”与“大航海时代”打破了新、旧各文明板块的原有状态，以葡萄牙、西班牙分别主导的东、西两条远洋航线，构筑起早期全球化的贸易骨架。</p><br>
+<p>葡萄牙人掌控里斯本-开普敦-巴达维亚-澳门-长崎的东部航线，西班牙人则垄断巴塞罗那-巴西-秘鲁-阿卡普尔科-马尼拉西部航线，而连接这两大全球航线的接驳点之一，正是漳州月港。</p><br>
+<p>月港-马尼拉航线的贯通，让中国正式嵌入全球海洋贸易网络，成为古代中国对接世界市场的核心枢纽与前沿窗口。</p><br>
+<p>月港崛起的历史契机与区位优势 明代初期长期推行“片板不得入海”的海禁政策，严重桎梏了民间海洋贸易的发展。</p><br>
+<p>隆庆元年(公元1567年)，明穆宗废止严苛的海禁政策，允许民间商民“准贩东西二洋”，史称“隆庆开海”，这一政策转折成为中国海洋贸易史的分水岭，而漳州月港被选定为唯一合法发舶地，绝非偶然。</p><br>
 <h2>相关推荐</h2><br>
-<h3>李在明90度鞠躬感谢韩国两大财阀</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md</p><br>
-<h3>王楚钦孙颖莎vs皮斯特耶库库洛娃</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md</p><br>
-<h3>hanser X 赖美云《室内系的Track Maker》</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md</p><br>
-<h3>德国巴拉圭加时</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md</p><br>
-<h3>你人生中最艰难的时候是怎么熬过来的？</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md</p><br>
-<h3>如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md</p><br>
-<h3>消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md</p><br>
-<h3>如何评价《龙之家族》第三季第二集？</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md</p><br>
-<h3>斛珠夫人</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md</p><br>
-<h3>有哪些被认为是现代才有的东西其实古代就有了？</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md</p><br>
-<h3>日本进球</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md</p><br>
+<h3>孙颖莎王楚钦晋级8强</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md</p><br>
+<h3>巴西绝杀日本：漫画般结局换了主角</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md</p><br>
+<h3>任素汐舞台上唱《王招君》</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md</p><br>
+<h3>宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md</p><br>
+<h3>存储芯片龙头提示风险</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md</p><br>
+<h3>承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md</p><br>
+<h3>媒体评泰山建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md</p><br>
+<h3>曝娱乐圈大部分明星失业</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md</p><br>
+<h3>有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md</p><br>
+<h3>"超算小姐，这一次，我一定要带你出去..."</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md</p><br>
+<h3>未来五年，教育强国这样建设</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>德国巴拉圭进入点球大战</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md</p><br>
-<h3>“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md</p><br>
-<h3>王源近几年没有路演了</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md</p><br>
-<h3>iPhone18e曝光</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md</p><br>
-<h3>时光音乐会</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md</p><br>
-<h3>内马尔替补</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md</p><br>
-<h3>千万不要随便扣肚脐</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md</p><br>
-<h3>房价什么时候能涨</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md</p><br>
-<h3>国务院：鼓励行业龙头企业举办职校</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md</p><br>
-<h3>【涤墨作战7人870】望：我从地狱杀回来了！</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md</p><br>
-<h3>天道</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md</p><br>
-<h3>世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md</p><br>
-<h3>日本球迷输球后集体捡垃圾</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md</p><br>
-<h3>为什么小组赛出局会让韩国人破防</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md</p><br>
-<h3>有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md</p><br>
+<h3>曝灰熊将莫兰特交易至开拓者</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md</p><br>
+<h3>全网说丑的玫瑰空调卖了5万台</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md</p><br>
+<h3>穆祉丞回应获年度人气艺人</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md</p><br>
+<h3>要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md</p><br>
+<h3>《男人至死是傻得儿》</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md</p><br>
+<h3>日本足球是如何崛起的</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md</p><br>
+<h3>女子清吧被陌生人投放伟哥</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md</p><br>
+<h3>日本五次世界杯淘汰赛全败</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md</p><br>
+<h3>高考结束了，你会让孩子在家玩手机吗？</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md</p><br>
+<h3>男子诋毁袁隆平科研成果被刑拘</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md</p><br>
+<h3>本科毕业生为何涌入专科学校</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md</p><br>
+<h3>追梦拒绝2770万美元球员选项</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md</p><br>
+<h3>杨紫被质疑未使用原名</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md</p><br>
+<h3>啊啊啊</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md</p><br>
+<h3>热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md</p><br>

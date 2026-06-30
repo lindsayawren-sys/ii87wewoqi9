@@ -1,44 +1,45 @@
-<h1>我国再次成功发射一箭8星</h1><br>
+<h1>阿斯塔纳航空将开通“广州—阿斯塔纳”直飞航线</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:48:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新网酒泉4月14日电 (杨宏伟)4月14日12时03分，中科宇航力箭一号遥十二运载火箭“i自然”号顺利升空，圆满完成发射任务。 此次任务是力箭一号火箭的第12次飞行，采用一箭多星方式，将8颗卫星精准送入预定轨道。这是中国自然资源报社与中科宇航一次成功的跨界合作，箭体涂装“i自然·爱中国”标识，通过人与自然和谐共生的“飞天”表达，弘扬尊重自然、顺应自然、保护自然的生态文明理念，</p><br>
+<p>中新网广州4月21日电 (记者 郭军)哈萨克斯坦阿斯塔纳航空21日宣布，将于6月3日起开通广州至哈萨克斯坦首都阿斯塔纳的直飞航线，每周2班。新航线计划于每周三和周五运营，由最新一代空客A321LR执飞。 广州至阿斯塔纳KC8218航班将于每周三、周五05点45分从广州白云国际机场(CAN)出发，10点10分抵达阿斯塔纳努尔苏丹-纳扎尔巴耶夫国际机场(NQZ)，飞行时间约为7小时</p><br>
 <h2>正文</h2><br>
-<p>中新网酒泉4月14日电 (杨宏伟)4月14日12时03分，中科宇航力箭一号遥十二运载火箭“i自然”号顺利升空，圆满完成发射任务。</p><br>
-<p>此次任务是力箭一号火箭的第12次飞行，采用一箭多星方式，将8颗卫星精准送入预定轨道。</p><br>
-<p>这是中国自然资源报社与中科宇航一次成功的跨界合作，箭体涂装“i自然·爱中国”标识，通过人与自然和谐共生的“飞天”表达，弘扬尊重自然、顺应自然、保护自然的生态文明理念，彰显守护美丽中国与建设航天强国的使命担当。</p><br>
-<p>力箭一号运载火箭已成功将92颗卫星送入太空，入轨载荷总质量超12吨。</p><br>
-<p>凭借成熟稳定的技术，保持着民商火箭多星发射最高纪录(一箭26星)，成为满足中国商业航天发射需求的市场主力。</p><br>
-<p>(完)</p><br>
+<p>中新网广州4月21日电 (记者 郭军)哈萨克斯坦阿斯塔纳航空21日宣布，将于6月3日起开通广州至哈萨克斯坦首都阿斯塔纳的直飞航线，每周2班。</p><br>
+<p>新航线计划于每周三和周五运营，由最新一代空客A321LR执飞。</p><br>
+<p>广州至阿斯塔纳KC8218航班将于每周三、周五05点45分从广州白云国际机场(CAN)出发，10点10分抵达阿斯塔纳努尔苏丹-纳扎尔巴耶夫国际机场(NQZ)，飞行时间约为7小时25分；阿斯塔纳至广州KC8217航班将于每周二、周四18点45分从阿斯塔纳努尔苏丹-纳扎尔巴耶夫国际机场(NQZ)出发，次日04点30分抵达广州白云国际机场(CAN)，飞行时间约为6小时45分。</p><br>
+<p>(以上均为当地时间) 自2025年3月31日起，阿斯塔纳航空已开通广州至阿拉木图的直飞航线，目前为每周执飞4班，并将从6月8日起增至每周5班。</p><br>
+<p>广州至阿斯塔纳航线开通后，阿斯塔纳航空将同时运营2条从广州出发直飞哈萨克斯坦的航线。</p><br>
+<p>阿斯塔纳是哈萨克斯坦的首都，是国家的政治中心，也是文化、经济和交通的重要枢纽。</p><br>
+<p>新航线的开通有助于加强哈萨克斯坦与中国之间的商业、旅游和文化联系。</p><br>
+<p>从广州出发的旅客将可以经由阿斯塔纳，便捷地中转至哈萨克斯坦境内以及中亚、欧洲的法兰克福、伊斯坦布尔、拉纳卡等目的地。</p><br>
 <h2>相关推荐</h2><br>
-<h3>国内最大沙漠发洪水意味着什么</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md</p><br>
-<h3>卖菜老人获博主帮助后遇车祸去世</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md</p><br>
-<h3>女子用家人生日买彩票中1032万</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md</p><br>
-<h3>“柠檬茶能换怀表？”</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md</p><br>
-<h3>"超算小姐，这一次，我一定要带你出去..."</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md</p><br>
-<h3>上市央企地产商 两年换了三任董事长</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md</p><br>
-<h3>ASMR 千禧年百货大楼初代柜姐给你化大头贴妆</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md</p><br>
-<h3>杨紫肖战余生请多指教拍立得</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md</p><br>
-<h3>挪威国家队紧急从本土订购大批海鲜</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md</p><br>
-<h3>日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md</p><br>
-<h3>我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md</p><br>
-<h3>2021江苏卫视跨年演唱会</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md</p><br>
-<h3>巴西vs日本</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md</p><br>
+<h3>媒体评泰山建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md</p><br>
+<h3>美人鱼</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md</p><br>
+<h3>这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md</p><br>
+<h3>毕业以后，你最怀念的大学记忆是什么？</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md</p><br>
+<h3>冲学校再转专业可行吗</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md</p><br>
+<h3>世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md</p><br>
+<h3>德国罚丢3粒点球</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md</p><br>
+<h3>美人鱼</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md</p><br>
+<h3>蔚来回应高压水枪洗车掉漆</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md</p><br>
+<h3>一生一世</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md</p><br>
+<h3>未来的飞机可能会用电吗？</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md</p><br>
+<h3>恋与深空已删除锅里洗澡文案</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>男子造谣东鹏老板不喝自家饮料被拘</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md</p><br>
-<h3>覃予萱晋级WTT美国大满贯女单32强</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md</p><br>
-<h3>欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md</p><br>
-<h3>森保一致歉：世界第一目标没能实现</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md</p><br>
-<h3>世界杯：荷兰vs摩洛哥</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md</p><br>
-<h3>有哪些值得一提的生活窍门？</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md</p><br>
-<h3>恐怖世界 第三集 埃温霍姆村</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md</p><br>
-<h3>感动全网的699分女生想报考清华</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md</p><br>
-<h3>央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md</p><br>
-<h3>普京为何将俄乌谈判时间表与伊朗挂钩</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md</p><br>
-<h3>女子用家人生日买彩票中1032万</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md</p><br>
-<h3>我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md</p><br>
-<h3>快递到家不能这样拆</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md</p><br>
-<h3>巴拉圭门将</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md</p><br>
-<h3>2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md</p><br>
+<h3>恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md</p><br>
+<h3>日本遭读秒绝杀 森保一：我水平不够</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md</p><br>
+<h3>人可以极简主义到什么程度？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md</p><br>
+<h3>网瘾賊大的阿嬷</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md</p><br>
+<h3>教育部披露：高考生篡改7名同学志愿</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md</p><br>
+<h3>诺伊尔尽力了</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md</p><br>
+<h3>为什么小组赛出局会让韩国人破防</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md</p><br>
+<h3>黄晓明晒和周杰伦的合照</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md</p><br>
+<h3>天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md</p><br>
+<h3>女子遭家暴逃跑致丈夫身亡二审细节</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md</p><br>
+<h3>逃狱兄弟</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md</p><br>
+<h3>郑钦文温网三连败西尼亚科娃</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md</p><br>
+<h3>德国进球被吹</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md</p><br>
+<h3>Melo向柳智敏张元英道歉</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md</p><br>
+<h3>内马尔中场休息积极鼓励队友</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md</p><br>

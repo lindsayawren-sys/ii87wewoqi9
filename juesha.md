@@ -1,47 +1,43 @@
-<h1>“机械义肢”助独脚东方白鹳重获新生 恢复训练盼归自然</h1><br>
+<h1>西藏樟木口岸全面复通后出入境人员突破100万人次</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:48:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>发布时间：2026年04月14日 14:12 来源：中国新闻网 近日，天津市宝坻区阳光野生动物收容救护中心的手术灯下，一只左腿截肢的东方白鹳被蒙上双眼，安静地等待着一次特殊的“接骨”。救助人员轻声抚过它缠着绷带的残肢，救助人员将一副专属于它的“机械假肢”稳稳扣上。 这只被誉为“鸟中大熊猫”的国家一级保护动物，去年7月因网线缠绕被迫截肢。一年来，碳纤维、泡沫、3D打印……一次次材</p><br>
+<p>中新网拉萨4月21日电 (拉巴卓玛)记者21日从聂拉木出入境边防检查站获悉，西藏樟木口岸自2023年9月全面复通以来，截至20日，累计查验出入境人员突破100万人次。 20日上午，熙熙攘攘的樟木口岸联检大厅内，旅客李女士在办完通关手续后，意外收到了一份特殊的礼物——一只身着移民管理警察制服形象的布偶小熊。原来，李女士正是樟木口岸全面复通后的第100万名旅客。聂拉木出入境边防检查</p><br>
 <h2>正文</h2><br>
-<p>发布时间：2026年04月14日 14:12 来源：中国新闻网 近日，天津市宝坻区阳光野生动物收容救护中心的手术灯下，一只左腿截肢的东方白鹳被蒙上双眼，安静地等待着一次特殊的“接骨”。</p><br>
-<p>救助人员轻声抚过它缠着绷带的残肢，救助人员将一副专属于它的“机械假肢”稳稳扣上。</p><br>
-<p>这只被誉为“鸟中大熊猫”的国家一级保护动物，去年7月因网线缠绕被迫截肢。</p><br>
-<p>一年来，碳纤维、泡沫、3D打印……一次次材质的试错，最终在第五代——一副内藏减震、外层覆硅的环保树脂假肢上找到答案。</p><br>
-<p>假肢托起的，不仅是一只鸟的重返野外之路。</p><br>
-<p>手术刀划开的不止伤口，更是一道关于生灵尊严的命题：当人类的手误伤自然，另一双手是否愿意为一只断足的东方白鹳，反复打磨一副行走的尊严？</p><br>
-<p>软飞区内，它试探着迈出机械趾尖，羽翼下的风声，已开始重新丈量湿地与天空的距离。</p><br>
-<p>(汤润青 冯宏杰 天津报道) 责任编辑：【罗攀】</p><br>
+<p>中新网拉萨4月21日电 (拉巴卓玛)记者21日从聂拉木出入境边防检查站获悉，西藏樟木口岸自2023年9月全面复通以来，截至20日，累计查验出入境人员突破100万人次。</p><br>
+<p>20日上午，熙熙攘攘的樟木口岸联检大厅内，旅客李女士在办完通关手续后，意外收到了一份特殊的礼物——一只身着移民管理警察制服形象的布偶小熊。</p><br>
+<p>原来，李女士正是樟木口岸全面复通后的第100万名旅客。</p><br>
+<p>聂拉木出入境边防检查站民警在现场为她举行了一场简短的欢迎仪式，以纪念这一具有里程碑意义的时刻。</p><br>
+<p>据悉，作为中国辐射南亚次大陆的重要门户通道，樟木口岸曾商贾云集，是中尼之间最大的陆路口岸。</p><br>
+<p>2015年“4·25”地震后，口岸基础设施受损严重，被迫暂停通关功能。</p><br>
+<p>在经历了货运功能先行恢复的过渡期后，樟木口岸于2023年9月实现全面复通。</p><br>
+<p>复通以来，樟木口岸客流量呈现出强劲的复苏与增长态势。</p><br>
 <h2>相关推荐</h2><br>
-<h3>世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md</p><br>
-<h3>泰山建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md</p><br>
-<h3>沉睡花园</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md</p><br>
-<h3>道友？你来真的啊？【凡人官方二创大会】</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md</p><br>
-<h3>德国爆冷点球大战不敌巴拉圭</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md</p><br>
-<h3>乔家的儿女</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md</p><br>
-<h3>网友写差评被店家“挂”门口避雷</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md</p><br>
-<h3>租房时你会更看重「住得舒服」，还是「每天通勤更方便」？</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md</p><br>
-<h3>武磊：日本队有能力跟任何强队抗衡</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md</p><br>
-<h3>人民锐评：网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md</p><br>
-<h3>好像看到了人类带孩子崩溃的样子</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md</p><br>
-<h3>日本五次世界杯淘汰赛全败</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md</p><br>
-<h3>哈弗茨头球破门</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md</p><br>
-<h3>【Reaction】女生最少的5款游戏</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md</p><br>
+<h3>日本主帅：未能夺冠深感抱歉</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md</p><br>
+<h3>女心理师</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md</p><br>
+<h3>日本队5进世界杯淘汰赛0胜</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md</p><br>
+<h3>上市央企地产商 两年换了三任董事长</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md</p><br>
+<h3>明星大侦探第四季</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md</p><br>
+<h3>全网说丑的格力玫瑰空调卖了5万台</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md</p><br>
+<h3>巴西2比1日本</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md</p><br>
+<h3>挪威国家队紧急从本土订购大批海鲜</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md</p><br>
+<h3>媒体评泰山建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md</p><br>
+<h3>国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>韩国道歉完日本道歉</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md</p><br>
-<h3>曝iPhone18Pro机密文件现身暗网</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md</p><br>
-<h3>《贺子珍》</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md</p><br>
-<h3>王濛回复黄灿灿</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md</p><br>
-<h3>蜘蛛侠:英雄归来</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md</p><br>
-<h3>开电动汽车真的很省钱吗？</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md</p><br>
-<h3>斛珠夫人</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md</p><br>
-<h3>点球淘汰德国 巴拉圭首都陷入疯狂</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md</p><br>
-<h3>逃狱兄弟</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md</p><br>
-<h3>诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md</p><br>
-<h3>女子用家人生日买彩票中1032万</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md</p><br>
-<h3>《共患难》</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md</p><br>
-<h3>咕嘎万能小摊1：沉浸式制作惠灵顿牛排</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md</p><br>
-<h3>你这一辈子有没有为进山姆拼过命？</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md</p><br>
-<h3>《恋与深空》被指触碰民族伤痛红线</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md</p><br>
+<h3>杨紫获白玉兰视后争议不止</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md</p><br>
+<h3>毒液2</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md</p><br>
+<h3>【涤墨作战7人870】望：我从地狱杀回来了！</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md</p><br>
+<h3>德国北部枪击事件致5死</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md</p><br>
+<h3>世界杯欧洲队7战南美仅1胜</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md</p><br>
+<h3>杨紫学位证上就是杨紫</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md</p><br>
+<h3>点球大战 残酷</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md</p><br>
+<h3>杨紫大银幕成绩单</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md</p><br>
+<h3>佐野海舟远射破门</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md</p><br>
+<h3>小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md</p><br>
+<h3>爱很美味</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md</p><br>
+<h3>郑钦文温网首轮出局</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md</p><br>
+<h3>巴西2比1日本</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md</p><br>
+<h3>7月1日起 一批新规即将落地</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md</p><br>
+<h3>挪威国家队紧急从本土订购大批海鲜</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md</p><br>

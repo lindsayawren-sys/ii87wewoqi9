@@ -1,43 +1,47 @@
-<h1>习近平：打造更加稳固坚韧、富有活力的中阿全面战略伙伴关系</h1><br>
+<h1>解码“电影+”新生态 第十六届北影节投融资论坛举办</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:48:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>4月14日上午，国家主席习近平在北京人民大会堂会见来华访问的阿联酋阿布扎比王储哈立德。 习近平指出，阿联酋是中国的全面战略伙伴，中方始终高度重视发展中阿关系。当前，世界之变、时代之变、历史之变正以前所未有的方式展开，人类社会面临和平还是战争、团结还是对抗、发展还是衰退的历史抉择。中国和阿联酋作为全球南方重要成员，有必要加强协调、增进合作，打造更加稳固坚韧、富有活力的中阿全面战略</p><br>
+<p>中新网北京4月22日电 (记者 高凯)当电影产业从票房经济迈向场景经济，当“电影+”的边界不断延展，投融资的逻辑正在被重新定义。第十六届北京国际电影节电影投融资论坛日前在北京举办，论坛聚焦“跨界共生 价值共赢”，围绕“电影+”新生态展开多重探讨。本次论坛由北京国际电影节组委会主办，中国电影评论学会联合主办，聚影汇(北京)影视文化有限公司承办。 当产业的表层逻辑被技术、市场与观众</p><br>
 <h2>正文</h2><br>
-<p>4月14日上午，国家主席习近平在北京人民大会堂会见来华访问的阿联酋阿布扎比王储哈立德。</p><br>
-<p>习近平指出，阿联酋是中国的全面战略伙伴，中方始终高度重视发展中阿关系。</p><br>
-<p>当前，世界之变、时代之变、历史之变正以前所未有的方式展开，人类社会面临和平还是战争、团结还是对抗、发展还是衰退的历史抉择。</p><br>
-<p>中国和阿联酋作为全球南方重要成员，有必要加强协调、增进合作，打造更加稳固坚韧、富有活力的中阿全面战略伙伴关系。</p><br>
-<p>哈立德说：“主席阁下，阿联酋和中国的关系历史悠久、根基深厚。</p><br>
-<p>阿联酋高度重视同中国的伙伴关系。</p><br>
-<p>我们致力于进一步推动两国关系向前发展，开拓更广阔的前景。</p><br>
-<p>” 总监制丨申勇 监制丨龚雪辉 记者丨史伟 杨紫童 卢心雨 马喆 摄像丨李铮 段德文 程铖 杨波 曹亚星 张宇 录音丨程爱华 翻译丨王海罡 李林潓</p><br>
+<p>中新网北京4月22日电 (记者 高凯)当电影产业从票房经济迈向场景经济，当“电影+”的边界不断延展，投融资的逻辑正在被重新定义。</p><br>
+<p>第十六届北京国际电影节电影投融资论坛日前在北京举办，论坛聚焦“跨界共生 价值共赢”，围绕“电影+”新生态展开多重探讨。</p><br>
+<p>本次论坛由北京国际电影节组委会主办，中国电影评论学会联合主办，聚影汇(北京)影视文化有限公司承办。</p><br>
+<p>当产业的表层逻辑被技术、市场与观众反复冲刷，最核心的问题反而愈发清晰：电影的本体价值究竟是什么？</p><br>
+<p>“电影+”的冲击下，电影的创作、融资面临着什么样的挑战？</p><br>
+<p>应该如何应对？</p><br>
+<p>当日主题论坛的四位嘉宾给出了各自的思考。</p><br>
+<p>《中国电影投融资发展报告》编委会主任、中国电影评论学会会长饶曙光指出，判断电影价值必须彻底跳出“唯票房思维”，电影不仅是文化产品，更是拉动消费、构建情感共同体、审美共同体和文化共同体的重要载体。</p><br>
 <h2>相关推荐</h2><br>
-<h3>2026年WTT美国大满贯，国乒自带球桌是真实的吗？</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md</p><br>
-<h3>李在明90度鞠躬感谢韩国两大财阀</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md</p><br>
-<h3>披荆斩棘的哥哥</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md</p><br>
-<h3>咕嘎万能小摊1：沉浸式制作惠灵顿牛排</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md</p><br>
-<h3>刘宇宁是去进货了吗</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md</p><br>
-<h3>一切民族英雄都是中华民族的脊梁</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md</p><br>
-<h3>金刚川</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md</p><br>
-<h3>好像看到了人类带孩子崩溃的样子</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md</p><br>
-<h3>本科毕业生为何涌入专科学校</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md</p><br>
-<h3>巴拉圭门将</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md</p><br>
+<h3>陈露发视频求和解遭拒</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md</p><br>
+<h3>毒液2</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md</p><br>
+<h3>卡塞米罗头球破门</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md</p><br>
+<h3>点球淘汰德国 巴拉圭首都陷入疯狂</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md</p><br>
+<h3>人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md</p><br>
+<h3>宜宾地震食客避难后折返 无人逃单</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md</p><br>
+<h3>森保一致歉：世界第一目标没能实现</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md</p><br>
+<h3>我设置了全宇宙最安全的密码</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md</p><br>
+<h3>李宏毅白月光真神回归</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md</p><br>
+<h3>亚洲球队全部告别世界杯</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md</p><br>
+<h3>点球大战</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md</p><br>
+<h3>冲学校再转专业可行吗</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md</p><br>
+<h3>曝娱乐圈大部分明星失业</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md</p><br>
+<h3>金刚川</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>恋与深空道歉声明</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md</p><br>
-<h3>第3集丨“柠檬茶能换怀表？”</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md</p><br>
-<h3>男子醉酒溺水获救后同行人拒搭手</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md</p><br>
-<h3>武磊：日本队有能力跟任何强队抗衡</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md</p><br>
-<h3>德国主帅称无法理解加时进球被吹</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md</p><br>
-<h3>2026年WTT美国大满贯，国乒自带球桌是真实的吗？</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md</p><br>
-<h3>时光音乐会</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md</p><br>
-<h3>哪部作品、哪本书、哪首歌，值得被一直传下去？</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md</p><br>
-<h3>领克07GT搭载超跑同源MRC悬架</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md</p><br>
-<h3>周生如故</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md</p><br>
-<h3>庆祝建党105周年特别节目</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md</p><br>
-<h3>你这一辈子有没有为进山姆拼过命？</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md</p><br>
-<h3>急先锋</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md</p><br>
-<h3>国务院：探索延长义务教育年限</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md</p><br>
-<h3>“中国养猪场都用上空调了”！这是真的吗？【主播说三农】</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md</p><br>
+<h3>如何评价DeepSeek 提出的 DSpark 推理加速方案？</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md</p><br>
+<h3>警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md</p><br>
+<h3>峡谷事故团队组队时有人提醒会下雨</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md</p><br>
+<h3>手底下人带不动怎么办？</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md</p><br>
+<h3>我们看到的星星是不是有些已经不存在了？</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md</p><br>
+<h3>毕业以后，你最怀念的大学记忆是什么？</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md</p><br>
+<h3>中国代表在联合国点名日本所犯罪行</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md</p><br>
+<h3>明星大侦探第一季</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md</p><br>
+<h3>“法德大战”泡汤了</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md</p><br>
+<h3>如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md</p><br>
+<h3>法媒点赞中国小区楼顶“人工降雨”</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md</p><br>
+<h3>致敬！中国首批缉毒警已全体退休</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md</p><br>
+<h3>湖北云南这些涉汛信息都是假的</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md</p><br>
+<h3>博世们还在犹豫 美的们已经卖断货</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md</p><br>
+<h3>租房时你会更看重「住得舒服」，还是「每天通勤更方便」？</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md</p><br>

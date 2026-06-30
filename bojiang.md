@@ -1,45 +1,44 @@
-<h1>贵州茅台，重要高管变更</h1><br>
+<h1>一季度重庆外贸进出口总值创历史同期新高</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:48:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月14日，贵州茅台发布公告称，公司当日召开董事会，审议并通过《关于聘任高级管理人员的议案》。 会议决定，聘任余思明为公司财务总监，并指定余思明代行董事会秘书职责，公司董事长陈华不再代行董事会秘书职责。 一个月前，贵州茅台原财务总监、董秘蒋焰被留置，其因涉嫌严重违纪违法，接受相关部门的监察调查。 3月30日</p><br>
+<p>中新社重庆4月21日电 (张旭)重庆海关21日发布消息称，据统计，2026年一季度，重庆外贸进出口总值2215.5亿元(人民币，下同)，同比增长34.3%，创历史同期新高。 其中，出口1537.2亿元，同比增长27%；进口678.3亿元，同比增长54.5%。 2026年一季度，重庆有实绩进出口企业达4357家，创历史同期新高。 2026年一季度，东盟、欧盟为重庆前两大贸易伙伴，</p><br>
 <h2>正文</h2><br>
-<p>炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！</p><br>
-<p>4月14日，贵州茅台发布公告称，公司当日召开董事会，审议并通过《关于聘任高级管理人员的议案》。</p><br>
-<p>会议决定，聘任余思明为公司财务总监，并指定余思明代行董事会秘书职责，公司董事长陈华不再代行董事会秘书职责。</p><br>
-<p>一个月前，贵州茅台原财务总监、董秘蒋焰被留置，其因涉嫌严重违纪违法，接受相关部门的监察调查。</p><br>
-<p>3月30日，贵州茅台召开董事会，会议决定，免去蒋焰公司副总经理、财务总监、董事会秘书职务。</p><br>
-<p>资料显示，余思明曾在中铁建工集团工作，于2015年正式加入茅台；2024年8月起，任贵州茅台集团财务有限公司党支部书记、董事长；2025年1月2日，贵州金融监管局公布相关批复，核准余思明贵州茅台集团财务有限公司董事、董事长的任职资格。</p><br>
-<p>作者：朱文彬责任编辑：宋雅芳</p><br>
+<p>中新社重庆4月21日电 (张旭)重庆海关21日发布消息称，据统计，2026年一季度，重庆外贸进出口总值2215.5亿元(人民币，下同)，同比增长34.3%，创历史同期新高。</p><br>
+<p>其中，出口1537.2亿元，同比增长27%；进口678.3亿元，同比增长54.5%。</p><br>
+<p>2026年一季度，重庆有实绩进出口企业达4357家，创历史同期新高。</p><br>
+<p>2026年一季度，东盟、欧盟为重庆前两大贸易伙伴，重庆对东盟、欧盟分别进出口364.8亿元、291.8亿元，分别同比增长30.2%、31.8%。</p><br>
+<p>同期，重庆对共建“一带一路”国家进出口1023.3亿元，同比增长39.5%；对拉美、非洲等新兴市场进出口分别同比增长37.4%、40.2%。</p><br>
+<p>(完)</p><br>
 <h2>相关推荐</h2><br>
-<h3>城市规划有可能成为「屎山代码」吗？</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md</p><br>
-<h3>女子健身不当 居然“脑子漏水”了</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md</p><br>
-<h3>高质量发展看新疆</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md</p><br>
-<h3>黄晓明夸昆凌引杨颖对比</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md</p><br>
-<h3>古代时期普通老百姓能喝上酒吗？</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md</p><br>
-<h3>大货车掉落螺丝扎进骑手护目镜</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md</p><br>
-<h3>任素汐舞台上唱《王招君》</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md</p><br>
-<h3>天道</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md</p><br>
-<h3>如何改变自己太负责任的性格?</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md</p><br>
-<h3>这几秒成世界杯最值钱广告位</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md</p><br>
-<h3>韩国球迷凌晨4点接机怒骂主教练</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md</p><br>
-<h3>诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md</p><br>
-<h3>勇敢的心第二部</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md</p><br>
+<h3>梅德韦杰夫列举俄罗斯面临的七大挑战</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md</p><br>
+<h3>黄晓明晒和周杰伦的合照</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md</p><br>
+<h3>日本遭读秒绝杀 森保一：我水平不够</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md</p><br>
+<h3>德国北部枪击事件致5死</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md</p><br>
+<h3>流金岁月</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md</p><br>
+<h3>德国罚丢3粒点球</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md</p><br>
+<h3>“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md</p><br>
+<h3>刘宇宁高情商化解谁站C位</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md</p><br>
+<h3>库尼亚赛后伸五指嘲讽日本</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md</p><br>
+<h3>网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md</p><br>
+<h3>有哪些值得一提的生活窍门？</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md</p><br>
+<h3>斗破苍穹</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md</p><br>
+<h3>未来五年，教育强国这样建设</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>papi酱已退出papitube关联公司</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md</p><br>
-<h3>电影抓特务上映11天破亿</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md</p><br>
-<h3>内马尔中场休息积极鼓励队友</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md</p><br>
-<h3>2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md</p><br>
-<h3>中国猪圈装空调让欧洲网友破防</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md</p><br>
-<h3>一见倾心</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md</p><br>
-<h3>德国队世界杯点球大战首败</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md</p><br>
-<h3>世界杯：荷兰vs摩洛哥</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md</p><br>
-<h3>收到补税提醒尽快办理 明起有滞纳金</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md</p><br>
-<h3>DeepSeek启动成立来最大规模招聘</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md</p><br>
-<h3>巴西醒醒 这是淘汰赛</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md</p><br>
-<h3>巴西2比1日本</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md</p><br>
-<h3>现在叛逆期的孩子最怕的是什么？</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md</p><br>
-<h3>歌剧老师锐评歌手第6期</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md</p><br>
-<h3>人可以极简主义到什么程度？</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md</p><br>
+<h3>极端热浪席卷欧洲多国，热一热百姓让领导先凉快？</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md</p><br>
+<h3>内马尔安慰日本球员</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md</p><br>
+<h3>未来五年，教育强国这样建设</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md</p><br>
+<h3>免费试吃发差评被店家挂店门避雷</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md</p><br>
+<h3>日本球迷被强行披上巴西国旗</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md</p><br>
+<h3>papi酱已退出papitube关联公司</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md</p><br>
+<h3>男子P图现任妻子照片冒充前妻</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md</p><br>
+<h3>索马里女大使：想和中国一起搞事业</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md</p><br>
+<h3>诺伊尔尽力了</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md</p><br>
+<h3>人民锐评网红诋毁袁隆平造谣企业家</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md</p><br>
+<h3>王健林甩卖超80座万达广场</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md</p><br>
+<h3>曹雪芹为什么写贾母痛批私定终身，才子佳人小说不是婚姻自主、人文觉醒的反封建文学吗？</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md</p><br>
+<h3>DeepSeek启动成立来最大规模招聘</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md</p><br>
+<h3>世界杯名画巴拉圭钢铁防线</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md</p><br>
+<h3>藤森庆子赢得秘鲁总统选举</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md</p><br>

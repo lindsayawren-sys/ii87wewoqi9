@@ -1,46 +1,46 @@
-<h1>湖南擘画“十五五”新蓝图：持续“攀高” 提升开放能级</h1><br>
+<h1>欧洲央行管委卡扎克斯：欧洲央行不急着加息</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:48:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新网长沙4月13日电 (记者 唐小晴)“十五五”时期是中国基本实现社会主义现代化夯实基础、全面发力的关键时期。13日，湖南官方举行开局起步“十五五”湖南专场新闻发布会，全面解读《湖南省国民经济和社会发展第十五个五年规划纲要》(以下简称《纲要》)，明确未来五年“持续向高攀升、提升开放能级”的核心发展方向，力争在全国发展大局中彰显湖南作为。 “新蓝图”如何契合湖南发展实际？ 据了</p><br>
+<p>欧洲央行管理委员会委员马丁斯・卡扎克斯在接受媒体采访时称，目前没有紧急加息的必要，现行经济数据尚不足以支撑加息操作，当前基准利率为 2%。卡扎克斯表示：“我们仍有充足时间收集数据、研判后续政策走向。”他指出，当前通胀预期总体可控，且截至目前，能源价格上涨对经济体其他领域产生的连锁影响较为有限。他补充道，国际油价已从中东冲突后的高位回落，欧洲天然气价格也远低于 2022 年的水平</p><br>
 <h2>正文</h2><br>
-<p>中新网长沙4月13日电 (记者 唐小晴)“十五五”时期是中国基本实现社会主义现代化夯实基础、全面发力的关键时期。</p><br>
-<p>13日，湖南官方举行开局起步“十五五”湖南专场新闻发布会，全面解读《湖南省国民经济和社会发展第十五个五年规划纲要》(以下简称《纲要》)，明确未来五年“持续向高攀升、提升开放能级”的核心发展方向，力争在全国发展大局中彰显湖南作为。</p><br>
-<p>“新蓝图”如何契合湖南发展实际？</p><br>
-<p>据了解，《纲要》从15个方面绘制了“十五五”时期湖南经济社会发展的“施工图”，聚焦高质量发展从培育发展新动能、提振发展需求、优化发展格局、共享发展成果等领域铺排了一批重大战略任务。</p><br>
-<p>比如，在培育发展新动能方面，湖南要突破一批原创性、前沿性、颠覆性技术成果，建好中非经贸深度合作先行区，力求集聚高质量发展的强大动能，充分发挥经济大省挑大梁的作用。</p><br>
-<p>《纲要》还锚定持续用力打造“三个高地”(国家重要先进制造业高地、具有核心竞争力的科技创新高地、内陆地区改革开放高地)，使其成为湖南高质量发展最鲜明的标识；提出GDP年均增长5%至5.5%，总量达到7.05万亿元至7.22万亿元，相当于目前全球第20位国家瑞士的经济总量；力求通过五年努力，奋力建设一个综合实力更强、创新活力更足、生态环境更美、幸福指数更高的湖南。</p><br>
-<p>这张新蓝图，是如何契合湖南发展实际的？</p><br>
-<p>其一，湖南经济社会发展已站在新的历史起点，综合实力迈上了新台阶，地区生产总值突破5万亿元、达到5.53万亿元、居全国前十强，人均地区生产总值达到8.49万元、年均增长5.6%。</p><br>
+<p>欧洲央行管理委员会委员马丁斯・卡扎克斯在接受媒体采访时称，目前没有紧急加息的必要，现行经济数据尚不足以支撑加息操作，当前基准利率为 2%。</p><br>
+<p>卡扎克斯表示：“我们仍有充足时间收集数据、研判后续政策走向。</p><br>
+<p>”他指出，当前通胀预期总体可控，且截至目前，能源价格上涨对经济体其他领域产生的连锁影响较为有限。</p><br>
+<p>他补充道，国际油价已从中东冲突后的高位回落，欧洲天然气价格也远低于 2022 年的水平。</p><br>
+<p>卡扎克斯称，当前利率水平恰到好处，既不会刺激经济增长，也不会对经济增速形成抑制。</p><br>
+<p>责任编辑：王永生</p><br>
 <h2>相关推荐</h2><br>
-<h3>【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md</p><br>
-<h3>郑钦文温网首轮出局</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md</p><br>
-<h3>这一刀 会很帅</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md</p><br>
-<h3>有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md</p><br>
-<h3>男子P图现任妻子照片冒充前妻</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md</p><br>
-<h3>考入南大计算机，复读考清北值吗？</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md</p><br>
-<h3>董路：谁赢谁是“正路子”</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md</p><br>
-<h3>道友？你来真的啊？【凡人官方二创大会】</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md</p><br>
-<h3>papi酱已退出papitube关联公司</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md</p><br>
-<h3>未来五年，教育强国这样建设</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md</p><br>
-<h3>网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md</p><br>
-<h3>德国巴拉圭进入点球大战</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md</p><br>
-<h3>2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md</p><br>
+<h3>《名肘探科比》：科比大战裂口女</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md</p><br>
+<h3>女子清吧被陌生人投放伟哥</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md</p><br>
+<h3>诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md</p><br>
+<h3>吴启华卖肖像权拍AI电影</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md</p><br>
+<h3>全网说丑的格力玫瑰空调卖了5万台</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md</p><br>
+<h3>为什么香港的冲厕水是咸的？</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md</p><br>
+<h3>斗破苍穹</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md</p><br>
+<h3>我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md</p><br>
+<h3>尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md</p><br>
+<h3>董卿母亲癌症去世</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md</p><br>
+<h3>挪威国家队紧急从本土订购大批海鲜</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md</p><br>
+<h3>张雪的一句“是我们”引发岛内热议</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md</p><br>
+<h3>日本进球</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md</p><br>
+<h3>孙兴慜发长文致歉</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md</p><br>
+<h3>科学备孕男女都要上心</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>老外对中国cosplay竟这样评价…</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md</p><br>
-<h3>王曼昱被突如其来的话筒逗笑了</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md</p><br>
-<h3>杨紫大银幕成绩单</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md</p><br>
-<h3>如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md</p><br>
-<h3>首届《哈基米歌王争霸赛》总决赛</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md</p><br>
-<h3>第一炉香</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md</p><br>
-<h3>美股深夜大反弹 特斯拉飙涨8%</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md</p><br>
-<h3>这些7月新规影响你我</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md</p><br>
-<h3>日本博主：日本足球真的垃圾</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md</p><br>
-<h3>美媒：美军第五舰队司令部已无法使用</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md</p><br>
-<h3>国内最大沙漠发洪水意味着什么</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md</p><br>
-<h3>你人生中最艰难的时候是怎么熬过来的？</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md</p><br>
-<h3>巴西vs日本</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md</p><br>
-<h3>曝iPhone18Pro机密文件现身暗网</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md</p><br>
-<h3>为什么香港的冲厕水是咸的？</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md</p><br>
+<h3>马耳他著名拱门坍塌致中国男子身亡</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md</p><br>
+<h3>男生180+，有腹肌是什么体验？</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md</p><br>
+<h3>四川凉山落石砸毁车辆 3人遇难</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md</p><br>
+<h3>齐思钧回复张月</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md</p><br>
+<h3>如何改变自己太负责任的性格?</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md</p><br>
+<h3>德国巴拉圭 折磨</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md</p><br>
+<h3>任素汐舞台上唱《王招君》</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md</p><br>
+<h3>一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md</p><br>
+<h3>【大鸣王潮1566】真拿你没办法</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md</p><br>
+<h3>英语考了145的人竟然教数学</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md</p><br>
+<h3>输球后日本球迷被强行披上巴西国旗</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md</p><br>
+<h3>中方对白俄罗斯平民伤亡表示关切</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md</p><br>
+<h3>庆祝建党105周年特别节目</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md</p><br>
+<h3>世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md</p><br>
+<h3>王源近几年没有路演了</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md</p><br>

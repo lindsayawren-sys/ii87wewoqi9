@@ -1,43 +1,47 @@
-<h1>无人驾驶智能游船航线亮相“湾区之心”广州南沙</h1><br>
+<h1>长江有色：22日碳酸锂现货价持平 储能需求爆发与供给约束</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:48:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新网广州4月13日电 (记者 王坚)据广州市南沙区政府13日消息，广州南沙首条无人驾驶智能游船航线近日正式亮相。该智能游船凭借全自动航行、一体化智慧座舱及多元化娱乐配套，打造出兼具科技感与舒适性的水上出行新方式，成为广州文旅新亮点。 据介绍，广州南沙蕉门河无人船项目作为粤港澳大湾区海陆空全空间无人体系示范点重点项目，不仅提供了全新的观光体验，更展示了无人驾驶技术在水上交通场景</p><br>
+<p>期货方面： 根据广州期货交易所2026年4月22日收盘数据，碳酸锂主力合约全天呈现震荡整理态势。合约开盘于173，660元/吨，盘中最高触及176，500元/吨，最低下探至172，020元/吨，最终收报于175，240元/吨，较前一交易日结算价上涨400元，日涨幅约0.23%。当日成交活跃，成交量达190，015手，持仓量增加6，901手至430，946手，显示多空双方在当前位</p><br>
 <h2>正文</h2><br>
-<p>中新网广州4月13日电 (记者 王坚)据广州市南沙区政府13日消息，广州南沙首条无人驾驶智能游船航线近日正式亮相。</p><br>
-<p>该智能游船凭借全自动航行、一体化智慧座舱及多元化娱乐配套，打造出兼具科技感与舒适性的水上出行新方式，成为广州文旅新亮点。</p><br>
-<p>据介绍，广州南沙蕉门河无人船项目作为粤港澳大湾区海陆空全空间无人体系示范点重点项目，不仅提供了全新的观光体验，更展示了无人驾驶技术在水上交通场景的成熟应用。</p><br>
-<p>记者看到，从外观来看，无人驾驶智能游船整体采用流畅的流线型船体，整体色调选用简约高级的科技白，充满未来感和动态美学。</p><br>
-<p>走进船舱内，船上没有舵手，却能精准地沿着既定航线前行。</p><br>
-<p>游船以无人驾驶科技为依托，搭载智能导航和智慧操作系统，全程自主平稳航行，彻底告别传统游船操作模式，科技感拉满。</p><br>
-<p>游客在船上可轻松实现一键智能操控，随心调节船上温度、湿度，还能自由切换船舱玻璃私密性，再加上便捷的船上点餐服务，全程沉浸式享受舒适便捷的水上出行体验。</p><br>
-<p>同时游船坐拥360度全景开阔视野，将蕉门河两岸风光一览无余，舱内更是配置多功能电子显示屏KTV音响一体机，兼顾观光与娱乐，打破传统水上游览的单一模式，实现一边游船河，一边唱K。</p><br>
+<p>期货方面： 根据广州期货交易所2026年4月22日收盘数据，碳酸锂主力合约全天呈现震荡整理态势。</p><br>
+<p>合约开盘于173，660元/吨，盘中最高触及176，500元/吨，最低下探至172，020元/吨，最终收报于175，240元/吨，较前一交易日结算价上涨400元，日涨幅约0.23%。</p><br>
+<p>当日成交活跃，成交量达190，015手，持仓量增加6，901手至430，946手，显示多空双方在当前位置分歧加剧，但资金仍呈现净流入态势。</p><br>
+<p>价格在17.5万元/吨附近获得支撑，整体延续了近期高位震荡偏强的格局。</p><br>
+<p>现货方面： 根据长江有色金属网2026年4月22日发布的最新现货行情数据，国内碳酸锂市场呈现高位盘整态势。</p><br>
+<p>电池级碳酸锂（99.5%）市场均价报171，500元/吨，工业级碳酸锂（99.2%）均价报169，500元/吨，价格区间分别为168，500-174，500元/吨和166，500-172，500元/吨，日涨跌幅均为0%。</p><br>
+<p>从供给端审视，2026年全球碳酸锂市场正从过去几年的结构性过剩转向“紧平衡”，有效供给的释放节奏成为核心矛盾。</p><br>
+<p>机构预测2026年全球碳酸锂产量约为213万吨LCE，同比增长28%，但新增产能的释放呈现明显的“前低后高”特征，上半年实际有效增量有限。</p><br>
 <h2>相关推荐</h2><br>
-<h3>啥比桑吉尔夫排位练蓝防（最不抽象的一集）</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md</p><br>
-<h3>女子发现孩子非现任亲生状告前任索赔</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md</p><br>
-<h3>为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md</p><br>
-<h3>大货车掉落螺丝扎进骑手护目镜</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md</p><br>
-<h3>这种关系可能正在悄悄“催老”你</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md</p><br>
-<h3>爱很美味</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md</p><br>
-<h3>库尼亚赛后伸五指嘲讽日本</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md</p><br>
-<h3>第一次对自信的力量有了实感</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md</p><br>
-<h3>补时绝杀 巴西2-1淘汰日本</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md</p><br>
-<h3>哈弗茨崩溃道歉：我们踢得太差了</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md</p><br>
+<h3>巴拉圭先进球了</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md</p><br>
+<h3>电影抓特务上映11天破亿</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md</p><br>
+<h3>妻子撞死家暴丈夫案二审案情反转</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md</p><br>
+<h3>古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md</p><br>
+<h3>道友？你来真的啊？【凡人官方二创大会】</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md</p><br>
+<h3>恐怖世界 第三集 埃温霍姆村</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md</p><br>
+<h3>《我落泪情绪零碎》</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md</p><br>
+<h3>我们看到的星星是不是有些已经不存在了？</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md</p><br>
+<h3>内马尔替补</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md</p><br>
+<h3>曝詹姆斯即将与勇士会面</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md</p><br>
+<h3>这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md</p><br>
+<h3>佐野海舟远射破门</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md</p><br>
+<h3>速度与激情9</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md</p><br>
+<h3>韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md</p><br>
-<h3>锐评T1战胜KC</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md</p><br>
-<h3>英语考了145的人竟然教数学</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md</p><br>
-<h3>法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md</p><br>
-<h3>高考结束了，你会让孩子在家玩手机吗？</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md</p><br>
-<h3>日本将帅赛后采访纷纷哽咽落泪</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md</p><br>
-<h3>杨紫获白玉兰视后争议不止</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md</p><br>
-<h3>iPhoneUltra黑色机模</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md</p><br>
-<h3>为什么会有「念旧」的心理？</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md</p><br>
-<h3>德国北部枪击事件致5死</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md</p><br>
-<h3>日本遭读秒绝杀 森保一：我水平不够</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md</p><br>
-<h3>女子遭下药退赔偿拟追刑责</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md</p><br>
-<h3>梅德韦杰夫列举俄罗斯面临的七大挑战</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md</p><br>
-<h3>韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md</p><br>
-<h3>赵今麦因“瘦而不柴”的体态出圈</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md</p><br>
+<h3>18岁体育生离世由爷爷奶奶抚养长大</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md</p><br>
+<h3>孙兴慜发长文致歉</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md</p><br>
+<h3>日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md</p><br>
+<h3>起风了</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md</p><br>
+<h3>巴拉圭门将</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md</p><br>
+<h3>《恋与深空》被指触碰民族伤痛红线</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md</p><br>
+<h3>德国淘汰</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md</p><br>
+<h3>恋与深空道歉声明</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md</p><br>
+<h3>蜘蛛侠:英雄归来</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md</p><br>
+<h3>董卿父亲报纸上发文悼念亡妻</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md</p><br>
+<h3>世界杯欧洲队7战南美仅1胜</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md</p><br>
+<h3>四川凉山落石砸毁车辆 3人遇难</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md</p><br>
+<h3>低智商犯罪三江口团建来了</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md</p><br>
+<h3>曝灰熊将莫兰特交易至开拓者</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md</p><br>
+<h3>千万不要随便扣肚脐</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md</p><br>

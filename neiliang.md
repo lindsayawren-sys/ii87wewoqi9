@@ -1,44 +1,43 @@
-<h1>太原重工索赔已提交立案，符合要求还可加入</h1><br>
+<h1>美股半导体全线上涨，纳微半导体狂飙20%，热门中概股普跌，爱奇艺跌超5%</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:48:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>登录新浪财经APP 搜索【信披】查看更多考评等级 一、已有案件递交立案 近日，上海沪紫律师事务所刘鹏律师团队已递交了上百位投资者案件提交至全国证券期货交易纠纷调解平台登记。 回溯本案，太原重工于2025年12月26日公告，公司及相关当事人收到西监管局下发的《行政处罚决定书》。一张涉及近2500万元罚款的行政处罚决定书，揭开了太原重工一场持续七年的财务数据粉饰游戏。 据调查，太原</p><br>
+<p>记者|黎雨桐 见习记者林芊蔚 编辑|张楠 北京时间4月21日晚，美股三大指数小幅高开，截至22点，纳指涨0.33%，道指涨0.73%，标普500指数涨0.31%。 大型科技股涨跌不一，苹果跌约0.8%，微软涨超1%。亚马逊涨近2%，据财联社，亚马逊将向Anthropic投资至多250亿美元，而 Anthropic则承诺未来十年将在AWS技术方面投入超过1000亿美元，旨在快速扩</p><br>
 <h2>正文</h2><br>
-<p>登录新浪财经APP 搜索【信披】查看更多考评等级 一、已有案件递交立案 近日，上海沪紫律师事务所刘鹏律师团队已递交了上百位投资者案件提交至全国证券期货交易纠纷调解平台登记。</p><br>
-<p>回溯本案，太原重工于2025年12月26日公告，公司及相关当事人收到西监管局下发的《行政处罚决定书》。</p><br>
-<p>一张涉及近2500万元罚款的行政处罚决定书，揭开了太原重工一场持续七年的财务数据粉饰游戏。</p><br>
-<p>据调查，太原重工的信息披露违法行为主要涉及公司与黑龙江瑞好科技集团有限公司合作的“拉弹泡300MW风电工程项目”。</p><br>
-<p>公司在相关年度通过多种方式操纵财务数据。</p><br>
-<p>依据处罚，于2015年4月11日-2025年7月25日（含当日）期间买入，并在2025年7月26日之后卖出或仍持有而亏损的投资者可报名索赔。</p><br>
-<p>二、多年财报存在造假 具体来看，2014年公司多计营业收入7.57亿元，占当期披露营收的8.39%；多计利润总额1.55亿元，占当期披露利润总额的763.89%，虚增幅度极为显著。</p><br>
-<p>造假行为并非孤例。</p><br>
+<p>记者|黎雨桐 见习记者林芊蔚 编辑|张楠 北京时间4月21日晚，美股三大指数小幅高开，截至22点，纳指涨0.33%，道指涨0.73%，标普500指数涨0.31%。</p><br>
+<p>大型科技股涨跌不一，苹果跌约0.8%，微软涨超1%。</p><br>
+<p>亚马逊涨近2%，据财联社，亚马逊将向Anthropic投资至多250亿美元，而 Anthropic则承诺未来十年将在AWS技术方面投入超过1000亿美元，旨在快速扩充算力。</p><br>
+<p>美股半导体股多数走强，费城半导体指数涨逾1%。</p><br>
+<p>纳微半导体劲升逾20%，月内已累升约80%；迈威尔科技升逾3%，月内已累升逾50%；英特尔、蓝博士半导体涨超2%，闪迪、美光科技、ARM涨超1%。</p><br>
+<p>光通信概念股延续涨势，Lumentum涨2.5%，康宁、Coherent涨超2%。</p><br>
+<p>中概科技龙头集体下挫，阿里巴巴、腾讯、百度、京东均跌超1%，比亚迪、网易跌近2%，拼多多跌超2%。</p><br>
+<p>纳斯达克中国金龙指数跌1%，联掌门户跌超13%，化工股德克森跌10%，爱奇艺跌超5%，再鼎医药、世纪互联跌超4%，哔哩哔哩跌超3%。</p><br>
 <h2>相关推荐</h2><br>
-<h3>2021湖南卫视跨年演唱会</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md</p><br>
-<h3>国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md</p><br>
-<h3>巴西在进攻三区完成210脚传球</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md</p><br>
-<h3>警方介入洪明甫死亡威胁</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md</p><br>
-<h3>花少8要去世界杯举办国</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md</p><br>
-<h3>英语考了145的人竟然教数学</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md</p><br>
-<h3>低智商犯罪三江口团建来了</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md</p><br>
-<h3>美股</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md</p><br>
-<h3>男子P图现任妻子照片冒充前妻</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md</p><br>
-<h3>赵今麦因“瘦而不柴”的体态出圈</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md</p><br>
-<h3>田曦薇这是日常不是广告</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md</p><br>
+<h3>科学备孕男女都要上心</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md</p><br>
+<h3>hanser X 赖美云《室内系的Track Maker》</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md</p><br>
+<h3>男子醉酒溺水获救后同行人拒协助抬人</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md</p><br>
+<h3>曝灰熊将莫兰特交易至开拓者</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md</p><br>
+<h3>输球后日本球迷被强行披上巴西国旗</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md</p><br>
+<h3>小娘惹</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md</p><br>
+<h3>我吃遍了西安最強的街頭小吃，第九家強得離譜！</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md</p><br>
+<h3>大学生遇地震裹被子从5楼冲下</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md</p><br>
+<h3>内马尔替补</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md</p><br>
+<h3>教育部披露：高考生篡改7名同学志愿</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>沙丘</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md</p><br>
-<h3>日本博主：日本足球真的垃圾</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md</p><br>
-<h3>周生如故</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md</p><br>
-<h3>要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md</p><br>
-<h3>李在明向韩国两大财阀90度鞠躬</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md</p><br>
-<h3>世界杯：荷兰vs摩洛哥</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md</p><br>
-<h3>2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md</p><br>
-<h3>首届《哈基米歌王争霸赛》总决赛</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md</p><br>
-<h3>房价什么时候能涨</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md</p><br>
-<h3>你人生中最艰难的时候是怎么熬过来的？</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md</p><br>
-<h3>我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md</p><br>
-<h3>找到了10年前跪舔b站的视频</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md</p><br>
-<h3>挪威国家队紧急从本土订购大批海鲜</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md</p><br>
-<h3>荷兰vs摩洛哥</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md</p><br>
-<h3>可以细成这样？1600万预算，颠覆我认知的改造！</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md</p><br>
+<h3>小娘惹</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md</p><br>
+<h3>豆包收费了，你还会用吗？</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md</p><br>
+<h3>刘宇宁是去进货了吗</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md</p><br>
+<h3>蜘蛛侠:英雄归来</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md</p><br>
+<h3>普京为何将俄乌谈判时间表与伊朗挂钩</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md</p><br>
+<h3>奔跑吧·黄河篇第二季</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md</p><br>
+<h3>千与千寻</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md</p><br>
+<h3>致敬！中国首批缉毒警已全体退休</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md</p><br>
+<h3>德国主帅称无法理解加时进球被吹</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md</p><br>
+<h3>韩国世界杯出局是主帅一个人的锅吗</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md</p><br>
+<h3>流金岁月</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md</p><br>
+<h3>卖菜老人获博主帮助后遇车祸去世</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md</p><br>
+<h3>吴启华卖肖像权拍AI电影</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md</p><br>
+<h3>爆冷出局！德国点球大战不敌巴拉圭</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md</p><br>
+<h3>张碧晨一开口梦回逐玉</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md</p><br>

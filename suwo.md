@@ -1,48 +1,43 @@
-<h1>3月末中国M2余额同比增长8.5%</h1><br>
+<h1>湖南茶叶产量超30万吨 综合产值突破1250亿元</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:48:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新社北京4月13日电 (记者 刘文文)中国人民银行13日发布的数据显示，3月末，广义货币(M2)余额353.86万亿元(人民币，下同)，同比增长8.5%。狭义货币(M1)余额119.32万亿元，同比增长5.1%。 贷款方面，3月末人民币贷款余额280.51万亿元，同比增长5.7%。一季度人民币贷款增加8.6万亿元，分部门看，住户贷款增加2967亿元；企(事)业单位贷款增加8.</p><br>
+<p>中新网长沙4月21日电(向一鹏 戚宁)截至2025年底，湖南茶园面积326.7万亩，茶叶产量30.16万吨，综合产值突破1250亿元，构建起覆盖种植、加工、流通、文旅、文创的全产业链发展格局。 21日在长沙举行的2026茶祖节暨湖南沅陵碣滩茶文化旅游节新闻发布会，对外透露了上述信息。 2026茶祖节组委会副主任、湖南省供销合作总社党组成员、理事会副主任张军介绍，此次活动于4月2</p><br>
 <h2>正文</h2><br>
-<p>中新社北京4月13日电 (记者 刘文文)中国人民银行13日发布的数据显示，3月末，广义货币(M2)余额353.86万亿元(人民币，下同)，同比增长8.5%。</p><br>
-<p>狭义货币(M1)余额119.32万亿元，同比增长5.1%。</p><br>
-<p>贷款方面，3月末人民币贷款余额280.51万亿元，同比增长5.7%。</p><br>
-<p>一季度人民币贷款增加8.6万亿元，分部门看，住户贷款增加2967亿元；企(事)业单位贷款增加8.6万亿元；非银行业金融机构贷款减少3680亿元。</p><br>
-<p>M1比M2的流动性更强、在支付交易中使用更为便捷，能够更好反映社会经济活动的活跃程度。</p><br>
-<p>业内专家分析，2025年下半年以来，M1增速中枢明显回升，带动M2-M1剪刀差连续10个月保持在5个百分点以内。</p><br>
-<p>当前M2-M1剪刀差保持在相对低位，表明资金活化程度、循环效率不断提高。</p><br>
-<p>值得注意的是，一季度信贷增长呈现出更加平稳均衡的特征。</p><br>
+<p>中新网长沙4月21日电(向一鹏 戚宁)截至2025年底，湖南茶园面积326.7万亩，茶叶产量30.16万吨，综合产值突破1250亿元，构建起覆盖种植、加工、流通、文旅、文创的全产业链发展格局。</p><br>
+<p>21日在长沙举行的2026茶祖节暨湖南沅陵碣滩茶文化旅游节新闻发布会，对外透露了上述信息。</p><br>
+<p>2026茶祖节组委会副主任、湖南省供销合作总社党组成员、理事会副主任张军介绍，此次活动于4月28日至5月20日举办，以“弘扬茶祖文化 促进茶旅融合”为主题，立足沅陵碣滩茶千年贡茶底蕴与生态优势，推动茶文化、茶产业、茶科技深度融合，联动生态旅游、乡村振兴全面发展，全力打响碣滩茶区域公用品牌，为湖南加快建设茶业强省注入强劲动力。</p><br>
+<p>沅陵县副县长钟群英介绍，目前沅陵茶园面积18.3万亩，茶叶加工企业130余家，2025年产量1.53万吨，综合产值23亿元，辐射带动12万涉茶人口、5000余户脱贫户持续增收，人均年增收超800元，实现“一片叶子富一方百姓”。</p><br>
+<p>本届茶祖节精心策划了开幕式、碣滩茶非遗展示展销暨全民品鉴活动、茶旅融合沉浸式体验暨采风活动等七大主题活动，兼顾文化性、专业性、体验性、传播性，为各界呈现一场特色鲜明、务实高效、影响广泛的茶文旅盛宴。</p><br>
+<p>近年来，湖南茶产业呈现规模稳步扩大、质量持续提升、品牌更加响亮、融合不断深化的良好态势，茶产业已成为湖南特色优势产业、乡村振兴支柱产业、富民增收民生产业。</p><br>
+<p>湖南省农业农村厅总农艺师张志刚表示，今年湖南将紧扣“强链、补链、延链”发展目标，重点实施推进品牌体系建设行动、推进龙头企业集聚行动、推进“湘茶出湘”拓展市场行动等六大行动，推动湖南茶产业在高质量发展上再创新佳绩。</p><br>
+<p>据了解，茶祖节是经文化和旅游部审批保留、湖南省重点打造的茶文化节庆品牌，自2009年创办以来已连续举办17届，成为全国极具影响力的茶事活动平台。</p><br>
 <h2>相关推荐</h2><br>
-<h3>你的妻子大喷菇—《植物娘大战僵尸》特别篇</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md</p><br>
-<h3>《赛博朋克：边缘行者 2》｜官方预告片</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md</p><br>
-<h3>手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md</p><br>
-<h3>杨紫大银幕成绩单如何</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md</p><br>
-<h3>五哈和他们的朋友</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md</p><br>
-<h3>女子遭下药退赔偿拟追刑责</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md</p><br>
-<h3>扫黑风暴</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md</p><br>
-<h3>恋与深空回应争议</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md</p><br>
-<h3>董卿母亲癌症去世</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md</p><br>
-<h3>委内瑞拉地震死亡人数升至1719人</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md</p><br>
-<h3>亚洲球队全部告别世界杯</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md</p><br>
-<h3>豆包收费了，你还会用吗？</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md</p><br>
-<h3>逃狱兄弟</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md</p><br>
-<h3>莫兰特转投开拓者效力</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md</p><br>
-<h3>韩国世界杯出局是主帅一个人的锅吗</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md</p><br>
+<h3>王楚钦说配合稍微有些陌生感</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md</p><br>
+<h3>巴西2-1绝杀日本</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md</p><br>
+<h3>卢卡申科发布解放军仪仗队视频</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md</p><br>
+<h3>博世们还在犹豫 美的们已经卖断货</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md</p><br>
+<h3>如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md</p><br>
+<h3>博世们还在犹豫 美的们已经卖断货</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md</p><br>
+<h3>国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md</p><br>
+<h3>郑钦文温网一轮游</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md</p><br>
+<h3>被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md</p><br>
+<h3>《贺子珍》</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>孙颖莎王楚钦晋级8强</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md</p><br>
-<h3>老外对中国cosplay竟这样评价…</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md</p><br>
-<h3>日本遭读秒绝杀 森保一：我水平不够</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md</p><br>
-<h3>2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md</p><br>
-<h3>勇敢的心第二部</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md</p><br>
-<h3>一见倾心</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md</p><br>
-<h3>世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md</p><br>
-<h3>韩国球迷凌晨4点接机怒骂主教练</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md</p><br>
-<h3>沉睡花园</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md</p><br>
-<h3>国内最大沙漠发洪水意味着什么</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md</p><br>
-<h3>"超算小姐，这一次，我一定要带你出去..."</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md</p><br>
-<h3>千万不要随便扣肚脐</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md</p><br>
-<h3>郑钦文温网三连败西尼亚科娃</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md</p><br>
-<h3>我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md</p><br>
-<h3>诺伊尔尽力了</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md</p><br>
+<h3>德国爆冷点球大战不敌巴拉圭</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md</p><br>
+<h3>AI手机进入Agent时代</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md</p><br>
+<h3>hanser X 赖美云《室内系的Track Maker》</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md</p><br>
+<h3>如何评价DeepSeek 提出的 DSpark 推理加速方案？</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md</p><br>
+<h3>穆祉丞回应获年度人气艺人</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md</p><br>
+<h3>深扒韩国队淘汰背后原因</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md</p><br>
+<h3>萨内 看笑了</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md</p><br>
+<h3>董卿母亲癌症去世</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md</p><br>
+<h3>浪姐成团夜爆笑吐槽</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md</p><br>
+<h3>莫兰特转投开拓者效力</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md</p><br>
+<h3>千与千寻</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md</p><br>
+<h3>刘宇宁高情商化解谁站C位</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md</p><br>
+<h3>如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md</p><br>
+<h3>承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md</p><br>
+<h3>马宁怒怼巴拉圭教练组</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md</p><br>

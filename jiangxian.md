@@ -1,48 +1,44 @@
-<h1>父母跟AI“促膝长谈”，AI可以成为老辈子们的“数字拐杖”吗？</h1><br>
+<h1>辽宁出台三年行动计划 2028年实现规上工业企业智改数转全覆盖</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:48:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>——“我老了，就是在家种点菜，我不会聊天。” AI：“这身体底子多好呀，自己种的菜吃着也新鲜健康。平时种菜累不累呀？” ——“老累呀，种的豌豆角、兰花豆，都弯腰一棵一棵地种上。” AI：“自己种的菜收起来肯定特别有成就感吧，这些菜是自己吃还是分给家里人呀？”——“自己吃，吃不完我就蹬个三轮到城里去换个钱。” AI：“骑个小三轮去换钱，既能活动筋骨，又能有点小收入，这日子过得挺充</p><br>
+<p>中新网沈阳4月22日电(记者 王景巍)4月22日，在辽宁省政府新闻办召开的新闻发布会上，辽宁省工业和信息化厅副厅长郑岩解读了《辽宁省深化制造业智能化改造数字化转型三年行动计划(2026－2028年)》(以下简称《三年行动计划》)。郑岩称，到2028年，辽宁省规模以上工业企业将实现智改数转全覆盖，关键工序数控化率、数字化研发设计工具普及率等主要指标进入全国前十行列。郑岩表示，截至</p><br>
 <h2>正文</h2><br>
-<p>——“我老了，就是在家种点菜，我不会聊天。</p><br>
-<p>” AI：“这身体底子多好呀，自己种的菜吃着也新鲜健康。</p><br>
-<p>平时种菜累不累呀？</p><br>
-<p>” ——“老累呀，种的豌豆角、兰花豆，都弯腰一棵一棵地种上。</p><br>
-<p>” AI：“自己种的菜收起来肯定特别有成就感吧，这些菜是自己吃还是分给家里人呀？</p><br>
-<p>”——“自己吃，吃不完我就蹬个三轮到城里去换个钱。</p><br>
-<p>” AI：“骑个小三轮去换钱，既能活动筋骨，又能有点小收入，这日子过得挺充实呢！</p><br>
-<p>” ——“哎，是哩是哩。</p><br>
+<p>中新网沈阳4月22日电(记者 王景巍)4月22日，在辽宁省政府新闻办召开的新闻发布会上，辽宁省工业和信息化厅副厅长郑岩解读了《辽宁省深化制造业智能化改造数字化转型三年行动计划(2026－2028年)》(以下简称《三年行动计划》)。</p><br>
+<p>郑岩称，到2028年，辽宁省规模以上工业企业将实现智改数转全覆盖，关键工序数控化率、数字化研发设计工具普及率等主要指标进入全国前十行列。</p><br>
+<p>郑岩表示，截至目前，辽宁数字化研发设计工具普及率达到86.7%，位列全国第13位；关键工序数控化率达到69.9%，位列全国第10位。</p><br>
+<p>但辽宁省仍有38.7%的规上工业企业尚未跨过数字化转型门槛，深度开展改造的仅占10.2%。</p><br>
+<p>为此，辽宁省从“普及、提升、培优”三个维度部署实施“6项行动”，着力破解企业“缺方案不敢转、缺技术不会转、缺数据不能转、缺资金不愿转”的困境。</p><br>
+<p>根据《三年行动计划》，辽宁省将实施规上工业企业诊断全覆盖，政府免费提供“一企一策”诊断服务；强化龙头企业标杆示范，规模化建设基础级、先进级智能工厂，全年新增80家以上先进级智能工厂；实施工业互联网创新发展行动，支持重点产业集群建设产业大脑，统筹智算中心建设，打造高质量行业数据集。</p><br>
+<p>在资金支持方面，辽宁省明确由省级财政支持企业免费诊断、试点城市项目、产业大脑建设，对智改数转项目给予累计不超过一年贷款期LPR80%的贴息支持。</p><br>
+<p>每个省级中小企业数字化试点城市给予最高2000万元人民币资金支持，重点支持企业开展软、硬件支出，切实降低转型门槛。</p><br>
 <h2>相关推荐</h2><br>
-<h3>天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md</p><br>
-<h3>王菲谢霆锋十指紧扣好甜</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md</p><br>
-<h3>德国队回应爆冷淘汰</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md</p><br>
-<h3>王楚钦孙颖莎vs皮斯特耶库库洛娃</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md</p><br>
-<h3>韩国球迷凌晨4点接机怒骂主教练</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md</p><br>
-<h3>哪部作品、哪本书、哪首歌，值得被一直传下去？</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md</p><br>
-<h3>国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md</p><br>
-<h3>穆祉丞回应获年度人气艺人</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md</p><br>
-<h3>千香</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md</p><br>
-<h3>小娘惹</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md</p><br>
-<h3>追梦拒绝2770万美元球员选项</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md</p><br>
-<h3>德国北部枪击事件致5死</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md</p><br>
-<h3>日本进球</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md</p><br>
-<h3>⚡逼尔摩斯教你玩球⚡</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md</p><br>
-<h3>杨紫大银幕成绩单</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md</p><br>
+<h3>莫兰特被交易到开拓者</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md</p><br>
+<h3>咕嘎万能小摊1：沉浸式制作惠灵顿牛排</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md</p><br>
+<h3>想问一下学日语的大佬，自学日语要怎么学？</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md</p><br>
+<h3>庆祝中国共产党成立105周年大会将举行</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md</p><br>
+<h3>高考填志愿父亲和女儿产生分歧</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md</p><br>
+<h3>补时绝杀 巴西2-1淘汰日本</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md</p><br>
+<h3>啥比桑吉尔夫排位练蓝防（最不抽象的一集）</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md</p><br>
+<h3>网红峡谷5人溺亡 有人提醒会下雨</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md</p><br>
+<h3>MSI应援曲 如果季中成回忆</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md</p><br>
+<h3>德国队连续三届世界杯无缘16强</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md</p><br>
+<h3>李在明90度鞠躬感谢韩国两大财阀</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>日本主帅赛后回应淘汰出局</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md</p><br>
-<h3>欧洲装一台空调有多难</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md</p><br>
-<h3>2026年WTT美国大满贯，国乒自带球桌是真实的吗？</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md</p><br>
-<h3>杨紫大银幕成绩单</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md</p><br>
-<h3>点球大战</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md</p><br>
-<h3>德国巴拉圭加时</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md</p><br>
-<h3>日耳曼拖拉机</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md</p><br>
-<h3>欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md</p><br>
-<h3>有哪些值得一提的生活窍门？</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md</p><br>
-<h3>名记：灰熊将莫兰特交易至开拓者</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md</p><br>
-<h3>【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md</p><br>
-<h3>《我落泪情绪零碎》</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md</p><br>
-<h3>一切民族英雄都是中华民族的脊梁</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md</p><br>
-<h3>为什么香港的冲厕水是咸的？</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md</p><br>
-<h3>刘宇宁高情商化解谁站C位</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md</p><br>
+<h3>中国新一轮出口管制直指日本命脉</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md</p><br>
+<h3>金刚川</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md</p><br>
+<h3>找到了10年前跪舔b站的视频</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md</p><br>
+<h3>古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md</p><br>
+<h3>AI手机进入Agent时代</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md</p><br>
+<h3>巴西绝杀日本：漫画般结局换了主角</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md</p><br>
+<h3>德国巴拉圭加时</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md</p><br>
+<h3>浪姐成团夜爆笑吐槽</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md</p><br>
+<h3>法媒点赞中国小区楼顶“人工降雨”</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md</p><br>
+<h3>日耳曼拖拉机</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md</p><br>
+<h3>“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md</p><br>
+<h3>王楚钦孙颖莎vs皮斯特耶库库洛娃</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md</p><br>
+<h3>沙丘</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md</p><br>
+<h3>我设置了全宇宙最安全的密码</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md</p><br>
+<h3>金鹰奖视后提名预测</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md</p><br>

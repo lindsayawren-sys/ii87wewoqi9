@@ -1,47 +1,44 @@
-<h1>德国马普学会主席新书《未来之问》中文版在北京首发</h1><br>
+<h1>中国大陆首条极地运行的货运航线正式启运</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:48:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新网北京4月13日电 (记者 孙自法)德国马克斯·普朗克学会(马普学会)主席、国际知名分子生物学家帕特里克·克拉玛(Patrick Cramer)新书《未来之问》中文版，4月13日下午在北京首发，为中德科技界和出版界深化交流合作提供了新的契机。 新书首发式在“面向明日科学的跨学科对话”——《未来之问》中文版出版研讨会上举行，帕特里克·克拉玛出席并作主旨报告表示，面向未来，科学</p><br>
+<p>中新网广州4月22日电 (记者 郭军)4月21日，随着满载货物的CZ2544货运航班从纽约腾空而起飞往广州，南航物流北美主干货运航线迈入极地运行新阶段，该航线也是中国大陆首条极地运行的货运航线，将为进一步提升广州国际航空物流枢纽双向辐射能力、构建绿色高效航空物流体系提供坚实支撑。 记者22日从南航物流了解到，作为连接中国与北美洲的最短空中通道，极地航路利用地球球面几何特性，可大</p><br>
 <h2>正文</h2><br>
-<p>中新网北京4月13日电 (记者 孙自法)德国马克斯·普朗克学会(马普学会)主席、国际知名分子生物学家帕特里克·克拉玛(Patrick Cramer)新书《未来之问》中文版，4月13日下午在北京首发，为中德科技界和出版界深化交流合作提供了新的契机。</p><br>
-<p>新书首发式在“面向明日科学的跨学科对话”——《未来之问》中文版出版研讨会上举行，帕特里克·克拉玛出席并作主旨报告表示，面向未来，科学不仅需要持续推进基础研究和原始创新，也需要在开放合作中更好回应全球共同挑战。</p><br>
-<p>帕特里克·克拉玛还系统分享了对未来科学、学科交叉和国际合作的思考，并介绍当代科学在宇宙研究、生态保护、人类演化、生命科学、人工智能、绿色化学以及时间与审美等领域的前沿探索，他认为，许多今天看似遥远的问题，正在成为决定人类未来的重要课题。</p><br>
-<p>本次对话研讨会由中国科学院国际合作局主办、中国科学院自然科学史研究所承办，与会专家学者聚焦“穿越时空的对话：从宇宙起源到人类审美”这一主题，回应当今世界面临的气候变化与能源转型、人工智能与社会治理、人口老龄化与生命健康、科学发展与文明未来等一系列重大问题，展开一场跨越国界、跨越学科的高层次学术对话。</p><br>
-<p>中国科学院自然科学史研究所副所长关晓武研究员主持活动时表示，科学史不仅帮助人们理解科学如何发展，也有助于思考科学如何塑造人类对自然、社会和未来的认识。</p><br>
-<p>该所长期致力于科学史、技术史、科学文化和国际科技交流研究，本次活动是促进科学传播与文明互鉴的一次重要实践。</p><br>
-<p>在圆桌对话环节，专家学者围绕“宇宙、生态与人类的位置”“生命、智能与绿色未来”“时间、审美与科学文化”三大板块展开深入讨论。</p><br>
-<p>他们指出，面向未来的科学发展越来越依赖基础研究的持续积累、不同学科之间的深度融合，以及科学共同体之间的开放合作。</p><br>
+<p>中新网广州4月22日电 (记者 郭军)4月21日，随着满载货物的CZ2544货运航班从纽约腾空而起飞往广州，南航物流北美主干货运航线迈入极地运行新阶段，该航线也是中国大陆首条极地运行的货运航线，将为进一步提升广州国际航空物流枢纽双向辐射能力、构建绿色高效航空物流体系提供坚实支撑。</p><br>
+<p>记者22日从南航物流了解到，作为连接中国与北美洲的最短空中通道，极地航路利用地球球面几何特性，可大幅压缩跨太平洋航线的飞行距离。</p><br>
+<p>此次南航物流打造的北美至广州的极地货运航线，由具备超远程飞行能力的波音777F全货机执飞，该机型最大业载可达105吨，能够充分满足大宗跨境货物的运输需求。</p><br>
+<p>航线穿越北极区域上空，避开了传统太平洋航路的高空急流影响，飞行时间较传统航路缩短约40分钟，同时显著降低燃油消耗与碳排放，兼具时效优势与绿色低碳价值。</p><br>
+<p>为满足极地条件下的安全运行标准，南航物流围绕飞机适航与保障能力开展了一系列关键改装升级，确保极地航行中机组与地面的数据链路不间断，同时为极地运行飞行团队开展针对性专项培训，全方位筑牢航班运行的安全防线。</p><br>
+<p>南航物流相关负责人表示，这一升级不仅能让进口的生产原材料、关键零部件及优质消费品更高效、更环保地通达广州枢纽，畅通大湾区进口物流通道、赋能本地制造业产业链稳定升级，同时通过国际货运航班运营效率的提升，为广州始发的航班预留更充足的地面保障窗口。</p><br>
+<p>(完)</p><br>
 <h2>相关推荐</h2><br>
-<h3>起风了</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md</p><br>
-<h3>库尼亚赛后伸五指嘲讽日本</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md</p><br>
-<h3>佐野海舟远射破门</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md</p><br>
-<h3>索马里女大使：想和中国一起搞事业</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md</p><br>
-<h3>“中国养猪场都用上空调了”！这是真的吗？【主播说三农】</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md</p><br>
-<h3>湖北云南这些涉汛信息都是假的</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md</p><br>
-<h3>【涤墨作战7人870】望：我从地狱杀回来了！</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md</p><br>
-<h3>恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md</p><br>
-<h3>找到了10年前跪舔b站的视频</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md</p><br>
-<h3>陈幸同晋级WTT美国大满贯女单32强</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md</p><br>
-<h3>全网说丑的格力玫瑰空调卖了5万台</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md</p><br>
-<h3>第一炉香</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md</p><br>
-<h3>世界杯欧洲队7战南美仅1胜</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md</p><br>
-<h3>哈弗茨崩溃道歉：我们踢得太差了</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md</p><br>
+<h3>2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md</p><br>
+<h3>孙兴慜发长文致歉</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md</p><br>
+<h3>速度与激情9</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md</p><br>
+<h3>国内最大沙漠发洪水意味着什么</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md</p><br>
+<h3>如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md</p><br>
+<h3>女儿从清华毕业 爸爸晒出17年对比照</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md</p><br>
+<h3>你这一辈子有没有为进山姆拼过命？</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md</p><br>
+<h3>巴西绝杀日本</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md</p><br>
+<h3>如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md</p><br>
+<h3>国务院：鼓励行业龙头企业举办职校</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md</p><br>
+<h3>日本队5进世界杯淘汰赛0胜</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md</p><br>
+<h3>极端热浪席卷欧洲多国，热一热百姓让领导先凉快？</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>泰山建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md</p><br>
-<h3>《恋与深空》被指触碰民族伤痛红线</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md</p><br>
-<h3>巴西把自己踢晕了</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md</p><br>
-<h3>逃狱兄弟</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md</p><br>
-<h3>女子清吧被陌生人投放伟哥</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md</p><br>
-<h3>荷兰vs摩洛哥</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md</p><br>
-<h3>千万不要随便扣肚脐</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md</p><br>
-<h3>美股收盘 热门中概股普涨</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md</p><br>
-<h3>巴西足球能否再现昔日荣光</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md</p><br>
-<h3>索马里女大使：想和中国一起搞事业</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md</p><br>
-<h3>网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md</p><br>
-<h3>如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md</p><br>
-<h3>荷兰vs摩洛哥</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md</p><br>
-<h3>爱很美味</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md</p><br>
-<h3>已经看完《三国第一部：争洛阳》的人，如何评价这部电影？</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md</p><br>
+<h3>高考填志愿父亲和女儿产生分歧</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md</p><br>
+<h3>“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md</p><br>
+<h3>黄晓明晒和周杰伦的合照</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md</p><br>
+<h3>郑钦文温网三连败西尼亚科娃</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md</p><br>
+<h3>我设置了全宇宙最安全的密码</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md</p><br>
+<h3>世界杯</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md</p><br>
+<h3>81岁老人被男子买光菜回家车祸去世</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md</p><br>
+<h3>苗族银饰</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md</p><br>
+<h3>全新问界M9现身美国街头</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md</p><br>
+<h3>法总统候选人：拒绝与中国激烈对抗</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md</p><br>
+<h3>金刚川</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md</p><br>
+<h3>第一次对自信的力量有了实感</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md</p><br>
+<h3>为什么很多企业推行“扁平化管理”后，效率反而下降了？</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md</p><br>
+<h3>韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md</p><br>
+<h3>我和我的家乡</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md</p><br>
