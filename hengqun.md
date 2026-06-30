@@ -1,61 +1,60 @@
-# SpaceX上市交易次日飙升20% 市值增加4120亿美元
+# 从永续合约行情来看，SpaceX上市首日股价有望大涨两位数
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-SpaceX股价在上市第二个交易日继续大涨，延续该公司在上周五上市首日便跻身全球市值最高的上市公司行列的耀眼表现。 SpaceX周一上涨20%，市值增加4120亿美元。SpaceX收报每股192.46美元，较135美元的IPO发行价高出逾42%。此次上涨推动SpaceX市值突破2.5万亿美元，跻身全球市值前六高的上市公司之列。 按照当前市值计算，SpaceX距离超越市值接近2.
+核心要点 参与 SpaceX 上市前永续合约交易的加密货币交易者普遍预期，这家备受市场追捧的太空企业上市首日将迎来大幅上涨。 Hyperliquid 是一家以高频、高杠杆加密货币交易者为主的交易平台，平台上 SpaceX 上市前永续合约现价约 162 美元，较 135 美元的固定 IPO 发行价高出 20%；但该合约 5 月刚上线时价格曾突破 220 美元，如今跌幅显著。币安平
 
 ## 正文
 
-SpaceX股价在上市第二个交易日继续大涨，延续该公司在上周五上市首日便跻身全球市值最高的上市公司行列的耀眼表现。
+核心要点 参与 SpaceX 上市前永续合约交易的加密货币交易者普遍预期，这家备受市场追捧的太空企业上市首日将迎来大幅上涨。
 
-SpaceX周一上涨20%，市值增加4120亿美元。
+Hyperliquid 是一家以高频、高杠杆加密货币交易者为主的交易平台，平台上 SpaceX 上市前永续合约现价约 162 美元，较 135 美元的固定 IPO 发行价高出 20%；但该合约 5 月刚上线时价格曾突破 220 美元，如今跌幅显著。
 
-SpaceX收报每股192.46美元，较135美元的IPO发行价高出逾42%。
+币安平台的 SpaceX 永续合约交易价格也处于相近区间。
 
-此次上涨推动SpaceX市值突破2.5万亿美元，跻身全球市值前六高的上市公司之列。
+据消息称，马斯克旗下这家火箭企业本次 IPO 认购超额四倍，投资者需求规模约为发行流通股份数量的四倍。
 
-按照当前市值计算，SpaceX距离超越市值接近2.7万亿美元的亚马逊相差不到1350亿美元。
+SpaceX 将于本周五在纳斯达克挂牌交易。
 
-SpaceX周一在声明中表示，公司已行使IPO的超额配售权，允许承销商额外发售8330万股股票。
+企业估值达 1.77 万亿美元，上市后将立刻跻身全美第七大上市公司，超越当前市值约 1.6 万亿美元的特斯拉。
 
-这一俗称“绿鞋”机制的操作使融资总额增至862亿美元。
+去中心化金融基础设施企业 Injective Labs 联合创始人兼首席执行官埃里克・陈表示：“Hyperliquid 平台的永续合约反映出市场对 SpaceX IPO 存在投资兴趣，但并未出现狂热炒作情绪。
 
-扣除招股说明书中列示的5亿美元承销费用后，募资额为857亿美元。
+该市场以风险承受能力高的高频交易者为主，相比其他 IPO 前置资产，其给出的溢价并不算夸张。
 
 ## 相关推荐
 
-- 2026-06-30 08:43 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
-- 2026-06-30 08:49 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-30 08:31 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-30 08:30 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-30 08:56 - [追梦拒绝2770万美元球员选项](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-30 08:47 - [王濛回复黄灿灿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-30 08:37 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-30 08:51 - [德国巴拉圭进入点球大战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
-- 2026-06-30 08:35 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-30 08:44 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-30 08:35 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-30 08:35 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
-- 2026-06-30 08:53 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-30 08:37 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-30 08:46 - [武磊：巴西队赢的并不轻松](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-30 08:39 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
+- 2026-06-30 08:56 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-30 08:54 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-30 08:49 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-30 08:50 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-30 08:36 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-30 08:37 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-30 08:47 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-30 08:53 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
+- 2026-06-30 08:49 - [董路：谁赢谁是“正路子”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-30 08:42 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-30 08:50 - [黄晓明夸昆凌引杨颖对比](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-30 08:47 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-30 08:51 - [电影抓特务上映11天破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:54 - [全球芯片巨头史诗级扩产](https://www.blog.kurohicncr.top/Article/details/198867.shtml)
-- 2026-06-30 08:46 - [刘宇宁是去进货了吗](https://www.share.kurohicncr.top/Article/details/27827221994.shtml)
-- 2026-06-30 08:45 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/520618356650.shtml)
-- 2026-06-30 08:41 - [德国淘汰](http://www.blog.minike.top/Article/details/49897919.shtml)
-- 2026-06-30 08:37 - [荷兰vs摩洛哥](http://www.share.kurohicncr.top/Article/details/51524562.shtml)
-- 2026-06-30 08:40 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/17267.shtml)
-- 2026-06-30 08:57 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/89128675.shtml)
-- 2026-06-30 08:32 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/99412015965.shtml)
-- 2026-06-30 08:48 - [第3集丨“柠檬茶能换怀表？”](https://www.blog.minike.top/Article/details/13232846693.shtml)
-- 2026-06-30 08:53 - [巴西醒醒 这是淘汰赛](https://www.share.minike.top/Article/details/83142062.shtml)
-- 2026-06-30 08:30 - [荷兰vs摩洛哥](http://www.blog.minike.top/Article/details/524236012395.shtml)
-- 2026-06-30 08:34 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/845673.shtml)
-- 2026-06-30 08:51 - [日本将帅赛后采访纷纷哽咽落泪](https://www.share.kurohicncr.top/Article/details/28531.shtml)
-- 2026-06-30 08:35 - [张帅时隔四年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/887247958.shtml)
-- 2026-06-30 08:46 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/436578260738.shtml)
+- 2026-06-30 08:37 - [日本淘汰](https://www.share.minike.top/Article/details/63952396808.shtml)
+- 2026-06-30 08:50 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/038273390.shtml)
+- 2026-06-30 08:51 - [莫兰特转投开拓者效力](http://www.blog.minike.top/Article/details/017322177903.shtml)
+- 2026-06-30 08:45 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/16976820.shtml)
+- 2026-06-30 09:05 - [勇士续约波尔津吉斯](https://www.blog.minike.top/Article/details/71651348.shtml)
+- 2026-06-30 08:57 - [点球淘汰德国 巴拉圭首都陷入疯狂](https://www.share.minike.top/Article/details/49440670210.shtml)
+- 2026-06-30 09:05 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/76867200880.shtml)
+- 2026-06-30 08:46 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/6931125357.shtml)
+- 2026-06-30 09:04 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/5852095916.shtml)
+- 2026-06-30 08:37 - [赛博朋克边缘行者2预告片](http://www.share.minike.top/Article/details/5624987218.shtml)
+- 2026-06-30 08:52 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/5390016647.shtml)
+- 2026-06-30 08:47 - [覃予萱晋级WTT美国大满贯女单32强](https://www.share.kurohicncr.top/Article/details/37045696319.shtml)
+- 2026-06-30 08:41 - [沙丘](https://www.share.kurohicncr.top/Article/details/883890905.shtml)
+- 2026-06-30 08:55 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/077384.shtml)
+- 2026-06-30 08:56 - [千与千寻](http://www.share.kurohicncr.top/Article/details/734500.shtml)

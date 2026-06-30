@@ -1,49 +1,61 @@
-# 感受现场！法国队3：1击败塞内加尔 法国球迷起立欢呼
+# 活力中国调研行｜一枚光谱芯片如何让水会“说话”
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月17日 14:13 来源：中国新闻网 感受现场！法国队3：1击败塞内加尔 法国球迷起立欢呼 责任编辑：【李光伟】
+水会“说话”吗？在北京市海淀区五道口的AI原点社区，“活力中国调研行”记者团不仅“听”到了答案，还看到了水“说话”的样子。 走进芯视界(北京)科技有限公司的展厅，工作人员指着屏幕上一条不断波动的曲线说：“这就是北京南沙河的水正在‘告诉’我们的话，它的温度、浊度、溶解氧，甚至哪一段河道可能出现了异常情况，我们都能迅速知道。” 这条曲线展示的数据，来源于一枚比指甲盖还小的芯片。它被
 
 ## 正文
 
-发布时间：2026年06月17日 14:13 来源：中国新闻网 感受现场！
+水会“说话”吗？
 
-法国队3：1击败塞内加尔 法国球迷起立欢呼 责任编辑：【李光伟】
+在北京市海淀区五道口的AI原点社区，“活力中国调研行”记者团不仅“听”到了答案，还看到了水“说话”的样子。
+
+走进芯视界(北京)科技有限公司的展厅，工作人员指着屏幕上一条不断波动的曲线说：“这就是北京南沙河的水正在‘告诉’我们的话，它的温度、浊度、溶解氧，甚至哪一段河道可能出现了异常情况，我们都能迅速知道。
+
+” 这条曲线展示的数据，来源于一枚比指甲盖还小的芯片。
+
+它被封装在一个便携保温壶大小的智能监测终端里，布设在北京多条河流中。
+
+“这枚芯片可以识别水中不同物质独特的光谱‘指纹’。
+
+”公司副总裁孙常库拿起一枚芯片向记者展示，“它能在数秒内完成水环境中特征污染物的监测。
+
+” 传统的河流水质状况监测，往往依靠人工巡河或固定站房采样。
 
 ## 相关推荐
 
-- 2026-06-30 08:38 - [索马里女大使：想和中国一起搞事业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-30 08:30 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
-- 2026-06-30 08:56 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-30 08:32 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-30 08:49 - [勇士续约波尔津吉斯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-30 08:42 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
-- 2026-06-30 08:51 - [存储芯片龙头提示风险](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
-- 2026-06-30 08:51 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-30 08:54 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-30 08:50 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
-- 2026-06-30 08:49 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-30 08:32 - [德国4比5巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
-- 2026-06-30 08:56 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
-- 2026-06-30 08:53 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-30 08:34 - [勇士续约波尔津吉斯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-30 09:00 - [泰山景区建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-30 08:42 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-30 08:55 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-30 08:46 - [莫兰特转投开拓者效力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-30 09:00 - [德国连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
+- 2026-06-30 08:48 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-30 09:00 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-30 08:55 - [穆祉丞回应获年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-30 08:46 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-30 08:38 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-30 08:36 - [点球大战 残酷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-30 08:51 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-30 08:50 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-30 08:58 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-30 08:59 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:37 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/922610384952.shtml)
-- 2026-06-30 08:40 - [【涤墨作战7人870】望：我从地狱杀回来了！](http://www.blog.kurohicncr.top/Article/details/83551.shtml)
-- 2026-06-30 08:36 - [全新问界M9现身美国街头](http://www.share.kurohicncr.top/Article/details/236603005.shtml)
-- 2026-06-30 08:56 - [女子遭下药退赔偿拟追刑责](https://www.share.minike.top/Article/details/049707633355.shtml)
-- 2026-06-30 08:45 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/20552.shtml)
-- 2026-06-30 08:52 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.minike.top/Article/details/234315871342.shtml)
-- 2026-06-30 08:53 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/5166844228.shtml)
-- 2026-06-30 08:47 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/5739444.shtml)
-- 2026-06-30 08:42 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/1154535.shtml)
-- 2026-06-30 08:53 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/0333453.shtml)
-- 2026-06-30 08:36 - [巴西绝杀日本：漫画般结局换了主角](http://www.share.kurohicncr.top/Article/details/11675151.shtml)
-- 2026-06-30 08:50 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/57359.shtml)
-- 2026-06-30 08:43 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/5418473249.shtml)
-- 2026-06-30 08:59 - [急先锋](https://www.share.kurohicncr.top/Article/details/0267823535.shtml)
-- 2026-06-30 08:31 - [周冬雨多次说演不了话剧文城](http://www.share.kurohicncr.top/Article/details/49220562125.shtml)
+- 2026-06-30 08:46 - [金刚川](http://www.blog.kurohicncr.top/Article/details/40783820.shtml)
+- 2026-06-30 08:45 - [巴西绝杀日本](https://www.share.kurohicncr.top/Article/details/7208419.shtml)
+- 2026-06-30 08:53 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/062102590388.shtml)
+- 2026-06-30 08:41 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/888627.shtml)
+- 2026-06-30 08:47 - [天道](http://www.blog.kurohicncr.top/Article/details/5700789.shtml)
+- 2026-06-30 08:53 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/3441453.shtml)
+- 2026-06-30 08:49 - [为什么会有「念旧」的心理？](http://www.blog.minike.top/Article/details/6070491.shtml)
+- 2026-06-30 08:38 - [哈弗茨头球破门](https://www.blog.minike.top/Article/details/14519735.shtml)
+- 2026-06-30 08:39 - [扬名立万](https://www.share.kurohicncr.top/Article/details/080050320795.shtml)
+- 2026-06-30 08:51 - [内马尔替补](https://www.blog.minike.top/Article/details/041552026.shtml)
+- 2026-06-30 08:41 - [德国爆冷点球大战不敌巴拉圭](http://www.blog.minike.top/Article/details/0425436.shtml)
+- 2026-06-30 08:47 - [沙丘](https://www.share.kurohicncr.top/Article/details/81566763.shtml)
+- 2026-06-30 08:43 - [日耳曼拖拉机](http://www.share.minike.top/Article/details/64708.shtml)
+- 2026-06-30 09:01 - [博世们还在犹豫 美的们已经卖断货](http://www.share.minike.top/Article/details/438439477.shtml)
+- 2026-06-30 08:52 - [点球大战和诺伊尔都救不回德国队](http://www.blog.kurohicncr.top/Article/details/25421918.shtml)

@@ -1,58 +1,56 @@
-# 清廉守正，实干为民（金台随笔）
+# 中越少年儿童共探科技魅力 携手厚植友谊
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-人民日报 木 易 走进河北保定直隶总督署，“公生明”的牌坊吸引众多游客目光。“公生明，偏生暗”，蕴藏传统文化中为政的基本准则：立身方正、持心廉洁，才能明辨是非、知止知进，干出实实在在的政绩。 廉洁方能实干，身正乃敢担当。心无杂念，才能把全部精力放在干事创业上；不谋私利，才能真正站在群众的立场上想问题办事情，做出让老百姓认可的实绩。而政绩观错位，难免公私不分。比如，“形象工程”“
+中新网南宁6月10日电 (陈秋霞)“我以前只在网络上看过机器人跳舞，今天亲眼看到，很惊讶很开心。我想和机器人一起跳舞，但我有些害羞。”越南高平省学生文黄明奎9日在广西南宁受访时说。 2026年中国(广西)—越南少年儿童手拉手活动当日在南宁启动，300余名中越少先队员、少先队辅导员等参与活动。 两国少年儿童当天上午到访广西大学，参观原广西南宁育才学校(即越南中央学舍区)旧址，瞻仰
 
 ## 正文
 
-人民日报 木 易 走进河北保定直隶总督署，“公生明”的牌坊吸引众多游客目光。
+中新网南宁6月10日电 (陈秋霞)“我以前只在网络上看过机器人跳舞，今天亲眼看到，很惊讶很开心。
 
-“公生明，偏生暗”，蕴藏传统文化中为政的基本准则：立身方正、持心廉洁，才能明辨是非、知止知进，干出实实在在的政绩。
+我想和机器人一起跳舞，但我有些害羞。
 
-廉洁方能实干，身正乃敢担当。
+”越南高平省学生文黄明奎9日在广西南宁受访时说。
 
-心无杂念，才能把全部精力放在干事创业上；不谋私利，才能真正站在群众的立场上想问题办事情，做出让老百姓认可的实绩。
+2026年中国(广西)—越南少年儿童手拉手活动当日在南宁启动，300余名中越少先队员、少先队辅导员等参与活动。
 
-而政绩观错位，难免公私不分。
+两国少年儿童当天上午到访广西大学，参观原广西南宁育才学校(即越南中央学舍区)旧址，瞻仰《胡志明和孩子们》铜像并观看图片展，感悟两国传统友谊。
 
-比如，“形象工程”“政绩工程”的背后，是把权力当作谋私工具，把个人升迁凌驾于民生福祉之上，只图自己“出彩”、不顾群众冷暖。
+下午，两国少年儿童走进广西人工智能学院、广西科技馆体验AI翻译眼镜等前沿科技，近距离交流互动。
 
-为政戒贪，贪利是贪，贪名亦是贪。
+展演区，人形机器人轮番上演太极招式与流行舞曲，灵动十足；机器狗邀请孩子们落座体验。
 
-摒弃私心杂念，坚持一心为公，才能脚踏实地办实事、尽心惠民谋政绩。
+文黄明奎坦言此次体验十分新鲜，也让她真切感受到中越友好情谊。
 
 ## 相关推荐
 
-- 2026-06-30 08:55 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-30 08:40 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-30 08:54 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-30 08:38 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
-- 2026-06-30 08:43 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-30 08:31 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
-- 2026-06-30 08:43 - [郑钦文温网三连败西尼亚科娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
-- 2026-06-30 08:51 - [陈幸同晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
-- 2026-06-30 08:35 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
-- 2026-06-30 08:46 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
-- 2026-06-30 08:30 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-30 08:55 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-30 08:46 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-30 08:41 - [陈小春人老了干什么也不心酸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-30 08:51 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-30 08:49 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-30 09:00 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
+- 2026-06-30 08:54 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
+- 2026-06-30 08:52 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
+- 2026-06-30 08:46 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-30 08:43 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-30 08:55 - [巴西绝杀日本：漫画般结局换了主角](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:35 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://www.blog.minike.top/Article/details/488291064454.shtml)
-- 2026-06-30 08:38 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.minike.top/Article/details/817084232.shtml)
-- 2026-06-30 08:42 - [张碧晨一开口梦回逐玉](http://www.share.kurohicncr.top/Article/details/336722030.shtml)
-- 2026-06-30 08:55 - [日本博主：日本足球真的垃圾](https://www.blog.minike.top/Article/details/9124282.shtml)
-- 2026-06-30 08:42 - [德国爆冷点球大战不敌巴拉圭](https://www.blog.kurohicncr.top/Article/details/06290423912.shtml)
-- 2026-06-30 08:38 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/833599.shtml)
-- 2026-06-30 08:48 - [库尼亚赛后伸五指嘲讽日本](https://www.share.minike.top/Article/details/237309588.shtml)
-- 2026-06-30 08:54 - [一见倾心](https://www.blog.minike.top/Article/details/4798322943.shtml)
-- 2026-06-30 08:30 - [世界杯](http://www.blog.kurohicncr.top/Article/details/51927457180.shtml)
-- 2026-06-30 08:53 - [爆冷出局！德国点球大战不敌巴拉圭](https://www.share.kurohicncr.top/Article/details/84365.shtml)
-- 2026-06-30 08:31 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/45910577.shtml)
-- 2026-06-30 08:38 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/95713468.shtml)
-- 2026-06-30 08:44 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/89131.shtml)
-- 2026-06-30 08:49 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/21832.shtml)
-- 2026-06-30 08:39 - [巴拉圭进球](http://www.blog.kurohicncr.top/Article/details/004425094764.shtml)
+- 2026-06-30 09:02 - [德国罚丢3粒点球](https://www.share.kurohicncr.top/Article/details/51377254365.shtml)
+- 2026-06-30 08:50 - [荷兰VS摩洛哥](https://www.blog.kurohicncr.top/Article/details/508008.shtml)
+- 2026-06-30 08:53 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/421763.shtml)
+- 2026-06-30 08:46 - [好像看到了人类带孩子崩溃的样子](https://www.share.minike.top/Article/details/6989377.shtml)
+- 2026-06-30 08:37 - [斛珠夫人](http://www.share.minike.top/Article/details/577844908.shtml)
+- 2026-06-30 08:42 - [德国罚丢3粒点球](http://www.share.minike.top/Article/details/6498756.shtml)
+- 2026-06-30 08:36 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.minike.top/Article/details/922988227.shtml)
+- 2026-06-30 08:56 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/00463113146.shtml)
+- 2026-06-30 08:40 - [巴西足球能否再现昔日荣光](https://www.blog.minike.top/Article/details/99224862.shtml)
+- 2026-06-30 08:43 - [《名肘探科比》：科比大战裂口女](http://www.share.kurohicncr.top/Article/details/811033.shtml)
+- 2026-06-30 08:58 - [莫兰特被交易到开拓者](http://www.blog.kurohicncr.top/Article/details/20994055.shtml)
+- 2026-06-30 08:39 - [点球大战 残酷](https://www.share.minike.top/Article/details/95312.shtml)
+- 2026-06-30 08:44 - [日耳曼拖拉机](https://www.share.kurohicncr.top/Article/details/3426330.shtml)
+- 2026-06-30 08:54 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/4542516.shtml)
+- 2026-06-30 08:41 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/027566308.shtml)

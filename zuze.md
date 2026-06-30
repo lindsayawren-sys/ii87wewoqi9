@@ -1,59 +1,56 @@
-# 海南面向全球招募“旅游国际推荐官”
+# 英国皇家财产局将启动爱尔兰海海上风电场地招标
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-中新网海口6月16日电 (记者 张茜翼)海南省旅游和文化广电体育厅15日发布消息，即日起至12月，海南面向全球招募“海南旅游国际推荐官”，计划招募40至50名热爱旅行、擅长创作的境外达人，用独特视角向世界展示海南的热带海岛魅力。 申请者需满足以下条件：痴迷海南的阳光沙滩、黎苗风情、烟火美食，愿用真心分享海南之美；在Facebook、X(原Twitter)、Instagram、Y
+英国国王查尔斯三世的皇家财产局周一表示，将于下个月启动爱尔兰海Morgan海上风电场的竞争性招标。 该场地位于爱尔兰海，潜在发电能力高达1.5吉瓦，曾于2024年通过一轮海上风电租赁招标推向市场，后于2026年1月停止开发。 此后，拥有大片土地及英国大部分海床的皇家财产局评估了将该场地重新推向市场的多种方案。 Morgan项目已于2025年8月获得该风电场的开发许可令，目前正在
 
 ## 正文
 
-中新网海口6月16日电 (记者 张茜翼)海南省旅游和文化广电体育厅15日发布消息，即日起至12月，海南面向全球招募“海南旅游国际推荐官”，计划招募40至50名热爱旅行、擅长创作的境外达人，用独特视角向世界展示海南的热带海岛魅力。
+英国国王查尔斯三世的皇家财产局周一表示，将于下个月启动爱尔兰海Morgan海上风电场的竞争性招标。
 
-申请者需满足以下条件：痴迷海南的阳光沙滩、黎苗风情、烟火美食，愿用真心分享海南之美；在Facebook、X(原Twitter)、Instagram、YouTube、TikTok等任一海外平台有账号及影响力；擅长用图文、短视频、直播等形式，挖掘海南文旅独特魅力；乐于交流、善于合作，愿融入团队共讲海南故事。
+该场地位于爱尔兰海，潜在发电能力高达1.5吉瓦，曾于2024年通过一轮海上风电租赁招标推向市场，后于2026年1月停止开发。
 
-作为中国对外开放前沿，海南凭借“免签+航线”双重红利，持续提升国际吸引力。
+此后，拥有大片土地及英国大部分海床的皇家财产局评估了将该场地重新推向市场的多种方案。
 
-目前，59国人员入境免签政策叠加240小时过境免签政策，让“说走就走”的海南游成为现实；78条国际航线串联莫斯科、悉尼等全球45个城市，织密“黄金航网”。
+Morgan项目已于2025年8月获得该风电场的开发许可令，目前正在等待其输电资产申请的审批决定。
 
-2025年，海南入境游客达150万人次，同比增长35.2%。
+皇家财产局表示，此次招标程序与该局计划于明年上半年启动的第六轮租赁招标是分开的。
 
-近年来，海南坚持“走出去+请进来”双向发力：境外推介精准触达重点客源国，海外旅行商、媒体考察常态化推进，港澳营销联盟加密航班；全球46家海南旅游推广办事处同步发力，系统性破解入境游堵点。
-
-截至2026年6月，海南旅游国际推荐官队伍已覆盖41个国家和地区，成为讲好海南故事的重要力量。
-
-(完)
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-30 08:39 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-30 08:44 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-30 08:57 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
-- 2026-06-30 08:58 - [郑钦文温网首轮出局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-30 08:33 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
-- 2026-06-30 08:36 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-30 08:33 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
-- 2026-06-30 08:57 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
-- 2026-06-30 08:45 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-30 08:45 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-30 08:46 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-30 08:47 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-30 08:45 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-30 08:43 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-30 09:01 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-30 08:50 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-30 08:49 - [曝iPhone18Pro机密文件现身暗网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-30 08:40 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
+- 2026-06-30 08:43 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-30 08:40 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-30 08:36 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
+- 2026-06-30 08:43 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-30 08:47 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-30 08:59 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-30 09:05 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-30 08:58 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-30 08:48 - [日本队被绝杀后鞠躬致谢观众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:47 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/59975652925.shtml)
-- 2026-06-30 08:31 - [亚洲球队全部告别世界杯](https://www.share.kurohicncr.top/Article/details/461445309446.shtml)
-- 2026-06-30 08:50 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/59920094.shtml)
-- 2026-06-30 08:51 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/12291324244.shtml)
-- 2026-06-30 08:59 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/44087583457.shtml)
-- 2026-06-30 08:34 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.kurohicncr.top/Article/details/74723223.shtml)
-- 2026-06-30 08:46 - [存储芯片龙头提示风险](https://www.share.minike.top/Article/details/081064.shtml)
-- 2026-06-30 08:53 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/365675095.shtml)
-- 2026-06-30 08:40 - [杨紫学位证上就是杨紫](http://www.blog.minike.top/Article/details/9791621.shtml)
-- 2026-06-30 08:33 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.minike.top/Article/details/017591264.shtml)
-- 2026-06-30 08:47 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/557549460396.shtml)
-- 2026-06-30 08:51 - [爆冷出局！德国点球大战不敌巴拉圭](https://www.blog.kurohicncr.top/Article/details/66969.shtml)
-- 2026-06-30 08:41 - [张碧晨一开口梦回逐玉](https://www.share.kurohicncr.top/Article/details/32908.shtml)
-- 2026-06-30 08:57 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/761072924802.shtml)
-- 2026-06-30 08:51 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/77255903.shtml)
+- 2026-06-30 09:03 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/869028.shtml)
+- 2026-06-30 09:04 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/1576092.shtml)
+- 2026-06-30 08:47 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/540359.shtml)
+- 2026-06-30 08:50 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/28008774083.shtml)
+- 2026-06-30 08:49 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/971720.shtml)
+- 2026-06-30 08:50 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.kurohicncr.top/Article/details/598878.shtml)
+- 2026-06-30 08:50 - [有酒店推行24小时退房制](http://www.blog.kurohicncr.top/Article/details/35055933.shtml)
+- 2026-06-30 08:57 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/74567.shtml)
+- 2026-06-30 08:42 - [网红峡谷5人溺亡 有人提醒会下雨](http://www.blog.minike.top/Article/details/601293169.shtml)
+- 2026-06-30 08:57 - [日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？](https://www.blog.kurohicncr.top/Article/details/57910.shtml)
+- 2026-06-30 08:43 - [武磊：巴西队赢的并不轻松](https://www.share.kurohicncr.top/Article/details/90711246.shtml)
+- 2026-06-30 08:58 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/5148109760.shtml)
+- 2026-06-30 08:38 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/1496642.shtml)
+- 2026-06-30 08:54 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/6309380.shtml)
+- 2026-06-30 08:59 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/6031981024.shtml)

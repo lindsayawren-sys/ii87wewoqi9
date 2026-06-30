@@ -1,61 +1,58 @@
-# 三部门部署端午假期前后安全防范重点工作
+# 2026辽宁国际友城大会：多个友城教育科技领域合作项目集中签约
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-中新网6月17日电 据应急管理部网站消息，6月17日，国务院安委会办公室、国家防减救灾委员会办公室、应急管理部召开视频调度会，深入分析面临的安全风险形势，部署端午假期前后安全防范应对重点工作。 会议指出，端午假期前后历来是事故灾害易发多发期，特别是汛期洪涝地质灾害、群众出行出游、龙舟赛事活动等方面安全风险突出。各地区、各有关部门要按照全国安全生产视频会议部署要求，清醒认识当前安
+中新网沈阳6月10日电(杨茜茜)以“智汇辽宁，友城同行”为主题的2026辽宁国际友城大会10日在沈阳开幕。来自全球50余个国家和地区的近300位外宾参会，多对中外友城关系协议与教育科技项目集中签约，辽宁“友城+”国际合作再结硕果。本次大会由辽宁省政府主办，聚焦教育科技国际合作，采用“1+6+2”活动形式。开幕式上，辽宁省与蒙古国中央省、哈萨克斯坦阿拉木图州、塞尔维亚伏伊伏丁那省
 
 ## 正文
 
-中新网6月17日电 据应急管理部网站消息，6月17日，国务院安委会办公室、国家防减救灾委员会办公室、应急管理部召开视频调度会，深入分析面临的安全风险形势，部署端午假期前后安全防范应对重点工作。
+中新网沈阳6月10日电(杨茜茜)以“智汇辽宁，友城同行”为主题的2026辽宁国际友城大会10日在沈阳开幕。
 
-会议指出，端午假期前后历来是事故灾害易发多发期，特别是汛期洪涝地质灾害、群众出行出游、龙舟赛事活动等方面安全风险突出。
+来自全球50余个国家和地区的近300位外宾参会，多对中外友城关系协议与教育科技项目集中签约，辽宁“友城+”国际合作再结硕果。
 
-各地区、各有关部门要按照全国安全生产视频会议部署要求，清醒认识当前安全形势的复杂性严峻性，进一步树牢底线思维、极限思维，全力抓好各项安全防范措施落实，坚决打好防范应对重特大灾害事故风险主动仗。
+本次大会由辽宁省政府主办，聚焦教育科技国际合作，采用“1+6+2”活动形式。
 
-会议强调，要压紧压实安全防范责任，深入分析研判安全生产和自然灾害的规律特点，针对人流车流物流大幅增加、企业生产节奏变化、极端天气多发易发等情况，周密作出针对性安排部署，“一件事”全链条细化落实安全生产、防汛抗洪、防震减灾、森林草原防灭火等方面的安全管理责任，扎实开展风险隐患排查整治，强化明查暗访和监管执法。
+开幕式上，辽宁省与蒙古国中央省、哈萨克斯坦阿拉木图州、塞尔维亚伏伊伏丁那省签署省级友好协议，沈阳、本溪、锦州分别与俄、阿、哈三国城市缔结友城，现场同步签署12个教育科技领域务实合作项目。
 
-要加强节假日期间对矿山、危化、工贸、建筑施工等重点领域的安全风险防控，加强大载客交通工具安全监管，强化文旅体育活动的安全防范，突出抓好高层建筑、人员聚集场所消防安全和餐饮场所燃气安全，坚决防范遏制重特大事故。
+澳大利亚科廷大学马来西亚校区校长李健全表示，沙捞越重工业发展与辽宁产业技术优势高度互补，双方将推进本科联合培养、工业科研攻关及人文交流。
 
-会议要求，要狠抓汛期洪涝地质灾害防范应对，立足防大汛、抢大险、救大灾，抓细抓实监测预警、研判调度、风险管控、转移避险、救灾救助等各项防汛救灾措施，提前做好旱涝急转应急准备。
+东北亚地区地方政府联合会秘书长林秉镇称，韩国电商平台已与辽宁27家企业完成精准对接，期待辽宁成为东北亚区域合作核心枢纽。
 
-要统筹做好防震减灾和森林草原防灭火工作，加强震情监测预警、震灾隐患排查，严把林草火源管控关、隐患排查关，切实提高防范应对能力。
+塔吉克斯坦教育与科学部国际关系司司长萨法尔别格·西罗季佐达介绍，塔方正与沈阳师范大学洽谈新建孔子学院，未来计划在辽宁增设鲁班工坊。
 
-要抓好救援救灾和应急处置准备，切实发挥好各级安委会、防减救灾委员会统筹作用，强化救援力量和物资装备的前置预置，结合“安全生产月”开展安全宣传教育，切实维护人民群众生命财产安全。
+塞尔维亚伏伊伏丁那省副省长托米斯拉夫·齐格马诺夫率团与辽宁签署友城协议，中方将支持300名塞青年赴华留学、50名科研人员来华研究。
 
 ## 相关推荐
 
-- 2026-06-30 08:50 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
-- 2026-06-30 08:45 - [张雪的一句“是我们”引发岛内热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-30 08:49 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-30 08:54 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
-- 2026-06-30 08:50 - [巴拉圭点球大战淘汰德国进16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
-- 2026-06-30 08:41 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-30 08:41 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-30 08:39 - [《名肘探科比》：科比大战裂口女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
-- 2026-06-30 08:30 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
-- 2026-06-30 08:35 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
-- 2026-06-30 08:50 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-30 08:50 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
-- 2026-06-30 08:58 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-30 08:44 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-30 08:44 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-30 09:02 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
+- 2026-06-30 08:58 - [存储芯片龙头提示风险](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-30 09:01 - [陈幸同晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-30 09:00 - [现在叛逆期的孩子最怕的是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-30 08:46 - [现在叛逆期的孩子最怕的是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
+- 2026-06-30 08:38 - [莫兰特被交易到开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
+- 2026-06-30 09:03 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-30 08:49 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-30 08:36 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-30 09:03 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-30 08:56 - [锐评：网红不能困在无底线逐利里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-30 09:03 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:42 - [孙兴慜发长文致歉](https://www.blog.kurohicncr.top/Article/details/736802381911.shtml)
-- 2026-06-30 08:31 - [极限挑战第一季](http://www.blog.minike.top/Article/details/4630572.shtml)
-- 2026-06-30 08:36 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/28908182.shtml)
-- 2026-06-30 08:44 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/188624839043.shtml)
-- 2026-06-30 08:58 - [起风了](http://www.share.kurohicncr.top/Article/details/420161.shtml)
-- 2026-06-30 08:38 - [巴拉圭进球](http://www.share.kurohicncr.top/Article/details/7717488896.shtml)
-- 2026-06-30 08:34 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.minike.top/Article/details/4473006541.shtml)
-- 2026-06-30 08:41 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/133235169560.shtml)
-- 2026-06-30 08:52 - [韩乔生吐槽世界杯扩军](http://www.blog.kurohicncr.top/Article/details/19881624642.shtml)
-- 2026-06-30 08:37 - [媒体评泰山建135公里刀片刺绳隔离网](https://www.blog.minike.top/Article/details/3559134.shtml)
-- 2026-06-30 08:51 - [峡谷事故团队组队时有人提醒会下雨](http://www.share.minike.top/Article/details/31246.shtml)
-- 2026-06-30 08:35 - [峡谷事故团队组队时有人提醒会下雨](http://www.share.minike.top/Article/details/369217.shtml)
-- 2026-06-30 08:30 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/4276520.shtml)
-- 2026-06-30 08:49 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/96968556.shtml)
-- 2026-06-30 08:53 - [这一刀 会很帅](https://www.share.minike.top/Article/details/571548917.shtml)
+- 2026-06-30 09:05 - [金牌调解](http://www.share.minike.top/Article/details/63509827780.shtml)
+- 2026-06-30 08:57 - [中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？](https://www.share.kurohicncr.top/Article/details/329671286.shtml)
+- 2026-06-30 09:05 - [如果有二次元高中是什么样子的？](http://www.blog.minike.top/Article/details/696920.shtml)
+- 2026-06-30 08:50 - [大蒜晒外面被路过女子连盆端走](http://www.blog.minike.top/Article/details/2001184.shtml)
+- 2026-06-30 08:46 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/39111632137.shtml)
+- 2026-06-30 09:01 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/1087880616.shtml)
+- 2026-06-30 08:51 - [世界杯](https://www.share.minike.top/Article/details/77894163041.shtml)
+- 2026-06-30 08:47 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/638726.shtml)
+- 2026-06-30 08:54 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/5030577846.shtml)
+- 2026-06-30 08:40 - [巴西若输日本将创36年最差纪录](http://www.share.minike.top/Article/details/0788852.shtml)
+- 2026-06-30 08:59 - [杨紫大银幕成绩单如何](http://www.share.minike.top/Article/details/0914594097.shtml)
+- 2026-06-30 08:37 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/39156616.shtml)
+- 2026-06-30 08:54 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/410829386.shtml)
+- 2026-06-30 08:41 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/045060.shtml)
+- 2026-06-30 08:45 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/199662806.shtml)

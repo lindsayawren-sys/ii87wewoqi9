@@ -1,59 +1,61 @@
-# 千里驰援 浙江紧急支援青海海西震区
+# 岑浩辉：冀旅澳葡人和土生葡人继续积极参与澳门各项事务
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-中新网西宁6月17日电 (沈宇 孙睿)记者16日晚从浙江援青指挥部获悉，海西州大柴旦发生地震后，相隔2500公里的浙江省迅速响应，紧急开展资金、物资援助，全力支援当地抗震救灾工作。 6月16日17时6分，青海省海西蒙古族藏族自治州大柴旦发生6.3级地震。截至目前，地震已造成1人遇难、8人受伤。 灾情牵动浙江各界。浙江省委、省政府主要领导及相关部门第一时间了解灾情，向受灾民众、援
+中新网澳门6月10日电 澳门特区行政长官岑浩辉10日表示，希望旅澳葡人和土生葡人继续积极参与澳门的各项事务，传承和发扬中葡友谊，为澳门的建设和发展，为中国与葡萄牙的各领域交往作出更多贡献。 澳门当日举行葡国日、贾梅士日暨葡侨日酒会，岑浩辉在酒会上致辞时作上述表述。他还表示，旅澳葡人和土生葡人作为澳门多元社会的重要组成部分，为澳门的和谐、稳定和繁荣发展发挥了重要作用。 岑浩辉说，
 
 ## 正文
 
-中新网西宁6月17日电 (沈宇 孙睿)记者16日晚从浙江援青指挥部获悉，海西州大柴旦发生地震后，相隔2500公里的浙江省迅速响应，紧急开展资金、物资援助，全力支援当地抗震救灾工作。
+中新网澳门6月10日电 澳门特区行政长官岑浩辉10日表示，希望旅澳葡人和土生葡人继续积极参与澳门的各项事务，传承和发扬中葡友谊，为澳门的建设和发展，为中国与葡萄牙的各领域交往作出更多贡献。
 
-6月16日17时6分，青海省海西蒙古族藏族自治州大柴旦发生6.3级地震。
+澳门当日举行葡国日、贾梅士日暨葡侨日酒会，岑浩辉在酒会上致辞时作上述表述。
 
-截至目前，地震已造成1人遇难、8人受伤。
+他还表示，旅澳葡人和土生葡人作为澳门多元社会的重要组成部分，为澳门的和谐、稳定和繁荣发展发挥了重要作用。
 
-灾情牵动浙江各界。
+岑浩辉说，本届特区政府致力于发挥澳门的独特优势，为中国和葡语国家的贸易投资、旅游合作、金融合作、人文交流、人才培养等提供更高水平的服务，不断拓展和丰富中葡平台的功能和内涵，提升中国与葡语国家合作的实际成效。
 
-浙江省委、省政府主要领导及相关部门第一时间了解灾情，向受灾民众、援青干部、在青浙商和浙籍人员送上慰问。
+他指出，为进一步加强中国与葡语国家的合作，澳门与葡萄牙应发挥好双向平台作用。
 
-浙江省援青办同步下发紧急通知，号召第六批全体援青干部积极参与抗震救灾工作。
+澳门与横琴可作为葡萄牙及其他葡语和欧洲国家企业进入中国内地以及亚洲市场的桥头堡，葡萄牙可作为中国企业进入葡语国家乃至欧盟市场的门户。
 
-地震发生后，浙江省援青指挥部立即启动应急响应，组建专项工作小组，逐一摸排援青干部、浙商等人员安全情况，全力配合当地开展灾情处置，并向灾区捐赠300万元救灾资金，为抢险救援提供资金支持。
+岑浩辉还提到，中国—葡语国家经贸合作论坛第七届部长级会议明年在澳门举行。
 
-此外，浙江省民政厅、省红十字会和阿里公益等社会公益基金会积极联系浙江省援青指挥部，连夜向灾区紧急发送包括1500箱矿泉水、1000箱方便面、100顶救灾帐篷在内的首批应急生活物资，助力保障受灾民众基本生活需求。
+在各成员方的共同努力之下，第七届部长级会议将充分发挥重要引领作用，为全面推进中国与葡语国家各领域合作注入新的强大动能。
 
 ## 相关推荐
 
-- 2026-06-30 08:37 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
-- 2026-06-30 08:32 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-30 08:40 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-30 08:30 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-30 08:55 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-30 08:39 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
-- 2026-06-30 08:48 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-30 08:46 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-30 08:53 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-30 08:37 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-30 08:38 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-30 08:56 - [曝iPhone18Pro机密文件现身暗网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
-- 2026-06-30 08:41 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-30 08:46 - [曝iPhone18Pro机密文件现身暗网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
+- 2026-06-30 08:47 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-30 08:54 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-30 09:03 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
+- 2026-06-30 09:00 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-30 08:45 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-30 08:56 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-30 08:39 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-30 08:47 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
+- 2026-06-30 08:44 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
+- 2026-06-30 08:54 - [日耳曼拖拉机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-30 08:46 - [齐思钧回复张月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-30 09:04 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-30 08:44 - [巴西绝杀日本：漫画般结局换了主角](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-30 08:38 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:43 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/17871463.shtml)
-- 2026-06-30 08:57 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/072146514.shtml)
-- 2026-06-30 08:59 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/4592501772.shtml)
-- 2026-06-30 08:57 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.share.minike.top/Article/details/080389.shtml)
-- 2026-06-30 08:55 - [锐评T1战胜KC](http://www.blog.kurohicncr.top/Article/details/37278059614.shtml)
-- 2026-06-30 08:36 - [日本半场1比0领先巴西](http://www.share.minike.top/Article/details/7653388.shtml)
-- 2026-06-30 08:48 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/495990453407.shtml)
-- 2026-06-30 08:49 - [欧洲民众抢购空调降温](http://www.blog.kurohicncr.top/Article/details/7420118.shtml)
-- 2026-06-30 08:34 - [为什么会有「念旧」的心理？](http://www.blog.kurohicncr.top/Article/details/98459125779.shtml)
-- 2026-06-30 08:46 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/538360739832.shtml)
-- 2026-06-30 08:37 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/67711453.shtml)
-- 2026-06-30 08:51 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.minike.top/Article/details/787567518.shtml)
-- 2026-06-30 08:41 - [藤森庆子赢得秘鲁总统选举](http://www.share.kurohicncr.top/Article/details/043757632.shtml)
-- 2026-06-30 08:34 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/519196992848.shtml)
-- 2026-06-30 08:40 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/9923536065.shtml)
+- 2026-06-30 09:02 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/3509946.shtml)
+- 2026-06-30 08:39 - [德国身价是巴拉圭6倍](https://www.share.minike.top/Article/details/769865777.shtml)
+- 2026-06-30 08:49 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/8206568.shtml)
+- 2026-06-30 08:57 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/141966.shtml)
+- 2026-06-30 09:03 - [锐评：网红不能困在无底线逐利里](http://www.blog.minike.top/Article/details/5338448.shtml)
+- 2026-06-30 08:55 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/693152047173.shtml)
+- 2026-06-30 09:05 - [张月收到黄灿灿辣货两眼发光](https://www.blog.minike.top/Article/details/7515686152.shtml)
+- 2026-06-30 09:00 - [马耳他著名拱门坍塌致中国男子身亡](https://www.share.kurohicncr.top/Article/details/42946768699.shtml)
+- 2026-06-30 08:38 - [日耳曼拖拉机](http://www.blog.kurohicncr.top/Article/details/5083612708.shtml)
+- 2026-06-30 08:49 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/1024075486.shtml)
+- 2026-06-30 08:37 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/30218.shtml)
+- 2026-06-30 09:03 - [【大鸣王潮1566】真拿你没办法](https://www.share.kurohicncr.top/Article/details/228520352699.shtml)
+- 2026-06-30 08:55 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/5123844.shtml)
+- 2026-06-30 08:40 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/61151218.shtml)
+- 2026-06-30 08:37 - [天道](https://www.share.minike.top/Article/details/77364150.shtml)

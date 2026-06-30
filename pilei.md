@@ -1,56 +1,56 @@
-# 赛力斯午前涨超2% 人形机器人“小赛”首次亮相
+# Terreno Realty在华盛顿州肯特市签订租约
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-赛力斯（09927）盘中涨近3%，截至发稿，股价上涨2.17%，报58.85港元，成交额5791.05万港元。 据6月15日市场媒体报道，赛力斯集团董事、副总裁康波于微博发布视频，展示了赛力斯人形机器人“小赛”。康波还透露，赛力斯还有更多种类的具身智能机器人在筹备，今年内将正式与大家见面。从曝光的视频中可以看出，赛力斯人形机器人已投入实际运营，覆盖B端工业制造与C端服务接待等多
+专注于沿海市场工业地产的房地产投资信托公司Terreno Realty Corporation近日宣布，已在华盛顿州肯特市成功执行一份重要的提前续租协议。 此次续租涉及约107，000平方英尺的工业空间，租户是一家提供地板产品与服务的专业公司。新租约将于2027年5月1日正式生效，并持续至2032年7月。这一提前续租的举动，反映出肯特地区工业地产市场的强劲需求，以及租户希望在竞
 
 ## 正文
 
-赛力斯（09927）盘中涨近3%，截至发稿，股价上涨2.17%，报58.85港元，成交额5791.05万港元。
+专注于沿海市场工业地产的房地产投资信托公司Terreno Realty Corporation近日宣布，已在华盛顿州肯特市成功执行一份重要的提前续租协议。
 
-据6月15日市场媒体报道，赛力斯集团董事、副总裁康波于微博发布视频，展示了赛力斯人形机器人“小赛”。
+此次续租涉及约107，000平方英尺的工业空间，租户是一家提供地板产品与服务的专业公司。
 
-康波还透露，赛力斯还有更多种类的具身智能机器人在筹备，今年内将正式与大家见面。
+新租约将于2027年5月1日正式生效，并持续至2032年7月。
 
-从曝光的视频中可以看出，赛力斯人形机器人已投入实际运营，覆盖B端工业制造与C端服务接待等多维度场景。
+这一提前续租的举动，反映出肯特地区工业地产市场的强劲需求，以及租户希望在竞争激烈的市场中锁定长期可用空间的意愿。
 
-相关人士表示，赛力斯正推进汽车向L4+具身智能方向演进，聚焦车业务协同，覆盖面向C端的零售、服务、陪伴，及面向B端的制造、物流布局，包括双足、四足、轮式在内的具身智能机器人，预计今年内将正式推出。
+肯特市是西雅图工业走廊的关键组成部分，其战略优势在于紧邻西雅图港、西雅图-塔科马国际机场以及5号州际公路等主要交通枢纽，为物流、制造和分销类企业提供了理想的地理条件。
 
-责任编辑：卢昱君
+作为一家专注于六大沿海市场的工业地产REIT，Terreno Realty的业务版图涵盖纽约、北新泽西、洛杉矶、迈阿密、旧金山湾区、西雅图和华盛顿特区。
+
+公司在这些核心区域专注于收购、持有和运营包括仓库、配送中心在内的填充型工业资产。
+
+此次肯特租约的成功续签，不仅巩固了公司在该区域的收入稳定性，也体现了其核心工业地产业务的稳健需求。
 
 ## 相关推荐
 
-- 2026-06-30 08:38 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-30 08:44 - [日本五次世界杯淘汰赛全败](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-30 08:42 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-30 08:38 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-30 08:45 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-30 08:48 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-30 08:43 - [全球芯片巨头史诗级扩产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-30 08:31 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
-- 2026-06-30 08:45 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-30 08:47 - [董路：谁赢谁是“正路子”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-30 08:33 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-30 08:31 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-30 08:44 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
-- 2026-06-30 08:43 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-30 08:54 - [日本五次世界杯淘汰赛全败](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-30 08:44 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-30 08:44 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-30 08:48 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-30 08:49 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-30 08:48 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-30 08:48 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
+- 2026-06-30 08:51 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-30 09:01 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
+- 2026-06-30 08:45 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:32 - [高考结束了，你会让孩子在家玩手机吗？](http://www.share.kurohicncr.top/Article/details/9122428.shtml)
-- 2026-06-30 08:44 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/593931927.shtml)
-- 2026-06-30 08:32 - [AI手机进入Agent时代](http://www.blog.kurohicncr.top/Article/details/30793979092.shtml)
-- 2026-06-30 08:51 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/66519736829.shtml)
-- 2026-06-30 08:45 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/524543.shtml)
-- 2026-06-30 08:35 - [恋与深空制作组回应近期争议](https://www.blog.minike.top/Article/details/38996.shtml)
-- 2026-06-30 08:54 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/78363.shtml)
-- 2026-06-30 08:59 - [曝老詹对自由市场态度与以往截然不同](https://www.blog.kurohicncr.top/Article/details/31598.shtml)
-- 2026-06-30 08:39 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/410625863495.shtml)
-- 2026-06-30 08:55 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/5568542.shtml)
-- 2026-06-30 08:52 - [毒液2](http://www.blog.minike.top/Article/details/52654.shtml)
-- 2026-06-30 08:52 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.minike.top/Article/details/7433406.shtml)
-- 2026-06-30 08:47 - [豆包收费了，你还会用吗？](https://www.share.kurohicncr.top/Article/details/29345.shtml)
-- 2026-06-30 08:46 - [现在叛逆期的孩子最怕的是什么？](https://www.share.minike.top/Article/details/393963183.shtml)
-- 2026-06-30 08:41 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/076763989438.shtml)
+- 2026-06-30 08:59 - [马耳他著名拱门坍塌致中国男子身亡](http://www.share.kurohicncr.top/Article/details/1880236826.shtml)
+- 2026-06-30 08:53 - [男子造谣东鹏老板不喝自家饮料被拘](http://www.share.minike.top/Article/details/0763549124.shtml)
+- 2026-06-30 08:42 - [峡谷事故团队组队时有人提醒会下雨](https://www.blog.kurohicncr.top/Article/details/83242.shtml)
+- 2026-06-30 08:45 - [斗破苍穹](http://www.blog.minike.top/Article/details/0879377.shtml)
+- 2026-06-30 08:50 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.minike.top/Article/details/837683102.shtml)
+- 2026-06-30 08:43 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/2779323601.shtml)
+- 2026-06-30 09:03 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.kurohicncr.top/Article/details/2291448250.shtml)
+- 2026-06-30 08:41 - [张月收到黄灿灿辣货两眼发光](https://www.share.minike.top/Article/details/13894806.shtml)
+- 2026-06-30 09:05 - [锐评：网红不能困在无底线逐利里](http://www.share.minike.top/Article/details/84237076.shtml)
+- 2026-06-30 09:02 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/982427624157.shtml)
+- 2026-06-30 09:04 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/93269808654.shtml)
+- 2026-06-30 08:52 - [世界杯名画巴拉圭钢铁防线](http://www.blog.kurohicncr.top/Article/details/138568349502.shtml)
+- 2026-06-30 08:54 - [日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？](https://www.share.kurohicncr.top/Article/details/74398486638.shtml)
+- 2026-06-30 08:56 - [MSI应援曲 如果季中成回忆](https://www.blog.kurohicncr.top/Article/details/73902.shtml)
+- 2026-06-30 08:42 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/8273154265.shtml)

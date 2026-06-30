@@ -1,54 +1,56 @@
-# 看点满满！南京26所高校文博场馆集体开放 文创好物集结亮相
+# 光大期货：有色金属类日报6.10
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月17日 13:48 来源：中国新闻网 近日，2026南京高校博物馆联盟“开门”行动暨100堂“大学里的大学”开放课，在南京大学仙林校区启动。南京26所高校拥有67座各类文博场馆，此次全面开放高校文博资源，助力南京“博物馆之城”建设。本次活动推出三大板块共100堂特色开放课，面向青少年普及文博知识。活动期间，首届高校博物馆文创联展同步举办，12所高校携数
+铜： （展大鹏，从业资格号：F3013795；交易咨询资格号：Z0013582） 隔夜内外铜价冲高回落，国内现货精炼铜进口窗口关闭。地缘政治方面，特朗普近日密集释放美伊协议将“很快达成”的信号，称谈判已进入最终阶段，并暗示“两三天内”可能落地，并表示协议达成后霍尔木兹海峡将重新开放，但昨日双方冲突升级表现令市场再起担忧。短期市场关注点除了美伊谈判外，还聚焦于美联储6月议息会议，
 
 ## 正文
 
-发布时间：2026年06月17日 13:48 来源：中国新闻网 近日，2026南京高校博物馆联盟“开门”行动暨100堂“大学里的大学”开放课，在南京大学仙林校区启动。
+铜： （展大鹏，从业资格号：F3013795；交易咨询资格号：Z0013582） 隔夜内外铜价冲高回落，国内现货精炼铜进口窗口关闭。
 
-南京26所高校拥有67座各类文博场馆，此次全面开放高校文博资源，助力南京“博物馆之城”建设。
+地缘政治方面，特朗普近日密集释放美伊协议将“很快达成”的信号，称谈判已进入最终阶段，并暗示“两三天内”可能落地，并表示协议达成后霍尔木兹海峡将重新开放，但昨日双方冲突升级表现令市场再起担忧。
 
-本次活动推出三大板块共100堂特色开放课，面向青少年普及文博知识。
+短期市场关注点除了美伊谈判外，还聚焦于美联储6月议息会议，作为沃什首秀主持美联储会议，市场关注点在于加息预期倾向、沃什对货币政策的表态等。
 
-活动期间，首届高校博物馆文创联展同步举办，12所高校携数百余件特色文创集中亮相，让优质高校文化走出校园、惠及大众。
+库存方面，LME库存下降4125吨至372650吨；SHFE铜仓单增加499吨吨至95543吨，BC铜仓单增加2227吨至13033吨。
 
-记者 葛勇 江苏南京报道 责任编辑：【罗攀】
+需求方面，铜价下跌推动下游采购，但终端新增订单不加，体现一定淡季效应。
+
+昨晚美伊冲突小幅升级引起市场担忧，且在美联储6月议息层面，作为沃什主持首秀，市场关注其对通胀和货币政策的表态，在联储议息前市场或谨慎对待，宏观逆风或延续，对铜市场或继续体现利空。
+
+基本面方面，供应收紧预期仍支撑多头信心，但需求淡季边际走弱预期也在回升。
+
+综合来看，短期宜谨慎。
 
 ## 相关推荐
 
-- 2026-06-30 08:43 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
-- 2026-06-30 08:30 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-30 08:42 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-30 08:37 - [泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-30 08:42 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-30 08:31 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-30 08:58 - [全新问界M9现身美国街头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
-- 2026-06-30 08:47 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-30 08:47 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-30 08:32 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-30 08:33 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
-- 2026-06-30 08:47 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
-- 2026-06-30 08:35 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-30 08:46 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-30 08:41 - [巴拉圭点球大战淘汰德国进16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-30 08:55 - [森保一致歉：世界第一目标没能实现](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-30 08:47 - [索马里女大使：想和中国一起搞事业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
+- 2026-06-30 08:52 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-30 08:45 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-30 08:52 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-30 08:41 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-30 08:50 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-30 08:53 - [网瘾賊大的阿嬷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-30 08:56 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:34 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/12164104937.shtml)
-- 2026-06-30 08:46 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://www.blog.kurohicncr.top/Article/details/13780.shtml)
-- 2026-06-30 08:56 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/4191884782.shtml)
-- 2026-06-30 08:57 - [内马尔替补](https://www.share.minike.top/Article/details/387829620.shtml)
-- 2026-06-30 08:32 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.blog.minike.top/Article/details/1106949503.shtml)
-- 2026-06-30 08:41 - [张碧晨一开口梦回逐玉](https://www.blog.kurohicncr.top/Article/details/57749673.shtml)
-- 2026-06-30 08:46 - [曝iPhone18Pro机密文件现身暗网](https://www.blog.minike.top/Article/details/554052.shtml)
-- 2026-06-30 08:46 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://www.share.minike.top/Article/details/40774516876.shtml)
-- 2026-06-30 08:53 - [佐野海舟远射破门](http://www.blog.minike.top/Article/details/9606143.shtml)
-- 2026-06-30 08:31 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/357348893.shtml)
-- 2026-06-30 08:44 - [田中碧失误](http://www.blog.minike.top/Article/details/47388.shtml)
-- 2026-06-30 08:57 - [韩国世界杯出局是主帅一个人的锅吗](http://www.share.minike.top/Article/details/616338.shtml)
-- 2026-06-30 08:44 - [莫兰特被交易到开拓者](http://www.blog.kurohicncr.top/Article/details/97737662398.shtml)
-- 2026-06-30 08:52 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.minike.top/Article/details/8553111.shtml)
-- 2026-06-30 08:55 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/5405001436.shtml)
+- 2026-06-30 09:03 - [巴西在进攻三区完成210脚传球](http://www.blog.kurohicncr.top/Article/details/7372556861.shtml)
+- 2026-06-30 09:04 - [女子遭下药退赔偿拟追刑责](https://www.share.minike.top/Article/details/235796079512.shtml)
+- 2026-06-30 08:57 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/49192904.shtml)
+- 2026-06-30 08:55 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/351462.shtml)
+- 2026-06-30 08:50 - [日本球迷输球后集体捡垃圾](https://www.blog.kurohicncr.top/Article/details/99790029.shtml)
+- 2026-06-30 08:58 - [“荒唐”背后的韩国足球](http://www.blog.kurohicncr.top/Article/details/62294.shtml)
+- 2026-06-30 08:59 - [德国身价是巴拉圭6倍](https://www.blog.kurohicncr.top/Article/details/737762304.shtml)
+- 2026-06-30 08:44 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/5370437.shtml)
+- 2026-06-30 08:50 - [如果有二次元高中是什么样子的？](https://www.blog.minike.top/Article/details/79621021402.shtml)
+- 2026-06-30 08:36 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/166591090152.shtml)
+- 2026-06-30 08:41 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/46891657.shtml)
+- 2026-06-30 08:55 - [吴易昺不敌德约科维奇 止步温网首轮](http://www.share.kurohicncr.top/Article/details/70890.shtml)
+- 2026-06-30 08:45 - [莫兰特转投开拓者效力](http://www.blog.minike.top/Article/details/28236049048.shtml)
+- 2026-06-30 09:00 - [豆包收费了，你还会用吗？](https://www.share.minike.top/Article/details/196201652.shtml)
+- 2026-06-30 08:46 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/86213072282.shtml)

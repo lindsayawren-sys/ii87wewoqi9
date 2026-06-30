@@ -1,59 +1,46 @@
-# 湖北利川姑娘：以画笔作舟，渡非遗长河
+# 舍图控股发盈喜 预期年度股东应占溢利约20万至80万港元同比扭亏为盈
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-中新网恩施6月17日电 题：湖北利川姑娘：以画笔作舟，渡非遗长河 作者 税浪 王颖 近日，湖北省利川市文化馆画室内，屈玫均正俯身于画板前，细细勾勒西兰卡普的纹样。笔尖游走间，土家织锦的经纬渐次分明，这也是她“画尽家乡非遗”长卷中的最新一笔。 毕业于湖北美术学院国画专业的屈玫均，主攻工笔画，现任职于利川市文化馆。在与非遗的频繁相遇中，这位利川姑娘意识到，这些藏在岁月褶皱里的文化瑰
+舍图控股（08392）发布公告，预期本集团于2026财年将录得本公司拥有人应占溢利介乎约20万港元至80万港元，相比之下，截至2025年3月31日止年度则录得本公司拥有人应占亏损约230万港元。预期于2026财年转亏为盈乃主要由于家居用品出口业务来自客户的销售订单增加带动收益增加；公司的自家品牌产品于中国产生的收益增加；及本集团于2026财年实行有效的成本控制措施导致行政开支减
 
 ## 正文
 
-中新网恩施6月17日电 题：湖北利川姑娘：以画笔作舟，渡非遗长河 作者 税浪 王颖 近日，湖北省利川市文化馆画室内，屈玫均正俯身于画板前，细细勾勒西兰卡普的纹样。
+舍图控股（08392）发布公告，预期本集团于2026财年将录得本公司拥有人应占溢利介乎约20万港元至80万港元，相比之下，截至2025年3月31日止年度则录得本公司拥有人应占亏损约230万港元。
 
-笔尖游走间，土家织锦的经纬渐次分明，这也是她“画尽家乡非遗”长卷中的最新一笔。
+预期于2026财年转亏为盈乃主要由于家居用品出口业务来自客户的销售订单增加带动收益增加；公司的自家品牌产品于中国产生的收益增加；及本集团于2026财年实行有效的成本控制措施导致行政开支减少。
 
-毕业于湖北美术学院国画专业的屈玫均，主攻工笔画，现任职于利川市文化馆。
-
-在与非遗的频繁相遇中，这位利川姑娘意识到，这些藏在岁月褶皱里的文化瑰宝，在美术领域尚缺完整的视觉呈现。
-
-“非遗在音乐、舞蹈和文学作品里多有体现，美术这一块却比较少，系列作品更欠缺，我觉得自己有使命用画笔讲好利川非遗故事。
-
-”屈玫均说。
-
-工笔画讲究“以形写神”。
-
-初次提笔描绘国家级非物质文化遗产代表性项目利川灯歌时，屈玫均反复勾勒、晕染人物的眉眼、身姿、衣袂，仅裙摆上的褶皱就用细笔分染十余层。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 08:41 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-30 08:59 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-30 08:49 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-30 08:55 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
-- 2026-06-30 08:40 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-30 08:32 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
-- 2026-06-30 08:36 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-30 08:36 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-30 08:51 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-30 08:39 - [日本五次世界杯淘汰赛全败](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-30 08:36 - [三星投资计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
-- 2026-06-30 08:35 - [电影抓特务上映11天破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
-- 2026-06-30 08:47 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
+- 2026-06-30 08:36 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-30 08:59 - [恋与深空道歉声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-30 09:03 - [刘宇宁高情商化解谁站C位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-30 08:54 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-30 08:56 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-30 08:45 - [日本五次世界杯淘汰赛全败](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-30 08:37 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-30 09:03 - [感动全网的699分女生想报考清华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-30 08:49 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-30 08:58 - [日本将帅赛后采访纷纷哽咽落泪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:48 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](http://www.share.kurohicncr.top/Article/details/514486.shtml)
-- 2026-06-30 08:57 - [巴拉圭先进球了](http://www.blog.minike.top/Article/details/6391619755.shtml)
-- 2026-06-30 08:43 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/78374811.shtml)
-- 2026-06-30 08:48 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/850488349866.shtml)
-- 2026-06-30 08:31 - [送你一朵小红花](http://www.share.minike.top/Article/details/3148973.shtml)
-- 2026-06-30 08:42 - [巴拉圭先进球了](https://www.share.minike.top/Article/details/84118167.shtml)
-- 2026-06-30 08:47 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/872041165729.shtml)
-- 2026-06-30 08:48 - [曝詹姆斯即将与勇士会面](http://www.blog.minike.top/Article/details/54577.shtml)
-- 2026-06-30 08:32 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.kurohicncr.top/Article/details/99964795429.shtml)
-- 2026-06-30 08:31 - [电影抓特务上映11天破亿](http://www.blog.kurohicncr.top/Article/details/957957211131.shtml)
-- 2026-06-30 08:34 - [德国vs巴拉圭](https://www.blog.kurohicncr.top/Article/details/16052604.shtml)
-- 2026-06-30 08:51 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/009419.shtml)
-- 2026-06-30 08:45 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/16524933403.shtml)
-- 2026-06-30 08:55 - [女子清吧被陌生人投放伟哥](http://www.share.minike.top/Article/details/6189427.shtml)
-- 2026-06-30 08:36 - [如果有二次元高中是什么样子的？](https://www.share.minike.top/Article/details/4391912.shtml)
+- 2026-06-30 08:39 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/71500778.shtml)
+- 2026-06-30 08:36 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/1664932.shtml)
+- 2026-06-30 08:52 - [第3集丨“柠檬茶能换怀表？”](http://www.blog.minike.top/Article/details/15624.shtml)
+- 2026-06-30 08:41 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/9427317.shtml)
+- 2026-06-30 08:43 - [巴西在进攻三区完成210脚传球](http://www.share.kurohicncr.top/Article/details/2674198.shtml)
+- 2026-06-30 08:43 - [董路：谁赢谁是“正路子”](http://www.share.minike.top/Article/details/5518082404.shtml)
+- 2026-06-30 08:59 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.kurohicncr.top/Article/details/829086.shtml)
+- 2026-06-30 08:38 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/783615349795.shtml)
+- 2026-06-30 08:41 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/78283116.shtml)
+- 2026-06-30 08:49 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/4420877550.shtml)
+- 2026-06-30 09:00 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/26797202.shtml)
+- 2026-06-30 08:55 - [德国4比5巴拉圭](http://www.share.kurohicncr.top/Article/details/999802567.shtml)
+- 2026-06-30 08:37 - [开电动汽车真的很省钱吗？](http://www.share.kurohicncr.top/Article/details/68775053.shtml)
+- 2026-06-30 09:00 - [巴西替补奇兵读秒绝杀](https://www.share.kurohicncr.top/Article/details/2131413458.shtml)
+- 2026-06-30 09:04 - [马航370搜寻最新消息](https://www.blog.kurohicncr.top/Article/details/52113378.shtml)

@@ -1,57 +1,60 @@
-# Carvana进军新车销售领域，此举或将重塑美国汽车零售市场
+# 比尔盖茨将就爱泼斯坦相关事宜接受众议院监督委员会质询
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-核心要点 在成长为美国头部二手车零售商后，Carvana正式向新车市场扩张。 自去年开始，该公司悄悄拿下 7 家新车经销授权门店，主营斯泰兰蒂斯旗下克莱斯勒、道奇、Jeep、公羊品牌。其中位于亚利桑那州的门店，现已成为该车企在美国销量最高的经销门店。 经销商与业内专家认为，此次布局即便不能彻底重塑百年沿袭的新车授权经销体系，也将给行业带来颠覆性冲击。 资深华尔街分析师、汽车行业
+核心要点 微软联合创始人比尔・盖茨即将接受众议院委员会问询，内容围绕他与声名狼藉的性犯罪者杰弗里・爱泼斯坦那段备受争议的交往经历。 这位顶级亿万富豪是接受众议院监督与政府改革委员会针对爱泼斯坦相关事宜严厉质询的知名大人物之一。 就在盖茨出庭作证前一日，该委员会刚完成对爱泼斯坦前长期行政助理莱斯利・格罗夫的问询。 微软联合创始人比尔・盖茨将于本周三接受众议院委员会问询，议题是他与
 
 ## 正文
 
-核心要点 在成长为美国头部二手车零售商后，Carvana正式向新车市场扩张。
+核心要点 微软联合创始人比尔・盖茨即将接受众议院委员会问询，内容围绕他与声名狼藉的性犯罪者杰弗里・爱泼斯坦那段备受争议的交往经历。
 
-自去年开始，该公司悄悄拿下 7 家新车经销授权门店，主营斯泰兰蒂斯旗下克莱斯勒、道奇、Jeep、公羊品牌。
+这位顶级亿万富豪是接受众议院监督与政府改革委员会针对爱泼斯坦相关事宜严厉质询的知名大人物之一。
 
-其中位于亚利桑那州的门店，现已成为该车企在美国销量最高的经销门店。
+就在盖茨出庭作证前一日，该委员会刚完成对爱泼斯坦前长期行政助理莱斯利・格罗夫的问询。
 
-经销商与业内专家认为，此次布局即便不能彻底重塑百年沿袭的新车授权经销体系，也将给行业带来颠覆性冲击。
+微软联合创始人比尔・盖茨将于本周三接受众议院委员会问询，议题是他与臭名昭著的性犯罪者杰弗里・爱泼斯坦颇具争议的往来。
 
-资深华尔街分析师、汽车行业咨询顾问约翰・墨菲在接受 采访时表示：“Carvana入局新车授权经销业务，堪称美国汽车零售行业数十年来最具颠覆性的事件之一。
+数月以来，众议院监督与政府改革委员会一直在调查爱泼斯坦的高端社交人脉网络，身家巨富的盖茨是该委员会传唤质询的重量级人物之一。
 
-” 美国全国汽车经销商协会数据显示，全美现有 16990 家授权汽车经销商，去年行业总销售额突破 1.3 万亿美元。
+盖茨作证的前一天，委员会刚刚完成对爱泼斯坦任职多年的前行政助理莱斯利・格罗夫的询问。
 
-这套成熟的经销体系向来抗拒变革，但近年来，无论是疫情冲击，还是上市经销商集团规模化发展，为了生存，各地经销商的经营模式也在不断灵活调整。
+该委员会主席、肯塔基州共和党众议员詹姆斯・科默周二向媒体表示，针对盖茨的问询没有限制，“任何问题都可能被问到”。
 
-Carvana位于亚利桑那州卡萨格兰德的首家斯泰兰蒂斯新车门店业务增长迅猛。
+“据他的律师称，我不能说他主动迫切想要作证，但他愿意配合，没有抗拒传唤，这点我表示认可。
 
 ## 相关推荐
 
-- 2026-06-30 08:59 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-30 08:42 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-30 08:49 - [金鹰奖视后提名预测](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-30 08:56 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
-- 2026-06-30 08:51 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
-- 2026-06-30 08:35 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-30 08:31 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-30 08:57 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-30 08:39 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
-- 2026-06-30 08:37 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-30 08:50 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-30 08:45 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-30 08:56 - [现在叛逆期的孩子最怕的是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-30 08:43 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-30 08:55 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-30 08:55 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
+- 2026-06-30 08:37 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-30 09:04 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
+- 2026-06-30 08:41 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-30 09:01 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-30 08:44 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-30 09:05 - [古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
+- 2026-06-30 08:50 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-30 09:03 - [欧洲民众抢购空调降温](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-30 09:00 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:55 - [德国巴拉圭 折磨](https://www.blog.kurohicncr.top/Article/details/742249.shtml)
-- 2026-06-30 08:39 - [问心2神一集鬼三集](https://www.share.minike.top/Article/details/10516881969.shtml)
-- 2026-06-30 08:48 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/420569093.shtml)
-- 2026-06-30 08:41 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/278531.shtml)
-- 2026-06-30 08:48 - [点球大战 残酷](https://www.blog.minike.top/Article/details/708162.shtml)
-- 2026-06-30 08:43 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/482490984.shtml)
-- 2026-06-30 08:59 - [黄晓明晒和周杰伦的合照](http://www.blog.minike.top/Article/details/3456479481.shtml)
-- 2026-06-30 08:31 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/81454377.shtml)
-- 2026-06-30 08:38 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/52889.shtml)
-- 2026-06-30 08:39 - [孙兴慜道歉](http://www.blog.kurohicncr.top/Article/details/582712308.shtml)
-- 2026-06-30 08:45 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/057155058.shtml)
-- 2026-06-30 08:30 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/09442755044.shtml)
-- 2026-06-30 08:33 - [巴西足球能否再现昔日荣光](http://www.share.minike.top/Article/details/4078650.shtml)
-- 2026-06-30 08:41 - [这几秒成世界杯最值钱广告位](http://www.blog.kurohicncr.top/Article/details/58958462.shtml)
-- 2026-06-30 08:41 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/45587211.shtml)
+- 2026-06-30 09:00 - [我和我的家乡](http://www.blog.minike.top/Article/details/29636426.shtml)
+- 2026-06-30 08:58 - [本届世界杯已有5名球员被控强奸](http://www.share.kurohicncr.top/Article/details/00124.shtml)
+- 2026-06-30 09:00 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/33670190274.shtml)
+- 2026-06-30 08:57 - [德国队连续三届世界杯无缘16强](http://www.share.kurohicncr.top/Article/details/968735250.shtml)
+- 2026-06-30 08:52 - [全新问界M9现身美国街头](http://www.share.kurohicncr.top/Article/details/628534985.shtml)
+- 2026-06-30 08:37 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/722406.shtml)
+- 2026-06-30 08:54 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/7691286446.shtml)
+- 2026-06-30 08:44 - [荷兰VS摩洛哥](http://www.blog.minike.top/Article/details/960565.shtml)
+- 2026-06-30 08:43 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/825824531016.shtml)
+- 2026-06-30 09:04 - [世界杯巴拉圭点球淘汰德国](https://www.blog.minike.top/Article/details/8404911822.shtml)
+- 2026-06-30 08:42 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.kurohicncr.top/Article/details/185027.shtml)
+- 2026-06-30 08:48 - [董卿父亲在报纸上发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/130193079173.shtml)
+- 2026-06-30 08:54 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.minike.top/Article/details/3589127.shtml)
+- 2026-06-30 08:52 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/23661150.shtml)
+- 2026-06-30 08:52 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/81542289099.shtml)

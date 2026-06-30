@@ -1,56 +1,58 @@
-# 端午节假期全国口岸日均出入境人员将达220万人次
+# 梧州海关2026-2027年度办公用品定点供应协商谈判采购公告
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-端午佳节将至，预计全国口岸将迎来出入境客流高峰。 据国家移民管理局预测，端午节假期全国口岸日均出入境人员将达220万人次，较去年端午节假期增长11.7%，单日最高通关量将突破235万人次。大型空港口岸出入境客流小幅增长，上海浦东、北京首都、广州白云、深圳宝安、北京大兴、成都天府等国际机场日均出入境人员预计分别为10.4万、5.2万、5.2万、2.1万、1.9万、1.7万人次。
+梧州海关拟对本关办公用品定点供应商采购项目进行采购，采用协商谈判的方式择优选择供应单位，现将采购情况公告如下： 一、项目名称 梧州海关2026-2027年度办公用品定点供应商采购项目。 二、报价内容详见“附件1采购需求”。 三、项目预算金额(人民币) 本次项目预算金额(人民币)4万元/年，合同期限2年(最终结算金额根据服务合同确定)。 四、报价人资格 (一)国内注册(按国家有关
 
 ## 正文
 
-端午佳节将至，预计全国口岸将迎来出入境客流高峰。
+梧州海关拟对本关办公用品定点供应商采购项目进行采购，采用协商谈判的方式择优选择供应单位，现将采购情况公告如下： 一、项目名称 梧州海关2026-2027年度办公用品定点供应商采购项目。
 
-据国家移民管理局预测，端午节假期全国口岸日均出入境人员将达220万人次，较去年端午节假期增长11.7%，单日最高通关量将突破235万人次。
+二、报价内容详见“附件1采购需求”。
 
-大型空港口岸出入境客流小幅增长，上海浦东、北京首都、广州白云、深圳宝安、北京大兴、成都天府等国际机场日均出入境人员预计分别为10.4万、5.2万、5.2万、2.1万、1.9万、1.7万人次。
+三、项目预算金额(人民币) 本次项目预算金额(人民币)4万元/年，合同期限2年(最终结算金额根据服务合同确定)。
 
-端午节期间粤港澳三地将举办多场龙舟赛事和大型活动，跨境旅游和返乡探亲客流叠加，毗邻港澳陆路口岸通关流量将明显增多。
+四、报价人资格 (一)国内注册(按国家有关规定要求注册的)，符合《中华人民共和国政府采购法》第二十二条资质条件，具备法人资格的供应商 (二)参加政府采购活动前三年内，在“信用中国”网站(www.creditchina.gov.cn)、中国政府采购网(www.ccgp.gov.cn)等渠道未被列入失信被执行人、重大税收违法案件当事人名单、政府采购严重违法失信行为记录名单及无其他不符合《中华人民共和国政府采购法》第二十二条规定条件。
 
-其中，深圳罗湖、福田、深圳湾、广深港高铁西九龙站、莲塘口岸日均出入境人员预计将分别达到26万、24万、20万、13万、11万人次，珠海拱北、港珠澳大桥、青茂、横琴口岸日均出入境人员预计将分别达到37万、12.2万、11.5万、10.5万人次。
+五、报价文件要求 (一)报价文件格式详见附件2。
 
-国家移民管理局提示广大中外出入境旅客，出行前及时关注口岸客流变化和通关情况，仔细检查出入境证件签证是否有效；中国公民出境时需提前了解前往地安全形势、入境政策等，避免前往存在埃博拉病毒病疫情流行风险的国家和地区。
+(二)报价文件正本1份，副本2份，所有材料须加盖封面章或骑缝章。
 
-通关过程中如遇困难，可随时拨打国家移民管理机构12367服务热线或向现场执勤的移民管理警察寻求帮助。
+所有报价文件需按报价文件目录顺序装订成册，且须装在一个密封袋内，密封袋的封口处应加贴封条并加盖报价人单位公章以示密封，并在密封袋外包装写明参与项目名称、单位名称及联系方式。
 
-(总台央视记者 武兵)
+六、报价须知 (一)报价文件必须满足本次项目报价内容所列需求。
 
 ## 相关推荐
 
-- 2026-06-30 08:32 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
-- 2026-06-30 08:50 - [4000美元是黄金新一轮下跌的开始吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-30 08:39 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-30 08:53 - [三星投资计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-30 08:35 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-30 08:51 - [森保一 保守](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
-- 2026-06-30 08:49 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-30 08:37 - [德国队连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
-- 2026-06-30 08:59 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-30 08:32 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-30 08:47 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-30 08:46 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-30 08:58 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-30 08:38 - [德国巴拉圭 折磨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-30 09:00 - [马耳他著名拱门坍塌致中国男子身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-30 08:38 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-30 08:49 - [董路：谁赢谁是“正路子”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-30 08:37 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-30 08:51 - [张月收到黄灿灿辣货两眼发光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-30 08:43 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-30 08:45 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-30 08:51 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:57 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/9757003.shtml)
-- 2026-06-30 08:52 - [韩国世界杯出局是主帅一个人的锅吗](http://www.share.kurohicncr.top/Article/details/082083.shtml)
-- 2026-06-30 08:40 - [现在叛逆期的孩子最怕的是什么？](http://www.share.kurohicncr.top/Article/details/4162929.shtml)
-- 2026-06-30 08:39 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/5284621.shtml)
-- 2026-06-30 08:58 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/9932041.shtml)
-- 2026-06-30 08:55 - [电影抓特务上映11天破亿](https://www.share.kurohicncr.top/Article/details/83400141.shtml)
-- 2026-06-30 08:39 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/58959713.shtml)
-- 2026-06-30 08:37 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/75135054.shtml)
-- 2026-06-30 08:36 - [免费试吃发差评被店家挂店门避雷](https://www.blog.kurohicncr.top/Article/details/10990.shtml)
-- 2026-06-30 08:57 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/370681110665.shtml)
-- 2026-06-30 08:34 - [库尼亚赛后伸五指嘲讽日本](https://www.blog.kurohicncr.top/Article/details/841667175.shtml)
-- 2026-06-30 08:50 - [张帅晋级温网次轮](http://www.blog.minike.top/Article/details/85415589533.shtml)
-- 2026-06-30 08:57 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/136482584.shtml)
-- 2026-06-30 08:35 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/371721420.shtml)
-- 2026-06-30 08:53 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.kurohicncr.top/Article/details/8596058990.shtml)
+- 2026-06-30 08:36 - [德国队世界杯点球大战首败](https://www.blog.minike.top/Article/details/27027089800.shtml)
+- 2026-06-30 09:03 - [日本淘汰](http://www.share.minike.top/Article/details/62907.shtml)
+- 2026-06-30 08:51 - [收到补税提醒尽快办理 明起有滞纳金](https://www.share.minike.top/Article/details/7843121244.shtml)
+- 2026-06-30 08:42 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/018017876231.shtml)
+- 2026-06-30 08:49 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/5051786.shtml)
+- 2026-06-30 08:43 - [董卿父亲报纸上发文悼念亡妻](https://www.share.minike.top/Article/details/591482015.shtml)
+- 2026-06-30 09:01 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.blog.minike.top/Article/details/203402.shtml)
+- 2026-06-30 08:38 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/88562027.shtml)
+- 2026-06-30 08:51 - [董卿父亲报纸上发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/749297997414.shtml)
+- 2026-06-30 09:01 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/490902944567.shtml)
+- 2026-06-30 09:02 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/5926292.shtml)
+- 2026-06-30 08:39 - [啊啊啊](http://www.share.minike.top/Article/details/45870906719.shtml)
+- 2026-06-30 08:42 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/394506758.shtml)
+- 2026-06-30 09:01 - [《共患难》](https://www.blog.kurohicncr.top/Article/details/972775312213.shtml)
+- 2026-06-30 08:55 - [日本球迷输球后集体捡垃圾](http://www.blog.kurohicncr.top/Article/details/35926.shtml)

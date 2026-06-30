@@ -1,52 +1,61 @@
-# 随着IPO后股价持续上涨 SpaceX有望超越亚马逊的市值
+# 预测市场整体规模大幅扩张，但Polymarket交易量连续第二个月下滑
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-专题：SpaceX市值超越两家“七巨头” 拉开美股巨型IPO浪潮序幕 埃隆·马斯克旗下的SpaceX公司股价周二盘前交易中上涨逾10%，随着该公司延续 IPO后的涨势，其市值有望超越亚马逊，成为全球第五大公司 。 该股周一暴涨逾19%，最新报211.8美元，涨幅达10.1%；若涨势得以维持，公司市值将接近2.8万亿美元。 亚马逊的最新市值为2.66万亿美元。 SpaceX股票成
+核心要点 Polymarket 国际预测交易平台 5 月交易量连续第二个月环比下滑，与此前数月持续暴涨的走势形成鲜明反差。 区块链数据分析平台 Dune Analytics 数据显示，Polymarket 国际平台 5 月交易总额约 71 亿美元，4 月交易额超 90 亿美元；3 月平台交易量达 105 亿美元，创下历史峰值，四五两月规模均不及 3 月。 平台走势出现剧烈反转：
 
 ## 正文
 
-专题：SpaceX市值超越两家“七巨头” 拉开美股巨型IPO浪潮序幕 埃隆·马斯克旗下的SpaceX公司股价周二盘前交易中上涨逾10%，随着该公司延续 IPO后的涨势，其市值有望超越亚马逊，成为全球第五大公司 。
+核心要点 Polymarket 国际预测交易平台 5 月交易量连续第二个月环比下滑，与此前数月持续暴涨的走势形成鲜明反差。
 
-该股周一暴涨逾19%，最新报211.8美元，涨幅达10.1%；若涨势得以维持，公司市值将接近2.8万亿美元。
+区块链数据分析平台 Dune Analytics 数据显示，Polymarket 国际平台 5 月交易总额约 71 亿美元，4 月交易额超 90 亿美元；3 月平台交易量达 105 亿美元，创下历史峰值，四五两月规模均不及 3 月。
 
-亚马逊的最新市值为2.66万亿美元。
+平台走势出现剧烈反转：Dune 数据显示，去年 8 月至今年 3 月期间，Polymarket 交易量累计涨幅超 850%。
 
-SpaceX股票成交额已超过11.6亿美元，是英伟达、微软、特斯拉和苹果四家公司成交额总和的数倍。
+不过其美国本土平台交易规模大幅增长，5 月交易量达 17.7 亿美元，4 月仅为 12.6 亿美元。
 
-责任编辑：刘明亮
+Polymarket 发言人表示，截至 6 月 3 日的过去 30 天里，美国本土平台新增用户增长 86%，新增活跃交易用户涨幅 73%。
+
+即便美国板块大幅回暖，Polymarket 全平台月度名义总交易额仍在大幅缩水。
+
+国际平台交易量下滑之际，其他竞品平台交易规模持续扩张，其中 Polymarket 最大对手 Kalshi 5 月交易额突破 179 亿美元。
+
+近期 Polymarket 接连遭遇负面舆情：科技媒体《The Information》发布报道质疑其美国区管理层、平台爆出两起内幕交易案件、市场参与者担忧部分事件结局不明的预测品种难以正常结算。
 
 ## 相关推荐
 
-- 2026-06-30 08:51 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-30 08:55 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-30 08:36 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-30 08:34 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-30 08:44 - [自然光｜papi酱&窦文涛：驴与跑步机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-30 08:48 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-30 08:53 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-30 08:51 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-30 08:35 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
-- 2026-06-30 08:58 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-30 08:49 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
-- 2026-06-30 08:54 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-30 08:57 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-30 08:56 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
+- 2026-06-30 08:51 - [黄晓明晒和周杰伦的合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-30 08:43 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-30 08:49 - [日本博主：日本足球真的垃圾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-30 08:46 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-30 08:52 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-30 09:00 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-30 09:00 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-30 08:57 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-30 08:59 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-30 08:53 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
+- 2026-06-30 08:52 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-30 08:46 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-30 08:38 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:50 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.minike.top/Article/details/562065034.shtml)
-- 2026-06-30 08:54 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.kurohicncr.top/Article/details/979472897027.shtml)
-- 2026-06-30 08:43 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.share.minike.top/Article/details/827899786368.shtml)
-- 2026-06-30 08:44 - [杨紫获白玉兰视后争议不止](http://www.share.kurohicncr.top/Article/details/541672646815.shtml)
-- 2026-06-30 08:36 - [森保一 保守](http://www.blog.kurohicncr.top/Article/details/91970.shtml)
-- 2026-06-30 08:35 - [韩国世界杯出局是主帅一个人的锅吗](https://www.share.kurohicncr.top/Article/details/260659.shtml)
-- 2026-06-30 08:33 - [世界杯](https://www.share.minike.top/Article/details/580573.shtml)
-- 2026-06-30 08:58 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.kurohicncr.top/Article/details/103720702.shtml)
-- 2026-06-30 08:34 - [泰山建135公里刀片刺绳隔离网](https://www.blog.kurohicncr.top/Article/details/20538267062.shtml)
-- 2026-06-30 08:37 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.share.minike.top/Article/details/4262866.shtml)
-- 2026-06-30 08:54 - [马耳他著名拱门坍塌致一中国男子身亡](https://www.blog.minike.top/Article/details/394043537715.shtml)
-- 2026-06-30 08:41 - [媒体评泰山建135公里刀片刺绳隔离网](http://www.share.kurohicncr.top/Article/details/16920402.shtml)
-- 2026-06-30 08:48 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/011462015499.shtml)
-- 2026-06-30 08:56 - [德国巴拉圭 折磨](http://www.share.kurohicncr.top/Article/details/978591602.shtml)
-- 2026-06-30 08:46 - [荷兰vs摩洛哥](http://www.share.kurohicncr.top/Article/details/30372027.shtml)
+- 2026-06-30 08:55 - [斗破苍穹](http://www.blog.minike.top/Article/details/29629.shtml)
+- 2026-06-30 08:37 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/24870913834.shtml)
+- 2026-06-30 09:00 - [日本队5进世界杯淘汰赛0胜](http://www.blog.minike.top/Article/details/32314440231.shtml)
+- 2026-06-30 08:56 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/422585848665.shtml)
+- 2026-06-30 09:03 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/550987.shtml)
+- 2026-06-30 08:44 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.kurohicncr.top/Article/details/8614152.shtml)
+- 2026-06-30 08:41 - [千与千寻](https://www.share.minike.top/Article/details/287778.shtml)
+- 2026-06-30 09:05 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/70195776.shtml)
+- 2026-06-30 08:39 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/3397655134.shtml)
+- 2026-06-30 09:03 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/123721901496.shtml)
+- 2026-06-30 08:36 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/12514395.shtml)
+- 2026-06-30 09:03 - [德国队世界杯点球大战首败](http://www.blog.kurohicncr.top/Article/details/39957085.shtml)
+- 2026-06-30 08:40 - [有什么好的高中网课推荐吗？](https://www.blog.kurohicncr.top/Article/details/54291824996.shtml)
+- 2026-06-30 08:56 - [诺伊尔尽力了](https://www.blog.kurohicncr.top/Article/details/4750720.shtml)
+- 2026-06-30 08:38 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.share.minike.top/Article/details/9317541.shtml)

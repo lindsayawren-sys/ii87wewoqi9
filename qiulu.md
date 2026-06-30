@@ -1,56 +1,58 @@
-# 民革平顶山市社会和法治委员会开展志愿普法活动
+# 迪进国际推出Digi Remote Reach：无需云代理，直连边缘设备
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-6月15日，民革平顶山市社会和法治委员会与卫东区人力资源和社会保障局、劳动人事争议仲裁委员会联合到东安路街道东苑社区，开展“劳动法律法规”主题普法宣传活动。民革平顶山市委委员、社会和法治委员会主任李春雷以及专委会部分委员参加活动。现场通过悬挂宣传横幅、摆放普法展板、设置咨询服务台、发放宣传手册等形式，向社区居民普及《劳动法》《劳动合同法》《劳动争议调解仲裁法》等相关法律法规。民
+连接解决方案提供商迪进国际（Digi International，纳斯达克代码：DGII）公司周二宣布推出全新的Digi Remote Reach服务。这是一项点对点远程访问能力，面向使用Digi IX25及其他2026年发布蜂窝设备的Digi Remote Manager（DRM）订阅用户，无需额外付费。 与依赖厂商云服务中转流量的传统远程访问工具不同，Digi Remote
 
 ## 正文
 
-6月15日，民革平顶山市社会和法治委员会与卫东区人力资源和社会保障局、劳动人事争议仲裁委员会联合到东安路街道东苑社区，开展“劳动法律法规”主题普法宣传活动。
+连接解决方案提供商迪进国际（Digi International，纳斯达克代码：DGII）公司周二宣布推出全新的Digi Remote Reach服务。
 
-民革平顶山市委委员、社会和法治委员会主任李春雷以及专委会部分委员参加活动。
+这是一项点对点远程访问能力，面向使用Digi IX25及其他2026年发布蜂窝设备的Digi Remote Manager（DRM）订阅用户，无需额外付费。
 
-现场通过悬挂宣传横幅、摆放普法展板、设置咨询服务台、发放宣传手册等形式，向社区居民普及《劳动法》《劳动合同法》《劳动争议调解仲裁法》等相关法律法规。
+与依赖厂商云服务中转流量的传统远程访问工具不同，Digi Remote Reach采用与实时互联网通话相同的点对点协议，在用户浏览器和目标设备之间建立直接的加密隧道。
 
-民革律师党员认真答疑，围绕劳动合同签订、薪资发放、工伤认定、劳动纠纷调处、仲裁办理等居民关注的高频问题，摒弃生硬法条解读，以生活化语言讲解维权流程，引导群众学法懂法、依法理性化解劳资矛盾。
+迪进国际仅负责初始握手，随后便退出连接，没有客户数据经过迪进的云服务器。
 
-此外，他们还针对精简流程、压缩时限的“劳动争议绿色通道”便民机制进行了认真讲解，真正打通法律服务群众的“最后一公里”。
+这种架构使得连接速度更快、安全性更高，且完全由客户控制。
 
-社区居民纷纷表示，此次“送法上门、服务到家”的志愿服务形式贴合群众实际需求，内容实用、针对性强，有效补齐了劳动者的法律知识短板，对提升自身法治素养、化解基层劳资矛盾、维护社会和谐稳定具有积极作用。
+迪进国际产品副总裁Landon Reese表示：“以往的远程访问工具要求客户信任厂商的云服务、为这种信任支付溢价并接受随之而来的延迟。
 
-下一步，民革平顶山市委会社会和法治委员会将持续深耕法治主业、拓宽社会服务覆盖面，以实干履职彰显民革担当、贡献民革力量。
+Digi Remote Reach一次性解决了这三个问题。
+
+点对点架构是我们的差异化优势，而且它已包含在DRM订阅中。
 
 ## 相关推荐
 
-- 2026-06-30 08:30 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-30 08:33 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-30 08:30 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-30 08:53 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
-- 2026-06-30 08:37 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-30 08:46 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-30 08:54 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-30 08:34 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-30 08:56 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-30 08:43 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
-- 2026-06-30 08:59 - [德国巴拉圭 折磨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-30 08:56 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-30 08:52 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-30 08:38 - [男子造谣东鹏老板不喝自家饮料被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-30 08:48 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-30 08:54 - [锐评T1战胜KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-30 08:40 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-30 08:57 - [杨紫大银幕成绩单如何](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-30 08:36 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-30 08:51 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-30 08:52 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-30 08:42 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-30 09:00 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-30 08:58 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:48 - [索马里女大使：想和中国一起搞事业](https://www.share.kurohicncr.top/Article/details/44035.shtml)
-- 2026-06-30 08:32 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/339334978.shtml)
-- 2026-06-30 08:45 - [第一次对自信的力量有了实感](https://www.blog.kurohicncr.top/Article/details/5502462473.shtml)
-- 2026-06-30 08:39 - [补时绝杀 巴西2-1淘汰日本](https://www.share.minike.top/Article/details/737345445795.shtml)
-- 2026-06-30 08:31 - [日本将帅赛后采访纷纷哽咽落泪](http://www.blog.minike.top/Article/details/659532.shtml)
-- 2026-06-30 08:59 - [森保一致歉：世界第一目标没能实现](http://www.share.minike.top/Article/details/200423.shtml)
-- 2026-06-30 08:32 - [郑钦文 四年一轮游](http://www.blog.minike.top/Article/details/031403076439.shtml)
-- 2026-06-30 08:50 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/0719419.shtml)
-- 2026-06-30 08:43 - [健全中小学教师工资长效联动机制](http://www.share.minike.top/Article/details/31511418746.shtml)
-- 2026-06-30 08:45 - [亚洲球队全部出局](http://www.share.kurohicncr.top/Article/details/70356.shtml)
-- 2026-06-30 08:58 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/046230720307.shtml)
-- 2026-06-30 08:59 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/97287.shtml)
-- 2026-06-30 08:52 - [开电动汽车真的很省钱吗？](https://www.blog.kurohicncr.top/Article/details/4134322136.shtml)
-- 2026-06-30 08:51 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/41664.shtml)
-- 2026-06-30 08:50 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/58750405104.shtml)
+- 2026-06-30 09:00 - [周冬雨多次说演不了话剧文城](http://www.blog.minike.top/Article/details/5433892.shtml)
+- 2026-06-30 09:03 - [杨紫学位证上就是杨紫](https://www.share.kurohicncr.top/Article/details/002151.shtml)
+- 2026-06-30 08:37 - [吴易昺不敌德约科维奇 止步温网首轮](http://www.share.minike.top/Article/details/582850770775.shtml)
+- 2026-06-30 08:39 - [周冬雨多次说演不了话剧文城](https://www.share.minike.top/Article/details/58685.shtml)
+- 2026-06-30 08:53 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](http://www.blog.minike.top/Article/details/578210.shtml)
+- 2026-06-30 09:03 - [日本将帅赛后采访纷纷哽咽落泪](https://www.share.kurohicncr.top/Article/details/85207.shtml)
+- 2026-06-30 08:53 - [点球大战](http://www.blog.minike.top/Article/details/91095.shtml)
+- 2026-06-30 08:54 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.blog.kurohicncr.top/Article/details/151878725.shtml)
+- 2026-06-30 08:41 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.minike.top/Article/details/73223739221.shtml)
+- 2026-06-30 08:48 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.minike.top/Article/details/2491215918.shtml)
+- 2026-06-30 08:59 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/72688.shtml)
+- 2026-06-30 08:53 - [美股深夜大反弹 特斯拉飙涨8%](http://www.blog.kurohicncr.top/Article/details/60739.shtml)
+- 2026-06-30 08:59 - [现在叛逆期的孩子最怕的是什么？](https://www.blog.kurohicncr.top/Article/details/6387930933.shtml)
+- 2026-06-30 09:02 - [世界杯名画巴拉圭钢铁防线](http://www.share.minike.top/Article/details/3979882.shtml)
+- 2026-06-30 08:41 - [为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？](http://www.blog.minike.top/Article/details/4541054.shtml)

@@ -1,57 +1,58 @@
-# 1400亿山姆遭约谈，拷问极速达
+# 酒价内参6月11日价格发布：飞天茅台下跌2元，终结此前五连阳
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-狂飙的山姆，摊上事了。 6月15日，监管机构披露，已依法对沃尔玛（中国）投资有限公司，即山姆总部的负责人进行责任约谈，主要针对其门店及网店多发的食安问题。 这可谓是对山姆的系统性问责。 “针对约谈中监管部门指出的问题与整改要求，我们完全认可、深刻反思并诚恳接受。”山姆相关负责人回应《21CBR》称。 山姆已公开表示，已由管理层牵头，成立专项整改工作组，启动全渠道、全链路专项自查
+新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月11日整体低位小幅回弹。如果主要单品各取一瓶整体打包售卖，今日总售价为9888元，较昨日小幅上涨7元，结束此前连续两日的回调走势，但仍处于近30天低位区间。市场在前一日回落至近30天次低位后开始修复，终端交投情绪略有回暖，但核心单品的涨跌分化度依然显著。 今日11大白酒单品五涨四跌两平，赢家
 
 ## 正文
 
-狂飙的山姆，摊上事了。
+新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月11日整体低位小幅回弹。
 
-6月15日，监管机构披露，已依法对沃尔玛（中国）投资有限公司，即山姆总部的负责人进行责任约谈，主要针对其门店及网店多发的食安问题。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9888元，较昨日小幅上涨7元，结束此前连续两日的回调走势，但仍处于近30天低位区间。
 
-这可谓是对山姆的系统性问责。
+市场在前一日回落至近30天次低位后开始修复，终端交投情绪略有回暖，但核心单品的涨跌分化度依然显著。
 
-“针对约谈中监管部门指出的问题与整改要求，我们完全认可、深刻反思并诚恳接受。
+今日11大白酒单品五涨四跌两平，赢家数量略占优势。
 
-”山姆相关负责人回应《21CBR》称。
+上涨方面，洋河梦之蓝M6+、古井贡古20与习酒君品涨幅居前，均上涨5元/瓶，其中洋河梦之蓝M6+自昨日创下的近30天最低价反弹，但价格囿于月内低位区间，古井贡古20连续两日上涨，价格升至进入六月以来最高位，习酒君品终结此前三连阴，但价格仍处于月内次低位；国窖1573上涨4元/瓶，连续三日反弹；五粮液1618上涨2元/瓶，收获两连阳，自前日月内最低位连续修复。
 
-山姆已公开表示，已由管理层牵头，成立专项整改工作组，启动全渠道、全链路专项自查整改。
+下跌方面，精品茅台、五粮液普五八代与青花郎均下跌4元/瓶，其中精品茅台连续三日回调，前期反弹动能逐渐减弱；五粮液普五八代连续三日下探，今日价格将将守住800元整数关口，创今年2月2日以来最低价纪录，近一月价格中枢下移态势尤为明显；青花郎连续两日回落，再度跌破690元。
 
-记者查询公开信息，发现山姆线上配送服务“极速达”已多次卷入食安纷争，暴露出短板。
+飞天茅台下跌2元/瓶，终结此前五连阳。
 
-“过去几年，山姆在中国的门店和前置仓数量翻倍增长，只是，供应链的精细化管理、冷链监控、人员培训没能跟上速度。
+青花汾20与水晶剑南春价格环比保持不变，其中前者仍处在30天最低位。
 
 ## 相关推荐
 
-- 2026-06-30 08:41 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-30 08:35 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
-- 2026-06-30 08:41 - [韩国道歉完日本道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-30 08:47 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-30 08:51 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-30 08:48 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-30 08:54 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
-- 2026-06-30 08:34 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
-- 2026-06-30 08:53 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-30 08:53 - [田中碧失误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
-- 2026-06-30 08:49 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-30 08:57 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-30 09:05 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
+- 2026-06-30 08:38 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-30 08:54 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-30 08:54 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-30 08:45 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-30 08:54 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-30 08:59 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-30 08:44 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
+- 2026-06-30 08:58 - [韩国世界杯出局是主帅一个人的锅吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-30 08:41 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-30 08:54 - [锐评T1战胜KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:40 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/88031241.shtml)
-- 2026-06-30 08:39 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/8180089.shtml)
-- 2026-06-30 08:38 - [南北多地暴雨和强对流天气持续](http://www.blog.kurohicncr.top/Article/details/945020.shtml)
-- 2026-06-30 08:35 - [斛珠夫人](https://www.blog.minike.top/Article/details/5725940583.shtml)
-- 2026-06-30 08:44 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/0233730.shtml)
-- 2026-06-30 08:46 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/74159961424.shtml)
-- 2026-06-30 08:49 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/4078696.shtml)
-- 2026-06-30 08:43 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/750188.shtml)
-- 2026-06-30 08:46 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/5363034810.shtml)
-- 2026-06-30 08:31 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/032568362595.shtml)
-- 2026-06-30 08:53 - [恋与深空制作组回应近期争议](http://www.share.minike.top/Article/details/65847.shtml)
-- 2026-06-30 08:35 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/55296916724.shtml)
-- 2026-06-30 08:42 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/30039923.shtml)
-- 2026-06-30 08:54 - [赛博朋克边缘行者2预告片](http://www.blog.minike.top/Article/details/746562534.shtml)
-- 2026-06-30 08:48 - [点球大战](https://www.blog.minike.top/Article/details/221285958.shtml)
+- 2026-06-30 09:04 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/3291068434.shtml)
+- 2026-06-30 08:41 - [马耳他著名拱门坍塌致中国男子身亡](https://www.blog.kurohicncr.top/Article/details/056355.shtml)
+- 2026-06-30 08:41 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/237646.shtml)
+- 2026-06-30 08:54 - [内马尔安慰日本球员](http://www.share.kurohicncr.top/Article/details/499755264.shtml)
+- 2026-06-30 08:37 - [输球后日本球迷被强行披上巴西国旗](https://www.share.minike.top/Article/details/0979894789.shtml)
+- 2026-06-30 08:39 - [森保一致歉：世界第一目标没能实现](https://www.share.minike.top/Article/details/483593.shtml)
+- 2026-06-30 08:58 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/828271936184.shtml)
+- 2026-06-30 08:37 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/4676594607.shtml)
+- 2026-06-30 08:41 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/53588264.shtml)
+- 2026-06-30 09:00 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/6102631.shtml)
+- 2026-06-30 08:59 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/7797908647.shtml)
+- 2026-06-30 08:46 - [日本将帅赛后采访纷纷哽咽落泪](https://www.share.kurohicncr.top/Article/details/800152994.shtml)
+- 2026-06-30 08:46 - [输球后日本球迷被强行披上巴西国旗](http://www.share.minike.top/Article/details/3184409.shtml)
+- 2026-06-30 09:04 - [森保一 保守](http://www.share.kurohicncr.top/Article/details/838331.shtml)
+- 2026-06-30 08:54 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/25232313712.shtml)

@@ -1,59 +1,56 @@
-# 突发立案！*ST广糖000911因信息披露违法违规被立案，符合条件股民可登记索赔
+# 老乡鸡一门店被曝餐具掉色，图案被印到蒸蛋上！客服回应：涉事批次全部召回封存，正全面排查
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 6月12日，广西农投糖业集团股份有限公司（以下简称“广农糖业”或“公司”）发布公告，公司因涉嫌信息披露违法违规被立案调查，此前公司发布会计差错更正公告。上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，于2024年4月3日-2026年4月28日期间买入且有持仓，无论在2026年4月29日及之后是
+封面新闻记者 李茂佳 近日，有网友在社交平台反映，其在上海市徐汇区漕河泾园区店的“老乡鸡”快餐门店就餐时，发现餐具底部花纹疑似掉色，印记已沾染到蒸蛋上。 6月9日，“老乡鸡”官方客服回应封面新闻，涉事批次餐具已全部召回封存、暂停使用，目前正在全面排查中。 律师受访时表示，餐具油墨污染餐食已涉嫌违反食品安全法规，若认定门店明知问题餐具仍使用，消费者可向“老乡鸡”门店或品牌方主张惩
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 6月12日，广西农投糖业集团股份有限公司（以下简称“广农糖业”或“公司”）发布公告，公司因涉嫌信息披露违法违规被立案调查，此前公司发布会计差错更正公告。
+封面新闻记者 李茂佳 近日，有网友在社交平台反映，其在上海市徐汇区漕河泾园区店的“老乡鸡”快餐门店就餐时，发现餐具底部花纹疑似掉色，印记已沾染到蒸蛋上。
 
-上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，于2024年4月3日-2026年4月28日期间买入且有持仓，无论在2026年4月29日及之后是否卖出的投资者，可通过“新浪股民维权平台”自愿预登记索赔。
+6月9日，“老乡鸡”官方客服回应封面新闻，涉事批次餐具已全部召回封存、暂停使用，目前正在全面排查中。
 
-（赵敬国律师专栏） 回顾本案，2026年4月29日，公司发布《关于前期会计差错更正及追溯调整的公告》，载明公司会计差错更正及追溯调整涉及2023 年至2025 年度已披露的一季度报告、半年度报告、三季度报告和年度报告的合并财务报表。
+律师受访时表示，餐具油墨污染餐食已涉嫌违反食品安全法规，若认定门店明知问题餐具仍使用，消费者可向“老乡鸡”门店或品牌方主张惩罚性赔偿。
 
-公司于2026 年6月12日收到中国证券监督管理委员会（以下简称中国证监会）下发的《立案告知书》（编号：证监立案字 0272026007 号），因公司涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，中国证监会决定对公司立案。
+食客用餐发现蒸蛋沾染碗底花纹 当事人杨女士（化名）接受媒体采访时介绍，事情发生在6月5日晚餐时段，当时她正在徐汇一家“老乡鸡”门店就餐。
 
-信本股民索赔团队提醒，*ST广糖（维权）被证监会立案调查，因此受损投资者可通过“新浪股民维权平台”自愿预登记索赔。
+用餐过程中，她突然看到购买的蒸蛋上有花纹印记，仔细辨认后发现这一印记是蒸蛋碗内底部的图案，随后向店员反馈了问题。
 
-索赔条件： *ST广糖：于2024年4月3日-2026年4月28日期间买入且有持仓，无论在2026年4月29日及之后是否卖出。
+针对上述情况，杨女士表示，希望“老乡鸡”品牌方核查涉事蒸蛋碗的材质，解释餐具图案疑似掉色、被印到蒸蛋上的具体原因，并更换问题餐具，同时对其进行合理赔偿。
 
-（具体赔付范围由法院确定）（*ST广糖维权入口） （本文由上海市信本律师事务所合伙人赵敬国律师供稿，不代表新浪财经的观点。
+杨女士发布的帖文截图显示，事发后，她向“老乡鸡”客服反映了相关情况。
 
-赵敬国律师，于1999年取得律师资格，法学理论知识扎实，曾在高校任教。
+客服询问具体是哪家店，还留下了杨女士的电话和订单信息，杨女士回复是“上海徐汇区漕河泾园区店。
 
 ## 相关推荐
 
-- 2026-06-30 08:38 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
-- 2026-06-30 08:54 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
-- 2026-06-30 08:46 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-30 08:56 - [泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-30 08:55 - [巴拉圭进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-30 08:31 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
-- 2026-06-30 08:50 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-30 08:53 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
-- 2026-06-30 08:32 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-30 08:57 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-30 08:39 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
-- 2026-06-30 08:54 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-30 08:41 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-30 08:53 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-30 08:54 - [大蒜晒外面被路过女子连盆端走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-30 08:56 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-30 09:03 - [中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-30 08:46 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
+- 2026-06-30 08:55 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-30 08:44 - [世界杯巴拉圭点球淘汰德国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-30 08:36 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-30 09:05 - [日本主帅：未能夺冠深感抱歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-30 08:55 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:49 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/4481180464.shtml)
-- 2026-06-30 08:46 - [王楚钦说配合稍微有些陌生感](https://www.blog.kurohicncr.top/Article/details/10750274942.shtml)
-- 2026-06-30 08:55 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/532651118621.shtml)
-- 2026-06-30 08:59 - [湖南祁东原文化馆被指贱卖](http://www.share.minike.top/Article/details/93698845.shtml)
-- 2026-06-30 08:59 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/811179062.shtml)
-- 2026-06-30 08:30 - [卡塞米罗头球破门](https://www.blog.kurohicncr.top/Article/details/30761485139.shtml)
-- 2026-06-30 08:53 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/8010712641.shtml)
-- 2026-06-30 08:59 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/813045851128.shtml)
-- 2026-06-30 08:40 - [德国4比5巴拉圭](http://www.blog.minike.top/Article/details/7482567189.shtml)
-- 2026-06-30 08:45 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/844493.shtml)
-- 2026-06-30 08:50 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/836259109.shtml)
-- 2026-06-30 08:31 - [巴西绝杀日本：漫画般结局换了主角](http://www.share.minike.top/Article/details/457122756.shtml)
-- 2026-06-30 08:31 - [卡塞米罗头球破门](https://www.blog.kurohicncr.top/Article/details/68627224.shtml)
-- 2026-06-30 08:38 - [卡塞米罗头球破门](https://www.blog.kurohicncr.top/Article/details/06385672417.shtml)
-- 2026-06-30 08:36 - [巴西在进攻三区完成210脚传球](http://www.blog.kurohicncr.top/Article/details/085434.shtml)
+- 2026-06-30 08:48 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](http://www.blog.minike.top/Article/details/861092.shtml)
+- 2026-06-30 08:46 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/4838280.shtml)
+- 2026-06-30 09:03 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/616222.shtml)
+- 2026-06-30 09:05 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/8856132.shtml)
+- 2026-06-30 08:46 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.minike.top/Article/details/084442608.shtml)
+- 2026-06-30 09:02 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/221970.shtml)
+- 2026-06-30 08:50 - [补时绝杀 巴西2-1淘汰日本](http://www.share.kurohicncr.top/Article/details/5154404932.shtml)
+- 2026-06-30 08:40 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.kurohicncr.top/Article/details/165684121.shtml)
+- 2026-06-30 08:45 - [啊啊啊](http://www.share.minike.top/Article/details/015536703231.shtml)
+- 2026-06-30 08:57 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/537767541.shtml)
+- 2026-06-30 08:36 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.kurohicncr.top/Article/details/352761362.shtml)
+- 2026-06-30 08:41 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/633400228237.shtml)
+- 2026-06-30 08:53 - [日耳曼拖拉机](http://www.blog.kurohicncr.top/Article/details/544479.shtml)
+- 2026-06-30 08:50 - [巴西醒醒 这是淘汰赛](https://www.blog.minike.top/Article/details/776132063.shtml)
+- 2026-06-30 08:40 - [又一家县级医院关停门诊输液大厅](http://www.blog.minike.top/Article/details/47419.shtml)

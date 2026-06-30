@@ -1,59 +1,59 @@
-# 日本右翼亲台组织大张旗鼓更名，用“日台”代替“日华”，装都不装了丨真相
+# 张忆东：对《夏日寒风》保持警醒 静待秋天AI行情逻辑扩散再起
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-中新网6月16日电 (燕新台)据日本共同社消息，日前，日本议会的所谓“亲台”组织“日华议员恳谈会”决定把名称改为“日本台湾友好议员联盟”。赖清德不仅通过视频“叫好”，还派去其办公室发言人跑到日本“道贺”，再次上演了一出日本右翼与“台独”分子一唱一和、勾连谋“独”的荒唐闹剧。 在中日关系因日本首相高市早苗的涉台错误言论陷入低谷之际，“日华议员恳谈会”为何要大张旗鼓地选择此时更名？
+专题：警惕短期波动 机构建议中期布局AI与中国优质资产 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！作者：张忆东 海通国际首席经济学家 在上周和周一大跌、周二喘息之后，我对《夏日寒风》依然保持警醒，6、7月全球股市行情依然谨慎、依然看空，依然强调灰犀牛的冲击力还没有过去，调整的时间和空间都不够，所以，建议投资组合要充分考虑短期风险承受能力，依然不建议
 
 ## 正文
 
-中新网6月16日电 (燕新台)据日本共同社消息，日前，日本议会的所谓“亲台”组织“日华议员恳谈会”决定把名称改为“日本台湾友好议员联盟”。
+专题：警惕短期波动 机构建议中期布局AI与中国优质资产 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-赖清德不仅通过视频“叫好”，还派去其办公室发言人跑到日本“道贺”，再次上演了一出日本右翼与“台独”分子一唱一和、勾连谋“独”的荒唐闹剧。
+作者：张忆东 海通国际首席经济学家 在上周和周一大跌、周二喘息之后，我对《夏日寒风》依然保持警醒，6、7月全球股市行情依然谨慎、依然看空，依然强调灰犀牛的冲击力还没有过去，调整的时间和空间都不够，所以，建议投资组合要充分考虑短期风险承受能力，依然不建议操作太激进，不建议加杠杆抄底。
 
-在中日关系因日本首相高市早苗的涉台错误言论陷入低谷之际，“日华议员恳谈会”为何要大张旗鼓地选择此时更名？
+事实上，从5月6号发布《夏日寒风》开始至今，我持续提示6、7月份风险，提醒灰犀牛和三只黑天鹅。
 
-不妨先起底该组织的黑历史。
+认为夏季行情一波三折，N型走势，5月冲高，6、7月下跌，然后才有转机。
 
-“日华议员恳谈会”是怎么来的？
+一直提醒节奏的6、7月的重要变盘点如下： • 北京时间6.10晚上8：30公布美国CPI将决定利率上行节奏。
 
-早在1972年中日邦交正常化后不久，已故的日本前首相安倍晋三的外祖父岸信介就于1973年3月组织152名自民党国会议员成立“日华议员恳谈会”。
+5月CPI 如果≥3.9%：则10年期美债向上可能大超预期，全球科技牛市明显调整杀估值。
 
-目前，该组织自称有超过300位日本国会议员。
+• 2026年6月11日至7月19日举行美加墨世界杯 • 6.16-6.17 美联储议息会议，利率决议+点阵图：北京时间 6月18日凯文沃什讲话 全球资产定价之锚---美债10年期收益率向上扰动的节奏和强度，将决定夏日寒风的惨烈程度 • 突破4.5%：科技股阶段性调整 • 4.7%–5.0%：终极顶部，行情调整进入短期恐慌阶段。
 
-表面上来看，“日华议员恳谈会”声称是为了维持与台湾地区的友好关系，实际上是为了在中日邦交正常化后，继续维系与台湾地区的政治勾连，充当官方不便出面的“白手套”，初衷并不单纯。
+特别是在6月3日下午做了2个小时的直播，吹哨海外风险的直播，相关直播纪要的完整PDF版可以联系国泰海通/海通国际的销售。
 
 ## 相关推荐
 
-- 2026-06-30 08:41 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-30 08:48 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-30 08:39 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-30 08:36 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
-- 2026-06-30 08:31 - [黄晓明晒和周杰伦的合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
-- 2026-06-30 08:50 - [巴西绝杀日本：漫画般结局换了主角](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-30 08:40 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-30 08:38 - [张月收到黄灿灿辣货两眼发光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-30 08:38 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-30 08:34 - [感动全网的699分女生想报考清华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-30 08:30 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-30 08:32 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-30 08:48 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-30 08:50 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-30 08:48 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-30 08:57 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-30 08:55 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-30 08:36 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-30 08:47 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
+- 2026-06-30 08:41 - [索马里女大使：想和中国一起搞事业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-30 08:52 - [张雪的一句“是我们”引发岛内热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-30 08:43 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-30 08:59 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
+- 2026-06-30 08:51 - [四川凉山落石砸毁车辆 3人遇难](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-30 08:51 - [4000美元是黄金新一轮下跌的开始吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
+- 2026-06-30 08:42 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:30 - [董卿父亲报纸上发文悼念亡妻](http://www.blog.minike.top/Article/details/4037500921.shtml)
-- 2026-06-30 08:38 - [马耳他著名拱门坍塌致中国男子身亡](http://www.blog.minike.top/Article/details/28280594630.shtml)
-- 2026-06-30 08:31 - [德国进球被吹](https://www.blog.kurohicncr.top/Article/details/6068739033.shtml)
-- 2026-06-30 08:57 - [高考结束了，你会让孩子在家玩手机吗？](http://www.blog.minike.top/Article/details/77496850.shtml)
-- 2026-06-30 08:50 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/39762399.shtml)
-- 2026-06-30 08:44 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/1796416.shtml)
-- 2026-06-30 08:46 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/374718724735.shtml)
-- 2026-06-30 08:40 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/9742290667.shtml)
-- 2026-06-30 08:35 - [流金岁月](https://www.share.minike.top/Article/details/761803.shtml)
-- 2026-06-30 08:30 - [有酒店推行24小时退房制](http://www.share.kurohicncr.top/Article/details/628728.shtml)
-- 2026-06-30 08:53 - [城市规划有可能成为「屎山代码」吗？](https://www.blog.kurohicncr.top/Article/details/97059043.shtml)
-- 2026-06-30 08:38 - [女心理师](http://www.blog.kurohicncr.top/Article/details/9159666324.shtml)
-- 2026-06-30 08:55 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/87269208.shtml)
-- 2026-06-30 08:58 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/59935832436.shtml)
-- 2026-06-30 08:44 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/822764.shtml)
+- 2026-06-30 08:43 - [为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？](http://www.blog.minike.top/Article/details/49434793.shtml)
+- 2026-06-30 08:59 - [王曼昱被突如其来的话筒逗笑了](http://www.blog.kurohicncr.top/Article/details/973779278.shtml)
+- 2026-06-30 08:56 - [我觉得你是在无中生友](http://www.share.kurohicncr.top/Article/details/08744679159.shtml)
+- 2026-06-30 09:04 - [安切洛蒂 换人](http://www.blog.minike.top/Article/details/96344190.shtml)
+- 2026-06-30 08:39 - [古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?](http://www.blog.kurohicncr.top/Article/details/56542719799.shtml)
+- 2026-06-30 08:36 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/3182855.shtml)
+- 2026-06-30 08:43 - [内马尔安慰日本球员](http://www.blog.kurohicncr.top/Article/details/324106.shtml)
+- 2026-06-30 08:54 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/51163.shtml)
+- 2026-06-30 09:03 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/3232306.shtml)
+- 2026-06-30 08:38 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/65848.shtml)
+- 2026-06-30 08:37 - [高考结束了，你会让孩子在家玩手机吗？](https://www.share.kurohicncr.top/Article/details/228741540.shtml)
+- 2026-06-30 08:39 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/194769120969.shtml)
+- 2026-06-30 08:37 - [极限挑战第一季](http://www.blog.minike.top/Article/details/83995596060.shtml)
+- 2026-06-30 08:42 - [孙颖莎王楚钦晋级8强](https://www.share.minike.top/Article/details/654110.shtml)
+- 2026-06-30 08:57 - [毒液2](http://www.share.minike.top/Article/details/153257992291.shtml)

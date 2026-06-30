@@ -1,58 +1,56 @@
-# 海外华媒侨领走进重庆荣昌：触摸千年文脉 感受发展活力
+# 受权发布丨国家人权行动计划（2026－2030年）
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-外国专家看中华传统文化中的人权观念为何说平陆运河连通江海融通东盟？“新疆小羊”爆火，折射哪些文旅市场新变化？美伊确认达成协议 “难缠”的以色列会否搅局？封关半年看海南：“老外”为何喜欢来“追箭”？访南京“空翻哥”孟新艺：望有朝一日跨进世界杯赛场以发展权赋能气候正义 深化中欧绿色伙伴关系年少的话，长大后都反过来了千年丝路故城焕生机 “夜游”圈粉中外客美加墨世界杯开赛迄今，亚洲区球
+新华社北京6月11日电 国务院新闻办公室6月11日发布《国家人权行动计划(2026-2030年)》。全文如下： 国家人权行动计划 (2026-2030年) 中华人民共和国国务院新闻办公室 2026年6月 目录 导言 一、全方位推进经济、社会和文化权利保障 (一)适当生活水准权 (二)工作权 (三)社会保障权 (四)财产权 (五)健康权 (六)受教育权 (七)文化权 二、健全公民
 
 ## 正文
 
-外国专家看中华传统文化中的人权观念为何说平陆运河连通江海融通东盟？
+新华社北京6月11日电 国务院新闻办公室6月11日发布《国家人权行动计划(2026-2030年)》。
 
-“新疆小羊”爆火，折射哪些文旅市场新变化？
+全文如下： 国家人权行动计划 (2026-2030年) 中华人民共和国国务院新闻办公室 2026年6月 目录 导言 一、全方位推进经济、社会和文化权利保障 (一)适当生活水准权 (二)工作权 (三)社会保障权 (四)财产权 (五)健康权 (六)受教育权 (七)文化权 二、健全公民权利和政治权利保障机制 (一)生命权 (二)人身权、人格权 (三)个人信息权益 (四)宗教信仰自由 (五)民主权利 (六)获得公正审判的权利 三、强化环境权利保障 (一)健全现代生态环境治理体系 (二)推进污染防治攻坚 (三)提升生态系统多样性稳定性持续性 (四)应对气候变化 四、保障少数民族、妇女、儿童、老年人、残疾人权益 (一)少数民族权益 (二)妇女权益 (三)儿童权益 (四)老年人权益 (五)残疾人权益 五、引导新兴人权领域健康发展 (一)创造美好数智生活 (二)促进
 
-美伊确认达成协议 “难缠”的以色列会否搅局？
+2026年至2030年是中国基本实现社会主义现代化夯实基础、全面发力的关键时期。
 
-封关半年看海南：“老外”为何喜欢来“追箭”？
+站在新的起点上，中国人权事业发展具备了更加坚实的基础和有利条件，人民期待更高质量的发展和更加全面的人权保障。
 
-访南京“空翻哥”孟新艺：望有朝一日跨进世界杯赛场以发展权赋能气候正义 深化中欧绿色伙伴关系年少的话，长大后都反过来了千年丝路故城焕生机 “夜游”圈粉中外客美加墨世界杯开赛迄今，亚洲区球队仍无败绩中国制造、中国技术、中国IP，成为世界杯“隐形冠军”台舆论关注海峡论坛：释实质利好 赴陆热难挡中国汽车的AI进行时：技术渗透全链，产业格局渐变美国又对全球通讯命脉“卡脖子”，遭殃的可能是美企张凌赫喊话台胞：海峡的距离，挡不住同胞走亲走近的交流步伐加盟店前股东借款超千万失联，周大福回应人类首位万亿美元富豪诞生，资本市场风险浮出水面比赛首日，全球各大市场同步走高！
+同时，中国发展不平衡不充分问题仍然突出，变乱交织的国际环境不确定性不稳定性明显增强，科技发展和产业变革催生新的权利需求。
 
-“世界杯魔咒”失灵了？
+在总结既往成功经验基础上，依据国家尊重和保障人权的宪法原则，遵循《世界人权宣言》《维也纳宣言和行动纲领》及有关国际人权公约精神，立足中国现实国情，结合《中华人民共和国国民经济和社会发展第十五个五年规划纲要》，中国政府制定《国家人权行动计划(2026-2030年)》(以下简称《行动计划》)，确定2026年至2030年尊重、保护、促进人权的阶段性目标、指标性任务和具体举措。
 
-“微笑天使”江豚逐浪嬉戏 长江大保护与十年禁渔成效显著这群刚毕业的藏族学生用特别的方式踏上回家路河南灵宝：端午将至 村民制作传统槲叶粽台青初到大陆被震撼：怎么发展这么快！
+《行动计划》的制定和实施，坚持以习近平新时代中国特色社会主义思想为指导，认真贯彻落实习近平关于尊重和保障人权的重要论述，奉行以人民为中心的人权理念，坚定不移走中国人权发展道路，将人权保障贯穿中国式现代化全过程，不断增强人民对于人权保障的获得感、幸福感、安全感。
 
-感觉遍地是机会直击武警多课目比武竞赛现场西藏羊卓雍错：夏日限定高原盛景《给阿嬷的情书》登陆马来西亚 每日排片将超500场走进脑机接口实验室：大脑的想法，如何被“读懂”？
+《行动计划》的基本原则是：呵护人的生命、价值、尊严，以系统性思维谋划人权建设，依法、平等、务实、协调、合力推进人权事业发展，在物质文明、政治文明、精神文明、社会文明、生态文明协调发展中全方位提升各项人权保障水平，促进人的全面发展、社会全面进步。
 
 ## 相关推荐
 
-- 2026-06-30 08:42 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-30 08:56 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-30 08:56 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
-- 2026-06-30 08:52 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-30 08:40 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-30 08:58 - [高质量发展看新疆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-30 08:44 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-30 08:51 - [德国队世界杯点球大战首败](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
-- 2026-06-30 08:41 - [电影抓特务上映11天破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
-- 2026-06-30 08:37 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
-- 2026-06-30 08:40 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
-- 2026-06-30 08:45 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-30 08:37 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
+- 2026-06-30 09:04 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-30 08:50 - [韩国世界杯出局是主帅一个人的锅吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-30 09:05 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-30 08:36 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-30 08:43 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-30 08:51 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-30 08:46 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-30 08:57 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-30 08:59 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:31 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/0018317.shtml)
-- 2026-06-30 08:51 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/03215778.shtml)
-- 2026-06-30 08:52 - [欧洲民众抢购空调降温](https://www.share.kurohicncr.top/Article/details/407055.shtml)
-- 2026-06-30 08:51 - [杨紫获白玉兰视后争议不止](http://www.share.kurohicncr.top/Article/details/5477774.shtml)
-- 2026-06-30 08:54 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/962856737381.shtml)
-- 2026-06-30 08:40 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/936082325.shtml)
-- 2026-06-30 08:30 - [Melo向柳智敏张元英道歉](https://www.blog.minike.top/Article/details/821703.shtml)
-- 2026-06-30 08:58 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/281487.shtml)
-- 2026-06-30 08:32 - [周生如故](http://www.blog.minike.top/Article/details/40674.shtml)
-- 2026-06-30 08:36 - [内马尔替补](http://www.blog.minike.top/Article/details/68659630.shtml)
-- 2026-06-30 08:52 - [杨紫获白玉兰视后为何争议难平](https://www.share.minike.top/Article/details/46007083.shtml)
-- 2026-06-30 08:35 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/743501.shtml)
-- 2026-06-30 08:46 - [巴西2比1日本](https://www.blog.minike.top/Article/details/30934.shtml)
-- 2026-06-30 08:51 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/0639860221.shtml)
-- 2026-06-30 08:52 - [苗族银饰](http://www.blog.minike.top/Article/details/860957350.shtml)
+- 2026-06-30 08:51 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/84207509016.shtml)
+- 2026-06-30 08:50 - [卢卡申科发布解放军仪仗队视频](http://www.blog.kurohicncr.top/Article/details/9784108.shtml)
+- 2026-06-30 08:58 - [千与千寻](http://www.share.minike.top/Article/details/042502084.shtml)
+- 2026-06-30 08:49 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/685643168048.shtml)
+- 2026-06-30 08:39 - [现在叛逆期的孩子最怕的是什么？](http://www.share.minike.top/Article/details/0751855.shtml)
+- 2026-06-30 09:00 - [世界杯：荷兰vs摩洛哥](https://www.share.minike.top/Article/details/80565215.shtml)
+- 2026-06-30 08:41 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/5661369.shtml)
+- 2026-06-30 08:37 - [韩国道歉完日本道歉](http://www.share.kurohicncr.top/Article/details/601491470731.shtml)
+- 2026-06-30 09:05 - [巴西2比1日本](https://www.share.kurohicncr.top/Article/details/534237818436.shtml)
+- 2026-06-30 09:05 - [德国淘汰](http://www.blog.minike.top/Article/details/651992.shtml)
+- 2026-06-30 08:41 - [金牌调解](http://www.share.minike.top/Article/details/34015105200.shtml)
+- 2026-06-30 08:59 - [巴西2比1日本](http://www.blog.kurohicncr.top/Article/details/56142415.shtml)
+- 2026-06-30 08:50 - [“荒唐”背后的韩国足球](https://www.blog.kurohicncr.top/Article/details/42591.shtml)
+- 2026-06-30 08:44 - [爆冷出局！德国点球大战不敌巴拉圭](http://www.share.minike.top/Article/details/18577.shtml)
+- 2026-06-30 08:56 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/618702.shtml)

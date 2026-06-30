@@ -1,56 +1,58 @@
-# 青海出台实施意见推动服务业扩容升级、提质增效
+# 溯源中华文脉 在沪港澳台大学生夏令营举行
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-中新网西宁6月16日电 (李隽)记者16日从青海省发展和改革委员会获悉，为推进生产性服务业向专业化和价值链高端延伸，青海省政府近日印发《青海省推进服务业扩能提质的实施意见》(以下简称《实施意见》)，推动服务业扩容升级、提质增效。 据悉，青海省聚焦服务业发展的难点堵点，提出了推动生产性服务业扩容升级、提高生活性服务业供给品质、加快产业融合化数智化发展、扶持企业做优做强4方面的21
+中新网上海6月9日电(范宇斌)近日，第二十届“爱我中华”在沪港澳台大学生夏令营在上海举行。 开营仪式上，上海海外联谊会副会长王霄汉介绍了上海持续落地港澳台青年实习、创新创业扶持等系列项目，希望港澳台青年学生溯源中华文脉，收获与国家共同成长的家国情怀，体悟中国式现代化发展成就，收获共襄复兴伟业的使命担当，深化同胞手足情谊。 上海市教卫工作党委副书记祁明表示，“爱我中华”在沪港澳台
 
 ## 正文
 
-中新网西宁6月16日电 (李隽)记者16日从青海省发展和改革委员会获悉，为推进生产性服务业向专业化和价值链高端延伸，青海省政府近日印发《青海省推进服务业扩能提质的实施意见》(以下简称《实施意见》)，推动服务业扩容升级、提质增效。
+中新网上海6月9日电(范宇斌)近日，第二十届“爱我中华”在沪港澳台大学生夏令营在上海举行。
 
-据悉，青海省聚焦服务业发展的难点堵点，提出了推动生产性服务业扩容升级、提高生活性服务业供给品质、加快产业融合化数智化发展、扶持企业做优做强4方面的21项重点举措。
+开营仪式上，上海海外联谊会副会长王霄汉介绍了上海持续落地港澳台青年实习、创新创业扶持等系列项目，希望港澳台青年学生溯源中华文脉，收获与国家共同成长的家国情怀，体悟中国式现代化发展成就，收获共襄复兴伟业的使命担当，深化同胞手足情谊。
 
-《实施意见》提出扩大“一老一小”保障供给，全链条升级“吃住行游购娱”、加快一刻钟便民生活圈建设等措施。
+上海市教卫工作党委副书记祁明表示，“爱我中华”在沪港澳台大学生夏令营为港澳台青年学生搭建认识社会、交流互动的桥梁，希望营员们在追寻历史中理解这片土地的故事，在交流互动中结交志同道合的朋友，在行走当下中将个人成长融入国家发展大局，以青春之我担当时代使命，在行走中收获知识、友谊与成长。
 
-同时，提出了打造高原好房子，拓展藏医药诊疗服务，培育研学科考、冰雪户外、高原康养等新业态，努力将资源禀赋优势转化为特色服务主引擎、增长极和新亮点。
+往届营员代表、上海交通大学学生庄淮宇结合参加往期夏令营研学经历分享感悟。
 
-同时，把培育经营主体作为支撑服务业高质量发展基础性工作，提出加快企业培育、打造青海服务特色品牌等重点任务，努力推动形成一批规模大、创新强、链主型的服务业领军企业，充分发挥企业经济增长稳定器作用。
+本届营员代表、上海立信会计金融学院学生施嘉兴、复旦大学学生周芷莹结合在沪求学成长的经历，畅谈对通过本次夏令营寻根交友的期待。
 
-针对行业发展差异，青海提出对除非营利性服务业以外的批发零售、住宿餐饮、交通运输、金融、房地产、信息技术、租赁商务、科学技术、居民修理、文体娱乐10个重点行业，分别着手制定专项行动方案，系统构建全省服务业扩能提质“1+10”政策支持体系。
+本次夏令营为期三天，营员们参访了上海交通大学校史博物馆、苏州工业园区、沙家浜革命历史纪念馆、中国传统村落严家桥村、无锡中国民族工商业博物馆、惠山古镇、常州青果巷历史文化街区等地。
 
-(完)
+通过实地走访与沉浸体验，营员们真切感受长三角地区的历史底蕴与创新活力，进一步增进了对中华文化的认同。
+
+营员们表示，这是一场拓展视野、涤荡心灵的江南文化研学之旅，期待未来同心携手、聚力奋进。
 
 ## 相关推荐
 
-- 2026-06-30 08:51 - [点球大战 残酷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-30 08:41 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-30 08:55 - [老外对中国cosplay竟这样评价…](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
-- 2026-06-30 08:46 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-30 08:55 - [世界杯巴拉圭点球淘汰德国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-30 08:58 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-30 08:55 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-30 08:36 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
-- 2026-06-30 08:43 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-30 08:31 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-30 08:41 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-30 08:54 - [iPhone18e曝光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-30 08:43 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-30 08:37 - [现在叛逆期的孩子最怕的是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-30 08:57 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-30 08:57 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-30 08:58 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-30 09:01 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-30 08:54 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-30 08:55 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-30 08:42 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-30 08:54 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-30 08:51 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-30 08:44 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:32 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/959250015.shtml)
-- 2026-06-30 08:54 - [王濛回复黄灿灿](https://www.share.minike.top/Article/details/338222235.shtml)
-- 2026-06-30 08:37 - [日本博主：日本足球真的垃圾](https://www.share.minike.top/Article/details/6176732.shtml)
-- 2026-06-30 08:35 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.minike.top/Article/details/940810.shtml)
-- 2026-06-30 08:55 - [巴西2-1绝杀日本](http://www.blog.minike.top/Article/details/704021157.shtml)
-- 2026-06-30 08:51 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/040815.shtml)
-- 2026-06-30 08:48 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/0287161.shtml)
-- 2026-06-30 08:45 - [恋与深空道歉声明](https://www.share.kurohicncr.top/Article/details/3546737.shtml)
-- 2026-06-30 08:46 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/0437510.shtml)
-- 2026-06-30 08:58 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/54528508.shtml)
-- 2026-06-30 08:33 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/297160815835.shtml)
-- 2026-06-30 08:41 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.kurohicncr.top/Article/details/3152203864.shtml)
-- 2026-06-30 08:46 - [刘宇宁高情商化解谁站C位](http://www.blog.minike.top/Article/details/5009558047.shtml)
-- 2026-06-30 08:39 - [媒体：手机测评该挤挤水分了](http://www.blog.kurohicncr.top/Article/details/9096228.shtml)
-- 2026-06-30 08:55 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/3441335624.shtml)
+- 2026-06-30 08:42 - [韩国球迷凌晨4点接机怒骂主教练](http://www.share.minike.top/Article/details/9139280007.shtml)
+- 2026-06-30 08:47 - [佐野海舟远射破门](http://www.blog.kurohicncr.top/Article/details/35775822.shtml)
+- 2026-06-30 08:57 - [孙兴慜发长文致歉](http://www.blog.minike.top/Article/details/79106.shtml)
+- 2026-06-30 08:37 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/8636980.shtml)
+- 2026-06-30 08:43 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/5983410.shtml)
+- 2026-06-30 08:41 - [毒液2](http://www.share.kurohicncr.top/Article/details/6837363375.shtml)
+- 2026-06-30 09:00 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/2419355929.shtml)
+- 2026-06-30 09:02 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/7833138663.shtml)
+- 2026-06-30 08:48 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/78277361.shtml)
+- 2026-06-30 08:41 - [有酒店推行24小时退房制](http://www.blog.kurohicncr.top/Article/details/9324452930.shtml)
+- 2026-06-30 08:44 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.kurohicncr.top/Article/details/3862816.shtml)
+- 2026-06-30 08:54 - [张雪的一句“是我们”引发岛内热议](https://www.share.minike.top/Article/details/45077532.shtml)
+- 2026-06-30 09:04 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/8565258.shtml)
+- 2026-06-30 08:57 - [荷兰vs摩洛哥](https://www.share.minike.top/Article/details/97484793218.shtml)
+- 2026-06-30 09:05 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/106236.shtml)

@@ -1,58 +1,56 @@
-# 中国存储十年磨双剑 合肥、武汉双城并立
+# IDG资本合伙人牛奎光：对具身智能产业持谨慎乐观态度
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-6月12日，证监会同意长鑫科技集团股份有限公司（以下简称“长鑫科技”）首次公开发行股票并在科创板上市的注册申请。 当晚，上交所官网显示，长鑫科技的科创板IPO审核状态变更为注册生效。 作为中国第一、全球第四的DRAM厂商，长鑫科技科创板闯关成功，宣告国产存储替代正进入资本加速阶段。 几乎同一时期，长江存储控股股份有限公司完成IPO辅导备案，旗下全资子公司长江存储科技有限责任公司
+专题：2026投资界SuperLink大会 2026投资界SuperLink大会于6月10日-6月11日在苏州举行。IDG资本合伙人牛奎光表示，具身智能是具备极高战略价值的核心赛道，如果能突破关键技术、解决高端制造相关难题，将产生重大行业价值与战略意义。 对于赛道整体发展，牛奎光秉持谨慎乐观的态度。“当下AI技术进步速度极快，能够大幅加速各类研发难题的解决，为具身智能发展提供了
 
 ## 正文
 
-6月12日，证监会同意长鑫科技集团股份有限公司（以下简称“长鑫科技”）首次公开发行股票并在科创板上市的注册申请。
+专题：2026投资界SuperLink大会 2026投资界SuperLink大会于6月10日-6月11日在苏州举行。
 
-当晚，上交所官网显示，长鑫科技的科创板IPO审核状态变更为注册生效。
+IDG资本合伙人牛奎光表示，具身智能是具备极高战略价值的核心赛道，如果能突破关键技术、解决高端制造相关难题，将产生重大行业价值与战略意义。
 
-作为中国第一、全球第四的DRAM厂商，长鑫科技科创板闯关成功，宣告国产存储替代正进入资本加速阶段。
+对于赛道整体发展，牛奎光秉持谨慎乐观的态度。
 
-几乎同一时期，长江存储控股股份有限公司完成IPO辅导备案，旗下全资子公司长江存储科技有限责任公司（以下简称“长江存储”）是中国第一、全球第六的NAND厂商。
+“当下AI技术进步速度极快，能够大幅加速各类研发难题的解决，为具身智能发展提供了有力支撑。
 
-站在资本市场大门前回望来路，从2016年至今，中国存储产业用十年时间完成了一场逆战，于荒芜中铸就了“合肥—武汉”双城并立的格局。
+” 但从技术发展阶段来看，他表示，行业仍处于萌芽探索期，尚未形成成熟范式。
 
-十年磨双剑 2016年，长江存储、合肥长鑫、福建晋华三个存储器项目相继启动。
+“类比大模型发展历程，当前具身智能大概处在GPT1甚至更早的阶段，整体技术路线还没有收敛。
 
-这一年，也被称为中国大陆存储器产业发展的元年。
+”牛奎光解释，行业概念与算法持续迭代，从早年VRA到如今火热的世界模型，各类技术路线百花齐放、百家争鸣，仍处于早期摸索阶段，没有形成统一标准。
 
-三个存储器项目分工明确：长江存储重点发展NAND Flash；合肥国资与兆易创新合作设立长鑫，自主研发DRAM；福建晋华原计划通过与联华电子（UMC）合作开发DRAM，但因陷入法律纠纷，发展停滞。
+“自动驾驶行业历经十几年发展，至今仍处在突破前夜，具身智能的落地普及同样需要漫长过程。
 
 ## 相关推荐
 
-- 2026-06-30 08:34 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
-- 2026-06-30 08:35 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
-- 2026-06-30 08:52 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-30 08:57 - [板面：为什么那么多人爱吃？？！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
-- 2026-06-30 08:45 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
-- 2026-06-30 08:59 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
-- 2026-06-30 08:31 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
-- 2026-06-30 08:30 - [追梦拒绝2770万美元球员选项](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-30 08:55 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
-- 2026-06-30 08:48 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-30 08:39 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-30 08:38 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-30 08:56 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-30 08:53 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-30 08:46 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-30 09:03 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-30 08:40 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
+- 2026-06-30 08:57 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-30 08:54 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-30 08:58 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-30 08:59 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-30 08:43 - [德国进球被吹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:37 - [二次元提前预演明日巴西对日本](https://www.blog.minike.top/Article/details/986392947350.shtml)
-- 2026-06-30 08:51 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/74932.shtml)
-- 2026-06-30 08:58 - [董卿父亲报纸上发文悼念亡妻](https://www.share.minike.top/Article/details/6257972382.shtml)
-- 2026-06-30 08:41 - [詹姆斯 勇士](http://www.share.kurohicncr.top/Article/details/778992973926.shtml)
-- 2026-06-30 08:58 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/58463046267.shtml)
-- 2026-06-30 08:32 - [韩国道歉完日本道歉](https://www.share.kurohicncr.top/Article/details/14637975069.shtml)
-- 2026-06-30 08:56 - [赛博朋克边缘行者2预告片](http://www.blog.minike.top/Article/details/690078.shtml)
-- 2026-06-30 08:34 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.kurohicncr.top/Article/details/830673.shtml)
-- 2026-06-30 08:34 - [国务院：探索延长义务教育年限](https://www.share.minike.top/Article/details/04286520321.shtml)
-- 2026-06-30 08:37 - [现在叛逆期的孩子最怕的是什么？](http://www.blog.minike.top/Article/details/2276965926.shtml)
-- 2026-06-30 08:39 - [巴西替补奇兵读秒绝杀](http://www.share.kurohicncr.top/Article/details/462389102.shtml)
-- 2026-06-30 08:58 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/6431710206.shtml)
-- 2026-06-30 08:57 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/41821.shtml)
-- 2026-06-30 08:55 - [世界杯](http://www.share.kurohicncr.top/Article/details/72903414.shtml)
-- 2026-06-30 08:49 - [德国罚丢3粒点球](https://www.blog.kurohicncr.top/Article/details/21333.shtml)
+- 2026-06-30 08:57 - [媒体评泰山建135公里刀片刺绳隔离网](http://www.blog.minike.top/Article/details/37985.shtml)
+- 2026-06-30 08:39 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/4250400330.shtml)
+- 2026-06-30 08:50 - [徐亮怒斥世界杯踢假球](http://www.blog.kurohicncr.top/Article/details/323610.shtml)
+- 2026-06-30 08:39 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/735320.shtml)
+- 2026-06-30 08:44 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.kurohicncr.top/Article/details/853285263.shtml)
+- 2026-06-30 08:54 - [金鹰奖视后提名预测](https://www.blog.kurohicncr.top/Article/details/98969473.shtml)
+- 2026-06-30 08:41 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/47687568.shtml)
+- 2026-06-30 08:43 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/260339846.shtml)
+- 2026-06-30 08:53 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/449806795.shtml)
+- 2026-06-30 09:03 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/828957071.shtml)
+- 2026-06-30 08:55 - [泰山建135公里刀片刺绳隔离网](https://www.blog.minike.top/Article/details/317067.shtml)
+- 2026-06-30 09:00 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.minike.top/Article/details/004121009.shtml)
+- 2026-06-30 09:04 - [委内瑞拉地震死亡人数升至1719人](http://www.share.minike.top/Article/details/587239687.shtml)
+- 2026-06-30 08:59 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/67065088.shtml)
+- 2026-06-30 08:37 - [德国vs巴拉圭](https://www.blog.minike.top/Article/details/0344348526.shtml)

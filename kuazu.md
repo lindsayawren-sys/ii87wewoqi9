@@ -1,56 +1,58 @@
-# 北京CBD国际法商融合论坛举行 专家建言从“营商”到“赢商”
+# 央视曝光万人投诉！新能源车锁电背后车主如何维权
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-中新网北京6月17日电 (记者 张素)2026北京CBD国际法商融合论坛16日在北京举行。与会专家建言推动从“营商”到“赢商”的法治服务能级跃升，助力北京打造国际法商融合新高地。 本次论坛以“法商融合·共赴新程”为主题。会上，海外知识产权维权服务北京CBD联络站、国际法商融合典型案例集成、法商融合特色楼宇等系列成果集中发布。 数据显示，2023年至2025年，朝阳法院共审结涉民
+花二三十万买的新能源车，标称续航510公里，夜间一次OTA升级后，实际只能跑不到300公里——这不是电池老化，而是车企在后台悄悄锁了你的电。2026年以来，OTA锁电问题持续发酵，仅3月份全国12315平台就收到相关投诉超1.2万件，同比暴涨273%。央视财经频道对此进行了深度调查，揭开了这一行业潜规则的真相。 所谓锁电，并不是物理层面的锁定，而是车企通过OTA远程升级或到店软
 
 ## 正文
 
-中新网北京6月17日电 (记者 张素)2026北京CBD国际法商融合论坛16日在北京举行。
+花二三十万买的新能源车，标称续航510公里，夜间一次OTA升级后，实际只能跑不到300公里——这不是电池老化，而是车企在后台悄悄锁了你的电。
 
-与会专家建言推动从“营商”到“赢商”的法治服务能级跃升，助力北京打造国际法商融合新高地。
+2026年以来，OTA锁电问题持续发酵，仅3月份全国12315平台就收到相关投诉超1.2万件，同比暴涨273%。
 
-本次论坛以“法商融合·共赴新程”为主题。
+央视财经频道对此进行了深度调查，揭开了这一行业潜规则的真相。
 
-会上，海外知识产权维权服务北京CBD联络站、国际法商融合典型案例集成、法商融合特色楼宇等系列成果集中发布。
+所谓锁电，并不是物理层面的锁定，而是车企通过OTA远程升级或到店软件更新，未经车主同意就私自修改电池管理系统参数，限制电池充电上限、放电深度和输出功率。
 
-数据显示，2023年至2025年，朝阳法院共审结涉民营企业股东出资类纠纷案件2000件，主要包括出资不实、出资加速到期、抽逃出资等案件类型。
+仪表盘上显示100%，实际上电池被锁掉了10%到20%的可用容量。
 
-法院建议，股东应增强规范出资意识，依法履行出资义务，民营企业应完善内部治理结构，主动监督股东出资，债权人则需增强依法维权意识，防范交易风险。
+后果非常直观：续航大幅缩水、快充速度变慢、动力输出明显减弱。
 
-“法商融合的意义正从‘合规成本’迈向‘战略资产’。
+更讽刺的是，车主去4S店讨说法时，得到的答复往往是冬季低温正常衰减、系统优化提升安全性——将偷偷降级包装成优化升级。
 
-”致同中国主席、首席合伙人李惠琦在会上发表主旨演讲时表示，一个项目的成败在法律架构设计之初就被重新定义。
+央视调查揭露了锁电背后的真实动机。
 
 ## 相关推荐
 
-- 2026-06-30 08:54 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
-- 2026-06-30 08:50 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-30 08:58 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-30 08:50 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-30 08:50 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
-- 2026-06-30 08:37 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-30 08:46 - [郑钦文 四年一轮游](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-30 08:56 - [欧洲装一台空调有多难](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
-- 2026-06-30 08:45 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-30 08:49 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-30 08:55 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-30 09:03 - [巴西足球能否再现昔日荣光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-30 09:00 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-30 08:49 - [杨紫学位证上就是杨紫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-30 08:38 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
+- 2026-06-30 09:00 - [为什么小组赛出局会让韩国人破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-30 08:57 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-30 08:46 - [莫兰特转投开拓者效力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
+- 2026-06-30 08:44 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-30 08:50 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-30 08:48 - [收到补税提醒尽快办理 明起有滞纳金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-30 09:03 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:45 - [王源近几年没有路演了](http://www.share.kurohicncr.top/Article/details/92349.shtml)
-- 2026-06-30 08:53 - [刘宇宁高情商化解谁站C位](http://www.blog.kurohicncr.top/Article/details/487809509.shtml)
-- 2026-06-30 08:49 - [赛博朋克边缘行者2预告片](https://www.share.kurohicncr.top/Article/details/566571351630.shtml)
-- 2026-06-30 08:47 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/385713107.shtml)
-- 2026-06-30 08:52 - [巴西2比1日本](http://www.share.minike.top/Article/details/90656948641.shtml)
-- 2026-06-30 08:53 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/211977212.shtml)
-- 2026-06-30 08:41 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/2032677.shtml)
-- 2026-06-30 08:57 - [张碧晨一开口梦回逐玉](https://www.share.kurohicncr.top/Article/details/7485810215.shtml)
-- 2026-06-30 08:49 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/97163715.shtml)
-- 2026-06-30 08:43 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/535221.shtml)
-- 2026-06-30 08:31 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/84897.shtml)
-- 2026-06-30 08:49 - [巴拉圭先进球了](https://www.blog.minike.top/Article/details/594280.shtml)
-- 2026-06-30 08:30 - [小娘惹](http://www.blog.minike.top/Article/details/208111427.shtml)
-- 2026-06-30 08:45 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/519251991055.shtml)
-- 2026-06-30 08:52 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/35275731.shtml)
+- 2026-06-30 08:40 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/0825399942.shtml)
+- 2026-06-30 09:05 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/92647.shtml)
+- 2026-06-30 08:51 - [穆祉丞年度人气艺人](https://www.share.minike.top/Article/details/31648591.shtml)
+- 2026-06-30 09:02 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/203843.shtml)
+- 2026-06-30 08:58 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/188569.shtml)
+- 2026-06-30 08:41 - [张雪的一句“是我们”引发岛内热议](http://www.share.minike.top/Article/details/7943462429.shtml)
+- 2026-06-30 08:41 - [内马尔中场休息积极鼓励队友](http://www.blog.kurohicncr.top/Article/details/4243213.shtml)
+- 2026-06-30 08:53 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/25661.shtml)
+- 2026-06-30 08:43 - [免费试吃发差评被店家挂店门避雷](https://www.blog.minike.top/Article/details/523576495.shtml)
+- 2026-06-30 08:48 - [高质量发展看新疆](https://www.share.kurohicncr.top/Article/details/0093024459.shtml)
+- 2026-06-30 08:59 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/013982037233.shtml)
+- 2026-06-30 08:48 - [德国vs巴拉圭](http://www.blog.minike.top/Article/details/19335764.shtml)
+- 2026-06-30 08:59 - [MSI应援曲 如果季中成回忆](https://www.share.minike.top/Article/details/816744.shtml)
+- 2026-06-30 09:03 - [日本五次世界杯淘汰赛全败](http://www.blog.minike.top/Article/details/74816.shtml)
+- 2026-06-30 08:39 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/12492879.shtml)

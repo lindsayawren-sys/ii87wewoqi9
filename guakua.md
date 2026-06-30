@@ -1,57 +1,52 @@
-# 摩根士丹利下调原油价格预期 因美伊签署协议后供应将增加
+# 福建永春台农：大陆规模化种植经验值得借鉴
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-摩根士丹利大幅下调未来几个季度的石油价格预测，因美国和伊朗达成重新开放霍尔木兹海峡的临时协议，有望恢复地区石油产量并增加供应。 包括Martijn Rats在内的分析师在6月15日的报告中表示，作为实物交易基准价格的即期布伦特原油价格预计第三季度均价为每桶90美元，此前预期为100美元；最后三个月均价预计为每桶80美元，调低了15美元。他们说，中东地区产量复苏的进程提前了一到两
+发布时间：2026年06月10日 21:25 来源：中国新闻网 来自台湾嘉义的苏轩仪，2015年弃商从农，扎根永春投身柑橘种植，成立泉州永春叙柑园果业有限公司，将台湾农业种植管护经验与本地农业发展实际相结合，成为两岸农业技术对接、产业融合、青年交流的重要平台。随着2024年永春国家级台湾农民创业园获批，该企业纳入台创园核心区。 6月9日，谈及对两岸农业交流的期待，苏轩仪表示，两
 
 ## 正文
 
-摩根士丹利大幅下调未来几个季度的石油价格预测，因美国和伊朗达成重新开放霍尔木兹海峡的临时协议，有望恢复地区石油产量并增加供应。
+发布时间：2026年06月10日 21:25 来源：中国新闻网 来自台湾嘉义的苏轩仪，2015年弃商从农，扎根永春投身柑橘种植，成立泉州永春叙柑园果业有限公司，将台湾农业种植管护经验与本地农业发展实际相结合，成为两岸农业技术对接、产业融合、青年交流的重要平台。
 
-包括Martijn Rats在内的分析师在6月15日的报告中表示，作为实物交易基准价格的即期布伦特原油价格预计第三季度均价为每桶90美元，此前预期为100美元；最后三个月均价预计为每桶80美元，调低了15美元。
+随着2024年永春国家级台湾农民创业园获批，该企业纳入台创园核心区。
 
-他们说，中东地区产量复苏的进程提前了一到两周。
+6月9日，谈及对两岸农业交流的期待，苏轩仪表示，两岸农业交流合作未来一定会持续走下去。
 
-他们说：“仍有许多问题需要谈判，关键风险依然存在，但就目前而言，这是朝着缓和冲突和通过霍尔木兹海峡出口更多石油迈出的关键一步。
+台湾农业想要从“小而精”向规模化转型，不少经验可以来大陆学习借鉴。
 
-”他们指的是华盛顿和德黑兰定于周五在瑞士签署的协议。
-
-协议消息公布后，油价已跌至3月以来的最低点，尽管协议文本尚未公布，且贸易商、托运人和生产商对于如何具体实施才能恢复水路运输仍抱有很大疑虑。
-
-前述分析师指出，油轮运输可能需要“数周”时间才能恢复，因为需要清除水雷、重建船东和保险公司的商业信心，以及此前被转移的船舶返回这个地区。
-
-他们补充说，预计产量从7月中旬开始逐步提高，“我们假设50%的损失产量到9月恢复，到12月恢复80%，其余部分在2027年初恢复。
+(彭莉芳 郑江洛 制作 王嘉怡) 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-30 08:52 - [三星投资计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-30 08:56 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-30 08:46 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-30 08:37 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
-- 2026-06-30 08:54 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-30 08:45 - [日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
-- 2026-06-30 08:48 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-30 08:53 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
-- 2026-06-30 08:37 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-30 08:41 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-30 08:59 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-30 08:59 - [中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-30 08:48 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-30 08:54 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
+- 2026-06-30 08:47 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-30 08:43 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-30 08:59 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-30 08:46 - [锐评：网红不能困在无底线逐利里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-30 08:44 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-30 08:51 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-30 08:52 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
+- 2026-06-30 08:39 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-30 08:43 - [韩国道歉完日本道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:45 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/566647535.shtml)
-- 2026-06-30 08:57 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/1206205064.shtml)
-- 2026-06-30 08:33 - [张帅时隔四年晋级温网第二轮](http://www.share.minike.top/Article/details/6528302.shtml)
-- 2026-06-30 08:40 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/8936213.shtml)
-- 2026-06-30 08:43 - [追梦拒绝2770万美元球员选项](https://www.blog.minike.top/Article/details/27310605178.shtml)
-- 2026-06-30 08:40 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.kurohicncr.top/Article/details/60570423484.shtml)
-- 2026-06-30 08:52 - [曝iPhone18Pro机密文件现身暗网](https://www.blog.kurohicncr.top/Article/details/6365843449.shtml)
-- 2026-06-30 08:39 - [为什么小组赛出局会让韩国人破防](https://www.blog.minike.top/Article/details/591995.shtml)
-- 2026-06-30 08:48 - [媒体评泰山建135公里刀片刺绳隔离网](https://www.blog.kurohicncr.top/Article/details/59903162.shtml)
-- 2026-06-30 08:59 - [好像看到了人类带孩子崩溃的样子](http://www.blog.minike.top/Article/details/2566016406.shtml)
-- 2026-06-30 08:38 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/479544968.shtml)
-- 2026-06-30 08:34 - [iPhone18e曝光](http://www.blog.minike.top/Article/details/77125984.shtml)
-- 2026-06-30 08:30 - [日本队主帅道歉](http://www.blog.kurohicncr.top/Article/details/044523.shtml)
-- 2026-06-30 08:36 - [大蒜晒外面被路过女子连盆端走](https://www.share.minike.top/Article/details/89895485.shtml)
-- 2026-06-30 08:42 - [张帅时隔四年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/46973967311.shtml)
+- 2026-06-30 08:58 - [穆祉丞年度人气艺人](http://www.blog.kurohicncr.top/Article/details/0540351407.shtml)
+- 2026-06-30 08:39 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/368626564573.shtml)
+- 2026-06-30 08:39 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/46873465661.shtml)
+- 2026-06-30 08:44 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/147024022.shtml)
+- 2026-06-30 08:43 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/90672554.shtml)
+- 2026-06-30 08:54 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/914897805283.shtml)
+- 2026-06-30 08:44 - [【大鸣王潮1566】真拿你没办法](http://www.blog.kurohicncr.top/Article/details/30523561502.shtml)
+- 2026-06-30 08:38 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/722218586748.shtml)
+- 2026-06-30 09:05 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/237247422377.shtml)
+- 2026-06-30 08:38 - [问心2神一集鬼三集](https://www.share.minike.top/Article/details/5250989905.shtml)
+- 2026-06-30 08:38 - [董卿父亲报纸上发文悼念亡妻](https://www.blog.minike.top/Article/details/41397585165.shtml)
+- 2026-06-30 09:00 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/39862949982.shtml)
+- 2026-06-30 08:42 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/4634482.shtml)
+- 2026-06-30 08:39 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/29890.shtml)
+- 2026-06-30 09:02 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/4188204839.shtml)

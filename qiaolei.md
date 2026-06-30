@@ -1,60 +1,57 @@
-# 原油：油价重挫 美伊协议有望重开霍尔木兹海峡
+# 全国单站规模最大兆瓦级车网互动闪充示范站落地深圳
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-油价跌至3月初以来最低水平，美国与伊朗同意达成临时协议以重开霍尔木兹海峡，尽管船东在恢复通航前仍希望获得更多细节。 布伦特下跌4.8%，收于每桶83美元附近；WTI收于每桶81美元附近。目前油价已较战争高峰时期的峰值下跌逾30%。 美国总统唐纳德·特朗普在社交媒体发文称，他授权霍尔木兹海峡“免通行费开放”并结束对伊朗的海上封锁，海峡定于周五协议签署后重新开放。 伊朗半官方的法尔
+中新网深圳6月9日电 (索有为 徐成龙 胡美施)南方电网深圳光明虹桥公园闪充示范站二期9日正式投运，新增14台V2G(车网互动)充电桩。该站是目前全国单站规模最大的兆瓦级车网互动闪充示范站，单次最大充放电功率可达4.21兆瓦，能同时供61台新能源车充放电。 该站点还是南方电网首个集成电力巡检无人机巢的闪充站点，充电服务规模、综合服务效能实现再提升。 据统计，虹桥公园闪充站自一期
 
 ## 正文
 
-油价跌至3月初以来最低水平，美国与伊朗同意达成临时协议以重开霍尔木兹海峡，尽管船东在恢复通航前仍希望获得更多细节。
+中新网深圳6月9日电 (索有为 徐成龙 胡美施)南方电网深圳光明虹桥公园闪充示范站二期9日正式投运，新增14台V2G(车网互动)充电桩。
 
-布伦特下跌4.8%，收于每桶83美元附近；WTI收于每桶81美元附近。
+该站是目前全国单站规模最大的兆瓦级车网互动闪充示范站，单次最大充放电功率可达4.21兆瓦，能同时供61台新能源车充放电。
 
-目前油价已较战争高峰时期的峰值下跌逾30%。
+该站点还是南方电网首个集成电力巡检无人机巢的闪充站点，充电服务规模、综合服务效能实现再提升。
 
-美国总统唐纳德·特朗普在社交媒体发文称，他授权霍尔木兹海峡“免通行费开放”并结束对伊朗的海上封锁，海峡定于周五协议签署后重新开放。
+据统计，虹桥公园闪充站自一期投运以来，受片区新能源车主青睐，已累计服务超过1.8万车次充电，总充电量超45万度，单日最高服务551车次。
 
-伊朗半官方的法尔斯通讯社报道称，根据协议伊朗将在60天内允许船只免费通过霍尔木兹海峡。
+“伴随充电需求不断攀升，二期扩容后，全站共配置1000千瓦(即1兆瓦)闪充桩1台，600千瓦超充桩10台，30-300千瓦快充桩26台。
 
-尽管特朗普宣称此举将“让石油流动起来”，但交易员和分析师态度更为谨慎。
+”南方电网深圳光明供电局工程部副主管林超介绍，“这些桩均支持车网互动，总放电功率相当于一座中小型分布式发电站。
 
-市场人士指出，美伊双方均未公布协议文本，航运业恢复海峡通航仍面临障碍，而且油田恢复生产也需要时间。
+” 据了解，车网互动是指电动汽车与电网之间通过智能充放电设施，实现能量和信息双向流动的技术模式，分为单向智能有序充电和双向充放电两种形式，能让新能源车从用电设备转变为可移动的储能单元。
 
-目前市场关注的焦点是这项协议能够多快为市场带来更多供应。
+示范站配套的电力巡检无人机巢，是本次“充电+低空巡检”模式落地的关键载体。
 
 ## 相关推荐
 
-- 2026-06-30 08:35 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
-- 2026-06-30 08:48 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-30 08:40 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-30 08:41 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-30 08:56 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
-- 2026-06-30 08:44 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-30 08:53 - [日耳曼拖拉机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-30 08:38 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-30 08:39 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-30 08:50 - [锐评T1战胜KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-30 08:58 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-30 08:42 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-30 08:47 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-30 08:34 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-30 08:47 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-30 08:36 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-30 09:05 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-30 08:42 - [内马尔未登场 安切洛蒂赛后回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-30 08:55 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
+- 2026-06-30 08:53 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-30 08:52 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-30 09:02 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-30 08:51 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-30 08:39 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
+- 2026-06-30 08:54 - [巴西在进攻三区完成210脚传球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:52 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/52984082000.shtml)
-- 2026-06-30 08:50 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/85753340811.shtml)
-- 2026-06-30 08:49 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/754653.shtml)
-- 2026-06-30 08:40 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/2142989.shtml)
-- 2026-06-30 08:30 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/8784604.shtml)
-- 2026-06-30 08:30 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/64337.shtml)
-- 2026-06-30 08:37 - [库尼亚赛后伸五指嘲讽日本](https://www.share.kurohicncr.top/Article/details/8415893269.shtml)
-- 2026-06-30 08:45 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/7750107.shtml)
-- 2026-06-30 08:52 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/484959489.shtml)
-- 2026-06-30 08:36 - [陈幸同晋级WTT美国大满贯女单32强](http://www.blog.minike.top/Article/details/73930461.shtml)
-- 2026-06-30 08:46 - [这种关系可能正在悄悄“催老”你](https://www.blog.minike.top/Article/details/278698025491.shtml)
-- 2026-06-30 08:39 - [沉睡花园](https://www.blog.minike.top/Article/details/669913075565.shtml)
-- 2026-06-30 08:33 - [巴西在进攻三区完成210脚传球](https://www.share.kurohicncr.top/Article/details/771803.shtml)
-- 2026-06-30 09:00 - [锐评T1战胜KC](https://www.share.minike.top/Article/details/013954686282.shtml)
-- 2026-06-30 08:35 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/705466965830.shtml)
+- 2026-06-30 08:50 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/55695857.shtml)
+- 2026-06-30 09:04 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/050295952322.shtml)
+- 2026-06-30 08:56 - [马耳他著名拱门坍塌致一中国男子身亡](http://www.blog.kurohicncr.top/Article/details/552582.shtml)
+- 2026-06-30 08:45 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/6402965.shtml)
+- 2026-06-30 08:42 - [男子身高一米八二仍做断骨增高](http://www.blog.minike.top/Article/details/56184384520.shtml)
+- 2026-06-30 08:38 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/21409415.shtml)
+- 2026-06-30 08:57 - [点球大战和诺伊尔都救不回德国队](https://www.blog.minike.top/Article/details/753511551.shtml)
+- 2026-06-30 08:57 - [韩国球迷凌晨4点接机怒骂主教练](http://www.share.minike.top/Article/details/058612136951.shtml)
+- 2026-06-30 08:46 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.minike.top/Article/details/006659046243.shtml)
+- 2026-06-30 08:43 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/002564.shtml)
+- 2026-06-30 08:54 - [急先锋](http://www.blog.minike.top/Article/details/7123483180.shtml)
+- 2026-06-30 08:59 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/241247.shtml)
+- 2026-06-30 08:56 - [泰山景区回应修建刀片刺绳隔离网](https://www.share.kurohicncr.top/Article/details/39806989.shtml)
+- 2026-06-30 09:00 - [卡塞米罗头球破门](https://www.share.minike.top/Article/details/1477398.shtml)
+- 2026-06-30 08:43 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/42471840174.shtml)

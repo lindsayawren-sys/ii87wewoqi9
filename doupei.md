@@ -1,58 +1,61 @@
-# 首届梧州市岭南文学奖揭晓 粤桂琼10部（篇）作品获奖
+# AI智能体市场规模快速攀升 软件行业迎来这些新变化
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-中新网梧州6月16日电(肖景凤 张广权)首届梧州市岭南文学奖颁奖典礼16日晚在此间举行。该奖项是岭南地区(桂、粤、琼、港、澳)首个由市级党委、政府主办，面向全国征稿的文学类奖项。 本届评选设长篇小说、中短篇小说、报告文学、诗歌、散文五个类别，各设主奖和新锐奖各1部(篇)，新锐奖面向45岁以下青年作者。 征稿自2025年10月启动，覆盖广西、广东、海南、香港、澳门等岭南地区，同时
+今年以来，随着AI深度渗透软件开发全流程，AI正在重构软件行业生产流程与竞争规则，软件行业正经历一场深刻变革。 AI智能体组团干活 工程师化身“监工” 在重庆一家软件开发企业的研发中心，有一个由三个AI智能体组成的“AI超级团队”。产品经理、项目经理、技术经理，三个AI智能体各司其职，电脑屏幕交替闪烁，信息在三者之间流转、校验。工程师刘海坐在中间，不再是逐行敲代码的程序员，而是
 
 ## 正文
 
-中新网梧州6月16日电(肖景凤 张广权)首届梧州市岭南文学奖颁奖典礼16日晚在此间举行。
+今年以来，随着AI深度渗透软件开发全流程，AI正在重构软件行业生产流程与竞争规则，软件行业正经历一场深刻变革。
 
-该奖项是岭南地区(桂、粤、琼、港、澳)首个由市级党委、政府主办，面向全国征稿的文学类奖项。
+AI智能体组团干活 工程师化身“监工” 在重庆一家软件开发企业的研发中心，有一个由三个AI智能体组成的“AI超级团队”。
 
-本届评选设长篇小说、中短篇小说、报告文学、诗歌、散文五个类别，各设主奖和新锐奖各1部(篇)，新锐奖面向45岁以下青年作者。
+产品经理、项目经理、技术经理，三个AI智能体各司其职，电脑屏幕交替闪烁，信息在三者之间流转、校验。
 
-征稿自2025年10月启动，覆盖广西、广东、海南、香港、澳门等岭南地区，同时吸引西藏、云南等省区作家参与。
+工程师刘海坐在中间，不再是逐行敲代码的程序员，而是一名调度三个AI智能体的“监工”。
 
-经评委会初评、终评，最终评出10部(篇)获奖作品。
+记者在多家软件企业走访中发现，在软件开发全流程中，从代码生成到测试验证，AI工具的覆盖率正大幅提升。
 
-从地域分布看，获奖作品主要集中在广东、广西、海南三省区。
+尤其是在代码编写环节，部分企业已实现全员覆盖。
 
-中短篇小说类主奖得主、海南作家王海雪凭借小说《白日月光》获奖。
+AI带来的不只是个人效率的提升，更是企业能力的跃升。
 
-她在获奖感言中说，她从小到大所使用的语言俗称“村话”，属于临高话，与壮语等同属壮侗语系。
+特别是对于中小企业来说，AI在降低软件开发试错成本和启动成本的同时，也在打破过去由人力规模筑起的行业壁垒。
 
 ## 相关推荐
 
-- 2026-06-30 08:59 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-30 08:35 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-30 08:38 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
-- 2026-06-30 08:38 - [如果有二次元高中是什么样子的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-30 08:30 - [追梦拒绝2770万美元球员选项](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-30 08:47 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-30 08:47 - [巴拉圭进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-30 08:57 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-30 08:39 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-30 08:33 - [周冬雨多次说演不了话剧文城](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-30 08:57 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-30 08:59 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-30 08:40 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-30 09:03 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-30 08:41 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-30 08:50 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-30 08:51 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-30 09:04 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-30 08:49 - [日本球迷输球后集体捡垃圾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-30 08:37 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-30 08:55 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-30 08:38 - [内马尔安慰日本球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-30 08:44 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-30 08:43 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-30 08:54 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-30 08:41 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-30 09:03 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:58 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/7031472705.shtml)
-- 2026-06-30 08:36 - [德国连续三届世界杯无缘16强](https://www.blog.minike.top/Article/details/171290990.shtml)
-- 2026-06-30 08:54 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/526825399196.shtml)
-- 2026-06-30 08:33 - [DeepSeek V4正式版要来了](http://www.share.kurohicncr.top/Article/details/1074489697.shtml)
-- 2026-06-30 08:51 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/06948535.shtml)
-- 2026-06-30 08:56 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/12451880.shtml)
-- 2026-06-30 08:35 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/9734377220.shtml)
-- 2026-06-30 08:30 - [巴西绝杀日本：漫画般结局换了主角](http://www.share.minike.top/Article/details/8360901.shtml)
-- 2026-06-30 08:41 - [森保一 保守](https://www.share.minike.top/Article/details/64737881843.shtml)
-- 2026-06-30 08:36 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/837904545.shtml)
-- 2026-06-30 08:53 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.kurohicncr.top/Article/details/06848.shtml)
-- 2026-06-30 08:45 - [藤森庆子赢得秘鲁总统选举](https://www.share.minike.top/Article/details/70767.shtml)
-- 2026-06-30 08:45 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.kurohicncr.top/Article/details/521685464.shtml)
-- 2026-06-30 08:55 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/5247043458.shtml)
-- 2026-06-30 08:47 - [金鹰奖视后提名预测](http://www.share.minike.top/Article/details/829115080.shtml)
+- 2026-06-30 08:43 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/94181.shtml)
+- 2026-06-30 08:40 - [为什么会有「念旧」的心理？](http://www.blog.minike.top/Article/details/6434613.shtml)
+- 2026-06-30 08:46 - [问心2神一集鬼三集](http://www.share.minike.top/Article/details/12564966355.shtml)
+- 2026-06-30 08:37 - [马耳他著名拱门坍塌致一中国男子身亡](https://www.blog.minike.top/Article/details/4527004716.shtml)
+- 2026-06-30 09:01 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.share.kurohicncr.top/Article/details/7893236886.shtml)
+- 2026-06-30 08:50 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/8230541553.shtml)
+- 2026-06-30 08:44 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/67193.shtml)
+- 2026-06-30 08:47 - [名记：灰熊将莫兰特交易至开拓者](https://www.share.minike.top/Article/details/6659527.shtml)
+- 2026-06-30 08:59 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/78685879175.shtml)
+- 2026-06-30 08:56 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/522303630588.shtml)
+- 2026-06-30 08:40 - [黄晓明晒和周杰伦的合照](http://www.blog.minike.top/Article/details/845785.shtml)
+- 2026-06-30 09:00 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/90019588.shtml)
+- 2026-06-30 09:00 - [王楚钦孙颖莎晋级混双八强](http://www.blog.minike.top/Article/details/72212.shtml)
+- 2026-06-30 09:00 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/94427030.shtml)
+- 2026-06-30 09:02 - [巴拉圭点球大战淘汰德国进16强](https://www.blog.minike.top/Article/details/555934.shtml)

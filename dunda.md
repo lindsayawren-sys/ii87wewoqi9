@@ -1,61 +1,61 @@
-# 匠心守艺聚同心 云端代牧连山海：一个边疆村庄的同心共频
+# 美国犹他州青少年参访江西 延续“友城”情谊
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-编者按：深调研、挖亮点、促交流。为进一步挖掘推广基层统战工作中的好做法好经验，推动交流互鉴，“丝路同心圆·基层行”第十站走进阿勒泰地区，深入基层一线，进行深度采访报道。采访成果将以“图文+短视频”形式，在自治区党委统战部“一刊一网一号”宣传平台刊发。敬请关注！“村子里新建了‘守艺工坊’，让有手艺的村民都能得到方便、专业的工作环境，有时候还会组织培训，提高我们的技术水平。”近日，
+中新网南昌6月9日电 (朱莹)“犹他州的中英双语沉浸式教学项目很有名，我们希望不仅能带学生来中国看风景、锻炼语言能力，更能跨越文化差异，建立深度、持久的友谊。”美国犹他州中文教师马修·泰勒(Matthew Taylor)9日在江西省南昌市说。 1986年，江西省与美国犹他州正式缔结友好省州关系。连日来，30余名美国犹他州博克斯埃尔德学区师生在江西多地参访交流，延续“友城”情谊。
 
 ## 正文
 
-编者按：深调研、挖亮点、促交流。
+中新网南昌6月9日电 (朱莹)“犹他州的中英双语沉浸式教学项目很有名，我们希望不仅能带学生来中国看风景、锻炼语言能力，更能跨越文化差异，建立深度、持久的友谊。
 
-为进一步挖掘推广基层统战工作中的好做法好经验，推动交流互鉴，“丝路同心圆·基层行”第十站走进阿勒泰地区，深入基层一线，进行深度采访报道。
+”美国犹他州中文教师马修·泰勒(Matthew Taylor)9日在江西省南昌市说。
 
-采访成果将以“图文+短视频”形式，在自治区党委统战部“一刊一网一号”宣传平台刊发。
+1986年，江西省与美国犹他州正式缔结友好省州关系。
 
-敬请关注！
+连日来，30余名美国犹他州博克斯埃尔德学区师生在江西多地参访交流，延续“友城”情谊。
 
-“村子里新建了‘守艺工坊’，让有手艺的村民都能得到方便、专业的工作环境，有时候还会组织培训，提高我们的技术水平。
+马修·泰勒介绍，此次参访的学生最小的只有8岁，但已学了两年中文，“在此前的圣诞节和中国春节期间，我组织了40多名学生与江西的伙伴们互寄信件，两地青少年在纸墨之间已种下了友谊的种子。
 
-”近日，哈萨克族刺绣非遗代表性传承人、库尔米希村村民莎拉·那毕多拉对“丝路同心圆·基层行”采访组说。
+” 追随着中美民间交往的足迹，美国犹他州师生走进庐山，参观美国作家、诺贝尔文学奖得主赛珍珠图片展。
 
-走进阿勒泰地区哈巴河县库尔米希村，首先映入眼帘的是一座占地近2000平方米的“守艺工坊”，工坊集非遗展销、研学教育和手工艺传承于一体，将村庄里像莎拉·那毕多拉这样的各族手艺人吸引来，不仅为他们提供了创业空间，更让非遗在传承中焕发新的生机。
+正值第三季庐山非遗嘉年华，美国犹他州师生欣赏国家级非物质文化遗产代表性项目西河戏，并在美食市集上品尝庐山茶饼、糖画等。
 
-在工坊的手工刀工作室里，手工刀匠人司马义·赛平正专心致志地磨刀。
+在江西省会城市南昌，美国犹他州师生在万寿宫历史文化街区、“江南名楼”滕王阁等地“city walk”，探寻古城底蕴；在江西财经大学附属中学，中美青少年同台唱歌、互写贺卡。
 
 ## 相关推荐
 
-- 2026-06-30 08:39 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-30 08:31 - [萨内 看笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-30 08:54 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-30 08:43 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-30 08:53 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
-- 2026-06-30 08:42 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-30 08:53 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-30 08:34 - [点球大战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-30 08:41 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-30 08:39 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-30 08:51 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-30 08:32 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-30 08:33 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
-- 2026-06-30 08:57 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-30 08:47 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-30 09:05 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-30 08:54 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
+- 2026-06-30 08:58 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
+- 2026-06-30 08:53 - [iPhone18e曝光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-30 08:54 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-30 08:55 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-30 08:38 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-30 08:53 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-30 08:52 - [莫兰特被交易到开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-30 08:53 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-30 09:05 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-30 09:02 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-30 09:05 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-30 08:51 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-30 09:05 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:30 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.share.kurohicncr.top/Article/details/7849036.shtml)
-- 2026-06-30 08:38 - [巴拉圭先进球了](https://www.share.minike.top/Article/details/1989623458.shtml)
-- 2026-06-30 08:30 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/92355050.shtml)
-- 2026-06-30 08:31 - [张碧晨一开口梦回逐玉](https://www.share.kurohicncr.top/Article/details/3205148517.shtml)
-- 2026-06-30 08:35 - [日本球迷被强行披上巴西国旗](https://www.share.minike.top/Article/details/930359382102.shtml)
-- 2026-06-30 08:38 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/633639215811.shtml)
-- 2026-06-30 08:34 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/1121489.shtml)
-- 2026-06-30 08:34 - [穆祉丞回应获年度人气艺人](http://www.share.minike.top/Article/details/31895995.shtml)
-- 2026-06-30 08:49 - [日本博主：日本足球真的垃圾](https://www.share.kurohicncr.top/Article/details/4298242685.shtml)
-- 2026-06-30 08:51 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/81173246.shtml)
-- 2026-06-30 08:44 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/513985.shtml)
-- 2026-06-30 08:35 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/5980247440.shtml)
-- 2026-06-30 08:36 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.minike.top/Article/details/80783.shtml)
-- 2026-06-30 08:30 - [巴西扳平比分](https://www.share.kurohicncr.top/Article/details/5612381.shtml)
-- 2026-06-30 08:59 - [杨紫获白玉兰视后争议不止](https://www.share.minike.top/Article/details/0787635915.shtml)
+- 2026-06-30 08:54 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/782512642058.shtml)
+- 2026-06-30 08:43 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/90126069567.shtml)
+- 2026-06-30 08:43 - [卡塞米罗头球破门](http://www.blog.minike.top/Article/details/34479453460.shtml)
+- 2026-06-30 08:42 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/822951.shtml)
+- 2026-06-30 08:55 - [天道](https://www.blog.kurohicncr.top/Article/details/61855.shtml)
+- 2026-06-30 08:42 - [锐评T1战胜KC](https://www.share.minike.top/Article/details/092425613.shtml)
+- 2026-06-30 08:51 - [韩国球迷凌晨4点接机怒骂主教练](https://www.blog.kurohicncr.top/Article/details/4709681.shtml)
+- 2026-06-30 08:41 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/027845.shtml)
+- 2026-06-30 08:36 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/266141524496.shtml)
+- 2026-06-30 08:52 - [马航370搜寻最新消息](https://www.share.minike.top/Article/details/528377521120.shtml)
+- 2026-06-30 08:58 - [美股](http://www.share.minike.top/Article/details/00442569683.shtml)
+- 2026-06-30 08:49 - [巴拉圭先进球了](http://www.blog.minike.top/Article/details/3573873123.shtml)
+- 2026-06-30 08:41 - [收到补税提醒尽快办理 明起有滞纳金](http://www.blog.minike.top/Article/details/57438.shtml)
+- 2026-06-30 08:43 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](http://www.blog.minike.top/Article/details/697325.shtml)
+- 2026-06-30 09:00 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.share.minike.top/Article/details/707523065.shtml)

@@ -1,61 +1,59 @@
-# 官方指中国境内尚无埃博拉病毒病病例报告
+# Wise Group因涉嫌洗钱遭证券欺诈调查
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-中新社北京6月16日电 中国国家疾病预防控制局网站16日对外发布《埃博拉病毒病防控方案(2026年版)》及相关解读问答。据其介绍，中国境内尚无埃博拉病毒病病例报告。 近期，刚果(金)和乌干达发生由本迪布焦埃博拉病毒引起的埃博拉病毒病疫情。世界卫生组织于5月17日宣布本轮埃博拉病毒病疫情构成“国际关注的突发公共卫生事件”。 此次发布的解读问答指出，中国境内尚无埃博拉病毒病病例报告
+跨境支付平台Wise Group近日陷入危机。多家律师事务所宣布对该公司展开证券欺诈调查，原因涉及反洗钱合规问题及比利时检方的刑事调查。 据媒体报道，比利时布鲁塞尔检察官办公室去年启动了一项针对Wise的调查，原因是发现该公司的账户出现在超过30个欧洲国家的数百份跨境刑事协助请求中，涉及金额高达5亿欧元。调查重点聚焦于“反洗钱立法不合规迹象”。报道称，检方怀疑犯罪分子利用Wis
 
 ## 正文
 
-中新社北京6月16日电 中国国家疾病预防控制局网站16日对外发布《埃博拉病毒病防控方案(2026年版)》及相关解读问答。
+跨境支付平台Wise Group近日陷入危机。
 
-据其介绍，中国境内尚无埃博拉病毒病病例报告。
+多家律师事务所宣布对该公司展开证券欺诈调查，原因涉及反洗钱合规问题及比利时检方的刑事调查。
 
-近期，刚果(金)和乌干达发生由本迪布焦埃博拉病毒引起的埃博拉病毒病疫情。
+据媒体报道，比利时布鲁塞尔检察官办公室去年启动了一项针对Wise的调查，原因是发现该公司的账户出现在超过30个欧洲国家的数百份跨境刑事协助请求中，涉及金额高达5亿欧元。
 
-世界卫生组织于5月17日宣布本轮埃博拉病毒病疫情构成“国际关注的突发公共卫生事件”。
+调查重点聚焦于“反洗钱立法不合规迹象”。
 
-此次发布的解读问答指出，中国境内尚无埃博拉病毒病病例报告，根据中国传染病防治法等法律法规要求，埃博拉病毒病按照新发传染病管理。
+报道称，检方怀疑犯罪分子利用Wise账户清洗欺诈、腐败和毒品交易的非法所得。
 
-国家疾控局修订了《埃博拉病毒病防控方案(2026年版)》。
+受此消息冲击，Wise股价在6月1日下跌5.25%，收于12.10美元。
 
-在加强病例发现和报告方面，《方案》要求各级医疗疾控机构和海关发现符合埃博拉病毒病留观、疑似或确诊病例时，应当及时报告相关信息。
+在伦敦市场，股价一度大跌近20%，跌至近18个月低点。
 
-留观病例、疑似病例和确诊病例应当在2小时内通过传染病报告信息管理系统进行网络直报。
+盘前交易时段跌幅更是一度超过17%。
 
 ## 相关推荐
 
-- 2026-06-30 08:36 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
-- 2026-06-30 08:30 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-30 08:54 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
-- 2026-06-30 08:57 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-30 08:59 - [iPhone18e曝光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-30 08:55 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
-- 2026-06-30 08:32 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-30 08:54 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-30 08:52 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-30 08:46 - [存储芯片龙头提示风险](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
-- 2026-06-30 08:49 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-30 08:43 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-30 08:54 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
-- 2026-06-30 09:00 - [欧洲民众抢购空调降温](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-30 08:33 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-30 09:03 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-30 08:48 - [男子在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-30 09:04 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-30 08:36 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-30 08:44 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-30 08:41 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
+- 2026-06-30 08:43 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-30 09:00 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-30 08:43 - [iPhone18e曝光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-30 08:44 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
+- 2026-06-30 08:55 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-30 09:03 - [iPhoneUltra黑色机模](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-30 09:01 - [F1奥地利站赛后复盘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:49 - [这种关系可能正在悄悄“催老”你](https://www.blog.minike.top/Article/details/6585993791.shtml)
-- 2026-06-30 08:35 - [湖南祁东原文化馆被指贱卖](https://www.share.minike.top/Article/details/764889558604.shtml)
-- 2026-06-30 08:50 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/06055659052.shtml)
-- 2026-06-30 08:54 - [巴西替补奇兵读秒绝杀](http://www.blog.minike.top/Article/details/80123701743.shtml)
-- 2026-06-30 08:58 - [陈小春人老了干什么也不心酸](https://www.blog.kurohicncr.top/Article/details/957953751.shtml)
-- 2026-06-30 08:40 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/17541343.shtml)
-- 2026-06-30 08:38 - [美股](https://www.share.kurohicncr.top/Article/details/11773.shtml)
-- 2026-06-30 08:43 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/180255651536.shtml)
-- 2026-06-30 08:47 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/552633.shtml)
-- 2026-06-30 08:52 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/4628454103.shtml)
-- 2026-06-30 08:56 - [佐野海舟远射破门](http://www.blog.kurohicncr.top/Article/details/818561.shtml)
-- 2026-06-30 08:39 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/847976.shtml)
-- 2026-06-30 08:48 - [爆冷出局！德国点球大战不敌巴拉圭](http://www.share.kurohicncr.top/Article/details/215353336860.shtml)
-- 2026-06-30 08:51 - [千香](http://www.blog.kurohicncr.top/Article/details/230688356.shtml)
-- 2026-06-30 08:55 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.minike.top/Article/details/63848.shtml)
+- 2026-06-30 09:00 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](https://www.blog.kurohicncr.top/Article/details/272665027036.shtml)
+- 2026-06-30 08:46 - [泰山景区建135公里刀片刺绳隔离网](http://www.share.minike.top/Article/details/5586458.shtml)
+- 2026-06-30 08:40 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/4872972.shtml)
+- 2026-06-30 08:55 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](http://www.share.minike.top/Article/details/59928325.shtml)
+- 2026-06-30 09:00 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/4627549.shtml)
+- 2026-06-30 08:38 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/14246501622.shtml)
+- 2026-06-30 08:38 - [孙兴慜发长文致歉](https://www.blog.kurohicncr.top/Article/details/59497109644.shtml)
+- 2026-06-30 08:39 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/691586833.shtml)
+- 2026-06-30 09:01 - [日本 高位逼抢](https://www.blog.kurohicncr.top/Article/details/4719256353.shtml)
+- 2026-06-30 08:48 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/63316575753.shtml)
+- 2026-06-30 08:37 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/33041711.shtml)
+- 2026-06-30 08:48 - [日本反击率先破门](https://www.blog.kurohicncr.top/Article/details/210282441.shtml)
+- 2026-06-30 08:42 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/71368227.shtml)
+- 2026-06-30 09:01 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/903442927.shtml)
+- 2026-06-30 08:46 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/6312655.shtml)

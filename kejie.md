@@ -1,55 +1,48 @@
-# 吴清：两年多来共查办各类案件1358件，罚没款353亿元，投资者信心明显增强
+# 报道：美军报复性打击后 特朗普仍认为美伊接近达成和平协议
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日，2026陆家嘴论坛举行，证监会主席吴清表示，全面落实依法从严监管理念。坚持监管“长牙带刺”、有棱有角，健全覆盖发行上市、持续监管、退市、机构、交易等资本市场全链条监管制度。特别是突出打大打恶打重点，会同公安司法机关、金融管理部门等构建全方位立体化的财务造假综合惩防体系，依法严惩内幕交易、操纵市场、虚假陈述
+Politico援引一名白宫高级官员报道称，尽管美国周二对伊朗发动报复性打击，特朗普仍认为接近与伊朗达成和平协议。 Politico报道称，这名官员表示，目前协议所处的状态没有任何改变。责任编辑：丁文武
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日，2026陆家嘴论坛举行，证监会主席吴清表示，全面落实依法从严监管理念。
+Politico援引一名白宫高级官员报道称，尽管美国周二对伊朗发动报复性打击，特朗普仍认为接近与伊朗达成和平协议。
 
-坚持监管“长牙带刺”、有棱有角，健全覆盖发行上市、持续监管、退市、机构、交易等资本市场全链条监管制度。
+Politico报道称，这名官员表示，目前协议所处的状态没有任何改变。
 
-特别是突出打大打恶打重点，会同公安司法机关、金融管理部门等构建全方位立体化的财务造假综合惩防体系，依法严惩内幕交易、操纵市场、虚假陈述等严重损害投资者利益的行为，坚决出清“害群之马”。
-
-两年多来共查办各类案件1358件，罚没款353亿元，优胜劣汰的市场秩序加速构建，投资者信心明显增强。
-
-责任编辑：常福强
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-30 08:40 - [王楚钦说配合稍微有些陌生感](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
-- 2026-06-30 08:40 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-30 08:33 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-30 08:50 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
-- 2026-06-30 08:38 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
-- 2026-06-30 08:44 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
-- 2026-06-30 08:32 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
-- 2026-06-30 08:38 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-30 08:45 - [王楚钦说配合稍微有些陌生感](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-30 08:47 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-30 08:40 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-30 08:51 - [德国巴拉圭 折磨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-30 08:55 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-30 08:48 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
-- 2026-06-30 08:59 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-30 08:50 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-30 09:01 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-30 08:54 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-30 08:42 - [孙颖莎王楚钦晋级8强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-30 08:36 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-30 08:46 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-30 08:52 - [男子在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-30 08:48 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-30 09:03 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-30 08:46 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-30 08:46 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-30 08:44 - [德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:49 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/370048932.shtml)
-- 2026-06-30 08:39 - [欧洲装一台空调有多难](http://www.blog.kurohicncr.top/Article/details/97347.shtml)
-- 2026-06-30 08:30 - [董路：谁赢谁是“正路子”](https://www.blog.minike.top/Article/details/61255.shtml)
-- 2026-06-30 08:41 - [美股深夜大反弹 特斯拉飙涨8%](http://www.blog.kurohicncr.top/Article/details/001132.shtml)
-- 2026-06-30 08:41 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.kurohicncr.top/Article/details/401065648489.shtml)
-- 2026-06-30 08:46 - [巴西足球能否再现昔日荣光](http://www.blog.kurohicncr.top/Article/details/65075518254.shtml)
-- 2026-06-30 08:56 - [王欣瑜2-1击败科恰雷托](https://www.blog.kurohicncr.top/Article/details/8625851890.shtml)
-- 2026-06-30 08:34 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/3199725855.shtml)
-- 2026-06-30 08:37 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/517331.shtml)
-- 2026-06-30 08:50 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/768630967.shtml)
-- 2026-06-30 08:44 - [我和我的家乡](https://www.share.minike.top/Article/details/2506460.shtml)
-- 2026-06-30 08:48 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.share.minike.top/Article/details/609850608065.shtml)
-- 2026-06-30 08:49 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/764396348.shtml)
-- 2026-06-30 08:50 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/439206.shtml)
-- 2026-06-30 08:45 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/721640730320.shtml)
+- 2026-06-30 08:48 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.minike.top/Article/details/10357.shtml)
+- 2026-06-30 08:44 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/92845120.shtml)
+- 2026-06-30 09:02 - [IGN评测电影版后室](http://www.blog.kurohicncr.top/Article/details/575529207.shtml)
+- 2026-06-30 08:53 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/45880838.shtml)
+- 2026-06-30 08:46 - [如果有二次元高中是什么样子的？](https://www.share.minike.top/Article/details/810284.shtml)
+- 2026-06-30 08:44 - [韩国世界杯出局是主帅一个人的锅吗](http://www.blog.minike.top/Article/details/843975908.shtml)
+- 2026-06-30 08:38 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/501852112.shtml)
+- 2026-06-30 09:00 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/7320731.shtml)
+- 2026-06-30 08:53 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/913231406.shtml)
+- 2026-06-30 08:48 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/03526657.shtml)
+- 2026-06-30 08:49 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/76847.shtml)
+- 2026-06-30 08:50 - [张雪的一句“是我们”引发岛内热议](https://www.blog.minike.top/Article/details/52755404.shtml)
+- 2026-06-30 08:46 - [世界杯](http://www.blog.kurohicncr.top/Article/details/610925.shtml)
+- 2026-06-30 08:40 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](http://www.blog.kurohicncr.top/Article/details/810751.shtml)
+- 2026-06-30 08:37 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.kurohicncr.top/Article/details/37546131.shtml)

@@ -1,52 +1,59 @@
-# A股午评：三大指数集体收涨，创业板涨超2%
+# 亚马逊扩张货运业务，引发货运股集体抛售
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-A股午评：三大指数集体收涨，近2700只个股飘绿，创业板涨超2%；稀土板块爆发，通信设备、半导体上涨，海运、保险、航空、酒类下跌 16日，A股三大指数集体上涨，沪指盘中重回4100点。截至午间收盘，沪指涨0.06%，深证成指涨1.17%，创业板指涨2.05%。 全市半日成交额1.96万亿元，近2700只个股飘绿。 盘面上，稀土板块爆发，建材、通信设备、半导体、券商、航天军工等板
+核心要点 个股行情 亚马逊宣布将向自有业务体系之外的企业开放公路货运服务，多家大型货运承运商股价周三大幅下挫。 这家电商巨头表示，旗下全新推出的亚马逊供应链服务板块将面向全行业企业提供零担货运服务，不再仅限入仓至亚马逊仓储履约中心的商家，配送范围覆盖美国全境任意目的地。 零担货运（LTL）指一辆挂车整合多家客户零散货物统一运输，区别于整车整单运输模式。 奥德多米尼恩货运股价暴跌
 
 ## 正文
 
-A股午评：三大指数集体收涨，近2700只个股飘绿，创业板涨超2%；稀土板块爆发，通信设备、半导体上涨，海运、保险、航空、酒类下跌 16日，A股三大指数集体上涨，沪指盘中重回4100点。
+核心要点 个股行情 亚马逊宣布将向自有业务体系之外的企业开放公路货运服务，多家大型货运承运商股价周三大幅下挫。
 
-截至午间收盘，沪指涨0.06%，深证成指涨1.17%，创业板指涨2.05%。
+这家电商巨头表示，旗下全新推出的亚马逊供应链服务板块将面向全行业企业提供零担货运服务，不再仅限入仓至亚马逊仓储履约中心的商家，配送范围覆盖美国全境任意目的地。
 
-全市半日成交额1.96万亿元，近2700只个股飘绿。
+零担货运（LTL）指一辆挂车整合多家客户零散货物统一运输，区别于整车整单运输模式。
 
-盘面上，稀土板块爆发，建材、通信设备、半导体、券商、航天军工等板块上涨；玻璃纤维、光通信、固态电池、储能等概念走高。
+奥德多米尼恩货运股价暴跌超 6%，阿克贝斯特物流下跌 4%，赛亚物流、XPO 物流各跌 5%；本月刚从联邦快递分拆独立上市的联邦快递货运股价下跌约 3%。
 
-海运、保险、农业、航空、港口、煤炭、酒类、制药等板块下跌。
+过去数年亚马逊搭建起完整物流体系，大幅降低对外合作承运商的依赖，核心初衷是满足自身履约需求、支撑极速配送时效。
+
+其自有物流资产包括亚马逊货运机队、数万台配送货车，规模持续扩张的陆路货运板块已配备 8 万台货运挂车、2.4 万个集装箱。
+
+亚马逊货运负责人吉姆・鲁伊斯在声明中表示：“使用我们零担货运服务的亚马逊合作商家反馈十分明确：这套系统的数字化工具、全程可视化追踪与稳定履约能力，正是他们急需的资源，且希望能拓展至更多经营场景。
+
+如今亚马逊零担货运可承接各类货运订单，为全美大中小各类企业提供全境配送。
 
 ## 相关推荐
 
-- 2026-06-30 08:47 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
-- 2026-06-30 08:57 - [诺伊尔尽力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
-- 2026-06-30 08:47 - [马耳他著名拱门坍塌致中国男子身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-30 08:54 - [荷兰vs摩洛哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-30 08:36 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
-- 2026-06-30 08:33 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-30 08:34 - [德国巴拉圭加时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
-- 2026-06-30 08:32 - [德国巴拉圭 折磨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-30 08:40 - [萨内 看笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
-- 2026-06-30 08:48 - [杨紫学位证上就是杨紫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-30 08:31 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
-- 2026-06-30 08:52 - [董路：谁赢谁是“正路子”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-30 08:40 - [田中碧失误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-30 08:54 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-30 09:03 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-30 08:57 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-30 08:43 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-30 08:42 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-30 08:43 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-30 08:39 - [孙颖莎王楚钦晋级8强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-30 08:41 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-30 08:59 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-30 08:45 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
+- 2026-06-30 08:43 - [巴西足球能否再现昔日荣光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
+- 2026-06-30 08:40 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:55 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/54869648563.shtml)
-- 2026-06-30 08:44 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/1381744366.shtml)
-- 2026-06-30 08:58 - [德国vs巴拉圭](https://www.share.kurohicncr.top/Article/details/4977073.shtml)
-- 2026-06-30 08:32 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/025198785773.shtml)
-- 2026-06-30 08:30 - [日本球员说被绝杀非常不甘心](https://www.share.kurohicncr.top/Article/details/304992404572.shtml)
-- 2026-06-30 08:33 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/833732243.shtml)
-- 2026-06-30 08:35 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/2274006.shtml)
-- 2026-06-30 08:36 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/03316881.shtml)
-- 2026-06-30 08:36 - [王曼昱被突如其来的话筒逗笑了](http://www.share.minike.top/Article/details/26668731.shtml)
-- 2026-06-30 08:44 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.minike.top/Article/details/484607328.shtml)
-- 2026-06-30 08:54 - [世界杯巴拉圭点球淘汰德国](http://www.blog.kurohicncr.top/Article/details/06123877.shtml)
-- 2026-06-30 08:49 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/07705.shtml)
-- 2026-06-30 08:42 - [森保一致歉：世界第一目标没能实现](http://www.blog.kurohicncr.top/Article/details/33887481233.shtml)
-- 2026-06-30 08:52 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.kurohicncr.top/Article/details/674612744.shtml)
-- 2026-06-30 08:56 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/586022426.shtml)
+- 2026-06-30 08:36 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/742783222837.shtml)
+- 2026-06-30 08:36 - [上市央企地产商 两年换了三任董事长](https://www.share.minike.top/Article/details/821247.shtml)
+- 2026-06-30 09:03 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.kurohicncr.top/Article/details/95992.shtml)
+- 2026-06-30 08:59 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/120239.shtml)
+- 2026-06-30 08:44 - [穆祉丞回应获年度人气艺人](http://www.blog.kurohicncr.top/Article/details/10810287.shtml)
+- 2026-06-30 08:43 - [哈弗茨头球破门](http://www.blog.kurohicncr.top/Article/details/888083989109.shtml)
+- 2026-06-30 08:36 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/033111.shtml)
+- 2026-06-30 08:51 - [德国4比5巴拉圭](http://www.share.kurohicncr.top/Article/details/015160.shtml)
+- 2026-06-30 09:03 - [爆冷出局！德国点球大战不敌巴拉圭](https://www.blog.kurohicncr.top/Article/details/018518.shtml)
+- 2026-06-30 08:38 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/9083153.shtml)
+- 2026-06-30 08:41 - [锐评T1战胜KC](http://www.share.minike.top/Article/details/125356.shtml)
+- 2026-06-30 08:36 - [曝灰熊将莫兰特交易至开拓者](https://www.blog.minike.top/Article/details/458821.shtml)
+- 2026-06-30 08:45 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/10899739573.shtml)
+- 2026-06-30 08:55 - [恋与深空道歉声明](https://www.blog.kurohicncr.top/Article/details/309537.shtml)
+- 2026-06-30 09:00 - [古代人对纳妾的态度是什么样的？](https://www.blog.minike.top/Article/details/390748887.shtml)

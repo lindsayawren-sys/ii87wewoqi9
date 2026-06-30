@@ -1,48 +1,54 @@
-# 吴清：支持在沪深交易所推出主动ETF
+# 花旗：新奥能源给予买入评级 华润燃气给予中性评级
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日，2026陆家嘴论坛举行，证监会主席吴清表示，进一步丰富投资产品和工具，包括：支持在沪深交易所推出主动ETF；推出商业不动产REITs试点，4单首批项目18日将在上交所挂牌上市；推出支持中小基金公司规范健康发展的一揽子措施，坚持分类监管、突出特色，在产品布局、业务准入等方面给予适当倾斜，支持中小基金公司差异
+花旗发布研报称，根据产业消息人士LESS BETTER透露，5月份中国天然气消费量（包括储气库的进出量）同比减3.5%至306.6亿立方米，其中：（i）126亿立方米（占41.0%）用于工业燃料； （ii）79亿立方米（占25.8%）用于发电量（25.8%）用于产量34亿立方米（占10.9%）用于都市瓦斯配送。 工业方面，5月中国采购经理人指数（PMI）为50.0%，按季减0.
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日，2026陆家嘴论坛举行，证监会主席吴清表示，进一步丰富投资产品和工具，包括：支持在沪深交易所推出主动ETF；推出商业不动产REITs试点，4单首批项目18日将在上交所挂牌上市；推出支持中小基金公司规范健康发展的一揽子措施，坚持分类监管、突出特色，在产品布局、业务准入等方面给予适当倾斜，支持中小基金公司差异化发展。
+花旗发布研报称，根据产业消息人士LESS BETTER透露，5月份中国天然气消费量（包括储气库的进出量）同比减3.5%至306.6亿立方米，其中：（i）126亿立方米（占41.0%）用于工业燃料； （ii）79亿立方米（占25.8%）用于发电量（25.8%）用于产量34亿立方米（占10.9%）用于都市瓦斯配送。
 
-责任编辑：常福强
+工业方面，5月中国采购经理人指数（PMI）为50.0%，按季减0.3个百分点； 生产指数为51.2%，高于临界值。
+
+国内半导体工厂的天然气用量稳定增长。
+
+空调用气发电方面，由于夏季气温提前到来，华南地区（尤其是广东）的需求超出预期。
+
+花旗对中国天然气分销产业持谨慎态度，因为该行预计2026年销售量将增长有限。
+
+该行给予新奥能源（02688）“买入”的投资评级，主要看好其私有化带来的上涨空间； 对华润燃气（01193）给予“中性”的投资评级。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 08:43 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-30 08:35 - [王楚钦说配合稍微有些陌生感](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-30 08:48 - [世界杯巴拉圭点球淘汰德国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-30 08:55 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-30 08:58 - [第一次对自信的力量有了实感](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-30 08:48 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
-- 2026-06-30 08:51 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
-- 2026-06-30 08:54 - [勇士续约波尔津吉斯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
-- 2026-06-30 08:44 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-30 08:55 - [恋与深空制作组回应近期争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
-- 2026-06-30 08:55 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
-- 2026-06-30 08:39 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-30 08:52 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-30 08:34 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-30 09:02 - [德国队连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-30 08:37 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-30 08:51 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-30 08:43 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-30 08:38 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-30 08:39 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
+- 2026-06-30 08:53 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-30 08:47 - [4000美元是黄金新一轮下跌的开始吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-30 08:41 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-30 08:58 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:50 - [郑钦文温网三连败西尼亚科娃](https://www.share.kurohicncr.top/Article/details/34051895985.shtml)
-- 2026-06-30 08:31 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/629006.shtml)
-- 2026-06-30 08:42 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/55739.shtml)
-- 2026-06-30 08:44 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/1117870175.shtml)
-- 2026-06-30 08:56 - [徐亮怒斥世界杯踢假球](https://www.blog.kurohicncr.top/Article/details/822581288959.shtml)
-- 2026-06-30 08:48 - [大蒜晒外面被路过女子连盆端走](http://www.share.kurohicncr.top/Article/details/43184627.shtml)
-- 2026-06-30 08:52 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/9484684.shtml)
-- 2026-06-30 08:52 - [乔家的儿女](http://www.blog.minike.top/Article/details/59847255924.shtml)
-- 2026-06-30 08:59 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/594159815049.shtml)
-- 2026-06-30 08:55 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/922693467862.shtml)
-- 2026-06-30 08:39 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/57617813515.shtml)
-- 2026-06-30 08:38 - [杨紫大银幕成绩单如何](http://www.share.kurohicncr.top/Article/details/121745815.shtml)
-- 2026-06-30 08:52 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/487040387285.shtml)
-- 2026-06-30 08:45 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/44105.shtml)
-- 2026-06-30 08:35 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/067849468.shtml)
+- 2026-06-30 09:05 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.kurohicncr.top/Article/details/160012660005.shtml)
+- 2026-06-30 08:46 - [老外对中国cosplay竟这样评价…](http://www.share.kurohicncr.top/Article/details/2934911.shtml)
+- 2026-06-30 09:04 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/20676.shtml)
+- 2026-06-30 08:58 - [日本五次世界杯淘汰赛全败](http://www.share.minike.top/Article/details/49753048.shtml)
+- 2026-06-30 08:41 - [王楚钦说配合稍微有些陌生感](https://www.share.kurohicncr.top/Article/details/6470082527.shtml)
+- 2026-06-30 08:54 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/63790851203.shtml)
+- 2026-06-30 08:46 - [巴西2-1绝杀日本](https://www.blog.kurohicncr.top/Article/details/57250786826.shtml)
+- 2026-06-30 08:55 - [《共患难》](https://www.blog.kurohicncr.top/Article/details/718170358.shtml)
+- 2026-06-30 08:57 - [王灿兮被烫伤两年后维权成功](http://www.share.minike.top/Article/details/8321896380.shtml)
+- 2026-06-30 09:05 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.minike.top/Article/details/233545880881.shtml)
+- 2026-06-30 08:47 - [古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?](http://www.share.minike.top/Article/details/39462.shtml)
+- 2026-06-30 08:46 - [日本16强魔咒](http://www.blog.minike.top/Article/details/8014867.shtml)
+- 2026-06-30 08:42 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/0136779330.shtml)
+- 2026-06-30 09:02 - [德国罚丢3粒点球](https://www.share.minike.top/Article/details/72635407668.shtml)
+- 2026-06-30 08:56 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/634243113999.shtml)

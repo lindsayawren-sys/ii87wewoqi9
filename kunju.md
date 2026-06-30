@@ -1,56 +1,46 @@
-# 股海导航_2026年6月16日_沪深股市公告与交易提示
+# 收评|国内期货主力合约涨多跌少，多晶硅触及涨停
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-专题：交易提示 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！【热点】 亿纬锂能（维权）：预计上半年净利润同比增长95%—110%。 洛阳钼业：目前公司生产成本和销售情况未出现大幅波动。 3连板金钼股份：公司尚无产品直接应用于半导体存储芯片领域。 云南锗业：公司股价存在非理性炒作风险。 泰晶科技：公司股价4月至今涨超116%，交易风险极大。 金安国纪：
+2026年6月11日，国内期货主力合约涨多跌少，多晶硅触及涨停，涨幅8.99%，钯涨超5%，碳酸锂、苹果涨超4%，乙二醇（EG）涨超3%，液化石油气（LPG）涨近3%，低硫燃料油（LU）、甲醇涨超2%。跌幅方面，沪金跌近4%，沪锌、沪银跌超2%，鸡蛋、国际铜、沪铜、生猪、硅铁跌超1%。 责任编辑：赵思远
 
 ## 正文
 
-专题：交易提示 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+2026年6月11日，国内期货主力合约涨多跌少，多晶硅触及涨停，涨幅8.99%，钯涨超5%，碳酸锂、苹果涨超4%，乙二醇（EG）涨超3%，液化石油气（LPG）涨近3%，低硫燃料油（LU）、甲醇涨超2%。
 
-【热点】 亿纬锂能（维权）：预计上半年净利润同比增长95%—110%。
+跌幅方面，沪金跌近4%，沪锌、沪银跌超2%，鸡蛋、国际铜、沪铜、生猪、硅铁跌超1%。
 
-洛阳钼业：目前公司生产成本和销售情况未出现大幅波动。
-
-3连板金钼股份：公司尚无产品直接应用于半导体存储芯片领域。
-
-云南锗业：公司股价存在非理性炒作风险。
-
-泰晶科技：公司股价4月至今涨超116%，交易风险极大。
-
-金安国纪：公司股价4月以来涨幅达223.65%，存非理性炒作情形。
-
-炬光科技：2025年光通信相关业务收入占比约8%，尚未构成核心业绩支柱。
+责任编辑：赵思远
 
 ## 相关推荐
 
-- 2026-06-30 08:30 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-30 08:44 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-30 08:45 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-30 08:39 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-30 08:37 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-30 08:46 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-30 08:30 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-30 08:30 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
-- 2026-06-30 08:46 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
-- 2026-06-30 08:34 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-30 09:03 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-30 08:54 - [F1奥地利站赛后复盘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
+- 2026-06-30 08:36 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-30 08:50 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-30 08:49 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-30 08:51 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-30 08:48 - [第3集丨“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-30 08:45 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-30 08:50 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-30 08:44 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:35 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/373805490.shtml)
-- 2026-06-30 08:32 - [委内瑞拉地震死亡人数升至1719人](http://www.blog.minike.top/Article/details/918466.shtml)
-- 2026-06-30 08:34 - [为什么小组赛出局会让韩国人破防](https://www.share.kurohicncr.top/Article/details/2185049.shtml)
-- 2026-06-30 08:40 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/7534503.shtml)
-- 2026-06-30 08:56 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/715982186.shtml)
-- 2026-06-30 08:54 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/37034986811.shtml)
-- 2026-06-30 08:37 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/692616267.shtml)
-- 2026-06-30 08:40 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/8061684.shtml)
-- 2026-06-30 08:48 - [金刚川](https://www.blog.kurohicncr.top/Article/details/68248.shtml)
-- 2026-06-30 08:35 - [杨紫获白玉兰视后为何争议难平](https://www.share.minike.top/Article/details/27001.shtml)
-- 2026-06-30 08:41 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.minike.top/Article/details/25834251694.shtml)
-- 2026-06-30 08:51 - [输球后日本球迷被强行披上巴西国旗](http://www.blog.minike.top/Article/details/98900650429.shtml)
-- 2026-06-30 08:58 - [房价什么时候能涨](https://www.blog.minike.top/Article/details/79179966951.shtml)
-- 2026-06-30 08:49 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/80336.shtml)
-- 2026-06-30 08:44 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/459645.shtml)
+- 2026-06-30 09:05 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/554332.shtml)
+- 2026-06-30 08:49 - [杨紫获白玉兰视后为何争议难平](https://www.share.minike.top/Article/details/34482483011.shtml)
+- 2026-06-30 08:49 - [我和我的家乡](http://www.share.minike.top/Article/details/820851796707.shtml)
+- 2026-06-30 08:48 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/061788.shtml)
+- 2026-06-30 08:42 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/450404498250.shtml)
+- 2026-06-30 08:41 - [德国爆冷点球大战不敌巴拉圭](http://www.blog.kurohicncr.top/Article/details/74548378.shtml)
+- 2026-06-30 09:01 - [德国身价是巴拉圭6倍](https://www.share.minike.top/Article/details/90395.shtml)
+- 2026-06-30 08:47 - [女心理师](https://www.blog.kurohicncr.top/Article/details/40803971805.shtml)
+- 2026-06-30 08:38 - [《共患难》](https://www.blog.minike.top/Article/details/15298093907.shtml)
+- 2026-06-30 08:43 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/286583959955.shtml)
+- 2026-06-30 08:51 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://www.share.minike.top/Article/details/117731512.shtml)
+- 2026-06-30 08:46 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/654235128718.shtml)
+- 2026-06-30 08:41 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.share.kurohicncr.top/Article/details/6971362979.shtml)
+- 2026-06-30 08:47 - [张月收到黄灿灿辣货两眼发光](https://www.share.minike.top/Article/details/91113.shtml)
+- 2026-06-30 08:57 - [为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？](http://www.blog.minike.top/Article/details/6635689430.shtml)

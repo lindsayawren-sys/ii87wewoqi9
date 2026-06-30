@@ -1,50 +1,56 @@
-# 巨美集团拟折让约13.2%配售最多7488万股 净筹约3200万港元
+# 美联储官员表态：物价持续上涨，加息重回备选方案
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-巨美集团（01920）发布公告，于2026年6月15日，公司拟配售最多7488万股配售股份，相当于公司于本公告日期的现有已发行股本的14.60%；及公司经配发及发行配售股份扩大的已发行股本的约12.74%。每股配售股份的配售价0.434港元较6月15日收市价每股股份0.50港元折让约13.2%。 假设配售代理成功配售所有配售股份，配售的最高所得款项总额将为约3250万港元。配售
+专题：美国5月CPI同比涨幅三年来首次突破4% 原本期盼借贷成本回落的美国民众，或许还要再等一段时间。 就在几周前，市场投资者还普遍预期，信用卡、汽车贷款、房屋净值信贷额度等挂钩美联储短期基准利率的信贷产品利率将会下调。而如今，多名美联储官员释放信号，年底前不排除再度加息。 达拉斯联储主席洛里・洛根 6 月 3 日在得州埃尔帕索发表讲话时称：“我愈发认为，今年晚些时候或许有必要
 
 ## 正文
 
-巨美集团（01920）发布公告，于2026年6月15日，公司拟配售最多7488万股配售股份，相当于公司于本公告日期的现有已发行股本的14.60%；及公司经配发及发行配售股份扩大的已发行股本的约12.74%。
+专题：美国5月CPI同比涨幅三年来首次突破4% 原本期盼借贷成本回落的美国民众，或许还要再等一段时间。
 
-每股配售股份的配售价0.434港元较6月15日收市价每股股份0.50港元折让约13.2%。
+就在几周前，市场投资者还普遍预期，信用卡、汽车贷款、房屋净值信贷额度等挂钩美联储短期基准利率的信贷产品利率将会下调。
 
-假设配售代理成功配售所有配售股份，配售的最高所得款项总额将为约3250万港元。
+而如今，多名美联储官员释放信号，年底前不排除再度加息。
 
-配售的最高所得款项净额将为约3200万港元，将用于可能获授新坭水工程项目及营运资金。
+达拉斯联储主席洛里・洛根 6 月 3 日在得州埃尔帕索发表讲话时称：“我愈发认为，今年晚些时候或许有必要进一步上调利率。
 
-责任编辑：卢昱君
+” 政策态度转向的背后，是通胀再度抬头的迹象。
+
+美国劳工统计局周三公布居民消费价格指数（CPI）显示，5 月物价同比上涨 4.2%，高于 4 月 3.8% 的同比涨幅，大幅超出美联储 2% 的年度通胀目标。
+
+通胀居高不下时，美联储通常会上调基准利率，以此为经济降温，遏制物价过快上涨。
+
+利率追踪工具 CME 美联储观察的数据显示，截至周三早间，市场交易员押注年底前美联储至少加息 25 个基点的概率达 66%。
 
 ## 相关推荐
 
-- 2026-06-30 08:35 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-30 08:58 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-30 08:39 - [张月收到黄灿灿辣货两眼发光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-30 08:57 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
-- 2026-06-30 08:49 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-30 08:30 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
-- 2026-06-30 08:31 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-30 08:42 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-30 08:50 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-30 08:55 - [库尼亚赛后伸五指嘲讽日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-30 08:43 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-30 09:04 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-30 09:01 - [四川凉山落石砸毁车辆 3人遇难](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-30 08:46 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-30 08:50 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-30 08:46 - [日本博主：日本足球真的垃圾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-30 08:48 - [IGN评测电影版后室](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-30 08:53 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-30 09:05 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-30 08:48 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:45 - [莫兰特被交易到开拓者](http://www.blog.kurohicncr.top/Article/details/45852873.shtml)
-- 2026-06-30 08:57 - [藤森庆子赢得秘鲁总统选举](https://www.share.kurohicncr.top/Article/details/35477.shtml)
-- 2026-06-30 08:59 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/93532.shtml)
-- 2026-06-30 08:40 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/8369276.shtml)
-- 2026-06-30 08:45 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/6389628042.shtml)
-- 2026-06-30 08:38 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.blog.minike.top/Article/details/5729603304.shtml)
-- 2026-06-30 08:38 - [杨紫大银幕成绩单如何](http://www.share.kurohicncr.top/Article/details/0861537.shtml)
-- 2026-06-30 08:57 - [iPhone18e曝光](https://www.blog.minike.top/Article/details/1185256.shtml)
-- 2026-06-30 08:58 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/62714214998.shtml)
-- 2026-06-30 08:42 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/09217537440.shtml)
-- 2026-06-30 08:32 - [王曼昱被突如其来的话筒逗笑了](https://www.blog.minike.top/Article/details/9637048.shtml)
-- 2026-06-30 08:42 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/282815.shtml)
-- 2026-06-30 08:50 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/11184705551.shtml)
-- 2026-06-30 08:50 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.kurohicncr.top/Article/details/1152947.shtml)
-- 2026-06-30 08:30 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/171706998743.shtml)
+- 2026-06-30 08:41 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/641658.shtml)
+- 2026-06-30 08:38 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.minike.top/Article/details/65237.shtml)
+- 2026-06-30 08:59 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/30329337.shtml)
+- 2026-06-30 08:43 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/26503924.shtml)
+- 2026-06-30 08:40 - [日本球员说被绝杀非常不甘心](http://www.share.kurohicncr.top/Article/details/0245043846.shtml)
+- 2026-06-30 08:40 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.minike.top/Article/details/9208214275.shtml)
+- 2026-06-30 09:00 - [索马里女大使：想和中国一起搞事业](http://www.share.minike.top/Article/details/25751.shtml)
+- 2026-06-30 08:43 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/220055753.shtml)
+- 2026-06-30 08:37 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://www.share.minike.top/Article/details/2076051163.shtml)
+- 2026-06-30 08:59 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/3636637.shtml)
+- 2026-06-30 08:44 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/4982386.shtml)
+- 2026-06-30 08:40 - [日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？](http://www.share.minike.top/Article/details/17111924.shtml)
+- 2026-06-30 08:41 - [免费试吃发差评被店家挂店门避雷](https://www.blog.minike.top/Article/details/770476624.shtml)
+- 2026-06-30 08:44 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/02068673.shtml)
+- 2026-06-30 08:43 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/11026397.shtml)

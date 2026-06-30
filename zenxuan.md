@@ -1,56 +1,60 @@
-# 多城市土地市场升温 头部房企忙补仓
+# 中国制造再出圈！国产“小个头”装备撬动海外大市场
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-证券日报记者 陈 潇 核心城市土地市场热度持续提升。近期，深圳、苏州等多个热点城市接连出现高溢价成交地块，部分地块经过数百轮竞价争夺，刷新区域乃至城市楼面价纪录。 例如，6月12日，深圳前海桂湾片区核心宅地地块正式出让，吸引建发房地产集团有限公司(以下简称“建发房产”)、华润置地有限公司(以下简称“华润置地”)、招商局蛇口工业区控股股份有限公司、保利发展控股集团股份有限公司(以
+今年以来，我国工程机械行业国际化步伐持续加快。在“大块头”的大型装备远销海外的同时，一批身形小巧的国产机械设备，正悄然风靡海外市场。微型挖掘机、小型割草机、电动三轮车，这些看似不起眼的“小个头”装备，在国际市场收获颇高人气，订单接踵而至。国产“小个头”挖掘机走红海外 企业订单量大幅增长 在山东济宁，一家工程机械企业的展厅化身全球直播间，主播们面向全球不同区域的客户推介小型挖掘设
 
 ## 正文
 
-证券日报记者 陈 潇 核心城市土地市场热度持续提升。
+今年以来，我国工程机械行业国际化步伐持续加快。
 
-近期，深圳、苏州等多个热点城市接连出现高溢价成交地块，部分地块经过数百轮竞价争夺，刷新区域乃至城市楼面价纪录。
+在“大块头”的大型装备远销海外的同时，一批身形小巧的国产机械设备，正悄然风靡海外市场。
 
-例如，6月12日，深圳前海桂湾片区核心宅地地块正式出让，吸引建发房地产集团有限公司(以下简称“建发房产”)、华润置地有限公司(以下简称“华润置地”)、招商局蛇口工业区控股股份有限公司、保利发展控股集团股份有限公司(以下简称“保利发展”)等9家头部房企参与竞拍。
+微型挖掘机、小型割草机、电动三轮车，这些看似不起眼的“小个头”装备，在国际市场收获颇高人气，订单接踵而至。
 
-经过近300轮竞价，最终建发房产以35.25亿元竞得该地块，溢价率达114.29%，成交楼面价95918元/平方米，刷新前海宅地楼面价纪录。
+国产“小个头”挖掘机走红海外 企业订单量大幅增长 在山东济宁，一家工程机械企业的展厅化身全球直播间，主播们面向全球不同区域的客户推介小型挖掘设备。
 
-中指研究院深圳分院高级分析师孙红梅向《证券日报》记者表示，深圳前海桂湾地块是前海发展最成熟、定位最高的金融总部板块，近5年仅公开出让2宗纯商品住宅用地，核心居住用地稀缺性极强。
+这种直观、透明、实景化的工厂直播模式，是这家企业的小微挖掘机出海的重要渠道，它源于企业一款自重仅1.2吨的微型挖掘机在海外社交平台的意外出圈。
 
-本次地块规模更大、地形更规整，产品打造空间更充足，因此竞拍热度较高。
+起初，挪威博主只是被它的小体格和不到2000美元的低价格吸引。
 
-苏州市场同样表现亮眼。
+经过体验、测试后发现，这台微型挖掘机使用不同属具在各种场景都灵活自如。
 
-近日，苏州工业园区金鸡湖湖东地块吸引7家房企参与竞拍，经过74轮竞价后，由中海发展(苏州)有限公司以16.88亿元竞得，成交楼面价68920元/平方米，刷新江苏省住宅用地楼面价纪录，溢价率达30.04%。
+测评过程被制作成视频发布在网上，播放量超400万次。
 
 ## 相关推荐
 
-- 2026-06-30 08:42 - [iPhone18e曝光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-30 08:50 - [德国罚丢3粒点球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
-- 2026-06-30 08:51 - [马耳他著名拱门坍塌致中国男子身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-30 08:33 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-30 08:53 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
-- 2026-06-30 08:57 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-30 08:45 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-30 08:33 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-30 08:58 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-30 08:50 - [大蒜晒外面被路过女子连盆端走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
+- 2026-06-30 08:47 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-30 08:45 - [德国4比5巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-30 08:40 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-30 08:52 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-30 09:02 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-30 09:05 - [《名肘探科比》：科比大战裂口女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-30 08:41 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-30 08:38 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-30 08:55 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-30 08:52 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-30 08:44 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-30 08:59 - [德国爆冷点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-30 08:48 - [德国北部枪击事件致5死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-30 09:00 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:55 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/87295.shtml)
-- 2026-06-30 08:38 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/675483189.shtml)
-- 2026-06-30 08:56 - [徐亮怒斥世界杯踢假球](https://www.share.minike.top/Article/details/8981691236.shtml)
-- 2026-06-30 08:53 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/84441348.shtml)
-- 2026-06-30 08:44 - [湖南祁东原文化馆被指贱卖](http://www.share.kurohicncr.top/Article/details/33337.shtml)
-- 2026-06-30 08:31 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/92783.shtml)
-- 2026-06-30 08:39 - [有酒店推行24小时退房制](https://www.share.kurohicncr.top/Article/details/522894.shtml)
-- 2026-06-30 08:37 - [上市央企地产商 两年换了三任董事长](http://www.blog.kurohicncr.top/Article/details/02957191.shtml)
-- 2026-06-30 08:47 - [孙兴慜发长文致歉](https://www.blog.kurohicncr.top/Article/details/8121307.shtml)
-- 2026-06-30 08:53 - [周生如故](http://www.share.minike.top/Article/details/836619.shtml)
-- 2026-06-30 08:42 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/6679411.shtml)
-- 2026-06-30 08:42 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/25846339.shtml)
-- 2026-06-30 08:37 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/467828783842.shtml)
-- 2026-06-30 08:56 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/7737401390.shtml)
-- 2026-06-30 08:41 - [周冬雨多次说演不了话剧文城](https://www.share.minike.top/Article/details/6453651311.shtml)
+- 2026-06-30 08:56 - [日本 高位逼抢](https://www.blog.minike.top/Article/details/988257.shtml)
+- 2026-06-30 09:02 - [荷兰vs摩洛哥](https://www.blog.kurohicncr.top/Article/details/6390589847.shtml)
+- 2026-06-30 09:02 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/58983.shtml)
+- 2026-06-30 08:47 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/766394273512.shtml)
+- 2026-06-30 08:59 - [田中碧失误](http://www.blog.kurohicncr.top/Article/details/44592516.shtml)
+- 2026-06-30 08:45 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/3451946.shtml)
+- 2026-06-30 08:46 - [委内瑞拉地震死亡人数升至1719人](http://www.share.minike.top/Article/details/81507007092.shtml)
+- 2026-06-30 08:55 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/0491908.shtml)
+- 2026-06-30 08:48 - [4000美元是黄金新一轮下跌的开始吗](https://www.blog.kurohicncr.top/Article/details/0510409904.shtml)
+- 2026-06-30 08:44 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/940364.shtml)
+- 2026-06-30 08:55 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.minike.top/Article/details/244696926013.shtml)
+- 2026-06-30 08:54 - [豆包收费了，你还会用吗？](http://www.share.kurohicncr.top/Article/details/77684.shtml)
+- 2026-06-30 08:37 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/96190298150.shtml)
+- 2026-06-30 08:54 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/117961146794.shtml)
+- 2026-06-30 08:51 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/685759160345.shtml)

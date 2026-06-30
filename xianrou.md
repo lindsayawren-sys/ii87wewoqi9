@@ -1,59 +1,58 @@
-# 中国官方详解附条件批准腾讯收购喜马拉雅股权案
+# Meta将利用企业数据进一步实现内容个性化
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-中新社北京6月16日电 (记者 刘亮)中国国家市场监管总局16日召开二季度例行新闻发布会，详解近期市场监管部门附条件批准的腾讯收购喜马拉雅股权案。 国家市场监管总局新闻宣传司司长王秋苹介绍，本次交易是在线音频播放平台主要竞争者之间的合并，交易后市场占比超50%，市场格局影响深远。市场监管部门依法作出附条件批准决定，增进相关市场的竞争、创新和活力，实现了规模与竞争之间的有效平衡。
+Meta Platforms计划利用其从商家处收集的数据，来进一步个性化用户在其社交媒体平台上看到的内容。 Meta周二表示，将利用商家已发送给它的数据，例如用户玩的游戏或在其他网站上进行的购买，来个性化用户在社交媒体信息流中看到的内容以及由人工智能生成的回应。例如，一位最近在网上购买了帐篷的用户，可能会看到更多关于露营的短视频。 这家长期以来一直利用其他商家数据投放定向广告的
 
 ## 正文
 
-中新社北京6月16日电 (记者 刘亮)中国国家市场监管总局16日召开二季度例行新闻发布会，详解近期市场监管部门附条件批准的腾讯收购喜马拉雅股权案。
+Meta Platforms计划利用其从商家处收集的数据，来进一步个性化用户在其社交媒体平台上看到的内容。
 
-国家市场监管总局新闻宣传司司长王秋苹介绍，本次交易是在线音频播放平台主要竞争者之间的合并，交易后市场占比超50%，市场格局影响深远。
+Meta周二表示，将利用商家已发送给它的数据，例如用户玩的游戏或在其他网站上进行的购买，来个性化用户在社交媒体信息流中看到的内容以及由人工智能生成的回应。
 
-市场监管部门依法作出附条件批准决定，增进相关市场的竞争、创新和活力，实现了规模与竞争之间的有效平衡。
+例如，一位最近在网上购买了帐篷的用户，可能会看到更多关于露营的短视频。
 
-王秋苹提到，人工智能技术应用、商业模式迭代创新在一定程度上弱化了本项交易对竞争产生的不利影响。
+这家长期以来一直利用其他商家数据投放定向广告的公司表示，此次更新不会收集任何新的数据。
 
-考虑到集中显著改变相关市场结构，在一定时期内仍可能对市场竞争产生影响。
+该公司在一篇博客文章中表示：“此举旨在利用商家已发送给我们的信息，进一步改善您的体验。
 
-经多轮磋商，参与交易双方作出具有针对性的承诺，国家市场监管总局评估后认为这些承诺可有效减少对竞争的不利影响，为此予以附条件批准。
+” 作为此次更新的一部分，Meta表示还将精简其设置选项，以便用户控制该公司如何获取和使用其他商家分享的数据。
 
-据介绍，腾讯、喜马拉雅作出的承诺主要包括：不提高平台服务价格、不降低服务水平；保障免费内容供给；解除独家授权；不向汽车厂商搭售；不限制主播入驻与内容分发。
+Meta表示将停止提供“Meta平台外动态”设置，该设置允许用户将商家与公司分享的动态与自己的账户解除关联。
 
-王秋苹说，这一系列承诺，全面保护消费者、创作者、版权方、车企多方权益，为“耳朵经济”公平竞争秩序和创新发展立规矩、划边界。
+该公司表示，将转而扩展“来自其他商家的动态”设置，允许用户选择是否允许Meta使用这些数据来展示更个性化的内容和广告。
 
 ## 相关推荐
 
-- 2026-06-30 08:51 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-30 08:51 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-30 08:57 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-30 08:31 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-30 08:40 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-30 08:54 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-30 08:49 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-30 08:31 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-30 08:35 - [日本队主帅道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
-- 2026-06-30 08:53 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-30 08:50 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-30 08:51 - [董路：谁赢谁是“正路子”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-30 08:45 - [德国爆冷点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-30 08:44 - [森保一致歉：世界第一目标没能实现](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-30 09:00 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-30 08:45 - [日本队主帅道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-30 08:47 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-30 08:49 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-30 08:45 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-30 08:46 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-30 08:44 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-30 08:50 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-30 08:55 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-30 08:49 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-30 08:56 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:39 - [王濛回复黄灿灿](http://www.share.kurohicncr.top/Article/details/32815.shtml)
-- 2026-06-30 08:33 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/347465.shtml)
-- 2026-06-30 08:53 - [穆祉丞年度人气艺人](http://www.share.kurohicncr.top/Article/details/51164673760.shtml)
-- 2026-06-30 08:33 - [巴西2-1绝杀日本](http://www.blog.kurohicncr.top/Article/details/958582.shtml)
-- 2026-06-30 08:40 - [千与千寻](http://www.blog.minike.top/Article/details/72923.shtml)
-- 2026-06-30 08:38 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.blog.minike.top/Article/details/1777615118.shtml)
-- 2026-06-30 08:54 - [逃狱兄弟](https://www.share.minike.top/Article/details/91547541.shtml)
-- 2026-06-30 08:38 - [世界杯：德国vs巴拉圭](http://www.share.minike.top/Article/details/574674105.shtml)
-- 2026-06-30 08:35 - [巴拉圭先进球了](http://www.blog.kurohicncr.top/Article/details/871977.shtml)
-- 2026-06-30 08:48 - [曝iPhone18Pro机密文件现身暗网](http://www.share.kurohicncr.top/Article/details/41563606358.shtml)
-- 2026-06-30 08:42 - [德国vs巴拉圭](https://www.share.kurohicncr.top/Article/details/3127424.shtml)
-- 2026-06-30 08:56 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/1847679823.shtml)
-- 2026-06-30 08:50 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/196495110.shtml)
-- 2026-06-30 08:52 - [iPhone18e曝光](http://www.blog.minike.top/Article/details/75820524222.shtml)
-- 2026-06-30 08:55 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/18299179470.shtml)
+- 2026-06-30 08:57 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/510496320754.shtml)
+- 2026-06-30 08:56 - [第一炉香](https://www.share.kurohicncr.top/Article/details/89912444.shtml)
+- 2026-06-30 08:55 - [本届世界杯已有5名球员被控强奸](http://www.blog.kurohicncr.top/Article/details/353473.shtml)
+- 2026-06-30 08:41 - [日本球迷被强行披上巴西国旗](https://www.blog.minike.top/Article/details/1741338.shtml)
+- 2026-06-30 08:50 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/57510966401.shtml)
+- 2026-06-30 08:43 - [锐评：网红不能困在无底线逐利里](http://www.blog.minike.top/Article/details/985267526709.shtml)
+- 2026-06-30 08:58 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/76964.shtml)
+- 2026-06-30 08:47 - [杨紫肖战余生请多指教拍立得](http://www.share.kurohicncr.top/Article/details/85699467341.shtml)
+- 2026-06-30 08:54 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/1226490080.shtml)
+- 2026-06-30 08:38 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/058545933.shtml)
+- 2026-06-30 09:03 - [荷兰vs摩洛哥](https://www.share.kurohicncr.top/Article/details/764507277578.shtml)
+- 2026-06-30 08:42 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/748764.shtml)
+- 2026-06-30 08:40 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/3764615651.shtml)
+- 2026-06-30 08:51 - [泰山景区回应修建刀片刺绳隔离网](http://www.blog.minike.top/Article/details/3463655433.shtml)
+- 2026-06-30 08:44 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/937721725930.shtml)

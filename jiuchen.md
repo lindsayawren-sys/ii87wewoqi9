@@ -1,60 +1,60 @@
-# 韩国7月国际航班燃油附加费将下调
+# 5月中国CPI同比涨1.2%，黄金饰品价格涨幅继续回落
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-中新网首尔6月16日电 (记者 金旭)受国际油价下跌影响，韩国航司的国际航班燃油附加费将大幅下调，国际航线旅客出行成本有望减轻。 据韩国航空业界16日消息，7月出票的国际航班机票将执行第19档燃油附加费标准，较6月的第27档下调8个等级，燃油附加费整体将下调20%以上。 据悉，大韩航空将于7月重新调整国际航班燃油附加费标准，单程为4.64万韩元(约合人民币208元)至34.4万
+中新经纬6月10日电 国家统计局网站11日披露的数据显示，2026年5月份，全国居民消费价格同比上涨1.2%。其中，城市上涨1.3%，农村上涨1.1%；食品价格下降1.7%，非食品价格上涨1.9%；消费品价格上涨1.6%，服务价格上涨0.8%。1­­—5月平均，全国居民消费价格比上年同期上涨1.0%。 5月份，全国居民消费价格环比下降0.1%。其中，城市下降0.1%，农村下降0
 
 ## 正文
 
-中新网首尔6月16日电 (记者 金旭)受国际油价下跌影响，韩国航司的国际航班燃油附加费将大幅下调，国际航线旅客出行成本有望减轻。
+中新经纬6月10日电 国家统计局网站11日披露的数据显示，2026年5月份，全国居民消费价格同比上涨1.2%。
 
-据韩国航空业界16日消息，7月出票的国际航班机票将执行第19档燃油附加费标准，较6月的第27档下调8个等级，燃油附加费整体将下调20%以上。
+其中，城市上涨1.3%，农村上涨1.1%；食品价格下降1.7%，非食品价格上涨1.9%；消费品价格上涨1.6%，服务价格上涨0.8%。
 
-据悉，大韩航空将于7月重新调整国际航班燃油附加费标准，单程为4.64万韩元(约合人民币208元)至34.4万韩元(约合人民币1541元)。
+1­­—5月平均，全国居民消费价格比上年同期上涨1.0%。
 
-最低费用标准适用于韩国仁川至中国沈阳、青岛、大连等短途航线，最高费用标准则适用于仁川至美国纽约、波士顿、亚特兰大等长途航线。
+5月份，全国居民消费价格环比下降0.1%。
 
-其他航空公司也将陆续调整相关费用。
+其中，城市下降0.1%，农村下降0.1%；食品价格下降0.4%，非食品价格下降0.1%；消费品价格下降0.2%，服务价格下降0.1%。
 
-韩联社称，航空业普遍认为，随着燃油附加费进一步下调，航空出行需求有望得到改善。
+各类商品及服务价格同比变动情况 5月份，食品烟酒及在外餐饮类价格同比下降0.9%，影响CPI(居民消费价格指数)下降约0.26个百分点。
 
-此前，不少航空公司担忧，受高额燃油附加费影响，长途国际航线预订率持续陷入低迷。
+食品中，畜肉类价格下降7.4%，影响CPI下降约0.31个百分点，其中猪肉价格下降16.1%，影响CPI下降约0.31个百分点；鲜果价格下降2.2%，影响CPI下降约0.04个百分点；蛋类价格上涨6.6%，影响CPI上涨约0.03个百分点；鲜菜价格上涨1.6%，影响CPI上涨约0.02个百分点；水产品价格上涨0.6%，影响CPI上涨约0.01个百分点。
 
-受中东地区局势紧张影响，国际油价一度狂飙。
+其他七大类价格同比六涨一降。
 
 ## 相关推荐
 
-- 2026-06-30 08:46 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-30 08:37 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
-- 2026-06-30 08:35 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-30 08:44 - [日耳曼拖拉机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-30 08:42 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-30 08:38 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-30 08:31 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
-- 2026-06-30 08:39 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
-- 2026-06-30 08:37 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-30 08:30 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
-- 2026-06-30 08:30 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-30 08:42 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
-- 2026-06-30 08:38 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-30 08:30 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-30 08:46 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-30 08:58 - [日本主帅：未能夺冠深感抱歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-30 08:50 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-30 09:04 - [内马尔安慰日本球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
+- 2026-06-30 08:37 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-30 08:45 - [自然光｜papi酱&窦文涛：驴与跑步机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
+- 2026-06-30 08:42 - [穆祉丞回应获年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-30 09:05 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
+- 2026-06-30 08:55 - [曝老詹对自由市场态度与以往截然不同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-30 08:56 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-30 08:48 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-30 08:54 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
+- 2026-06-30 09:06 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-30 08:53 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:59 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/9910877.shtml)
-- 2026-06-30 08:35 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/638122240121.shtml)
-- 2026-06-30 08:53 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.kurohicncr.top/Article/details/22831069185.shtml)
-- 2026-06-30 08:45 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/71117515017.shtml)
-- 2026-06-30 08:33 - [流金岁月](https://www.share.minike.top/Article/details/023473.shtml)
-- 2026-06-30 08:31 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.kurohicncr.top/Article/details/526485316.shtml)
-- 2026-06-30 08:58 - [又一家县级医院关停门诊输液大厅](http://www.blog.kurohicncr.top/Article/details/1237781282.shtml)
-- 2026-06-30 08:37 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/69514035.shtml)
-- 2026-06-30 08:55 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.minike.top/Article/details/5253473113.shtml)
-- 2026-06-30 08:46 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/5604667.shtml)
-- 2026-06-30 08:33 - [吴易昺不敌德约科维奇 止步温网首轮](http://www.share.kurohicncr.top/Article/details/0529413780.shtml)
-- 2026-06-30 08:37 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/68183693623.shtml)
-- 2026-06-30 08:55 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/893352936477.shtml)
-- 2026-06-30 08:37 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.minike.top/Article/details/722830554.shtml)
-- 2026-06-30 08:47 - [杨紫获白玉兰视后争议不止](http://www.share.kurohicncr.top/Article/details/587004.shtml)
+- 2026-06-30 08:37 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/183861.shtml)
+- 2026-06-30 08:51 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](http://www.blog.kurohicncr.top/Article/details/58013.shtml)
+- 2026-06-30 08:52 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](http://www.share.kurohicncr.top/Article/details/6726584.shtml)
+- 2026-06-30 08:43 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.minike.top/Article/details/2855682.shtml)
+- 2026-06-30 08:40 - [欧洲装一台空调有多难](http://www.blog.kurohicncr.top/Article/details/08420318.shtml)
+- 2026-06-30 08:51 - [这几秒成世界杯最值钱广告位](https://www.blog.kurohicncr.top/Article/details/292974.shtml)
+- 2026-06-30 08:57 - [网红峡谷5人溺亡 有人提醒会下雨](http://www.share.minike.top/Article/details/90988969.shtml)
+- 2026-06-30 08:43 - [F1奥地利站赛后复盘](http://www.blog.kurohicncr.top/Article/details/386739.shtml)
+- 2026-06-30 08:38 - [董路：谁赢谁是“正路子”](https://www.blog.minike.top/Article/details/88504911.shtml)
+- 2026-06-30 08:51 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/64057691.shtml)
+- 2026-06-30 08:46 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/32277991.shtml)
+- 2026-06-30 08:58 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/5975056.shtml)
+- 2026-06-30 09:02 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](http://www.blog.minike.top/Article/details/5122823508.shtml)
+- 2026-06-30 08:54 - [“荒唐”背后的韩国足球](http://www.share.minike.top/Article/details/505351777765.shtml)
+- 2026-06-30 08:54 - [点球大战](https://www.blog.minike.top/Article/details/20205.shtml)

@@ -1,46 +1,48 @@
-# 国家防总针对重庆贵州云南启动防汛四级应急响应
+# 伊媒：伊朗宣布对所有船只关闭霍尔木兹海峡
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-中新网6月17日电 据应急管理部微信公众号消息，据气象部门预报，6月17日，重庆、贵州、云南部分地区有强降雨，18日起主雨带北抬，西南地区东部和南部、华南西部等地将有大到暴雨，部分地区有大暴雨、局地特大暴雨，山洪和地质灾害、中小河流洪水以及城市内涝等灾害风险较高。根据《国家防汛抗旱应急预案》及有关规定，国家防总于6月17日11时针对重庆、贵州、云南三省市启动防汛四级应急响应。
+中新网6月11日电 据卡塔尔半岛电视台当地时间11日凌晨援引伊朗迈赫尔通讯社消息，伊朗武装部队哈塔姆·安比亚中央司令部发布声明，宣布即日起关闭霍尔木兹海峡，禁止包括油轮和商船在内的所有船只通行。 报道称，该机构表示，任何试图通过霍尔木兹海峡的船只都将成为打击目标。
 
 ## 正文
 
-中新网6月17日电 据应急管理部微信公众号消息，据气象部门预报，6月17日，重庆、贵州、云南部分地区有强降雨，18日起主雨带北抬，西南地区东部和南部、华南西部等地将有大到暴雨，部分地区有大暴雨、局地特大暴雨，山洪和地质灾害、中小河流洪水以及城市内涝等灾害风险较高。
+中新网6月11日电 据卡塔尔半岛电视台当地时间11日凌晨援引伊朗迈赫尔通讯社消息，伊朗武装部队哈塔姆·安比亚中央司令部发布声明，宣布即日起关闭霍尔木兹海峡，禁止包括油轮和商船在内的所有船只通行。
 
-根据《国家防汛抗旱应急预案》及有关规定，国家防总于6月17日11时针对重庆、贵州、云南三省市启动防汛四级应急响应。
+报道称，该机构表示，任何试图通过霍尔木兹海峡的船只都将成为打击目标。
 
 ## 相关推荐
 
-- 2026-06-30 08:54 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-30 08:34 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-30 08:34 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
-- 2026-06-30 08:33 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-30 08:39 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
-- 2026-06-30 08:33 - [德国队连续三届世界杯无缘16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-30 08:30 - [德国巴拉圭进入点球大战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
-- 2026-06-30 08:49 - [德国进球被吹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-30 08:30 - [莫兰特转投开拓者效力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
-- 2026-06-30 08:38 - [日本五次世界杯淘汰赛全败](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
-- 2026-06-30 08:49 - [世界杯巴拉圭点球淘汰德国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-30 08:58 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
+- 2026-06-30 08:36 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-30 08:54 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-30 08:59 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-30 08:55 - [世界杯巴拉圭点球淘汰德国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-30 08:41 - [人民锐评网红诋毁袁隆平造谣企业家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-30 08:55 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-30 08:55 - [荷兰VS摩洛哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-30 08:51 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-30 09:05 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-30 08:36 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
+- 2026-06-30 08:49 - [马航370搜寻最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-30 08:40 - [人民锐评网红诋毁袁隆平造谣企业家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
+- 2026-06-30 09:05 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-30 08:37 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:57 - [曝iPhone18Pro机密文件现身暗网](http://www.share.minike.top/Article/details/8873835.shtml)
-- 2026-06-30 08:41 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/29522.shtml)
-- 2026-06-30 08:34 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/603899.shtml)
-- 2026-06-30 08:54 - [“草莓月亮”浪漫现身](http://www.blog.minike.top/Article/details/550490644.shtml)
-- 2026-06-30 08:34 - [峡谷事故团队组队时有人提醒会下雨](http://www.share.minike.top/Article/details/80311358929.shtml)
-- 2026-06-30 08:55 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/73289213.shtml)
-- 2026-06-30 08:30 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/673289063638.shtml)
-- 2026-06-30 08:54 - [三星投资计划](http://www.blog.minike.top/Article/details/982283.shtml)
-- 2026-06-30 08:45 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/40036723160.shtml)
-- 2026-06-30 08:56 - [巴西绝杀日本](http://www.blog.kurohicncr.top/Article/details/576607300.shtml)
-- 2026-06-30 08:45 - [德国4比5巴拉圭](https://www.share.minike.top/Article/details/43271.shtml)
-- 2026-06-30 08:42 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/368394.shtml)
-- 2026-06-30 08:59 - [曝詹姆斯即将与勇士会面](https://www.share.kurohicncr.top/Article/details/3576881059.shtml)
-- 2026-06-30 08:46 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/7590521385.shtml)
-- 2026-06-30 08:54 - [卢卡申科发布解放军仪仗队视频](http://www.share.kurohicncr.top/Article/details/02715.shtml)
+- 2026-06-30 09:03 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/17358413.shtml)
+- 2026-06-30 08:59 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/73712090.shtml)
+- 2026-06-30 08:38 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/19346.shtml)
+- 2026-06-30 09:03 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/1967428825.shtml)
+- 2026-06-30 08:41 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/636541120.shtml)
+- 2026-06-30 08:37 - [大蒜晒外面被路过女子连盆端走](http://www.share.minike.top/Article/details/26504497597.shtml)
+- 2026-06-30 08:47 - [速度与激情9](http://www.share.minike.top/Article/details/479918.shtml)
+- 2026-06-30 08:40 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/5651321.shtml)
+- 2026-06-30 09:00 - [毒液2](https://www.blog.minike.top/Article/details/1377616901.shtml)
+- 2026-06-30 09:01 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.minike.top/Article/details/5576479.shtml)
+- 2026-06-30 08:37 - [日本主帅：未能夺冠深感抱歉](https://www.blog.minike.top/Article/details/8887283481.shtml)
+- 2026-06-30 08:50 - [网瘾賊大的阿嬷](http://www.share.kurohicncr.top/Article/details/760442585.shtml)
+- 2026-06-30 08:48 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/81110192.shtml)
+- 2026-06-30 09:01 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.share.minike.top/Article/details/002339.shtml)
+- 2026-06-30 08:38 - [金鹰奖视后提名预测](http://www.blog.kurohicncr.top/Article/details/70344117621.shtml)

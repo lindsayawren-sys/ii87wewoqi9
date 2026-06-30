@@ -1,54 +1,44 @@
-# 王沪宁会见尼泊尔外交部长希西尔
+# 习近平出席金正恩举行的欢送仪式
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-新华社北京6月16日电 中共中央政治局常委、全国政协主席王沪宁16日在京会见尼泊尔外交部长希西尔。 王沪宁表示，2019年，习近平主席对尼泊尔进行历史性国事访问，中尼关系提升为面向发展与繁荣的世代友好的战略合作伙伴关系。中方愿同尼方一道，在两国领导人战略引领下，保持高层交往，增进政治互信，深化务实合作，推动中尼关系不断向前发展，更好造福两国人民。中国全国政协愿为此作出积极贡献。
+发布时间：2026年06月09日 21:44 来源：央视新闻客户端 责任编辑：【王祎】
 
 ## 正文
 
-新华社北京6月16日电 中共中央政治局常委、全国政协主席王沪宁16日在京会见尼泊尔外交部长希西尔。
-
-王沪宁表示，2019年，习近平主席对尼泊尔进行历史性国事访问，中尼关系提升为面向发展与繁荣的世代友好的战略合作伙伴关系。
-
-中方愿同尼方一道，在两国领导人战略引领下，保持高层交往，增进政治互信，深化务实合作，推动中尼关系不断向前发展，更好造福两国人民。
-
-中国全国政协愿为此作出积极贡献。
-
-希西尔祝贺中国“十五五”成功开局，表示相信在习近平主席领导下，中国必将成为社会主义现代化强国。
-
-尼中友好建立在和平共处五项原则基础上，尼方坚定恪守一个中国原则，决不允许任何势力利用尼领土从事反华活动，期待同中方拓展合作，共享发展繁荣。
-
-王东峰等参加会见。
+发布时间：2026年06月09日 21:44 来源：央视新闻客户端 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 08:57 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
-- 2026-06-30 08:43 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-30 08:31 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-30 08:30 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-30 08:52 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
-- 2026-06-30 08:36 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-30 08:37 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
-- 2026-06-30 08:56 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-30 08:42 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
-- 2026-06-30 08:43 - [日本博主：日本足球真的垃圾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-30 08:54 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-30 08:42 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-30 08:38 - [陈幸同晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-30 08:46 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-30 08:39 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
+- 2026-06-30 08:58 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-30 08:53 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-30 09:03 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-30 08:41 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-30 09:04 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-30 08:40 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-30 08:55 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:37 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/79993.shtml)
-- 2026-06-30 08:46 - [金牌调解](https://www.share.kurohicncr.top/Article/details/208629610.shtml)
-- 2026-06-30 08:57 - [森保一致歉：世界第一目标没能实现](https://www.share.kurohicncr.top/Article/details/3461094528.shtml)
-- 2026-06-30 08:30 - [杨紫获白玉兰视后争议不止](https://www.share.kurohicncr.top/Article/details/22170829867.shtml)
-- 2026-06-30 08:52 - [日本反击率先破门](http://www.blog.kurohicncr.top/Article/details/79109328.shtml)
-- 2026-06-30 08:31 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.blog.kurohicncr.top/Article/details/79574.shtml)
-- 2026-06-30 08:32 - [大蒜晒外面被路过女子连盆端走](https://www.blog.kurohicncr.top/Article/details/085543799302.shtml)
-- 2026-06-30 08:59 - [网红峡谷5人溺亡 有人提醒会下雨](http://www.blog.kurohicncr.top/Article/details/87852860444.shtml)
-- 2026-06-30 08:40 - [索马里女大使：想和中国一起搞事业](http://www.share.kurohicncr.top/Article/details/12410564.shtml)
-- 2026-06-30 08:44 - [DeepSeek V4正式版要来了](https://www.blog.kurohicncr.top/Article/details/33387.shtml)
-- 2026-06-30 08:35 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/080584675.shtml)
-- 2026-06-30 08:39 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/638572358230.shtml)
-- 2026-06-30 08:37 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.kurohicncr.top/Article/details/2433762.shtml)
-- 2026-06-30 08:34 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/14347630616.shtml)
-- 2026-06-30 08:56 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/79142976.shtml)
+- 2026-06-30 09:01 - [曝老詹对自由市场态度与以往截然不同](http://www.share.minike.top/Article/details/6708973265.shtml)
+- 2026-06-30 08:44 - [小娘惹](http://www.share.minike.top/Article/details/13326828888.shtml)
+- 2026-06-30 08:40 - [孙颖莎王楚钦晋级8强](http://www.blog.kurohicncr.top/Article/details/848745.shtml)
+- 2026-06-30 08:56 - [哈弗茨头球破门](https://www.share.kurohicncr.top/Article/details/177105.shtml)
+- 2026-06-30 08:53 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/52359603738.shtml)
+- 2026-06-30 08:46 - [“荒唐”背后的韩国足球](http://www.blog.kurohicncr.top/Article/details/75619849.shtml)
+- 2026-06-30 08:58 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/97373645482.shtml)
+- 2026-06-30 08:42 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/5165598.shtml)
+- 2026-06-30 08:57 - [内马尔安慰日本球员](http://www.blog.minike.top/Article/details/78120433.shtml)
+- 2026-06-30 08:50 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/880325.shtml)
+- 2026-06-30 08:40 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/985403.shtml)
+- 2026-06-30 08:54 - [点球大战 残酷](http://www.share.kurohicncr.top/Article/details/76628729489.shtml)
+- 2026-06-30 09:02 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/754697.shtml)
+- 2026-06-30 08:42 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/36953793.shtml)
+- 2026-06-30 08:53 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/01473513.shtml)

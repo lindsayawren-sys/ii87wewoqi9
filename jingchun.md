@@ -1,60 +1,61 @@
-# 专家：台当局设网页诱导大陆民众提供“情报”，暴露其深层困境
+# 能源价格成焦点，欧洲央行即将公布利率决议
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-中新网6月16日电(燕新台)台“国安局”日前宣布设立所谓针对大陆民众的“联系窗口”，妄图向大陆“撒网”收集情报，遭到岛内舆论质疑和网友嘲讽。 据台湾《联合报》报道，台“国安局”14日称，为广泛搜集大陆政治、军事、经济及社会情报，依据所谓“情报工作法”规定，并参考美国、英国、以色列等情报机构做法，设立大陆民众“联系窗口”网页，“便利大陆民众主动联系、提供情报”。 台“国安局”还声
+核心要点 受能源价格暴涨影响，市场普遍预计欧洲央行将于周四加息。 欧元区是能源进口大户，油价走高会对其造成尤为严重的冲击。4 月核心通胀同样出现上行，这是欧洲央行的另一大忧虑。 2026 年 2 月 23 日（周一），欧洲央行行长克里斯蒂娜・拉加德在美国华盛顿全美商业经济协会经济政策研讨会上发言。 市场预计欧洲央行周四将上调基准利率。面对高企能源价格引发的第二轮通胀风险，政策制
 
 ## 正文
 
-中新网6月16日电(燕新台)台“国安局”日前宣布设立所谓针对大陆民众的“联系窗口”，妄图向大陆“撒网”收集情报，遭到岛内舆论质疑和网友嘲讽。
+核心要点 受能源价格暴涨影响，市场普遍预计欧洲央行将于周四加息。
 
-据台湾《联合报》报道，台“国安局”14日称，为广泛搜集大陆政治、军事、经济及社会情报，依据所谓“情报工作法”规定，并参考美国、英国、以色列等情报机构做法，设立大陆民众“联系窗口”网页，“便利大陆民众主动联系、提供情报”。
+欧元区是能源进口大户，油价走高会对其造成尤为严重的冲击。
 
-台“国安局”还声称，该网页重视“资通安全”与“身份保密”，同时针对大陆民众提供的“情报”，将通过科技手段“严谨筛滤”，并由专业团队进行评估与查证，以执行后续联系工作。
+4 月核心通胀同样出现上行，这是欧洲央行的另一大忧虑。
 
-然而，岛内网友对此却不以为然。
+2026 年 2 月 23 日（周一），欧洲央行行长克里斯蒂娜・拉加德在美国华盛顿全美商业经济协会经济政策研讨会上发言。
 
-有网友批评称“又找理由搞钱”“预算还是太多了”，还有网友猜测此举“将用于年底制造抹黑议题，选举将近，民进党不抹黑抹红就不会选”。
+市场预计欧洲央行周四将上调基准利率。
 
-针对台“国安局”声称的“近年大陆经济发展面临困境、政治统治维持高压，加上社会民生问题丛生，激发民众对现况不满……”，也有网友嘲讽：把“大陆”换成“台湾”似乎才贴切。
+面对高企能源价格引发的第二轮通胀风险，政策制定者不得不出手应对。
 
-北京联合大学政治学研究所所长、台湾研究院教授朱松岭接受中新网“燕新台”工作室采访时指出，眼看着岛内选举临近，民进党当局急需用这种高调动作转移内部矛盾、抹黑大陆，“说到底就是炮制选举工具，为制造‘奥步’(闽南语‘烂招’)创造条件”。
+与美联储不同，欧洲央行仅有一项核心使命：将通胀稳定在 2% 目标附近。
 
-岛内政坛也纷纷质疑。
+而近期数据显示，欧元区整体通胀与核心通胀指标双双回升。
 
 ## 相关推荐
 
-- 2026-06-30 08:32 - [现在叛逆期的孩子最怕的是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
-- 2026-06-30 08:57 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
-- 2026-06-30 08:31 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-30 08:30 - [《共患难》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-30 08:36 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-30 08:31 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-30 08:50 - [亚洲球队全部出局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-30 08:57 - [金鹰奖视后提名预测](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-30 08:36 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
-- 2026-06-30 08:57 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-30 08:34 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-30 08:35 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-30 08:44 - [郑钦文 四年一轮游](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
-- 2026-06-30 08:38 - [日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-30 08:50 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-30 09:00 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-30 08:48 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-30 08:59 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-30 08:39 - [马航370搜寻最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-30 09:01 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
+- 2026-06-30 08:55 - [名记：灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-30 08:48 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-30 08:54 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
+- 2026-06-30 08:50 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-30 08:57 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-30 09:02 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
+- 2026-06-30 08:51 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-30 08:50 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-30 09:00 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:56 - [覃予萱晋级WTT美国大满贯女单32强](http://www.blog.minike.top/Article/details/636061748.shtml)
-- 2026-06-30 08:38 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/151149429566.shtml)
-- 2026-06-30 08:55 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/34930.shtml)
-- 2026-06-30 08:58 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/091799183108.shtml)
-- 2026-06-30 08:58 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/0357857.shtml)
-- 2026-06-30 08:45 - [免费试吃发差评被店家挂店门避雷](https://www.blog.kurohicncr.top/Article/details/27533.shtml)
-- 2026-06-30 08:51 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/88820853.shtml)
-- 2026-06-30 08:55 - [男子在京东买到“同仁堂”假药](https://www.blog.minike.top/Article/details/52852901351.shtml)
-- 2026-06-30 08:40 - [啊啊啊](https://www.share.minike.top/Article/details/160322268379.shtml)
-- 2026-06-30 08:50 - [巴西把自己踢晕了](https://www.share.minike.top/Article/details/7608666116.shtml)
-- 2026-06-30 08:35 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/05029817.shtml)
-- 2026-06-30 08:56 - [诺伊尔尽力了](http://www.blog.minike.top/Article/details/16874.shtml)
-- 2026-06-30 08:44 - [王源近几年没有路演了](http://www.share.minike.top/Article/details/578445.shtml)
-- 2026-06-30 08:44 - [点球大战](https://www.share.kurohicncr.top/Article/details/1511927.shtml)
-- 2026-06-30 08:46 - [世界杯欧洲队7战南美仅1胜](https://www.share.minike.top/Article/details/4999340535.shtml)
+- 2026-06-30 09:02 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.kurohicncr.top/Article/details/341341.shtml)
+- 2026-06-30 09:01 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/62119617.shtml)
+- 2026-06-30 08:38 - [郑钦文温网三连败西尼亚科娃](https://www.share.kurohicncr.top/Article/details/961357220.shtml)
+- 2026-06-30 08:37 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.kurohicncr.top/Article/details/20125643878.shtml)
+- 2026-06-30 08:50 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/22833.shtml)
+- 2026-06-30 08:42 - [日本遭读秒绝杀 森保一：我水平不够](https://www.blog.minike.top/Article/details/094247.shtml)
+- 2026-06-30 08:44 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.minike.top/Article/details/5662105297.shtml)
+- 2026-06-30 08:54 - [德国4比5巴拉圭](http://www.blog.minike.top/Article/details/9475995204.shtml)
+- 2026-06-30 09:05 - [日本队主帅道歉](http://www.share.kurohicncr.top/Article/details/672687.shtml)
+- 2026-06-30 08:57 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/63974678.shtml)
+- 2026-06-30 08:56 - [三星投资计划](https://www.share.kurohicncr.top/Article/details/18640.shtml)
+- 2026-06-30 08:49 - [郑钦文温网一轮游](https://www.share.minike.top/Article/details/4706387811.shtml)
+- 2026-06-30 08:41 - [勇士续约波尔津吉斯](https://www.share.kurohicncr.top/Article/details/36477734470.shtml)
+- 2026-06-30 08:36 - [德国vs巴拉圭](https://www.share.kurohicncr.top/Article/details/40269994047.shtml)
+- 2026-06-30 08:54 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/991125777.shtml)

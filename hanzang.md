@@ -1,61 +1,61 @@
-# 个税汇算必看！个人养老金抵扣申报一站式攻略
+# 医疗AI进入“原生重构”阶段，轻松健康构建循证AI健康代理样本
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-2025个税综合所得年度汇算正在进行中，参加个人养老金的小伙伴注意啦！每年最高可享12000元的税前扣除优惠，灵活就业人员、上班族都能享受～这份最新申报攻略手把手教你操作，几分钟就能完成，赶紧码住！ 一、先划重点！个人养老金抵扣核心要点 扣除限额 按12000元/年的标准限额据实扣除，存多少扣多少，未存满按实际金额扣，超出部分不享受扣除，且可与子女教育、赡养老人等专项附加扣除叠
+近日，动脉智库发布《基于AI原生的国民健康管理行业白皮书》。白皮书指出，随着大模型技术加速演进，医疗AI正迎来从“工具赋能”向“原生重构”的产业拐点，“AI原生健康基座”将成为承接行业价值重构的核心载体。报告认为，过去十年，AI在医疗健康产业中的应用多以单点工具形态存在，例如影像辅助筛查、在线问诊分诊、健康档案记录等，主要价值体现在效率提升和成本优化。但2024年前后，医疗AI
 
 ## 正文
 
-2025个税综合所得年度汇算正在进行中，参加个人养老金的小伙伴注意啦！
+近日，动脉智库发布《基于AI原生的国民健康管理行业白皮书》。
 
-每年最高可享12000元的税前扣除优惠，灵活就业人员、上班族都能享受～这份最新申报攻略手把手教你操作，几分钟就能完成，赶紧码住！
+白皮书指出，随着大模型技术加速演进，医疗AI正迎来从“工具赋能”向“原生重构”的产业拐点，“AI原生健康基座”将成为承接行业价值重构的核心载体。
 
-一、先划重点！
+报告认为，过去十年，AI在医疗健康产业中的应用多以单点工具形态存在，例如影像辅助筛查、在线问诊分诊、健康档案记录等，主要价值体现在效率提升和成本优化。
 
-个人养老金抵扣核心要点 扣除限额 按12000元/年的标准限额据实扣除，存多少扣多少，未存满按实际金额扣，超出部分不享受扣除，且可与子女教育、赡养老人等专项附加扣除叠加享受。
+但2024年前后，医疗AI开始从辅助工具跃迁为定义产业逻辑的底层基座。
 
-参与条件 在中国境内缴纳职工基本养老保险或城乡居民基本养老保险的人都可以参加，已经退休领养老金的人群无法新开账户，一人仅能开1个个人养老金账户+1个资金账户，终身有效可换银行。
+大模型使医疗决策能力达到专家级，循证医学与真实世界数据的融合方案进入产业落地阶段，健康管理也从静态记录向主动智能体演进。
 
-税收优惠 在缴费环节，个人向个人养老金资金账户的缴费，按照12000元/年的限额标准，在综合所得或经营所得中据实扣除；在投资环节，对计入个人养老金资金账户的投资收益暂不征收个人所得税；在领取环节，个人领取的个人养老金不并入综合所得，单独按照3%的税率计算缴纳个人所得税，其缴纳的税款计入“工资、薪金所得”项目。
+在场景端，白皮书提出，个人健康账户正从以存储为核心的PHR（个人健康档案）向具备分析、预警和推荐能力的PHA（个人健康代理）升级。
 
-扣除方式 上班族可选择预扣预缴(逐月扣)或年度汇算(一次性扣)，灵活就业人员等取得劳务报酬、经营所得的人群，仅可在年度汇算时扣除。
+传统健康档案主要用于记录体检报告、诊疗记录、用药信息等基础数据，呈现静态化、碎片化、滞后化特征；而AI健康代理则可以依托智能算法与持续学习能力，实现健康数据的实时更新、动态整合和智能解析，并主动识别潜在健康风险，输出个性化健康指导、风险预警和养护方案。
 
-二、手把手操作！
+这意味着，国民健康管理的竞争焦点正在发生变化。
 
 ## 相关推荐
 
-- 2026-06-30 08:50 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-30 08:45 - [恋与深空道歉声明](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-30 08:38 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-30 08:33 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-30 08:51 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
-- 2026-06-30 08:36 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
-- 2026-06-30 08:57 - [第一次对自信的力量有了实感](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-30 08:50 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
-- 2026-06-30 08:40 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
-- 2026-06-30 08:50 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-30 08:58 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-30 08:53 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-30 08:49 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-30 08:50 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-30 08:55 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-30 08:46 - [周冬雨多次说演不了话剧文城](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-30 08:38 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-30 08:44 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
+- 2026-06-30 08:40 - [日本博主：日本足球真的垃圾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-30 08:48 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-30 08:51 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
+- 2026-06-30 08:47 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
+- 2026-06-30 08:59 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-30 08:47 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-30 08:44 - [日本队5进世界杯淘汰赛0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-30 09:01 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-30 08:50 - [内马尔安慰日本球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-30 08:45 - [老外对中国cosplay竟这样评价…](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-30 08:52 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-30 08:43 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:31 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/110226180.shtml)
-- 2026-06-30 08:55 - [巴西vs日本](http://www.share.kurohicncr.top/Article/details/323390801.shtml)
-- 2026-06-30 08:47 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/95545.shtml)
-- 2026-06-30 08:56 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/9224572106.shtml)
-- 2026-06-30 08:41 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.blog.kurohicncr.top/Article/details/2211822.shtml)
-- 2026-06-30 08:44 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/16986.shtml)
-- 2026-06-30 08:51 - [巴西2-1绝杀日本](http://www.share.kurohicncr.top/Article/details/18687168864.shtml)
-- 2026-06-30 08:40 - [追梦拒绝2770万美元球员选项](https://www.share.kurohicncr.top/Article/details/9867991.shtml)
-- 2026-06-30 08:56 - [金鹰奖视后提名预测](http://www.share.kurohicncr.top/Article/details/11473631709.shtml)
-- 2026-06-30 08:51 - [董卿父亲报纸上发文悼念亡妻](https://www.share.minike.top/Article/details/6805160.shtml)
-- 2026-06-30 08:38 - [武磊：日本队有能力跟任何强队抗衡](http://www.blog.minike.top/Article/details/96417735.shtml)
-- 2026-06-30 08:54 - [一生一世](http://www.share.minike.top/Article/details/665979622.shtml)
-- 2026-06-30 08:42 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/5599340.shtml)
-- 2026-06-30 08:54 - [泰山建135公里刀片刺绳隔离网](https://www.share.kurohicncr.top/Article/details/148524719.shtml)
-- 2026-06-30 08:43 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/222816.shtml)
+- 2026-06-30 08:43 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/3483322.shtml)
+- 2026-06-30 09:01 - [巴西足球能否再现昔日荣光](http://www.blog.minike.top/Article/details/52182551.shtml)
+- 2026-06-30 08:45 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/32980092.shtml)
+- 2026-06-30 09:01 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/349990.shtml)
+- 2026-06-30 08:45 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/0005089643.shtml)
+- 2026-06-30 08:37 - [曝iPhone18Pro机密文件现身暗网](http://www.blog.kurohicncr.top/Article/details/8609691218.shtml)
+- 2026-06-30 08:39 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/6802348932.shtml)
+- 2026-06-30 08:47 - [开电动汽车真的很省钱吗？](http://www.share.kurohicncr.top/Article/details/9449450.shtml)
+- 2026-06-30 08:58 - [安切洛蒂 换人](https://www.blog.kurohicncr.top/Article/details/8360211942.shtml)
+- 2026-06-30 08:38 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/08321669546.shtml)
+- 2026-06-30 08:46 - [周生如故](https://www.share.kurohicncr.top/Article/details/8776176.shtml)
+- 2026-06-30 08:44 - [峡谷事故团队组队时有人提醒会下雨](https://www.blog.kurohicncr.top/Article/details/653782.shtml)
+- 2026-06-30 08:48 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/30720130.shtml)
+- 2026-06-30 08:56 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/5777683.shtml)
+- 2026-06-30 08:56 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/2176422335.shtml)

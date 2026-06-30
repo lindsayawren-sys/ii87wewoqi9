@@ -1,45 +1,61 @@
-# 国家禁毒办将二氟乙咪酯等16种物质纳入管制
+# 美股收盘：大型科技股普跌，苹果跌超3%；芯片股多数下跌，ARM跌逾6%
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-新华社北京6月17日电(记者李明辉、孙鹏程)国家禁毒办6月17日发布《关于将二氟乙咪酯等16种物质列入的公告》，决定将二氟乙咪酯等16种物质纳入管制，防范遏制滥用危害，自2026年7月1日起施行。 此次增列后，我国已列管412种非药用麻醉药品和精神药品及芬太尼类、合成大麻素类、尼秦类三个整类物质。
+原标题：美股收盘：纳指、标普500指数下跌，道指小幅上涨；大型科技股普跌，苹果跌超3%；芯片股多数下跌，ARM跌逾6% 中新经纬6月10日电 美东时间周二，美股三大指数涨跌不一，纳指盘中跌超3%，此后跌幅收窄。截至收盘，道指涨0.17%报50872.11点，纳指跌0.97%报25678.82点，标普500指数跌0.26%报7386.65点。 来源：Wind 盘面上，大型科技股普
 
 ## 正文
 
-新华社北京6月17日电(记者李明辉、孙鹏程)国家禁毒办6月17日发布《关于将二氟乙咪酯等16种物质列入的公告》，决定将二氟乙咪酯等16种物质纳入管制，防范遏制滥用危害，自2026年7月1日起施行。
+原标题：美股收盘：纳指、标普500指数下跌，道指小幅上涨；大型科技股普跌，苹果跌超3%；芯片股多数下跌，ARM跌逾6% 中新经纬6月10日电 美东时间周二，美股三大指数涨跌不一，纳指盘中跌超3%，此后跌幅收窄。
 
-此次增列后，我国已列管412种非药用麻醉药品和精神药品及芬太尼类、合成大麻素类、尼秦类三个整类物质。
+截至收盘，道指涨0.17%报50872.11点，纳指跌0.97%报25678.82点，标普500指数跌0.26%报7386.65点。
+
+来源：Wind 盘面上，大型科技股普遍下跌，苹果跌3.64%，特斯拉跌3%，微软跌超2%，亚马逊跌0.42%，英伟达跌0.22%，脸书跌0.14%，谷歌涨0.26%。
+
+芯片股多数下跌，费城半导体指数跌1.93%。
+
+迈威尔科技跌超7%，ARM跌逾6%，高通跌超5%，超威半导体跌超3%，英特尔跌超2%，美光科技跌超1%，阿斯麦、应用材料涨逾1%。
+
+能源股全线走低，埃克森美孚、雪佛龙、康菲石油、斯伦贝谢、西方石油跌逾1%。
+
+银行股多数上涨，花旗、美国银行、富国银行涨逾1%，摩根大通涨0.48%，摩根士丹利跌近1%，高盛跌超1%。
+
+航空股多数上涨，西南航空涨超5%，美联航涨逾4%，美国航空、达美航空涨超3%，波音跌0.63%。
 
 ## 相关推荐
 
-- 2026-06-30 08:53 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
-- 2026-06-30 08:57 - [韩国道歉完日本道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-30 08:40 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
-- 2026-06-30 08:40 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-30 08:42 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-30 08:45 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-30 08:33 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-30 08:47 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-30 08:47 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
-- 2026-06-30 08:48 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-30 08:46 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-30 09:02 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-30 08:39 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-30 08:49 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
+- 2026-06-30 08:48 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-30 09:01 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-30 08:59 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-30 09:01 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-30 08:49 - [郑钦文温网一轮游](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-30 08:48 - [全新问界M9现身美国街头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-30 08:41 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-30 08:43 - [董路：谁赢谁是“正路子”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-30 08:52 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
+- 2026-06-30 09:00 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-30 08:48 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-30 09:05 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:34 - [哈弗茨头球破门](http://www.share.minike.top/Article/details/581827691993.shtml)
-- 2026-06-30 08:48 - [房价什么时候能涨](https://www.blog.minike.top/Article/details/975505031.shtml)
-- 2026-06-30 08:53 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/95512.shtml)
-- 2026-06-30 08:45 - [德国巴拉圭进入点球大战](https://www.blog.minike.top/Article/details/9357728892.shtml)
-- 2026-06-30 08:33 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/18204668165.shtml)
-- 2026-06-30 08:43 - [高考结束了，你会让孩子在家玩手机吗？](https://www.blog.minike.top/Article/details/71189.shtml)
-- 2026-06-30 08:48 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/909474572833.shtml)
-- 2026-06-30 08:46 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/966570.shtml)
-- 2026-06-30 08:32 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/7519980874.shtml)
-- 2026-06-30 08:59 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/13811696.shtml)
-- 2026-06-30 08:38 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/27412604827.shtml)
-- 2026-06-30 08:45 - [开电动汽车真的很省钱吗？](http://www.blog.kurohicncr.top/Article/details/79811.shtml)
-- 2026-06-30 08:36 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/170343.shtml)
-- 2026-06-30 08:56 - [莫兰特转投开拓者效力](https://www.share.kurohicncr.top/Article/details/858548292.shtml)
-- 2026-06-30 08:52 - [日本进球](https://www.share.minike.top/Article/details/10679.shtml)
+- 2026-06-30 09:00 - [爱很美味](https://www.blog.minike.top/Article/details/788061744362.shtml)
+- 2026-06-30 08:45 - [德国巴拉圭进入点球大战](https://www.share.minike.top/Article/details/340184176253.shtml)
+- 2026-06-30 08:54 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/369252351.shtml)
+- 2026-06-30 08:48 - [毒液2](https://www.blog.kurohicncr.top/Article/details/784233.shtml)
+- 2026-06-30 08:45 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.minike.top/Article/details/82974.shtml)
+- 2026-06-30 08:38 - [泰山景区建135公里刀片刺绳隔离网](https://www.blog.kurohicncr.top/Article/details/6686731.shtml)
+- 2026-06-30 08:53 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.kurohicncr.top/Article/details/66384372690.shtml)
+- 2026-06-30 08:50 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/195187339.shtml)
+- 2026-06-30 09:01 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.blog.kurohicncr.top/Article/details/691933805.shtml)
+- 2026-06-30 08:55 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/2456914786.shtml)
+- 2026-06-30 08:48 - [日本16强魔咒](https://www.blog.minike.top/Article/details/759616691.shtml)
+- 2026-06-30 08:36 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/1165358841.shtml)
+- 2026-06-30 08:40 - [巴西醒醒 这是淘汰赛](https://www.blog.kurohicncr.top/Article/details/46090654.shtml)
+- 2026-06-30 08:58 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/737900312.shtml)
+- 2026-06-30 09:05 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/50106903.shtml)

@@ -1,46 +1,59 @@
-# 关注俄乌冲突：俄称拦截和击毁超百架乌无人机
+# 中信建投期货：6月11日能化早报
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月16日 13:23 来源：央视新闻 责任编辑：【王祎】
+橡胶：持续调整 周三，国产全乳胶17400/吨，环比上日下跌250元/吨；泰国20号混合胶16950元/吨，环比上日下跌280元/吨。 原料端：昨日泰国胶水报收87.75泰铢/公斤，环比上日上涨0.5泰铢/公斤，泰国杯胶报收70.0 泰铢/公斤，环比上日下跌1.0泰铢/公斤；云南胶水报收16.4元/公斤，环比上日下跌0.4 元/公斤；海南胶水报收15.6元/公斤，环比上日下跌0
 
 ## 正文
 
-发布时间：2026年06月16日 13:23 来源：央视新闻 责任编辑：【王祎】
+橡胶：持续调整 周三，国产全乳胶17400/吨，环比上日下跌250元/吨；泰国20号混合胶16950元/吨，环比上日下跌280元/吨。
+
+原料端：昨日泰国胶水报收87.75泰铢/公斤，环比上日上涨0.5泰铢/公斤，泰国杯胶报收70.0 泰铢/公斤，环比上日下跌1.0泰铢/公斤；云南胶水报收16.4元/公斤，环比上日下跌0.4 元/公斤；海南胶水报收15.6元/公斤，环比上日下跌0.1元/公斤。
+
+截至2026年6月7日，中国天然橡胶社会库存127.03万吨，环比增加0.11万吨，增幅0.09%。
+
+中国深色胶社会总库存为87.34万吨，环比增0.47%。
+
+其中青岛现货库存增0.88%；云南降1.40%；越南10环比持平；NR库存小计环比微增。
+
+中国浅色胶社会总库存为39.69万吨，环比降0.74%。
+
+其中老全乳胶环比降0.73%，3L环比降7.75%，RU库存小计增0.99%。
+
+观点：尽管近期国际气象组织发布公告称厄尔尼诺事件可能发生至中等强度，全球主产区出现普遍的气温偏高，但并未出现持续的少雨干旱情况，因此，预计全球产量的季节性依然不会出现大幅延迟。
 
 ## 相关推荐
 
-- 2026-06-30 08:50 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-30 08:38 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-30 08:47 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-30 08:58 - [日耳曼拖拉机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
-- 2026-06-30 08:40 - [张月收到黄灿灿辣货两眼发光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-30 08:50 - [巴西绝杀日本：漫画般结局换了主角](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-30 08:51 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-30 08:51 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-30 08:58 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
-- 2026-06-30 08:46 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-30 08:38 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
-- 2026-06-30 08:54 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-30 08:48 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-30 08:51 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-30 08:45 - [张月收到黄灿灿辣货两眼发光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-30 08:58 - [存储芯片龙头提示风险](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
+- 2026-06-30 08:40 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-30 08:46 - [亚洲球队全部出局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-30 08:40 - [勇士续约波尔津吉斯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-30 08:57 - [德国进球被吹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-30 08:51 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-30 08:44 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-30 08:51 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-30 08:52 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-30 08:50 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-30 09:05 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-30 08:46 - [锐评：网红不能困在无底线逐利里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:32 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/2080995824.shtml)
-- 2026-06-30 08:59 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.minike.top/Article/details/71932.shtml)
-- 2026-06-30 08:34 - [日本遭读秒绝杀 森保一：我水平不够](https://www.blog.kurohicncr.top/Article/details/07480627.shtml)
-- 2026-06-30 08:57 - [送你一朵小红花](http://www.share.minike.top/Article/details/022968486.shtml)
-- 2026-06-30 08:48 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/591847255256.shtml)
-- 2026-06-30 08:40 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.minike.top/Article/details/545080.shtml)
-- 2026-06-30 08:51 - [穆祉丞回应获年度人气艺人](http://www.share.minike.top/Article/details/890158.shtml)
-- 2026-06-30 08:35 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.kurohicncr.top/Article/details/345832377.shtml)
-- 2026-06-30 08:52 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/95124515.shtml)
-- 2026-06-30 08:54 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/3579876229.shtml)
-- 2026-06-30 08:36 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://www.share.minike.top/Article/details/904458159.shtml)
-- 2026-06-30 08:40 - [巴拉圭率先破门](http://www.share.kurohicncr.top/Article/details/29490117.shtml)
-- 2026-06-30 08:46 - [韩乔生吐槽世界杯扩军](http://www.blog.kurohicncr.top/Article/details/43486517129.shtml)
-- 2026-06-30 08:44 - [董卿父亲报纸上发文悼念亡妻](https://www.blog.minike.top/Article/details/348838276.shtml)
-- 2026-06-30 08:34 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/46160214955.shtml)
+- 2026-06-30 08:36 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/953029626013.shtml)
+- 2026-06-30 08:37 - [日本进球](http://www.blog.kurohicncr.top/Article/details/03722.shtml)
+- 2026-06-30 08:46 - [覃予萱晋级WTT美国大满贯女单32强](https://www.blog.minike.top/Article/details/102437920.shtml)
+- 2026-06-30 08:44 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/4017390080.shtml)
+- 2026-06-30 08:42 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/503499961033.shtml)
+- 2026-06-30 08:38 - [德国巴拉圭 折磨](http://www.blog.kurohicncr.top/Article/details/81886.shtml)
+- 2026-06-30 08:46 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/11824718272.shtml)
+- 2026-06-30 08:59 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/65528535.shtml)
+- 2026-06-30 08:56 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/923274348500.shtml)
+- 2026-06-30 08:44 - [我和我的家乡](http://www.share.minike.top/Article/details/30746943407.shtml)
+- 2026-06-30 09:04 - [锐评T1战胜KC](http://www.blog.minike.top/Article/details/3078056.shtml)
+- 2026-06-30 08:54 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/0634267.shtml)
+- 2026-06-30 08:51 - [马耳他著名拱门坍塌致中国男子身亡](http://www.share.kurohicncr.top/Article/details/04458920860.shtml)
+- 2026-06-30 08:48 - [存储芯片龙头提示风险](http://www.blog.kurohicncr.top/Article/details/24005573.shtml)
+- 2026-06-30 08:51 - [iPhone18e曝光](http://www.blog.minike.top/Article/details/3245203839.shtml)

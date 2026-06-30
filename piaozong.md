@@ -1,60 +1,57 @@
-# 首批自动化带斗门机运抵钦州港 可匹配运河通航大宗散粮装运需求
+# 阿联酋将作为主宾国参加第32届北京国际图书博览会
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-中新网钦州6月16日电(陈安安 苏子能)近日，装载着2台自动化带斗门座式起重机的“兴润大件”轮顺利运抵广西钦州港，为港口智慧化升级、绿色低碳转型及高效衔接平陆运河注入新动能。 此次抵港的自动化带斗门座式起重机主要用于装卸大宗粮食散货，设备抓斗工况额定起重量达25吨，最大变幅43米，额定装卸效率为500吨/小时，最高可达700吨/小时，高于普通25吨门机的320—360吨/小时，
+中新网北京6月10日电 第32届北京国际图书博览会(简称图博会)将于6月17日至21日在北京国家会议中心举行，阿拉伯联合酋长国将以主宾国身份参会。 在10日举行的图博会新闻发布会上，阿方表示，将此次以主宾国身份参展视为“阿中深厚历史关系和全面战略伙伴关系的生动表达”，体现了阿中全面战略伙伴关系的深度和各领域持续发展的合作态势，将有助于巩固文明互鉴，拓展两国文化与知识合作前景。
 
 ## 正文
 
-中新网钦州6月16日电(陈安安 苏子能)近日，装载着2台自动化带斗门座式起重机的“兴润大件”轮顺利运抵广西钦州港，为港口智慧化升级、绿色低碳转型及高效衔接平陆运河注入新动能。
+中新网北京6月10日电 第32届北京国际图书博览会(简称图博会)将于6月17日至21日在北京国家会议中心举行，阿拉伯联合酋长国将以主宾国身份参会。
 
-此次抵港的自动化带斗门座式起重机主要用于装卸大宗粮食散货，设备抓斗工况额定起重量达25吨，最大变幅43米，额定装卸效率为500吨/小时，最高可达700吨/小时，高于普通25吨门机的320—360吨/小时，能够高效承接玉米、大豆等大宗散粮装卸任务，充分匹配运河通航后的大宗粮食散货货运需求，是适配平陆运河江海联运装卸作业需求的关键设施。
+在10日举行的图博会新闻发布会上，阿方表示，将此次以主宾国身份参展视为“阿中深厚历史关系和全面战略伙伴关系的生动表达”，体现了阿中全面战略伙伴关系的深度和各领域持续发展的合作态势，将有助于巩固文明互鉴，拓展两国文化与知识合作前景。
 
-这批设备在智能、安全、环保等方面融合了多项前沿技术与全面突破创新。
+“阿联酋以主宾国身份参加北京国际图书博览会，是阿中关系发展历程中的重要里程碑”，阿联酋驻华大使哈马迪表示，“两国关系在各层面都呈现蓬勃发展势头。
 
-在智能化方面，设备集成三维激光扫描仪、北斗定位、视频安防等技术。
+本次参展体现了两国对文化与知识在促进民心相通、开辟人文与创意合作新前景方面发挥核心作用的共同信念。
 
-在全自动模式下可自主完成抓取、提升、旋转、卸料等全流程作业，大幅减少人工干预，有效提升作业安全性与稳定性。
+” 哈马迪强调，阿联酋与中国文化与知识交流日益加速，加之文化创意产业在支撑现代经济、促进创新与社会交流方面所发挥的作用日益凸显，此次参展意义尤为重要。
 
-此外，绿色低碳是这批门机的另一大亮点。
+据介绍，阿联酋此次参展主题为“社会与人”，强调将人置于文化与知识发展核心的愿景。
 
-设备搭载高效除尘系统，搭建起“船上取料—皮带输送—粮仓入库”的全封闭式作业链路，实现作业全程低扬尘，有效优化港区及周边生态环境。
+国家馆“阿联酋之家”总面积逾640平方米，27个阿官方机构和组织参展，将展示其多元文化面貌，以及在出版、翻译、文化创意产业等领域的成就。
 
-同时，设备配备能量回馈装置，可回收设备下降、制动环节产生的电能，并存入超级电容系统进行二次利用，有效降低能耗与运营成本，契合港口绿色发展理念。
+“阿联酋之家”将在展会期间呈现丰富活动，包括20多场文化活动，议题涵盖阿中文化与文明关系未来、经贸合作路径、出版与知识产权、阿拉伯数字图书馆项目等，将举办阿作家和学者签书会、促进阿中机构间文化合作与交流的联席会议，展演阿传统音乐舞蹈，举办阿拉伯咖啡品鉴等特色体验活动。
 
 ## 相关推荐
 
-- 2026-06-30 08:41 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
-- 2026-06-30 08:38 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
-- 2026-06-30 08:44 - [王欣瑜2-1击败科恰雷托](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-30 08:42 - [男子在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-30 08:33 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
-- 2026-06-30 08:57 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-30 08:37 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-30 08:57 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-30 08:55 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
-- 2026-06-30 08:51 - [曝老詹对自由市场态度与以往截然不同](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
-- 2026-06-30 08:44 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
-- 2026-06-30 08:43 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-30 08:33 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-30 08:46 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
+- 2026-06-30 08:43 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-30 08:40 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-30 09:04 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-30 08:41 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-30 08:41 - [黄晓明晒和周杰伦的合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-30 08:46 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-30 08:47 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-30 08:43 - [世界杯欧洲队7战南美仅1胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-30 09:01 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-30 08:49 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-30 08:52 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:51 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/74088795313.shtml)
-- 2026-06-30 08:41 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/46641642853.shtml)
-- 2026-06-30 08:48 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/541273019.shtml)
-- 2026-06-30 08:58 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/287733711.shtml)
-- 2026-06-30 08:33 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/22081614719.shtml)
-- 2026-06-30 08:44 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/70260.shtml)
-- 2026-06-30 08:45 - [一见倾心](http://www.share.kurohicncr.top/Article/details/180501.shtml)
-- 2026-06-30 08:59 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.minike.top/Article/details/73653687.shtml)
-- 2026-06-30 08:37 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/55966623.shtml)
-- 2026-06-30 08:48 - [德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/790734017.shtml)
-- 2026-06-30 08:41 - [巴拉圭点球大战淘汰德国进16强](http://www.blog.kurohicncr.top/Article/details/32453091.shtml)
-- 2026-06-30 08:40 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/1219359.shtml)
-- 2026-06-30 08:36 - [流金岁月](http://www.blog.minike.top/Article/details/290925889.shtml)
-- 2026-06-30 08:37 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/072507.shtml)
-- 2026-06-30 08:44 - [巴西绝杀日本：漫画般结局换了主角](https://www.share.kurohicncr.top/Article/details/137841932169.shtml)
+- 2026-06-30 09:04 - [德国进球被吹](http://www.blog.minike.top/Article/details/992992974342.shtml)
+- 2026-06-30 08:52 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/299227020.shtml)
+- 2026-06-30 08:56 - [泰山景区回应修建刀片刺绳隔离网](https://www.share.minike.top/Article/details/16856.shtml)
+- 2026-06-30 08:41 - [荷兰VS摩洛哥](http://www.share.kurohicncr.top/Article/details/96138392804.shtml)
+- 2026-06-30 09:00 - [千与千寻](http://www.share.minike.top/Article/details/18060050587.shtml)
+- 2026-06-30 08:39 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/49931.shtml)
+- 2026-06-30 08:43 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/529095167.shtml)
+- 2026-06-30 08:55 - [《共患难》](https://www.blog.kurohicncr.top/Article/details/474738.shtml)
+- 2026-06-30 08:58 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/207065984.shtml)
+- 2026-06-30 08:37 - [【涤墨作战7人870】望：我从地狱杀回来了！](http://www.share.minike.top/Article/details/949627017.shtml)
+- 2026-06-30 09:00 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/07860724927.shtml)
+- 2026-06-30 08:59 - [一生一世](http://www.share.minike.top/Article/details/0091801.shtml)
+- 2026-06-30 08:48 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/06784813.shtml)
+- 2026-06-30 09:03 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/30802155.shtml)
+- 2026-06-30 08:41 - [董路：谁赢谁是“正路子”](http://www.share.kurohicncr.top/Article/details/8128460086.shtml)

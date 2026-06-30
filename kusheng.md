@@ -1,56 +1,56 @@
-# “中国茭白之乡”浙江缙云采收忙
+# 广西2026年高考落幕 预计6月25日开放成绩查询
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-两度落后两度扳平，伊朗队完成美加墨世界杯首秀各地抢抓布局太空算力，培育空天领域新质生产力兰州厨具老板自学英语走红：只要开始，就不算晚外国专家看中华传统文化中的人权观念为何说平陆运河连通江海融通东盟？“新疆小羊”爆火，折射哪些文旅市场新变化？美伊确认达成协议 “难缠”的以色列会否搅局？封关半年看海南：“老外”为何喜欢来“追箭”？访南京“空翻哥”孟新艺：望有朝一日跨进世界杯赛场以发
+中新网南宁6月9日电 (林洁琪)6月9日下午，随着生物学科目考试结束铃声响起，广西2026年高考顺利落下帷幕。广西壮族自治区招生考试院介绍，在广西各部门通力协作和广大考生诚信应考下，本次高考全程秩序井然、平安有序。 据介绍，广西招生考试院将于6月10日起组织高考评卷工作，预计6月25日左右公布录取最低控制分数线，并同步对考生开放高考成绩查询通道。届时，考生可通过官方渠道查询本人
 
 ## 正文
 
-两度落后两度扳平，伊朗队完成美加墨世界杯首秀各地抢抓布局太空算力，培育空天领域新质生产力兰州厨具老板自学英语走红：只要开始，就不算晚外国专家看中华传统文化中的人权观念为何说平陆运河连通江海融通东盟？
+中新网南宁6月9日电 (林洁琪)6月9日下午，随着生物学科目考试结束铃声响起，广西2026年高考顺利落下帷幕。
 
-“新疆小羊”爆火，折射哪些文旅市场新变化？
+广西壮族自治区招生考试院介绍，在广西各部门通力协作和广大考生诚信应考下，本次高考全程秩序井然、平安有序。
 
-美伊确认达成协议 “难缠”的以色列会否搅局？
+据介绍，广西招生考试院将于6月10日起组织高考评卷工作，预计6月25日左右公布录取最低控制分数线，并同步对考生开放高考成绩查询通道。
 
-封关半年看海南：“老外”为何喜欢来“追箭”？
+届时，考生可通过官方渠道查询本人成绩，具体查询方式将另行公布。
 
-访南京“空翻哥”孟新艺：望有朝一日跨进世界杯赛场以发展权赋能气候正义 深化中欧绿色伙伴关系年少的话，长大后都反过来了千年丝路故城焕生机 “夜游”圈粉中外客美加墨世界杯开赛迄今，亚洲区球队仍无败绩中国制造、中国技术、中国IP，成为世界杯“隐形冠军”台舆论关注海峡论坛：释实质利好 赴陆热难挡中国汽车的AI进行时：技术渗透全链，产业格局渐变美国又对全球通讯命脉“卡脖子”，遭殃的可能是美企张凌赫喊话台胞：海峡的距离，挡不住同胞走亲走近的交流步伐河南三门峡：端午节香包走俏 传统手艺焕新彩封关半年看海南：中外巨轮频频“打卡”！
+请考生密切关注“广西招生考试院”网站(https://www.gxeea.cn)及“柳园清风”微信公众号，以便第一时间获取信息。
 
-“微笑天使”江豚逐浪嬉戏 长江大保护与十年禁渔成效显著这群刚毕业的藏族学生用特别的方式踏上回家路河南灵宝：端午将至 村民制作传统槲叶粽台青初到大陆被震撼：怎么发展这么快！
+今年高考招生计划正处于编制、审核阶段，将在录取最低控制分数线发布前，由广西招生考试院统一向社会公布。
 
-感觉遍地是机会直击武警多课目比武竞赛现场西藏羊卓雍错：夏日限定高原盛景幼儿园举行自理能力大赛 淡定小孩哥不慌不忙2034年能踢进世界杯吗？
+6月25日至7月3日，广西招生考试院将开通“志愿填报系统”，考生可在此期间陆续填报志愿。
 
-中国足球小将“空翻哥”的回答很棒南博会上挑战“见手青拿铁” 喝完会不会看见“小人人”河北农业大学毕业典礼上 学生轮番整活把校长“忙坏了”津台萌娃一逗一捧：“咱说的都是中国话”女子穿旗袍配高跟鞋跳绳惊艳网友秦岭小虎队集体庆生 萌态十足迎“六一”云南西双版纳野象谷添“重量级”新丁中广核福建宁德核电5号机组穹顶吊装成功 “中国最美小鸟”蓝喉蜂虎现身闽北 2026年世界杯美国赛区揭幕战在洛杉矶举行 “太阳神鸟金饰”亮相中国国家博物馆 西藏那曲铁路护路队：羌塘草原上的“白杨礼 “洋景漂”父女的三宝村“陶”源生活 杭州：这里的花期已排满，四时各有专属“花 “中国洮砚之乡”采石人：身贴悬崖绝壁深入 分享 评论 顶部
+今年广西志愿填报继续采取“院校专业组”模式，考生须根据自身选考科目，对照各高校公布的招生专业选考科目限制，结合招生计划合理规划志愿顺序，按时完成填报操作。
 
 ## 相关推荐
 
-- 2026-06-30 08:39 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
-- 2026-06-30 08:54 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-30 08:37 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
-- 2026-06-30 08:39 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-30 08:47 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
-- 2026-06-30 08:40 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
-- 2026-06-30 08:51 - [日本博主：日本足球真的垃圾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-30 08:54 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-30 08:41 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-30 08:56 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
+- 2026-06-30 08:51 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-30 08:38 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-30 08:43 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
+- 2026-06-30 09:01 - [中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-30 08:59 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-30 08:51 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-30 08:47 - [日本将帅赛后采访纷纷哽咽落泪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-30 09:02 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-30 08:55 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-30 09:03 - [张月收到黄灿灿辣货两眼发光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:42 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.kurohicncr.top/Article/details/569116209096.shtml)
-- 2026-06-30 08:59 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.minike.top/Article/details/724722819068.shtml)
-- 2026-06-30 08:33 - [王楚钦说配合稍微有些陌生感](https://www.blog.minike.top/Article/details/236030.shtml)
-- 2026-06-30 08:36 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/845064231.shtml)
-- 2026-06-30 08:32 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/3949447707.shtml)
-- 2026-06-30 08:35 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/16801.shtml)
-- 2026-06-30 08:45 - [一生一世](https://www.share.kurohicncr.top/Article/details/70376474.shtml)
-- 2026-06-30 08:37 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/062124.shtml)
-- 2026-06-30 08:41 - [上市央企地产商 两年换了三任董事长](https://www.blog.minike.top/Article/details/99217942.shtml)
-- 2026-06-30 08:35 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.kurohicncr.top/Article/details/9549583842.shtml)
-- 2026-06-30 08:30 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.minike.top/Article/details/291794416838.shtml)
-- 2026-06-30 08:34 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/38889326280.shtml)
-- 2026-06-30 08:55 - [巴西绝杀日本：漫画般结局换了主角](https://www.blog.kurohicncr.top/Article/details/117824451478.shtml)
-- 2026-06-30 08:57 - [女子健身不当 居然“脑子漏水”了](http://www.blog.minike.top/Article/details/45512348261.shtml)
-- 2026-06-30 08:49 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/80855.shtml)
+- 2026-06-30 08:47 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/5850290.shtml)
+- 2026-06-30 08:36 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/0111302.shtml)
+- 2026-06-30 09:05 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/48050142695.shtml)
+- 2026-06-30 08:59 - [刘宇宁高情商化解谁站C位](https://www.blog.minike.top/Article/details/2833039290.shtml)
+- 2026-06-30 08:39 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/22053.shtml)
+- 2026-06-30 09:01 - [王楚钦孙颖莎晋级混双八强](https://www.blog.kurohicncr.top/Article/details/7440375.shtml)
+- 2026-06-30 09:02 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.kurohicncr.top/Article/details/14683.shtml)
+- 2026-06-30 08:46 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/236322553.shtml)
+- 2026-06-30 08:41 - [杨紫学位证上就是杨紫](https://www.blog.minike.top/Article/details/4138971.shtml)
+- 2026-06-30 08:58 - [豆包收费了，你还会用吗？](https://www.share.kurohicncr.top/Article/details/3953175.shtml)
+- 2026-06-30 08:44 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.share.kurohicncr.top/Article/details/27651504951.shtml)
+- 2026-06-30 08:52 - [日本淘汰](http://www.share.minike.top/Article/details/90030823076.shtml)
+- 2026-06-30 08:55 - [巴拉圭进球](http://www.share.kurohicncr.top/Article/details/64674093.shtml)
+- 2026-06-30 08:41 - [日本队主帅道歉](http://www.share.minike.top/Article/details/77645448.shtml)
+- 2026-06-30 08:51 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/58574823967.shtml)

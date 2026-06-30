@@ -1,60 +1,61 @@
-# 青海冬虫夏草推介暨玉树“鲜草季”系列活动启幕
+# 美股盘前：三大股指期货集体飘绿，芯片股全线下跌
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-中新网青海玉树6月16日电 (记者 孙睿)6月16日，青海冬虫夏草(简称“虫草”)推介暨玉树“鲜草季”系列活动在青海省玉树市黑帐篷会议中心启幕。青海省委副书记刘奇凡出席。 本次活动以“护江源生态·享极地珍草·惠全民健康”为主题，由青海省林业和草原局、玉树藏族自治州共同主办，旨在以“虫草”为媒，共商资源保护、共话产业升级、共建品牌体系、共促合作共赢，携手推动虫草产业高质量发展。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月10日美股盘前，三大股指期货集体下跌，截至17：06，道指期货跌0.63%，标普500指数期货跌0.71%，纳指期货跌幅达1.11%。 芯片股盘前全线下跌，截至17：07，ARM跌超4%，美光科技、迈威尔科技、闪迪、超威半导体、高通跌超3%。 港股方面，今日收盘恒生指数跌0.64%，恒生科技指数跌0.9
 
 ## 正文
 
-中新网青海玉树6月16日电 (记者 孙睿)6月16日，青海冬虫夏草(简称“虫草”)推介暨玉树“鲜草季”系列活动在青海省玉树市黑帐篷会议中心启幕。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-青海省委副书记刘奇凡出席。
+6月10日美股盘前，三大股指期货集体下跌，截至17：06，道指期货跌0.63%，标普500指数期货跌0.71%，纳指期货跌幅达1.11%。
 
-本次活动以“护江源生态·享极地珍草·惠全民健康”为主题，由青海省林业和草原局、玉树藏族自治州共同主办，旨在以“虫草”为媒，共商资源保护、共话产业升级、共建品牌体系、共促合作共赢，携手推动虫草产业高质量发展。
+芯片股盘前全线下跌，截至17：07，ARM跌超4%，美光科技、迈威尔科技、闪迪、超威半导体、高通跌超3%。
 
-青海省林业和草原局局长杜平贵介绍，青海是冬虫夏草的主产区，占全国总产量的60%以上，产出的冬虫夏草以品质纯正、药效卓著享誉海内外。
+港股方面，今日收盘恒生指数跌0.64%，恒生科技指数跌0.94%。
 
-近年来，青海冬虫夏草资源保护与产业发展取得显著成效。
+电气设备、半导体、有色金属、煤炭、石油石化等板块跌幅居前，医药生物、食品饮料、家电、钢铁等板块涨幅居前。
 
-调查监测常态化开展，建立了采挖作业、真伪鉴别、成分检测、保存技术、规格等级等全链条标准体系，打造形成“青海冬虫夏草”区域公用品牌，推动产业从“卖原料”向“卖品牌、卖品质、卖服务”转变。
+港股半导体板块大跌，天岳先进跌超17%，英诺赛科跌超13%，兆易创新跌7%，美佳音控股跌6%，中芯国际跌超3%。
 
-玉树州委书记马锐表示，玉树独特的地理气候条件孕育了优质的野生冬虫夏草资源，为此玉树将努力按“保身份、定价格、建标准、延链条、强保障”的思路，把虫草打造成百亿元虫草产业。
+科网股方面，网易、快手涨超3%，腾讯控股、美团、哔哩哔哩等涨超2%；联想集团跌超9%，智谱、蔚来跌超7%，商汤、阿里巴巴、京东集团等下跌。
 
-活动还正式对外发布了青海冬虫夏草吉祥物、“玉树野生冬虫夏草”IP形象和主题歌曲《三江圣草》。
+责任编辑：孙同怀
 
 ## 相关推荐
 
-- 2026-06-30 08:50 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-30 08:30 - [泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-30 08:38 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-30 08:35 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-30 08:41 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-30 08:59 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-30 08:56 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
-- 2026-06-30 08:57 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
-- 2026-06-30 08:34 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-30 08:32 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-30 08:37 - [泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
-- 2026-06-30 08:54 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-30 08:45 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
-- 2026-06-30 08:31 - [全球芯片巨头史诗级扩产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-30 09:05 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-30 08:54 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-30 08:43 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
+- 2026-06-30 08:51 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-30 08:45 - [德国队连续三届世界杯无缘16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-30 08:40 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-30 08:44 - [欧洲装一台空调有多难](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-30 08:54 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-30 08:40 - [《名肘探科比》：科比大战裂口女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-30 08:48 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-30 08:59 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-30 08:54 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-30 09:00 - [Melo向柳智敏张元英道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-30 08:50 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-30 08:46 - [电影抓特务上映11天破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:48 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/3716305.shtml)
-- 2026-06-30 08:59 - [现在叛逆期的孩子最怕的是什么？](https://www.share.kurohicncr.top/Article/details/78598.shtml)
-- 2026-06-30 08:33 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/289371.shtml)
-- 2026-06-30 08:45 - [网瘾賊大的阿嬷](https://www.blog.kurohicncr.top/Article/details/10208230933.shtml)
-- 2026-06-30 08:33 - [日本淘汰](https://www.blog.kurohicncr.top/Article/details/2859603841.shtml)
-- 2026-06-30 08:46 - [董卿父亲报纸上发文悼念亡妻](http://www.blog.minike.top/Article/details/94176045977.shtml)
-- 2026-06-30 08:39 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.blog.kurohicncr.top/Article/details/21512708499.shtml)
-- 2026-06-30 08:32 - [森保一致歉：世界第一目标没能实现](https://www.blog.kurohicncr.top/Article/details/980330955241.shtml)
-- 2026-06-30 08:52 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/22205661.shtml)
-- 2026-06-30 08:37 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.minike.top/Article/details/5844071.shtml)
-- 2026-06-30 08:45 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/366157129.shtml)
-- 2026-06-30 08:54 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/7028245.shtml)
-- 2026-06-30 08:45 - [南北多地暴雨和强对流天气持续](http://www.share.kurohicncr.top/Article/details/12132.shtml)
-- 2026-06-30 08:56 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/50632.shtml)
-- 2026-06-30 08:45 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/20230854791.shtml)
+- 2026-06-30 09:00 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/55511.shtml)
+- 2026-06-30 09:04 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/1262035.shtml)
+- 2026-06-30 08:58 - [世界杯欧洲队7战南美仅1胜](https://www.blog.kurohicncr.top/Article/details/74275388.shtml)
+- 2026-06-30 08:57 - [亚洲球队全部告别世界杯](https://www.blog.kurohicncr.top/Article/details/9194836097.shtml)
+- 2026-06-30 08:58 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/348404.shtml)
+- 2026-06-30 08:45 - [巴西2比1日本](http://www.blog.minike.top/Article/details/4530435462.shtml)
+- 2026-06-30 09:02 - [点球大战和诺伊尔都救不回德国队](https://www.blog.minike.top/Article/details/75384498284.shtml)
+- 2026-06-30 09:05 - [莫兰特转投开拓者效力](http://www.share.minike.top/Article/details/804289740566.shtml)
+- 2026-06-30 08:48 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/38244044.shtml)
+- 2026-06-30 08:42 - [iPhoneUltra黑色机模](https://www.share.minike.top/Article/details/45250.shtml)
+- 2026-06-30 09:02 - [索马里女大使：想和中国一起搞事业](http://www.blog.minike.top/Article/details/929385578817.shtml)
+- 2026-06-30 08:46 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/31507934189.shtml)
+- 2026-06-30 08:59 - [曝詹姆斯即将与勇士会面](http://www.share.kurohicncr.top/Article/details/201528634.shtml)
+- 2026-06-30 08:44 - [感动全网的699分女生想报考清华](https://www.blog.minike.top/Article/details/853268921923.shtml)
+- 2026-06-30 08:55 - [流金岁月](http://www.share.minike.top/Article/details/71432.shtml)

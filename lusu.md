@@ -1,57 +1,49 @@
-# 马斯克的二把手肖特维尔如何带领SpaceX成长为IPO行业巨头
+# 中央安全生产考核巡查受理问题隐患线索工作启动
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-专题：SpaceX市值超越两家“七巨头” 拉开美股巨型IPO浪潮序幕 核心要点 2002 年，SpaceX 刚成立不到一年，创始人埃隆・马斯克就向格温妮・肖特维尔抛出橄榄枝，她成为公司最早一批核心雇员。 24 年后，肖特维尔以总裁兼首席运营官的身份执掌公司日常运营，并在上周五敲响纳斯达克上市钟声，见证这场轰动市场的重磅 IPO。她同时也是 SpaceX 个人大股东之一，公司上市
+中新网6月10日电 据应急管理部网站消息，按照2026年度中央安全生产考核巡查工作安排，自6月起，24个中央安全生产考核巡查组将陆续进驻31个省、自治区、直辖市和新疆生产建设兵团开展二、三季度明查暗访。 6月10日至7月10日，国务院安全生产委员会办公室将通过互联网、电话、信件等3种途径，受理群众反映和职工报告问题隐患线索。受理范围主要包括：1.生产经营单位安全生产重大事故隐患
 
 ## 正文
 
-专题：SpaceX市值超越两家“七巨头” 拉开美股巨型IPO浪潮序幕 核心要点 2002 年，SpaceX 刚成立不到一年，创始人埃隆・马斯克就向格温妮・肖特维尔抛出橄榄枝，她成为公司最早一批核心雇员。
+中新网6月10日电 据应急管理部网站消息，按照2026年度中央安全生产考核巡查工作安排，自6月起，24个中央安全生产考核巡查组将陆续进驻31个省、自治区、直辖市和新疆生产建设兵团开展二、三季度明查暗访。
 
-24 年后，肖特维尔以总裁兼首席运营官的身份执掌公司日常运营，并在上周五敲响纳斯达克上市钟声，见证这场轰动市场的重磅 IPO。
+6月10日至7月10日，国务院安全生产委员会办公室将通过互联网、电话、信件等3种途径，受理群众反映和职工报告问题隐患线索。
 
-她同时也是 SpaceX 个人大股东之一，公司上市首日收盘后，其持有的股权市值约 20 亿美元。
+受理范围主要包括：1.生产经营单位安全生产重大事故隐患、非法违法行为；2.谎报瞒报生产安全事故；3.安全生产领域监管执法“放水”、吃拿卡要、徇私舞弊、权钱交易等不正之风和腐败问题。
 
-媒体采访了四位曾与肖特维尔共事的业内人士，大家一致评价：马斯克为企业锚定发展方向、擘画远景，而肖特维尔是将一切落地执行的实干者。
-
-“埃隆负责制定战略愿景，肖特维尔则确保每一个目标都能落地交付。
-
-”2014 至 2021 年在 SpaceX 任职七年、参与生命保障系统研发的工程师内森・西尔弗奈尔在采访中表示。
-
-“她统筹所有运营工作，保障企业正常运转、统筹融资落地；对接客户、维系商业合作、敲定项目合同的人也是她。
-
-” 如今 62 岁的肖特维尔，管理着 SpaceX 全体 2.2 万名全职员工。
+欢迎广大干部群众积极提供本地区安全生产有关问题隐患线索，客观真实反映有关情况。
 
 ## 相关推荐
 
-- 2026-06-30 08:56 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
-- 2026-06-30 08:44 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-30 08:32 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
-- 2026-06-30 08:30 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
-- 2026-06-30 08:57 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-30 08:56 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-30 08:32 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-30 08:30 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-30 08:43 - [杨紫学位证上就是杨紫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
-- 2026-06-30 08:39 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
-- 2026-06-30 08:50 - [郑钦文温网首轮出局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-30 08:57 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-30 09:02 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-30 08:49 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-30 08:49 - [《名肘探科比》：科比大战裂口女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-30 08:56 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-30 08:38 - [武磊：巴西队赢的并不轻松](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-30 09:01 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-30 08:36 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-30 08:56 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-30 08:48 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-30 08:54 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:57 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/9327663.shtml)
-- 2026-06-30 08:55 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.minike.top/Article/details/014723.shtml)
-- 2026-06-30 08:43 - [荷兰vs摩洛哥](https://www.share.kurohicncr.top/Article/details/6269546064.shtml)
-- 2026-06-30 08:54 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://www.share.kurohicncr.top/Article/details/80908566441.shtml)
-- 2026-06-30 08:58 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/3024366.shtml)
-- 2026-06-30 08:36 - [巴西2-1绝杀日本](https://www.share.kurohicncr.top/Article/details/1591383192.shtml)
-- 2026-06-30 08:43 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/79260.shtml)
-- 2026-06-30 08:55 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.kurohicncr.top/Article/details/80103.shtml)
-- 2026-06-30 08:39 - [刘必安等16人非法集资案二审宣判](http://www.share.kurohicncr.top/Article/details/1622853431.shtml)
-- 2026-06-30 08:32 - [世界杯：德国vs巴拉圭](https://www.blog.minike.top/Article/details/17794.shtml)
-- 2026-06-30 08:33 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/30011.shtml)
-- 2026-06-30 08:46 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/924838318527.shtml)
-- 2026-06-30 08:59 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/67913752.shtml)
-- 2026-06-30 08:54 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/962594.shtml)
-- 2026-06-30 08:53 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/965876254924.shtml)
+- 2026-06-30 09:01 - [上市央企地产商 两年换了三任董事长](http://www.share.minike.top/Article/details/501899.shtml)
+- 2026-06-30 08:50 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/517325.shtml)
+- 2026-06-30 09:01 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/24037.shtml)
+- 2026-06-30 08:57 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/07879085.shtml)
+- 2026-06-30 09:04 - [董卿父亲报纸上发文悼念亡妻](https://www.blog.minike.top/Article/details/2637359.shtml)
+- 2026-06-30 08:47 - [郑钦文温网一轮游](http://www.blog.minike.top/Article/details/4482812317.shtml)
+- 2026-06-30 09:03 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/729050324969.shtml)
+- 2026-06-30 08:45 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.kurohicncr.top/Article/details/83762490.shtml)
+- 2026-06-30 08:56 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/2206629.shtml)
+- 2026-06-30 09:02 - [日本球迷被强行披上巴西国旗](https://www.share.minike.top/Article/details/12517823841.shtml)
+- 2026-06-30 09:04 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/860283.shtml)
+- 2026-06-30 08:53 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.blog.minike.top/Article/details/210748.shtml)
+- 2026-06-30 08:42 - [巴拉圭点球大战淘汰德国进16强](http://www.share.kurohicncr.top/Article/details/27678035.shtml)
+- 2026-06-30 08:59 - [感动全网的699分女生想报考清华](http://www.blog.kurohicncr.top/Article/details/011102719147.shtml)
+- 2026-06-30 08:59 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/864455859.shtml)

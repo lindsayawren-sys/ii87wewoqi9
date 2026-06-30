@@ -1,60 +1,54 @@
-# 陆家嘴论坛释放新信号！监管明确持续深化“两创板”改革，资本市场再推多项措施
+# 中越少年共观历史旧址、体验科技产品 机器人玩偶成友谊见证
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 每经记者|王海慜 每经编辑|肖芮冬 今日，2026陆家嘴论坛在上海开幕。在去年的陆家嘴论坛上，证监会推出深化科创板改革的“1+6”政策措施。政策发布一年以来，科创板IPO新增受理59家，其中未盈利企业24家，数量占比超四成。截至目前，科创成长层已纳入32家存量未盈利企业，并新增上市8家未盈利企业。此外，科创板ETF同
+发布时间：2026年06月10日 11:29 来源：中国新闻网 6月8日至12日，2026年中国(广西)—越南少年儿童手拉手活动在广西南宁、崇左举办。300余名来自两国的少先队员、少先队辅导员、团干部等参加活动。 本次活动紧扣探寻中越友好的红色基因、感受中国式现代化的万千气象，设置一系列内容丰富、形式多样的交流实践活动，旨在全方位搭建中越少年儿童互联互通、互学互鉴的友好平台。
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 每经记者|王海慜 每经编辑|肖芮冬 今日，2026陆家嘴论坛在上海开幕。
+发布时间：2026年06月10日 11:29 来源：中国新闻网 6月8日至12日，2026年中国(广西)—越南少年儿童手拉手活动在广西南宁、崇左举办。
 
-在去年的陆家嘴论坛上，证监会推出深化科创板改革的“1+6”政策措施。
+300余名来自两国的少先队员、少先队辅导员、团干部等参加活动。
 
-政策发布一年以来，科创板IPO新增受理59家，其中未盈利企业24家，数量占比超四成。
+本次活动紧扣探寻中越友好的红色基因、感受中国式现代化的万千气象，设置一系列内容丰富、形式多样的交流实践活动，旨在全方位搭建中越少年儿童互联互通、互学互鉴的友好平台。
 
-截至目前，科创成长层已纳入32家存量未盈利企业，并新增上市8家未盈利企业。
+6月9日，中越两国学生走进广西南宁育才学校旧址等红色历史旧址，参观广西大学海洋科教馆、广西人工智能学院等科创平台，全方位感受中国式现代化发展成就。
 
-此外，科创板ETF同期新增上市37只，累计达120多只、总规模约2400亿元，其中各类中长期资金持有规模近一半，“耐心资本”力量不断增强。
-
-在论坛现场，证监会主席吴清发布了题为《进一步健全投融资相协调的资本市场功能更好服务新质生产力和经济高质量发展》的主题演讲。
-
-吴清表示，证监会将持续深化“两创板”改革。
-
-近期，科创板方面将抓紧推出2项改革措施。
+陈沿佑 广西南宁报道 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 08:35 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-30 08:49 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-30 08:38 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
-- 2026-06-30 08:35 - [勇士续约波尔津吉斯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-30 08:58 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-30 08:39 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
-- 2026-06-30 08:55 - [追梦拒绝2770万美元球员选项](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-30 08:49 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-30 08:36 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-30 08:50 - [三星投资计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-30 08:59 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
-- 2026-06-30 08:32 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
-- 2026-06-30 08:49 - [莫兰特被交易到开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
-- 2026-06-30 08:30 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-30 08:52 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
+- 2026-06-30 08:38 - [郑钦文温网三连败西尼亚科娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-30 08:44 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
+- 2026-06-30 09:02 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-30 08:38 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-30 09:00 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-30 08:56 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-30 09:01 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-30 09:00 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
+- 2026-06-30 08:58 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-30 08:42 - [巴拉圭进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-30 08:42 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-30 08:41 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-30 08:59 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:34 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/678714249685.shtml)
-- 2026-06-30 08:30 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.minike.top/Article/details/231844438.shtml)
-- 2026-06-30 08:49 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/3609056.shtml)
-- 2026-06-30 08:44 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.minike.top/Article/details/1529809.shtml)
-- 2026-06-30 08:30 - [巴西在进攻三区完成210脚传球](https://www.blog.minike.top/Article/details/752654.shtml)
-- 2026-06-30 08:40 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](https://www.share.kurohicncr.top/Article/details/624216188982.shtml)
-- 2026-06-30 08:32 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/935832.shtml)
-- 2026-06-30 08:41 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/7055204.shtml)
-- 2026-06-30 08:37 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/38373.shtml)
-- 2026-06-30 08:40 - [德国淘汰](http://www.share.minike.top/Article/details/68064328920.shtml)
-- 2026-06-30 08:49 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/91847214.shtml)
-- 2026-06-30 08:46 - [“草莓月亮”浪漫现身](http://www.share.kurohicncr.top/Article/details/039976502.shtml)
-- 2026-06-30 08:55 - [美人鱼](https://www.share.minike.top/Article/details/473837160.shtml)
-- 2026-06-30 08:46 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/219699.shtml)
-- 2026-06-30 08:34 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/3863631277.shtml)
+- 2026-06-30 09:00 - [马航370搜寻最新消息](http://www.blog.minike.top/Article/details/907269.shtml)
+- 2026-06-30 08:39 - [日本队被绝杀后鞠躬致谢观众](http://www.blog.kurohicncr.top/Article/details/07349612.shtml)
+- 2026-06-30 08:56 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/1040036.shtml)
+- 2026-06-30 08:58 - [本届世界杯已有5名球员被控强奸](http://www.share.kurohicncr.top/Article/details/902881451.shtml)
+- 2026-06-30 08:44 - [锐评T1战胜KC](http://www.share.minike.top/Article/details/036417463.shtml)
+- 2026-06-30 08:53 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/288808294.shtml)
+- 2026-06-30 09:00 - [三星投资计划](http://www.share.kurohicncr.top/Article/details/1346321844.shtml)
+- 2026-06-30 08:44 - [日本队主帅道歉](https://www.share.kurohicncr.top/Article/details/013512462987.shtml)
+- 2026-06-30 08:41 - [莫兰特转投开拓者效力](https://www.share.minike.top/Article/details/61269560924.shtml)
+- 2026-06-30 08:49 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.kurohicncr.top/Article/details/49214234.shtml)
+- 2026-06-30 08:43 - [日本进球](http://www.share.minike.top/Article/details/787801935.shtml)
+- 2026-06-30 08:58 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/40506.shtml)
+- 2026-06-30 08:44 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/377188.shtml)
+- 2026-06-30 08:57 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.kurohicncr.top/Article/details/48931511725.shtml)
+- 2026-06-30 08:45 - [董卿父亲报纸上发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/11314874894.shtml)

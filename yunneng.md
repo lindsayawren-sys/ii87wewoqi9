@@ -1,57 +1,58 @@
-# 重磅！美官员：美伊协议已电子签署！多艘伊朗船只突破封锁！内塔尼亚胡：斗争仍未结束！全球资产逻辑变了？
+# 日本自民党或建议政府进一步增加防卫费 引发舆论担忧
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-来源：期货日报 早上好，一起来看下中东最新消息！ 多艘伊朗船只顺利通过美方海上封锁区 央视新闻消息，据伊朗方面当地时间16日消息，3艘油轮和2艘载有伊朗基本物资的船只已突破美国方面实施的海上封锁。 另有消息称，多艘伊朗船只顺利穿过封锁区。根据船舶航行数据，一艘伊朗超大型原油运输船正从国际水域驶向伊朗港口，并已通过封锁区域。一艘运载牲畜饲料的船只也已穿过封锁区域，正在驶往伊朗。此
+据日本方面消息，围绕年内修订“安保三文件”，日本自民党9日召开总务会，通过了该党拟向政府提交的建议草案。草案列举了多个将防卫费目标设定在国内生产总值3%以上国家的做法，引发舆论担忧。 据悉，草案要求确保相关预算，以实现“5年内完成防卫力量变革”的目标。 自民党计划于本月内将草案提交给日本首相高市早苗。此后日本政府还将参考今年秋季专家会议提出的建议，计划于12月通过内阁决议正式修
 
 ## 正文
 
-来源：期货日报 早上好，一起来看下中东最新消息！
+据日本方面消息，围绕年内修订“安保三文件”，日本自民党9日召开总务会，通过了该党拟向政府提交的建议草案。
 
-多艘伊朗船只顺利通过美方海上封锁区 央视新闻消息，据伊朗方面当地时间16日消息，3艘油轮和2艘载有伊朗基本物资的船只已突破美国方面实施的海上封锁。
+草案列举了多个将防卫费目标设定在国内生产总值3%以上国家的做法，引发舆论担忧。
 
-另有消息称，多艘伊朗船只顺利穿过封锁区。
+据悉，草案要求确保相关预算，以实现“5年内完成防卫力量变革”的目标。
 
-根据船舶航行数据，一艘伊朗超大型原油运输船正从国际水域驶向伊朗港口，并已通过封锁区域。
+自民党计划于本月内将草案提交给日本首相高市早苗。
 
-一艘运载牲畜饲料的船只也已穿过封锁区域，正在驶往伊朗。
+此后日本政府还将参考今年秋季专家会议提出的建议，计划于12月通过内阁决议正式修订“安保三文件”。
 
-此外，另一艘满载原油的伊朗油轮已通过阿曼湾及封锁线，正驶向其出口目的地。
+此次可能进一步大幅增加防卫费的动向引发日本舆论担忧。
 
-另据央视新闻报道，当地时间15日，伊朗外交部长阿拉格齐说，“我们已经完成了谅解备忘录”，其中部分条款15日就会执行，其余部分将在19日谅解备忘录签署后执行。
+不少民众表示，大幅增加防卫费难以提升安全感，还将进一步加重民生负担。
 
-霍尔木兹海峡爆炸声或与交通管理有关 央视新闻消息，据伊朗方面当地时间16日消息，霍尔木兹海峡和伊朗格什姆岛南部传出三次爆炸声。
+日本《每日新闻》日前刊发社论指出，超出自身能力增加防卫力量，反而会危及国民生活；日本应制定包括以外交手段缓和地区紧张局势在内的综合性战略，而非单纯依赖防卫力量。
 
 ## 相关推荐
 
-- 2026-06-30 08:57 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-30 08:33 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-30 08:52 - [郑钦文温网首轮出局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-30 08:49 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-30 08:47 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
-- 2026-06-30 08:54 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-30 08:40 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-30 08:59 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-30 08:44 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-30 08:58 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-30 08:36 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-30 08:39 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-30 08:47 - [日本队主帅道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-30 08:41 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-30 08:58 - [索马里女大使：想和中国一起搞事业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-30 08:56 - [中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
+- 2026-06-30 08:40 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-30 09:00 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-30 08:50 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-30 08:43 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-30 08:43 - [中国新一轮出口管制直指日本命脉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-30 08:53 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-30 08:44 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:48 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/96041205774.shtml)
-- 2026-06-30 08:41 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/974034263502.shtml)
-- 2026-06-30 08:40 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/018648.shtml)
-- 2026-06-30 08:49 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/412142577178.shtml)
-- 2026-06-30 08:42 - [巴西绝杀日本：漫画般结局换了主角](http://www.share.kurohicncr.top/Article/details/866659525420.shtml)
-- 2026-06-30 08:42 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/50194.shtml)
-- 2026-06-30 08:35 - [日本半场1比0领先巴西](http://www.blog.minike.top/Article/details/36044995.shtml)
-- 2026-06-30 08:58 - [德国巴拉圭 折磨](https://www.share.kurohicncr.top/Article/details/84067.shtml)
-- 2026-06-30 08:36 - [曝灰熊将莫兰特交易至开拓者](http://www.blog.kurohicncr.top/Article/details/508147288.shtml)
-- 2026-06-30 08:55 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/345220.shtml)
-- 2026-06-30 08:36 - [美股](https://www.blog.minike.top/Article/details/4363103567.shtml)
-- 2026-06-30 08:50 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/57178018976.shtml)
-- 2026-06-30 08:40 - [日本将帅赛后采访纷纷哽咽落泪](https://www.blog.minike.top/Article/details/653931.shtml)
-- 2026-06-30 08:32 - [起风了](https://www.share.kurohicncr.top/Article/details/959485.shtml)
-- 2026-06-30 08:55 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/414723199.shtml)
+- 2026-06-30 08:53 - [德国罚丢3粒点球](http://www.share.minike.top/Article/details/97411.shtml)
+- 2026-06-30 08:58 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/67011.shtml)
+- 2026-06-30 08:45 - [陈小春人老了干什么也不心酸](http://www.share.minike.top/Article/details/156075.shtml)
+- 2026-06-30 09:00 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.minike.top/Article/details/326568.shtml)
+- 2026-06-30 08:47 - [小勒布伦WTT美国大满贯开门红](https://www.share.minike.top/Article/details/714140.shtml)
+- 2026-06-30 08:59 - [日本淘汰](http://www.share.minike.top/Article/details/7137968.shtml)
+- 2026-06-30 08:50 - [锐评：网红不能困在无底线逐利里](http://www.share.minike.top/Article/details/618951.shtml)
+- 2026-06-30 08:37 - [巴西扳平比分](http://www.share.minike.top/Article/details/9538880445.shtml)
+- 2026-06-30 08:59 - [谢依霖说杨幂是聚会第一把张罗手](http://www.share.kurohicncr.top/Article/details/2346419982.shtml)
+- 2026-06-30 08:50 - [问心2神一集鬼三集](https://www.share.minike.top/Article/details/29519579.shtml)
+- 2026-06-30 08:55 - [马耳他著名拱门坍塌致一中国男子身亡](https://www.blog.kurohicncr.top/Article/details/011110413.shtml)
+- 2026-06-30 08:53 - [武磊：巴西队赢的并不轻松](http://www.share.kurohicncr.top/Article/details/67181.shtml)
+- 2026-06-30 08:55 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/290394.shtml)
+- 2026-06-30 08:40 - [沙丘](https://www.share.minike.top/Article/details/75862990.shtml)
+- 2026-06-30 08:38 - [内马尔安慰日本球员](https://www.blog.kurohicncr.top/Article/details/6170578149.shtml)

@@ -1,60 +1,58 @@
-# 600228、603721今夜同时公布重磅事项，股价白天均涨停！
+# “90后”校园环卫工圆梦读研：八小时内谋生，八小时外逐梦
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！每经编辑|张锦河 6月16日，返利科技（600228）发布公告称，公司实际控制人及其一致行动人葛永昌、隗元元、上海享锐企业管理咨询事务所（有限合伙）、上海鹄睿企业管理咨询事务所（有限合伙）正在筹划股份协议转让事宜，可能导致公司控制权发生变更。为保证公平信息披
+发布时间：2026年06月10日 18:45 来源：中国新闻网 “8个小时以内求生存，8个小时以外求上进。”这句话，是成都理工大学后勤保障部环卫工人李佳对自己备考生活的概括。今年4月，33岁的李佳被拟录取为成都理工大学文法学院全日制硕士研究生。随着故事被媒体报道，李佳在这段时间收获了如潮的鼓励。 回顾四年半的校园环卫工作经历，李佳并不认为是时光虚度，反而满怀感恩。她说，这份工作
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+发布时间：2026年06月10日 18:45 来源：中国新闻网 “8个小时以内求生存，8个小时以外求上进。
 
-每经编辑|张锦河 6月16日，返利科技（600228）发布公告称，公司实际控制人及其一致行动人葛永昌、隗元元、上海享锐企业管理咨询事务所（有限合伙）、上海鹄睿企业管理咨询事务所（有限合伙）正在筹划股份协议转让事宜，可能导致公司控制权发生变更。
+”这句话，是成都理工大学后勤保障部环卫工人李佳对自己备考生活的概括。
 
-为保证公平信息披露，避免股价异常波动，公司股票自2026年6月17日开市起停牌，预计停牌时间不超过2个交易日。
+今年4月，33岁的李佳被拟录取为成都理工大学文法学院全日制硕士研究生。
 
-公开资料显示，返利科技是一家互联网企业，公司业务体系包含在线导购、广告推广和平台技术服务。
+随着故事被媒体报道，李佳在这段时间收获了如潮的鼓励。
 
-今年一季度公司营业收入1.42亿元，同比增长164.97%；归属于上市公司股东的净利润为-1402.2万元；基本每股收益为-0.0337元/股。
+回顾四年半的校园环卫工作经历，李佳并不认为是时光虚度，反而满怀感恩。
 
-值得注意的是，自6月9日撤销退市风险警示以来，返利科技股价连续大涨，涨幅累计超过40%，今日股价更是涨停。
+她说，这份工作让她拥有稳定收入，得以兼顾家庭与孩子成长，而朝夕相处的校园环境，更是让她重拾求学的勇气。
 
-此外，中广天择（603721）同日也发布公告称，公司收到控股股东长沙广播电视集团通知，其正在筹划涉及所持有公司股份转让事宜，该事项可能导致公司控股股东发生变更。
+面对即将到来的研究生生活，李佳计划在学业之余勤工俭学以减轻家庭负担，同时留出足够时间陪伴孩子成长。
 
-为保证公平信息披露，避免股价异常波动，公司股票自2026年6月17日起停牌，预计停牌时间不超过2个交易日。
+(陈选斌 四川成都报道） 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-30 08:55 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
-- 2026-06-30 08:44 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
-- 2026-06-30 08:50 - [萨内 看笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-30 08:47 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
-- 2026-06-30 08:44 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-30 08:58 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-30 08:31 - [媒体：手机测评该挤挤水分了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-30 08:54 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-30 08:41 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
-- 2026-06-30 08:40 - [金鹰奖视后提名预测](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-30 08:34 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
-- 2026-06-30 08:52 - [齐思钧回复张月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-30 08:44 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-30 08:40 - [IGN评测电影版后室](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-30 08:41 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-30 08:41 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-30 08:49 - [欧洲装一台空调有多难](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-30 08:42 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-30 08:53 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-30 08:36 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-30 08:38 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-30 08:42 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-30 08:50 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-30 08:50 - [郑钦文温网一轮游](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-30 08:50 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-30 09:05 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:54 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/77255575037.shtml)
-- 2026-06-30 08:39 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/125468391899.shtml)
-- 2026-06-30 08:56 - [AI手机进入Agent时代](http://www.blog.kurohicncr.top/Article/details/10227095383.shtml)
-- 2026-06-30 08:52 - [荷兰vs摩洛哥](https://www.blog.kurohicncr.top/Article/details/0374109.shtml)
-- 2026-06-30 08:55 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/756595.shtml)
-- 2026-06-30 08:54 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/48253507.shtml)
-- 2026-06-30 08:52 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/973641764863.shtml)
-- 2026-06-30 08:42 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/211754326537.shtml)
-- 2026-06-30 08:47 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/732609604.shtml)
-- 2026-06-30 08:37 - [佐野海舟远射破门](https://www.blog.minike.top/Article/details/873243091.shtml)
-- 2026-06-30 08:44 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.kurohicncr.top/Article/details/93745849.shtml)
-- 2026-06-30 08:48 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/41763591882.shtml)
-- 2026-06-30 08:53 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.kurohicncr.top/Article/details/57434347094.shtml)
-- 2026-06-30 08:50 - [德国队世界杯点球大战首败](https://www.blog.minike.top/Article/details/2620548.shtml)
-- 2026-06-30 08:46 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/11132222987.shtml)
+- 2026-06-30 08:47 - [世界杯名画巴拉圭钢铁防线](http://www.blog.minike.top/Article/details/89939727.shtml)
+- 2026-06-30 08:39 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/003453716266.shtml)
+- 2026-06-30 08:41 - [女子遭下药退赔偿拟追刑责](https://www.blog.minike.top/Article/details/2972818.shtml)
+- 2026-06-30 08:36 - [国务院：探索延长义务教育年限](https://www.share.minike.top/Article/details/6884346040.shtml)
+- 2026-06-30 08:41 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/91806.shtml)
+- 2026-06-30 08:36 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/172160381964.shtml)
+- 2026-06-30 08:37 - [周生如故](https://www.blog.kurohicncr.top/Article/details/6133500.shtml)
+- 2026-06-30 08:39 - [起风了](https://www.blog.kurohicncr.top/Article/details/65280766.shtml)
+- 2026-06-30 08:55 - [佐野海舟远射破门](https://www.blog.minike.top/Article/details/18658446.shtml)
+- 2026-06-30 08:44 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/14377759948.shtml)
+- 2026-06-30 09:00 - [韩乔生吐槽世界杯扩军](https://www.share.kurohicncr.top/Article/details/8651982405.shtml)
+- 2026-06-30 08:46 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](http://www.blog.kurohicncr.top/Article/details/5235237.shtml)
+- 2026-06-30 09:05 - [郑钦文温网一轮游](https://www.blog.kurohicncr.top/Article/details/690829210.shtml)
+- 2026-06-30 08:59 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/06365946.shtml)
+- 2026-06-30 08:43 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/84853849.shtml)

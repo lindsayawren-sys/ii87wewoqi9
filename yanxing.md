@@ -1,59 +1,60 @@
-# 西十高铁通车在即 跨省入鄂旅行团预订热度攀升
+# 不投不行但又顾忌马斯克的空前控制权 部分投资者为SpaceX上市犯难
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-中新网武汉6月16日电 (记者 梁婷)西十高铁通车进入倒计时，这条高铁大动脉将打通湖北与西北地区的全新文旅通道。记者16日从湖北省文旅厅获悉，该省开展陕鄂文旅交流互动，沿线城市推出多元文旅产品、深化区域合作。目前，全省已推出陕西入鄂旅行团30余个，预计组团游客将突破2万人次，预订热度持续攀升。武汉、十堰、襄阳等地旅行社集中推出西十高铁首发团，出行档期集中在6月底至7月上旬，行程
+美国纽约市主计长Mark Levine表示，埃隆·马斯克将对SpaceX拥有的空前控制权，代表了漠视普通股东权利的新高度。 Levine表示：“我理解我们正处于一个创始人想要更多控制权的时代。但马斯克对SpaceX的打算‘远远超出了我们以往所见’。” “它是史无前例的，”他说。 SpaceX将于本周上市，这宗规模将刷新纪录的IPO受到了渴望参与的投资者极力追捧。但要想投资这家公
 
 ## 正文
 
-中新网武汉6月16日电 (记者 梁婷)西十高铁通车进入倒计时，这条高铁大动脉将打通湖北与西北地区的全新文旅通道。
+美国纽约市主计长Mark Levine表示，埃隆·马斯克将对SpaceX拥有的空前控制权，代表了漠视普通股东权利的新高度。
 
-记者16日从湖北省文旅厅获悉，该省开展陕鄂文旅交流互动，沿线城市推出多元文旅产品、深化区域合作。
+Levine表示：“我理解我们正处于一个创始人想要更多控制权的时代。
 
-目前，全省已推出陕西入鄂旅行团30余个，预计组团游客将突破2万人次，预订热度持续攀升。
+但马斯克对SpaceX的打算‘远远超出了我们以往所见’。
 
-武汉、十堰、襄阳等地旅行社集中推出西十高铁首发团，出行档期集中在6月底至7月上旬，行程覆盖武当山、丹江口等核心景区。
+” “它是史无前例的，”他说。
 
-截至6月中旬，全省已组成6个特色首发团，预订游客超500人。
+SpaceX将于本周上市，这宗规模将刷新纪录的IPO受到了渴望参与的投资者极力追捧。
 
-除首发团外，各类中长期旅行团有序推进，涵盖精品小团、中型观光团及千人研学团。
+但要想投资这家公司，就必须接受这种公司治理结构：马斯克拥有约80%的投票权，同时兼任首席执行官、首席技术官以及董事会主席。
 
-依托鄂西山水资源，多条核心景区线路已组建千人团队，预订量预计突破2万人次。
+对于追踪指数的大型投资者而言，不投SpaceX并不容易。
 
-三峡、神农架等长线景区备受欢迎，兰州至武汉研学团、长安三日夏令营等主题团即将上线，暑期亲子游市场热度高涨。
+该公司已迫使市场围绕它做出调整。
 
 ## 相关推荐
 
-- 2026-06-30 08:51 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-30 08:55 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-30 08:33 - [巴拉圭率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-30 08:53 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
-- 2026-06-30 08:58 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
-- 2026-06-30 08:45 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
-- 2026-06-30 08:41 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-30 08:32 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-30 08:40 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
-- 2026-06-30 08:31 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-30 08:47 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-30 08:37 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
-- 2026-06-30 08:56 - [哈弗茨头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-30 08:47 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-30 09:00 - [现在叛逆期的孩子最怕的是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-30 08:42 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-30 08:57 - [日本球迷输球后集体捡垃圾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-30 08:44 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-30 08:45 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-30 08:54 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-30 08:49 - [内马尔未登场 安切洛蒂赛后回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-30 08:48 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-30 08:55 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-30 08:51 - [为什么小组赛出局会让韩国人破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-30 09:03 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
+- 2026-06-30 08:55 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
+- 2026-06-30 08:54 - [日本博主：日本足球真的垃圾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:45 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/7447427.shtml)
-- 2026-06-30 08:51 - [德国4比5巴拉圭](https://www.blog.minike.top/Article/details/743016.shtml)
-- 2026-06-30 08:47 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/6351842.shtml)
-- 2026-06-30 08:34 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/553859833.shtml)
-- 2026-06-30 08:57 - [被巴西绝杀后 日球员田中碧跪地痛哭](http://www.share.minike.top/Article/details/84135586706.shtml)
-- 2026-06-30 08:49 - [好像看到了人类带孩子崩溃的样子](http://www.share.minike.top/Article/details/50235870433.shtml)
-- 2026-06-30 08:53 - [高考结束了，你会让孩子在家玩手机吗？](https://www.share.kurohicncr.top/Article/details/920157039.shtml)
-- 2026-06-30 08:46 - [我觉得你是在无中生友](https://www.blog.kurohicncr.top/Article/details/561746.shtml)
-- 2026-06-30 08:31 - [王曼昱被突如其来的话筒逗笑了](https://www.blog.minike.top/Article/details/8477555.shtml)
-- 2026-06-30 08:46 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/989099.shtml)
-- 2026-06-30 08:40 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/92616406139.shtml)
-- 2026-06-30 08:30 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.kurohicncr.top/Article/details/55239545.shtml)
-- 2026-06-30 08:49 - [爆冷出局！德国点球大战不敌巴拉圭](http://www.blog.minike.top/Article/details/34305.shtml)
-- 2026-06-30 08:47 - [郑钦文温网一轮游](https://www.share.minike.top/Article/details/11327.shtml)
-- 2026-06-30 08:57 - [张月感谢了每一公的队友](https://www.blog.kurohicncr.top/Article/details/12079243.shtml)
+- 2026-06-30 08:47 - [巴西绝杀日本](https://www.blog.kurohicncr.top/Article/details/9890684215.shtml)
+- 2026-06-30 08:55 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/085008.shtml)
+- 2026-06-30 08:49 - [世界杯名画巴拉圭钢铁防线](http://www.blog.kurohicncr.top/Article/details/7539653772.shtml)
+- 2026-06-30 08:55 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/376454916.shtml)
+- 2026-06-30 08:41 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/12867972738.shtml)
+- 2026-06-30 08:37 - [IGN评测电影版后室](http://www.blog.minike.top/Article/details/97695234.shtml)
+- 2026-06-30 08:49 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/100450780.shtml)
+- 2026-06-30 09:05 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.share.minike.top/Article/details/239217533.shtml)
+- 2026-06-30 08:39 - [城市规划有可能成为「屎山代码」吗？](https://www.blog.minike.top/Article/details/526744469.shtml)
+- 2026-06-30 08:52 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/63523.shtml)
+- 2026-06-30 09:01 - [索马里女大使：想和中国一起搞事业](http://www.share.kurohicncr.top/Article/details/193067830.shtml)
+- 2026-06-30 08:50 - [孙颖莎王楚钦晋级8强](https://www.share.minike.top/Article/details/678020700.shtml)
+- 2026-06-30 08:37 - [iPhone18e曝光](https://www.blog.minike.top/Article/details/79441258.shtml)
+- 2026-06-30 08:49 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/34241.shtml)
+- 2026-06-30 08:47 - [男子身高一米八二仍做断骨增高](https://www.share.kurohicncr.top/Article/details/980888513.shtml)

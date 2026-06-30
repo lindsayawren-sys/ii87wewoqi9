@@ -1,60 +1,51 @@
-# 中国是缅甸可以信赖的朋友和伙伴
+# 三生制药获汇添富基金增持97.5万股 每股作价约15.68港元
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-原标题：海外网评：中国是缅甸可以信赖的朋友和伙伴 6月16日上午，国家主席习近平在北京人民大会堂同来华进行国事访问的缅甸总统敏昂莱举行会谈。会谈后，两国元首共同见证签署交通、民生等领域多项合作文件。英国路透社、新加坡亚洲新闻台(CNA)、《日本时报》等外媒均聚焦此次缅甸总统敏昂莱来华访问，并强调这是“敏昂莱当选总统后首次来华访问”。中方期待同缅方一道，通过敏昂莱总统这次访问，赓
+香港联交所最新数据显示，6月5日，汇添富基金管理股份有限公司增持三生制药（01530）97.5万股，每股作价15.681港元，总金额约为1528.90万港元。增持后最新持股数目约为1.78亿股，持股比例为7%。责任编辑：卢昱君
 
 ## 正文
 
-原标题：海外网评：中国是缅甸可以信赖的朋友和伙伴 6月16日上午，国家主席习近平在北京人民大会堂同来华进行国事访问的缅甸总统敏昂莱举行会谈。
+香港联交所最新数据显示，6月5日，汇添富基金管理股份有限公司增持三生制药（01530）97.5万股，每股作价15.681港元，总金额约为1528.90万港元。
 
-会谈后，两国元首共同见证签署交通、民生等领域多项合作文件。
+增持后最新持股数目约为1.78亿股，持股比例为7%。
 
-英国路透社、新加坡亚洲新闻台(CNA)、《日本时报》等外媒均聚焦此次缅甸总统敏昂莱来华访问，并强调这是“敏昂莱当选总统后首次来华访问”。
-
-中方期待同缅方一道，通过敏昂莱总统这次访问，赓续传统胞波情谊，深化全面战略合作，推动中缅命运共同体建设取得更多务实成果，更好造福两国人民。
-
-中缅是传统友好邻邦和命运共同体。
-
-中缅两国是山水相连的友好邻邦，自古以来，两国人民就以“胞波”相称。
-
-1950年，缅甸在不同社会制度国家中第一个承认新中国，中缅正式建交。
-
-中缅两国老一辈领导人像走亲戚一样频密互访，周恩来总理9次访缅和缅领导人吴奈温12次访华被两国人民传为佳话，尤其是2020年习近平主席历史性访缅，推动中缅关系进入构建命运共同体的新时期。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 08:38 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
-- 2026-06-30 08:46 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-30 08:37 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-30 08:35 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
-- 2026-06-30 08:38 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-30 08:47 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-30 08:42 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-30 08:42 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
-- 2026-06-30 08:37 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-30 08:34 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-30 08:59 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-30 08:48 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
-- 2026-06-30 08:54 - [泰山景区回应修建刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-30 08:37 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-30 08:49 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-30 08:51 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-30 08:48 - [日本队被绝杀后鞠躬致谢观众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-30 08:55 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-30 08:55 - [德国 传控](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-30 09:04 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-30 08:47 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
+- 2026-06-30 08:53 - [感动全网的699分女生想报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-30 09:04 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-30 08:59 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-30 08:58 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-30 09:05 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-30 08:49 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-30 08:42 - [日本主帅：未能夺冠深感抱歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-30 08:52 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:44 - [网友写差评被店家“挂”门口避雷](https://www.share.kurohicncr.top/Article/details/9563699.shtml)
-- 2026-06-30 08:49 - [4000美元是黄金新一轮下跌的开始吗](http://www.share.minike.top/Article/details/906404170.shtml)
-- 2026-06-30 08:56 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.share.minike.top/Article/details/868465.shtml)
-- 2026-06-30 08:50 - [高考结束了，你会让孩子在家玩手机吗？](https://www.blog.minike.top/Article/details/36304733.shtml)
-- 2026-06-30 08:59 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](http://www.blog.minike.top/Article/details/4420547.shtml)
-- 2026-06-30 08:46 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/902642958337.shtml)
-- 2026-06-30 08:56 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/6796192.shtml)
-- 2026-06-30 08:57 - [巴西vs日本](http://www.blog.kurohicncr.top/Article/details/60316165457.shtml)
-- 2026-06-30 08:53 - [网红峡谷5人溺亡 有人提醒会下雨](https://www.share.minike.top/Article/details/1954127.shtml)
-- 2026-06-30 08:53 - [檀健次王楚然吻戏看热了](http://www.share.kurohicncr.top/Article/details/02378719.shtml)
-- 2026-06-30 08:41 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/093777.shtml)
-- 2026-06-30 08:50 - [王健林甩卖超80座万达广场](http://www.share.kurohicncr.top/Article/details/91084.shtml)
-- 2026-06-30 08:36 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/7725849789.shtml)
-- 2026-06-30 08:42 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/044770574.shtml)
-- 2026-06-30 08:42 - [巴拉圭点球大战淘汰德国进16强](http://www.share.kurohicncr.top/Article/details/731543.shtml)
+- 2026-06-30 08:49 - [巴拉圭进球](https://www.share.kurohicncr.top/Article/details/94671473580.shtml)
+- 2026-06-30 09:00 - [锐评：网红不能困在无底线逐利里](http://www.blog.minike.top/Article/details/297527978.shtml)
+- 2026-06-30 08:59 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.minike.top/Article/details/43648.shtml)
+- 2026-06-30 08:57 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/9769767512.shtml)
+- 2026-06-30 08:37 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.kurohicncr.top/Article/details/02183166.shtml)
+- 2026-06-30 08:44 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/653935.shtml)
+- 2026-06-30 08:53 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/56332586324.shtml)
+- 2026-06-30 08:56 - [巴西vs日本](http://www.blog.kurohicncr.top/Article/details/4088244.shtml)
+- 2026-06-30 08:44 - [卢卡申科发布解放军仪仗队视频](https://www.share.minike.top/Article/details/040586924.shtml)
+- 2026-06-30 08:51 - [《共患难》](https://www.blog.kurohicncr.top/Article/details/03310883.shtml)
+- 2026-06-30 08:48 - [董卿父亲在报纸上发文悼念亡妻](https://www.blog.minike.top/Article/details/2949082229.shtml)
+- 2026-06-30 08:43 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/6535920453.shtml)
+- 2026-06-30 09:04 - [斛珠夫人](http://www.blog.minike.top/Article/details/80339676139.shtml)
+- 2026-06-30 08:55 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/97065052.shtml)
+- 2026-06-30 08:42 - [流金岁月](https://www.share.kurohicncr.top/Article/details/96893249139.shtml)

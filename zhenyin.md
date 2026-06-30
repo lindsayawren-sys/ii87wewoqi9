@@ -1,52 +1,60 @@
-# 昀冢科技：MLCC业务尚处亏损，存在产能爬坡慢等风险
+# 亚信科技正式发布Physical AI三大产品，打通工业智能全链路闭环
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-6月16日，昀冢科技(688260.SH)公告称，2026年3月19日至6月16日，公司股价连续60个交易日累计涨幅266.32%，偏离基本面，存在炒作风险。公司2025年、2026年一季度净利润分别为-1.90亿元、-0.53亿元，处于亏损状态，抵御市场波动能力有限。MLCC业务尚处亏损，存在产能爬坡慢等风险。公司正推进向特定对象发行A股股票事项，最终能否实施存在不确定性，若
+近日，基于AI优先战略布局与深厚的技术积淀，亚信科技正式发布Physical AI三大核心产品——空间智能引擎（AISWare PhysGen）、世界模型后训练引擎（AISWare PhysBrain）、物理AI智控系统（AISWare PhysOS）。三款产品分别承担“感知眼睛、行业大脑、调度神经中枢”的核心定位，聚焦工业制造、商业航天等高价值场景，全域打通“感知→认知→决策
 
 ## 正文
 
-6月16日，昀冢科技(688260.SH)公告称，2026年3月19日至6月16日，公司股价连续60个交易日累计涨幅266.32%，偏离基本面，存在炒作风险。
+近日，基于AI优先战略布局与深厚的技术积淀，亚信科技正式发布Physical AI三大核心产品——空间智能引擎（AISWare PhysGen）、世界模型后训练引擎（AISWare PhysBrain）、物理AI智控系统（AISWare PhysOS）。
 
-公司2025年、2026年一季度净利润分别为-1.90亿元、-0.53亿元，处于亏损状态，抵御市场波动能力有限。
+三款产品分别承担“感知眼睛、行业大脑、调度神经中枢”的核心定位，聚焦工业制造、商业航天等高价值场景，全域打通“感知→认知→决策→执行→进化”工业智能闭环，为实体产业AI规模化商用筑牢端到端基础设施底座。
 
-MLCC业务尚处亏损，存在产能爬坡慢等风险。
+01产业拐点已至：Physical AI 产业化落地卡点亟待突破Physical AI迎来产业化关键拐点，赛道增长势能强劲。
 
-公司正推进向特定对象发行A股股票事项，最终能否实施存在不确定性，若未落地，投资项目将面临资金缺口。
+据IDC预测，中国具身智能机器人市场正迎来爆发式增长，用户支出规模有望在2030年攀升至770亿美元，2025-2030年复合增长率高达94%。
+
+同时，Gartner将Physical AI纳入2026年十大战略技术趋势，预示行业智能大脑将迈入标准化、可插拔的模块化时代。
+
+结合产业落地实践来看，通用技术向工业实景转化仍存在三大核心落地断点：数据鸿沟：训练数据成本高、样本稀缺，极端工况样本难以通过常规采集物理鸿沟：通用大模型缺乏工业物理常识与工况约束，实景推理稳定性差，无法满足工业生产可信要求执行鸿沟：多设备、多智能体之间难以协同，模型与生产链路脱节，缺失生产级统一调度执行中枢直击三大行业痛点，亚信科技Physical AI团队打造三位一体产品矩阵，以低成本、高保真、低风险的智能闭环方案，打通Physical AI技术落地产业实景的核心壁垒。
+
+02三位一体协同布局，构筑物理世界智能全链路体系面向高价值实体产业，亚信科技 Physical AI 构建起“感知—认知—执行”一体化产品体系。
+
+三款产品深度协同，补齐行业从数字智能到具身智能的全流程能力缺口：空间智能引擎 AISWare PhysGen——让AI精准看见物理世界 世界模型后训练引擎 AISWare PhysBrain——让AI深度理解物理规律 物理AI智控系统 AISWare PhysOS——让AI高效落地工业现场执行 空间智能引擎AISWarePhysGen 破解训练数据昂贵、失真、难落地行业痛点作为Physical AI体系感知底座，PhysGen打通Real-to-Sim现实转仿真核心链路，依托3D高斯溅射空间重建、多模态生成、NVIDIA Cosmos技术底座，搭载3D空间重建、仿真数据合成、空间感知理解三大核心能力，直击行业训练数据稀缺、物理仿真失真两大核心难题。
 
 ## 相关推荐
 
-- 2026-06-30 08:31 - [日本队5进世界杯淘汰赛0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
-- 2026-06-30 08:46 - [董路：谁赢谁是“正路子”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
-- 2026-06-30 08:37 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-30 08:42 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
-- 2026-06-30 08:37 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
-- 2026-06-30 08:49 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-30 08:55 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-30 08:49 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-30 08:56 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
-- 2026-06-30 08:50 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-30 08:53 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-30 08:41 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-30 08:42 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
-- 2026-06-30 08:36 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-30 08:51 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-30 09:05 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-30 08:38 - [中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-30 08:40 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-30 08:58 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-30 08:45 - [日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-30 08:40 - [网友写差评被店家“挂”门口避雷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-30 08:36 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-30 08:55 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-30 08:47 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
+- 2026-06-30 08:45 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-30 08:43 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-30 08:39 - [感动全网的699分女生想报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-30 08:37 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:51 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/62125607.shtml)
-- 2026-06-30 08:38 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/231410.shtml)
-- 2026-06-30 08:42 - [南北多地暴雨和强对流天气持续](https://www.share.kurohicncr.top/Article/details/1871574013.shtml)
-- 2026-06-30 08:38 - [世界杯巴拉圭点球淘汰德国](http://www.share.minike.top/Article/details/24810.shtml)
-- 2026-06-30 08:55 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/53849137.shtml)
-- 2026-06-30 08:44 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/6527264047.shtml)
-- 2026-06-30 08:56 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.kurohicncr.top/Article/details/9880135099.shtml)
-- 2026-06-30 08:57 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/27966.shtml)
-- 2026-06-30 08:50 - [追梦拒绝2770万美元球员选项](https://www.share.minike.top/Article/details/73527.shtml)
-- 2026-06-30 08:44 - [德国队连续三届世界杯无缘16强](https://www.blog.minike.top/Article/details/27421807.shtml)
-- 2026-06-30 08:35 - [追梦拒绝2770万美元球员选项](https://www.share.kurohicncr.top/Article/details/73983225147.shtml)
-- 2026-06-30 08:36 - [81岁老人被男子买光菜回家车祸去世](https://www.share.kurohicncr.top/Article/details/77423633648.shtml)
-- 2026-06-30 08:33 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/792199784.shtml)
-- 2026-06-30 08:42 - [巴西替补奇兵读秒绝杀](http://www.blog.minike.top/Article/details/82229688333.shtml)
-- 2026-06-30 08:51 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](http://www.blog.kurohicncr.top/Article/details/69672.shtml)
+- 2026-06-30 09:01 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/82022989704.shtml)
+- 2026-06-30 08:58 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/90539369.shtml)
+- 2026-06-30 08:45 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/859491.shtml)
+- 2026-06-30 08:38 - [男子身高一米八二仍做断骨增高](https://www.blog.kurohicncr.top/Article/details/627796339.shtml)
+- 2026-06-30 09:04 - [为什么小组赛出局会让韩国人破防](https://www.blog.kurohicncr.top/Article/details/186306560.shtml)
+- 2026-06-30 08:40 - [爱很美味](https://www.share.kurohicncr.top/Article/details/45019164.shtml)
+- 2026-06-30 08:50 - [中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？](http://www.blog.minike.top/Article/details/468684.shtml)
+- 2026-06-30 09:03 - [日耳曼拖拉机](http://www.blog.kurohicncr.top/Article/details/74479.shtml)
+- 2026-06-30 08:51 - [董卿父亲报纸上发文悼念亡妻](https://www.blog.minike.top/Article/details/4957666.shtml)
+- 2026-06-30 08:54 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/7021734539.shtml)
+- 2026-06-30 08:59 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/274085.shtml)
+- 2026-06-30 08:36 - [巴拉圭率先破门](https://www.blog.minike.top/Article/details/675557459031.shtml)
+- 2026-06-30 08:59 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.share.minike.top/Article/details/2430993508.shtml)
+- 2026-06-30 08:46 - [德国队回应爆冷淘汰](https://www.blog.minike.top/Article/details/139649660067.shtml)
+- 2026-06-30 08:52 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/297740259.shtml)

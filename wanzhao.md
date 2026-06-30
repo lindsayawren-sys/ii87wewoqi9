@@ -1,61 +1,61 @@
-# A股尾盘上攻，涨幅扩大：半导体产业链盘中崛起
+# MLCC量价齐升 行业迈入“超级周期” 机构与融资客紧盯这7股
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！A股三大股指6月17日集体低开。早盘三大股指冲高转涨后回落，沪指午前收跌。半导体午后的拉升，带动三大股指出现一波快速拉升。尾盘再度拉升，三大股指成功收涨。 从盘面上看，PCB、基板概念股掀涨停潮；半导体产业链盘中崛起，多股创历史新高；中字头股午后异动拉升。AI应用、大消费、文化传媒、煤炭、油气、汽车板块跌幅
+全球MLCC龙头日本村田再度官宣提价，叠加AI算力、新能源汽车带动需求爆发，MLCC供需格局持续趋紧，行业被市场视作“下一个存储”。 巨头掀起全球MLCC涨价潮 据上海证券报消息，有券商分析师向记者透露，全球最大MLCC供应商村田制作所已正式发布涨价函，针对AI服务器和高端车规级MLCC产品启动全面涨价，涨幅在10%-40%之间，新价格体系于7月1日起生效。 值得一提的是，村田
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+全球MLCC龙头日本村田再度官宣提价，叠加AI算力、新能源汽车带动需求爆发，MLCC供需格局持续趋紧，行业被市场视作“下一个存储”。
 
-A股三大股指6月17日集体低开。
+巨头掀起全球MLCC涨价潮 据上海证券报消息，有券商分析师向记者透露，全球最大MLCC供应商村田制作所已正式发布涨价函，针对AI服务器和高端车规级MLCC产品启动全面涨价，涨幅在10%-40%之间，新价格体系于7月1日起生效。
 
-早盘三大股指冲高转涨后回落，沪指午前收跌。
+值得一提的是，村田制作所已于4月对AI服务器、车规级MLCC涨价15%到35%。
 
-半导体午后的拉升，带动三大股指出现一波快速拉升。
+作为行业龙头，该公司占据全球MLCC市场超四成份额。
 
-尾盘再度拉升，三大股指成功收涨。
+随后，涨价浪潮快速在全球蔓延，日本太阳诱电在5月份全线跟进，韩国三星电机亦宣布6月1日起上调消费电子MLCC价格。
 
-从盘面上看，PCB、基板概念股掀涨停潮；半导体产业链盘中崛起，多股创历史新高；中字头股午后异动拉升。
+据产业链人士透露，目前高端MLCC的交货周期已从8到12周拉长到了16到24周。
 
-AI应用、大消费、文化传媒、煤炭、油气、汽车板块跌幅靠前。
+需求端结构性爆发带来价值重估 MLCC（多层陶瓷电容器）素有“电子工业大米”之称，它是一种采用印有内电极的陶瓷介质薄片交错堆叠，经高温烧结形成独石结构的基础电子元件，应用场景覆盖各类电子产品。
 
-至收盘，上证综指涨0.4%，报4108.08点；深证成指涨1.31%，报15880.95点；创业板指涨1.56%，报4167.05点。
+随着AI算力基础设施持续扩容、新能源汽车加速渗透，MLCC需求迎来指数级增长。
 
 ## 相关推荐
 
-- 2026-06-30 08:31 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-30 08:39 - [巴拉圭进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-30 08:38 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
-- 2026-06-30 08:49 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-30 08:54 - [孙颖莎王楚钦晋级8强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-30 08:41 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-30 08:42 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
-- 2026-06-30 08:41 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-30 08:47 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-30 08:55 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-30 08:44 - [陈小春人老了干什么也不心酸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-30 08:32 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-30 08:50 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-30 08:33 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
-- 2026-06-30 08:50 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
+- 2026-06-30 08:53 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-30 08:52 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
+- 2026-06-30 08:47 - [巴拉圭进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-30 08:46 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-30 09:04 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-30 08:54 - [杨紫肖战余生请多指教拍立得](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-30 08:51 - [板面：为什么那么多人爱吃？？！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-30 08:56 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
+- 2026-06-30 09:03 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-30 08:59 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-30 08:52 - [杨紫大银幕成绩单如何](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
+- 2026-06-30 08:37 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-30 08:41 - [Melo向柳智敏张元英道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-30 08:56 - [武磊：巴西队赢的并不轻松](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-30 09:04 - [杨紫大银幕成绩单如何](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:38 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/09148.shtml)
-- 2026-06-30 08:55 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/64437824004.shtml)
-- 2026-06-30 08:47 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/6500986015.shtml)
-- 2026-06-30 08:37 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](http://www.share.kurohicncr.top/Article/details/082606.shtml)
-- 2026-06-30 08:31 - [周冬雨多次说演不了话剧文城](http://www.share.minike.top/Article/details/74206142993.shtml)
-- 2026-06-30 08:37 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/951324.shtml)
-- 2026-06-30 08:55 - [啊啊啊](http://www.blog.minike.top/Article/details/15963.shtml)
-- 2026-06-30 08:40 - [穆祉丞回应获年度人气艺人](http://www.share.kurohicncr.top/Article/details/587834285888.shtml)
-- 2026-06-30 08:50 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/9720939.shtml)
-- 2026-06-30 08:37 - [日本队主帅道歉](http://www.blog.kurohicncr.top/Article/details/53327193.shtml)
-- 2026-06-30 08:34 - [女子遭下药退赔偿拟追刑责](http://www.share.kurohicncr.top/Article/details/2020323122.shtml)
-- 2026-06-30 08:35 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/59753427.shtml)
-- 2026-06-30 08:31 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.kurohicncr.top/Article/details/7393961005.shtml)
-- 2026-06-30 08:31 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/0078535.shtml)
-- 2026-06-30 08:56 - [周生如故](http://www.blog.minike.top/Article/details/23151083463.shtml)
+- 2026-06-30 08:49 - [现在叛逆期的孩子最怕的是什么？](https://www.blog.minike.top/Article/details/27664141.shtml)
+- 2026-06-30 08:46 - [日本淘汰](https://www.share.minike.top/Article/details/937158895996.shtml)
+- 2026-06-30 08:54 - [板面：为什么那么多人爱吃？？！](http://www.share.minike.top/Article/details/034985769.shtml)
+- 2026-06-30 09:05 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/53263391.shtml)
+- 2026-06-30 08:43 - [上市央企地产商 两年换了三任董事长](http://www.blog.kurohicncr.top/Article/details/18621304.shtml)
+- 2026-06-30 08:52 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://www.blog.kurohicncr.top/Article/details/44332410396.shtml)
+- 2026-06-30 08:42 - [世界杯欧洲队7战南美仅1胜](https://www.share.kurohicncr.top/Article/details/771164126.shtml)
+- 2026-06-30 08:39 - [收到补税提醒尽快办理 明起有滞纳金](http://www.share.kurohicncr.top/Article/details/6743441034.shtml)
+- 2026-06-30 08:57 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.minike.top/Article/details/106730620509.shtml)
+- 2026-06-30 09:00 - [世界杯](https://www.blog.minike.top/Article/details/942666790665.shtml)
+- 2026-06-30 08:55 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/744236992930.shtml)
+- 2026-06-30 08:53 - [中国新一轮出口管制直指日本命脉](http://www.share.minike.top/Article/details/06782675813.shtml)
+- 2026-06-30 08:47 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.kurohicncr.top/Article/details/79612854.shtml)
+- 2026-06-30 08:54 - [我觉得你是在无中生友](http://www.blog.minike.top/Article/details/76439726474.shtml)
+- 2026-06-30 09:04 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.blog.minike.top/Article/details/35180544440.shtml)

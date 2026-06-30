@@ -1,56 +1,48 @@
-# 世界黄金协会调查：全球央行增持意愿创纪录 黄金战略储备地位进一步提升
+# 哔哩哔哩-W获Norges Bank增持62.528万股 每股作价约144.03港元
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-文章来源：财联社 世界黄金协会（WGC）周二发布的《2026年全球央行黄金储备调查报告》显示，受访央行储备管理者中有45%预计未来12个月将增加黄金持有量，该比例较上年上升2个百分点，创下历史新高。 在参与此次年度调查的74家央行中，54%的受访者表示其黄金储备将维持不变，仅有1%预计将减少持仓。此次调查于今年2月5日至5月19日期间进行。 大多数问卷回复是在2月底中东冲突爆发
+香港联交所最新资料显示，6月8日，Norges Bank增持哔哩哔哩-W（09626）62.528万股，每股作价144.0293港元，总金额约为9005.86万港元。增持后最新持股数目约为2083.92万股，最新持股比例为6.03%。责任编辑：卢昱君
 
 ## 正文
 
-文章来源：财联社 世界黄金协会（WGC）周二发布的《2026年全球央行黄金储备调查报告》显示，受访央行储备管理者中有45%预计未来12个月将增加黄金持有量，该比例较上年上升2个百分点，创下历史新高。
+香港联交所最新资料显示，6月8日，Norges Bank增持哔哩哔哩-W（09626）62.528万股，每股作价144.0293港元，总金额约为9005.86万港元。
 
-在参与此次年度调查的74家央行中，54%的受访者表示其黄金储备将维持不变，仅有1%预计将减少持仓。
+增持后最新持股数目约为2083.92万股，最新持股比例为6.03%。
 
-此次调查于今年2月5日至5月19日期间进行。
-
-大多数问卷回复是在2月底中东冲突爆发后收到的，这场冲突引发油价上涨，并导致金价承压下挫。
-
-此次调查发布之际，黄金正处于一个具有里程碑意义的时刻。
-
-世界黄金协会指出，黄金近期已超越美国国债，成为全球最大的储备资产，这凸显出官方机构在储备资产配置理念上的重大转变。
-
-世界黄金协会央行部门主管Shaokai Fan表示，各国央行对黄金依然保持浓厚兴趣，近期金价回落并未改变其增持黄金的意愿。
-
-“各国央行依然非常看好黄金，事实上比以往任何时候都更加积极。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 08:50 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
-- 2026-06-30 08:57 - [媒体：手机测评该挤挤水分了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-30 08:36 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
-- 2026-06-30 08:35 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
-- 2026-06-30 08:30 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-30 08:45 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-30 08:37 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-30 08:42 - [张雪的一句“是我们”引发岛内热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
-- 2026-06-30 08:52 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-30 08:59 - [泰山景区回应修建刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-30 08:38 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-30 08:51 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-30 08:53 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
+- 2026-06-30 08:49 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
+- 2026-06-30 08:44 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
+- 2026-06-30 09:00 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-30 08:37 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-30 08:59 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-30 08:56 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-30 08:47 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-30 09:02 - [第一次对自信的力量有了实感](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-30 08:52 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:56 - [王楚钦孙颖莎晋级混双八强](https://www.share.kurohicncr.top/Article/details/876161.shtml)
-- 2026-06-30 08:53 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/00376210.shtml)
-- 2026-06-30 08:31 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/659747189.shtml)
-- 2026-06-30 08:56 - [德国4比5巴拉圭](http://www.blog.minike.top/Article/details/8867841.shtml)
-- 2026-06-30 08:42 - [高质量发展看新疆](https://www.share.minike.top/Article/details/7653268802.shtml)
-- 2026-06-30 08:38 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/2962189379.shtml)
-- 2026-06-30 08:51 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/72362081283.shtml)
-- 2026-06-30 08:37 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/75331.shtml)
-- 2026-06-30 08:48 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/093753967.shtml)
-- 2026-06-30 08:48 - [日本将帅赛后采访纷纷哽咽落泪](https://www.blog.minike.top/Article/details/89965628.shtml)
-- 2026-06-30 08:41 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/5474601606.shtml)
-- 2026-06-30 08:31 - [全球芯片巨头史诗级扩产](http://www.share.minike.top/Article/details/861694.shtml)
-- 2026-06-30 08:52 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.kurohicncr.top/Article/details/87770.shtml)
-- 2026-06-30 08:52 - [追梦拒绝2770万美元球员选项](https://www.blog.kurohicncr.top/Article/details/191643847.shtml)
-- 2026-06-30 08:53 - [美股](http://www.blog.kurohicncr.top/Article/details/281879574787.shtml)
+- 2026-06-30 08:41 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/31009072615.shtml)
+- 2026-06-30 09:02 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/257319497496.shtml)
+- 2026-06-30 08:43 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/73467.shtml)
+- 2026-06-30 08:42 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/35216274310.shtml)
+- 2026-06-30 08:41 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.minike.top/Article/details/6292870.shtml)
+- 2026-06-30 09:00 - [张月收到黄灿灿辣货两眼发光](https://www.share.kurohicncr.top/Article/details/9707367.shtml)
+- 2026-06-30 08:44 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/2010598898.shtml)
+- 2026-06-30 08:46 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.kurohicncr.top/Article/details/05584466.shtml)
+- 2026-06-30 08:36 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](http://www.share.kurohicncr.top/Article/details/92536.shtml)
+- 2026-06-30 08:49 - [名记：灰熊将莫兰特交易至开拓者](https://www.blog.kurohicncr.top/Article/details/98141.shtml)
+- 2026-06-30 09:02 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.kurohicncr.top/Article/details/299639159476.shtml)
+- 2026-06-30 08:56 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/241447321383.shtml)
+- 2026-06-30 08:50 - [日本主帅：未能夺冠深感抱歉](https://www.share.kurohicncr.top/Article/details/578280521403.shtml)
+- 2026-06-30 08:44 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/83300072.shtml)
+- 2026-06-30 08:56 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/12143101060.shtml)

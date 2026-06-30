@@ -1,47 +1,60 @@
-# 敲黑板、划重点！吴清主席陆家嘴论坛最新发声
+# 视频|曾毓群：宁德时代不设定国内外营收占比目标，企业随着市场走，像是逐水草而居的游牧民族
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-21世纪经济报道 记者 崔文静 6月17日，2026陆家嘴论坛正式召开，证监会主席吴清发布资本市场建设系列相关政策，主要内容包括： ①扩大科创板第五套标准适用范围至人工智能领域； ②落实发展未来产业战略部署，支持量子科技、生物制造、具身智能等更多领域“硬科技”企业上市； ③有序推进深化创业板改革，加大对新型消费和现代服务业的支持力度，更好服务成长型创新创业企业发展； ④用好用足
+编者按：近期，曾毓群被问及，对宁德时代未来的营收比例有没有一个大概的想法，比如百分之多少来自国内，百分之多少来自国际市场？对此，曾毓群表示：“没有什么太大想法，哪里有客户需要就做哪里。企业一定是随着市场走的，像是逐水草而居的游牧民族。有人说我来定义客户，这个事儿长期是不容易的。最重要的是为客户创造价值，你的产品、你的技术、你的服务、你的解决方案，能够enable（赋能）你的客户
 
 ## 正文
 
-21世纪经济报道 记者 崔文静 6月17日，2026陆家嘴论坛正式召开，证监会主席吴清发布资本市场建设系列相关政策，主要内容包括： ①扩大科创板第五套标准适用范围至人工智能领域； ②落实发展未来产业战略部署，支持量子科技、生物制造、具身智能等更多领域“硬科技”企业上市； ③有序推进深化创业板改革，加大对新型消费和现代服务业的支持力度，更好服务成长型创新创业企业发展； ④用好用足并购重组快速审核机制，积极打通并购实施过程中的堵点卡点，推动优化并购相关政策，降低交易成本； ⑤深化再融资改革，突出“扶优、扶科”导向，抓紧修订《上市公司证券发行注册管理办法》等制度规则，加快推出储架发行等机制； ⑥支持符合条件的港股上市公司境内上市，更好促进两地市场联动发展； ⑦支持在沪深交易所推出主动ETF，更好满足居民多元化的财富管理需求； ⑧推出商业不动产REITs试点
+编者按：近期，曾毓群被问及，对宁德时代未来的营收比例有没有一个大概的想法，比如百分之多少来自国内，百分之多少来自国际市场？
 
-此外，吴清主席还宣布4项支持上海国际金融中心建设的政策，包括： ①增强“上海价格”国际影响力，平稳推动液化天然气期货期权上市，支持推进电力等基础性、战略性期货品种研发； ②支持上海打造金融创新“试验田”，推动股债融资、并购重组、机构发展、离岸金融等方面重大改革开放措施在上海先行先试； ③支持上海浦东、北京海淀、广东深圳、江苏苏州、浙江杭州打造首批资本市场科技金融实践样本； ④精心筹备召开首届中国资本市场学术年会，发挥好资本市场学会平台作用，助力上海国际金融中心软实力提升。
+对此，曾毓群表示：“没有什么太大想法，哪里有客户需要就做哪里。
 
-责任编辑：郭栩彤
+企业一定是随着市场走的，像是逐水草而居的游牧民族。
+
+有人说我来定义客户，这个事儿长期是不容易的。
+
+最重要的是为客户创造价值，你的产品、你的技术、你的服务、你的解决方案，能够enable（赋能）你的客户，能够让客户也赚到钱，推高客户的品牌。
+
+那就是个很好的共生生态。
+
+” 以下是报道全文 对话曾毓群：宁德时代正在质变 来源《财经》 文|研究员 尹路 “我们在思考人类新能源事业的四梁八柱在哪里？
+
+哪些是关键点，关键点怎么做到人无我有，人有我优？
 
 ## 相关推荐
 
-- 2026-06-30 08:46 - [韩国道歉完日本道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-30 08:42 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-30 08:58 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
-- 2026-06-30 08:38 - [iPhone18e曝光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
-- 2026-06-30 08:59 - [德国连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-30 08:59 - [iPhone18e曝光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-30 08:32 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-30 08:39 - [泰山景区回应修建刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-30 08:35 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
-- 2026-06-30 08:43 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-30 08:54 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-30 08:58 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
+- 2026-06-30 08:48 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-30 08:57 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-30 08:45 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
+- 2026-06-30 08:56 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-30 08:53 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-30 08:43 - [日本球迷输球后集体捡垃圾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-30 09:00 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-30 08:52 - [IGN评测电影版后室](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-30 09:00 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
+- 2026-06-30 08:43 - [杨紫肖战余生请多指教拍立得](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-30 09:01 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-30 08:47 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
+- 2026-06-30 08:50 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:34 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.blog.kurohicncr.top/Article/details/9998383546.shtml)
-- 2026-06-30 08:41 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/79850.shtml)
-- 2026-06-30 08:45 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.minike.top/Article/details/14698.shtml)
-- 2026-06-30 08:33 - [萨内 看笑了](http://www.blog.kurohicncr.top/Article/details/90469894362.shtml)
-- 2026-06-30 08:57 - [索马里女大使：想和中国一起搞事业](https://www.blog.kurohicncr.top/Article/details/4446175259.shtml)
-- 2026-06-30 08:52 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/3365772.shtml)
-- 2026-06-30 08:40 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/04694072268.shtml)
-- 2026-06-30 08:49 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/1454070.shtml)
-- 2026-06-30 08:30 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/288082.shtml)
-- 2026-06-30 08:38 - [黄晓明晒和周杰伦的合照](https://www.blog.kurohicncr.top/Article/details/619876355195.shtml)
-- 2026-06-30 08:56 - [开电动汽车真的很省钱吗？](https://www.blog.kurohicncr.top/Article/details/330055.shtml)
-- 2026-06-30 08:38 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/77800379798.shtml)
-- 2026-06-30 08:38 - [巴西vs日本](http://www.blog.kurohicncr.top/Article/details/12847678015.shtml)
-- 2026-06-30 08:57 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/37713.shtml)
-- 2026-06-30 08:42 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/8853359.shtml)
+- 2026-06-30 08:54 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](https://www.blog.minike.top/Article/details/423929353.shtml)
+- 2026-06-30 08:38 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/87023043868.shtml)
+- 2026-06-30 08:43 - [王楚钦说配合稍微有些陌生感](https://www.blog.kurohicncr.top/Article/details/9735097.shtml)
+- 2026-06-30 09:04 - [女子遭下药退赔偿拟追刑责](https://www.blog.kurohicncr.top/Article/details/40776885955.shtml)
+- 2026-06-30 08:46 - [安切洛蒂 换人](http://www.blog.minike.top/Article/details/787947.shtml)
+- 2026-06-30 09:03 - [流金岁月](http://www.share.kurohicncr.top/Article/details/455007589877.shtml)
+- 2026-06-30 08:52 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/759059989.shtml)
+- 2026-06-30 08:50 - [日本 高位逼抢](https://www.blog.kurohicncr.top/Article/details/29314.shtml)
+- 2026-06-30 08:44 - [为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？](http://www.share.minike.top/Article/details/711935.shtml)
+- 2026-06-30 08:44 - [金鹰奖视后提名预测](https://www.blog.kurohicncr.top/Article/details/439751789081.shtml)
+- 2026-06-30 09:01 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/53271.shtml)
+- 2026-06-30 08:52 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/068103893.shtml)
+- 2026-06-30 08:41 - [郑钦文温网首轮出局](https://www.blog.kurohicncr.top/Article/details/6822730.shtml)
+- 2026-06-30 08:45 - [巴西2比1日本](http://www.blog.kurohicncr.top/Article/details/867825039617.shtml)
+- 2026-06-30 08:45 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.kurohicncr.top/Article/details/39928.shtml)

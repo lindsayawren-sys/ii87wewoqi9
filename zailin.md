@@ -1,60 +1,54 @@
-# 向投资者承诺SpaceX的IPO股份却落空 韩国未来资产遭监管机构调查
+# 航旅纵横接入微信AI Agent内测 实现“一句话查航班”
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-据知情人士透露，韩国金融监管机构扩大对未来资产证券的检查范围，以调查该经纪公司未能获得分配SpaceX首次公开招股(IPO)股份的原因。 未来资产是此次IPO的承销商之一，曾向部分投资者提供认购股票的机会，但最终并未获得任何股份。 知情人士透露，韩国金融监督院上周已开始对该券商进行检查，以确定认购SpaceX股票的投资者是否符合注册专业投资者的资格要求。由于此事尚未公开，知情人
+6月11日消息，微信公开课近日发布《关于开发者接入微信AI生态的指引》，面向开发者提供便捷接入“微信AI”生态的能力。航旅纵横小程序已作为首批内测开发者完成初步接入适配，未来将围绕航班动态查询场景接入微信AI Agent。 用户只需要在微信内口述航班查询指令，即可快速获取精准信息。系统会自动识别并分析查询意图，精准匹配目标航班，实时生成对应的航班动态卡片。用户即可查看航班实时状
 
 ## 正文
 
-据知情人士透露，韩国金融监管机构扩大对未来资产证券的检查范围，以调查该经纪公司未能获得分配SpaceX首次公开招股(IPO)股份的原因。
+6月11日消息，微信公开课近日发布《关于开发者接入微信AI生态的指引》，面向开发者提供便捷接入“微信AI”生态的能力。
 
-未来资产是此次IPO的承销商之一，曾向部分投资者提供认购股票的机会，但最终并未获得任何股份。
+航旅纵横小程序已作为首批内测开发者完成初步接入适配，未来将围绕航班动态查询场景接入微信AI Agent。
 
-知情人士透露，韩国金融监督院上周已开始对该券商进行检查，以确定认购SpaceX股票的投资者是否符合注册专业投资者的资格要求。
+用户只需要在微信内口述航班查询指令，即可快速获取精准信息。
 
-由于此事尚未公开，知情人士要求匿名。
+系统会自动识别并分析查询意图，精准匹配目标航班，实时生成对应的航班动态卡片。
 
-与大多数亚洲市场一样，韩国的散户投资者也被排除在SpaceX大型上市交易之外。
+用户即可查看航班实时状态、起降时间等完整信息，全程无需跳转。
 
-未来资产选择以非公开配售的形式向注册为专业人士的客户而非散户投资者提供股票。
+下一步，航旅纵横将围绕出行多元化场景，继续拓展微信AI Agent应用边界。
 
-据知情人士说，尽管未来资产已接受投资者的保证金，但在SpaceX的IPO中却未能获得任何股份分配，因此监管机构扩大了调查范围。
-
-未来资产提供的机会吸引旺盛需求。
+责任编辑：杨赐
 
 ## 相关推荐
 
-- 2026-06-30 08:31 - [全新问界M9现身美国街头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-30 08:35 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-30 08:51 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
-- 2026-06-30 08:46 - [亚洲球队全部出局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
-- 2026-06-30 08:44 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-30 08:51 - [点球大战 残酷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-30 08:52 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
-- 2026-06-30 08:36 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-30 08:56 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
-- 2026-06-30 08:48 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
-- 2026-06-30 08:57 - [日耳曼拖拉机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
-- 2026-06-30 08:46 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-30 08:53 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-30 08:58 - [森保一 保守](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-30 08:55 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
+- 2026-06-30 08:59 - [泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-30 08:55 - [世界杯名画巴拉圭钢铁防线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-30 08:59 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-30 08:42 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-30 08:41 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-30 08:50 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-30 08:55 - [诺伊尔尽力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
+- 2026-06-30 09:02 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-30 08:41 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:31 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.minike.top/Article/details/5363162211.shtml)
-- 2026-06-30 08:32 - [日耳曼拖拉机](http://www.share.minike.top/Article/details/828447870853.shtml)
-- 2026-06-30 08:51 - [赛博朋克边缘行者2预告片](http://www.blog.minike.top/Article/details/649327.shtml)
-- 2026-06-30 08:34 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/373353685.shtml)
-- 2026-06-30 08:31 - [建议不要突然完全停止喝咖啡](https://www.share.minike.top/Article/details/013993055202.shtml)
-- 2026-06-30 08:40 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/675723756.shtml)
-- 2026-06-30 08:48 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.minike.top/Article/details/43045850.shtml)
-- 2026-06-30 08:33 - [达美乐运输面团时被雨淋到 客服回应](http://www.share.kurohicncr.top/Article/details/90730979.shtml)
-- 2026-06-30 08:41 - [日本进球](http://www.blog.kurohicncr.top/Article/details/3432192.shtml)
-- 2026-06-30 08:37 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/799317890605.shtml)
-- 2026-06-30 08:57 - [电影抓特务上映11天破亿](https://www.blog.kurohicncr.top/Article/details/0104449887.shtml)
-- 2026-06-30 08:35 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/110316020400.shtml)
-- 2026-06-30 08:42 - [4000美元是黄金新一轮下跌的开始吗](http://www.share.kurohicncr.top/Article/details/089768540182.shtml)
-- 2026-06-30 08:42 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](https://www.blog.minike.top/Article/details/952668914913.shtml)
-- 2026-06-30 08:55 - [世界杯巴拉圭点球淘汰德国](http://www.blog.kurohicncr.top/Article/details/9122758067.shtml)
+- 2026-06-30 08:39 - [千香](https://www.share.minike.top/Article/details/8914373603.shtml)
+- 2026-06-30 08:46 - [德国队连续三届世界杯无缘16强](http://www.share.minike.top/Article/details/863985.shtml)
+- 2026-06-30 08:52 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/368484.shtml)
+- 2026-06-30 08:48 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/05878248017.shtml)
+- 2026-06-30 08:39 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/366165489268.shtml)
+- 2026-06-30 08:37 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.minike.top/Article/details/16856930.shtml)
+- 2026-06-30 08:55 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/3005722.shtml)
+- 2026-06-30 08:46 - [城市规划有可能成为「屎山代码」吗？](https://www.blog.minike.top/Article/details/895587.shtml)
+- 2026-06-30 08:40 - [高考结束了，你会让孩子在家玩手机吗？](http://www.share.minike.top/Article/details/5249031961.shtml)
+- 2026-06-30 09:00 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/588067246.shtml)
+- 2026-06-30 08:39 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/3747885.shtml)
+- 2026-06-30 08:54 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/14549664358.shtml)
+- 2026-06-30 09:02 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/32667458045.shtml)
+- 2026-06-30 08:52 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/3875807.shtml)
+- 2026-06-30 08:49 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/49083938.shtml)

@@ -1,44 +1,59 @@
-# 2025年度个税汇算6月30日结束：退税迟迟未到账 需要重点关注两种情况
+# 端午节前机票价格跳水，深圳飞多地仅需200多元
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月17日 09:15 来源：央视新闻 责任编辑：【王祎】
+随着端午节和暑假临近，民航运输再次步入旺季。近日，深圳机场已经有不少旅客提前出行，错峰出游。 南方航空深圳分公司地服部高端客服室副主任乐炎表示，从近两周开始，从客座率和现场到柜台的旅客都有明显的提升。从机票销量来看，6月18日开始，销量明显增加，订座数环比前一天也增长了14%以上。 端午节前一周，从深圳飞往杭州、贵阳、海口、武汉等地均只需200多元，只有7月均价的一半甚至三分之
 
 ## 正文
 
-发布时间：2026年06月17日 09:15 来源：央视新闻 责任编辑：【王祎】
+随着端午节和暑假临近，民航运输再次步入旺季。
+
+近日，深圳机场已经有不少旅客提前出行，错峰出游。
+
+南方航空深圳分公司地服部高端客服室副主任乐炎表示，从近两周开始，从客座率和现场到柜台的旅客都有明显的提升。
+
+从机票销量来看，6月18日开始，销量明显增加，订座数环比前一天也增长了14%以上。
+
+端午节前一周，从深圳飞往杭州、贵阳、海口、武汉等地均只需200多元，只有7月均价的一半甚至三分之一，一些飞往北方地区的长航线机票价格更划算。
+
+在线旅游平台统计数据显示，截至目前，端午前（6月1日至6月15日）错峰游机票预订量同比去年节前增长了19.6%。
+
+同程研究院研究员谢晓青表示，目前热门需求集中在西北、西南等长线目的地。
+
+6月长线游机票均价较7月低30%，但部分热门航线近期价格已快速上涨。
 
 ## 相关推荐
 
-- 2026-06-30 08:36 - [杨紫肖战余生请多指教拍立得](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-30 08:45 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-30 08:35 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-30 08:40 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
-- 2026-06-30 08:57 - [萨内 看笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
-- 2026-06-30 08:37 - [泰山景区回应修建刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-30 08:56 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-30 08:53 - [森保一 保守](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-30 08:30 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-30 08:52 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-30 08:52 - [泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-30 08:43 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-30 08:47 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-30 08:36 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-30 08:52 - [穆祉丞回应获年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-30 08:54 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-30 08:45 - [荷兰vs摩洛哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-30 08:40 - [黄晓明夸昆凌引杨颖对比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-30 08:46 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-30 08:51 - [德国队回应爆冷淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-30 08:41 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-30 08:44 - [陈幸同晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-30 08:58 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
+- 2026-06-30 08:43 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-30 08:46 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:30 - [高质量发展看新疆](https://www.blog.kurohicncr.top/Article/details/2779552740.shtml)
-- 2026-06-30 08:50 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/002805201.shtml)
-- 2026-06-30 08:48 - [为什么小组赛出局会让韩国人破防](http://www.blog.minike.top/Article/details/096124344010.shtml)
-- 2026-06-30 08:47 - [曝詹姆斯即将与勇士会面](https://www.share.kurohicncr.top/Article/details/66011687567.shtml)
-- 2026-06-30 08:59 - [孙兴慜道歉](https://www.blog.kurohicncr.top/Article/details/37579029.shtml)
-- 2026-06-30 08:56 - [世界杯欧洲队7战南美仅1胜](http://www.share.kurohicncr.top/Article/details/578831339365.shtml)
-- 2026-06-30 08:39 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/2037307165.shtml)
-- 2026-06-30 08:54 - [谢依霖说杨幂是聚会第一把张罗手](http://www.share.minike.top/Article/details/06074308547.shtml)
-- 2026-06-30 08:52 - [森保一致歉：世界第一目标没能实现](https://www.share.minike.top/Article/details/175428.shtml)
-- 2026-06-30 08:44 - [曝iPhone18Pro机密文件现身暗网](http://www.share.kurohicncr.top/Article/details/3877017.shtml)
-- 2026-06-30 08:53 - [德国4比5巴拉圭](https://www.share.minike.top/Article/details/85175.shtml)
-- 2026-06-30 08:31 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/9117202703.shtml)
-- 2026-06-30 08:43 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/54131850030.shtml)
-- 2026-06-30 08:57 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/422446415163.shtml)
-- 2026-06-30 08:52 - [天道](https://www.share.kurohicncr.top/Article/details/818321760.shtml)
+- 2026-06-30 08:48 - [世界杯：荷兰vs摩洛哥](https://www.blog.kurohicncr.top/Article/details/10162.shtml)
+- 2026-06-30 08:48 - [世界杯](http://www.blog.kurohicncr.top/Article/details/73987.shtml)
+- 2026-06-30 08:50 - [王曼昱被突如其来的话筒逗笑了](https://www.share.minike.top/Article/details/689296278.shtml)
+- 2026-06-30 08:46 - [欧洲装一台空调有多难](https://www.share.minike.top/Article/details/347834036263.shtml)
+- 2026-06-30 08:38 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](https://www.share.kurohicncr.top/Article/details/35454015383.shtml)
+- 2026-06-30 08:51 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/83616365401.shtml)
+- 2026-06-30 08:42 - [名记：灰熊将莫兰特交易至开拓者](http://www.blog.minike.top/Article/details/0398845638.shtml)
+- 2026-06-30 08:36 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.minike.top/Article/details/26521393490.shtml)
+- 2026-06-30 08:42 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/99077422566.shtml)
+- 2026-06-30 08:40 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/70042283544.shtml)
+- 2026-06-30 08:48 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/62521622.shtml)
+- 2026-06-30 09:01 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/58032170032.shtml)
+- 2026-06-30 08:56 - [日本队5进世界杯淘汰赛0胜](http://www.blog.minike.top/Article/details/06235727.shtml)
+- 2026-06-30 08:44 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/25133176.shtml)
+- 2026-06-30 08:57 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/3105389516.shtml)

@@ -1,56 +1,55 @@
-# 美国商务部暂缓将DeepSeek等中企加入限制清单，外交部回应
+# 青海省首个粤港澳大湾区“菜篮子”基地年产量超17万吨
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-6月17日，外交部发言人林剑主持例行记者会。 法新社记者提问，据报道，美国商务部为了避免与中国关系进一步紧张，已暂缓将包括DeepSeek和一家大型芯片制造商在内的多家中国企业列入其限制性实体清单。请问中国外交部对此有何评论？ 林剑表示，中方一贯反对美方泛化国家安全概念，滥用实体清单等出口管制的工具，遏制打压中方企业。美方应停止将经贸科技问题政治化、工具化、武器化。 来源：北京
+发布时间：2026年06月11日 12:58 来源：中国新闻网 6月10日，记者走进西宁市大通县一家智能温室大棚基地，一串串番茄缀满枝头。该基地也被认定为青海省第一个粤港澳大湾区“菜篮子”基地，已实现高原蔬菜常态化供应香港市场。 目前，依托得天独厚的冷凉气候优势，大通全县蔬菜年产量24.9万吨，年外销量达17.2万吨。同时，该县打通粤港澳直供、农超对接等外销渠道，建成青海省首批
 
 ## 正文
 
-6月17日，外交部发言人林剑主持例行记者会。
+发布时间：2026年06月11日 12:58 来源：中国新闻网 6月10日，记者走进西宁市大通县一家智能温室大棚基地，一串串番茄缀满枝头。
 
-法新社记者提问，据报道，美国商务部为了避免与中国关系进一步紧张，已暂缓将包括DeepSeek和一家大型芯片制造商在内的多家中国企业列入其限制性实体清单。
+该基地也被认定为青海省第一个粤港澳大湾区“菜篮子”基地，已实现高原蔬菜常态化供应香港市场。
 
-请问中国外交部对此有何评论？
+目前，依托得天独厚的冷凉气候优势，大通全县蔬菜年产量24.9万吨，年外销量达17.2万吨。
 
-林剑表示，中方一贯反对美方泛化国家安全概念，滥用实体清单等出口管制的工具，遏制打压中方企业。
+同时，该县打通粤港澳直供、农超对接等外销渠道，建成青海省首批供港蔬菜基地。
 
-美方应停止将经贸科技问题政治化、工具化、武器化。
-
-来源：北京日报客户端 记者：刘晓琰责任编辑：刘万里 SF014
+(记者 孙睿 制作 徐妙巧 部分视频来源 大通融媒体中心) 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 08:36 - [莫兰特被交易到开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
-- 2026-06-30 08:58 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-30 08:46 - [诺伊尔尽力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
-- 2026-06-30 08:54 - [莫兰特转投开拓者效力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
-- 2026-06-30 08:40 - [泰山景区回应修建刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
-- 2026-06-30 08:54 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-30 08:47 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
-- 2026-06-30 08:47 - [韩国世界杯出局是主帅一个人的锅吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-30 08:47 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-30 08:45 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-30 08:56 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-30 08:35 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
-- 2026-06-30 08:56 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-30 08:38 - [森保一 保守](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-30 08:41 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-30 08:48 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-30 09:04 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-30 08:56 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-30 09:03 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-30 08:56 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-30 08:38 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-30 08:42 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-30 08:38 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-30 08:42 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-30 08:43 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-30 09:03 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-30 09:03 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-30 08:44 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-30 08:58 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:53 - [王源近几年没有路演了](http://www.share.kurohicncr.top/Article/details/57961541586.shtml)
-- 2026-06-30 08:37 - [泰山建135公里刀片刺绳隔离网](https://www.share.kurohicncr.top/Article/details/4944178.shtml)
-- 2026-06-30 08:59 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/2137292205.shtml)
-- 2026-06-30 08:52 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/231678017.shtml)
-- 2026-06-30 08:38 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/017240.shtml)
-- 2026-06-30 08:31 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/28399694.shtml)
-- 2026-06-30 08:47 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/467837420.shtml)
-- 2026-06-30 08:54 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/30736285.shtml)
-- 2026-06-30 08:57 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/268056677541.shtml)
-- 2026-06-30 08:47 - [王源近几年没有路演了](https://www.share.minike.top/Article/details/227125.shtml)
-- 2026-06-30 08:54 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/86229408580.shtml)
-- 2026-06-30 08:45 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/81727.shtml)
-- 2026-06-30 08:39 - [网友写差评被店家“挂”门口避雷](https://www.blog.kurohicncr.top/Article/details/0085502.shtml)
-- 2026-06-30 08:41 - [第3集丨“柠檬茶能换怀表？”](http://www.share.kurohicncr.top/Article/details/49789038.shtml)
-- 2026-06-30 08:48 - [刘宇宁是去进货了吗](https://www.blog.minike.top/Article/details/660578241329.shtml)
+- 2026-06-30 08:44 - [男子中医院拔火罐致浅2度烧伤](http://www.share.minike.top/Article/details/550877415.shtml)
+- 2026-06-30 09:02 - [马耳他著名拱门坍塌致一中国男子身亡](http://www.blog.minike.top/Article/details/1918981741.shtml)
+- 2026-06-30 08:52 - [青春环游记第三季](http://www.blog.minike.top/Article/details/23593.shtml)
+- 2026-06-30 08:46 - [陈小春人老了干什么也不心酸](https://www.share.kurohicncr.top/Article/details/68059202485.shtml)
+- 2026-06-30 08:52 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/4180975.shtml)
+- 2026-06-30 08:50 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/307920514682.shtml)
+- 2026-06-30 08:57 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/2952969259.shtml)
+- 2026-06-30 08:42 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/08168313.shtml)
+- 2026-06-30 09:01 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/360604363.shtml)
+- 2026-06-30 08:55 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/606555.shtml)
+- 2026-06-30 08:59 - [金刚川](https://www.share.kurohicncr.top/Article/details/177739.shtml)
+- 2026-06-30 08:56 - [索马里女大使：想和中国一起搞事业](https://www.share.kurohicncr.top/Article/details/531738122150.shtml)
+- 2026-06-30 08:53 - [日本 高位逼抢](https://www.share.minike.top/Article/details/88392910.shtml)
+- 2026-06-30 08:39 - [世界杯名画巴拉圭钢铁防线](https://www.share.kurohicncr.top/Article/details/8514852.shtml)
+- 2026-06-30 09:01 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](https://www.blog.minike.top/Article/details/059727600907.shtml)

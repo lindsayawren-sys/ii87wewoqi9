@@ -1,61 +1,57 @@
-# 澳大利亚联储今年以来首次按兵不动 经济在三次加息后显现降温迹象
+# 星舰成SpaceX估值支柱 火星愿景仍待验证
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-澳大利亚联储今年以来首次维持政策利率不变，有迹象表明，此前的三次加息开始对该国经济构成压力。 周二，澳大利亚联储货币政策委员会一致决定将现金利率维持在4.35%，符合市场预期。行长Michele Bullock将在悉尼时间下午3：30举行记者会，投资者关注决策者是否会释放未来继续按兵不动还是仍将保持紧缩倾向的蛛丝马迹。 “自今年年初以来三次加息后，金融环境已经更趋紧，并且有迹象
+专题：史上最大IPO本周来袭 马斯克旗下SpaceX拟募资750亿美元 埃隆・马斯克怀揣载人登陆火星的宏伟愿景，同时力求让SpaceX完成史上规模最大的首次公开募股，而这两大目标的核心载体，正是星舰——一枚高达407英尺的巨型火箭。 这家由全球首富执掌、业务横跨人工智能与卫星领域的综合企业集团，已投入超150亿美元研发这款人类有史以来体量最大的火箭。在本月提交的上市监管文件中，
 
 ## 正文
 
-澳大利亚联储今年以来首次维持政策利率不变，有迹象表明，此前的三次加息开始对该国经济构成压力。
+专题：史上最大IPO本周来袭 马斯克旗下SpaceX拟募资750亿美元 埃隆・马斯克怀揣载人登陆火星的宏伟愿景，同时力求让SpaceX完成史上规模最大的首次公开募股，而这两大目标的核心载体，正是星舰——一枚高达407英尺的巨型火箭。
 
-周二，澳大利亚联储货币政策委员会一致决定将现金利率维持在4.35%，符合市场预期。
+这家由全球首富执掌、业务横跨人工智能与卫星领域的综合企业集团，已投入超150亿美元研发这款人类有史以来体量最大的火箭。
 
-行长Michele Bullock将在悉尼时间下午3：30举行记者会，投资者关注决策者是否会释放未来继续按兵不动还是仍将保持紧缩倾向的蛛丝马迹。
+在本月提交的上市监管文件中，SpaceX将星舰视作公司未来发展规划的核心支柱。
 
-“自今年年初以来三次加息后，金融环境已经更趋紧，并且有迹象显示经济正如预期放缓，”澳大利亚联储在会后声明中表示。
+SpaceX希望星舰能成为全球首套完全可重复使用的发射系统。
 
-澳大利亚联储仍然警告称，必要时将进一步加息，因为通胀依然过高，与伊朗战争相关的能源成本上升构成上行风险，但近期较疲软的数据为联储暂停加息并评估形势提供了空间。
+该火箭两级箭体均可回收复用，且有效载荷能力大幅提升。
 
-澳大利亚四大银行中有三家认为，联储将在2026年余下时间维持利率不变。
+这将帮助公司以远更低的成本向轨道运送更多设备、发射更大体积的卫星，最终执行登月与火星探测任务。
 
-澳大利亚国民银行首席经济学家Sally Auld指出经济动能减弱，因而放弃了她此前关于8月再次加息的预测，并预计澳大利亚联储明年将降息三次。
+这一发展愿景，是公司多项宏大规划的根基。
 
-责任编辑：王永生
+2024年9月，马斯克在社交平台X上发文表示：“实现多星球生存，将极大延长人类文明的存续周期，我们再也不会把所有希望孤注一掷地寄托在单一星球之上。
 
 ## 相关推荐
 
-- 2026-06-30 08:43 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-30 08:56 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-30 08:41 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-30 08:40 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
-- 2026-06-30 08:50 - [田中碧失误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
-- 2026-06-30 08:53 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
-- 2026-06-30 08:49 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
-- 2026-06-30 08:42 - [F1奥地利站赛后复盘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-30 08:37 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-30 08:38 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-30 08:43 - [德国队连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-30 08:50 - [媒体：手机测评该挤挤水分了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-30 08:35 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-30 08:35 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-30 08:33 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-30 08:41 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-30 08:53 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-30 09:05 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-30 08:46 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-30 08:57 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-30 08:56 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-30 08:58 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
+- 2026-06-30 08:51 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-30 08:57 - [锐评：网红不能困在无底线逐利里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-30 08:37 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
+- 2026-06-30 08:56 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:33 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/8600766482.shtml)
-- 2026-06-30 08:31 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/650763.shtml)
-- 2026-06-30 08:51 - [马耳他著名拱门坍塌致中国男子身亡](https://www.share.kurohicncr.top/Article/details/735409.shtml)
-- 2026-06-30 08:55 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/6841032.shtml)
-- 2026-06-30 08:56 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/796509580.shtml)
-- 2026-06-30 08:54 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.minike.top/Article/details/044844623.shtml)
-- 2026-06-30 08:42 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/403457.shtml)
-- 2026-06-30 08:52 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/25385832723.shtml)
-- 2026-06-30 08:40 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.kurohicncr.top/Article/details/228883.shtml)
-- 2026-06-30 08:43 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.minike.top/Article/details/696844242.shtml)
-- 2026-06-30 08:42 - [巴西vs日本](https://www.share.kurohicncr.top/Article/details/417426697060.shtml)
-- 2026-06-30 08:50 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/069525194288.shtml)
-- 2026-06-30 08:48 - [乔家的儿女](http://www.blog.minike.top/Article/details/866033187.shtml)
-- 2026-06-30 08:35 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/15809955.shtml)
-- 2026-06-30 08:42 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/83127.shtml)
+- 2026-06-30 08:39 - [郑钦文 四年一轮游](https://www.blog.kurohicncr.top/Article/details/65577469198.shtml)
+- 2026-06-30 08:37 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/013240255020.shtml)
+- 2026-06-30 08:55 - [巴西扳平比分](https://www.blog.minike.top/Article/details/30438305603.shtml)
+- 2026-06-30 08:46 - [郑钦文温网首轮出局](http://www.share.kurohicncr.top/Article/details/793624432.shtml)
+- 2026-06-30 08:42 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/75068645190.shtml)
+- 2026-06-30 08:38 - [日本球迷被强行披上巴西国旗](https://www.share.minike.top/Article/details/75496.shtml)
+- 2026-06-30 08:38 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/780907215019.shtml)
+- 2026-06-30 08:38 - [高质量发展看新疆](https://www.blog.kurohicncr.top/Article/details/3490818.shtml)
+- 2026-06-30 08:40 - [巴拉圭先进球了](https://www.blog.kurohicncr.top/Article/details/090107949.shtml)
+- 2026-06-30 09:01 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/88243620882.shtml)
+- 2026-06-30 08:54 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/48520.shtml)
+- 2026-06-30 08:59 - [杨紫被质疑未使用原名纯属误解](http://www.share.minike.top/Article/details/159503890999.shtml)
+- 2026-06-30 09:04 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/380518512.shtml)
+- 2026-06-30 09:02 - [巴西绝杀日本：漫画般结局换了主角](https://www.blog.kurohicncr.top/Article/details/77434053.shtml)
+- 2026-06-30 09:05 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/43463.shtml)

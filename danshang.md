@@ -1,61 +1,57 @@
-# 《给阿嬷的情书》马来西亚特别展映活动举行
+# 中国驻科威特大使馆提醒在科中国公民加强安全防范
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-中新社吉隆坡6月15日电 (记者 刘育英)《给阿嬷的情书》马来西亚特别展映活动15日在马来西亚首都吉隆坡举行。影片18日将在马来西亚正式上映，引发当地华人观众对南洋华侨历史和侨批文化的关注。 活动现场展出影片剧照、原版侨批文书、复古信封以及老式自行车、邮筒等年代物件，并设置侨批盖戳体验区，让观众近距离了解侨批文化。 马来西亚旅游、艺术和文化部部长张庆信通过代表表示，影片所呈现的
+中新网6月10日电 据“中国驻科威特大使馆”微信公众号消息，近期，中东海湾地区紧张局势再度升级，科威特多次遭受空袭，造成人员伤亡和财产损失。6月10日凌晨，科再次遭到袭击，防空系统进行了拦截。 中国驻科威特大使馆再次提醒在科中国公民和中资机构： 一、密切关注安全形势和科有关部门发布的公告和警报，提高安全防范意识，减少非必要出行和跨区域流动，远离军事基地和可能遭受打击的敏感设施，
 
 ## 正文
 
-中新社吉隆坡6月15日电 (记者 刘育英)《给阿嬷的情书》马来西亚特别展映活动15日在马来西亚首都吉隆坡举行。
+中新网6月10日电 据“中国驻科威特大使馆”微信公众号消息，近期，中东海湾地区紧张局势再度升级，科威特多次遭受空袭，造成人员伤亡和财产损失。
 
-影片18日将在马来西亚正式上映，引发当地华人观众对南洋华侨历史和侨批文化的关注。
+6月10日凌晨，科再次遭到袭击，防空系统进行了拦截。
 
-活动现场展出影片剧照、原版侨批文书、复古信封以及老式自行车、邮筒等年代物件，并设置侨批盖戳体验区，让观众近距离了解侨批文化。
+中国驻科威特大使馆再次提醒在科中国公民和中资机构： 一、密切关注安全形势和科有关部门发布的公告和警报，提高安全防范意识，减少非必要出行和跨区域流动，远离军事基地和可能遭受打击的敏感设施，并严格遵守当地法律法规，切勿拍摄发布涉军事行动或机场、港口、军事设施等敏感区域的影像。
 
-马来西亚旅游、艺术和文化部部长张庆信通过代表表示，影片所呈现的侨批故事与南洋华人的历史记忆高度契合。
+二、听到空袭警报后，迅速进入地下室等安全掩体或远离窗户的房间避险。
 
-百余年前，侨批不仅是海外华人与故乡亲人联系的重要方式，也承载着华侨华人对家庭和故土的责任与牵挂。
+如发现任何疑似由拦截行动产生的坠落物，请勿靠近或触碰，不要在现场周围聚集，不要对现场进行摄影摄像，更不要在社交媒体上传播。
 
-他认为，这场展映是一场跨越时空的人文交流，通过电影，人们能够看到潮汕侨乡与南洋华人社会之间共同的历史记忆，以及马中两国人民长期以来形成的人文联系。
+三、如遇紧急情况，请第一时间报警并与中国驻科使馆联系。
 
-中国驻马来西亚大使欧阳玉靖指出，侨批已被列入联合国教科文组织《世界记忆名录》，马来西亚多家文博机构均收藏有相关文献。
-
-侨批记录了早期华侨艰苦创业的历程，也体现了中华文化中重信守诺的价值观。
+科威特报警、急救电话：112 驻科威特使馆领保值班电话：00965-60794359 外交部全球领保服务应急呼叫中心电话：+86-10-12308或+86-10-65612308
 
 ## 相关推荐
 
-- 2026-06-30 08:43 - [第3集丨“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
-- 2026-06-30 08:57 - [曝iPhone18Pro机密文件现身暗网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-30 08:33 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-30 08:51 - [德国巴拉圭进入点球大战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-30 08:45 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-30 08:33 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-30 08:31 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-30 08:54 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
-- 2026-06-30 08:47 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
-- 2026-06-30 08:32 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-30 08:39 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
-- 2026-06-30 08:42 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
-- 2026-06-30 08:52 - [张月收到黄灿灿辣货两眼发光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-30 08:50 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-30 08:50 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-30 08:43 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-30 08:57 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-30 08:59 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
+- 2026-06-30 08:39 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-30 08:51 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-30 08:36 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-30 09:03 - [黄晓明夸昆凌引杨颖对比](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-30 09:05 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-30 08:44 - [德国罚丢3粒点球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-30 08:54 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-30 08:58 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-30 08:52 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-30 08:41 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:38 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/24210877.shtml)
-- 2026-06-30 08:40 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/0151958411.shtml)
-- 2026-06-30 08:56 - [《贺子珍》](http://www.blog.minike.top/Article/details/0525998.shtml)
-- 2026-06-30 08:42 - [哈弗茨头球破门](http://www.blog.kurohicncr.top/Article/details/404353.shtml)
-- 2026-06-30 08:54 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/6329251.shtml)
-- 2026-06-30 08:38 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/71757128862.shtml)
-- 2026-06-30 08:33 - [巴西把自己踢晕了](https://www.share.minike.top/Article/details/59784.shtml)
-- 2026-06-30 08:38 - [巴西替补奇兵读秒绝杀](https://www.blog.kurohicncr.top/Article/details/0196720.shtml)
-- 2026-06-30 08:59 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/81006536511.shtml)
-- 2026-06-30 08:54 - [德国罚丢3粒点球](http://www.share.minike.top/Article/details/55158038.shtml)
-- 2026-06-30 08:59 - [巴西醒醒 这是淘汰赛](https://www.share.kurohicncr.top/Article/details/517241935.shtml)
-- 2026-06-30 08:31 - [如果有二次元高中是什么样子的？](https://www.share.kurohicncr.top/Article/details/7522970950.shtml)
-- 2026-06-30 08:52 - [曝iPhone18Pro机密文件现身暗网](https://www.blog.minike.top/Article/details/800788.shtml)
-- 2026-06-30 08:40 - [张月收到黄灿灿辣货两眼发光](https://www.share.kurohicncr.top/Article/details/8930289.shtml)
-- 2026-06-30 08:39 - [刘必安等16人非法集资案二审宣判](http://www.share.minike.top/Article/details/945494208.shtml)
+- 2026-06-30 08:51 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/885357675818.shtml)
+- 2026-06-30 08:46 - [田中碧失误](http://www.share.kurohicncr.top/Article/details/9470841094.shtml)
+- 2026-06-30 08:59 - [日本淘汰](http://www.share.kurohicncr.top/Article/details/3533797046.shtml)
+- 2026-06-30 08:47 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](http://www.share.minike.top/Article/details/79583.shtml)
+- 2026-06-30 09:05 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.minike.top/Article/details/5915799.shtml)
+- 2026-06-30 08:51 - [泰山建135公里刀片刺绳隔离网](http://www.share.minike.top/Article/details/3448533.shtml)
+- 2026-06-30 08:38 - [人民锐评网红诋毁袁隆平造谣企业家](http://www.blog.kurohicncr.top/Article/details/869100653505.shtml)
+- 2026-06-30 09:04 - [一生一世](http://www.blog.minike.top/Article/details/659272470.shtml)
+- 2026-06-30 08:59 - [莫兰特转投开拓者效力](https://www.blog.minike.top/Article/details/578931.shtml)
+- 2026-06-30 08:37 - [日本球员说被绝杀非常不甘心](http://www.blog.minike.top/Article/details/4031020.shtml)
+- 2026-06-30 09:00 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/738074672.shtml)
+- 2026-06-30 08:37 - [安切洛蒂 换人](http://www.share.minike.top/Article/details/60113898757.shtml)
+- 2026-06-30 09:01 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/55024.shtml)
+- 2026-06-30 08:42 - [青春环游记第三季](http://www.share.minike.top/Article/details/53814.shtml)
+- 2026-06-30 08:58 - [沙丘](http://www.share.minike.top/Article/details/77215.shtml)

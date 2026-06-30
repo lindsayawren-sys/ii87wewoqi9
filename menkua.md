@@ -1,60 +1,60 @@
-# 2026京津冀（廊坊）算力算法大赛颁奖仪式举行
+# 东西问·古典学丨短评：当世界古典学大会适逢“文明对话国际日”
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-中新网廊坊6月16日电 (李玉素 王巍)15日，2026京津冀(廊坊)算力算法大赛颁奖仪式在廊坊市京津冀大数据创新应用中心举行。大赛以“智汇廊坊·算赢未来——赋能区域人工智能产业创新发展”为主题，由廊坊市人民政府主办，中国信息通信研究院承办。 据介绍，自赛事启动以来，共吸引全国近600个优质项目报名参赛，参赛主体涵盖高校、科研院所、科创企业及创新创业团队，全面展现了国内算力算法
+中新社北京6月9日电 题：当世界古典学大会适逢“文明对话国际日” 中新社记者 韩禹 第二届世界古典学大会6月9日至10日在希腊雅典举行。大会今年由中国北京传递至希腊雅典，来自不同文明传统的学者共论“古今对话：古典智慧的现代启示”，在“文明对话国际日”共话文明。 6月10日，是第二个“文明对话国际日”。世界古典学大会此际登场，让古老文明间的对话更具现实意味。 在技术急速推进、地缘
 
 ## 正文
 
-中新网廊坊6月16日电 (李玉素 王巍)15日，2026京津冀(廊坊)算力算法大赛颁奖仪式在廊坊市京津冀大数据创新应用中心举行。
+中新社北京6月9日电 题：当世界古典学大会适逢“文明对话国际日” 中新社记者 韩禹 第二届世界古典学大会6月9日至10日在希腊雅典举行。
 
-大赛以“智汇廊坊·算赢未来——赋能区域人工智能产业创新发展”为主题，由廊坊市人民政府主办，中国信息通信研究院承办。
+大会今年由中国北京传递至希腊雅典，来自不同文明传统的学者共论“古今对话：古典智慧的现代启示”，在“文明对话国际日”共话文明。
 
-据介绍，自赛事启动以来，共吸引全国近600个优质项目报名参赛，参赛主体涵盖高校、科研院所、科创企业及创新创业团队，全面展现了国内算力算法领域强劲的创新活力与技术实力。
+6月10日，是第二个“文明对话国际日”。
 
-赛事历经初赛、复赛、决赛多轮严格评审与现场答辩，最终评选出一等奖5项、二等奖15项、三等奖25项及单项奖25项。
+世界古典学大会此际登场，让古老文明间的对话更具现实意味。
 
-廊坊市政协副主席董丽萍表示，廊坊地处京津雄黄金三角核心腹地，依托得天独厚的区位优势，近年来，廊坊在以算力为主的新型基础设施建设上持续发力，一大批头部企业加速集聚，全市算力规模和质效稳步提升。
+在技术急速推进、地缘冲突不断外溢的今天，世界为什么还需要古典学？
 
-廊坊正由“算力中心”向“算力枢纽”跨越，积极承接北京外溢算力需求，加快构建环京智能算力走廊，加速形成梯次布局、集约高效的算力供给格局。
+古典学最初主要指对古希腊罗马语言、文学、历史、哲学和制度的研究，后来扩展为对不同文明早期经典传统的系统理解。
 
-中国信息通信研究院党委副书记李德文指出，算力是数字时代的核心生产力，算法是人工智能的核心引擎，中国算力产业发展成效显著。
+所谓“古典”，并非一切古老书籍皆可冠名，而是专指那些在漫长历史积淀中持续塑造文明的文本。
 
-本次大赛汇聚多方创新力量，充分展现了行业活力。
+它往往包含着人类文明进程中的基本问题——人如何受教育？
 
 ## 相关推荐
 
-- 2026-06-30 08:31 - [iPhone18e曝光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-30 08:38 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-30 08:39 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-30 08:57 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
-- 2026-06-30 08:59 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-30 08:40 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-30 08:38 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
-- 2026-06-30 08:31 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-30 08:33 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
-- 2026-06-30 08:31 - [王楚钦说配合稍微有些陌生感](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-30 08:57 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-30 08:31 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-30 08:49 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-30 08:33 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-30 08:47 - [荷兰VS摩洛哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-30 08:52 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-30 09:03 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-30 09:04 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-30 08:41 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-30 08:52 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-30 08:57 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-30 09:00 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-30 08:36 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-30 08:45 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-30 09:02 - [点球淘汰德国 巴拉圭首都陷入疯狂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
+- 2026-06-30 09:04 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-30 08:49 - [媒体：手机测评该挤挤水分了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-30 08:37 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:59 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.share.kurohicncr.top/Article/details/8232093.shtml)
-- 2026-06-30 08:41 - [德国罚丢3粒点球](http://www.share.minike.top/Article/details/62006505.shtml)
-- 2026-06-30 08:33 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/341403.shtml)
-- 2026-06-30 08:35 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.kurohicncr.top/Article/details/13248566879.shtml)
-- 2026-06-30 08:57 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/740735.shtml)
-- 2026-06-30 08:51 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.minike.top/Article/details/590891.shtml)
-- 2026-06-30 08:33 - [韩国道歉完日本道歉](https://www.blog.minike.top/Article/details/399546.shtml)
-- 2026-06-30 08:51 - [莫兰特被交易到开拓者](https://www.blog.minike.top/Article/details/0276892.shtml)
-- 2026-06-30 08:42 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://www.share.minike.top/Article/details/59224125.shtml)
-- 2026-06-30 08:48 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/96249.shtml)
-- 2026-06-30 08:58 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/11153887457.shtml)
-- 2026-06-30 08:42 - [点球大战](http://www.share.minike.top/Article/details/0527981.shtml)
-- 2026-06-30 08:48 - [恋与深空制作组回应近期争议](http://www.share.kurohicncr.top/Article/details/31939164224.shtml)
-- 2026-06-30 08:57 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.minike.top/Article/details/9982899144.shtml)
-- 2026-06-30 08:35 - [内马尔替补](https://www.blog.minike.top/Article/details/22682355.shtml)
+- 2026-06-30 08:59 - [点球大战和诺伊尔都救不回德国队](http://www.blog.kurohicncr.top/Article/details/237746.shtml)
+- 2026-06-30 09:04 - [中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？](https://www.blog.minike.top/Article/details/882344534.shtml)
+- 2026-06-30 08:51 - [巴西在进攻三区完成210脚传球](https://www.blog.minike.top/Article/details/862560482.shtml)
+- 2026-06-30 08:54 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/76640.shtml)
+- 2026-06-30 08:49 - [巴西足球能否再现昔日荣光](http://www.blog.minike.top/Article/details/1066483.shtml)
+- 2026-06-30 09:05 - [日本博主：日本足球真的垃圾](http://www.blog.minike.top/Article/details/98458116968.shtml)
+- 2026-06-30 08:44 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/44985.shtml)
+- 2026-06-30 09:05 - [急先锋](https://www.blog.kurohicncr.top/Article/details/859729.shtml)
+- 2026-06-30 08:46 - [中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？](https://www.blog.minike.top/Article/details/84615.shtml)
+- 2026-06-30 08:43 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/77636991.shtml)
+- 2026-06-30 09:01 - [卢卡申科发布解放军仪仗队视频](https://www.share.minike.top/Article/details/814286427734.shtml)
+- 2026-06-30 09:01 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.share.kurohicncr.top/Article/details/548970055920.shtml)
+- 2026-06-30 08:50 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/386067.shtml)
+- 2026-06-30 08:47 - [问心2神一集鬼三集](https://www.share.kurohicncr.top/Article/details/891334.shtml)
+- 2026-06-30 09:00 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/031941135460.shtml)

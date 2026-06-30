@@ -1,53 +1,59 @@
-# 根据经验 日本央行或在东京时间12:30前后宣布利率决定
+# （活力中国调研行）北京打造高水平人才高地 营造世界一流创新生态
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-若以近期规律为鉴，日本央行可能会在东京时间12：30（北京时间11：30）前后宣布其政策决定。 给予近期会议更高权重的分析显示，自植田和男2023年4月出任行长以来，日本央行在调整货币政策时公布决议的平均时间为12：32。 在植田和男任内，此类会议的结果宣布时间处于从12：19（12月19日）到13：00（他2023年4月首次会议）的区间。责任编辑：王永生
+中新网北京6月10日电 (记者 陈杭 李梦)2026年“活力中国调研行”主题采访活动10日在北京启动。记者从活动中获悉，北京全社会研发投入强度多年保持在6%以上，基础研究投入比重保持在16%左右，连续9年稳居自然指数-科研城市全球榜首；连续4年高被引科学家数量位列全球前二位；连续5年独角兽企业数量位列全球前三；连续7年在《全球百强创新集群榜单》上排名前四位。 北京国家高新技术企
 
 ## 正文
 
-若以近期规律为鉴，日本央行可能会在东京时间12：30（北京时间11：30）前后宣布其政策决定。
+中新网北京6月10日电 (记者 陈杭 李梦)2026年“活力中国调研行”主题采访活动10日在北京启动。
 
-给予近期会议更高权重的分析显示，自植田和男2023年4月出任行长以来，日本央行在调整货币政策时公布决议的平均时间为12：32。
+记者从活动中获悉，北京全社会研发投入强度多年保持在6%以上，基础研究投入比重保持在16%左右，连续9年稳居自然指数-科研城市全球榜首；连续4年高被引科学家数量位列全球前二位；连续5年独角兽企业数量位列全球前三；连续7年在《全球百强创新集群榜单》上排名前四位。
 
-在植田和男任内，此类会议的结果宣布时间处于从12：19（12月19日）到13：00（他2023年4月首次会议）的区间。
+北京国家高新技术企业总数突破3万家，技术合同成交额近万亿元，位居全国第一位；中关村企业总收入突破10万亿元大关，预计达到10.5万亿元，占全国179家国家高新区总数1/6、稳居全国第一。
 
-责任编辑：王永生
+北京在全国率先整合设立教育科技人才工作领导小组，一体推进教育科技人才发展。
+
+颁布施行《北京国际科技创新中心建设条例》，将国际科技创新中心建设纳入法治轨道。
+
+持续发挥中关村改革“试验田”作用，24项重大改革措施全面落地，科技成果先使用后付费等多项政策向全国推广。
+
+实施高新技术企业“筑基扩容”“小升规”“规升强”三大工程，设立人工智能等8只总规模千亿元级政府投资基金，已累计投出金额240余亿元，带动社会资本投资超千亿元，促进了一大批科技型企业创新发展。
+
+北京加快打造高水平人才高地，依托国家实验室、新型研发机构等平台吸引集聚高层次人才和创新团队，支持青年科技人才挑大梁，目前近80%的市自然科学基金项目由45岁以下青年人才承担。
 
 ## 相关推荐
 
-- 2026-06-30 08:30 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-30 08:38 - [诺伊尔尽力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
-- 2026-06-30 08:56 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-30 08:52 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
-- 2026-06-30 08:44 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
-- 2026-06-30 08:34 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-30 08:54 - [德国4比5巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-30 08:31 - [张月收到黄灿灿辣货两眼发光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-30 08:55 - [巴西在进攻三区完成210脚传球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-30 08:47 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
-- 2026-06-30 08:49 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-30 08:51 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
-- 2026-06-30 08:42 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-30 08:53 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
-- 2026-06-30 08:53 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-30 08:50 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-30 08:37 - [古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-30 08:51 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-30 08:49 - [iPhoneUltra黑色机模](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-30 08:37 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-30 08:44 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-30 08:52 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-30 08:59 - [王濛回复黄灿灿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-30 08:54 - [日耳曼拖拉机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
+- 2026-06-30 09:04 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-30 08:38 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-30 08:52 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
+- 2026-06-30 09:02 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:38 - [日本半场1比0领先巴西](https://www.blog.minike.top/Article/details/3416140.shtml)
-- 2026-06-30 08:51 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/98282624.shtml)
-- 2026-06-30 08:59 - [巴西绝杀](https://www.share.kurohicncr.top/Article/details/0942062860.shtml)
-- 2026-06-30 08:52 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/067276.shtml)
-- 2026-06-30 08:49 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/698630887.shtml)
-- 2026-06-30 08:33 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/070572.shtml)
-- 2026-06-30 08:30 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/24983354332.shtml)
-- 2026-06-30 08:46 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/45784226995.shtml)
-- 2026-06-30 08:59 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/05992348010.shtml)
-- 2026-06-30 08:54 - [第一次对自信的力量有了实感](https://www.blog.minike.top/Article/details/27001840.shtml)
-- 2026-06-30 08:43 - [韩国道歉完日本道歉](http://www.blog.kurohicncr.top/Article/details/32235431.shtml)
-- 2026-06-30 08:47 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/2738233.shtml)
-- 2026-06-30 08:44 - [《共患难》](http://www.share.kurohicncr.top/Article/details/111269897.shtml)
-- 2026-06-30 08:53 - [巴西把自己踢晕了](https://www.share.minike.top/Article/details/51148546.shtml)
-- 2026-06-30 08:30 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](http://www.blog.minike.top/Article/details/849603494.shtml)
+- 2026-06-30 08:36 - [日本球员说被绝杀非常不甘心](http://www.share.kurohicncr.top/Article/details/235705.shtml)
+- 2026-06-30 09:00 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/68244368542.shtml)
+- 2026-06-30 09:03 - [网瘾賊大的阿嬷](https://www.share.kurohicncr.top/Article/details/63456.shtml)
+- 2026-06-30 08:53 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/02230.shtml)
+- 2026-06-30 08:48 - [德国队回应爆冷淘汰](https://www.blog.minike.top/Article/details/32170416.shtml)
+- 2026-06-30 09:00 - [泰山景区回应修建刀片刺绳隔离网](https://www.share.minike.top/Article/details/774813505.shtml)
+- 2026-06-30 08:54 - [这一刀 会很帅](http://www.share.minike.top/Article/details/191838590.shtml)
+- 2026-06-30 08:49 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/11365830158.shtml)
+- 2026-06-30 08:41 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/262046.shtml)
+- 2026-06-30 08:54 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/349594.shtml)
+- 2026-06-30 08:48 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/72286484.shtml)
+- 2026-06-30 08:43 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/23608325591.shtml)
+- 2026-06-30 08:43 - [欧洲民众抢购空调降温](http://www.share.minike.top/Article/details/560891.shtml)
+- 2026-06-30 08:44 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/143196660184.shtml)
+- 2026-06-30 08:38 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/53491.shtml)

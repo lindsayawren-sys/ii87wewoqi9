@@ -1,61 +1,59 @@
-# 酒价内参6月17日价格发布：古井贡古20下跌5元
+# 沙奎尔·奥尼尔携手Zepbound发起全国活动，讲述睡眠呼吸暂停治疗经历
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月17日整体小幅回落。如果主要单品各取一瓶整体打包售卖，今日总售价为9925元，较昨日微幅下跌2元，连续两日回落并创下三天以来最低。今日总价虽然自6月15日创下的23天以来最高位持续回落，但仍处于进入六月以来相对高位，终端交投情绪环比基
+篮球传奇巨星沙奎尔·奥尼尔近日与礼来公司旗下药物Zepbound（替西帕肽）联合发起名为“Watch This”的全国性宣传活动。奥尼尔在活动中首次公开了自己多年来与中度阻塞性睡眠呼吸暂停共存，并最终通过药物治疗获得改善的经历。 奥尼尔坦言，多年来他一直忍受着日间疲劳、夜间打鼾和注意力难以集中等问题，但一直以为这只是自己体型庞大带来的正常现象。直到医生诊断他患有中度阻塞性睡眠呼
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月17日整体小幅回落。
+篮球传奇巨星沙奎尔·奥尼尔近日与礼来公司旗下药物Zepbound（替西帕肽）联合发起名为“Watch This”的全国性宣传活动。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9925元，较昨日微幅下跌2元，连续两日回落并创下三天以来最低。
+奥尼尔在活动中首次公开了自己多年来与中度阻塞性睡眠呼吸暂停共存，并最终通过药物治疗获得改善的经历。
 
-今日总价虽然自6月15日创下的23天以来最高位持续回落，但仍处于进入六月以来相对高位，终端交投情绪环比基本稳定，但核心单品的涨跌分化依然显著。
+奥尼尔坦言，多年来他一直忍受着日间疲劳、夜间打鼾和注意力难以集中等问题，但一直以为这只是自己体型庞大带来的正常现象。
 
-今日11大白酒单品四涨六跌一平，输家占据优势。
+直到医生诊断他患有中度阻塞性睡眠呼吸暂停，他才意识到这是一个需要严肃对待的健康问题。
 
-上涨方面，青花郎涨幅居前，上涨7元/瓶，重新站上700元关口，创进入六月以来最高价；五粮液普五八代与五粮液1618均上涨5元/瓶，其中后者创近一月最大单日涨幅，自昨日创下的近一月最低点快速升至近一月次高位；水晶剑南春小幅上涨1元/瓶。
+在医生的处方下，奥尼尔开始使用Zepbound，这在他的治疗过程中带来了改变，他还因此减轻了一些体重。
 
-下跌方面，古井贡古20跌幅居前，下跌5元/瓶；国窖1573、洋河梦之蓝M6+与习酒君品均下跌4元/瓶，其中国窖1573连续两日回落，但仍守住880元关口，洋河梦之蓝M6+再度跌落600元大关，习酒君品结束此前三连阳，但仍处于进入六月以来高位；飞天茅台下跌2元/瓶；青花汾20小幅下跌1元/瓶，价格回落至月内最低位。
+阻塞性睡眠呼吸暂停是一种与肥胖密切相关的疾病，患者睡眠时呼吸会反复中断。
 
-精品茅台价格环比保持不变。
+据估计，美国约有2400万成年人患有中度至重度阻塞性睡眠呼吸暂停，其中高达85%的病例未被诊断。
 
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+2024年底，Zepbound获得美国食品药品监督管理局批准，用于治疗肥胖伴中度至重度阻塞性睡眠呼吸暂停的成年患者，成为该适应症领域的首个处方药。
 
 ## 相关推荐
 
-- 2026-06-30 08:57 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-30 08:55 - [日本博主：日本足球真的垃圾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
-- 2026-06-30 08:34 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
-- 2026-06-30 08:50 - [为什么小组赛出局会让韩国人破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-30 08:36 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-30 08:39 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
-- 2026-06-30 08:43 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-30 08:55 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-30 08:42 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-30 08:34 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-30 08:58 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
-- 2026-06-30 08:31 - [板面：为什么那么多人爱吃？？！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
-- 2026-06-30 08:31 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-30 08:46 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-30 08:48 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-30 08:58 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-30 09:01 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-30 08:41 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-30 08:43 - [古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-30 08:40 - [点球大战和诺伊尔都救不回德国队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-30 08:52 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-30 09:03 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-30 09:01 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
+- 2026-06-30 08:51 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-30 08:59 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
+- 2026-06-30 08:44 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
+- 2026-06-30 08:54 - [男子在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-30 08:40 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:47 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/070525031199.shtml)
-- 2026-06-30 08:54 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.kurohicncr.top/Article/details/1422952.shtml)
-- 2026-06-30 08:40 - [男子中医院拔火罐致浅2度烧伤](https://www.share.minike.top/Article/details/314703.shtml)
-- 2026-06-30 08:50 - [巴西绝杀日本](http://www.share.kurohicncr.top/Article/details/363739777002.shtml)
-- 2026-06-30 08:40 - [内马尔替补](http://www.blog.minike.top/Article/details/24995.shtml)
-- 2026-06-30 08:46 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/67946550.shtml)
-- 2026-06-30 08:35 - [古代人对纳妾的态度是什么样的？](https://www.blog.minike.top/Article/details/75868987042.shtml)
-- 2026-06-30 08:59 - [日本遭读秒绝杀 森保一：我水平不够](https://www.share.minike.top/Article/details/71910.shtml)
-- 2026-06-30 08:45 - [内马尔替补](http://www.blog.minike.top/Article/details/8439656.shtml)
-- 2026-06-30 08:40 - [老外对中国cosplay竟这样评价…](http://www.share.minike.top/Article/details/8162308.shtml)
-- 2026-06-30 08:40 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/6874937861.shtml)
-- 2026-06-30 08:35 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/793108.shtml)
-- 2026-06-30 08:44 - [关晓彤一路小跑迎接爸爸探班](https://www.share.kurohicncr.top/Article/details/0299104365.shtml)
-- 2026-06-30 08:39 - [iPhone18e曝光](http://www.blog.minike.top/Article/details/37203992212.shtml)
-- 2026-06-30 08:30 - [巴西足球能否再现昔日荣光](http://www.share.minike.top/Article/details/439095.shtml)
+- 2026-06-30 09:04 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.minike.top/Article/details/55461400.shtml)
+- 2026-06-30 09:05 - [有酒店推行24小时退房制](https://www.share.minike.top/Article/details/0148199.shtml)
+- 2026-06-30 08:58 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/667500980.shtml)
+- 2026-06-30 09:04 - [世界杯欧洲队7战南美仅1胜](http://www.blog.kurohicncr.top/Article/details/696023999962.shtml)
+- 2026-06-30 08:48 - [巴拉圭率先破门](http://www.blog.minike.top/Article/details/89644.shtml)
+- 2026-06-30 09:01 - [起风了](http://www.blog.kurohicncr.top/Article/details/1346235175.shtml)
+- 2026-06-30 08:58 - [一生一世](http://www.share.kurohicncr.top/Article/details/34388.shtml)
+- 2026-06-30 08:39 - [逃狱兄弟](http://www.blog.minike.top/Article/details/458226.shtml)
+- 2026-06-30 08:51 - [泰山景区回应修建刀片刺绳隔离网](http://www.blog.kurohicncr.top/Article/details/0347831500.shtml)
+- 2026-06-30 08:55 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/3208460510.shtml)
+- 2026-06-30 08:53 - [巴西2-1绝杀日本](https://www.blog.kurohicncr.top/Article/details/692141.shtml)
+- 2026-06-30 08:56 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/860727571830.shtml)
+- 2026-06-30 08:38 - [巴西vs日本](http://www.share.kurohicncr.top/Article/details/86071.shtml)
+- 2026-06-30 08:59 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/1875583.shtml)
+- 2026-06-30 08:46 - [“荒唐”背后的韩国足球](https://www.share.minike.top/Article/details/60717496011.shtml)

@@ -1,50 +1,58 @@
-# 深圳市市场监督管理局集中约谈美团、淘宝闪购和京东外卖平台
+# 中缅企业南宁精准对接 拓展特色产品贸易与投资合作空间
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-中新网6月16日电 据“深圳市场监管”微信公众号消息，针对6月15日全市打击“幽灵外卖”统一执法行动发现的网络餐饮食品安全突出问题，深圳市市场监督管理局依法对美团、淘宝闪购、京东外卖三家网络餐饮平台驻深运营机构负责人进行约谈，现场送达《严格落实网络餐饮平台食品安全主体责任提醒敦促函》。约谈要求，平台要严格对照统一执法行动中发现的虚假地址、一址多店、证照不符、部分门店环境卫生脏乱
+中新网南宁6月9日电 (杨陈 林浩)2026中国(广西)—缅甸贸易投资推介会暨企业对接活动、桂字号—广西品牌天下行推介活动9日在南宁举办。活动为中国采购商、投资商与缅甸供应商搭建精准对接渠道，吸引中缅政界代表、约200家企业及商协会代表，围绕扩大双边出口规模、促进双向投资共商合作，推动双边经贸合作再上新台阶。 本次活动由缅甸联邦共和国驻南宁总领事馆与广西壮族自治区商务厅、广西壮
 
 ## 正文
 
-中新网6月16日电 据“深圳市场监管”微信公众号消息，针对6月15日全市打击“幽灵外卖”统一执法行动发现的网络餐饮食品安全突出问题，深圳市市场监督管理局依法对美团、淘宝闪购、京东外卖三家网络餐饮平台驻深运营机构负责人进行约谈，现场送达《严格落实网络餐饮平台食品安全主体责任提醒敦促函》。
+中新网南宁6月9日电 (杨陈 林浩)2026中国(广西)—缅甸贸易投资推介会暨企业对接活动、桂字号—广西品牌天下行推介活动9日在南宁举办。
 
-约谈要求，平台要严格对照统一执法行动中发现的虚假地址、一址多店、证照不符、部分门店环境卫生脏乱差等问题，立即启动全面整改，深入开展自查自纠，举一反三堵塞管理漏洞，确保问题见底清零。
+活动为中国采购商、投资商与缅甸供应商搭建精准对接渠道，吸引中缅政界代表、约200家企业及商协会代表，围绕扩大双边出口规模、促进双向投资共商合作，推动双边经贸合作再上新台阶。
 
-约谈强调，平台必须严格落实《中华人民共和国电子商务法》《中华人民共和国食品安全法》，以及《网络餐饮服务经营者落实食品安全主体责任监督管理规定》等法律法规，落实食品安全主体责任，从严审核入网资质，实地核验门店与证照信息，严禁无证、套证、假证商户上线，严禁跨店委托加工，健全常态化风险排查机制，自觉践行社会责任，坚决防范“幽灵外卖”乱象反弹，切实筑牢网络餐饮食品安全防线，全力守护市民群众“舌尖上的安全”。
+本次活动由缅甸联邦共和国驻南宁总领事馆与广西壮族自治区商务厅、广西壮族自治区市场监督管理局、广西贸促会共同主办，中国—东盟经贸中心作为支持单位。
 
-美团、淘宝闪购、京东外卖三家平台负责人当场认领全部通报问题，表态要进一步扛起食品安全主体责任，对通报问题马上整改，做实入网商家资质审核，举一反三清退虚假地址、证照不符商户，坚决杜绝类似情况再发生。
+缅甸共组织进出口、物流、医疗、公共交通等60家企业参会，广西方组织百余家金融、物流、贸易、矿产等企业商协会对接，双方紧扣扩大双边出口规模、促进双向投资的目标，深入对接交流。
+
+广西壮族自治区商务厅副厅长陈彦武在活动致辞中介绍，广西与缅甸地缘相近、人文相通、产业互补，近年来，广西推动桂缅贸易规模持续攀升，合作韧性不断增强。
+
+今年1—4月，广西与缅甸贸易额达5.2亿元人民币，同比增长44%，继续保持高速增长势头。
+
+同时，桂缅投资合作稳步推进，领域不断拓展延伸。
+
+当前，广西企业积极赴缅投资，在农业种植、矿产开发、加工制造等领域落地一批项目，助力缅甸农业提质增效，矿产开采加工能力提升。
 
 ## 相关推荐
 
-- 2026-06-30 08:36 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
-- 2026-06-30 08:46 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
-- 2026-06-30 08:35 - [刘宇宁高情商化解谁站C位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-30 08:39 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
-- 2026-06-30 08:43 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-30 08:46 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-30 08:46 - [存储芯片龙头提示风险](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
-- 2026-06-30 08:50 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
-- 2026-06-30 08:57 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-30 08:30 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-30 08:31 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-30 08:41 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-30 08:37 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-30 09:00 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-30 09:01 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-30 09:04 - [日本五次世界杯淘汰赛全败](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-30 08:56 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-30 09:04 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-30 08:47 - [为什么小组赛出局会让韩国人破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-30 08:54 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-30 08:39 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-30 08:51 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-30 09:04 - [杨紫肖战余生请多指教拍立得](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-30 08:52 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:46 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/87564844.shtml)
-- 2026-06-30 08:42 - [马耳他著名拱门坍塌致中国男子身亡](https://www.blog.kurohicncr.top/Article/details/1394892492.shtml)
-- 2026-06-30 08:41 - [三星投资计划](https://www.blog.kurohicncr.top/Article/details/91258.shtml)
-- 2026-06-30 08:30 - [输球后日本球迷被强行披上巴西国旗](http://www.blog.kurohicncr.top/Article/details/0093883338.shtml)
-- 2026-06-30 08:40 - [德国巴拉圭 折磨](http://www.share.kurohicncr.top/Article/details/09297.shtml)
-- 2026-06-30 08:35 - [杨紫被质疑未使用原名](http://www.share.kurohicncr.top/Article/details/15032.shtml)
-- 2026-06-30 08:48 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/264580488.shtml)
-- 2026-06-30 08:56 - [“草莓月亮”浪漫现身](http://www.share.minike.top/Article/details/23525649.shtml)
-- 2026-06-30 08:49 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://www.share.minike.top/Article/details/62904174.shtml)
-- 2026-06-30 08:39 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/29414399.shtml)
-- 2026-06-30 08:55 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/11673379.shtml)
-- 2026-06-30 08:57 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.minike.top/Article/details/2487530420.shtml)
-- 2026-06-30 08:46 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/6990884.shtml)
-- 2026-06-30 08:38 - [送你一朵小红花](http://www.blog.minike.top/Article/details/469817752.shtml)
-- 2026-06-30 08:50 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/70231964331.shtml)
+- 2026-06-30 08:57 - [曝老詹对自由市场态度与以往截然不同](http://www.blog.kurohicncr.top/Article/details/9075640.shtml)
+- 2026-06-30 08:49 - [世界杯名画巴拉圭钢铁防线](https://www.share.kurohicncr.top/Article/details/996478338.shtml)
+- 2026-06-30 09:04 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/9108738.shtml)
+- 2026-06-30 08:52 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/0979376.shtml)
+- 2026-06-30 08:52 - [男子造谣东鹏老板不喝自家饮料被拘](http://www.blog.minike.top/Article/details/99896.shtml)
+- 2026-06-30 08:50 - [内马尔中场休息积极鼓励队友](http://www.share.minike.top/Article/details/88481797.shtml)
+- 2026-06-30 08:56 - [森保一致歉：世界第一目标没能实现](https://www.blog.kurohicncr.top/Article/details/2188445522.shtml)
+- 2026-06-30 08:44 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/75017527524.shtml)
+- 2026-06-30 08:44 - [一见倾心](https://www.share.kurohicncr.top/Article/details/957217268110.shtml)
+- 2026-06-30 09:04 - [“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/556066838.shtml)
+- 2026-06-30 08:51 - [亚洲球队全部出局](https://www.share.kurohicncr.top/Article/details/93991024.shtml)
+- 2026-06-30 08:45 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/47478920091.shtml)
+- 2026-06-30 08:48 - [这几秒成世界杯最值钱广告位](https://www.share.kurohicncr.top/Article/details/1502491730.shtml)
+- 2026-06-30 08:39 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/70175843.shtml)
+- 2026-06-30 08:53 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/8669523365.shtml)

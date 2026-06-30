@@ -1,58 +1,56 @@
-# 一周涨近8%！黄金价格上演“过山车”行情，多家银行出手了
+# 国际锐评丨“四个坚持”引领新时代中朝关系续写新篇
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-近日，黄金价格出现明显回暖。截至6月17日界面新闻发稿，现货黄金报4339.59美元/盎司，上涨了0.19%。6月10日，现货黄金一度跌到4023.1美元/盎司的近期低点，随后出现明显反弹，上涨幅度达到7.87%。 面对金价“过山车”行情带来的风险敞口，近期银行密集升级贵金属业务风控体系，从上调保证金比例、实施动态限额管理、调整业务门槛与费率、收紧涨跌停板限制等多维度收紧业务边
+两党两国最高领导人共商中朝关系发展大计、共同出席多场活动、共同种下象征友谊生生不息的枞树……应朝鲜劳动党总书记、国务委员长金正恩邀请，中共中央总书记、国家主席习近平6月8日至9日对朝鲜进行国事访问。其间，两党两国最高领导人对新时期中朝关系作出顶层设计和战略指引，一致认为要从社会主义前途命运的战略高度，把握时代大势，推动中朝关系高水平发展。朝鲜《劳动新闻》发表社论称，“习近平同志
 
 ## 正文
 
-近日，黄金价格出现明显回暖。
+两党两国最高领导人共商中朝关系发展大计、共同出席多场活动、共同种下象征友谊生生不息的枞树……应朝鲜劳动党总书记、国务委员长金正恩邀请，中共中央总书记、国家主席习近平6月8日至9日对朝鲜进行国事访问。
 
-截至6月17日界面新闻发稿，现货黄金报4339.59美元/盎司，上涨了0.19%。
+其间，两党两国最高领导人对新时期中朝关系作出顶层设计和战略指引，一致认为要从社会主义前途命运的战略高度，把握时代大势，推动中朝关系高水平发展。
 
-6月10日，现货黄金一度跌到4023.1美元/盎司的近期低点，随后出现明显反弹，上涨幅度达到7.87%。
+朝鲜《劳动新闻》发表社论称，“习近平同志此访具有深远意义”，“不断深化发展的朝中友好关系具有强大生命力”。
 
-面对金价“过山车”行情带来的风险敞口，近期银行密集升级贵金属业务风控体系，从上调保证金比例、实施动态限额管理、调整业务门槛与费率、收紧涨跌停板限制等多维度收紧业务边界，以防范客户穿仓风险及自身经营损失。
+中朝两国都是共产党领导的社会主义国家，世代友好、命运与共、守望相助始终是中朝关系的鲜明特征。
 
-6月以来，保证金方面，针对代理个人贵金属延期业务（如Au（T+D）），工行、建行于近日将保证金从100%上调至‌120%‌，农行跟进。
+今年是《中朝友好合作互助条约》签订65周年。
 
-此前工行、农行、建行等将代理个人贵金属延期业务保证金比例由80%上调至100%。
+这次访问是习近平总书记时隔7年再次对朝鲜进行国事访问，也是今年首次出访。
 
-除了上调保证金比例之外，动态限额成为常态化风控手段。
+朝方以“最隆重礼遇欢迎最尊贵客人”。
 
-工行在周末及法定节假日对如意金积存业务实施动态限额管理，建行对“建行金”实施动态交易限额管理，当日额度耗尽后无法继续买入。
+这不仅展现出中朝牢不可破的传统友谊，也表明最高层战略引领是中朝关系的最大优势。
 
 ## 相关推荐
 
-- 2026-06-30 08:35 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-30 08:57 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
-- 2026-06-30 08:38 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-30 08:33 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-30 08:39 - [大蒜晒外面被路过女子连盆端走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
-- 2026-06-30 08:33 - [日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
-- 2026-06-30 08:34 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
-- 2026-06-30 08:49 - [世界杯欧洲队7战南美仅1胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-30 08:55 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
-- 2026-06-30 08:33 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-30 08:42 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-30 08:37 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-30 08:54 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-30 08:59 - [日本球迷输球后集体捡垃圾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-30 08:48 - [日本博主：日本足球真的垃圾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
+- 2026-06-30 08:43 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-30 08:38 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-30 08:54 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-30 08:59 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
+- 2026-06-30 08:52 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-30 08:45 - [杨紫学位证上就是杨紫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-30 08:45 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:44 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/75331022462.shtml)
-- 2026-06-30 08:41 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/61005574.shtml)
-- 2026-06-30 08:45 - [老外对中国cosplay竟这样评价…](https://www.share.kurohicncr.top/Article/details/30515.shtml)
-- 2026-06-30 08:32 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/62485.shtml)
-- 2026-06-30 08:54 - [杨紫学位证上就是杨紫](http://www.blog.kurohicncr.top/Article/details/423620029307.shtml)
-- 2026-06-30 08:48 - [德国 传控](https://www.share.minike.top/Article/details/3201011.shtml)
-- 2026-06-30 08:55 - [荷兰vs摩洛哥](http://www.share.minike.top/Article/details/386361706927.shtml)
-- 2026-06-30 08:51 - [一生一世](http://www.blog.minike.top/Article/details/805736.shtml)
-- 2026-06-30 08:33 - [日本队5进世界杯淘汰赛0胜](https://www.share.kurohicncr.top/Article/details/1174183.shtml)
-- 2026-06-30 08:39 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/34348047679.shtml)
-- 2026-06-30 08:41 - [巴西绝杀日本](https://www.share.minike.top/Article/details/4992104360.shtml)
-- 2026-06-30 08:32 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/043116750775.shtml)
-- 2026-06-30 08:41 - [王楚钦孙颖莎晋级混双八强](http://www.share.kurohicncr.top/Article/details/67728.shtml)
-- 2026-06-30 08:49 - [德国爆冷点球大战不敌巴拉圭](http://www.blog.kurohicncr.top/Article/details/867664.shtml)
-- 2026-06-30 08:37 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/41030351.shtml)
+- 2026-06-30 08:52 - [小勒布伦WTT美国大满贯开门红](http://www.blog.kurohicncr.top/Article/details/15551582.shtml)
+- 2026-06-30 08:52 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/751751070522.shtml)
+- 2026-06-30 09:02 - [曝iPhone18Pro机密文件现身暗网](http://www.share.kurohicncr.top/Article/details/169580.shtml)
+- 2026-06-30 08:41 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/545911918.shtml)
+- 2026-06-30 08:47 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/4270608.shtml)
+- 2026-06-30 08:43 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/745265.shtml)
+- 2026-06-30 08:58 - [诺伊尔尽力了](http://www.blog.kurohicncr.top/Article/details/337474117900.shtml)
+- 2026-06-30 08:51 - [日本球迷被强行披上巴西国旗](http://www.share.kurohicncr.top/Article/details/7518221045.shtml)
+- 2026-06-30 08:42 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/0993337918.shtml)
+- 2026-06-30 09:00 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/38929229.shtml)
+- 2026-06-30 08:45 - [第一炉香](http://www.blog.minike.top/Article/details/268038557.shtml)
+- 2026-06-30 08:48 - [板面：为什么那么多人爱吃？？！](https://www.blog.kurohicncr.top/Article/details/8812492.shtml)
+- 2026-06-30 08:47 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.kurohicncr.top/Article/details/000875306.shtml)
+- 2026-06-30 09:01 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/100515424723.shtml)
+- 2026-06-30 08:52 - [巴拉圭点球大战淘汰德国进16强](http://www.blog.minike.top/Article/details/87090614.shtml)

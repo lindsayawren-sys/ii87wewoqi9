@@ -1,59 +1,59 @@
-# “四川绵阳近期开通地铁一号线”不实（2026·06·16）
+# 国家统计局：2026年5月份工业生产者出厂价格同比上涨3.9% 环比上涨0.5%
 
-> 更新时间：2026-06-30 09:00:02 UTC+8
+> 更新时间：2026-06-30 09:06:03 UTC+8
 
 ## 摘要
 
-辟谣 “四川绵阳近期开通地铁一号线”不实 详情：近日，有网民发布“四川绵阳地铁1号线开通”相关视频，引发关注。经四川省绵阳市发改委核实，该信息系谣言。绵阳市暂未启动城市轨道交通规划、建设等相关工作。网传内容张冠李戴，将外市地铁视频嫁接至绵阳，散布不实信息，扰乱网络秩序。目前，相关谣言线索已依法移交公安部门。(来源：四川互联网举报辟谣平台、绵阳市网络举报联合辟谣平台) 科普 高考
+国家统计局：2026年5月份居民消费价格同比上涨1.2% 国家统计局董莉娟解读5月CPI和PPI数据：2026年5月份CPI总体平稳 PPI继续上涨 2026年5月份，全国工业生产者出厂价格同比上涨3.9%，环比上涨0.5%。工业生产者购进价格同比上涨5.8%，环比上涨1.3%。1—5月平均，工业生产者出厂价格比上年同期上涨1.0%，工业生产者购进价格上涨1.6%。 一、工业生
 
 ## 正文
 
-辟谣 “四川绵阳近期开通地铁一号线”不实 详情：近日，有网民发布“四川绵阳地铁1号线开通”相关视频，引发关注。
+国家统计局：2026年5月份居民消费价格同比上涨1.2% 国家统计局董莉娟解读5月CPI和PPI数据：2026年5月份CPI总体平稳 PPI继续上涨 2026年5月份，全国工业生产者出厂价格同比上涨3.9%，环比上涨0.5%。
 
-经四川省绵阳市发改委核实，该信息系谣言。
+工业生产者购进价格同比上涨5.8%，环比上涨1.3%。
 
-绵阳市暂未启动城市轨道交通规划、建设等相关工作。
+1—5月平均，工业生产者出厂价格比上年同期上涨1.0%，工业生产者购进价格上涨1.6%。
 
-网传内容张冠李戴，将外市地铁视频嫁接至绵阳，散布不实信息，扰乱网络秩序。
+一、工业生产者价格同比变动情况 5月份，工业生产者出厂价格中，生产资料价格同比上涨5.2%，影响工业生产者出厂价格总水平上涨约4.08个百分点。
 
-目前，相关谣言线索已依法移交公安部门。
+其中，采掘工业价格上涨15.8%，原材料工业价格上涨9.2%，加工工业价格上涨2.3%。
 
-(来源：四川互联网举报辟谣平台、绵阳市网络举报联合辟谣平台) 科普 高考后，警惕三类升学骗局 详情：高考结束，考生和家长进入等待出分、填报志愿、接收录取通知书的关键阶段，也是涉考诈骗高发期。
+生活资料价格下降0.8%，影响工业生产者出厂价格总水平下降约0.18个百分点。
 
-广大考生和家长务必提高警惕，谨防上当受骗，共同守护高考的公平与安全。
+其中，食品价格下降1.8%，衣着和一般日用品价格均下降1.0%，耐用消费品价格持平。
 
-典型骗局及诈骗手法拆解 恐吓型：“AI监考发现作弊，成绩清零” 高考结束后，四川、山东、海南、浙江、江西等多省考生均收到过冒充省教育考试院发送短信，称“AI监控发现你斜视偷看答题卡，成绩计为0分”。
+工业生产者购进价格中，有色金属材料及电线类价格上涨22.0%，化工原料类价格上涨11.8%，燃料动力类价格上涨10.0%，纺织原料类价格上涨2.5%，黑色金属材料类价格上涨0.3%；建筑材料及非金属类价格下降5.5%，农副产品类价格下降1.6%。
 
 ## 相关推荐
 
-- 2026-06-30 08:45 - [欧洲装一台空调有多难](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
-- 2026-06-30 08:44 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-30 08:35 - [日本五次世界杯淘汰赛全败](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-30 08:40 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-30 08:37 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-30 08:53 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-30 08:43 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-30 08:36 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-30 08:50 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-30 08:34 - [德国队连续三届世界杯无缘16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
-- 2026-06-30 08:49 - [世界杯巴拉圭点球淘汰德国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
-- 2026-06-30 08:52 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-30 08:36 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
+- 2026-06-30 09:02 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-30 08:49 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-30 09:01 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-30 09:00 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
+- 2026-06-30 08:56 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
+- 2026-06-30 08:52 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-30 08:48 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-30 08:36 - [日本五次世界杯淘汰赛全败](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-30 08:54 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-30 08:53 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-30 09:01 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-30 08:37 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-30 08:52 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:49 - [萨内 看笑了](https://www.blog.minike.top/Article/details/473146480881.shtml)
-- 2026-06-30 08:58 - [点球大战 残酷](http://www.share.minike.top/Article/details/88663.shtml)
-- 2026-06-30 08:47 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/6042245.shtml)
-- 2026-06-30 08:59 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/963761254.shtml)
-- 2026-06-30 08:36 - [王欣瑜2-1击败科恰雷托](https://www.share.kurohicncr.top/Article/details/19392063412.shtml)
-- 2026-06-30 08:35 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.kurohicncr.top/Article/details/238780.shtml)
-- 2026-06-30 08:37 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/66795686775.shtml)
-- 2026-06-30 08:49 - [男子身高一米八二仍做断骨增高](http://www.blog.minike.top/Article/details/719083598.shtml)
-- 2026-06-30 08:40 - [日本半场1比0领先巴西](https://www.share.kurohicncr.top/Article/details/843260719.shtml)
-- 2026-06-30 08:30 - [本届世界杯已有5名球员被控强奸](http://www.share.kurohicncr.top/Article/details/90547.shtml)
-- 2026-06-30 08:50 - [请回答王牌2019](https://www.blog.minike.top/Article/details/891350012635.shtml)
-- 2026-06-30 08:34 - [诺伊尔尽力了](https://www.share.minike.top/Article/details/02949954351.shtml)
-- 2026-06-30 08:41 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.minike.top/Article/details/762797794736.shtml)
-- 2026-06-30 08:51 - [补时绝杀 巴西2-1淘汰日本](http://www.share.kurohicncr.top/Article/details/951327828.shtml)
-- 2026-06-30 08:39 - [感动全网的699分女生想报考清华](https://www.share.minike.top/Article/details/348399494.shtml)
+- 2026-06-30 09:04 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/47990.shtml)
+- 2026-06-30 08:52 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/6586223748.shtml)
+- 2026-06-30 08:45 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/206447124.shtml)
+- 2026-06-30 08:46 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/500906.shtml)
+- 2026-06-30 08:45 - [点球大战](https://www.share.kurohicncr.top/Article/details/16362.shtml)
+- 2026-06-30 09:02 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/43291596643.shtml)
+- 2026-06-30 09:02 - [武磊：日本队有能力跟任何强队抗衡](http://www.share.kurohicncr.top/Article/details/786303358843.shtml)
+- 2026-06-30 09:02 - [德国队世界杯点球大战首败](http://www.blog.kurohicncr.top/Article/details/250832543183.shtml)
+- 2026-06-30 08:37 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.share.kurohicncr.top/Article/details/57773250.shtml)
+- 2026-06-30 09:05 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/1385088.shtml)
+- 2026-06-30 08:58 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/9484649414.shtml)
+- 2026-06-30 08:53 - [中国新一轮出口管制直指日本命脉](https://www.share.kurohicncr.top/Article/details/352276695.shtml)
+- 2026-06-30 08:44 - [三星投资计划](https://www.blog.kurohicncr.top/Article/details/651756.shtml)
+- 2026-06-30 09:01 - [这种关系可能正在悄悄“催老”你](https://www.blog.minike.top/Article/details/6036155937.shtml)
+- 2026-06-30 08:44 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/60542233.shtml)
