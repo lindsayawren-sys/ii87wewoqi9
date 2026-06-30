@@ -1,61 +1,57 @@
-# 直播海报：山歌响粉飘香 三月三里醉春光
+# “客韵同音·两岸同源”海峡两岸客俗文化交流活动在河源举行
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-为啥“100%果汁”，配料表第一位是水？贪得无厌美利坚，“吃拿卡要”每一天从“谭警官”到“谭sir”：一位“交警网红”的变与不变苏林去的这所大学，太宝藏了吧！开赛前两个月已爆单 义乌点燃世界杯经济明起较强冷空气将影响我国，局地降温10℃以上创历史！11名中国选手晋级斯诺克世锦赛正赛中东战火冲击全球，中国经济开门红展现韧性一季度中国经济成绩单现五大亮点中东局势推高燃油成本 航空公
+中新社广东河源6月24日电 (记者 张璐)第二届海峡两岸民俗文体汇“客韵同音·两岸同源”海峡两岸客俗文化交流活动与“爱在岭南·粤台姐妹同心”助力乡村融合交流活动24日在河源拉开帷幕。 据悉，此次活动为期5天。近200名台湾同胞将通过非遗展演、民俗体验、实地参访、公益互动等多元形式，共同感受河源客家文化的魅力，共叙两岸同根同源的血脉情谊。 “我们期待通过参访以及文化体验等活动，学
 
 ## 正文
 
-为啥“100%果汁”，配料表第一位是水？
+中新社广东河源6月24日电 (记者 张璐)第二届海峡两岸民俗文体汇“客韵同音·两岸同源”海峡两岸客俗文化交流活动与“爱在岭南·粤台姐妹同心”助力乡村融合交流活动24日在河源拉开帷幕。
 
-贪得无厌美利坚，“吃拿卡要”每一天从“谭警官”到“谭sir”：一位“交警网红”的变与不变苏林去的这所大学，太宝藏了吧！
+据悉，此次活动为期5天。
 
-开赛前两个月已爆单 义乌点燃世界杯经济明起较强冷空气将影响我国，局地降温10℃以上创历史！
+近200名台湾同胞将通过非遗展演、民俗体验、实地参访、公益互动等多元形式，共同感受河源客家文化的魅力，共叙两岸同根同源的血脉情谊。
 
-11名中国选手晋级斯诺克世锦赛正赛中东战火冲击全球，中国经济开门红展现韧性一季度中国经济成绩单现五大亮点中东局势推高燃油成本 航空公司削减航班运力10小时、2400公里！
+“我们期待通过参访以及文化体验等活动，学习河源在客家文化保存与发展方面的宝贵经验。
 
-苏林再坐中国高铁，背后深意耐人寻味法国国民议会通过文物返还法案，大量流失文物能否顺利回家？
+”台湾碧霞乡土客家民谣剧团团长、台湾青年李婷茵接受采访时表示，她期待未来两岸能持续保持交流与合作，携手推动客家文化的传承与发扬，让客家精神在新时代绽放更加耀眼的光彩。
 
-开局良好！
+“我作为客家人，曾经多次来到河源，并和当地的青年用客家话交流，感觉很亲切。
 
-一图读懂中国经济一季报亮点杀敌八百，自损八千台湾教师王孟筠：台湾同胞在两岸文化交流中增进民族归属感海丝古港、世遗土楼……人这一辈子，一定要去一趟漳州！
+通过这次活动，我和更多台湾同胞一起体验河源的民俗活动，进一步了解河源的客家文化。
 
-苏林当选越南国家主席后首次外访，为何选择中国？
+”来自台湾苗栗的徐铭鸿表示，他期待通过更多的两岸交流活动，拉近两岸客家乡亲的距离。
 
 ## 相关推荐
 
-- 2026-06-30 09:10 - 杨紫大银幕成绩单<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md
-- 2026-06-30 09:18 - 有人见过武则天的画像吗，非常好奇？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md
-- 2026-06-30 09:23 - 四川凉山落石砸毁车辆 3人遇难<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md
-- 2026-06-30 09:03 - 杨紫学位证上就是杨紫<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md
-- 2026-06-30 08:58 - 恐怖世界 第三集 埃温霍姆村<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md
-- 2026-06-30 08:57 - 有什么好的高中网课推荐吗？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md
-- 2026-06-30 09:05 - 荷兰vs摩洛哥<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md
-- 2026-06-30 09:10 - 中国代表在联合国点名日本所犯罪行<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md
-- 2026-06-30 09:19 - 巴拉圭率先破门<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md
-- 2026-06-30 09:05 - 奔跑吧·黄河篇第二季<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md
-- 2026-06-30 08:56 - 啥比桑吉尔夫排位练蓝防（最不抽象的一集）<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md
-- 2026-06-30 09:19 - 马航MH370传来最新消息<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md
-- 2026-06-30 09:15 - 电子游戏中有哪些关于武器的“刻板印象”？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md
-- 2026-06-30 09:13 - 如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md
-- 2026-06-30 09:04 - 如何改变自己太负责任的性格?<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md
+- 2026-06-30 09:08 - 泰山建135公里刀片刺绳隔离网<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md
+- 2026-06-30 09:00 - 荀彧和曹操反目成仇的根本原因是什么？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md
+- 2026-06-30 09:10 - 马宁怒怼巴拉圭教练组<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md
+- 2026-06-30 08:54 - 苗族银饰<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md
+- 2026-06-30 09:01 - 领克900大型SUV值得购买吗?<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md
+- 2026-06-30 09:00 - 失明的我带老妈去了趟“火星”<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md
+- 2026-06-30 09:14 - 赵今麦因“瘦而不柴”的体态出圈<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md
+- 2026-06-30 09:01 - 点球大战和诺伊尔都救不回德国队<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md
+- 2026-06-30 09:01 - 男子在京东买到“同仁堂”假药<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md
+- 2026-06-30 08:58 - “以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md
+- 2026-06-30 09:06 - 恋与深空道歉声明<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:18 - 女子健身不当 居然“脑子漏水”了<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/95970.shtml
-- 2026-06-30 09:02 - 美股深夜大反弹 特斯拉飙涨8%<br><br> | ??:http://www.share.kurohicncr.top/Article/details/441927434414.shtml
-- 2026-06-30 09:17 - 名记：灰熊将莫兰特交易至开拓者<br><br> | ??:http://www.share.kurohicncr.top/Article/details/160092.shtml
-- 2026-06-30 09:23 - 如何改变自己太负责任的性格?<br><br> | ??:http://www.blog.minike.top/Article/details/830531406.shtml
-- 2026-06-30 09:05 - 【涤墨作战7人870】望：我从地狱杀回来了！<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/982713056.shtml
-- 2026-06-30 09:19 - 三星投资计划<br><br> | ??:http://www.share.minike.top/Article/details/63415753472.shtml
-- 2026-06-30 09:23 - 媒体：手机测评该挤挤水分了<br><br> | ??:https://www.share.minike.top/Article/details/04712781.shtml
-- 2026-06-30 09:15 - “中国养猪场都用上空调了”！这是真的吗？【主播说三农】<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/017403914.shtml
-- 2026-06-30 09:02 - 徐亮怒斥世界杯踢假球<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/557723175.shtml
-- 2026-06-30 09:09 - 存储芯片龙头提示风险<br><br> | ??:https://www.share.kurohicncr.top/Article/details/9803975365.shtml
-- 2026-06-30 09:16 - 妻子撞死家暴丈夫案二审案情反转<br><br> | ??:http://www.blog.minike.top/Article/details/020241710.shtml
-- 2026-06-30 08:58 - 补时绝杀 巴西2-1淘汰日本<br><br> | ??:http://www.share.kurohicncr.top/Article/details/70756550586.shtml
-- 2026-06-30 09:03 - 法总统候选人：拒绝与中国激烈对抗<br><br> | ??:http://www.share.minike.top/Article/details/81937.shtml
-- 2026-06-30 09:09 - 莫兰特转投开拓者效力<br><br> | ??:http://www.blog.minike.top/Article/details/580675827.shtml
-- 2026-06-30 09:17 - 沙丘<br><br> | ??:http://www.blog.minike.top/Article/details/572838150.shtml
+- 2026-06-30 09:20 - 日本球迷输球后集体捡垃圾<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/4893837787.shtml
+- 2026-06-30 09:20 - 4000美元是黄金新一轮下跌的开始吗<br><br> | ??:https://www.blog.minike.top/Article/details/635792.shtml
+- 2026-06-30 09:04 - 三星投资计划<br><br> | ??:http://www.share.kurohicncr.top/Article/details/6699832036.shtml
+- 2026-06-30 08:57 - 美人鱼<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/6260856003.shtml
+- 2026-06-30 09:08 - 女子发现孩子非现任亲生状告前任索赔<br><br> | ??:https://www.share.kurohicncr.top/Article/details/239577096519.shtml
+- 2026-06-30 09:05 - 巴拉圭先进球了<br><br> | ??:https://www.blog.minike.top/Article/details/86621272528.shtml
+- 2026-06-30 09:23 - 峡谷事故团队组队时有人提醒会下雨<br><br> | ??:http://www.share.minike.top/Article/details/30948522.shtml
+- 2026-06-30 08:55 - 流金岁月<br><br> | ??:https://www.share.kurohicncr.top/Article/details/97609891.shtml
+- 2026-06-30 08:57 - 国内最大沙漠发洪水意味着什么<br><br> | ??:https://www.share.minike.top/Article/details/0926145.shtml
+- 2026-06-30 08:59 - 马耳他著名拱门坍塌致一中国男子身亡<br><br> | ??:https://www.share.kurohicncr.top/Article/details/78542500.shtml
+- 2026-06-30 08:56 - 内马尔未登场 安切洛蒂赛后回应<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/572677.shtml
+- 2026-06-30 09:01 - 俄乌双方伤亡近180万人<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/417841677.shtml
+- 2026-06-30 08:55 - 存储芯片龙头提示风险<br><br> | ??:https://www.blog.minike.top/Article/details/2316426.shtml
+- 2026-06-30 08:54 - 媒体评泰山建135公里刀片刺绳隔离网<br><br> | ??:http://www.blog.minike.top/Article/details/2060573.shtml
+- 2026-06-30 09:15 - 87克大金链到老庙黄金维修少了11克<br><br> | ??:http://www.share.kurohicncr.top/Article/details/84025207.shtml

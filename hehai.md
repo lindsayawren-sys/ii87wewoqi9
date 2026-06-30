@@ -1,59 +1,56 @@
-# 消博会观察：海南离岛免税多元升级活力释放
+# 南方两轮强降雨“无缝衔接”，这些灾害前兆学会识别
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-中新社海口4月17日电 (记者 王子谦)弹起电吉他，打起架子鼓，正在此间举行的第六届中国国际消费品博览会(下称消博会)上，国药中服免税展台的音乐会格外吸睛。在这里，主角不是乐队，而是乐器。 “海南全岛封关后，可随身携带的乐器进入免税店销售。”中国出国人员服务有限公司副总经理肖云说，公司正着手打造首家知名乐器品牌免税专卖店，把更多全球顶级电声乐器品牌引入中国免税市场。 今年消博会
+6月中旬起，南方进入降水集中期，江南南部至华南地区强降雨持续，面临今年“龙舟水”最强降雨过程的挑战。接下来，又将面临“七下八上”防汛关键期。那么，哪些地区需重点防范？公众如何做好避险？ 两轮强降雨落区高度重叠，致灾可能性加大 长江中下游及珠江流域进入防汛关键期。广西柳江已发生2026年主要江河第1号洪水，这是今年主要江河首次编号洪水。18日至22日、22日至26日的两场降雨几乎
 
 ## 正文
 
-中新社海口4月17日电 (记者 王子谦)弹起电吉他，打起架子鼓，正在此间举行的第六届中国国际消费品博览会(下称消博会)上，国药中服免税展台的音乐会格外吸睛。
+6月中旬起，南方进入降水集中期，江南南部至华南地区强降雨持续，面临今年“龙舟水”最强降雨过程的挑战。
 
-在这里，主角不是乐队，而是乐器。
+接下来，又将面临“七下八上”防汛关键期。
 
-“海南全岛封关后，可随身携带的乐器进入免税店销售。
+那么，哪些地区需重点防范？
 
-”中国出国人员服务有限公司副总经理肖云说，公司正着手打造首家知名乐器品牌免税专卖店，把更多全球顶级电声乐器品牌引入中国免税市场。
+公众如何做好避险？
 
-今年消博会的免税与高端精品展区，多家海南离岛免税经营企业参展，人头攒动的展台成为火热市场的生动写照。
+两轮强降雨落区高度重叠，致灾可能性加大 长江中下游及珠江流域进入防汛关键期。
 
-海南自贸港封关前夕，离岛免税新政落地。
+广西柳江已发生2026年主要江河第1号洪水，这是今年主要江河首次编号洪水。
 
-在多项利好带动下，自封关以来截至3月31日，离岛免税销售金额162.65亿元(人民币，下同)，购物人数206.97万人次，同比分别增长25.35%和20.63%。
+18日至22日、22日至26日的两场降雨几乎无缝衔接，降雨落区在珠江流域西江上中游、长江中下游干流及洞庭湖、鄱阳湖流域北部等地高度重叠。
 
-在本届消博会上，免税消费多元化、深度化、体验化的特征突出。
+受其影响，西江干流及支流柳江、桂江，长江中下游干流及洞庭湖水系、鄱阳湖水系等多条河流，将出现明显涨水过程。
 
 ## 相关推荐
 
-- 2026-06-30 09:19 - 巴拉圭先进球了<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md
-- 2026-06-30 09:06 - 郑钦文温网一轮游<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md
-- 2026-06-30 09:00 - 你的妻子大喷菇—《植物娘大战僵尸》特别篇<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md
-- 2026-06-30 09:03 - 男子造谣东鹏老板不喝自家饮料被拘<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md
-- 2026-06-30 09:08 - 热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md
-- 2026-06-30 09:22 - 法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md
-- 2026-06-30 09:04 - 主人解开狗绳2只狗将路人撕咬致死<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md
-- 2026-06-30 08:54 - 齐思钧回复张月<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md
-- 2026-06-30 09:21 - 杨紫被质疑未使用原名<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md
-- 2026-06-30 09:18 - 世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md
-- 2026-06-30 09:05 - 本科毕业生为何涌入专科学校<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md
-- 2026-06-30 09:10 - 2026年WTT美国大满贯，国乒自带球桌是真实的吗？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md
-- 2026-06-30 09:15 - 诺伊尔尽力了<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md
+- 2026-06-30 08:54 - 李在明向韩国两大财阀90度鞠躬<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md
+- 2026-06-30 09:04 - 挪威国家队紧急从本土订购大批海鲜<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md
+- 2026-06-30 09:15 - 城市规划有可能成为「屎山代码」吗？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md
+- 2026-06-30 09:10 - 啊啊啊<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md
+- 2026-06-30 09:18 - 恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md
+- 2026-06-30 09:20 - 全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md
+- 2026-06-30 09:13 - 被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md
+- 2026-06-30 08:58 - 商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md
+- 2026-06-30 09:07 - 日本16强魔咒<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md
+- 2026-06-30 09:14 - 泰山景区回应修建刀片刺绳隔离网<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:19 - 请回答王牌2019<br><br> | ??:https://www.blog.minike.top/Article/details/298712674203.shtml
-- 2026-06-30 09:06 - 杨紫肖战余生请多指教拍立得<br><br> | ??:http://www.share.minike.top/Article/details/70260442.shtml
-- 2026-06-30 08:54 - 爱很美味<br><br> | ??:http://www.share.kurohicncr.top/Article/details/44185355379.shtml
-- 2026-06-30 09:02 - 男生180+，有腹肌是什么体验？<br><br> | ??:http://www.share.minike.top/Article/details/581413832898.shtml
-- 2026-06-30 09:13 - 巴西vs日本<br><br> | ??:http://www.share.minike.top/Article/details/4976303792.shtml
-- 2026-06-30 09:00 - 杨紫大银幕成绩单如何<br><br> | ??:http://www.share.minike.top/Article/details/965335118.shtml
-- 2026-06-30 09:09 - 如何改变自己太负责任的性格?<br><br> | ??:https://www.share.minike.top/Article/details/462569.shtml
-- 2026-06-30 09:19 - 韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？<br><br> | ??:https://www.share.minike.top/Article/details/640804183.shtml
-- 2026-06-30 09:17 - 荷兰vs摩洛哥<br><br> | ??:https://www.blog.minike.top/Article/details/9922528666.shtml
-- 2026-06-30 08:58 - 媒体评泰山建135公里刀片刺绳隔离网<br><br> | ??:https://www.share.minike.top/Article/details/18288.shtml
-- 2026-06-30 09:12 - 四川宜宾地震瞬间鱼群乱跳<br><br> | ??:https://www.blog.minike.top/Article/details/9464590414.shtml
-- 2026-06-30 09:09 - 你的妻子大喷菇—《植物娘大战僵尸》特别篇<br><br> | ??:http://www.blog.minike.top/Article/details/5459835947.shtml
-- 2026-06-30 08:59 - 王楚钦说配合稍微有些陌生感<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/51355495340.shtml
-- 2026-06-30 09:16 - 挪威国家队紧急从本土订购大批海鲜<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/723015683.shtml
-- 2026-06-30 08:59 - 失明的我带老妈去了趟“火星”<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/249981726.shtml
+- 2026-06-30 09:20 - 欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？<br><br> | ??:http://www.blog.minike.top/Article/details/7126001291.shtml
+- 2026-06-30 08:55 - 韩国球迷凌晨4点接机怒骂主教练<br><br> | ??:https://www.share.minike.top/Article/details/416685170485.shtml
+- 2026-06-30 08:54 - 我觉得你是在无中生友<br><br> | ??:https://www.share.minike.top/Article/details/41131686179.shtml
+- 2026-06-30 09:11 - 王源近几年没有路演了<br><br> | ??:https://www.blog.minike.top/Article/details/246843350633.shtml
+- 2026-06-30 09:22 - 勇敢的心第二部<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/690212054480.shtml
+- 2026-06-30 08:59 - 佐野海舟远射破门<br><br> | ??:https://www.blog.minike.top/Article/details/050526.shtml
+- 2026-06-30 09:20 - 起风了<br><br> | ??:http://www.share.minike.top/Article/details/670794224.shtml
+- 2026-06-30 09:14 - 爆冷出局！德国点球大战不敌巴拉圭<br><br> | ??:http://www.share.minike.top/Article/details/805048.shtml
+- 2026-06-30 09:12 - 有什么好的高中网课推荐吗？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/377351.shtml
+- 2026-06-30 09:08 - 未来的飞机可能会用电吗？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/4296929850.shtml
+- 2026-06-30 09:04 - 要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/2379114.shtml
+- 2026-06-30 09:09 - 全新问界M9现身美国街头<br><br> | ??:http://www.share.minike.top/Article/details/0113603712.shtml
+- 2026-06-30 09:07 - 德国巴拉圭进入点球大战<br><br> | ??:https://www.share.kurohicncr.top/Article/details/513227597.shtml
+- 2026-06-30 09:01 - 女子遭下药退赔偿拟追刑责<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/065429644.shtml
+- 2026-06-30 09:18 - 齐思钧回复张月<br><br> | ??:http://www.share.minike.top/Article/details/391297243.shtml

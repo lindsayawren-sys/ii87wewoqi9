@@ -1,60 +1,58 @@
-# 近五百名羽球女将西安过招 全民健身乐享运动之趣
+# 法国发现首例输入性埃博拉病毒感染病例
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-中新网西安4月19日电 (记者 张一辰)2026李宁杯女子羽毛球公开邀请赛18日至19日在西安举行，493名来自全国各地的女子羽毛球爱好者齐聚千年古都，以赛会友、以拍竞技，在挥拍跳跃间尽展巾帼风采，让全民健身、全民共享的理念落地赛场。 作为备受关注的女子羽毛球专项赛事，本次比赛设置女子单打、女子双打两大竞赛项目，并按年龄划分为青少年组与成年组，兼顾了各个年龄段的参赛需求。参赛选
+中新社巴黎6月24日电 (记者 李洋)法国卫生部24日表示，法国发现首例输入性埃博拉病毒感染病例。 法国卫生部当天发布的新闻公报说，这名确诊感染埃博拉病毒的患者是一名刚从刚果(金)执行人道主义援助任务返回法国的医生，已在专门的医疗机构接受治疗，目前状况稳定。 公报说，在该患者返回法国后，官方采取了所有预防措施，特别是将该患者进行隔离，并在安全条件下将其转移到医院，“以避免任何风
 
 ## 正文
 
-中新网西安4月19日电 (记者 张一辰)2026李宁杯女子羽毛球公开邀请赛18日至19日在西安举行，493名来自全国各地的女子羽毛球爱好者齐聚千年古都，以赛会友、以拍竞技，在挥拍跳跃间尽展巾帼风采，让全民健身、全民共享的理念落地赛场。
+中新社巴黎6月24日电 (记者 李洋)法国卫生部24日表示，法国发现首例输入性埃博拉病毒感染病例。
 
-作为备受关注的女子羽毛球专项赛事，本次比赛设置女子单打、女子双打两大竞赛项目，并按年龄划分为青少年组与成年组，兼顾了各个年龄段的参赛需求。
+法国卫生部当天发布的新闻公报说，这名确诊感染埃博拉病毒的患者是一名刚从刚果(金)执行人道主义援助任务返回法国的医生，已在专门的医疗机构接受治疗，目前状况稳定。
 
-参赛选手覆盖学生、职场女性、资深运动爱好者等不同群体，充分体现了赛事的包容性与普惠性。
+公报说，在该患者返回法国后，官方采取了所有预防措施，特别是将该患者进行隔离，并在安全条件下将其转移到医院，“以避免任何风险”。
 
-羽毛球世界冠军杜玥亲临现场，参与表演赛并与选手们近距离互动，将赛场氛围推向高潮。
+目前卫生部门正在就此进行彻底的流行病学调查，以确定可能曾与该患者接触过的人；地区卫生机构将联系这些人，对这些人进行为期21天的居家隔离。
 
-赛场上选手们敢打敢拼、功底扎实，发球、扣杀、吊球、拦网等技术动作娴熟，攻防转换紧张激烈，现场欢呼与掌声不断，充分传递了羽毛球运动的魅力与感染力。
+法国政府同日表示，总理勒科尔尼正在密切关注相关事态。
 
-“我打羽毛球八年，平时都是和朋友切磋，这次赛事不管新手还是老将都能参与，不用顾虑水平高低，重在享受运动。
+刚果(金)卫生部23日公布的数据显示，自本轮埃博拉疫情在当地暴发以来，该国累计确诊病例仍在持续增加，现已达1094例。
 
-能和这么多姐妹一起挥拍，真正体会到全民健身不是口号，而是我们身边触手可及的快乐。
-
-”成年组选手王彤赛后表示。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 08:57 - 领克900大型SUV值得购买吗?<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md
-- 2026-06-30 09:06 - 德国连续三届世界杯无缘16强<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md
-- 2026-06-30 09:15 - 4种红薯的满分吃法！有手就会…但能让你大为震撼！<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md
-- 2026-06-30 08:55 - 斛珠夫人<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md
-- 2026-06-30 09:22 - 7月1日起 一批新规即将落地<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md
-- 2026-06-30 08:59 - 全网说丑的格力玫瑰空调卖了5万台<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md
-- 2026-06-30 09:09 - 全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md
-- 2026-06-30 09:10 - 吴启华卖肖像权拍AI电影<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md
-- 2026-06-30 08:57 - 如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md
-- 2026-06-30 08:55 - hanser X 赖美云《室内系的Track Maker》<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md
-- 2026-06-30 08:59 - 德国队回应爆冷淘汰<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md
-- 2026-06-30 09:19 - 国务院：稳步推进研究生考试招生改革<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md
-- 2026-06-30 08:54 - 一见倾心<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md
-- 2026-06-30 09:08 - 啊啊啊<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md
+- 2026-06-30 09:13 - 马杜罗账号在纽约发文致谢各国援助<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md
+- 2026-06-30 09:01 - 亚洲球队全部告别世界杯<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md
+- 2026-06-30 08:56 - 日本淘汰<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md
+- 2026-06-30 08:59 - 日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md
+- 2026-06-30 09:09 - 委内瑞拉地震死亡人数升至1719人<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md
+- 2026-06-30 09:00 - 如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md
+- 2026-06-30 09:08 - 大学生遇地震裹被子从5楼冲下<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md
+- 2026-06-30 09:20 - 一直以为方便面汤是要倒掉的<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md
+- 2026-06-30 09:09 - 德国队连续三届世界杯无缘16强<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md
+- 2026-06-30 09:21 - 斛珠夫人<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md
+- 2026-06-30 09:11 - 陈小春人老了干什么也不心酸<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md
+- 2026-06-30 09:15 - 德国北部枪击事件致5死<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md
+- 2026-06-30 09:16 - 请回答王牌2019<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md
+- 2026-06-30 09:04 - 考入南大计算机，复读考清北值吗？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:04 - 本届世界杯已有5名球员被控强奸<br><br> | ??:http://www.share.kurohicncr.top/Article/details/36832231.shtml
-- 2026-06-30 09:15 - 卢卡申科发布解放军仪仗队视频<br><br> | ??:https://www.share.minike.top/Article/details/66330961678.shtml
-- 2026-06-30 09:02 - 这一刀 会很帅<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/465033944928.shtml
-- 2026-06-30 08:55 - 亚洲球队全部告别世界杯<br><br> | ??:http://www.blog.minike.top/Article/details/73781.shtml
-- 2026-06-30 09:09 - 为什么香港的冲厕水是咸的？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/266101297.shtml
-- 2026-06-30 08:55 - 好像看到了人类带孩子崩溃的样子<br><br> | ??:https://www.share.kurohicncr.top/Article/details/4729935.shtml
-- 2026-06-30 09:19 - 【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/09062583.shtml
-- 2026-06-30 09:01 - 韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/8408195563.shtml
-- 2026-06-30 09:11 - 日本主帅赛后回应淘汰出局<br><br> | ??:https://www.share.minike.top/Article/details/963226380.shtml
-- 2026-06-30 09:23 - 《贺子珍》<br><br> | ??:https://www.share.minike.top/Article/details/6091427.shtml
-- 2026-06-30 09:05 - 首届《哈基米歌王争霸赛》总决赛<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/05560540.shtml
-- 2026-06-30 09:04 - 日本五次世界杯淘汰赛全败<br><br> | ??:https://www.share.kurohicncr.top/Article/details/970024948.shtml
-- 2026-06-30 09:23 - 补时绝杀 巴西2-1淘汰日本<br><br> | ??:https://www.share.minike.top/Article/details/0479910684.shtml
-- 2026-06-30 09:00 - 曝灰熊将莫兰特交易至开拓者<br><br> | ??:https://www.share.minike.top/Article/details/5918595087.shtml
-- 2026-06-30 09:00 - 如何评价杨紫白玉兰获奖<br><br> | ??:http://www.share.kurohicncr.top/Article/details/959485915599.shtml
+- 2026-06-30 09:06 - 日本反击率先破门<br><br> | ??:https://www.blog.minike.top/Article/details/68599669.shtml
+- 2026-06-30 09:18 - 男子中医院拔火罐致浅2度烧伤<br><br> | ??:http://www.share.minike.top/Article/details/32303259009.shtml
+- 2026-06-30 08:59 - 木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？<br><br> | ??:https://www.blog.minike.top/Article/details/3432970889.shtml
+- 2026-06-30 09:23 - 有人见过武则天的画像吗，非常好奇？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/62634175793.shtml
+- 2026-06-30 09:03 - 巴西替补奇兵读秒绝杀<br><br> | ??:http://www.share.minike.top/Article/details/564019575651.shtml
+- 2026-06-30 09:08 - AI手机进入Agent时代<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/09224671157.shtml
+- 2026-06-30 09:01 - 法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？<br><br> | ??:http://www.blog.minike.top/Article/details/8553585970.shtml
+- 2026-06-30 09:23 - 起风了<br><br> | ??:http://www.share.minike.top/Article/details/127177.shtml
+- 2026-06-30 09:18 - 世界杯名画巴拉圭钢铁防线<br><br> | ??:http://www.share.kurohicncr.top/Article/details/41208.shtml
+- 2026-06-30 08:58 - 藤森庆子赢得秘鲁总统选举<br><br> | ??:https://www.blog.minike.top/Article/details/241836.shtml
+- 2026-06-30 08:59 - 蔚来回应高压水枪洗车掉漆<br><br> | ??:https://www.share.kurohicncr.top/Article/details/56069.shtml
+- 2026-06-30 09:13 - 郑钦文 四年一轮游<br><br> | ??:http://www.blog.minike.top/Article/details/374332037052.shtml
+- 2026-06-30 08:58 - AI手机进入Agent时代<br><br> | ??:http://www.share.kurohicncr.top/Article/details/10509.shtml
+- 2026-06-30 08:58 - 刘宇宁是去进货了吗<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/16095610005.shtml
+- 2026-06-30 09:05 - 明星大侦探第四季<br><br> | ??:http://www.blog.minike.top/Article/details/2877765057.shtml

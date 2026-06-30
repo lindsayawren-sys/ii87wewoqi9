@@ -1,56 +1,42 @@
-# 4月18日美股成交额前20：法巴大幅上调苹果目标股价至300美元
+# 夏粮收购开启：超3000万吨 质优价稳购销两旺
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-周五美股成交额第1名特斯拉收高3.01%，成交361.6亿美元。特斯拉将向印度市场推出六座长轴距版Model Y L，由上海工厂出口。由于印度高达70%-110%的进口关税，其售价远高于中国市场，导致去年特斯拉在印销量仅227辆，被迫降价消化库存。该车型定位高于标准版，已确认进入澳新市场。 第2名英伟达收高1.68%，成交319.7亿美元。伯恩斯坦在一份研究报告中表示，英伟达即
+发布时间：2026年06月24日 09:00 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-周五美股成交额第1名特斯拉收高3.01%，成交361.6亿美元。
-
-特斯拉将向印度市场推出六座长轴距版Model Y L，由上海工厂出口。
-
-由于印度高达70%-110%的进口关税，其售价远高于中国市场，导致去年特斯拉在印销量仅227辆，被迫降价消化库存。
-
-该车型定位高于标准版，已确认进入澳新市场。
-
-第2名英伟达收高1.68%，成交319.7亿美元。
-
-伯恩斯坦在一份研究报告中表示，英伟达即将推出的Vera Rubin平台可能进一步扩大其在人工智能硬件领域的领先地位。
-
-伯恩斯坦维持对英伟达的买入评级和300美元的目标价。
-
-该机构表示，计划于2026年下半年开始出货的新平台，其推理性能可能比当前系统提升约5倍，训练性能提升3.5倍。
+发布时间：2026年06月24日 09:00 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 08:55 - 日本博主：日本足球真的垃圾<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md
-- 2026-06-30 08:54 - 「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md
-- 2026-06-30 09:11 - 欧洲空调卖疯了 下一个爆款是储能吗<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md
-- 2026-06-30 09:11 - 男子造谣东鹏老板不喝自家饮料被拘<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md
-- 2026-06-30 09:06 - 自然光｜papi酱&窦文涛：驴与跑步机<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md
-- 2026-06-30 09:14 - 81岁老人被男子买光菜回家车祸去世<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md
-- 2026-06-30 08:54 - 日本博主：日本足球真的垃圾<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md
-- 2026-06-30 09:11 - 日本将帅赛后采访纷纷哽咽落泪<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md
-- 2026-06-30 09:14 - 高考结束了，你会让孩子在家玩手机吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md
-- 2026-06-30 09:09 - 爱直接对嘴喝饮料的人天塌了<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md
+- 2026-06-30 09:04 - 梅德韦杰夫列举俄罗斯面临的七大挑战<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md
+- 2026-06-30 08:55 - 穆祉丞回应获年度人气艺人<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md
+- 2026-06-30 09:00 - 4种红薯的满分吃法！有手就会…但能让你大为震撼！<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md
+- 2026-06-30 09:23 - 马航MH370传来最新消息<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md
+- 2026-06-30 09:19 - 道友？你来真的啊？【凡人官方二创大会】<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md
+- 2026-06-30 08:55 - 美股深夜大反弹 特斯拉飙涨8%<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md
+- 2026-06-30 09:20 - HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md
+- 2026-06-30 09:14 - 警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md
+- 2026-06-30 09:23 - 男子中医院拔火罐致浅2度烧伤<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md
+- 2026-06-30 09:18 - 全网说丑的玫瑰空调卖了5万台<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:10 - “荒唐”背后的韩国足球<br><br> | ??:https://www.share.minike.top/Article/details/11699.shtml
-- 2026-06-30 09:16 - 德国进球被吹<br><br> | ??:http://www.share.kurohicncr.top/Article/details/641135.shtml
-- 2026-06-30 09:06 - 亚洲球队全部告别世界杯<br><br> | ??:http://www.share.kurohicncr.top/Article/details/61617901984.shtml
-- 2026-06-30 09:00 - 爆冷出局！德国点球大战不敌巴拉圭<br><br> | ??:http://www.share.kurohicncr.top/Article/details/018366.shtml
-- 2026-06-30 09:10 - 詹姆斯 勇士<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/23578.shtml
-- 2026-06-30 09:23 - 自然光｜papi酱&窦文涛：驴与跑步机<br><br> | ??:https://www.share.minike.top/Article/details/05506.shtml
-- 2026-06-30 09:00 - 锐评：网红不能困在无底线逐利里<br><br> | ??:http://www.share.kurohicncr.top/Article/details/26253818102.shtml
-- 2026-06-30 09:11 - 梅德韦杰夫列举俄罗斯面临的七大挑战<br><br> | ??:http://www.share.minike.top/Article/details/8625937333.shtml
-- 2026-06-30 09:20 - 恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/86205215.shtml
-- 2026-06-30 09:06 - 女子用家人生日买彩票中1032万<br><br> | ??:http://www.share.kurohicncr.top/Article/details/214459012.shtml
-- 2026-06-30 09:06 - 如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？<br><br> | ??:https://www.blog.minike.top/Article/details/5846492586.shtml
-- 2026-06-30 09:16 - IGN评测电影版后室<br><br> | ??:http://www.blog.minike.top/Article/details/873493832.shtml
-- 2026-06-30 08:56 - 杨紫大银幕成绩单<br><br> | ??:http://www.blog.minike.top/Article/details/821953.shtml
-- 2026-06-30 09:17 - 韩国球迷凌晨4点接机怒骂主教练<br><br> | ??:https://www.share.minike.top/Article/details/2809449174.shtml
-- 2026-06-30 09:03 - 免费试吃发差评被店家挂店门避雷<br><br> | ??:https://www.blog.minike.top/Article/details/14173794.shtml
+- 2026-06-30 08:58 - 疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！<br><br> | ??:https://www.share.minike.top/Article/details/16827249823.shtml
+- 2026-06-30 09:19 - 我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎<br><br> | ??:http://www.share.kurohicncr.top/Article/details/3590141.shtml
+- 2026-06-30 09:10 - 如何看待武亮说大学生生活费1500就够用这一言论？<br><br> | ??:https://www.share.minike.top/Article/details/86156981.shtml
+- 2026-06-30 09:01 - 你的妻子大喷菇—《植物娘大战僵尸》特别篇<br><br> | ??:https://www.share.kurohicncr.top/Article/details/089388.shtml
+- 2026-06-30 09:03 - 追梦拒绝2770万美元球员选项<br><br> | ??:https://www.share.kurohicncr.top/Article/details/5422918014.shtml
+- 2026-06-30 09:06 - 马宁怒怼巴拉圭教练组<br><br> | ??:http://www.share.minike.top/Article/details/757796.shtml
+- 2026-06-30 08:56 - 【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸<br><br> | ??:http://www.blog.minike.top/Article/details/413592784875.shtml
+- 2026-06-30 09:20 - 国务院：探索延长义务教育年限<br><br> | ??:https://www.blog.minike.top/Article/details/370120060744.shtml
+- 2026-06-30 09:03 - 欧洲家电巨头为何输掉了这个夏天<br><br> | ??:https://www.share.kurohicncr.top/Article/details/2087008.shtml
+- 2026-06-30 09:16 - 韩国人为什么这么在乎输赢<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/507661.shtml
+- 2026-06-30 09:13 - 又一家县级医院关停门诊输液大厅<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/73692075.shtml
+- 2026-06-30 09:00 - 本届世界杯已有5名球员被控强奸<br><br> | ??:https://www.blog.minike.top/Article/details/69817101.shtml
+- 2026-06-30 09:09 - 德国进球被吹<br><br> | ??:https://www.blog.minike.top/Article/details/864895168.shtml
+- 2026-06-30 09:19 - 自然光｜papi酱&窦文涛：驴与跑步机<br><br> | ??:https://www.share.kurohicncr.top/Article/details/83138069.shtml
+- 2026-06-30 09:09 - 有人见过武则天的画像吗，非常好奇？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/21153915.shtml

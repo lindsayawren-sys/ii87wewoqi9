@@ -1,61 +1,61 @@
-# 减肥药赛道竞争白热化，Kailera上市首日飙涨超60%
+# 华泰期货：加息预期持续上涨 铜价亦承压
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-Kailera Therapeutics周五登陆纳斯达克，股价开盘报26美元，较每股16美元的发行价大涨62.5%，盘中涨幅维持在57%左右，市值突破20亿美元。此次IPO募资6.25亿美元，成为2021年以来美国生物科技领域规模最大的IPO。 Kailera成立于2024年，通过向恒瑞医药授权引进构建起涵盖注射和口服GLP-1类药物的多元化管线。核心资产ribupatide是
+来源：华泰期货 作者： 师橙 市场要闻与重要数据 期货行情： 2026-06-24，沪铜主力合约开于 103100元/吨，收于 103550元/吨，较前一交易日收盘-0.03%，昨日夜盘沪铜主力合约开于 73，810元/吨，收于 74，060 元/吨，较昨日午后收盘上涨0.47%。 现货情况： 据 SMM 讯，昨早盘沪铜 2607 合约走出 M 型行情，开 103000 元 /
 
 ## 正文
 
-Kailera Therapeutics周五登陆纳斯达克，股价开盘报26美元，较每股16美元的发行价大涨62.5%，盘中涨幅维持在57%左右，市值突破20亿美元。
+来源：华泰期货 作者： 师橙 市场要闻与重要数据 期货行情： 2026-06-24，沪铜主力合约开于 103100元/吨，收于 103550元/吨，较前一交易日收盘-0.03%，昨日夜盘沪铜主力合约开于 73，810元/吨，收于 74，060 元/吨，较昨日午后收盘上涨0.47%。
 
-此次IPO募资6.25亿美元，成为2021年以来美国生物科技领域规模最大的IPO。
+现货情况： 据 SMM 讯，昨早盘沪铜 2607 合约走出 M 型行情，开 103000 元 / 吨，先下探 102900 元 / 吨，冲高至 103360 元 / 吨后区间震荡，收于 103180 元 / 吨；隔月月差 Contango10-50 元 / 吨，当月进口亏损收至 30-80 元 / 吨。
 
-Kailera成立于2024年，通过向恒瑞医药授权引进构建起涵盖注射和口服GLP-1类药物的多元化管线。
+上海现货购销情绪环比小幅回升，早盘持货商多轮下调报价，平水、湿法、非标铜贴水持续扩大，仅优质好铜小幅升水。
 
-核心资产ribupatide是一款每周一次注射的GLP-1/GIP双受体激动剂，已在全球范围内进入III期临床试验。
+明日常州货源宽松削弱升贴水支撑，月末回款带动商家甩货降价趋势延续。
 
-恒瑞在中国完成的48周试验数据显示，该药物可使体重平均下降近18%。
+铜价走低带动下游订单小幅回暖，终端逢低采购增多，但压价为主、追高谨慎。
 
-此外，该药物的口服版本在26周试验中实现了高达12.1%的平均体重降幅，具备成为潜在“同类最佳”口服减肥药的潜力。
+进口亏损靠近了平衡线，需留意外盘流入。
 
-该公司的投资方包括贝恩资本和卡塔尔投资局，二者在此次IPO中认购了2.25亿美元。
+短期现货抛压仍存，今日沪铜现货贴水或小幅扩大。
 
-此次IPO的承销商包括摩根大通、杰富瑞、Leerink Partners等知名投行。
+重要资讯汇总： 美国总统特朗普在社交媒体平台发文称，伊朗已告知美国，目前通过霍尔木兹海峡的船只“没有任何通行费、保险费用或其他任何形式的收费”。
 
 ## 相关推荐
 
-- 2026-06-30 09:10 - 浪姐成团夜爆笑吐槽<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md
-- 2026-06-30 09:23 - 消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md
-- 2026-06-30 08:59 - 世界杯欧洲队7战南美仅1胜<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md
-- 2026-06-30 09:09 - iPhoneUltra黑色机模<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md
-- 2026-06-30 08:54 - 斛珠夫人<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md
-- 2026-06-30 09:12 - 2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md
-- 2026-06-30 08:56 - 未来的飞机可能会用电吗？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md
-- 2026-06-30 08:55 - 斛珠夫人<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md
-- 2026-06-30 09:06 - 锐评T1战胜KC<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md
-- 2026-06-30 08:57 - 豆包收费了，你还会用吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md
-- 2026-06-30 09:06 - 诺伊尔尽力了<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md
-- 2026-06-30 09:16 - 逃狱兄弟<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md
-- 2026-06-30 09:06 - 妻子撞死家暴丈夫案二审案情反转<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md
-- 2026-06-30 08:59 - 德国巴拉圭 折磨<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md
-- 2026-06-30 09:08 - 日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md
+- 2026-06-30 09:04 - 德国身价是巴拉圭6倍<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md
+- 2026-06-30 09:17 - 美股收盘 热门中概股普涨<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md
+- 2026-06-30 09:04 - 卖菜老人获博主帮助后遇车祸去世<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md
+- 2026-06-30 09:06 - 如何把斧兵改造成精英怪？提高攻速移速！！！<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md
+- 2026-06-30 09:00 - 齐思钧回复张月<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md
+- 2026-06-30 09:19 - 领克900大型SUV值得购买吗?<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md
+- 2026-06-30 09:16 - “中国养猪场都用上空调了”！这是真的吗？【主播说三农】<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md
+- 2026-06-30 09:06 - 道友？你来真的啊？【凡人官方二创大会】<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md
+- 2026-06-30 09:09 - 天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md
+- 2026-06-30 08:55 - 领克900大型SUV值得购买吗?<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md
+- 2026-06-30 09:15 - 教育部披露：高考生篡改7名同学志愿<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md
+- 2026-06-30 09:13 - 81岁老人被男子买光菜回家车祸去世<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md
+- 2026-06-30 09:19 - 湖北云南的这些涉汛信息都是假的<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md
+- 2026-06-30 09:05 - 世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md
+- 2026-06-30 09:01 - 日本将帅赛后采访纷纷哽咽落泪<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:07 - 高考结束，该不该外出打工体验？<br><br> | ??:http://www.share.minike.top/Article/details/21878323659.shtml
-- 2026-06-30 09:18 - 我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎<br><br> | ??:http://www.blog.minike.top/Article/details/541892570.shtml
-- 2026-06-30 09:14 - 谢依霖说杨幂是聚会第一把张罗手<br><br> | ??:https://www.blog.minike.top/Article/details/704339.shtml
-- 2026-06-30 09:10 - 德国爆冷点球大战不敌巴拉圭<br><br> | ??:https://www.share.kurohicncr.top/Article/details/9078427.shtml
-- 2026-06-30 09:23 - 这种关系可能正在悄悄“催老”你<br><br> | ??:http://www.share.minike.top/Article/details/393351687.shtml
-- 2026-06-30 09:09 - 王菲谢霆锋十指紧扣好甜<br><br> | ??:http://www.blog.minike.top/Article/details/51626023.shtml
-- 2026-06-30 08:58 - 日本反击率先破门<br><br> | ??:http://www.share.minike.top/Article/details/043997.shtml
-- 2026-06-30 09:18 - 《名肘探科比》：科比大战裂口女<br><br> | ??:https://www.blog.minike.top/Article/details/2244633922.shtml
-- 2026-06-30 09:20 - 法总统候选人：拒绝与中国激烈对抗<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/12300.shtml
-- 2026-06-30 08:57 - 千与千寻<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/309077731.shtml
-- 2026-06-30 09:07 - 巴拉圭先进球了<br><br> | ??:http://www.share.minike.top/Article/details/16180586321.shtml
-- 2026-06-30 09:06 - 马宁怒怼巴拉圭教练组<br><br> | ??:https://www.blog.minike.top/Article/details/01897143213.shtml
-- 2026-06-30 09:21 - F1奥地利站赛后复盘<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/982018584543.shtml
-- 2026-06-30 09:14 - 致敬！中国首批缉毒警已全体退休<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/6490400.shtml
-- 2026-06-30 08:56 - 低智商犯罪三江口团建来了<br><br> | ??:https://www.share.minike.top/Article/details/042272.shtml
+- 2026-06-30 09:13 - 萨内 看笑了<br><br> | ??:http://www.share.kurohicncr.top/Article/details/57565.shtml
+- 2026-06-30 09:04 - 美加墨世界杯：亚洲足球的得意与失意<br><br> | ??:https://www.share.minike.top/Article/details/495791033511.shtml
+- 2026-06-30 08:57 - 欧洲民众抢购空调降温<br><br> | ??:http://www.share.minike.top/Article/details/23976.shtml
+- 2026-06-30 09:21 - 【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸<br><br> | ??:https://www.blog.minike.top/Article/details/59107670250.shtml
+- 2026-06-30 09:14 - 你的妻子大喷菇—《植物娘大战僵尸》特别篇<br><br> | ??:https://www.share.kurohicncr.top/Article/details/750153064151.shtml
+- 2026-06-30 09:12 - 明星大侦探第四季<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/8516187.shtml
+- 2026-06-30 09:06 - 全新问界M9现身美国街头<br><br> | ??:https://www.share.minike.top/Article/details/4497099.shtml
+- 2026-06-30 09:20 - hanser X 赖美云《室内系的Track Maker》<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/59601909.shtml
+- 2026-06-30 09:14 - 金鹰奖视后提名预测<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/704137.shtml
+- 2026-06-30 09:12 - "超算小姐，这一次，我一定要带你出去..."<br><br> | ??:https://www.share.minike.top/Article/details/6837477267.shtml
+- 2026-06-30 09:15 - 2026年WTT美国大满贯，国乒自带球桌是真实的吗？<br><br> | ??:https://www.share.minike.top/Article/details/732701.shtml
+- 2026-06-30 09:15 - 中国猪圈装空调让欧洲网友破防<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/510024283.shtml
+- 2026-06-30 09:07 - 日本反击率先破门<br><br> | ??:https://www.blog.minike.top/Article/details/66218.shtml
+- 2026-06-30 09:24 - 卢卡申科发布解放军仪仗队视频<br><br> | ??:http://www.share.kurohicncr.top/Article/details/844176403.shtml
+- 2026-06-30 09:01 - 为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？<br><br> | ??:http://www.share.minike.top/Article/details/78014608.shtml

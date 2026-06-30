@@ -1,56 +1,44 @@
-# （乡村行·看振兴）湖北宜都：“一片叶子”铺就助农增收路
+# 西藏2026年高考分数线公布
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-中新网宜昌4月17日电 题：湖北宜都：“一片叶子”铺就助农增收路 作者 董晓斌 向倩 黎文来 谷雨将至，在湖北省宜都市潘家湾土家族乡梁山村，乌龙茶基地里的茶树正整齐吐出新绿。再过不到半个月，这里的春茶便将迎来采摘期。 宜都市位于长江中游南岸，茶文化底蕴深厚，是宜红茶的重要发源地，“宜都宜红茶”是湖北省唯一入选首批中欧地理标志互认的茶叶产品。2025年，宜都市茶园面积达13.1万
+中新网6月25日电 据西藏自治区教育考试院网站消息，6月25日，西藏自治区2026年普通高等学校招生录取最低控制分数线公布。
 
 ## 正文
 
-中新网宜昌4月17日电 题：湖北宜都：“一片叶子”铺就助农增收路 作者 董晓斌 向倩 黎文来 谷雨将至，在湖北省宜都市潘家湾土家族乡梁山村，乌龙茶基地里的茶树正整齐吐出新绿。
-
-再过不到半个月，这里的春茶便将迎来采摘期。
-
-宜都市位于长江中游南岸，茶文化底蕴深厚，是宜红茶的重要发源地，“宜都宜红茶”是湖北省唯一入选首批中欧地理标志互认的茶叶产品。
-
-2025年，宜都市茶园面积达13.1万亩，干茶产量2.7万吨，拥有茶叶加工企业290余家，带动7万余茶农增收。
-
-2026年宜都市春茶嘉年华暨潘家湾土家族乡第十一届茶乡女儿会17日启幕，近千名各族民众载歌载舞，共赴春日茶约。
-
-活动现场，发布了春茶互动活动，并同步启动农特产品线上推介，助力当地特色茶品销往全国。
-
-近年来，潘家湾乡依托万亩生态茶园，通过茶旅深度融合，让“一片叶子”铺出独具特色的富民强乡之路。
-
-2017年，返乡创业的杜永军从福建引入乌龙茶品种，在潘家湾乡半高山以上地区进行试种。
+中新网6月25日电 据西藏自治区教育考试院网站消息，6月25日，西藏自治区2026年普通高等学校招生录取最低控制分数线公布。
 
 ## 相关推荐
 
-- 2026-06-30 08:59 - 这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md
-- 2026-06-30 08:54 - 森保一致歉：世界第一目标没能实现<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md
-- 2026-06-30 09:06 - 王楚钦孙颖莎晋级混双八强<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md
-- 2026-06-30 09:11 - 千香<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md
-- 2026-06-30 09:08 - MSI应援曲 如果季中成回忆<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md
-- 2026-06-30 08:56 - 消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md
-- 2026-06-30 09:19 - 王欣瑜连续4年晋级温网第二轮<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md
-- 2026-06-30 09:20 - 为什么小组赛出局会让韩国人破防<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md
-- 2026-06-30 09:21 - 巴西醒醒 这是淘汰赛<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md
-- 2026-06-30 08:59 - 内马尔安慰日本球员<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md
+- 2026-06-30 09:02 - “以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md
+- 2026-06-30 09:04 - 好像看到了人类带孩子崩溃的样子<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md
+- 2026-06-30 09:14 - 如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md
+- 2026-06-30 09:16 - 一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md
+- 2026-06-30 09:07 - 德国淘汰<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md
+- 2026-06-30 09:23 - 金刚川<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md
+- 2026-06-30 09:05 - 委内瑞拉地震死亡人数升至1719人<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md
+- 2026-06-30 08:56 - 蜘蛛侠:英雄归来<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md
+- 2026-06-30 09:23 - 锐评：网红不能困在无底线逐利里<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md
+- 2026-06-30 08:55 - 古代时期普通老百姓能喝上酒吗？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md
+- 2026-06-30 08:59 - 德国队回应爆冷淘汰<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md
+- 2026-06-30 09:12 - 安切洛蒂 换人<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:11 - 主人解开狗绳2只狗将路人撕咬致死<br><br> | ??:http://www.share.minike.top/Article/details/43380351.shtml
-- 2026-06-30 09:20 - 孙颖莎王楚钦晋级8强<br><br> | ??:http://www.blog.minike.top/Article/details/16629418.shtml
-- 2026-06-30 09:01 - 女儿从清华毕业 爸爸晒出17年对比照<br><br> | ??:http://www.share.minike.top/Article/details/321097279141.shtml
-- 2026-06-30 09:06 - 可以细成这样？1600万预算，颠覆我认知的改造！<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/9945090518.shtml
-- 2026-06-30 09:04 - 87克大金链到老庙黄金维修少了11克<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/682166537669.shtml
-- 2026-06-30 09:03 - 郑钦文温网三连败西尼亚科娃<br><br> | ??:https://www.share.kurohicncr.top/Article/details/204133564.shtml
-- 2026-06-30 08:55 - 沉睡花园<br><br> | ??:http://www.share.minike.top/Article/details/491117151.shtml
-- 2026-06-30 09:06 - 古代时期普通老百姓能喝上酒吗？<br><br> | ??:http://www.share.minike.top/Article/details/8881071.shtml
-- 2026-06-30 09:01 - 四川宜宾地震为何震感明显<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/42553411652.shtml
-- 2026-06-30 09:22 - 湖北云南的这些涉汛信息都是假的<br><br> | ??:http://www.blog.minike.top/Article/details/082735.shtml
-- 2026-06-30 09:00 - 陈小春人老了干什么也不心酸<br><br> | ??:https://www.share.kurohicncr.top/Article/details/23771.shtml
-- 2026-06-30 09:14 - 挪威国家队紧急从本土订购大批海鲜<br><br> | ??:http://www.share.kurohicncr.top/Article/details/220191276.shtml
-- 2026-06-30 09:13 - 世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/571666458.shtml
-- 2026-06-30 09:10 - 起风了<br><br> | ??:http://www.blog.minike.top/Article/details/7849767.shtml
-- 2026-06-30 08:59 - 谢依霖说杨幂是聚会第一把张罗手<br><br> | ??:https://www.share.kurohicncr.top/Article/details/614997647.shtml
+- 2026-06-30 09:04 - 世界杯巴拉圭点球淘汰德国<br><br> | ??:http://www.share.minike.top/Article/details/3575575.shtml
+- 2026-06-30 09:06 - 巴拉圭点球大战淘汰德国进16强<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/9744208900.shtml
+- 2026-06-30 09:17 - 刘宇宁是去进货了吗<br><br> | ??:https://www.blog.minike.top/Article/details/549529828.shtml
+- 2026-06-30 09:00 - 天道<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/34782799920.shtml
+- 2026-06-30 09:09 - 警方介入洪明甫死亡威胁<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/936742936.shtml
+- 2026-06-30 08:59 - 花少8要去世界杯举办国<br><br> | ??:http://www.share.minike.top/Article/details/936147969861.shtml
+- 2026-06-30 09:13 - 杨紫获白玉兰视后为何争议难平<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/913740104352.shtml
+- 2026-06-30 09:17 - 詹姆斯 勇士<br><br> | ??:http://www.share.minike.top/Article/details/6673435519.shtml
+- 2026-06-30 09:22 - 想问一下学日语的大佬，自学日语要怎么学？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/79971518.shtml
+- 2026-06-30 08:55 - 女子健身不当 居然“脑子漏水”了<br><br> | ??:https://www.share.kurohicncr.top/Article/details/170711284.shtml
+- 2026-06-30 09:03 - 2026年WTT美国大满贯，国乒自带球桌是真实的吗？<br><br> | ??:https://www.share.minike.top/Article/details/12485819645.shtml
+- 2026-06-30 09:11 - 我和我的家乡<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/78148976.shtml
+- 2026-06-30 09:07 - 时光音乐会<br><br> | ??:http://www.share.minike.top/Article/details/743237967570.shtml
+- 2026-06-30 08:56 - 武磊：巴西队赢的并不轻松<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/36587317.shtml
+- 2026-06-30 09:23 - 恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？<br><br> | ??:https://www.blog.minike.top/Article/details/425989269.shtml

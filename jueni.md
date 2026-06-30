@@ -1,58 +1,56 @@
-# 两项全球高危漏洞被发现 360首次公开漏洞挖掘智能体体系
+# 商标法修改：对中国商标制度的一次全面完善
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-近日，360集团(SH：601360)自主研发的漏洞挖掘智能体成功发现两项潜伏多年的重大安全漏洞——Windows内核提权漏洞和Office远程代码执行漏洞，均已上报国家漏洞库并完成修复。相关漏洞影响全球超10亿Windows及Office用户，波及个人终端、政企办公系统及关键基础设施环境。这也是我国首次公开披露智能体规模化发现基础软件核心漏洞的能力成果。 此次曝光的两项漏洞均
+中新社北京6月25日电 题：商标法修改：对中国商标制度的一次全面完善 中新社记者 谢雁冰 商标法修订草案正提请十四届全国人大常委会二次审议。在分组审议中，与会人员认为，此次修法是对中国商标制度的一次全面完善。 从局部调整向系统重塑商标法自1983年施行以来，先后于1993年、2001年、2013年和2019年进行了四次修改。全国人大代表马一德在分组审议中表示，商标法修订草案二审
 
 ## 正文
 
-近日，360集团(SH：601360)自主研发的漏洞挖掘智能体成功发现两项潜伏多年的重大安全漏洞——Windows内核提权漏洞和Office远程代码执行漏洞，均已上报国家漏洞库并完成修复。
+中新社北京6月25日电 题：商标法修改：对中国商标制度的一次全面完善 中新社记者 谢雁冰 商标法修订草案正提请十四届全国人大常委会二次审议。
 
-相关漏洞影响全球超10亿Windows及Office用户，波及个人终端、政企办公系统及关键基础设施环境。
+在分组审议中，与会人员认为，此次修法是对中国商标制度的一次全面完善。
 
-这也是我国首次公开披露智能体规模化发现基础软件核心漏洞的能力成果。
+从局部调整向系统重塑商标法自1983年施行以来，先后于1993年、2001年、2013年和2019年进行了四次修改。
 
-此次曝光的两项漏洞均属于影响范围广、风险等级高的基础软件安全隐患。
+全国人大代表马一德在分组审议中表示，商标法修订草案二审稿提请全国人大常委会审议，是商标法实施40余年来的第五次修改，也是首次由“修正”升级为“修订”，体现了中国商标立法从局部调整向系统重塑的转变。
 
-其中，潜伏近5年的Windows内核提权漏洞为高危系统级漏洞，被利用后可能获取系统最高权限，进而实现数据窃取甚至系统瘫痪，对全球亿万用户终端及关键基础设施环境构成严重安全风险。
+“修订草案是在系统总结2013年修法以来特别是新时代商标实践经验基础上形成的，是对中国商标制度的一次全面完善。
 
-另一项潜伏8年之久的Office远程代码执行漏洞被评定为Critical(最高危)级别，广泛影响使用Office办公软件的终端环境，一旦被利用，用户在打开Word、PPT等常见文档时即可能面临远程控制风险。
+”马一德说。
 
-值得关注的是，该漏洞已潜伏多年，传统检测方式长期未能有效识别，360漏洞挖掘智能体在自动化分析过程中实现分钟级快速定位。
+全国人大外事委员会委员谭成旭认为，商标法修订草案聚焦中国社会主义市场经济发展中商标领域突出问题，进一步规范商标注册、强化商标管理和商标专用权保护，有利于让生产经营者更安心将资源长期投入商品和服务品质提升与供给创新，驱动生产经营者提升核心竞争力，提升市场资源配置效率。
 
-凭借此次精准发现，360获微软安全响应中心(MSRC)致谢，充分显示出智能体技术在复杂漏洞发现领域的规模化应用潜力。
+较强针对性和现实回应能力 近年来，恶意抢注、囤积商标、“心机商标”、商标代理乱象以及不正当行使商标权等问题广受关注。
 
 ## 相关推荐
 
-- 2026-06-30 09:11 - 领克07GT搭载超跑同源MRC悬架<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md
-- 2026-06-30 09:01 - 第3集丨“柠檬茶能换怀表？”<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md
-- 2026-06-30 09:24 - 上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md
-- 2026-06-30 09:19 - 重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md
-- 2026-06-30 09:16 - 披荆斩棘的哥哥<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md
-- 2026-06-30 09:22 - 阿娇瘦了10斤<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md
-- 2026-06-30 08:55 - 欧洲装一台空调有多难<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md
-- 2026-06-30 09:07 - 巴西2比1日本<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md
-- 2026-06-30 09:10 - 李在明90度鞠躬感谢韩国两大财阀<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md
-- 2026-06-30 09:18 - 王健林甩卖超80座万达广场<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md
-- 2026-06-30 09:23 - iPhone18e曝光<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md
-- 2026-06-30 09:15 - 我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md
+- 2026-06-30 09:09 - 小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md
+- 2026-06-30 09:11 - "超算小姐，这一次，我一定要带你出去..."<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md
+- 2026-06-30 09:07 - 日本队被绝杀后鞠躬致谢观众<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md
+- 2026-06-30 09:10 - 美团、淘宝闪购、京东外卖达成共识<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md
+- 2026-06-30 09:19 - 超神人辉夜姬 第二集<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md
+- 2026-06-30 09:19 - 沙丘<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md
+- 2026-06-30 09:03 - MSI应援曲 如果季中成回忆<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md
+- 2026-06-30 09:20 - 庆祝中国共产党成立105周年大会将举行<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md
+- 2026-06-30 09:08 - 高考结束了，你会让孩子在家玩手机吗？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md
+- 2026-06-30 09:20 - 巴西vs日本<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:57 - 巴西vs日本<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/45717.shtml
-- 2026-06-30 08:55 - 韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/5850716340.shtml
-- 2026-06-30 09:09 - 想问一下学日语的大佬，自学日语要怎么学？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/1074239.shtml
-- 2026-06-30 09:00 - 妻子撞死家暴丈夫案二审案情反转<br><br> | ??:https://www.blog.minike.top/Article/details/9099143.shtml
-- 2026-06-30 09:21 - 亚洲球队全部告别世界杯<br><br> | ??:https://www.blog.minike.top/Article/details/314435617111.shtml
-- 2026-06-30 09:07 - 如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/6254648.shtml
-- 2026-06-30 08:55 - 千与千寻<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/9298843700.shtml
-- 2026-06-30 09:11 - 2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/62582727838.shtml
-- 2026-06-30 09:22 - 李在明90度鞠躬感谢韩国两大财阀<br><br> | ??:https://www.blog.minike.top/Article/details/27530428.shtml
-- 2026-06-30 08:56 - 2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/30338142.shtml
-- 2026-06-30 08:57 - 法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？<br><br> | ??:https://www.share.minike.top/Article/details/565981137.shtml
-- 2026-06-30 09:16 - 全网说丑的玫瑰空调卖了5万台<br><br> | ??:http://www.share.minike.top/Article/details/907094.shtml
-- 2026-06-30 09:21 - 扫黑风暴<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/83919.shtml
-- 2026-06-30 08:57 - 点球大战和诺伊尔都救不回德国队<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/027087488.shtml
-- 2026-06-30 09:23 - 世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/20543.shtml
+- 2026-06-30 09:05 - 教育部披露：高考生篡改7名同学志愿<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/8440814853.shtml
+- 2026-06-30 09:23 - 电影抓特务上映11天破亿<br><br> | ??:http://www.share.kurohicncr.top/Article/details/4993433.shtml
+- 2026-06-30 09:09 - 杨紫被质疑未使用原名<br><br> | ??:http://www.blog.minike.top/Article/details/60407.shtml
+- 2026-06-30 09:07 - 勇士续约波尔津吉斯<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/7514637170.shtml
+- 2026-06-30 09:10 - 欧洲空调卖疯了 下一个爆款是储能吗<br><br> | ??:https://www.share.kurohicncr.top/Article/details/31581.shtml
+- 2026-06-30 08:55 - 德国罚丢3粒点球<br><br> | ??:http://www.share.kurohicncr.top/Article/details/31500.shtml
+- 2026-06-30 09:00 - 覃予萱晋级WTT美国大满贯女单32强<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/319590.shtml
+- 2026-06-30 09:05 - 古代时期普通老百姓能喝上酒吗？<br><br> | ??:https://www.share.minike.top/Article/details/83779975410.shtml
+- 2026-06-30 09:16 - 失明的我带老妈去了趟“火星”<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/58931364.shtml
+- 2026-06-30 09:12 - "超算小姐，这一次，我一定要带你出去..."<br><br> | ??:https://www.blog.minike.top/Article/details/79813772.shtml
+- 2026-06-30 09:18 - 本届世界杯已有5名球员被控强奸<br><br> | ??:https://www.blog.minike.top/Article/details/7847553126.shtml
+- 2026-06-30 08:57 - "超算小姐，这一次，我一定要带你出去..."<br><br> | ??:http://www.share.minike.top/Article/details/19755.shtml
+- 2026-06-30 09:14 - 女子用家人生日买彩票中1032万<br><br> | ??:http://www.share.kurohicncr.top/Article/details/11233.shtml
+- 2026-06-30 09:06 - 世界杯<br><br> | ??:http://www.share.kurohicncr.top/Article/details/03112.shtml
+- 2026-06-30 09:21 - 道友？你来真的啊？【凡人官方二创大会】<br><br> | ??:https://www.share.minike.top/Article/details/108007781.shtml

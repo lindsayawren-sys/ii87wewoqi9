@@ -1,47 +1,54 @@
-# 美伊正磋商结束战争的计划
+# 招商银行董事会秘书彭家文回应平安大幅增持招行股份：是对招商银行经营管理充满信心的体现
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-新华社华盛顿4月17日电 据美国媒体17日援引两名美国官员和两名了解谈判情况的消息人士的话报道说，美国和伊朗正就一份旨在结束战争的计划进行沟通。其中一个重要议题是美国将解冻伊朗被冻结的200亿美元资金，以换取伊朗放弃其浓缩铀库存。 报道还援引另一名熟悉调解工作的消息人士的话称，谈判预计将于本周日在巴基斯坦首都伊斯兰堡举行。
+6月25日金融一线消息，招商银行今日召开2025年度股东会。针对近年来中国平安持续大幅买入招商银行股票的问题，董事会秘书彭家文回应称，公司已关注到相关情况，并且与平安方面有过交流。 彭家文表示，首先，公司感谢平安对招行的信任，坚定地、不断地、持续地、增持招行的股票，这也是对招商银行经营管理充满信心的体现。 “他们希望能够通过这种分红、高分红的这种回报，能够去给他们提供更好的投资
 
 ## 正文
 
-新华社华盛顿4月17日电 据美国媒体17日援引两名美国官员和两名了解谈判情况的消息人士的话报道说，美国和伊朗正就一份旨在结束战争的计划进行沟通。
+6月25日金融一线消息，招商银行今日召开2025年度股东会。
 
-其中一个重要议题是美国将解冻伊朗被冻结的200亿美元资金，以换取伊朗放弃其浓缩铀库存。
+针对近年来中国平安持续大幅买入招商银行股票的问题，董事会秘书彭家文回应称，公司已关注到相关情况，并且与平安方面有过交流。
 
-报道还援引另一名熟悉调解工作的消息人士的话称，谈判预计将于本周日在巴基斯坦首都伊斯兰堡举行。
+彭家文表示，首先，公司感谢平安对招行的信任，坚定地、不断地、持续地、增持招行的股票，这也是对招商银行经营管理充满信心的体现。
+
+“他们希望能够通过这种分红、高分红的这种回报，能够去给他们提供更好的投资的收益，这是他们的出发点。
+
+”彭家文说道。
+
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-30 09:07 - 警方介入洪明甫死亡威胁<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md
-- 2026-06-30 09:15 - 孙兴慜道歉<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md
-- 2026-06-30 08:56 - 王楚钦孙颖莎混双对手产生<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md
-- 2026-06-30 08:55 - 王楚钦说配合稍微有些陌生感<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md
-- 2026-06-30 08:58 - 存储芯片龙头提示风险<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md
-- 2026-06-30 09:01 - 吴易昺不敌德约科维奇 止步温网首轮<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md
-- 2026-06-30 09:17 - 德国北部枪击事件致5死<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md
-- 2026-06-30 09:18 - 王源近几年没有路演了<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md
-- 2026-06-30 09:09 - 点球大战 残酷<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md
-- 2026-06-30 09:05 - 金刚川<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md
-- 2026-06-30 09:13 - 扬名立万<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md
+- 2026-06-30 09:01 - 德国队世界杯点球大战首败<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md
+- 2026-06-30 09:08 - 外国游客开始涌入中国农村<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md
+- 2026-06-30 09:12 - 李在明90度鞠躬感谢韩国两大财阀<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md
+- 2026-06-30 09:23 - 存储芯片龙头提示风险<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md
+- 2026-06-30 09:22 - 檀健次王楚然吻戏看热了<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md
+- 2026-06-30 09:11 - 巴西绝杀日本：漫画般结局换了主角<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md
+- 2026-06-30 09:12 - 任素汐舞台上唱《王招君》<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md
+- 2026-06-30 09:10 - 女子清吧被陌生人投放伟哥<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md
+- 2026-06-30 08:57 - 日本队被绝杀后鞠躬致谢观众<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md
+- 2026-06-30 09:19 - 男生180+，有腹肌是什么体验？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md
+- 2026-06-30 09:11 - 高考填志愿父亲和女儿产生分歧<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md
+- 2026-06-30 09:19 - 内马尔替补<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:58 - 马航370搜寻最新消息<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/3413434287.shtml
-- 2026-06-30 09:05 - 五哈和他们的朋友<br><br> | ??:https://www.blog.minike.top/Article/details/61071561501.shtml
-- 2026-06-30 09:08 - 日本16强魔咒<br><br> | ??:http://www.share.kurohicncr.top/Article/details/773183.shtml
-- 2026-06-30 09:15 - 电子游戏中有哪些关于武器的“刻板印象”？<br><br> | ??:http://www.share.minike.top/Article/details/5570333924.shtml
-- 2026-06-30 09:10 - 这一刀 会很帅<br><br> | ??:https://www.blog.minike.top/Article/details/43576818040.shtml
-- 2026-06-30 09:10 - “草莓月亮”浪漫现身<br><br> | ??:https://www.blog.minike.top/Article/details/824437.shtml
-- 2026-06-30 09:09 - 王楚钦说配合稍微有些陌生感<br><br> | ??:https://www.share.kurohicncr.top/Article/details/87799.shtml
-- 2026-06-30 09:11 - 《恋与深空》被指触碰民族伤痛红线<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/847148968908.shtml
-- 2026-06-30 09:11 - 毒液2<br><br> | ??:https://www.blog.minike.top/Article/details/949143584.shtml
-- 2026-06-30 09:01 - 我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......<br><br> | ??:https://www.blog.minike.top/Article/details/906178.shtml
-- 2026-06-30 09:13 - 沉睡花园<br><br> | ??:http://www.share.minike.top/Article/details/609446823847.shtml
-- 2026-06-30 08:56 - 亚洲球队全部出局<br><br> | ??:https://www.share.kurohicncr.top/Article/details/5324136.shtml
-- 2026-06-30 09:20 - 日本五次世界杯淘汰赛全败<br><br> | ??:http://www.share.minike.top/Article/details/63382.shtml
-- 2026-06-30 09:02 - 科学备孕男女都要上心<br><br> | ??:http://www.share.kurohicncr.top/Article/details/072049999863.shtml
-- 2026-06-30 09:13 - 郑钦文温网三连败西尼亚科娃<br><br> | ??:http://www.share.minike.top/Article/details/42457623929.shtml
+- 2026-06-30 09:19 - 日本主帅赛后回应淘汰出局<br><br> | ??:http://www.share.minike.top/Article/details/2062113373.shtml
+- 2026-06-30 08:59 - 网友写差评被店家“挂”门口避雷<br><br> | ??:https://www.share.kurohicncr.top/Article/details/3300749.shtml
+- 2026-06-30 08:59 - 欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？<br><br> | ??:https://www.share.minike.top/Article/details/69010964.shtml
+- 2026-06-30 09:22 - 杨紫大银幕成绩单如何<br><br> | ??:https://www.blog.minike.top/Article/details/04077602.shtml
+- 2026-06-30 08:56 - 我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/32141348.shtml
+- 2026-06-30 09:05 - 德国巴拉圭加时<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/32033210.shtml
+- 2026-06-30 09:04 - 小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/4868602803.shtml
+- 2026-06-30 09:04 - 德国淘汰<br><br> | ??:https://www.share.kurohicncr.top/Article/details/595852109378.shtml
+- 2026-06-30 09:23 - 有什么好的高中网课推荐吗？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/585947.shtml
+- 2026-06-30 09:23 - 左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/64824.shtml
+- 2026-06-30 09:06 - 德国巴拉圭进入点球大战<br><br> | ??:http://www.share.kurohicncr.top/Article/details/2028712.shtml
+- 2026-06-30 09:23 - 中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/0985839975.shtml
+- 2026-06-30 09:05 - 谢依霖说杨幂是聚会第一把张罗手<br><br> | ??:http://www.share.minike.top/Article/details/43673461.shtml
+- 2026-06-30 09:06 - 日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/79287341.shtml
+- 2026-06-30 09:23 - 「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！<br><br> | ??:http://www.share.minike.top/Article/details/73888354.shtml

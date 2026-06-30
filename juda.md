@@ -1,48 +1,54 @@
-# 法国达飞海运集团证实，旗下一艘船只周六在霍尔木兹海峡遭到炮击
+# “48分钟赢下战争”，特朗普称委内瑞拉石油收益超军费28倍
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-法国达飞轮船公司（CMA CGM）当地时间周日证实，周六在霍尔木兹海峡遭到枪击的船只之一属于该公司船队，并称此次事件为 “鸣枪示警”。该公司补充说，船员都很安全。责任编辑：李桐
+中新网6月24日电 据俄罗斯卫星通讯社当地时间6月24日报道，美国总统特朗普表示，美国通过出售从委内瑞拉运出的数百万桶石油所获得的收入，已超过2026年1月在该国开展军事行动支出金额的28倍以上。 据报道，特朗普表示：“我们现在从委内瑞拉赚了很多钱，为了赢得那场战争，我们只用了48分钟。我们收回了战争成本。” 此前报道，2026年1月，美国对委内瑞拉发动大规模军事打击，强行控制
 
 ## 正文
 
-法国达飞轮船公司（CMA CGM）当地时间周日证实，周六在霍尔木兹海峡遭到枪击的船只之一属于该公司船队，并称此次事件为 “鸣枪示警”。
+中新网6月24日电 据俄罗斯卫星通讯社当地时间6月24日报道，美国总统特朗普表示，美国通过出售从委内瑞拉运出的数百万桶石油所获得的收入，已超过2026年1月在该国开展军事行动支出金额的28倍以上。
 
-该公司补充说，船员都很安全。
+据报道，特朗普表示：“我们现在从委内瑞拉赚了很多钱，为了赢得那场战争，我们只用了48分钟。
 
-责任编辑：李桐
+我们收回了战争成本。
+
+” 此前报道，2026年1月，美国对委内瑞拉发动大规模军事打击，强行控制马杜罗及其妻子并将他们带离委内瑞拉。
+
+随后，特朗普宣布有意控制委内瑞拉石油并通过出售石油获利。
 
 ## 相关推荐
 
-- 2026-06-30 09:12 - 刘宇宁高情商化解谁站C位<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md
-- 2026-06-30 09:22 - 一直以为方便面汤是要倒掉的<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md
-- 2026-06-30 08:56 - 人民锐评网红诋毁袁隆平造谣企业家<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md
-- 2026-06-30 09:08 - 巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md
-- 2026-06-30 09:11 - 第一炉香<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md
-- 2026-06-30 09:16 - 这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md
-- 2026-06-30 08:55 - 巴拉圭率先破门<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md
-- 2026-06-30 08:58 - 武磊：日本队有能力跟任何强队抗衡<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md
-- 2026-06-30 09:18 - 世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md
-- 2026-06-30 08:59 - 有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md
-- 2026-06-30 08:55 - 男子在京东买到“同仁堂”假药<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md
-- 2026-06-30 08:54 - 贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md
+- 2026-06-30 09:02 - 亚洲球队全部出局<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md
+- 2026-06-30 09:17 - 名记：灰熊将莫兰特交易至开拓者<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md
+- 2026-06-30 09:03 - 如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md
+- 2026-06-30 08:54 - Melo向柳智敏张元英道歉<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md
+- 2026-06-30 09:20 - 赵丽颖风吹半夏含金量还在上升<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md
+- 2026-06-30 09:07 - 欧洲空调卖疯了 下一个爆款是储能吗<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md
+- 2026-06-30 09:08 - 委内瑞拉地震死亡人数升至1719人<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md
+- 2026-06-30 09:01 - 湖北云南这些涉汛信息都是假的<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md
+- 2026-06-30 09:23 - 极端热浪席卷欧洲多国，热一热百姓让领导先凉快？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md
+- 2026-06-30 09:03 - 马杜罗账号在纽约发文致谢各国援助<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md
+- 2026-06-30 08:55 - 这几秒成世界杯最值钱广告位<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md
+- 2026-06-30 09:08 - 沉睡花园<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md
+- 2026-06-30 08:56 - 本届世界杯已有5名球员被控强奸<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md
+- 2026-06-30 09:04 - 郑钦文温网一轮游<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:00 - 急先锋<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/7454547.shtml
-- 2026-06-30 09:18 - 董卿父亲报纸上发文悼念亡妻<br><br> | ??:http://www.blog.minike.top/Article/details/32873719138.shtml
-- 2026-06-30 08:58 - 恋与深空回应争议<br><br> | ??:http://www.share.minike.top/Article/details/3672376.shtml
-- 2026-06-30 09:09 - 手底下人带不动怎么办？<br><br> | ??:http://www.share.minike.top/Article/details/25256279799.shtml
-- 2026-06-30 09:10 - 董卿母亲癌症去世<br><br> | ??:http://www.share.kurohicncr.top/Article/details/913568.shtml
-- 2026-06-30 09:16 - ASMR 千禧年百货大楼初代柜姐给你化大头贴妆<br><br> | ??:https://www.share.minike.top/Article/details/72687517276.shtml
-- 2026-06-30 09:20 - 国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/58217432063.shtml
-- 2026-06-30 09:19 - 安切洛蒂 换人<br><br> | ??:http://www.share.kurohicncr.top/Article/details/5718903581.shtml
-- 2026-06-30 09:23 - 已经看完《三国第一部：争洛阳》的人，如何评价这部电影？<br><br> | ??:http://www.blog.minike.top/Article/details/14685.shtml
-- 2026-06-30 09:01 - 小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？<br><br> | ??:http://www.share.minike.top/Article/details/984717104.shtml
-- 2026-06-30 09:10 - 点球大战<br><br> | ??:https://www.share.minike.top/Article/details/960735897.shtml
-- 2026-06-30 09:01 - 恋与深空<br><br> | ??:https://www.share.kurohicncr.top/Article/details/984271854594.shtml
-- 2026-06-30 08:57 - 流金岁月<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/51128354.shtml
-- 2026-06-30 09:22 - 沙丘<br><br> | ??:http://www.share.minike.top/Article/details/76942404582.shtml
-- 2026-06-30 09:17 - 覃予萱晋级WTT美国大满贯女单32强<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/3306986883.shtml
+- 2026-06-30 09:02 - 失明的我带老妈去了趟“火星”<br><br> | ??:https://www.share.minike.top/Article/details/138309770.shtml
+- 2026-06-30 08:59 - 被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】<br><br> | ??:https://www.share.kurohicncr.top/Article/details/678593054.shtml
+- 2026-06-30 09:18 - 有人见过武则天的画像吗，非常好奇？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/47956901272.shtml
+- 2026-06-30 09:02 - 《共患难》<br><br> | ??:http://www.share.kurohicncr.top/Article/details/5197094068.shtml
+- 2026-06-30 09:04 - “错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】<br><br> | ??:http://www.blog.minike.top/Article/details/90827760785.shtml
+- 2026-06-30 09:19 - 《虎吹最难绷の一集》<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/893304845.shtml
+- 2026-06-30 09:15 - 妻子撞死家暴丈夫案二审案情反转<br><br> | ??:https://www.share.minike.top/Article/details/07311.shtml
+- 2026-06-30 09:19 - 四川凉山落石砸毁车辆 3人遇难<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/349574.shtml
+- 2026-06-30 09:18 - “柠檬茶能换怀表？”<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/11863884.shtml
+- 2026-06-30 09:02 - 周生如故<br><br> | ??:http://www.share.kurohicncr.top/Article/details/386278.shtml
+- 2026-06-30 09:07 - 我和我的家乡<br><br> | ??:https://www.share.minike.top/Article/details/1062946.shtml
+- 2026-06-30 08:54 - 陈小春人老了干什么也不心酸<br><br> | ??:http://www.share.minike.top/Article/details/922538950.shtml
+- 2026-06-30 09:01 - 日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？<br><br> | ??:http://www.share.minike.top/Article/details/528888579.shtml
+- 2026-06-30 09:13 - 女儿从清华毕业 爸爸晒出17年对比照<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/865613905.shtml
+- 2026-06-30 09:11 - 湖北云南这些涉汛信息都是假的<br><br> | ??:https://www.blog.minike.top/Article/details/34616656.shtml

@@ -1,56 +1,59 @@
-# 宁夏：特色产品8小时直抵中东 打造内陆开放新高地
+# 拉林铁路开通运营5周年 累计运送旅客超625万人次
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-中新网银川4月17日电 (记者 李佩珊)地处西北内陆、不沿边不靠海的宁夏，通过不断完善立体开放通道，推动特色产品8小时直抵中东及海外市场，加快建设更高水平内陆开放型经济试验区，积极打造中国向西开放重要节点。宁夏回族自治区党委常委、自治区政府常务副主席陈春平17日在宁夏政府新闻办举办的新闻发布会上介绍，宁夏已与170多个国家和地区开展经贸往来，同44个国家建立68对友好城市关系，
+记者从国铁集团获悉，6月25日，西藏首条电气化铁路——拉林铁路开通运营满五周年，累计运送旅客超625万人次、货物超200万吨。 客运量质齐升 助力“人享其行” 全线单月旅客运送量由开通初期的5.9万人次增至最高15.38万人次，累计开行旅客列车超8000列。持续优化列车运行图，拉萨至山南、林芝最快分别1小时02分、3小时49分可达，与拉萨至日喀则铁路实现互联互通，复兴号动车组可
 
 ## 正文
 
-中新网银川4月17日电 (记者 李佩珊)地处西北内陆、不沿边不靠海的宁夏，通过不断完善立体开放通道，推动特色产品8小时直抵中东及海外市场，加快建设更高水平内陆开放型经济试验区，积极打造中国向西开放重要节点。
+记者从国铁集团获悉，6月25日，西藏首条电气化铁路——拉林铁路开通运营满五周年，累计运送旅客超625万人次、货物超200万吨。
 
-宁夏回族自治区党委常委、自治区政府常务副主席陈春平17日在宁夏政府新闻办举办的新闻发布会上介绍，宁夏已与170多个国家和地区开展经贸往来，同44个国家建立68对友好城市关系，累计吸引外资企业1000余家。
+客运量质齐升 助力“人享其行” 全线单月旅客运送量由开通初期的5.9万人次增至最高15.38万人次，累计开行旅客列车超8000列。
 
-宁夏连续举办七届中阿博览会，不断深化同阿拉伯国家及共建“一带一路”国家的交流合作。
+持续优化列车运行图，拉萨至山南、林芝最快分别1小时02分、3小时49分可达，与拉萨至日喀则铁路实现互联互通，复兴号动车组可延伸运行至日喀则，打通了藏东南与日喀则市动车组运行通道。
 
-“十五五”期间，宁夏将实施全域开放，坚持对内对外开放协同推进。
+货运稳步增长 促进“物畅其流” 列车牵引吨数由2021年的781吨增至2026年的1618吨，2026年日均货物运送量较2021年增长35.7倍，5年来累计运送货物超200万吨。
 
-陈春平表示，宁夏将深度参与高质量共建“一带一路”，发挥中阿博览会、国际葡萄酒博览会等平台作用，建好用好国际葡萄与葡萄酒宁夏交流合作中心、中国—中亚荒漠化防治合作中心，拓展经贸、投资、产业等领域务实合作。
+加强铁路物流设施建设，大力发展集装箱运输，推进“门到门”运输，提升物流服务品质效率，林芝站铁路货场运量累计完成175万吨，成为雪域高原最具活力的物流节点之一。
 
-同时，宁夏将加强区域协作，深度参与西电东送、东数西算、东西部科技协同创新，促进内外联动发展。
+拉林铁路全长435.48公里，西起拉萨市，东至林芝市，设计时速160公里，90%以上线路位于海拔3000米以上，16次跨越雅鲁藏布江，桥隧比高达75%，于2021年6月25日正式开通运营，彻底结束了藏东南地区不通铁路的历史，复兴号动车组开上世界屋脊。
 
-作为西部陆海新通道重要节点，宁夏开放通道日趋完善。
-
-目前，宁夏高铁网络贯通南北，中欧(亚)班列、南向陆海新通道班列常态化开行，航空与铁路客运量均突破千万人次。
+(总台央视记者 翟壮 郑连凯)
 
 ## 相关推荐
 
-- 2026-06-30 09:22 - 本科毕业生为何涌入专科学校<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md
-- 2026-06-30 09:00 - 为什么很多企业推行“扁平化管理”后，效率反而下降了？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md
-- 2026-06-30 09:00 - 周冬雨多次说演不了话剧文城<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md
-- 2026-06-30 09:08 - 马宁怒怼巴拉圭教练组<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md
-- 2026-06-30 09:17 - 武磊：日本队有能力跟任何强队抗衡<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md
-- 2026-06-30 09:20 - 花少8要去世界杯举办国<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md
-- 2026-06-30 09:03 - 4种红薯的满分吃法！有手就会…但能让你大为震撼！<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md
-- 2026-06-30 09:07 - 高考结束，该不该外出打工体验？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md
-- 2026-06-30 09:15 - 浪姐成团夜爆笑吐槽<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md
-- 2026-06-30 08:59 - 韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md
+- 2026-06-30 09:06 - 法总统候选人：拒绝与中国激烈对抗<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md
+- 2026-06-30 09:13 - 萨内 看笑了<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md
+- 2026-06-30 09:04 - 有人见过武则天的画像吗，非常好奇？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md
+- 2026-06-30 09:20 - 免费试吃发差评被店家挂店门避雷<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md
+- 2026-06-30 09:00 - 古代时期普通老百姓能喝上酒吗？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md
+- 2026-06-30 09:16 - 三星投资计划<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md
+- 2026-06-30 09:23 - 马宁怒怼巴拉圭教练组<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md
+- 2026-06-30 09:01 - 四川宜宾地震瞬间鱼群乱跳<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md
+- 2026-06-30 09:17 - 如何把斧兵改造成精英怪？提高攻速移速！！！<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md
+- 2026-06-30 09:18 - 87克大金链到老庙黄金维修少了11克<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md
+- 2026-06-30 09:13 - 如何把斧兵改造成精英怪？提高攻速移速！！！<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md
+- 2026-06-30 09:20 - 网瘾賊大的阿嬷<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md
+- 2026-06-30 09:13 - 德国连续三届世界杯无缘16强<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md
+- 2026-06-30 09:17 - 哈弗茨头球破门<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md
+- 2026-06-30 09:11 - 武磊：巴西队赢的并不轻松<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:06 - 如何看待武亮说大学生生活费1500就够用这一言论？<br><br> | ??:http://www.blog.minike.top/Article/details/373801.shtml
-- 2026-06-30 09:20 - 王源近几年没有路演了<br><br> | ??:https://www.share.minike.top/Article/details/552814076978.shtml
-- 2026-06-30 08:58 - 德国巴拉圭 折磨<br><br> | ??:http://www.blog.minike.top/Article/details/78815485.shtml
-- 2026-06-30 09:11 - 三星投资计划<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/47777160.shtml
-- 2026-06-30 09:20 - 好像看到了人类带孩子崩溃的样子<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/66245035533.shtml
-- 2026-06-30 09:10 - 恋与深空<br><br> | ??:https://www.share.kurohicncr.top/Article/details/8512278242.shtml
-- 2026-06-30 09:15 - 木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？<br><br> | ??:http://www.share.minike.top/Article/details/085610.shtml
-- 2026-06-30 08:57 - 可以细成这样？1600万预算，颠覆我认知的改造！<br><br> | ??:https://www.share.minike.top/Article/details/020629601.shtml
-- 2026-06-30 08:54 - 欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/926788134045.shtml
-- 2026-06-30 09:12 - 承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？<br><br> | ??:http://www.share.minike.top/Article/details/9194450.shtml
-- 2026-06-30 08:59 - 如何改变自己太负责任的性格?<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/00302.shtml
-- 2026-06-30 09:09 - 女子用家人生日买彩票中1032万<br><br> | ??:http://www.share.minike.top/Article/details/1751912.shtml
-- 2026-06-30 09:19 - 巴西若输日本将创36年最差纪录<br><br> | ??:http://www.share.kurohicncr.top/Article/details/1221529629.shtml
-- 2026-06-30 08:55 - 覃予萱晋级WTT美国大满贯女单32强<br><br> | ??:http://www.share.kurohicncr.top/Article/details/0743872.shtml
-- 2026-06-30 08:59 - 韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/46728.shtml
+- 2026-06-30 09:19 - 郑钦文温网三连败西尼亚科娃<br><br> | ??:https://www.share.kurohicncr.top/Article/details/463914749537.shtml
+- 2026-06-30 08:56 - 巴拉圭先进球了<br><br> | ??:https://www.share.minike.top/Article/details/1975581.shtml
+- 2026-06-30 08:57 - 韩国球迷凌晨4点接机怒骂主教练<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/03446531487.shtml
+- 2026-06-30 09:01 - 本届世界杯已有5名球员被控强奸<br><br> | ??:https://www.share.kurohicncr.top/Article/details/851216.shtml
+- 2026-06-30 09:10 - 深扒韩国队淘汰背后原因<br><br> | ??:http://www.share.kurohicncr.top/Article/details/317384043151.shtml
+- 2026-06-30 09:17 - 普京为何将俄乌谈判时间表与伊朗挂钩<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/328585.shtml
+- 2026-06-30 09:21 - 董卿母亲癌症去世<br><br> | ??:https://www.blog.minike.top/Article/details/076291433.shtml
+- 2026-06-30 09:13 - 极端热浪席卷欧洲多国，热一热百姓让领导先凉快？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/857574.shtml
+- 2026-06-30 09:02 - 如何把斧兵改造成精英怪？提高攻速移速！！！<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/7971943.shtml
+- 2026-06-30 08:56 - 有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？<br><br> | ??:https://www.share.minike.top/Article/details/52566498.shtml
+- 2026-06-30 09:17 - 孙颖莎王楚钦晋级8强<br><br> | ??:https://www.share.kurohicncr.top/Article/details/9314644.shtml
+- 2026-06-30 08:56 - 泰山景区建135公里刀片刺绳隔离网<br><br> | ??:http://www.share.kurohicncr.top/Article/details/993314457770.shtml
+- 2026-06-30 09:23 - 刘宇宁是去进货了吗<br><br> | ??:https://www.share.minike.top/Article/details/96749982335.shtml
+- 2026-06-30 09:04 - 城市规划有可能成为「屎山代码」吗？<br><br> | ??:https://www.blog.minike.top/Article/details/008001751.shtml
+- 2026-06-30 08:58 - 外国游客开始涌入中国农村<br><br> | ??:http://www.share.kurohicncr.top/Article/details/6576778295.shtml

@@ -1,59 +1,61 @@
-# 书香赣鄱行：红色阅读如何深入人心？
+# 三大利空驱动 黄金延续弱势格局
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-中新网南昌4月19日电 题：书香赣鄱行：红色阅读如何深入人心？ 中新网记者 吴鹏泉 四月赣鄱，书墨飘香。由中宣部、江西省委、江西省政府主办的第五届全民阅读大会，将于4月20日至22日在南昌举办。 今年恰逢中国共产党成立105周年、中国工农红军长征胜利90周年。江西这片红土圣地上，红色阅读如何深入人心？将传承红色基因等融入全民阅读，正是本届大会的重要内容，也让赣鄱书香更具分量。
+文章来源：新华财经 新华财经北京6月25日电隔夜海外贵金属大幅下挫。其中现货黄金单日跌近3%，跌破每盎司4000美元关口，现货白银盘中跌超8%，双双刷新十三个月低点。短期在三大利空驱动压制下，金价继续探底之路，空头格局 基本面方面，日内影响金价波动的三大驱动分别为：其一，美联储鹰派彻底翻转定价。6月美联储点阵图19位委员中9位支持2026年内至少加息一次，市场押注9月加息概率飙
 
 ## 正文
 
-中新网南昌4月19日电 题：书香赣鄱行：红色阅读如何深入人心？
+文章来源：新华财经 新华财经北京6月25日电隔夜海外贵金属大幅下挫。
 
-中新网记者 吴鹏泉 四月赣鄱，书墨飘香。
+其中现货黄金单日跌近3%，跌破每盎司4000美元关口，现货白银盘中跌超8%，双双刷新十三个月低点。
 
-由中宣部、江西省委、江西省政府主办的第五届全民阅读大会，将于4月20日至22日在南昌举办。
+短期在三大利空驱动压制下，金价继续探底之路，空头格局 基本面方面，日内影响金价波动的三大驱动分别为：其一，美联储鹰派彻底翻转定价。
 
-今年恰逢中国共产党成立105周年、中国工农红军长征胜利90周年。
+6月美联储点阵图19位委员中9位支持2026年内至少加息一次，市场押注9月加息概率飙至70%，降息预期基本归零。
 
-江西这片红土圣地上，红色阅读如何深入人心？
+10年美债收益率站稳4.50%上方，无息黄金持有成本陡升。
 
-将传承红色基因等融入全民阅读，正是本届大会的重要内容，也让赣鄱书香更具分量。
+其二，美元冲13个月新高。
 
-情景交融，让红色阅读“入脑入心” 红色经典的生命力，源于与历史现场的深度共鸣。
+美元指数站上101.8，以美元计价的黄金被直接“计价压制”，海外实物买盘同步收缩。
 
-江西创新阅读形式，让峥嵘岁月走出纸页，可触可感。
+其三，避险溢价消退叠加资金踩踏。
 
 ## 相关推荐
 
-- 2026-06-30 09:09 - 妻子撞死家暴丈夫案二审案情反转<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md
-- 2026-06-30 09:00 - 杨某诋毁袁隆平院士科研成果被刑拘<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md
-- 2026-06-30 08:56 - 电影抓特务上映11天破亿<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md
-- 2026-06-30 09:07 - 斗破苍穹<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md
-- 2026-06-30 09:08 - 三星投资计划<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md
-- 2026-06-30 09:06 - 森保一致歉：世界第一目标没能实现<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md
-- 2026-06-30 09:01 - 金刚川<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md
-- 2026-06-30 09:14 - 斛珠夫人<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md
-- 2026-06-30 09:08 - 普京为何将俄乌谈判时间表与伊朗挂钩<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md
-- 2026-06-30 09:17 - 巴西vs日本<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md
-- 2026-06-30 09:14 - 美加墨世界杯：亚洲足球的得意与失意<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md
-- 2026-06-30 09:12 - GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md
-- 2026-06-30 09:23 - 德国罚丢3粒点球<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md
+- 2026-06-30 09:16 - 萨内 看笑了<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md
+- 2026-06-30 09:09 - 【Reaction】女生最少的5款游戏<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md
+- 2026-06-30 08:58 - 警方介入洪明甫死亡威胁<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md
+- 2026-06-30 09:22 - 女儿从清华毕业 爸爸晒出17年对比照<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md
+- 2026-06-30 09:13 - 「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md
+- 2026-06-30 08:59 - 张碧晨一开口梦回逐玉<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md
+- 2026-06-30 09:13 - 如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md
+- 2026-06-30 08:59 - 俄乌双方伤亡近180万人<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md
+- 2026-06-30 09:09 - 中国对日本再出重拳<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md
+- 2026-06-30 09:21 - 勇敢的心第二部<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md
+- 2026-06-30 09:21 - 不开心就去看三年前的购物订单<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md
+- 2026-06-30 09:19 - 千香<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md
+- 2026-06-30 09:09 - 女子健身不当 居然“脑子漏水”了<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md
+- 2026-06-30 09:00 - 勇敢的心第二部<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md
+- 2026-06-30 09:08 - 巴西若输日本将创36年最差纪录<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:21 - 杨紫大银幕成绩单<br><br> | ??:http://www.share.kurohicncr.top/Article/details/764060855077.shtml
-- 2026-06-30 09:02 - 世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/57065960.shtml
-- 2026-06-30 09:15 - 千万不要随便扣肚脐<br><br> | ??:http://www.blog.minike.top/Article/details/998460.shtml
-- 2026-06-30 09:22 - 2021湖南卫视跨年演唱会<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/423803665.shtml
-- 2026-06-30 09:10 - 如果有二次元高中是什么样子的？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/74548844290.shtml
-- 2026-06-30 09:20 - 德国队世界杯点球大战首败<br><br> | ??:http://www.share.minike.top/Article/details/9343590.shtml
-- 2026-06-30 09:17 - 博世们还在犹豫 美的们已经卖断货<br><br> | ??:http://www.share.minike.top/Article/details/103042291.shtml
-- 2026-06-30 08:56 - 流金岁月<br><br> | ??:http://www.share.minike.top/Article/details/74805.shtml
-- 2026-06-30 09:03 - 妻子撞死家暴丈夫案二审案情反转<br><br> | ??:http://www.share.kurohicncr.top/Article/details/38458.shtml
-- 2026-06-30 09:07 - 如何评价《龙之家族》第三季第二集？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/67574006725.shtml
-- 2026-06-30 09:15 - 韩国道歉完日本道歉<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/26893.shtml
-- 2026-06-30 09:01 - 蜘蛛侠:平行宇宙<br><br> | ??:http://www.blog.minike.top/Article/details/58520256.shtml
-- 2026-06-30 09:05 - 起风了<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/662967626557.shtml
-- 2026-06-30 09:05 - 如何评价《龙之家族》第三季第二集？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/673543741821.shtml
-- 2026-06-30 09:18 - 韩国人为什么这么在乎输赢<br><br> | ??:http://www.share.kurohicncr.top/Article/details/6851031.shtml
+- 2026-06-30 09:13 - 杨某诋毁袁隆平院士科研成果被刑拘<br><br> | ??:https://www.share.minike.top/Article/details/8273833051.shtml
+- 2026-06-30 08:58 - 女子遭家暴逃跑致丈夫身亡二审细节<br><br> | ??:http://www.share.kurohicncr.top/Article/details/01349.shtml
+- 2026-06-30 09:23 - 为什么香港的冲厕水是咸的？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/7159113832.shtml
+- 2026-06-30 09:06 - 女子清吧被陌生人投放伟哥<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/936707.shtml
+- 2026-06-30 09:14 - 小娘惹<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/72656721250.shtml
+- 2026-06-30 09:03 - 阿娇瘦了10斤<br><br> | ??:https://www.share.kurohicncr.top/Article/details/5485311243.shtml
+- 2026-06-30 09:09 - 媒体：手机测评该挤挤水分了<br><br> | ??:http://www.share.kurohicncr.top/Article/details/110502.shtml
+- 2026-06-30 09:13 - 泰山建135公里刀片刺绳隔离网<br><br> | ??:http://www.share.kurohicncr.top/Article/details/092784.shtml
+- 2026-06-30 09:02 - 杨紫获白玉兰视后争议不止<br><br> | ??:http://www.share.minike.top/Article/details/602379.shtml
+- 2026-06-30 09:05 - 失明的我带老妈去了趟“火星”<br><br> | ??:https://www.share.minike.top/Article/details/890631.shtml
+- 2026-06-30 09:03 - 欧洲家电巨头为何输掉了这个夏天<br><br> | ??:https://www.blog.minike.top/Article/details/741557.shtml
+- 2026-06-30 08:55 - 你的妻子大喷菇—《植物娘大战僵尸》特别篇<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/01022.shtml
+- 2026-06-30 09:11 - 世界杯巴拉圭点球淘汰德国<br><br> | ??:http://www.blog.minike.top/Article/details/735565.shtml
+- 2026-06-30 09:00 - 大蒜晒外面被路过女子连盆端走<br><br> | ??:http://www.share.minike.top/Article/details/8545057.shtml
+- 2026-06-30 09:09 - 女子健身不当 居然“脑子漏水”了<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/891931.shtml

@@ -1,59 +1,59 @@
-# 侨见重庆武隆 觅文旅、康养合作机遇
+# 广州专项整治“幽灵外卖” 下线餐饮外卖1850家
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-中新网重庆4月18日电 题：侨见重庆武隆 觅文旅、康养合作机遇 作者 张旭 “我久仰武隆的大名，它在港澳知名度很高，这次是第一次亲身到访，感受完全超出想象。”《澳门商报》新媒体中心主任洪小雅17日告诉中新网，武隆不仅气候宜人、山水雄奇壮美，生态底色十足，文旅发展也成熟而又接地气，保留了大自然原本的风貌。 4月16日至17日，以“行走中国 侨见重庆”为主题的2026海外华媒侨领走
+中新网广州6月24日电 (记者 许青青)据广州市市场监管局23日召开的治理网络餐饮食品安全问题专项整治现场会消息，今年上半年，广州市市场监管局持续加大网络餐饮日常监管力度，常态化开展线上动态监测和线下排查治理，聚焦“幽灵外卖”等突出问题开展专项整治，共下线入网餐饮服务提供者1850家，立案查处498宗。针对无资质、无固定场所的不法经营者，通过资质造假、套用许可、地址虚构等手段，
 
 ## 正文
 
-中新网重庆4月18日电 题：侨见重庆武隆 觅文旅、康养合作机遇 作者 张旭 “我久仰武隆的大名，它在港澳知名度很高，这次是第一次亲身到访，感受完全超出想象。
+中新网广州6月24日电 (记者 许青青)据广州市市场监管局23日召开的治理网络餐饮食品安全问题专项整治现场会消息，今年上半年，广州市市场监管局持续加大网络餐饮日常监管力度，常态化开展线上动态监测和线下排查治理，聚焦“幽灵外卖”等突出问题开展专项整治，共下线入网餐饮服务提供者1850家，立案查处498宗。
 
-”《澳门商报》新媒体中心主任洪小雅17日告诉中新网，武隆不仅气候宜人、山水雄奇壮美，生态底色十足，文旅发展也成熟而又接地气，保留了大自然原本的风貌。
+针对无资质、无固定场所的不法经营者，通过资质造假、套用许可、地址虚构等手段，在外卖平台伪装成正规商家营业的“幽灵外卖”，该局打出源头治理“组合拳”。
 
-4月16日至17日，以“行走中国 侨见重庆”为主题的2026海外华媒侨领走进渝东南联合参访活动走进重庆市武隆区，30多家海外华文媒体和10余位侨领在有“世界喀斯特生态博物馆”美誉的文旅大区，感受文旅、康养产业的蓬勃发展，寻觅合作机遇。
+首先是督促外卖平台开展全面自查，并与广州市餐饮商户许可数据对接核验，主动下架违规网店超3.7万家次。
 
-世界级自然景观 天生三桥、芙蓉洞、芙蓉江、仙女山大草原……参访团一行深入重庆武隆的多个景点，了解当地旅游产业发展情况。
+各相关平台开展食品安全管理制度修订更新，明确严禁商户随意修改公示地址及证照材料。
 
-现下还未到旅游旺季，在前述景点却游人如织，一派产业兴旺景象。
+在新增商户管理方面，明确要求新增入驻商户必须通过政务数据接口完成证照信息校验，合格后方可入网经营。
 
-在天生三桥景区，随处可见来自法国、泰国、越南、俄罗斯等地的游客。
+校验通过后，平台应即时锁定证照信息，严禁商户或客服私自篡改，从源头阻断“幽灵外卖”入网渠道。
 
-在仙女山大草原，来自越南的游客阮惠惠告诉中新网，她已多次来这里，不仅要春看草原，还要冬看雪，武隆“冰雪游”在越南等东盟国家很受欢迎。
+每半月推送证照信息变更和证照失效商户名单，督促各平台及时核查处置。
 
-洪小雅对参访的天生三桥景区印象最为深刻，她称，最打动她的一点是，景区没有过度商业化、没有过度开发，始终把自然生态保护放在第一位，最大限度保留了原生的山水肌理。
+此外，外卖平台间建立共享下线商户数据机制，共同清理问题商户。
 
 ## 相关推荐
 
-- 2026-06-30 09:20 - 女子清吧被陌生人投放伟哥<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md
-- 2026-06-30 09:11 - 日本五次世界杯淘汰赛全败<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md
-- 2026-06-30 09:12 - 我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md
-- 2026-06-30 09:12 - 日本将帅赛后采访纷纷哽咽落泪<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md
-- 2026-06-30 09:13 - 《我落泪情绪零碎》<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md
-- 2026-06-30 08:55 - 《共患难》<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md
-- 2026-06-30 08:54 - 张月收到黄灿灿辣货两眼发光<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md
-- 2026-06-30 08:56 - 如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md
-- 2026-06-30 09:03 - 内马尔安慰日本球员<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md
-- 2026-06-30 09:04 - 《恋与深空》被指触碰民族伤痛红线<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md
-- 2026-06-30 09:01 - 豆包收费了，你还会用吗？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md
-- 2026-06-30 08:57 - 终于把好哥们处成了情侣!<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md
-- 2026-06-30 09:02 - 2021江苏卫视跨年演唱会<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md
+- 2026-06-30 08:59 - 重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md
+- 2026-06-30 08:55 - 陈幸同晋级WTT美国大满贯女单32强<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md
+- 2026-06-30 09:06 - 古代时期普通老百姓能喝上酒吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md
+- 2026-06-30 09:16 - 找到了10年前跪舔b站的视频<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md
+- 2026-06-30 09:21 - 你这一辈子有没有为进山姆拼过命？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md
+- 2026-06-30 09:22 - 老人卖菜获博主帮助后遇车祸去世<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md
+- 2026-06-30 09:15 - 德国连续三届世界杯无缘16强<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md
+- 2026-06-30 09:20 - 送你一朵小红花<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md
+- 2026-06-30 09:08 - 蔚来回应高压水枪洗车掉漆<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md
+- 2026-06-30 08:59 - 峡谷事故团队组队时有人提醒会下雨<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md
+- 2026-06-30 08:54 - 《恋与深空》被指触碰民族伤痛红线<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md
+- 2026-06-30 08:56 - 豆包收费了，你还会用吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md
+- 2026-06-30 08:58 - 日本将帅赛后采访纷纷哽咽落泪<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:09 - 《共患难》<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/016772750.shtml
-- 2026-06-30 08:55 - 开电动汽车真的很省钱吗？<br><br> | ??:https://www.blog.minike.top/Article/details/976206611012.shtml
-- 2026-06-30 08:56 - 如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/69383713.shtml
-- 2026-06-30 09:17 - 有哪些值得一提的生活窍门？<br><br> | ??:http://www.blog.minike.top/Article/details/228311819.shtml
-- 2026-06-30 09:08 - 德国北部枪击事件致5死<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/3687369879.shtml
-- 2026-06-30 09:05 - 日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/100886375.shtml
-- 2026-06-30 08:58 - 黄晓明晒和周杰伦的合照<br><br> | ??:https://www.blog.minike.top/Article/details/31934.shtml
-- 2026-06-30 09:23 - 杨紫学位证上就是杨紫<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/6904442.shtml
-- 2026-06-30 09:05 - 马杜罗账号在纽约发文致谢各国援助<br><br> | ??:https://www.share.minike.top/Article/details/526952169.shtml
-- 2026-06-30 09:06 - 美媒：美军第五舰队司令部已无法使用<br><br> | ??:http://www.blog.minike.top/Article/details/86394544.shtml
-- 2026-06-30 09:21 - 2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？<br><br> | ??:http://www.blog.minike.top/Article/details/50376735476.shtml
-- 2026-06-30 08:58 - 恋与深空回应争议<br><br> | ??:http://www.blog.minike.top/Article/details/9006613406.shtml
-- 2026-06-30 09:06 - 王濛回复黄灿灿<br><br> | ??:https://www.share.kurohicncr.top/Article/details/19024.shtml
-- 2026-06-30 09:20 - 诺伊尔尽力了<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/0781131.shtml
-- 2026-06-30 09:23 - 豆包收费了，你还会用吗？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/355174490.shtml
+- 2026-06-30 08:58 - 第一次对自信的力量有了实感<br><br> | ??:http://www.share.kurohicncr.top/Article/details/901627.shtml
+- 2026-06-30 09:12 - 库尼亚赛后伸五指嘲讽日本<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/7106834532.shtml
+- 2026-06-30 08:57 - 有哪些被认为是现代才有的东西其实古代就有了？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/73877.shtml
+- 2026-06-30 09:03 - 世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？<br><br> | ??:https://www.share.minike.top/Article/details/47337301.shtml
+- 2026-06-30 09:16 - 阿娇瘦了10斤<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/0705942641.shtml
+- 2026-06-30 08:55 - 要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/21447340886.shtml
+- 2026-06-30 08:54 - 点球淘汰德国 巴拉圭首都陷入疯狂<br><br> | ??:https://www.share.kurohicncr.top/Article/details/486307.shtml
+- 2026-06-30 09:24 - 日本队主帅道歉<br><br> | ??:https://www.share.minike.top/Article/details/67540.shtml
+- 2026-06-30 09:04 - 《共患难》<br><br> | ??:https://www.blog.minike.top/Article/details/597004.shtml
+- 2026-06-30 09:16 - 这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆<br><br> | ??:http://www.share.kurohicncr.top/Article/details/46839894.shtml
+- 2026-06-30 09:08 - 《贺子珍》<br><br> | ??:http://www.blog.minike.top/Article/details/42961439055.shtml
+- 2026-06-30 09:23 - 人类...完蛋了...<br><br> | ??:https://www.share.kurohicncr.top/Article/details/39406.shtml
+- 2026-06-30 09:23 - 金鹰奖视后提名预测<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/04243.shtml
+- 2026-06-30 09:05 - 斗破苍穹<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/25337.shtml
+- 2026-06-30 09:10 - 奔跑吧·黄河篇第二季<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/721482.shtml

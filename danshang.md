@@ -1,56 +1,61 @@
-# 受公用事业与矿业股拖累，伦敦富时100指数小幅走低
+# 全链条扩大汽车消费撬动万亿级新蓝海
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-英国基准股指富时100指数周五小幅下跌，受公用事业及矿业股拖累，或将终结连续三周的上涨势头。 媒体周四报道称，财政大臣雷切尔・里夫斯誓言切断天然气与电力价格的关联，此后公用事业公司股价走低，拖累基准指数下挫。 截至格林尼治标准时间上午10时10分，蓝筹股指数富时100下跌0.1%，报10581.06点；中型股指数富时250上涨0.1%，有望实现连续第三周上涨。 公用事业板块下跌
+未来，中国人不仅要买到一辆好车，还要用好、玩好一辆车。 23日，全链条扩大汽车消费再推新举措。《关于培育壮大汽车后市场消费若干措施的通知》对外公布，聚焦汽车改装、房车露营等六大领域，提出17条具体举措。此外，官方还公布了开展汽车流通消费改革试点的城市名单。 同日，国新办举行新闻发布会，就政策进行解读。 信号很明确：做大做强汽车消费！ 根据官方公布的数据，截至目前，中国汽车保有量
 
 ## 正文
 
-英国基准股指富时100指数周五小幅下跌，受公用事业及矿业股拖累，或将终结连续三周的上涨势头。
+未来，中国人不仅要买到一辆好车，还要用好、玩好一辆车。
 
-媒体周四报道称，财政大臣雷切尔・里夫斯誓言切断天然气与电力价格的关联，此后公用事业公司股价走低，拖累基准指数下挫。
+23日，全链条扩大汽车消费再推新举措。
 
-截至格林尼治标准时间上午10时10分，蓝筹股指数富时100下跌0.1%，报10581.06点；中型股指数富时250上涨0.1%，有望实现连续第三周上涨。
+《关于培育壮大汽车后市场消费若干措施的通知》对外公布，聚焦汽车改装、房车露营等六大领域，提出17条具体举措。
 
-公用事业板块下跌2.7%，其中国家电网、森特理克水务集团均下跌1.3%；苏格兰和南方能源集团、英国燃气母公司森特理克跌幅均超5%。
+此外，官方还公布了开展汽车流通消费改革试点的城市名单。
 
-受金属价格走势影响，矿业股英美资源集团、嘉能可分别下跌1.9%和1.3%。
+同日，国新办举行新闻发布会，就政策进行解读。
 
-贵金属矿业股与工业矿业股跌幅均超1%。
+信号很明确：做大做强汽车消费！
 
-大型银行股下跌0.1%。
+根据官方公布的数据，截至目前，中国汽车保有量已达到3.7亿辆，汽车销量连续17年位居全球第一，是名副其实的汽车大国。
 
-石油巨头英国石油、壳牌均下跌0.5%，原因是市场预期美国与伊朗的冲突有望结束，原油价格走低。
+从消费看，汽车类商品零售额占社零总额的比重约为10%；从投资和出口看，汽车业占制造业投资、汽车及零部件占货物贸易出口的比重均在6%左右。
 
 ## 相关推荐
 
-- 2026-06-30 09:01 - 欧洲民众抢购空调降温<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md
-- 2026-06-30 09:08 - 巴西绝杀日本<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md
-- 2026-06-30 09:10 - 如何评价DeepSeek 提出的 DSpark 推理加速方案？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md
-- 2026-06-30 09:23 - 如果有二次元高中是什么样子的？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md
-- 2026-06-30 08:55 - 宜宾地震食客避难后折返 无人逃单<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md
-- 2026-06-30 09:23 - 花少8要去世界杯举办国<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md
-- 2026-06-30 09:08 - 手底下人带不动怎么办？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md
-- 2026-06-30 09:21 - 挪威国家队紧急从本土订购大批海鲜<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md
-- 2026-06-30 08:55 - 五哈和他们的朋友<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md
-- 2026-06-30 09:12 - 失明的我带老妈去了趟“火星”<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md
+- 2026-06-30 09:19 - 德国进球被吹<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md
+- 2026-06-30 09:20 - 这些7月新规影响你我<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md
+- 2026-06-30 09:13 - 库尼亚赛后伸五指嘲讽日本<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md
+- 2026-06-30 08:54 - 巴西在进攻三区完成210脚传球<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md
+- 2026-06-30 08:57 - 郑钦文温网一轮游<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md
+- 2026-06-30 09:22 - 第一次对自信的力量有了实感<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md
+- 2026-06-30 08:55 - 如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md
+- 2026-06-30 09:16 - 美股深夜大反弹 特斯拉飙涨8%<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md
+- 2026-06-30 09:13 - 德国爆冷点球大战不敌巴拉圭<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md
+- 2026-06-30 09:09 - 全新问界M9现身美国街头<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md
+- 2026-06-30 09:08 - 宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md
+- 2026-06-30 09:06 - 德国4比5巴拉圭<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md
+- 2026-06-30 09:14 - 人可以极简主义到什么程度？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md
+- 2026-06-30 09:23 - 曝娱乐圈大部分明星失业<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md
+- 2026-06-30 09:00 - 自然光｜papi酱&窦文涛：驴与跑步机<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:58 - 法总统候选人：拒绝与中国激烈对抗<br><br> | ??:http://www.share.minike.top/Article/details/77707.shtml
-- 2026-06-30 09:15 - 哈弗茨头球破门<br><br> | ??:http://www.share.minike.top/Article/details/94349933.shtml
-- 2026-06-30 08:58 - 欧盟分楼层开空调惹争议<br><br> | ??:https://www.blog.minike.top/Article/details/9871009.shtml
-- 2026-06-30 09:07 - 韩国球迷凌晨4点接机怒骂主教练<br><br> | ??:https://www.blog.minike.top/Article/details/17572518088.shtml
-- 2026-06-30 09:07 - 人可以极简主义到什么程度？<br><br> | ??:http://www.blog.minike.top/Article/details/7266388394.shtml
-- 2026-06-30 09:06 - 如何改变自己太负责任的性格?<br><br> | ??:https://www.share.kurohicncr.top/Article/details/528725087317.shtml
-- 2026-06-30 09:00 - 球评巴西绝杀逆转日本<br><br> | ??:http://www.share.kurohicncr.top/Article/details/18751.shtml
-- 2026-06-30 08:59 - 巴拉圭率先破门<br><br> | ??:https://www.share.minike.top/Article/details/0579797.shtml
-- 2026-06-30 09:11 - 世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？<br><br> | ??:https://www.share.minike.top/Article/details/24095510.shtml
-- 2026-06-30 08:58 - 欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？<br><br> | ??:http://www.blog.minike.top/Article/details/0045170.shtml
-- 2026-06-30 09:21 - 找到了10年前跪舔b站的视频<br><br> | ??:http://www.blog.minike.top/Article/details/61822036.shtml
-- 2026-06-30 09:09 - 韩国人为什么这么在乎输赢<br><br> | ??:https://www.blog.minike.top/Article/details/550587439290.shtml
-- 2026-06-30 09:16 - 王欣瑜连续4年晋级温网第二轮<br><br> | ??:https://www.share.minike.top/Article/details/67930.shtml
-- 2026-06-30 08:59 - 《我落泪情绪零碎》<br><br> | ??:http://www.share.minike.top/Article/details/821299.shtml
-- 2026-06-30 08:54 - iPhoneUltra黑色机模<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/9901291.shtml
+- 2026-06-30 09:02 - ASMR 千禧年百货大楼初代柜姐给你化大头贴妆<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/0053396493.shtml
+- 2026-06-30 09:18 - 如何评价DeepSeek 提出的 DSpark 推理加速方案？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/55666.shtml
+- 2026-06-30 09:23 - 中国新一轮出口管制直指日本命脉<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/168579.shtml
+- 2026-06-30 09:17 - 想问一下学日语的大佬，自学日语要怎么学？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/07772672814.shtml
+- 2026-06-30 09:09 - 俄乌双方伤亡近180万人<br><br> | ??:http://www.share.minike.top/Article/details/018591.shtml
+- 2026-06-30 09:00 - 为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/345201749987.shtml
+- 2026-06-30 09:22 - 马宁怒怼巴拉圭教练组<br><br> | ??:https://www.blog.minike.top/Article/details/068363525672.shtml
+- 2026-06-30 09:03 - 杨紫学位证上就是杨紫<br><br> | ??:https://www.share.minike.top/Article/details/2146185807.shtml
+- 2026-06-30 09:06 - 韩国人为什么这么在乎输赢<br><br> | ??:https://www.blog.minike.top/Article/details/653893307046.shtml
+- 2026-06-30 09:22 - 李在明向韩国两大财阀90度鞠躬<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/4677630.shtml
+- 2026-06-30 09:12 - 卢卡申科发布解放军仪仗队视频<br><br> | ??:https://www.share.minike.top/Article/details/60743171.shtml
+- 2026-06-30 08:56 - 时光音乐会<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/0582088051.shtml
+- 2026-06-30 08:54 - 亚洲球队全部告别世界杯<br><br> | ??:http://www.share.kurohicncr.top/Article/details/94210.shtml
+- 2026-06-30 09:04 - 黄晓明夸昆凌引杨颖对比<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/58608.shtml
+- 2026-06-30 09:18 - 4种红薯的满分吃法！有手就会…但能让你大为震撼！<br><br> | ??:http://www.share.minike.top/Article/details/825189337555.shtml

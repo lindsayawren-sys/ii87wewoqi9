@@ -1,46 +1,57 @@
-# 台湾女孩在云南过泼水节被邀请加入民族团结巡游队
+# 大反弹！港股存储、半导体大涨
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月17日 19:37 来源：中国新闻网 近日，台湾自媒体博主王安琪在云南省临沧市耿马县参加泼水节系列活动。在民族团结方阵巡游时，从小学习舞蹈的她忍不住加入队伍，与当地民众同跳一支舞。(王临梓 陈静 王昭予 制作 田敏娜） 责任编辑：【罗攀】
+来源：中国基金报 【导读】港股止跌反弹，三大指数齐涨；存储、半导体大涨，生物医药股涨幅居前。 中国基金报记者 伊万 6月24日，港股止跌反弹，三大指数集体收涨。截至收盘，恒生指数涨0.33%，报23412.18点；恒生国企指数涨0.07%，报7764.97点；恒生科技指数涨1.81%，报4479.02点。 盘面上，大型科技股涨跌不一。腾讯涨超3%，百度涨超2%，小米涨超1%，美
 
 ## 正文
 
-发布时间：2026年04月17日 19:37 来源：中国新闻网 近日，台湾自媒体博主王安琪在云南省临沧市耿马县参加泼水节系列活动。
+来源：中国基金报 【导读】港股止跌反弹，三大指数齐涨；存储、半导体大涨，生物医药股涨幅居前。
 
-在民族团结方阵巡游时，从小学习舞蹈的她忍不住加入队伍，与当地民众同跳一支舞。
+中国基金报记者 伊万 6月24日，港股止跌反弹，三大指数集体收涨。
 
-(王临梓 陈静 王昭予 制作 田敏娜） 责任编辑：【罗攀】
+截至收盘，恒生指数涨0.33%，报23412.18点；恒生国企指数涨0.07%，报7764.97点；恒生科技指数涨1.81%，报4479.02点。
+
+盘面上，大型科技股涨跌不一。
+
+腾讯涨超3%，百度涨超2%，小米涨超1%，美团、京东、网易、快手等走低；存储、半导体等概念股大涨，华虹宏力涨超15%，中芯国际涨近9%，澜起科技、兆易创新涨超5%；生物医药涨幅居前，金斯瑞生物科技涨超11%，药明合联、药明康德涨超8%。
+
+另一方面，大金融股低迷，光伏太阳能、电力设备股大跌。
+
+存储、半导体大涨 华虹宏力涨超15%并创新高 6月24日，港股AI“硬科技”卷土重来，存储、半导体概念股大涨。
+
+其中，华虹宏力涨超15%，股价创新高；中芯国际涨近9%，澜起科技、兆易创新涨超5%。
 
 ## 相关推荐
 
-- 2026-06-30 09:22 - 大蒜晒外面被路过女子连盆端走<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md
-- 2026-06-30 09:14 - 披荆斩棘的哥哥<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md
-- 2026-06-30 09:10 - 中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md
-- 2026-06-30 09:10 - 锐评：网红不能困在无底线逐利里<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md
-- 2026-06-30 09:13 - 世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md
-- 2026-06-30 09:04 - 曝灰熊将莫兰特交易至开拓者<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md
-- 2026-06-30 09:08 - 健全中小学教师工资长效联动机制<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md
-- 2026-06-30 08:56 - 时光音乐会<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md
-- 2026-06-30 09:11 - “中国养猪场都用上空调了”！这是真的吗？【主播说三农】<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md
-- 2026-06-30 09:09 - 如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md
+- 2026-06-30 09:05 - 韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md
+- 2026-06-30 09:22 - 爆冷出局！德国点球大战不敌巴拉圭<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md
+- 2026-06-30 08:56 - 恋与深空回应争议<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md
+- 2026-06-30 09:16 - 大货车掉落螺丝扎进骑手护目镜<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md
+- 2026-06-30 09:10 - 这几秒成世界杯最值钱广告位<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md
+- 2026-06-30 09:12 - 日本16强魔咒<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md
+- 2026-06-30 08:57 - 网红峡谷5人溺亡 有人提醒会下雨<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md
+- 2026-06-30 09:16 - "超算小姐，这一次，我一定要带你出去..."<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md
+- 2026-06-30 09:20 - 恋与深空已删除锅里洗澡文案<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md
+- 2026-06-30 08:56 - 外国游客开始涌入中国农村<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md
+- 2026-06-30 09:18 - 巴西vs日本<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:07 - 宜宾地震食客避难后折返 无人逃单<br><br> | ??:http://www.share.kurohicncr.top/Article/details/98368092.shtml
-- 2026-06-30 08:58 - 巴西绝杀日本<br><br> | ??:https://www.blog.minike.top/Article/details/7390878949.shtml
-- 2026-06-30 09:04 - 【硬核拆解】汽车人到底离我们有多远？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/58097418634.shtml
-- 2026-06-30 08:55 - 又一家县级医院关停门诊输液大厅<br><br> | ??:http://www.share.minike.top/Article/details/742839505086.shtml
-- 2026-06-30 09:00 - 勇士续约波尔津吉斯<br><br> | ??:https://www.share.minike.top/Article/details/962467.shtml
-- 2026-06-30 09:00 - 消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/2876338.shtml
-- 2026-06-30 09:07 - 女子清吧被陌生人投放伟哥<br><br> | ??:http://www.share.minike.top/Article/details/95613.shtml
-- 2026-06-30 09:14 - 2021江苏卫视跨年演唱会<br><br> | ??:http://www.blog.minike.top/Article/details/4928411.shtml
-- 2026-06-30 09:01 - 藤森庆子赢得秘鲁总统选举<br><br> | ??:https://www.share.minike.top/Article/details/870056291969.shtml
-- 2026-06-30 09:02 - 我和我的家乡<br><br> | ??:http://www.share.minike.top/Article/details/139399980520.shtml
-- 2026-06-30 09:12 - HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/7659933523.shtml
-- 2026-06-30 09:14 - 亚洲球队全部出局<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/414229806.shtml
-- 2026-06-30 08:55 - 中国代表在联合国点名日本所犯罪行<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/641795469.shtml
-- 2026-06-30 09:22 - 2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？<br><br> | ??:http://www.blog.minike.top/Article/details/017484.shtml
-- 2026-06-30 09:08 - 为什么很多企业推行“扁平化管理”后，效率反而下降了？<br><br> | ??:http://www.share.minike.top/Article/details/157287273.shtml
+- 2026-06-30 09:22 - 世界杯欧洲队7战南美仅1胜<br><br> | ??:http://www.share.minike.top/Article/details/651608251549.shtml
+- 2026-06-30 08:59 - 德国进球被吹<br><br> | ??:http://www.share.minike.top/Article/details/692390714232.shtml
+- 2026-06-30 09:15 - 豆包收费了，你还会用吗？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/210874529.shtml
+- 2026-06-30 09:05 - 毕业以后，你最怀念的大学记忆是什么？<br><br> | ??:http://www.blog.minike.top/Article/details/8936287.shtml
+- 2026-06-30 09:02 - 周生如故<br><br> | ??:http://www.blog.minike.top/Article/details/8082172363.shtml
+- 2026-06-30 08:57 - 【大鸣王潮1566】真拿你没办法<br><br> | ??:https://www.blog.minike.top/Article/details/00099380.shtml
+- 2026-06-30 08:54 - “错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】<br><br> | ??:http://www.share.kurohicncr.top/Article/details/3630935.shtml
+- 2026-06-30 09:08 - 网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/700847.shtml
+- 2026-06-30 09:08 - 峡谷事故团队组队时有人提醒会下雨<br><br> | ??:https://www.blog.minike.top/Article/details/2564034488.shtml
+- 2026-06-30 09:19 - 补时绝杀 巴西2-1淘汰日本<br><br> | ??:http://www.share.minike.top/Article/details/320179720.shtml
+- 2026-06-30 09:09 - 收到补税提醒尽快办理 明起有滞纳金<br><br> | ??:https://www.blog.minike.top/Article/details/70922712.shtml
+- 2026-06-30 09:23 - 阿娇瘦了10斤<br><br> | ??:https://www.blog.minike.top/Article/details/844220401.shtml
+- 2026-06-30 09:18 - 第一次对自信的力量有了实感<br><br> | ??:http://www.blog.minike.top/Article/details/654809317377.shtml
+- 2026-06-30 09:14 - 男子醉酒溺水获救后同行人拒协助抬人<br><br> | ??:https://www.share.minike.top/Article/details/816374235.shtml
+- 2026-06-30 09:18 - 妻子撞死家暴丈夫案二审案情反转<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/07427471.shtml

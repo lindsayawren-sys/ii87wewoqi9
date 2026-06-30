@@ -1,51 +1,55 @@
-# 凯乐士科技：稳定价格期结束 超额配股权失效
+# 特朗普取消签署两党住房法案，要求加入选民身份认证相关条款
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-凯乐士科技（02729）公布，有关全球发售的稳定价格期已于2026年4月18日（星期六）（即递交香港公开发售申请截止日期后第30日）结束。 保荐人兼整体协调人（为其本身及代表国际包销商）已确认，国际发售项下并无超额分配股份。因此，超额配股权并无获行使，且超额配股权已于2026年4月18日（星期六）失效。公司获稳定价格经办人知会，于稳定价格期内，稳定价格经办人或代其行事的任何人士
+美国总统唐纳德・特朗普于本周三在其个人社交平台 “真实社交” 上宣布，取消原定在国会山举行的一项里程碑式两党住房法案签署仪式。这份法案此前曾被两党领导人共同称作一次重大立法成果。 特朗普在距离原定前往国会签署该法案、将其正式立法仅剩一小时出头时发布了这条帖子：“现取消本次住房法案新闻发布会及签署仪式，直至国会通过亟需落地的《拯救美国法案》为止，我将该法案的立法事宜视作一项国家紧
 
 ## 正文
 
-凯乐士科技（02729）公布，有关全球发售的稳定价格期已于2026年4月18日（星期六）（即递交香港公开发售申请截止日期后第30日）结束。
+美国总统唐纳德・特朗普于本周三在其个人社交平台 “真实社交” 上宣布，取消原定在国会山举行的一项里程碑式两党住房法案签署仪式。
 
-保荐人兼整体协调人（为其本身及代表国际包销商）已确认，国际发售项下并无超额分配股份。
+这份法案此前曾被两党领导人共同称作一次重大立法成果。
 
-因此，超额配股权并无获行使，且超额配股权已于2026年4月18日（星期六）失效。
+特朗普在距离原定前往国会签署该法案、将其正式立法仅剩一小时出头时发布了这条帖子：“现取消本次住房法案新闻发布会及签署仪式，直至国会通过亟需落地的《拯救美国法案》为止，我将该法案的立法事宜视作一项国家紧急事务。
 
-公司获稳定价格经办人知会，于稳定价格期内，稳定价格经办人或代其行事的任何人士并无采取任何稳定价格行动。
+感谢各方对此事的关注。
 
-责任编辑：卢昱君
+”责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-30 09:19 - 刘宇宁高情商化解谁站C位<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md
-- 2026-06-30 09:07 - 欧盟分楼层开空调惹争议<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md
-- 2026-06-30 09:01 - 中国对日本再出重拳<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md
-- 2026-06-30 09:04 - 世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md
-- 2026-06-30 09:00 - 卢卡申科发布解放军仪仗队视频<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md
-- 2026-06-30 08:59 - 王楚钦孙颖莎vs皮斯特耶库库洛娃<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md
-- 2026-06-30 09:20 - 为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md
-- 2026-06-30 09:20 - “荒唐”背后的韩国足球<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md
-- 2026-06-30 09:17 - 不开心就去看三年前的购物订单<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md
-- 2026-06-30 09:00 - 有哪些被认为是现代才有的东西其实古代就有了？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md
-- 2026-06-30 09:01 - 媒体评泰山建135公里刀片刺绳隔离网<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md
+- 2026-06-30 09:21 - 曝iPhone18Pro机密文件现身暗网<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md
+- 2026-06-30 09:22 - 一见倾心<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md
+- 2026-06-30 09:05 - 青春环游记第三季<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md
+- 2026-06-30 09:08 - 为什么很多企业推行“扁平化管理”后，效率反而下降了？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md
+- 2026-06-30 08:59 - 美人鱼<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md
+- 2026-06-30 09:02 - 全球最火存储ETF纳入兆易创新<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md
+- 2026-06-30 09:21 - 诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md
+- 2026-06-30 09:18 - 亚洲球队全部告别世界杯<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md
+- 2026-06-30 09:11 - 马耳他著名拱门坍塌致中国男子身亡<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md
+- 2026-06-30 09:09 - 马耳他著名拱门坍塌致一中国男子身亡<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md
+- 2026-06-30 09:08 - 极端热浪席卷欧洲多国，热一热百姓让领导先凉快？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md
+- 2026-06-30 08:59 - 覃予萱晋级WTT美国大满贯女单32强<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md
+- 2026-06-30 09:09 - 你的妻子大喷菇—《植物娘大战僵尸》特别篇<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md
+- 2026-06-30 09:19 - 赵今麦因“瘦而不柴”的体态出圈<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md
+- 2026-06-30 08:54 - 送你一朵小红花<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:21 - 把毒品藏在哪里，60秒内不会被发现？<br><br> | ??:http://www.share.minike.top/Article/details/44372.shtml
-- 2026-06-30 09:04 - 吴启华卖肖像权拍AI电影<br><br> | ??:http://www.blog.minike.top/Article/details/481916031.shtml
-- 2026-06-30 09:22 - 【硬核拆解】汽车人到底离我们有多远？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/07195.shtml
-- 2026-06-30 09:17 - 佐野海舟远射破门<br><br> | ??:https://www.share.minike.top/Article/details/43257011439.shtml
-- 2026-06-30 08:56 - 韩国人为什么这么在乎输赢<br><br> | ??:http://www.share.kurohicncr.top/Article/details/4403626403.shtml
-- 2026-06-30 09:04 - 央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/73115284139.shtml
-- 2026-06-30 09:10 - 男子醉酒溺水获救后同行人拒协助抬人<br><br> | ??:http://www.share.kurohicncr.top/Article/details/96914845.shtml
-- 2026-06-30 09:07 - 韩国世界杯出局是主帅一个人的锅吗<br><br> | ??:https://www.share.kurohicncr.top/Article/details/408827.shtml
-- 2026-06-30 09:09 - 挪威国家队紧急从本土订购大批海鲜<br><br> | ??:http://www.share.minike.top/Article/details/7513852975.shtml
-- 2026-06-30 09:07 - 马宁怒怼巴拉圭教练组<br><br> | ??:http://www.share.minike.top/Article/details/94032894.shtml
-- 2026-06-30 09:05 - 董卿父亲报纸上发文悼念亡妻<br><br> | ??:http://www.share.kurohicncr.top/Article/details/817920305.shtml
-- 2026-06-30 09:08 - 曝詹姆斯即将与勇士会面<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/4118541.shtml
-- 2026-06-30 08:56 - 曝詹姆斯即将与勇士会面<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/447673861043.shtml
-- 2026-06-30 08:56 - 日本主帅赛后回应淘汰出局<br><br> | ??:https://www.share.kurohicncr.top/Article/details/787741.shtml
-- 2026-06-30 08:54 - 科学备孕男女都要上心<br><br> | ??:http://www.blog.minike.top/Article/details/87903006213.shtml
+- 2026-06-30 08:59 - 佐野海舟远射破门<br><br> | ??:http://www.blog.minike.top/Article/details/86217.shtml
+- 2026-06-30 09:06 - 扫黑风暴<br><br> | ??:https://www.share.minike.top/Article/details/016553663608.shtml
+- 2026-06-30 09:13 - 如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/036385.shtml
+- 2026-06-30 09:15 - 4000美元是黄金新一轮下跌的开始吗<br><br> | ??:https://www.blog.minike.top/Article/details/17908782.shtml
+- 2026-06-30 09:03 - 王欣瑜连续4年晋级温网第二轮<br><br> | ??:http://www.blog.minike.top/Article/details/34865.shtml
+- 2026-06-30 09:04 - 商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/147187.shtml
+- 2026-06-30 09:13 - 法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/6742120.shtml
+- 2026-06-30 09:11 - 恋与深空回应争议<br><br> | ??:http://www.blog.minike.top/Article/details/13029242020.shtml
+- 2026-06-30 09:22 - 木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？<br><br> | ??:https://www.blog.minike.top/Article/details/965981711.shtml
+- 2026-06-30 08:55 - 德国巴拉圭 折磨<br><br> | ??:http://www.share.minike.top/Article/details/517170709.shtml
+- 2026-06-30 09:06 - 补时绝杀 巴西2-1淘汰日本<br><br> | ??:http://www.share.kurohicncr.top/Article/details/114498774.shtml
+- 2026-06-30 09:08 - 2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？<br><br> | ??:http://www.share.minike.top/Article/details/9210636.shtml
+- 2026-06-30 08:54 - 锐评：网红不能困在无底线逐利里<br><br> | ??:http://www.blog.minike.top/Article/details/0749358.shtml
+- 2026-06-30 09:01 - 《虎吹最难绷の一集》<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/054476628646.shtml
+- 2026-06-30 09:07 - 老人卖菜获博主帮助后遇车祸去世<br><br> | ??:https://www.share.minike.top/Article/details/626351226.shtml

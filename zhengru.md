@@ -1,60 +1,61 @@
-# 霍尔木兹海峡反复“开关”，剧烈波动之下周期板块如何投资？
+# 韩国央行警告：杠杆投资增加对金融稳定构成威胁
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-近期霍尔木兹海峡局势反复拉锯，牵动着全球能源市场的神经，也搅动了资源品及周期板块的行情走势。 面对不确定性加大的宏观环境，长城基金旗下周期板块基金经理陈子扬坦言，周期行业波动加大，投资难度随之上升。但专业的周期股投资从来不是赚“情绪博弈”的钱，而是锚定长期趋势，寻找具备确定性的产业逻辑。 陈子扬判断，本轮始于2018-2019年的大宗商品大产能周期尚未结束，供给端的长期刚性约束
+韩国央行周三表示，韩国金融体系依然稳定，但房价上涨和股市上涨带动杠杆投资增加，可能加剧金融失衡。 韩国央行在其金融稳定报告中指出：“尽管存在国内外不确定性，但韩国金融体系总体上被评估为稳定，这得益于实体经济的持续增长、金融机构的稳健韧性以及国家外部偿付能力。” “然而，鉴于国内金融和外汇市场波动性显著加剧，潜在风险仍然是潜在的不稳定因素，需要密切关注。” 韩国央行表示，潜在风险
 
 ## 正文
 
-近期霍尔木兹海峡局势反复拉锯，牵动着全球能源市场的神经，也搅动了资源品及周期板块的行情走势。
+韩国央行周三表示，韩国金融体系依然稳定，但房价上涨和股市上涨带动杠杆投资增加，可能加剧金融失衡。
 
-面对不确定性加大的宏观环境，长城基金旗下周期板块基金经理陈子扬坦言，周期行业波动加大，投资难度随之上升。
+韩国央行在其金融稳定报告中指出：“尽管存在国内外不确定性，但韩国金融体系总体上被评估为稳定，这得益于实体经济的持续增长、金融机构的稳健韧性以及国家外部偿付能力。
 
-但专业的周期股投资从来不是赚“情绪博弈”的钱，而是锚定长期趋势，寻找具备确定性的产业逻辑。
+” “然而，鉴于国内金融和外汇市场波动性显著加剧，潜在风险仍然是潜在的不稳定因素，需要密切关注。
 
-陈子扬判断，本轮始于2018-2019年的大宗商品大产能周期尚未结束，供给端的长期刚性约束仍是核心支撑，当前的剧烈震荡恰恰是筛选优质标的、布局确定性机会的窗口期。
+” 韩国央行表示，潜在风险包括首尔及其他地区房价再度飙升导致的金融失衡加剧、杠杆投资增加以及脆弱行业不良贷款蔓延的担忧。
 
-以供给为锚，穿越不确定性 在复杂多变的市场中寻找相对确定的机会，是当前投资的核心课题。
+韩国第一季度家庭贷款同比增长3.5%，达到1993.1万亿韩元（约合1.3万亿美元），增速较为温和。
 
-对陈子扬而言，供给端正是他的解题抓手。
+但近几个月来，受首尔地区房价上涨的影响，家庭贷款月度增速有所加快。
 
-他指出，周期投资的底层逻辑在于供需关系，但研究重心应更多落在供给端。
+韩国央行表示：“家庭信贷增速再次加快，值得注意的是，对于部分行业的弱势家庭借款人和企业而言，信贷风险依然较高。
 
-在他看来，需求端变化快、突发因素多，既受宏观经济、政策调控影响，又容易被地缘事件、市场情绪左右，几乎无法精准预判。
+” 报告指出，受韩元贬值和外资净流出的影响，韩国金融市场上半年波动剧烈。
 
 ## 相关推荐
 
-- 2026-06-30 09:12 - 道友？你来真的啊？【凡人官方二创大会】<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md
-- 2026-06-30 09:07 - 欧洲装一台空调有多难<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md
-- 2026-06-30 09:19 - 藤森庆子赢得秘鲁总统选举<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md
-- 2026-06-30 09:17 - 巴西若输日本将创36年最差纪录<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md
-- 2026-06-30 08:57 - 如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md
-- 2026-06-30 09:14 - 披荆斩棘的哥哥<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md
-- 2026-06-30 09:16 - 日本五次世界杯淘汰赛全败<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md
-- 2026-06-30 08:58 - 明星大侦探第一季<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md
-- 2026-06-30 09:19 - “荒唐”背后的韩国足球<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md
-- 2026-06-30 09:00 - 逃狱兄弟<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md
-- 2026-06-30 09:10 - 董卿父亲报纸上发文悼念亡妻<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md
-- 2026-06-30 09:15 - 道友？你来真的啊？【凡人官方二创大会】<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md
-- 2026-06-30 09:18 - 有人见过武则天的画像吗，非常好奇？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md
-- 2026-06-30 09:02 - 豆包收费了，你还会用吗？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md
+- 2026-06-30 09:22 - 日本16强魔咒<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md
+- 2026-06-30 09:05 - 日本队被绝杀后鞠躬致谢观众<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md
+- 2026-06-30 09:13 - 刘宇宁高情商化解谁站C位<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md
+- 2026-06-30 09:05 - 大货车掉落螺丝扎进骑手护目镜<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md
+- 2026-06-30 09:20 - 深扒韩国队淘汰背后原因<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md
+- 2026-06-30 08:55 - 我觉得你是在无中生友<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md
+- 2026-06-30 09:12 - 免费试吃发差评被店家挂店门避雷<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md
+- 2026-06-30 08:58 - 巴西醒醒 这是淘汰赛<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md
+- 2026-06-30 09:11 - 美加墨世界杯：亚洲足球的得意与失意<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md
+- 2026-06-30 09:03 - 乔家的儿女<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md
+- 2026-06-30 09:01 - 峡谷事故团队组队时有人提醒会下雨<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md
+- 2026-06-30 09:23 - 道友？你来真的啊？【凡人官方二创大会】<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md
+- 2026-06-30 09:01 - 杨紫被质疑未使用原名纯属误解<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md
+- 2026-06-30 09:16 - 找到了10年前跪舔b站的视频<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md
+- 2026-06-30 09:14 - 诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:56 - 中国新一轮出口管制直指日本命脉<br><br> | ??:https://www.blog.minike.top/Article/details/577018721202.shtml
-- 2026-06-30 09:08 - 阿娇瘦了10斤<br><br> | ??:https://www.share.kurohicncr.top/Article/details/0961900538.shtml
-- 2026-06-30 09:12 - 小娘惹<br><br> | ??:https://www.share.kurohicncr.top/Article/details/429626.shtml
-- 2026-06-30 09:05 - 英语考了145的人竟然教数学<br><br> | ??:https://www.share.minike.top/Article/details/461652394.shtml
-- 2026-06-30 09:23 - 2021江苏卫视跨年演唱会<br><br> | ??:http://www.share.minike.top/Article/details/6543113599.shtml
-- 2026-06-30 08:55 - 2021江苏卫视跨年演唱会<br><br> | ??:http://www.share.minike.top/Article/details/20145830407.shtml
-- 2026-06-30 09:15 - 当我知道豆包有后台审核人员<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/8448611242.shtml
-- 2026-06-30 09:02 - 张月收到黄灿灿辣货两眼发光<br><br> | ??:http://www.share.kurohicncr.top/Article/details/81322237211.shtml
-- 2026-06-30 09:00 - 日本将帅赛后采访纷纷哽咽落泪<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/56060219.shtml
-- 2026-06-30 09:16 - 德国身价是巴拉圭6倍<br><br> | ??:https://www.share.minike.top/Article/details/4530419.shtml
-- 2026-06-30 09:14 - 日本队被绝杀后鞠躬致谢观众<br><br> | ??:http://www.share.kurohicncr.top/Article/details/0880453.shtml
-- 2026-06-30 08:58 - 恋与深空<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/379510323103.shtml
-- 2026-06-30 09:20 - Melo向柳智敏张元英道歉<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/8456049442.shtml
-- 2026-06-30 09:05 - 阿娇瘦了10斤<br><br> | ??:http://www.blog.minike.top/Article/details/3061943138.shtml
-- 2026-06-30 09:01 - 曝灰熊将莫兰特交易至开拓者<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/15667587865.shtml
+- 2026-06-30 09:22 - 小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？<br><br> | ??:https://www.blog.minike.top/Article/details/745324257643.shtml
+- 2026-06-30 09:00 - FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？<br><br> | ??:http://www.share.minike.top/Article/details/797682977989.shtml
+- 2026-06-30 08:56 - 曝iPhone18Pro机密文件现身暗网<br><br> | ??:https://www.blog.minike.top/Article/details/328478232785.shtml
+- 2026-06-30 09:03 - 李在明向韩国两大财阀90度鞠躬<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/89620725906.shtml
+- 2026-06-30 09:01 - 王健林甩卖超80座万达广场<br><br> | ??:https://www.share.minike.top/Article/details/08599.shtml
+- 2026-06-30 08:54 - 韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/563840023.shtml
+- 2026-06-30 09:07 - 卢卡申科发布解放军仪仗队视频<br><br> | ??:http://www.share.kurohicncr.top/Article/details/26345589998.shtml
+- 2026-06-30 08:55 - 日本球迷被强行披上巴西国旗<br><br> | ??:https://www.share.kurohicncr.top/Article/details/039950226711.shtml
+- 2026-06-30 09:05 - 自然光｜papi酱&窦文涛：驴与跑步机<br><br> | ??:https://www.share.minike.top/Article/details/653830607786.shtml
+- 2026-06-30 09:15 - 泰山建135公里刀片刺绳隔离网<br><br> | ??:https://www.share.kurohicncr.top/Article/details/84097167296.shtml
+- 2026-06-30 09:15 - 本科毕业生为何涌入专科学校<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/1140023.shtml
+- 2026-06-30 08:54 - 第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！<br><br> | ??:http://www.share.minike.top/Article/details/62437.shtml
+- 2026-06-30 09:13 - 租房时你会更看重「住得舒服」，还是「每天通勤更方便」？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/617913.shtml
+- 2026-06-30 09:09 - 一切民族英雄都是中华民族的脊梁<br><br> | ??:https://www.share.kurohicncr.top/Article/details/51364409517.shtml
+- 2026-06-30 09:23 - 有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？<br><br> | ??:http://www.blog.minike.top/Article/details/421613813560.shtml

@@ -1,56 +1,60 @@
-# 中越企业昆明面对面交流 碰撞合作机遇
+# 山东大学校长寄语2026届毕业生：不求一蹴而就之功 常守滴水穿石之心
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-中新网昆明4月18日电 (记者 韩帅南)17日，中国—越南贸易投资促进交流会在昆明举办。来自中越两国的政府代表、企业及商协会代表齐聚一堂，面对面交流，碰撞合作机遇，挖掘市场潜力。 中国与越南山水相连、人缘相亲，是有着相近文化传统的好邻居、好伙伴。云南省位于中国西南边陲，与越南接壤，近年来两地在跨境贸易、人文交流等方面互动频繁。 在当天的交流会上，越方企业代表介绍了越南在医药、农
+中新网济南6月24日电 (吕妍)山东大学2026年本科生毕业典礼暨学位授予仪式6月24日在济南举行。山东大学校长李术才在毕业典礼上寄语毕业生，一时低谷不算输，长期坚持才会赢，不求一蹴而就之功，常守滴水穿石之心，不惧前路坎坷，于困难中磨砺坚韧，于失意中汲取力量。 李术才表示，希望毕业生们勇担时代使命，在矢志报国中成就出彩人生；锤炼创新本领，在实践创造中成就出彩人生；砥砺韧性品格，
 
 ## 正文
 
-中新网昆明4月18日电 (记者 韩帅南)17日，中国—越南贸易投资促进交流会在昆明举办。
+中新网济南6月24日电 (吕妍)山东大学2026年本科生毕业典礼暨学位授予仪式6月24日在济南举行。
 
-来自中越两国的政府代表、企业及商协会代表齐聚一堂，面对面交流，碰撞合作机遇，挖掘市场潜力。
+山东大学校长李术才在毕业典礼上寄语毕业生，一时低谷不算输，长期坚持才会赢，不求一蹴而就之功，常守滴水穿石之心，不惧前路坎坷，于困难中磨砺坚韧，于失意中汲取力量。
 
-中国与越南山水相连、人缘相亲，是有着相近文化传统的好邻居、好伙伴。
+李术才表示，希望毕业生们勇担时代使命，在矢志报国中成就出彩人生；锤炼创新本领，在实践创造中成就出彩人生；砥砺韧性品格，在久久为功中成就出彩人生。
 
-云南省位于中国西南边陲，与越南接壤，近年来两地在跨境贸易、人文交流等方面互动频繁。
+“你们即将投身崇尚创新、鼓励创造的社会实践，希望你们保持对新知识的渴望、对未知的好奇，不困于现有答案、不囿于前人道路，在创新创造中勇立潮头，让青春在强国建设中发光发热。
 
-在当天的交流会上，越方企业代表介绍了越南在医药、农业等领域的优势，并欢迎中方企业赴越投资、合作。
+” 山东大学校友代表、中国工程院外籍院士、香港大学原副校长申作军在现场为毕业生们分享经验。
 
-中方企业代表介绍了与越方企业在经贸、物流等领域的合作经验，并希望能够以此次交流为契机，进一步加强与越方在各领域的合作。
+他建议，要主动做提问者，扎根现实，从纷繁的现实问题中找到解决方法。
 
-参与交流的越方企业带来咖啡、燕窝、水果、副食品等优势产品，以及新材料、建筑等领域合作需求，与中方采购商与投资企业现场对接，精准匹配双方资源。
+要善用AI系统，p组合多元工具，完成跨领域的综合判断，不焦虑技术，要学会掌控技术。
 
-红河哈尼族彝族自治州商务局局长和涛在会上介绍，红河州拥有河口公路口岸、河口铁路口岸、金水河口岸3个国家级对越口岸。
+要成为终身学习者，怀着“空杯”心态，跟着问题学，跟着时代走。
 
 ## 相关推荐
 
-- 2026-06-30 09:01 - 把毒品藏在哪里，60秒内不会被发现？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md
-- 2026-06-30 09:09 - 扬名立万<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md
-- 2026-06-30 09:14 - 曝灰熊将莫兰特交易至开拓者<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md
-- 2026-06-30 08:59 - 女子遭家暴逃跑致丈夫身亡二审细节<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md
-- 2026-06-30 08:58 - 黄晓明晒和周杰伦的合照<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md
-- 2026-06-30 09:11 - 明星大侦探第一季<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md
-- 2026-06-30 09:21 - “柠檬茶能换怀表？”<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md
-- 2026-06-30 08:58 - 国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md
-- 2026-06-30 09:21 - 莫兰特转投开拓者效力<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md
-- 2026-06-30 09:00 - 黄晓明夸昆凌引杨颖对比<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md
+- 2026-06-30 09:20 - 浪姐成团夜爆笑吐槽<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md
+- 2026-06-30 08:55 - 【硬核拆解】汽车人到底离我们有多远？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md
+- 2026-06-30 08:59 - 日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md
+- 2026-06-30 09:18 - 世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md
+- 2026-06-30 09:15 - 索马里女大使：想和中国一起搞事业<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md
+- 2026-06-30 09:06 - “错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md
+- 2026-06-30 09:09 - 2021江苏卫视跨年演唱会<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md
+- 2026-06-30 09:02 - 爱很美味<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md
+- 2026-06-30 09:11 - 巴拉圭进球<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md
+- 2026-06-30 09:05 - 点球大战和诺伊尔都救不回德国队<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md
+- 2026-06-30 09:08 - Melo向柳智敏张元英道歉<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md
+- 2026-06-30 09:13 - 赛博朋克边缘行者2预告片<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md
+- 2026-06-30 09:09 - 巴西绝杀日本：漫画般结局换了主角<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md
+- 2026-06-30 09:03 - 内马尔安慰日本球员<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:06 - 小娘惹<br><br> | ??:http://www.blog.minike.top/Article/details/146464964.shtml
-- 2026-06-30 09:16 - 送你一朵小红花<br><br> | ??:https://www.share.kurohicncr.top/Article/details/3599447.shtml
-- 2026-06-30 09:06 - 女子清吧被陌生人投放伟哥<br><br> | ??:http://www.blog.minike.top/Article/details/554719.shtml
-- 2026-06-30 09:11 - 我觉得你是在无中生友<br><br> | ??:https://www.blog.minike.top/Article/details/0440583404.shtml
-- 2026-06-30 09:10 - 日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/33888.shtml
-- 2026-06-30 09:02 - 内马尔中场休息积极鼓励队友<br><br> | ??:https://www.share.kurohicncr.top/Article/details/59127165.shtml
-- 2026-06-30 09:24 - 赛博朋克边缘行者2预告片<br><br> | ??:https://www.blog.minike.top/Article/details/424425111046.shtml
-- 2026-06-30 09:15 - 曝娱乐圈大部分明星失业<br><br> | ??:http://www.share.kurohicncr.top/Article/details/9293101.shtml
-- 2026-06-30 09:10 - 王健林甩卖超80座万达广场<br><br> | ??:http://www.blog.minike.top/Article/details/7843249.shtml
-- 2026-06-30 09:21 - 欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/1292716163.shtml
-- 2026-06-30 09:17 - 四川宜宾地震为何震感明显<br><br> | ??:https://www.blog.minike.top/Article/details/179379898.shtml
-- 2026-06-30 09:13 - 内马尔中场休息积极鼓励队友<br><br> | ??:http://www.blog.minike.top/Article/details/23999.shtml
-- 2026-06-30 09:16 - 巴西把自己踢晕了<br><br> | ??:http://www.blog.minike.top/Article/details/0023433618.shtml
-- 2026-06-30 09:14 - 欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？<br><br> | ??:https://www.share.minike.top/Article/details/171115339.shtml
-- 2026-06-30 09:03 - 毕业以后，你最怀念的大学记忆是什么？<br><br> | ??:https://www.blog.minike.top/Article/details/1801219.shtml
+- 2026-06-30 09:19 - 警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？<br><br> | ??:http://www.share.minike.top/Article/details/98336067.shtml
+- 2026-06-30 09:09 - 勇士续约波尔津吉斯<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/68536036.shtml
+- 2026-06-30 09:20 - 韩国世界杯出局是主帅一个人的锅吗<br><br> | ??:http://www.blog.minike.top/Article/details/0546806734.shtml
+- 2026-06-30 09:23 - 拆解FIFA和世界杯的暗面<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/4408250637.shtml
+- 2026-06-30 09:13 - 电影抓特务上映11天破亿<br><br> | ??:https://www.share.minike.top/Article/details/830405992.shtml
+- 2026-06-30 09:08 - 警方介入洪明甫死亡威胁<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/23333047873.shtml
+- 2026-06-30 09:03 - 曝老詹对自由市场态度与以往截然不同<br><br> | ??:https://www.share.minike.top/Article/details/3296578.shtml
+- 2026-06-30 09:10 - 宜宾地震食客避难后折返 无人逃单<br><br> | ??:https://www.share.kurohicncr.top/Article/details/40962.shtml
+- 2026-06-30 09:08 - 萨内 看笑了<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/83985067659.shtml
+- 2026-06-30 09:16 - 日耳曼拖拉机<br><br> | ??:https://www.share.minike.top/Article/details/59999542.shtml
+- 2026-06-30 09:07 - 杨紫获白玉兰视后为何争议难平<br><br> | ??:https://www.share.kurohicncr.top/Article/details/019431265918.shtml
+- 2026-06-30 08:56 - 齐思钧回复张月<br><br> | ??:http://www.share.minike.top/Article/details/54230.shtml
+- 2026-06-30 08:58 - 世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/016209074.shtml
+- 2026-06-30 09:19 - 收到补税提醒尽快办理 明起有滞纳金<br><br> | ??:https://www.share.minike.top/Article/details/236281557.shtml
+- 2026-06-30 09:13 - 杨紫被质疑未使用原名<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/003659646086.shtml

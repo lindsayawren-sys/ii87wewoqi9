@@ -1,61 +1,53 @@
-# 欧洲央行管委Kazaks：下一步利率行动未必会是加息
+# 第十七届两岸电影展之大陆电影展在台北开幕
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-欧洲央行管理委员会成员Martins Kazaks表示，欧洲央行下一步利率行动未必会是加息。 尽管他目前认为没有理由质疑市场对今年加息两次的预期，但这只是多种可能情形之一。与此同时，政策制定者仍有时间评估伊朗战争对经济造成的损害。 “如果短缺迅速出现，并使经济更接近衰退，那么通胀压力可能会明显减弱，”Kazaks在华盛顿接受采访时表示。“届时，货币政策当然可能需要朝相反方向调整
+发布时间：2026年06月24日 12:02 来源：中国新闻网 6月23日，第十七届两岸电影展之大陆电影展在台北开幕。两岸电影展是华语电影交流年度盛事，此次展映的大陆电影风格多元，包含《日掛中天》《东极岛》《我的朋友安德烈》《长安的荔枝》《你行！你上！》《浪浪人生》《戏台》《拼桌》等。多位大陆影片主创人员表示，期待与台湾影迷朋友交流分享拍摄心得。 (记者 陈建新 制作 刘鹏)
 
 ## 正文
 
-欧洲央行管理委员会成员Martins Kazaks表示，欧洲央行下一步利率行动未必会是加息。
+发布时间：2026年06月24日 12:02 来源：中国新闻网 6月23日，第十七届两岸电影展之大陆电影展在台北开幕。
 
-尽管他目前认为没有理由质疑市场对今年加息两次的预期，但这只是多种可能情形之一。
+两岸电影展是华语电影交流年度盛事，此次展映的大陆电影风格多元，包含《日掛中天》《东极岛》《我的朋友安德烈》《长安的荔枝》《你行！
 
-与此同时，政策制定者仍有时间评估伊朗战争对经济造成的损害。
+你上！
 
-“如果短缺迅速出现，并使经济更接近衰退，那么通胀压力可能会明显减弱，”Kazaks在华盛顿接受采访时表示。
+》《浪浪人生》《戏台》《拼桌》等。
 
-“届时，货币政策当然可能需要朝相反方向调整，”他表示，“你可能需要降息。
+多位大陆影片主创人员表示，期待与台湾影迷朋友交流分享拍摄心得。
 
-” 官员们正在评估中东地区能源供应中断对经济的影响。
-
-在欧洲，通胀已超越2%的目标，信心大幅下滑，冲突能否得到持久解决仍不确定。
-
-尽管欧洲央行表示必要时准备采取行动，但官员们可能会在本月会议上按兵不动。
+(记者 陈建新 制作 刘鹏) 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 09:14 - 《鸣潮》玄方主题曲 MV | 定玄<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md
-- 2026-06-30 09:00 - 巴拉圭点球大战淘汰德国进16强<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md
-- 2026-06-30 09:10 - 斛珠夫人<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md
-- 2026-06-30 09:21 - 郑钦文温网一轮游<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md
-- 2026-06-30 09:04 - 巴西vs日本<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md
-- 2026-06-30 09:16 - 覃予萱晋级WTT美国大满贯女单32强<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md
-- 2026-06-30 09:13 - 郑钦文温网一轮游<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md
-- 2026-06-30 09:17 - 如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md
-- 2026-06-30 09:21 - 上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md
-- 2026-06-30 09:07 - 【大鸣王潮1566】真拿你没办法<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md
-- 2026-06-30 09:19 - 一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md
-- 2026-06-30 09:09 - 世界杯欧洲队7战南美仅1胜<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md
-- 2026-06-30 08:55 - 马航MH370传来最新消息<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md
-- 2026-06-30 09:16 - 杨紫被质疑未使用原名<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md
-- 2026-06-30 09:00 - 世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md
+- 2026-06-30 09:16 - 国务院：探索延长义务教育年限<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md
+- 2026-06-30 08:56 - 追梦拒绝2770万美元球员选项<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md
+- 2026-06-30 08:56 - 女子清吧被陌生人投放伟哥<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md
+- 2026-06-30 09:01 - 这几秒成世界杯最值钱广告位<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md
+- 2026-06-30 08:59 - 韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md
+- 2026-06-30 09:14 - 如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md
+- 2026-06-30 09:00 - 速度与激情9<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md
+- 2026-06-30 09:12 - 日耳曼拖拉机<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md
+- 2026-06-30 09:12 - 日本主帅赛后回应淘汰出局<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md
+- 2026-06-30 09:10 - 这种关系可能正在悄悄“催老”你<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md
+- 2026-06-30 09:05 - 湖北云南这些涉汛信息都是假的<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:07 - 高质量发展看新疆<br><br> | ??:http://www.blog.minike.top/Article/details/69835.shtml
-- 2026-06-30 09:17 - 库尼亚赛后伸五指嘲讽日本<br><br> | ??:http://www.blog.minike.top/Article/details/714084.shtml
-- 2026-06-30 09:22 - 如何评价DeepSeek 提出的 DSpark 推理加速方案？<br><br> | ??:http://www.blog.minike.top/Article/details/714041.shtml
-- 2026-06-30 09:06 - 韩国球迷凌晨4点接机怒骂主教练<br><br> | ??:https://www.share.kurohicncr.top/Article/details/44582689.shtml
-- 2026-06-30 09:13 - 巴拉圭率先破门<br><br> | ??:http://www.share.kurohicncr.top/Article/details/692382506464.shtml
-- 2026-06-30 09:18 - 为什么很多企业推行“扁平化管理”后，效率反而下降了？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/2586096.shtml
-- 2026-06-30 09:08 - 酒店推行“24小时退房”引热议<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/8519107774.shtml
-- 2026-06-30 09:05 - 点球大战<br><br> | ??:https://www.share.kurohicncr.top/Article/details/12217525.shtml
-- 2026-06-30 09:15 - 锐评：网红不能困在无底线逐利里<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/276172933737.shtml
-- 2026-06-30 09:00 - 【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸<br><br> | ??:https://www.share.minike.top/Article/details/202545.shtml
-- 2026-06-30 09:19 - 输球后日本球迷被强行披上巴西国旗<br><br> | ??:http://www.share.kurohicncr.top/Article/details/39133508.shtml
-- 2026-06-30 09:10 - 名记：灰熊将莫兰特交易至开拓者<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/79232.shtml
-- 2026-06-30 09:07 - 为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？<br><br> | ??:https://www.blog.minike.top/Article/details/4680581042.shtml
-- 2026-06-30 09:16 - 黄晓明晒和周杰伦的合照<br><br> | ??:http://www.blog.minike.top/Article/details/73326.shtml
-- 2026-06-30 09:23 - 如何把斧兵改造成精英怪？提高攻速移速！！！<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/754617.shtml
+- 2026-06-30 08:56 - 哈弗茨头球破门<br><br> | ??:http://www.share.kurohicncr.top/Article/details/4731289346.shtml
+- 2026-06-30 09:05 - 王菲谢霆锋十指紧扣好甜<br><br> | ??:https://www.share.minike.top/Article/details/4776989.shtml
+- 2026-06-30 09:21 - 哈弗茨头球破门<br><br> | ??:https://www.share.kurohicncr.top/Article/details/419821570.shtml
+- 2026-06-30 09:14 - 酒店推行“24小时退房”引热议<br><br> | ??:http://www.share.kurohicncr.top/Article/details/96931362227.shtml
+- 2026-06-30 08:57 - 全网说丑的格力玫瑰空调卖了5万台<br><br> | ??:http://www.share.minike.top/Article/details/0253647.shtml
+- 2026-06-30 09:00 - 疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！<br><br> | ??:http://www.share.kurohicncr.top/Article/details/88554.shtml
+- 2026-06-30 09:21 - 内马尔安慰日本球员<br><br> | ??:http://www.blog.minike.top/Article/details/8815144308.shtml
+- 2026-06-30 09:18 - 如何评价《龙之家族》第三季第二集？<br><br> | ??:http://www.share.minike.top/Article/details/6368709.shtml
+- 2026-06-30 09:17 - 日本球迷被强行披上巴西国旗<br><br> | ??:https://www.blog.minike.top/Article/details/04410378469.shtml
+- 2026-06-30 09:01 - hanser X 赖美云《室内系的Track Maker》<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/313833969827.shtml
+- 2026-06-30 09:13 - 卖菜老人获博主帮助后遇车祸去世<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/109867.shtml
+- 2026-06-30 09:04 - 巴西2比1日本<br><br> | ??:https://www.share.minike.top/Article/details/69986014884.shtml
+- 2026-06-30 09:04 - 宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？<br><br> | ??:http://www.share.minike.top/Article/details/12685.shtml
+- 2026-06-30 09:17 - 韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/184758949018.shtml
+- 2026-06-30 09:13 - 房价什么时候能涨<br><br> | ??:http://www.share.kurohicncr.top/Article/details/57397660.shtml

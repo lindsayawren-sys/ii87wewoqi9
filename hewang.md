@@ -1,56 +1,56 @@
-# 东西问丨关凯：不问真相、只贴标签，西方如此用“人权牌”抹黑中国民族政策
+# 首都在线持续融资加码算力投入 何时迎来业绩拐点？
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-中新社北京4月19日电 题：不问真相、只贴标签，西方如此用“人权牌”抹黑中国民族政策 ——专访中央民族大学民族学与社会学学院院长关凯 作者 黄欣欣 “从整体上说，西方有一大批政客和所谓的‘人权专家’其实并不真正关心中国的少数民族过得好不好，只关心如何把民族议题放进单一的‘人权’叙事结构中，以打压中国。”中央民族大学民族学与社会学学院教授、院长关凯近日接受中新社“东西问”专访时表
+出品：新浪财经上市公司研究院 作者：郝显 近日，首都在线公告拟以2.37亿元现金收购控股子公司北京中嘉和信通信技术有限公司剩余40%股权（以下简称“中嘉和信”），交易完成后将实现100% 控股。本次收购意在进一步完善IDC数据中心业务上的布局。同步推进的，还有15.87亿元的定增募资计划，全部指向智算中心建设与算力平台升级。 一边是持续四年的亏损，一边是紧锣密鼓的产能扩张，首都
 
 ## 正文
 
-中新社北京4月19日电 题：不问真相、只贴标签，西方如此用“人权牌”抹黑中国民族政策 ——专访中央民族大学民族学与社会学学院院长关凯 作者 黄欣欣 “从整体上说，西方有一大批政客和所谓的‘人权专家’其实并不真正关心中国的少数民族过得好不好，只关心如何把民族议题放进单一的‘人权’叙事结构中，以打压中国。
+出品：新浪财经上市公司研究院 作者：郝显 近日，首都在线公告拟以2.37亿元现金收购控股子公司北京中嘉和信通信技术有限公司剩余40%股权（以下简称“中嘉和信”），交易完成后将实现100% 控股。
 
-”中央民族大学民族学与社会学学院教授、院长关凯近日接受中新社“东西问”专访时表示。
+本次收购意在进一步完善IDC数据中心业务上的布局。
 
-今年3月，十四届全国人大四次会议表决通过了《中华人民共和国民族团结进步促进法》。
+同步推进的，还有15.87亿元的定增募资计划，全部指向智算中心建设与算力平台升级。
 
-西方有媒体污称这部法律涉及对少数民族进行“强制迁徙”“强制城市化”。
+一边是持续四年的亏损，一边是紧锣密鼓的产能扩张，首都在线持续加码算力投入之后，何时迎来业绩拐点？
 
-针对此类不实指控，关凯认为，这是西方长期“污名化”中国民族政策的又一案例，不仅背离事实，更暴露其“人权”叙事的霸权本质。
+首都在线收购中嘉和信少数股权 本次收购标的中嘉和信，是京津冀区域深耕多年的第三方IDC服务商，核心资产为北京周边的数据中心机房资源，业务覆盖服务器托管、云网互联与行业定制化解决方案等。
 
-现将访谈实录摘要如下： 中新社记者：民族团结进步促进法提及“推进互嵌式社区环境建设”等促进各民族广泛交往交流交融的举措，在您看来，这与西方一些人指控的所谓“强制迁徙”“强制城市化”有何区别？
+从财务层面来看，2025 年中嘉和信实现营收1.52亿元，净利润 4208.24万元，净利率达 27.7%；2026 年1-4 月实现营收5861万元，净利润1464万元。
 
-关凯：基于中国式现代化迅猛发展的事实，中国促进各民族广泛交往交流交融是针对工业化、城市化进程中，人口出现高流动性、居住格局出现高混杂性趋势而提出的倡导性政策。
+对首都在线而言，这笔收购的意义十分明确，此前公司算力业务所需的 IDC 资源多依赖外部采购，成本端话语权较弱，全资控股后可实现机房资源自主可控，控制上游采购成本，支撑智算业务的基础设施需求。
 
-而西方所指的所谓“强制迁徙”“强制城市化”，关键在于“强制”，隐含的是对少数民族自主性、自愿性的剥夺，二者存在本质区别。
+首都在线当前仍处亏损状态，2025 年归母净利润-1.7亿元，而中嘉和信净利润超4000万元，是公司重要的利润来源。
 
 ## 相关推荐
 
-- 2026-06-30 09:01 - 库尼亚赛后伸五指嘲讽日本<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md
-- 2026-06-30 09:16 - 我设置了全宇宙最安全的密码<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md
-- 2026-06-30 09:10 - 《恋与深空》被指触碰民族伤痛红线<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md
-- 2026-06-30 09:05 - 如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md
-- 2026-06-30 08:57 - 我吃遍了西安最強的街頭小吃，第九家強得離譜！<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md
-- 2026-06-30 09:06 - 电影抓特务上映11天破亿<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md
-- 2026-06-30 09:22 - 小娘惹<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md
-- 2026-06-30 09:01 - 你人生中最艰难的时候是怎么熬过来的？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md
-- 2026-06-30 09:18 - 王菲谢霆锋十指紧扣好甜<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md
-- 2026-06-30 09:12 - 未来的飞机可能会用电吗？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md
+- 2026-06-30 08:57 - 五哈和他们的朋友<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md
+- 2026-06-30 08:59 - 深扒韩国队淘汰背后原因<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md
+- 2026-06-30 08:56 - 小娘惹<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md
+- 2026-06-30 08:55 - “错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md
+- 2026-06-30 09:21 - 阿娇瘦了10斤<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md
+- 2026-06-30 09:03 - 世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md
+- 2026-06-30 09:05 - 王欣瑜连续4年晋级温网第二轮<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md
+- 2026-06-30 09:00 - 巴拉圭进球<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md
+- 2026-06-30 09:14 - 沉睡花园<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md
+- 2026-06-30 09:18 - “荒唐”背后的韩国足球<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:03 - 为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/22417.shtml
-- 2026-06-30 09:03 - 美加墨世界杯：亚洲足球的得意与失意<br><br> | ??:http://www.blog.minike.top/Article/details/91568.shtml
-- 2026-06-30 09:07 - 为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？<br><br> | ??:https://www.share.minike.top/Article/details/76149.shtml
-- 2026-06-30 09:11 - 中国猪圈装空调让欧洲网友破防<br><br> | ??:https://www.share.minike.top/Article/details/568103404866.shtml
-- 2026-06-30 09:01 - 金刚川<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/667976235148.shtml
-- 2026-06-30 09:10 - 亚洲球队全部出局<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/7004589.shtml
-- 2026-06-30 08:56 - 爱很美味<br><br> | ??:http://www.blog.minike.top/Article/details/627099858190.shtml
-- 2026-06-30 09:19 - 巴西绝杀日本<br><br> | ??:https://www.blog.minike.top/Article/details/71835.shtml
-- 2026-06-30 09:04 - 安切洛蒂 换人<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/80890470448.shtml
-- 2026-06-30 09:06 - 如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？<br><br> | ??:https://www.blog.minike.top/Article/details/082581262.shtml
-- 2026-06-30 09:22 - 张月收到黄灿灿辣货两眼发光<br><br> | ??:http://www.blog.minike.top/Article/details/860928.shtml
-- 2026-06-30 09:05 - 我们看到的星星是不是有些已经不存在了？<br><br> | ??:https://www.blog.minike.top/Article/details/200127.shtml
-- 2026-06-30 09:14 - 考入南大计算机，复读考清北值吗？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/852649.shtml
-- 2026-06-30 09:00 - 曝老詹对自由市场态度与以往截然不同<br><br> | ??:http://www.blog.minike.top/Article/details/252649744085.shtml
-- 2026-06-30 09:09 - 酒店推行“24小时退房”引热议<br><br> | ??:http://www.blog.minike.top/Article/details/192053.shtml
+- 2026-06-30 09:09 - 2026年WTT美国大满贯，国乒自带球桌是真实的吗？<br><br> | ??:https://www.share.minike.top/Article/details/96432609.shtml
+- 2026-06-30 09:09 - 妻子撞死家暴丈夫案二审案情反转<br><br> | ??:http://www.blog.minike.top/Article/details/546338075.shtml
+- 2026-06-30 09:01 - 尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」<br><br> | ??:http://www.share.minike.top/Article/details/61804.shtml
+- 2026-06-30 09:04 - 《贺子珍》<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/929840750.shtml
+- 2026-06-30 09:05 - 荷兰VS摩洛哥<br><br> | ??:https://www.share.kurohicncr.top/Article/details/43273.shtml
+- 2026-06-30 09:05 - 高考结束，该不该外出打工体验？<br><br> | ??:http://www.blog.minike.top/Article/details/49651498098.shtml
+- 2026-06-30 09:15 - 恋与深空<br><br> | ??:http://www.blog.minike.top/Article/details/67593935554.shtml
+- 2026-06-30 09:18 - 古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?<br><br> | ??:https://www.share.kurohicncr.top/Article/details/469817595616.shtml
+- 2026-06-30 08:55 - 有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？<br><br> | ??:https://www.share.minike.top/Article/details/213866.shtml
+- 2026-06-30 09:05 - 如何评价《龙之家族》第三季第二集？<br><br> | ??:https://www.share.minike.top/Article/details/54354.shtml
+- 2026-06-30 09:07 - 一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/540024848241.shtml
+- 2026-06-30 09:00 - 荀彧和曹操反目成仇的根本原因是什么？<br><br> | ??:https://www.blog.minike.top/Article/details/00621.shtml
+- 2026-06-30 09:16 - 诺伊尔尽力了<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/22648800.shtml
+- 2026-06-30 09:19 - 2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/58006215.shtml
+- 2026-06-30 08:55 - 曝老詹对自由市场态度与以往截然不同<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/192474.shtml

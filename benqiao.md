@@ -1,59 +1,61 @@
-# 长飞光纤光缆早盘涨逾8% 光纤行业迎量价齐升的景气态势
+# 9月1日开庭，富国基金因储蓄存款合同纠纷起诉光大银行南京分行
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-长飞光纤光缆（06869）早盘涨逾8%，截至发稿，股价上涨7.96%，现报222.40港元，成交额22.89亿港元。 据央视报道，今年以来，光纤行业呈现出“产品量价齐升”的景气态势。江苏一家光纤生产企业负责人近日对记者表示，今年一季度光纤产销量同比增长近5倍，产品价格也出现大幅上涨，G.657.A2光纤去年是每芯公里32元，今年涨到了240元，涨幅达到了650%。 开源证券表示
+21世纪经济报道记者 李婉 近日，一则金融机构间的开庭公告引发行业关注。 企查查显示，老牌公募富国基金管理有限公司（以下简称“富国基金”）起诉中国光大银行股份有限公司南京分行储蓄存款合同纠纷一案，将于2026年9月1日在上海市浦东新区人民法院张江第二十法庭公开开庭审理。 与市场常见的个人储户与银行之间的存款纠纷不同，本案原被告双方均为持牌金融机构——原告是资产管理规模近两万亿的
 
 ## 正文
 
-长飞光纤光缆（06869）早盘涨逾8%，截至发稿，股价上涨7.96%，现报222.40港元，成交额22.89亿港元。
+21世纪经济报道记者 李婉 近日，一则金融机构间的开庭公告引发行业关注。
 
-据央视报道，今年以来，光纤行业呈现出“产品量价齐升”的景气态势。
+企查查显示，老牌公募富国基金管理有限公司（以下简称“富国基金”）起诉中国光大银行股份有限公司南京分行储蓄存款合同纠纷一案，将于2026年9月1日在上海市浦东新区人民法院张江第二十法庭公开开庭审理。
 
-江苏一家光纤生产企业负责人近日对记者表示，今年一季度光纤产销量同比增长近5倍，产品价格也出现大幅上涨，G.657.A2光纤去年是每芯公里32元，今年涨到了240元，涨幅达到了650%。
+与市场常见的个人储户与银行之间的存款纠纷不同，本案原被告双方均为持牌金融机构——原告是资产管理规模近两万亿的头部公募基金公司，被告是全国性股份制商业银行的省级分行。
 
-开源证券表示，AI接棒电信需求，全球光纤市场进入量价齐升周期。
+公开资料显示，富国基金成立于1999年，是国内首批获准设立的十家公募基金管理公司之一，注册资本5.2亿元，总部位于上海，在北京、广州、成都设有分公司，并在香港、上海设有资产管理子公司。
 
-据CRU预测，2027年全球光纤需求会攀升至8.8亿芯公里。
+截至2025年末，富国基金公募基金管理规模达1.35万亿元，较上年末增长24.4%，其中非货公募基金管理规模为8885.22亿元，较上年末增长30.6%。
 
-光纤涨价趋势已经蔓延至全球范围，欧洲市场同类产品价格亦较1月环比增长136%，同比增长159%，预计2026-2027年供需缺口或将扩大至15%。
+被告光大银行南京分行是光大银行设在江苏的省级分行。
 
-责任编辑：卢昱君
+光大银行于2002年成为国内首批获得证券投资基金托管人资格的股份制银行。
+
+据光大银行2025年年报，该行开展证券投资基金托管、基金及证券公司客户资产管理托管、银行理财托管、养老金托管等多项托管业务。
 
 ## 相关推荐
 
-- 2026-06-30 08:59 - 法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md
-- 2026-06-30 09:04 - 李在明90度鞠躬感谢韩国两大财阀<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md
-- 2026-06-30 09:22 - 终于把好哥们处成了情侣!<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md
-- 2026-06-30 09:12 - 宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md
-- 2026-06-30 09:15 - 《贺子珍》<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md
-- 2026-06-30 09:10 - 【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md
-- 2026-06-30 09:18 - iPhone18e曝光<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md
-- 2026-06-30 09:08 - 博世们还在犹豫 美的们已经卖断货<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md
-- 2026-06-30 09:23 - 老外对中国cosplay竟这样评价…<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md
-- 2026-06-30 08:56 - 全球最火存储ETF纳入兆易创新<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md
-- 2026-06-30 09:01 - 德国进球被吹<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md
-- 2026-06-30 09:02 - 欧洲民众抢购空调降温<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md
-- 2026-06-30 08:54 - 吴易昺不敌德约科维奇 止步温网首轮<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md
-- 2026-06-30 09:07 - 大货车掉落螺丝扎进骑手护目镜<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md
-- 2026-06-30 09:20 - 李在明90度鞠躬感谢韩国两大财阀<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md
+- 2026-06-30 09:08 - 李在明向韩国两大财阀90度鞠躬<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md
+- 2026-06-30 09:23 - 网瘾賊大的阿嬷<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md
+- 2026-06-30 09:17 - “中国养猪场都用上空调了”！这是真的吗？【主播说三农】<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md
+- 2026-06-30 08:59 - 《我落泪情绪零碎》<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md
+- 2026-06-30 08:56 - 恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md
+- 2026-06-30 09:03 - 你人生中最艰难的时候是怎么熬过来的？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md
+- 2026-06-30 08:57 - 蜘蛛侠:平行宇宙<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md
+- 2026-06-30 09:01 - 郑钦文温网首轮出局<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md
+- 2026-06-30 08:57 - 欧洲空调卖疯了 下一个爆款是储能吗<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md
+- 2026-06-30 08:59 - 黄晓明夸昆凌引杨颖对比<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md
+- 2026-06-30 09:18 - 金刚川<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md
+- 2026-06-30 09:02 - 武磊：日本队有能力跟任何强队抗衡<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md
+- 2026-06-30 09:16 - 欧盟分楼层开空调惹争议<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md
+- 2026-06-30 09:03 - 王楚钦孙颖莎晋级混双八强<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md
+- 2026-06-30 09:19 - 恋与深空道歉声明<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:22 - 大货车掉落螺丝扎进骑手护目镜<br><br> | ??:http://www.share.kurohicncr.top/Article/details/42612022190.shtml
-- 2026-06-30 08:59 - 德国队连续三届世界杯无缘16强<br><br> | ??:https://www.blog.minike.top/Article/details/335864311984.shtml
-- 2026-06-30 09:06 - 欧洲民众抢购空调降温<br><br> | ??:https://www.share.minike.top/Article/details/65003960.shtml
-- 2026-06-30 09:05 - 【涤墨作战7人870】望：我从地狱杀回来了！<br><br> | ??:http://www.share.minike.top/Article/details/801392108210.shtml
-- 2026-06-30 08:56 - 存储芯片龙头提示风险<br><br> | ??:http://www.share.kurohicncr.top/Article/details/895425368.shtml
-- 2026-06-30 09:09 - 「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/751597211.shtml
-- 2026-06-30 08:55 - 李在明向韩国两大财阀90度鞠躬<br><br> | ??:http://www.share.minike.top/Article/details/0015281.shtml
-- 2026-06-30 08:59 - 歌剧老师锐评歌手第6期<br><br> | ??:https://www.blog.minike.top/Article/details/092956799417.shtml
-- 2026-06-30 09:17 - 球评巴西绝杀逆转日本<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/891079187717.shtml
-- 2026-06-30 09:05 - 周生如故<br><br> | ??:http://www.share.minike.top/Article/details/1531096835.shtml
-- 2026-06-30 09:02 - 81岁老人被男子买光菜回家车祸去世<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/897997873588.shtml
-- 2026-06-30 08:57 - 世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？<br><br> | ??:https://www.blog.minike.top/Article/details/123725995409.shtml
-- 2026-06-30 08:59 - 王濛回复黄灿灿<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/29446208.shtml
-- 2026-06-30 09:00 - 委内瑞拉地震死亡人数升至1719人<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/39589335.shtml
-- 2026-06-30 08:59 - 12人以护剧为名敲诈剧组艺人被抓<br><br> | ??:https://www.share.kurohicncr.top/Article/details/41472.shtml
+- 2026-06-30 09:20 - 宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？<br><br> | ??:https://www.share.minike.top/Article/details/36031858065.shtml
+- 2026-06-30 08:55 - 点球大战 残酷<br><br> | ??:http://www.blog.minike.top/Article/details/64569.shtml
+- 2026-06-30 09:11 - 国务院：稳步推进研究生考试招生改革<br><br> | ??:http://www.share.kurohicncr.top/Article/details/2751162898.shtml
+- 2026-06-30 08:56 - 对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/7961105.shtml
+- 2026-06-30 09:23 - 金鹰奖视后提名预测<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/47537.shtml
+- 2026-06-30 09:16 - 明星大侦探第四季<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/10091912.shtml
+- 2026-06-30 09:22 - 日本主帅赛后回应淘汰出局<br><br> | ??:https://www.blog.minike.top/Article/details/016258605.shtml
+- 2026-06-30 09:16 - 网瘾賊大的阿嬷<br><br> | ??:https://www.share.minike.top/Article/details/3194311624.shtml
+- 2026-06-30 09:01 - 一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？<br><br> | ??:https://www.blog.minike.top/Article/details/35409.shtml
+- 2026-06-30 09:09 - 女子发现孩子非现任亲生状告前任索赔<br><br> | ??:http://www.share.minike.top/Article/details/309779154338.shtml
+- 2026-06-30 09:08 - 穆祉丞回应获年度人气艺人<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/70641011162.shtml
+- 2026-06-30 09:17 - 德国淘汰<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/87605891.shtml
+- 2026-06-30 09:21 - 巴西替补奇兵读秒绝杀<br><br> | ??:http://www.blog.minike.top/Article/details/5503575.shtml
+- 2026-06-30 09:13 - 有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？<br><br> | ??:https://www.blog.minike.top/Article/details/64935.shtml
+- 2026-06-30 09:01 - 陈小春人老了干什么也不心酸<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/2596433.shtml

@@ -1,54 +1,57 @@
-# 美国国债收益率上涨 因霍尔木兹海峡紧张局势持续
+# 2026方塘论坛在京举行 探讨AI时代的关键哲学问题
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-美国国债收益率在亚洲交易时段上涨，跟随油价走高，周五的涨势出现回吐。Pepperstone的Michael Brown在一份报告中说：“尽管上周市场以相当大的风险追逐型反弹收官，但随着新的一周开始，围绕霍尔木兹海峡状况的困惑已导致部分乐观情绪消退。“尽管美国副总统JD·万斯预计将牵头与伊朗进行新一轮和谈，但美国和伊朗双方之间仍然存在重大分歧。美国国债收益率全线走高，其中两年期美
+中新网北京6月24日电(记者 巩微微) 6月22日上午，2026方塘论坛在北京西郊宾馆开幕。本届论坛由清华大学方塘研究院主办，与会嘉宾围绕“AI下⼀步：关键问题的哲学解答”主题，共同探讨人工智能深度嵌入人类社会后的根本性问题。清华大学党委副书记过勇、清华大学教育基金会方塘研究基金管委会委员杨锦方出席开幕式。 过勇表示，人工智能正在深刻重塑知识生产、产业发展和社会运行的方式。面对
 
 ## 正文
 
-美国国债收益率在亚洲交易时段上涨，跟随油价走高，周五的涨势出现回吐。
+中新网北京6月24日电(记者 巩微微) 6月22日上午，2026方塘论坛在北京西郊宾馆开幕。
 
-Pepperstone的Michael Brown在一份报告中说：“尽管上周市场以相当大的风险追逐型反弹收官，但随着新的一周开始，围绕霍尔木兹海峡状况的困惑已导致部分乐观情绪消退。
+本届论坛由清华大学方塘研究院主办，与会嘉宾围绕“AI下⼀步：关键问题的哲学解答”主题，共同探讨人工智能深度嵌入人类社会后的根本性问题。
 
-“尽管美国副总统JD·万斯预计将牵头与伊朗进行新一轮和谈，但美国和伊朗双方之间仍然存在重大分歧。
+清华大学党委副书记过勇、清华大学教育基金会方塘研究基金管委会委员杨锦方出席开幕式。
 
-美国国债收益率全线走高，其中两年期美国国债收益率上升3.3个基点，至3.732%，10年期美国国债收益率上升2.6个基点，至4.269%。
+过勇表示，人工智能正在深刻重塑知识生产、产业发展和社会运行的方式。
 
-责任编辑：王永生
+面对技术快速演进的形势，不仅要关注技术突破，更要深入思考技术与人、技术与社会、技术与文明的关系，坚持科学理性与人文精神相统一，推动人工智能更好服务人类福祉。
+
+学校将持续推进人工智能与各学科深度融合，加强跨学科交流合作，积极探索智能时代的人才培养模式和知识创新范式，为构建中国哲学社会科学自主知识体系、促进人类文明进步贡献智慧和力量。
+
+杨锦方表示，面对人工智能带来的深刻变革，人类需要整理并提出那些“还没有完全成形、但必须被认真面对的问题”。
+
+从“AI时代的伦理奇点”到“后工作时代人如何安身立命”，再到“AI认识论”与“AI for Humanity”，方塘论坛正沿着一条层层递进的问题链，推动对AI时代人文思想新可能的探索。
 
 ## 相关推荐
 
-- 2026-06-30 09:23 - 德国队世界杯点球大战首败<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md
-- 2026-06-30 09:00 - 2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md
-- 2026-06-30 09:18 - 一直以为方便面汤是要倒掉的<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md
-- 2026-06-30 09:12 - 全球芯片巨头史诗级扩产<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md
-- 2026-06-30 08:55 - 委内瑞拉地震死亡人数升至1719人<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md
-- 2026-06-30 09:02 - 天道<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md
-- 2026-06-30 09:08 - 勇士续约波尔津吉斯<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md
-- 2026-06-30 09:07 - 武磊：巴西队赢的并不轻松<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md
-- 2026-06-30 09:12 - 电子游戏中有哪些关于武器的“刻板印象”？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md
-- 2026-06-30 09:21 - 感动全网的699分女生想报考清华<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md
-- 2026-06-30 09:09 - 德国 传控<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md
-- 2026-06-30 09:23 - 健全中小学教师工资长效联动机制<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md
-- 2026-06-30 09:02 - 阿娇瘦了10斤<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md
-- 2026-06-30 09:14 - iPhoneUltra黑色机模<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md
+- 2026-06-30 09:06 - 2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md
+- 2026-06-30 09:17 - 四川凉山落石砸毁车辆 3人遇难<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md
+- 2026-06-30 08:57 - 【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md
+- 2026-06-30 09:07 - 陈小春人老了干什么也不心酸<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md
+- 2026-06-30 08:56 - 德国巴拉圭加时<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md
+- 2026-06-30 08:58 - 房价什么时候能涨<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md
+- 2026-06-30 09:05 - 警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md
+- 2026-06-30 09:02 - 有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md
+- 2026-06-30 09:18 - 收到补税提醒尽快办理 明起有滞纳金<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md
+- 2026-06-30 09:05 - 如何评价DeepSeek 提出的 DSpark 推理加速方案？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md
+- 2026-06-30 09:23 - 孙兴慜道歉<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:08 - 如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/46586736.shtml
-- 2026-06-30 09:21 - 起风了<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/58553987080.shtml
-- 2026-06-30 09:22 - 日本遭读秒绝杀 森保一：我水平不够<br><br> | ??:http://www.share.kurohicncr.top/Article/details/6496054691.shtml
-- 2026-06-30 08:56 - 巴西绝杀日本：漫画般结局换了主角<br><br> | ??:https://www.share.minike.top/Article/details/748767345.shtml
-- 2026-06-30 09:18 - 男子诋毁袁隆平科研成果被刑拘<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/146565717426.shtml
-- 2026-06-30 09:19 - 穆祉丞回应获年度人气艺人<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/45520081242.shtml
-- 2026-06-30 08:54 - 这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆<br><br> | ??:http://www.blog.minike.top/Article/details/178309476166.shtml
-- 2026-06-30 09:14 - 韩国道歉完日本道歉<br><br> | ??:https://www.share.kurohicncr.top/Article/details/0962017.shtml
-- 2026-06-30 09:19 - iPhoneUltra黑色机模<br><br> | ??:http://www.share.minike.top/Article/details/04511416.shtml
-- 2026-06-30 08:55 - 内马尔替补<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/903924434811.shtml
-- 2026-06-30 08:58 - 德国北部枪击事件致5死<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/43062388.shtml
-- 2026-06-30 09:22 - 赵今麦因“瘦而不柴”的体态出圈<br><br> | ??:https://www.share.kurohicncr.top/Article/details/4168729.shtml
-- 2026-06-30 09:23 - 董卿父亲在报纸上发文悼念亡妻<br><br> | ??:http://www.share.minike.top/Article/details/981173.shtml
-- 2026-06-30 09:02 - 王欣瑜连续4年晋级温网第二轮<br><br> | ??:https://www.blog.minike.top/Article/details/0913483691.shtml
-- 2026-06-30 09:02 - 孙兴慜道歉<br><br> | ??:https://www.share.minike.top/Article/details/93123.shtml
+- 2026-06-30 08:58 - 巴拉圭点球大战淘汰德国进16强<br><br> | ??:http://www.share.minike.top/Article/details/092977173864.shtml
+- 2026-06-30 09:13 - 萨内 看笑了<br><br> | ??:http://www.share.minike.top/Article/details/90993481092.shtml
+- 2026-06-30 09:12 - 好像看到了人类带孩子崩溃的样子<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/22793.shtml
+- 2026-06-30 09:23 - 人民锐评：网红不能困在无底线逐利里<br><br> | ??:http://www.share.minike.top/Article/details/4334859675.shtml
+- 2026-06-30 09:22 - 大蒜晒外面被路过女子连盆端走<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/096911.shtml
+- 2026-06-30 09:05 - 天道<br><br> | ??:https://www.share.kurohicncr.top/Article/details/58728.shtml
+- 2026-06-30 09:01 - 女子用家人生日买彩票中1032万<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/6921380609.shtml
+- 2026-06-30 09:07 - 为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？<br><br> | ??:http://www.blog.minike.top/Article/details/44711.shtml
+- 2026-06-30 08:56 - 金牌调解<br><br> | ??:https://www.share.kurohicncr.top/Article/details/80232.shtml
+- 2026-06-30 09:15 - Melo向柳智敏张元英道歉<br><br> | ??:https://www.share.kurohicncr.top/Article/details/99790.shtml
+- 2026-06-30 09:10 - 豆包收费了，你还会用吗？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/9527501854.shtml
+- 2026-06-30 09:11 - 俄乌双方伤亡近180万人<br><br> | ??:http://www.blog.minike.top/Article/details/5056655.shtml
+- 2026-06-30 09:15 - 2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？<br><br> | ??:http://www.blog.minike.top/Article/details/2312714.shtml
+- 2026-06-30 09:14 - 爱直接对嘴喝饮料的人天塌了<br><br> | ??:http://www.share.minike.top/Article/details/611020156.shtml
+- 2026-06-30 09:06 - 领克07GT搭载超跑同源MRC悬架<br><br> | ??:https://www.share.minike.top/Article/details/7167977.shtml

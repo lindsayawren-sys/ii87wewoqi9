@@ -1,58 +1,51 @@
-# “易中天”新高！华宝基金创业板人工智能ETF标的指数单周暴涨10%！高盛上调光模块龙头目标价
+# 小学生变身“小厨神” 福建长汀开设“行知厨坊”让成长有滋有味
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-周五（4月17日），光模块CPO批量新高，创业板人工智能继续领涨全市场！其中，光模块龙头新易盛大涨超9%，天孚通信涨超6%，中际旭创涨超5%，“易中天”股价均创历史新高！此外，光模块新锐光库科技、联特科技、长芯博创大涨超7%同样创下历史新高！ 热门ETF方面，重仓光模块CPO的创业板人工智能ETF华宝（159363）场内暴涨3.53%迭创上市新高，爆量成交达15.69亿元，资金
+发布时间：2026年06月24日 19:21 来源：中国新闻网 整洁明亮、设施完备的标准化烹饪劳技室内，各类操作台、灶具、抽油烟机等设备一应俱全，孩子们系上围裙、挽起袖子，穿戴整齐、分工协作，有序开展择菜、洗菜、切配、翻炒、摆盘等全套烹饪工序，亲手辨识食材、把控火候、调配五味。这是6月23日福建长汀师范附属小学全新投用的“行知厨坊”里一场实践活动的场景，孩子们在这里学习劳动技能
 
 ## 正文
 
-周五（4月17日），光模块CPO批量新高，创业板人工智能继续领涨全市场！
+发布时间：2026年06月24日 19:21 来源：中国新闻网 整洁明亮、设施完备的标准化烹饪劳技室内，各类操作台、灶具、抽油烟机等设备一应俱全，孩子们系上围裙、挽起袖子，穿戴整齐、分工协作，有序开展择菜、洗菜、切配、翻炒、摆盘等全套烹饪工序，亲手辨识食材、把控火候、调配五味。
 
-其中，光模块龙头新易盛大涨超9%，天孚通信涨超6%，中际旭创涨超5%，“易中天”股价均创历史新高！
+这是6月23日福建长汀师范附属小学全新投用的“行知厨坊”里一场实践活动的场景，孩子们在这里学习劳动技能、体悟劳动真谛。
 
-此外，光模块新锐光库科技、联特科技、长芯博创大涨超7%同样创下历史新高！
+现场，孩子们全身心投入烹饪实践，客家煎薯饼、西红柿炒鸡蛋、水煮扁肉、客家芋子饺、炒长汀米粉等一道道地道的客家家常美食陆续出锅，色香味俱全。
 
-热门ETF方面，重仓光模块CPO的创业板人工智能ETF华宝（159363）场内暴涨3.53%迭创上市新高，爆量成交达15.69亿元，资金交易尤为激烈。
+大家从食材搭配、火候把控、造型摆盘、口感风味等方面开展自评互评，完整体验从新鲜食材到成品佳肴的蜕变过程，沉浸式感受劳动的乐趣与美食的温度，让“劳动最光荣”的理念深深扎根心底、浸润童年。
 
-单周来看，单周来看，159363标的指数单周累计拉升10.08%，周线斩获六连阳！
-
-复盘来看，光模块CPO等算力方向加速突破，截至4月17日，创业板人工智能ETF华宝（159363）标的指数近1年累计涨幅扩大至200%，大幅跑赢人工智能、CS人工智、科创创业AI、科创AI等同类指数。
-
-光模块CPO、IDC算力租赁、AI应用等多重利好共振，创业板人工智能有望继续受益。
-
-注：创业板人工智能ETF华宝被动跟踪创业板人工智能指数，该指数基日为2018.12.28，发布日期为2024.7.11，创业板人工智能指数2021-2025年年度涨跌幅分别为：17.57%、-34.52%、47.83%、38.44%、106.35%。
+(吴晟炜 陈炳林） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-30 09:10 - 豆包收费了，你还会用吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md
-- 2026-06-30 09:06 - 吴启华卖肖像权拍AI电影<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md
-- 2026-06-30 09:22 - 巴拉圭率先破门<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md
-- 2026-06-30 09:07 - 2026年WTT美国大满贯，国乒自带球桌是真实的吗？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md
-- 2026-06-30 09:13 - 城市规划有可能成为「屎山代码」吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md
-- 2026-06-30 09:19 - 穆祉丞回应获年度人气艺人<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md
-- 2026-06-30 09:04 - 荷兰vs摩洛哥<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md
-- 2026-06-30 08:59 - 泰山景区建135公里刀片刺绳隔离网<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md
-- 2026-06-30 09:18 - “以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md
-- 2026-06-30 09:13 - 高考结束了，你会让孩子在家玩手机吗？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md
-- 2026-06-30 09:12 - 吴启华卖肖像权拍AI电影<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md
-- 2026-06-30 09:22 - 挪威国家队紧急从本土订购大批海鲜<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md
+- 2026-06-30 09:15 - 大货车掉落螺丝扎进骑手护目镜<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md
+- 2026-06-30 08:57 - 国务院：探索延长义务教育年限<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md
+- 2026-06-30 08:56 - 刘宇宁高情商化解谁站C位<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md
+- 2026-06-30 09:08 - 被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md
+- 2026-06-30 09:11 - 《恋与深空》被指触碰民族伤痛红线<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md
+- 2026-06-30 09:18 - 卢卡申科发布解放军仪仗队视频<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md
+- 2026-06-30 09:14 - 穆祉丞回应获年度人气艺人<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md
+- 2026-06-30 09:09 - 如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md
+- 2026-06-30 08:59 - 第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md
+- 2026-06-30 09:20 - 吴启华卖肖像权拍AI电影<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md
+- 2026-06-30 09:03 - 男子造谣东鹏老板不喝自家饮料被拘<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:55 - 恋与深空已删除锅里洗澡文案<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/9312138386.shtml
-- 2026-06-30 09:23 - 爱直接对嘴喝饮料的人天塌了<br><br> | ??:http://www.blog.minike.top/Article/details/44844454.shtml
-- 2026-06-30 09:12 - 尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」<br><br> | ??:http://www.blog.minike.top/Article/details/47609.shtml
-- 2026-06-30 09:17 - 如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/191474.shtml
-- 2026-06-30 09:19 - 为什么香港的冲厕水是咸的？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/93042970698.shtml
-- 2026-06-30 09:01 - 12人以护剧为名敲诈剧组艺人被抓<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/2832437.shtml
-- 2026-06-30 09:04 - 女子健身不当 居然“脑子漏水”了<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/6343795.shtml
-- 2026-06-30 08:56 - 日耳曼拖拉机<br><br> | ??:https://www.share.minike.top/Article/details/129768122079.shtml
-- 2026-06-30 09:09 - 一见倾心<br><br> | ??:https://www.share.minike.top/Article/details/554371.shtml
-- 2026-06-30 09:00 - 4000美元是黄金新一轮下跌的开始吗<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/799926189.shtml
-- 2026-06-30 09:07 - 世界杯：荷兰vs摩洛哥<br><br> | ??:https://www.share.minike.top/Article/details/1697947732.shtml
-- 2026-06-30 09:19 - 萨内 看笑了<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/699125385763.shtml
-- 2026-06-30 09:04 - 日本队主帅道歉<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/200576595220.shtml
-- 2026-06-30 09:07 - 佐野海舟远射破门<br><br> | ??:https://www.blog.minike.top/Article/details/2601898.shtml
-- 2026-06-30 09:16 - 消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/8116181.shtml
+- 2026-06-30 09:05 - 有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？<br><br> | ??:http://www.share.minike.top/Article/details/5493858.shtml
+- 2026-06-30 08:56 - 极限挑战第一季<br><br> | ??:https://www.share.minike.top/Article/details/8048399.shtml
+- 2026-06-30 09:04 - 第一炉香<br><br> | ??:https://www.share.minike.top/Article/details/086984317735.shtml
+- 2026-06-30 09:10 - “柠檬茶能换怀表？”<br><br> | ??:https://www.share.kurohicncr.top/Article/details/466260959508.shtml
+- 2026-06-30 09:20 - “柠檬茶能换怀表？”<br><br> | ??:https://www.share.minike.top/Article/details/335481037.shtml
+- 2026-06-30 09:17 - 四川凉山落石砸毁车辆 3人遇难<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/4799658380.shtml
+- 2026-06-30 09:11 - MSI应援曲 如果季中成回忆<br><br> | ??:https://www.blog.minike.top/Article/details/907603406284.shtml
+- 2026-06-30 09:03 - 中国新一轮出口管制直指日本命脉<br><br> | ??:http://www.share.minike.top/Article/details/94609488587.shtml
+- 2026-06-30 09:10 - 媒体：手机测评该挤挤水分了<br><br> | ??:https://www.share.kurohicncr.top/Article/details/24257530.shtml
+- 2026-06-30 09:05 - 左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/12337.shtml
+- 2026-06-30 09:14 - 房价什么时候能涨<br><br> | ??:https://www.share.minike.top/Article/details/33858815751.shtml
+- 2026-06-30 09:07 - 中国代表在联合国点名日本所犯罪行<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/246682608.shtml
+- 2026-06-30 09:19 - 大货车掉落螺丝扎进骑手护目镜<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/27324289.shtml
+- 2026-06-30 09:10 - 手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】<br><br> | ??:http://www.share.kurohicncr.top/Article/details/018060.shtml
+- 2026-06-30 09:16 - 你人生中最艰难的时候是怎么熬过来的？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/77385394867.shtml

@@ -1,60 +1,53 @@
-# 东西问丨吴伟峰：壮锦如何架起中外文明对话之桥？
+# 国台办：民进党当局已沦为外部势力侵害中华民族整体利益的帮凶
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-中新社南宁4月19日电 题：壮锦如何架起中外文明对话之桥？ ——专访广西中华文化促进会副主席、广西壮族自治区博物馆原馆长吴伟峰 作者 杨陈 林洁琪 壮锦与云锦、蜀锦、宋锦并称中国四大名锦，且是其中唯一的少数民族织锦。壮锦图案中蕴含着壮族信仰与生活哲学，承载壮族先民的生产生活智慧，跨越千年而存续。如今，壮锦正突破地域界限，走向海外。 4月19日，农历三月三，广西歌圩节(又称歌婆节
+中新网6月24日电 6月24日，国务院台办举行例行新闻发布会。有记者就赖清德借日菲侵权行径散播“台独”分裂谬论一事提问。 发言人张晗表示，日、菲宣布的拟划界海域位于台湾岛以东，中国在上述海域拥有专属经济区和大陆架。日菲绕开中方擅自启动所谓海域划界谈判，严重违反包括《联合国海洋公约》在内的国际法和国际关系基本准则，严重侵害中国海洋权益。大陆有关部门在相关海域依法开展执法巡查正当必
 
 ## 正文
 
-中新社南宁4月19日电 题：壮锦如何架起中外文明对话之桥？
+中新网6月24日电 6月24日，国务院台办举行例行新闻发布会。
 
-——专访广西中华文化促进会副主席、广西壮族自治区博物馆原馆长吴伟峰 作者 杨陈 林洁琪 壮锦与云锦、蜀锦、宋锦并称中国四大名锦，且是其中唯一的少数民族织锦。
+有记者就赖清德借日菲侵权行径散播“台独”分裂谬论一事提问。
 
-壮锦图案中蕴含着壮族信仰与生活哲学，承载壮族先民的生产生活智慧，跨越千年而存续。
+发言人张晗表示，日、菲宣布的拟划界海域位于台湾岛以东，中国在上述海域拥有专属经济区和大陆架。
 
-如今，壮锦正突破地域界限，走向海外。
+日菲绕开中方擅自启动所谓海域划界谈判，严重违反包括《联合国海洋公约》在内的国际法和国际关系基本准则，严重侵害中国海洋权益。
 
-4月19日，农历三月三，广西歌圩节(又称歌婆节或歌仙节)之际，中新社“东西问”专访广西中华文化促进会副主席、广西壮族自治区博物馆原馆长吴伟峰，探讨千年技艺壮锦如何架起中外文明对话之桥。
+大陆有关部门在相关海域依法开展执法巡查正当必要，是维护国家主权和海洋权益的正义之举。
 
-现将访谈实录摘要如下： 中新社记者：壮锦作为国家级非物质文化遗产，其工艺与文化内涵在东西方文明交流中有何作用？
-
-吴伟峰：壮锦作为中国壮族独特的织锦技艺与国家级非物质文化遗产，在东西方文明交流中扮演了文化使者、创新媒介与对话桥梁的多重角色。
-
-壮锦的核心工艺在于以棉、麻线为地经地纬，用粗而无拈的真丝作彩纬织入起花，在织物正反面形成对称花纹，并将地组织完全覆盖。
+张晗指出，民进党当局对日菲侵权行径装聋作哑、视而不见，却借机大肆散播“台独”分裂谬论，煽动“反中抗中”，已经沦为外部势力侵害中华民族整体利益的帮凶，卑劣无耻，必遭清算。
 
 ## 相关推荐
 
-- 2026-06-30 08:57 - 男生180+，有腹肌是什么体验？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md
-- 2026-06-30 09:16 - 巴西绝杀<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md
-- 2026-06-30 09:21 - 峡谷事故团队组队时有人提醒会下雨<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md
-- 2026-06-30 09:09 - 日本遭读秒绝杀 森保一：我水平不够<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md
-- 2026-06-30 09:23 - 一见倾心<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md
-- 2026-06-30 09:12 - 德国进球被吹<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md
-- 2026-06-30 08:59 - 媒体：手机测评该挤挤水分了<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md
-- 2026-06-30 09:18 - DeepSeek启动成立来最大规模招聘<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md
-- 2026-06-30 09:16 - 《我落泪情绪零碎》<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md
-- 2026-06-30 08:56 - 你这一辈子有没有为进山姆拼过命？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md
-- 2026-06-30 09:13 - 赵今麦因“瘦而不柴”的体态出圈<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md
-- 2026-06-30 09:17 - 亚洲球队全部告别世界杯<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md
-- 2026-06-30 09:03 - 上市央企地产商 两年换了三任董事长<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md
-- 2026-06-30 09:01 - 流金岁月<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md
+- 2026-06-30 09:17 - 女子清吧被陌生人投放伟哥<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md
+- 2026-06-30 09:07 - 男子中医院拔火罐致浅2度烧伤<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md
+- 2026-06-30 09:12 - 索马里女大使：想和中国一起搞事业<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md
+- 2026-06-30 09:03 - 德国爆冷点球大战不敌巴拉圭<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md
+- 2026-06-30 09:22 - 日本反击率先破门<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md
+- 2026-06-30 09:22 - 安切洛蒂 换人<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md
+- 2026-06-30 09:17 - Melo向柳智敏张元英道歉<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md
+- 2026-06-30 09:09 - 斛珠夫人<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md
+- 2026-06-30 08:59 - 《名肘探科比》：科比大战裂口女<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md
+- 2026-06-30 09:02 - 我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md
+- 2026-06-30 09:07 - 《恋与深空》被指触碰民族伤痛红线<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:17 - 德国淘汰<br><br> | ??:http://www.blog.minike.top/Article/details/063615920430.shtml
-- 2026-06-30 09:10 - 这种关系可能正在悄悄“催老”你<br><br> | ??:http://www.share.minike.top/Article/details/970905.shtml
-- 2026-06-30 09:06 - 有人见过武则天的画像吗，非常好奇？<br><br> | ??:https://www.blog.minike.top/Article/details/488669.shtml
-- 2026-06-30 09:21 - 赛博朋克边缘行者2预告片<br><br> | ??:https://www.blog.minike.top/Article/details/844093799204.shtml
-- 2026-06-30 08:54 - 上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶<br><br> | ??:https://www.share.kurohicncr.top/Article/details/749318.shtml
-- 2026-06-30 09:07 - 又一家县级医院关停门诊输液大厅<br><br> | ??:http://www.share.minike.top/Article/details/50544.shtml
-- 2026-06-30 09:08 - 德国进球被吹<br><br> | ??:https://www.share.kurohicncr.top/Article/details/05196088503.shtml
-- 2026-06-30 09:06 - 日本淘汰<br><br> | ??:http://www.share.kurohicncr.top/Article/details/33633208823.shtml
-- 2026-06-30 09:12 - 中国代表在联合国点名日本所犯罪行<br><br> | ??:http://www.blog.minike.top/Article/details/55661063.shtml
-- 2026-06-30 09:19 - 为什么纣王似乎对周文王的扩张完全无动于衷？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/412642624.shtml
-- 2026-06-30 09:09 - 存储芯片龙头提示风险<br><br> | ??:https://www.share.kurohicncr.top/Article/details/67098254.shtml
-- 2026-06-30 09:18 - 周冬雨多次说演不了话剧文城<br><br> | ??:https://www.share.minike.top/Article/details/94177154.shtml
-- 2026-06-30 09:14 - 主人解开狗绳2只狗将路人撕咬致死<br><br> | ??:https://www.share.minike.top/Article/details/515149145.shtml
-- 2026-06-30 08:58 - 郑钦文温网三连败西尼亚科娃<br><br> | ??:https://www.share.kurohicncr.top/Article/details/55786.shtml
-- 2026-06-30 09:20 - 梅德韦杰夫列举俄罗斯面临的七大挑战<br><br> | ??:https://www.share.kurohicncr.top/Article/details/1640243.shtml
+- 2026-06-30 09:06 - 古代人对纳妾的态度是什么样的？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/509769120.shtml
+- 2026-06-30 09:03 - 啊啊啊<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/092340.shtml
+- 2026-06-30 08:56 - “以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/54318836928.shtml
+- 2026-06-30 09:18 - 国务院：稳步推进研究生考试招生改革<br><br> | ??:https://www.blog.minike.top/Article/details/63138697354.shtml
+- 2026-06-30 08:54 - 中国对日本再出重拳<br><br> | ??:https://www.blog.minike.top/Article/details/8418327.shtml
+- 2026-06-30 09:01 - 主人解开狗绳2只狗将路人撕咬致死<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/31610.shtml
+- 2026-06-30 09:16 - 泰山景区建135公里刀片刺绳隔离网<br><br> | ??:https://www.blog.minike.top/Article/details/5984713576.shtml
+- 2026-06-30 09:01 - 诺伊尔尽力了<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/966179386301.shtml
+- 2026-06-30 09:01 - 老人卖菜获博主帮助后遇车祸去世<br><br> | ??:https://www.blog.minike.top/Article/details/169683783706.shtml
+- 2026-06-30 09:21 - 巴拉圭点球大战淘汰德国进16强<br><br> | ??:http://www.share.minike.top/Article/details/10409728.shtml
+- 2026-06-30 09:09 - 87克大金链到老庙黄金维修少了11克<br><br> | ??:http://www.blog.minike.top/Article/details/6433464.shtml
+- 2026-06-30 09:12 - 古代人对纳妾的态度是什么样的？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/53122.shtml
+- 2026-06-30 08:57 - 古代时期普通老百姓能喝上酒吗？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/71593652.shtml
+- 2026-06-30 08:59 - 巴西足球能否再现昔日荣光<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/51910579.shtml
+- 2026-06-30 08:55 - 杨某诋毁袁隆平院士科研成果被刑拘<br><br> | ??:http://www.blog.minike.top/Article/details/0660012890.shtml

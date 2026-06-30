@@ -1,58 +1,51 @@
-# 本轮牛市再次见证历史！源杰科技登顶A股第一高价股
+# 兆易创新午后涨超8% 近日与Qt Group达成全球合作
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！每经记者|王砚丹 每经编辑|叶峰 4月17日，A股市场再次见证历史！ 科创板光芯片龙头源杰科技（688498）大幅冲高，最高触及1460.08元/股，成功超越贵州茅台，新晋为A股第一高价股。截至收盘，源杰科技股价报1445元/股，涨幅10.05%，总市值超过1200亿元。 利好突发！下游中际旭创业绩大超预期
+兆易创新（03986）午后涨超8%，截至发稿，股价上涨8.06%，现报1012港元，成交额21.44亿港元。 据兆易创新官微消息，近日，兆易创新与全球领先的软件设计、开发与质量解决方案提供商Qt Group正式达成合作，双方将依托GD32H7高性能MCU系列，聚焦嵌入式GUI技术方案的联合打磨与优化，共同推动产品竞争力升级与开发者生态繁荣。此次合作标志着兆易创新在高端人机交互领
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+兆易创新（03986）午后涨超8%，截至发稿，股价上涨8.06%，现报1012港元，成交额21.44亿港元。
 
-每经记者|王砚丹 每经编辑|叶峰 4月17日，A股市场再次见证历史！
+据兆易创新官微消息，近日，兆易创新与全球领先的软件设计、开发与质量解决方案提供商Qt Group正式达成合作，双方将依托GD32H7高性能MCU系列，聚焦嵌入式GUI技术方案的联合打磨与优化，共同推动产品竞争力升级与开发者生态繁荣。
 
-科创板光芯片龙头源杰科技（688498）大幅冲高，最高触及1460.08元/股，成功超越贵州茅台，新晋为A股第一高价股。
+此次合作标志着兆易创新在高端人机交互领域的生态布局迈入新阶段。
 
-截至收盘，源杰科技股价报1445元/股，涨幅10.05%，总市值超过1200亿元。
+双方将围绕三大方向展开深度协作：完成Qt for MCUs在GD32H7平台的底层深度适配与性能专项调优，充分释放硬件潜能；联合开发面向典型行业场景的标准化GUI参考方案与工具链，降低开发门槛并加速客户产品落地；同时依托双方渠道资源共建生态，通过联合技术培训、开发者社区与市场推广，为客户提供全周期技术保障与开发赋能。
 
-利好突发！
-
-下游中际旭创业绩大超预期 源杰科技今日大涨来源于消息面上的刺激，而消息面来自另一只大牛股中际旭创。
-
-4月16日晚间中际旭创公告称，2026年第一季度实现营业收入194.96亿元，同比增长192.12%；归属于上市公司股东的净利润为57.35亿元，同比增长262.28%。
-
-中际旭创发布一季报后，国金证券、广发证券等分析师认为，该公司各项指标均超市场预期。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 08:58 - 人可以极简主义到什么程度？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md
-- 2026-06-30 09:14 - 日本队5进世界杯淘汰赛0胜<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md
-- 2026-06-30 08:56 - 第一炉香<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md
-- 2026-06-30 08:59 - 欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md
-- 2026-06-30 08:54 - 开电动汽车真的很省钱吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md
-- 2026-06-30 09:21 - 恋与深空<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md
-- 2026-06-30 09:05 - 王欣瑜连续4年晋级温网第二轮<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md
-- 2026-06-30 09:08 - 田中碧失误<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md
-- 2026-06-30 08:57 - 俄乌双方伤亡近180万人<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md
-- 2026-06-30 09:06 - 挪威国家队紧急从本土订购大批海鲜<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md
-- 2026-06-30 08:57 - 荀彧和曹操反目成仇的根本原因是什么？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md
-- 2026-06-30 09:19 - 韩国世界杯出局是主帅一个人的锅吗<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md
+- 2026-06-30 09:10 - 全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md
+- 2026-06-30 09:15 - 网红峡谷5人溺亡 有人提醒会下雨<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md
+- 2026-06-30 09:20 - 这几秒成世界杯最值钱广告位<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md
+- 2026-06-30 09:17 - 巴拉圭进球<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md
+- 2026-06-30 09:07 - 勇士续约波尔津吉斯<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md
+- 2026-06-30 08:57 - 领克900大型SUV值得购买吗?<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md
+- 2026-06-30 09:10 - 郑钦文 四年一轮游<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md
+- 2026-06-30 09:15 - 日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md
+- 2026-06-30 09:22 - 你这一辈子有没有为进山姆拼过命？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md
+- 2026-06-30 09:14 - 四川宜宾地震瞬间鱼群乱跳<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md
+- 2026-06-30 08:55 - 我们看到的星星是不是有些已经不存在了？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:17 - 一见倾心<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/01128461763.shtml
-- 2026-06-30 09:17 - 曝詹姆斯即将与勇士会面<br><br> | ??:http://www.share.kurohicncr.top/Article/details/57161236.shtml
-- 2026-06-30 09:16 - 自然光｜papi酱&窦文涛：驴与跑步机<br><br> | ??:http://www.share.kurohicncr.top/Article/details/761287032.shtml
-- 2026-06-30 09:18 - 世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/65421.shtml
-- 2026-06-30 09:16 - 亚洲球队全部告别世界杯<br><br> | ??:http://www.share.kurohicncr.top/Article/details/254489839303.shtml
-- 2026-06-30 09:00 - 速度与激情9<br><br> | ??:https://www.share.kurohicncr.top/Article/details/2745191447.shtml
-- 2026-06-30 09:10 - 如果有二次元高中是什么样子的？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/65061.shtml
-- 2026-06-30 09:00 - 为什么会有「念旧」的心理？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/968526254.shtml
-- 2026-06-30 09:11 - 孙兴慜道歉<br><br> | ??:http://www.share.kurohicncr.top/Article/details/99740218859.shtml
-- 2026-06-30 09:08 - 花少8要去世界杯举办国<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/71448869206.shtml
-- 2026-06-30 09:20 - 热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？<br><br> | ??:https://www.blog.minike.top/Article/details/11712247.shtml
-- 2026-06-30 09:17 - 武磊：巴西队赢的并不轻松<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/32247336.shtml
-- 2026-06-30 09:08 - 如何把斧兵改造成精英怪？提高攻速移速！！！<br><br> | ??:https://www.share.minike.top/Article/details/24046837.shtml
-- 2026-06-30 09:23 - Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？<br><br> | ??:https://www.share.minike.top/Article/details/42807792.shtml
-- 2026-06-30 09:08 - 开电动汽车真的很省钱吗？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/577921969050.shtml
+- 2026-06-30 09:18 - 送你一朵小红花<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/97330327070.shtml
+- 2026-06-30 09:21 - 如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？<br><br> | ??:https://www.share.minike.top/Article/details/560691314691.shtml
+- 2026-06-30 09:11 - 首届《哈基米歌王争霸赛》总决赛<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/4082948.shtml
+- 2026-06-30 09:18 - 日本遭读秒绝杀 森保一：我水平不够<br><br> | ??:https://www.share.kurohicncr.top/Article/details/7423807642.shtml
+- 2026-06-30 09:08 - 天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】<br><br> | ??:https://www.blog.minike.top/Article/details/72442130804.shtml
+- 2026-06-30 08:59 - "超算小姐，这一次，我一定要带你出去..."<br><br> | ??:https://www.blog.minike.top/Article/details/37073.shtml
+- 2026-06-30 09:09 - 日本球迷输球后集体捡垃圾<br><br> | ??:https://www.share.minike.top/Article/details/6632249.shtml
+- 2026-06-30 09:18 - 扫黑风暴<br><br> | ??:http://www.share.minike.top/Article/details/940071230.shtml
+- 2026-06-30 09:16 - 巴拉圭先进球了<br><br> | ??:http://www.share.minike.top/Article/details/136578.shtml
+- 2026-06-30 09:10 - 终于把好哥们处成了情侣!<br><br> | ??:http://www.share.minike.top/Article/details/7922102.shtml
+- 2026-06-30 09:19 - 中国对日本再出重拳<br><br> | ??:https://www.share.minike.top/Article/details/27055.shtml
+- 2026-06-30 08:59 - 国务院：鼓励行业龙头企业举办职校<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/7370661.shtml
+- 2026-06-30 09:19 - 这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆<br><br> | ??:https://www.share.kurohicncr.top/Article/details/6878904.shtml
+- 2026-06-30 09:16 - 如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/43712.shtml
+- 2026-06-30 09:10 - 巴拉圭先进球了<br><br> | ??:https://www.share.minike.top/Article/details/813791821.shtml

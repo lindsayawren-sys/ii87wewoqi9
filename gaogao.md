@@ -1,58 +1,57 @@
-# 又见内幕交易？霍尔木兹开放前20分钟，神秘交易员7.6亿美元精准做空原油，已被调查
+# 美伊谈判将于30日继续 围绕核核查机制双方再生龃龉
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：华尔街见闻 一笔卡在消息公布前20分钟的巨额空单，再次让原油市场的“神秘交易”浮出水面。 4月17日，就在伊朗外长宣布霍尔木兹海峡对所有商业船只完全开放前约20分钟（18日又被关闭），一笔规模约7.6亿美元的原油空单悄然落地。消息一出，油价当日最大跌幅达11%。据路透社报道，这已是近几个月内第三次出现
+自6月21日美伊在瑞士进行了签署谅解备忘录以来的首度谈判后，目前谅解备忘录中涉及的霍尔木兹海峡商船通航以及伊朗原油产品获准销售等内容有推进。 按照24日巴基斯坦及美国方面公布的最新计划，美伊下一次技术性谈判将于本月30日继续。不过围绕谈判中关键的核问题，美伊之间再次出现表述不一的情况。 美伊技术性谈判30日继续 谅解备忘录多项议题落实有进展根据巴基斯坦外交部发言人塔希尔·安德拉
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+自6月21日美伊在瑞士进行了签署谅解备忘录以来的首度谈判后，目前谅解备忘录中涉及的霍尔木兹海峡商船通航以及伊朗原油产品获准销售等内容有推进。
 
-来源：华尔街见闻 一笔卡在消息公布前20分钟的巨额空单，再次让原油市场的“神秘交易”浮出水面。
+按照24日巴基斯坦及美国方面公布的最新计划，美伊下一次技术性谈判将于本月30日继续。
 
-4月17日，就在伊朗外长宣布霍尔木兹海峡对所有商业船只完全开放前约20分钟（18日又被关闭），一笔规模约7.6亿美元的原油空单悄然落地。
+不过围绕谈判中关键的核问题，美伊之间再次出现表述不一的情况。
 
-消息一出，油价当日最大跌幅达11%。
+美伊技术性谈判30日继续 谅解备忘录多项议题落实有进展根据巴基斯坦外交部发言人塔希尔·安德拉比24日的声明，美国和伊朗的技术性谈判将于本月30日继续。
 
-据路透社报道，这已是近几个月内第三次出现类似情形——重大政策宣布前，总有人提前重仓做空原油。
+安德拉比还在当天的例行记者会上许诺将同卡塔尔方面共同确保谅解备忘录的落实。
 
-美国商品期货交易委员会（CFTC）已对此展开调查。
+安德拉比称，巴基斯坦和卡塔尔的技术团队将在未来几周继续与美伊技术团队保持密切接触，确保有效落实美伊谅解备忘录。
 
-据一位知情人士向媒体透露，CFTC正在调查一系列油价期货交易，包括3月23日和4月7日的两笔交易，均发生在特朗普就伊朗战争相关政策作出重大表态之前。
+美国国务卿鲁比奥也在当天结束访问科威特、前往巴林前表示，美伊双方下一轮技术层级谈判预计将于6月30日在瑞士继续。
 
-20分钟，7990手，7.6亿美元 伦敦证券交易所集团（LSEG）数据显示，4月17日格林威治时间12时24分至12时25分，投资者在短短1分钟内合计卖出7990手布伦特原油期货，按当时价格折算约为7.6亿美元。
+根据伊朗国家级媒体及美国官员早先公布的美伊达成的谅解备忘录的内容，其中涉及的“霍尔木兹海峡船只通航”“允许伊朗原油及相关产品出口”等重要议题，均在近期得到部分推进或落实。
 
 ## 相关推荐
 
-- 2026-06-30 08:58 - 《名肘探科比》：科比大战裂口女<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md
-- 2026-06-30 09:03 - 美人鱼<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md
-- 2026-06-30 09:03 - 主人解开狗绳2只狗将路人撕咬致死<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md
-- 2026-06-30 09:19 - 巴西2比1日本<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md
-- 2026-06-30 08:54 - 我吃遍了西安最強的街頭小吃，第九家強得離譜！<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md
-- 2026-06-30 08:56 - 为什么香港的冲厕水是咸的？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md
-- 2026-06-30 09:11 - 孙颖莎王楚钦晋级8强<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md
-- 2026-06-30 09:15 - 女子遭家暴逃跑致丈夫身亡二审细节<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md
-- 2026-06-30 09:08 - 杨紫获白玉兰视后争议不止<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md
-- 2026-06-30 08:55 - 勇敢的心第二部<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md
-- 2026-06-30 09:03 - 巴西把自己踢晕了<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md
-- 2026-06-30 09:18 - 金刚川<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md
+- 2026-06-30 09:04 - 青春环游记第三季<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md
+- 2026-06-30 09:18 - 为什么香港的冲厕水是咸的？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md
+- 2026-06-30 09:04 - Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md
+- 2026-06-30 08:55 - 手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md
+- 2026-06-30 09:04 - 韩国世界杯出局是主帅一个人的锅吗<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md
+- 2026-06-30 09:21 - 人可以极简主义到什么程度？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md
+- 2026-06-30 09:23 - 斗破苍穹<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md
+- 2026-06-30 09:23 - 马宁怒怼巴拉圭教练组<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md
+- 2026-06-30 09:00 - 恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md
+- 2026-06-30 09:00 - 青春环游记第三季<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md
+- 2026-06-30 09:08 - 美股深夜大反弹 特斯拉飙涨8%<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:59 - 考入南大计算机，复读考清北值吗？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/8003483753.shtml
-- 2026-06-30 09:05 - 如何看待武亮说大学生生活费1500就够用这一言论？<br><br> | ??:http://www.share.minike.top/Article/details/8078896673.shtml
-- 2026-06-30 09:14 - 宜宾地震食客避难后折返 无人逃单<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/19763.shtml
-- 2026-06-30 09:11 - 泰山建135公里刀片刺绳隔离网<br><br> | ??:https://www.blog.minike.top/Article/details/598973.shtml
-- 2026-06-30 09:20 - 房价什么时候能涨<br><br> | ??:https://www.share.minike.top/Article/details/39957376855.shtml
-- 2026-06-30 09:18 - 【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸<br><br> | ??:http://www.share.kurohicncr.top/Article/details/17061263.shtml
-- 2026-06-30 09:23 - “以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》<br><br> | ??:https://www.share.minike.top/Article/details/662674.shtml
-- 2026-06-30 09:07 - 德国巴拉圭加时<br><br> | ??:http://www.blog.minike.top/Article/details/9592647.shtml
-- 2026-06-30 09:21 - 泰山景区建135公里刀片刺绳隔离网<br><br> | ??:http://www.share.minike.top/Article/details/93743.shtml
-- 2026-06-30 09:12 - 输球后日本球迷被强行披上巴西国旗<br><br> | ??:https://www.share.kurohicncr.top/Article/details/499524.shtml
-- 2026-06-30 08:55 - "超算小姐，这一次，我一定要带你出去..."<br><br> | ??:http://www.share.kurohicncr.top/Article/details/291557.shtml
-- 2026-06-30 09:17 - 阿娇瘦了10斤<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/28677.shtml
-- 2026-06-30 09:20 - 老外对中国cosplay竟这样评价…<br><br> | ??:https://www.blog.minike.top/Article/details/033399894076.shtml
-- 2026-06-30 08:59 - 2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/929933648.shtml
-- 2026-06-30 09:17 - 巴西足球能否再现昔日荣光<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/734834.shtml
+- 2026-06-30 09:05 - 极端热浪席卷欧洲多国，热一热百姓让领导先凉快？<br><br> | ??:https://www.blog.minike.top/Article/details/829368.shtml
+- 2026-06-30 09:19 - 低智商犯罪三江口团建来了<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/40205426872.shtml
+- 2026-06-30 09:06 - 人可以极简主义到什么程度？<br><br> | ??:http://www.blog.minike.top/Article/details/430553.shtml
+- 2026-06-30 09:02 - 4000美元是黄金新一轮下跌的开始吗<br><br> | ??:https://www.share.kurohicncr.top/Article/details/069259441.shtml
+- 2026-06-30 09:10 - 马宁怒怼巴拉圭教练组<br><br> | ??:http://www.share.kurohicncr.top/Article/details/1234818808.shtml
+- 2026-06-30 09:19 - 青春环游记第三季<br><br> | ??:https://www.share.kurohicncr.top/Article/details/57999594.shtml
+- 2026-06-30 09:07 - 王曼昱被突如其来的话筒逗笑了<br><br> | ??:https://www.blog.minike.top/Article/details/8411473393.shtml
+- 2026-06-30 09:07 - 你的妻子大喷菇—《植物娘大战僵尸》特别篇<br><br> | ??:http://www.blog.minike.top/Article/details/01231222125.shtml
+- 2026-06-30 08:59 - 亚洲球队全部告别世界杯<br><br> | ??:http://www.share.minike.top/Article/details/9701098353.shtml
+- 2026-06-30 09:01 - 德国4比5巴拉圭<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/14382.shtml
+- 2026-06-30 09:14 - 媒体：手机测评该挤挤水分了<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/0445517.shtml
+- 2026-06-30 09:01 - 泰山景区回应修建刀片刺绳隔离网<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/37826861.shtml
+- 2026-06-30 09:00 - 日本进球<br><br> | ??:http://www.share.minike.top/Article/details/5839666.shtml
+- 2026-06-30 09:06 - 媒体：手机测评该挤挤水分了<br><br> | ??:http://www.share.minike.top/Article/details/901862.shtml
+- 2026-06-30 09:18 - 卖菜老人获博主帮助后遇车祸去世<br><br> | ??:http://www.blog.minike.top/Article/details/8827439.shtml

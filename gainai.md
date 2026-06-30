@@ -1,56 +1,56 @@
-# 新大众文艺的“在场”力量特别节目·海南篇完成录制
+# 清华大学张亚勤：未来80%基础模型将开源，这恰恰是中国优势
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-中新网海口4月17日电 由中国文联、海南省委宣传部指导，海南省文联主办的“你好，45432——新大众文艺的‘在场’力量特别节目·海南篇”日前在海口完成录制。 节目以“我们在场”为核心主题，紧扣海南“十五五”规划中“45432”的发展框架，采用“短视频+文艺家讲述+文艺节目”的呈现形式，深度聚焦旅游业、现代服务业、高新技术产业、热带特色高效农业四大主导产业，紧扣“向种、向海、向天
+专题：2026第十七届夏季达沃斯论坛 6月23日，世界经济论坛第十七届新领军者年会（2026大连夏季达沃斯论坛）在大连举行。清华大学智能产业研究院院长、中国工程院外籍院士张亚勤出席“中国创新模式如何行稳致远？”论坛并演讲。 张亚勤指出，中美AI的一大区别在于开源。从长远看，美国模型虽然领先，但未来80%的基础模型都可能采用开源模式，这恰恰是中国的一大优势。 他提到，DeepSe
 
 ## 正文
 
-中新网海口4月17日电 由中国文联、海南省委宣传部指导，海南省文联主办的“你好，45432——新大众文艺的‘在场’力量特别节目·海南篇”日前在海口完成录制。
+专题：2026第十七届夏季达沃斯论坛 6月23日，世界经济论坛第十七届新领军者年会（2026大连夏季达沃斯论坛）在大连举行。
 
-节目以“我们在场”为核心主题，紧扣海南“十五五”规划中“45432”的发展框架，采用“短视频+文艺家讲述+文艺节目”的呈现形式，深度聚焦旅游业、现代服务业、高新技术产业、热带特色高效农业四大主导产业，紧扣“向种、向海、向天、向绿、向数”五向图强发展路径，以及四大未来产业、三篇消费文章、人才荟萃之岛和技术创新之岛等核心领域，精选18个典型人物与场景故事，将互联网上群众自发创作、全网热传的鲜活短视频，与专业文艺表达有机融合，以小场景折射大时代变迁，用小故事传递大时代情怀，让自贸港建设的生动实践通过文艺载体可感可触。
+清华大学智能产业研究院院长、中国工程院外籍院士张亚勤出席“中国创新模式如何行稳致远？
 
-丁柳元、刘劲、汤子星、王天歌、高晓晓等旅琼文艺家、文艺工作者依次登台，结合《从海南打出租直奔哈尔滨，有师傅敢接单吗？
+”论坛并演讲。
 
-》《海底10909米，中国“奋斗者”号来了》等全网热传的短视频佳作，展开讲述、传递时代温度。
+张亚勤指出，中美AI的一大区别在于开源。
 
-讲述中，一个个平凡而伟大的自贸港建设者形象鲜活呈现：从跨越4000公里传递温暖的出租车司机罗师傅，到扎根深海、为“奋斗者”号万米探海保驾护航的高级技师周皓；从我国首个商业航天发射场的开拓者杨天梁，到攻克脑机接口芯片难题的海南大学殷明团队；从扎根博鳌乐城、助力耳蜗宝宝重获新声的张劲医生，到在一片荒地上建起中外合作办学机构的奥运冠军李娜，文艺家们以真挚的情感、生动的表达，定格百姓生活的烟火气，致敬每一位奋斗者的平凡与伟大。
+从长远看，美国模型虽然领先，但未来80%的基础模型都可能采用开源模式，这恰恰是中国的一大优势。
 
-(完)
+他提到，DeepSeek、智谱、Kimi等中国模型都是开源的，其开放度和业务模式构成了中国AI的独特竞争力。
+
+另一方面，中国的“词元经济学”在效率上具备全球优势。
+
+他以电力成本为例指出，中国的电价大约是美国的一半，而且更加绿色。
 
 ## 相关推荐
 
-- 2026-06-30 08:56 - 亚洲球队全部出局<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md
-- 2026-06-30 09:04 - 深扒韩国队淘汰背后原因<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md
-- 2026-06-30 09:03 - 我吃遍了西安最強的街頭小吃，第九家強得離譜！<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md
-- 2026-06-30 08:59 - 德国爆冷点球大战不敌巴拉圭<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md
-- 2026-06-30 09:20 - 如何评价《龙之家族》第三季第二集？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md
-- 2026-06-30 09:15 - 人民锐评：网红不能困在无底线逐利里<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md
-- 2026-06-30 09:02 - 哈弗茨头球破门<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md
-- 2026-06-30 09:00 - 致敬！中国首批缉毒警已全体退休<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md
-- 2026-06-30 09:21 - 马宁怒怼巴拉圭教练组<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md
-- 2026-06-30 09:04 - 美团、淘宝闪购、京东外卖达成共识<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md
-- 2026-06-30 09:21 - 女子健身不当 居然“脑子漏水”了<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md
-- 2026-06-30 09:15 - 亚洲球队全部告别世界杯<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md
-- 2026-06-30 09:06 - 首届《哈基米歌王争霸赛》总决赛<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md
-- 2026-06-30 09:09 - 巴西在进攻三区完成210脚传球<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md
+- 2026-06-30 09:06 - 世界杯名画巴拉圭钢铁防线<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md
+- 2026-06-30 09:14 - 欧洲家电巨头为何输掉了这个夏天<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md
+- 2026-06-30 09:01 - 莫兰特转投开拓者效力<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md
+- 2026-06-30 08:57 - 森保一致歉：世界第一目标没能实现<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md
+- 2026-06-30 09:04 - 领克900大型SUV值得购买吗?<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md
+- 2026-06-30 09:23 - 【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md
+- 2026-06-30 08:56 - 谢依霖说杨幂是聚会第一把张罗手<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md
+- 2026-06-30 09:08 - 世界杯名画巴拉圭钢铁防线<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md
+- 2026-06-30 09:07 - 女子清吧被陌生人投放伟哥<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md
+- 2026-06-30 09:06 - 人类...完蛋了...<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:09 - 孙兴慜道歉<br><br> | ??:http://www.share.kurohicncr.top/Article/details/66702827933.shtml
-- 2026-06-30 09:04 - 急先锋<br><br> | ??:https://www.blog.minike.top/Article/details/13552208.shtml
-- 2026-06-30 09:00 - 【Reaction】女生最少的5款游戏<br><br> | ??:https://www.share.kurohicncr.top/Article/details/2071732946.shtml
-- 2026-06-30 09:07 - 承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？<br><br> | ??:https://www.share.minike.top/Article/details/70766.shtml
-- 2026-06-30 09:05 - 蜘蛛侠:英雄归来<br><br> | ??:http://www.blog.minike.top/Article/details/85646.shtml
-- 2026-06-30 08:56 - 欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？<br><br> | ??:https://www.share.minike.top/Article/details/73134.shtml
-- 2026-06-30 09:11 - 终于把好哥们处成了情侣!<br><br> | ??:http://www.share.minike.top/Article/details/440569503.shtml
-- 2026-06-30 09:07 - 欧盟分楼层开空调惹争议<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/19913.shtml
-- 2026-06-30 09:12 - 法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？<br><br> | ??:https://www.blog.minike.top/Article/details/87338365.shtml
-- 2026-06-30 08:57 - 巴西2比1日本<br><br> | ??:http://www.share.minike.top/Article/details/1573582144.shtml
-- 2026-06-30 09:14 - 点球大战<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/273101953.shtml
-- 2026-06-30 08:54 - 如何评价杨紫白玉兰获奖<br><br> | ??:https://www.share.kurohicncr.top/Article/details/56687372.shtml
-- 2026-06-30 09:00 - 本届世界杯已有5名球员被控强奸<br><br> | ??:https://www.share.minike.top/Article/details/40758.shtml
-- 2026-06-30 09:09 - 沉睡花园<br><br> | ??:https://www.share.minike.top/Article/details/27499334140.shtml
-- 2026-06-30 09:13 - 外国游客开始涌入中国农村<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/35014.shtml
+- 2026-06-30 09:17 - 浪姐成团夜爆笑吐槽<br><br> | ??:http://www.share.kurohicncr.top/Article/details/3183881.shtml
+- 2026-06-30 09:22 - 木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/460442.shtml
+- 2026-06-30 09:08 - hanser X 赖美云《室内系的Track Maker》<br><br> | ??:http://www.share.kurohicncr.top/Article/details/531693.shtml
+- 2026-06-30 09:02 - 警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？<br><br> | ??:https://www.blog.minike.top/Article/details/322182.shtml
+- 2026-06-30 09:07 - 奔跑吧·黄河篇第二季<br><br> | ??:https://www.share.kurohicncr.top/Article/details/470427.shtml
+- 2026-06-30 09:21 - 极端热浪席卷欧洲多国，热一热百姓让领导先凉快？<br><br> | ??:http://www.share.minike.top/Article/details/735617873723.shtml
+- 2026-06-30 09:06 - 如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？<br><br> | ??:https://www.share.minike.top/Article/details/789848527994.shtml
+- 2026-06-30 09:16 - 蜘蛛侠:平行宇宙<br><br> | ??:http://www.share.minike.top/Article/details/68367802675.shtml
+- 2026-06-30 08:54 - 第一次对自信的力量有了实感<br><br> | ??:https://www.share.minike.top/Article/details/14979247.shtml
+- 2026-06-30 09:10 - IGN评测电影版后室<br><br> | ??:https://www.share.kurohicncr.top/Article/details/689599519021.shtml
+- 2026-06-30 09:23 - 德国队连续三届世界杯无缘16强<br><br> | ??:https://www.share.kurohicncr.top/Article/details/32939.shtml
+- 2026-06-30 09:02 - 金牌调解<br><br> | ??:https://www.share.minike.top/Article/details/544062.shtml
+- 2026-06-30 09:07 - 低智商犯罪三江口团建来了<br><br> | ??:http://www.share.kurohicncr.top/Article/details/994264046.shtml
+- 2026-06-30 09:16 - 现在叛逆期的孩子最怕的是什么？<br><br> | ??:http://www.share.minike.top/Article/details/71927301.shtml
+- 2026-06-30 09:04 - 莫兰特转投开拓者效力<br><br> | ??:http://www.share.minike.top/Article/details/760204559.shtml

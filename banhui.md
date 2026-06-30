@@ -1,58 +1,56 @@
-# 第十七届井冈山杜鹃花节启幕 以花为媒促文旅全域融合
+# 粤黔东西部协作赋能 镇宁蜂糖李走俏湾区市场
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-中新网江西井冈山4月18日电 (刘力鑫)18日，2026第十七届井冈山杜鹃花节在江西井冈山茨坪镇开幕。本届杜鹃花节集赏花观景、光影展示、美食市集、动感出游、研学采风于一体，以多元场景展现井冈山的红色底蕴与生态风光，将为广大游客奉上一场可游、可赏、可品、可体验的沉浸式春日文旅盛宴，全方位呈现井冈山杜鹃盛景与红色文旅融合魅力。 开幕式上，吉安市副市长、井冈山管理局党工委书记、井冈山
+中新网广州6月25日电 (记者 程景伟)贵州镇宁蜂糖李24日亮相广州北京路天河城，开启为期一个月的专场展销活动。产地直采、空运直达的新鲜蜂糖李，搭配镇宁黄牛肉丸、风味香肠等特色农特产品集中展出，让来自贵州深山的优质农特产品走上粤港澳大湾区市民餐桌。 此次活动由镇宁布依族苗族自治县政府和广州市越秀区政府主办，是粤黔两地持续深化东西部协作、推动“黔货出山”的生动实践。 作为国家地理
 
 ## 正文
 
-中新网江西井冈山4月18日电 (刘力鑫)18日，2026第十七届井冈山杜鹃花节在江西井冈山茨坪镇开幕。
+中新网广州6月25日电 (记者 程景伟)贵州镇宁蜂糖李24日亮相广州北京路天河城，开启为期一个月的专场展销活动。
 
-本届杜鹃花节集赏花观景、光影展示、美食市集、动感出游、研学采风于一体，以多元场景展现井冈山的红色底蕴与生态风光，将为广大游客奉上一场可游、可赏、可品、可体验的沉浸式春日文旅盛宴，全方位呈现井冈山杜鹃盛景与红色文旅融合魅力。
+产地直采、空运直达的新鲜蜂糖李，搭配镇宁黄牛肉丸、风味香肠等特色农特产品集中展出，让来自贵州深山的优质农特产品走上粤港澳大湾区市民餐桌。
 
-开幕式上，吉安市副市长、井冈山管理局党工委书记、井冈山市委书记廖东生致辞时表示，杜鹃花作为井冈山的市花，是革命先烈鲜血浸染的光荣之花，是大自然馈赠革命圣地的幸福之花，是春天写给老区人民的希望之花，更是井冈儿女迎接八方宾客的友谊之花。
+此次活动由镇宁布依族苗族自治县政府和广州市越秀区政府主办，是粤黔两地持续深化东西部协作、推动“黔货出山”的生动实践。
 
-“连续十七年节会，一年一花期，一年一主题，我们以花为媒、以节会友，诚邀四海宾朋，共赴春日之约、共赏杜鹃芳华、共品井冈韵味、共话发展蓝图。
+作为国家地理标志农产品，镇宁蜂糖李以其独特风味，在水果界独树一帜。
 
-”廖东生说。
+镇宁县坐落于北纬25°黄金种植带、海拔800米至1200米的山地间，年均气温18摄氏度，年日照时长达1300小时。
 
-吉安市委副书记吴艳玲在开幕式上表示，井冈山的杜鹃是大自然赐予的绚丽瑰宝，也是吉安文旅的独特IP。
+昼夜温差悬殊，雨热同季，造就了镇宁蜂糖李“甜而不腻、脆而不硬”的口感。
 
-“如今的吉安和井冈山‘红古绿’三色交相辉映，山水湖美不胜收，红色文化和庐陵文化相互融合，是吉安推进‘农商文体旅’融合发展的灵魂和载体。
+刚刚过去的端午假期，镇宁蜂糖李在广州的销量持续走高，部分热门规格果实一度供不应求，展现出镇宁蜂糖李在大湾区市场的强劲消费潜力。
 
-” 据了解，本届井冈山杜鹃花节以“映山红遍·乐游井冈”为主题，精心策划了“花之绽、花之美、花之影、花之味、花之游、花之行”六大主题板块，涵盖开幕式文艺展演、井冈杜鹃赏花季、“美在井冈”摄影微视频展示、“井冈好味”特色集市、骑行自驾、研学采风等系列活动。
+目前，镇宁蜂糖李种植面积22.01万亩，今年预计产量突破7.7万吨，产值有望超过37亿元。
 
 ## 相关推荐
 
-- 2026-06-30 09:09 - 如果有二次元高中是什么样子的？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md
-- 2026-06-30 09:12 - 郑钦文温网一轮游<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md
-- 2026-06-30 09:21 - 宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md
-- 2026-06-30 09:20 - 女子遭家暴逃跑致丈夫身亡二审细节<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md
-- 2026-06-30 09:20 - 王菲谢霆锋十指紧扣好甜<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md
-- 2026-06-30 09:14 - 极限挑战第一季<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md
-- 2026-06-30 08:58 - 日本五次世界杯淘汰赛全败<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md
-- 2026-06-30 09:22 - 你的妻子大喷菇—《植物娘大战僵尸》特别篇<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md
-- 2026-06-30 09:17 - 如何评价DeepSeek 提出的 DSpark 推理加速方案？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md
-- 2026-06-30 09:09 - 点球淘汰德国 巴拉圭首都陷入疯狂<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md
-- 2026-06-30 09:08 - 詹姆斯 勇士<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md
-- 2026-06-30 09:06 - 武磊：巴西队赢的并不轻松<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md
+- 2026-06-30 09:12 - 四川凉山落石砸毁车辆 3人遇难<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md
+- 2026-06-30 09:02 - 杨紫被质疑未使用原名纯属误解<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md
+- 2026-06-30 09:12 - 泰山建135公里刀片刺绳隔离网<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md
+- 2026-06-30 08:56 - 爱很美味<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md
+- 2026-06-30 09:11 - 德国巴拉圭 折磨<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md
+- 2026-06-30 09:21 - 你这一辈子有没有为进山姆拼过命？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md
+- 2026-06-30 08:58 - 教育部披露：高考生篡改7名同学志愿<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md
+- 2026-06-30 09:02 - 我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md
+- 2026-06-30 09:11 - 全网说丑的格力玫瑰空调卖了5万台<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md
+- 2026-06-30 09:03 - 张雪的一句“是我们”引发岛内热议<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:06 - 女子清吧被陌生人投放伟哥<br><br> | ??:https://www.blog.minike.top/Article/details/3542333370.shtml
-- 2026-06-30 09:11 - 一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/8545690.shtml
-- 2026-06-30 09:15 - 王楚钦说配合稍微有些陌生感<br><br> | ??:https://www.blog.minike.top/Article/details/337341637038.shtml
-- 2026-06-30 08:58 - 陈幸同晋级WTT美国大满贯女单32强<br><br> | ??:http://www.share.minike.top/Article/details/004218.shtml
-- 2026-06-30 08:54 - 日本球迷输球后集体捡垃圾<br><br> | ??:https://www.share.kurohicncr.top/Article/details/77422759.shtml
-- 2026-06-30 09:07 - 点球大战<br><br> | ??:https://www.share.kurohicncr.top/Article/details/53235372056.shtml
-- 2026-06-30 09:02 - 巴西vs日本<br><br> | ??:http://www.share.kurohicncr.top/Article/details/079008910045.shtml
-- 2026-06-30 09:08 - 《恋与深空》被指触碰民族伤痛红线<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/07702657471.shtml
-- 2026-06-30 09:19 - 男子在京东买到“同仁堂”假药<br><br> | ??:https://www.blog.minike.top/Article/details/069847838.shtml
-- 2026-06-30 09:23 - 四川宜宾地震瞬间鱼群乱跳<br><br> | ??:https://www.share.kurohicncr.top/Article/details/76124924.shtml
-- 2026-06-30 09:19 - 内马尔替补<br><br> | ??:https://www.share.minike.top/Article/details/484180219.shtml
-- 2026-06-30 09:13 - 输球后日本球迷被强行披上巴西国旗<br><br> | ??:https://www.share.minike.top/Article/details/07041170.shtml
-- 2026-06-30 08:54 - 有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/6382577523.shtml
-- 2026-06-30 09:01 - 高考填志愿父亲和女儿产生分歧<br><br> | ??:https://www.share.minike.top/Article/details/3423891.shtml
-- 2026-06-30 09:22 - 李在明向韩国两大财阀90度鞠躬<br><br> | ??:https://www.share.kurohicncr.top/Article/details/230506.shtml
+- 2026-06-30 09:22 - 蜘蛛侠:平行宇宙<br><br> | ??:https://www.share.minike.top/Article/details/4183198242.shtml
+- 2026-06-30 09:19 - 网瘾賊大的阿嬷<br><br> | ??:http://www.share.kurohicncr.top/Article/details/709822427.shtml
+- 2026-06-30 09:24 - 手底下人带不动怎么办？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/32119.shtml
+- 2026-06-30 09:09 - "超算小姐，这一次，我一定要带你出去..."<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/77644156193.shtml
+- 2026-06-30 09:13 - 巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/5307847302.shtml
+- 2026-06-30 09:06 - 德国罚丢3粒点球<br><br> | ??:http://www.share.minike.top/Article/details/290110735.shtml
+- 2026-06-30 09:17 - 武磊：日本队有能力跟任何强队抗衡<br><br> | ??:http://www.share.kurohicncr.top/Article/details/659543829373.shtml
+- 2026-06-30 08:56 - 郑钦文温网三连败西尼亚科娃<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/33207.shtml
+- 2026-06-30 09:07 - 网瘾賊大的阿嬷<br><br> | ??:https://www.share.minike.top/Article/details/55057.shtml
+- 2026-06-30 09:20 - 张月收到黄灿灿辣货两眼发光<br><br> | ??:https://www.blog.minike.top/Article/details/621088.shtml
+- 2026-06-30 09:06 - 美团、淘宝闪购、京东外卖达成共识<br><br> | ??:https://www.blog.minike.top/Article/details/42696085.shtml
+- 2026-06-30 09:16 - 致敬！中国首批缉毒警已全体退休<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/062074637731.shtml
+- 2026-06-30 09:11 - 不开心就去看三年前的购物订单<br><br> | ??:http://www.share.kurohicncr.top/Article/details/75789.shtml
+- 2026-06-30 09:13 - 爱直接对嘴喝饮料的人天塌了<br><br> | ??:http://www.share.minike.top/Article/details/05454039.shtml
+- 2026-06-30 09:23 - 如何把斧兵改造成精英怪？提高攻速移速！！！<br><br> | ??:https://www.share.kurohicncr.top/Article/details/832961149166.shtml

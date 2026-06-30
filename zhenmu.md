@@ -1,47 +1,56 @@
-# 视频|资金管控不严格、商誉减值计提不审慎，齐心集团被责令改正
+# 巴西东北部特高压直流输电项目全线开工
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-来源：深圳商报责任编辑：韦子蓉
+中新社北京6月25日电 中国国家电网有限公司(下称“国家电网”)25日消息，当地时间24日，巴西东北部新能源送出±800千伏特高压直流输电项目全线开工建设。该项目由国家电网巴西控股公司独立投资、建设、运营，是巴西史上投资规模最大的输电特许权项目。该项目是继美丽山特高压一期、二期项目后，国家电网在海外落地的第三项特高压输电工程。项目计划于2029年全部投运，特许经营权期限30年。
 
 ## 正文
 
-来源：深圳商报责任编辑：韦子蓉
+中新社北京6月25日电 中国国家电网有限公司(下称“国家电网”)25日消息，当地时间24日，巴西东北部新能源送出±800千伏特高压直流输电项目全线开工建设。
+
+该项目由国家电网巴西控股公司独立投资、建设、运营，是巴西史上投资规模最大的输电特许权项目。
+
+该项目是继美丽山特高压一期、二期项目后，国家电网在海外落地的第三项特高压输电工程。
+
+项目计划于2029年全部投运，特许经营权期限30年。
+
+巴西东北特高压项目采用中国成熟先进的特高压直流输电技术，新建总长1468公里±800千伏特高压直流输电线路、两端换流站及相关配套设施，线路额定输送容量500万千瓦。
+
+输电通道跨越巴西马拉尼昂州、托坎廷斯州、戈亚斯州、米纳斯吉拉斯州四个州。
+
+项目建成投运后，将打通巴西东北部新能源远距离大容量外送通道，破解当地风电、光伏等新能源送出瓶颈，有效提升巴西利亚首都城市圈供电保障能力，助力巴西优化全国能源资源配置。
+
+该项目打包汇集巴西东北部和北部的风电、太阳能、水电等清洁能源，直送巴西利亚等中东部负荷中心，惠及约1200万当地民众用电需求。
 
 ## 相关推荐
 
-- 2026-06-30 08:55 - 黄晓明晒和周杰伦的合照<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md
-- 2026-06-30 09:15 - 刘宇宁高情商化解谁站C位<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md
-- 2026-06-30 09:22 - 媒体：手机测评该挤挤水分了<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md
-- 2026-06-30 08:56 - 蔚来回应高压水枪洗车掉漆<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md
-- 2026-06-30 09:09 - 董卿父亲在报纸上发文悼念亡妻<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md
-- 2026-06-30 09:20 - 法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md
-- 2026-06-30 08:54 - 男子造谣东鹏老板不喝自家饮料被拘<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md
-- 2026-06-30 08:54 - 男子中医院拔火罐致浅2度烧伤<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md
-- 2026-06-30 08:55 - 蜘蛛侠:英雄归来<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md
-- 2026-06-30 08:56 - 扫黑风暴<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md
-- 2026-06-30 09:10 - 韩国道歉完日本道歉<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md
-- 2026-06-30 09:09 - 为什么纣王似乎对周文王的扩张完全无动于衷？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md
-- 2026-06-30 09:12 - 2026年WTT美国大满贯，国乒自带球桌是真实的吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md
-- 2026-06-30 09:13 - 2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md
-- 2026-06-30 09:14 - 女子健身不当 居然“脑子漏水”了<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md
+- 2026-06-30 09:10 - 12人以护剧为名敲诈剧组艺人被抓<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md
+- 2026-06-30 09:02 - 把毒品藏在哪里，60秒内不会被发现？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md
+- 2026-06-30 09:04 - iPhone18e曝光<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md
+- 2026-06-30 09:16 - 马航370搜寻最新消息<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md
+- 2026-06-30 08:58 - 亚洲球队全部出局<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md
+- 2026-06-30 09:17 - 韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md
+- 2026-06-30 09:04 - 恋与深空道歉声明<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md
+- 2026-06-30 09:10 - 网友写差评被店家“挂”门口避雷<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md
+- 2026-06-30 09:21 - 千香<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md
+- 2026-06-30 09:06 - “中国养猪场都用上空调了”！这是真的吗？【主播说三农】<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:59 - 《贺子珍》<br><br> | ??:https://www.share.minike.top/Article/details/521324601.shtml
-- 2026-06-30 09:18 - 董卿母亲癌症去世<br><br> | ??:https://www.share.kurohicncr.top/Article/details/828642424.shtml
-- 2026-06-30 09:00 - 巴西2-1绝杀日本<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/046691.shtml
-- 2026-06-30 09:15 - 花少8要去世界杯举办国<br><br> | ??:https://www.share.minike.top/Article/details/24023.shtml
-- 2026-06-30 09:16 - 曝老詹对自由市场态度与以往截然不同<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/028803750689.shtml
-- 2026-06-30 09:13 - 世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/99776.shtml
-- 2026-06-30 09:16 - 亚洲球队全部出局<br><br> | ??:http://www.blog.minike.top/Article/details/98264271.shtml
-- 2026-06-30 09:11 - 博世们还在犹豫 美的们已经卖断货<br><br> | ??:http://www.share.minike.top/Article/details/155712.shtml
-- 2026-06-30 09:20 - 日本将帅赛后采访纷纷哽咽落泪<br><br> | ??:https://www.share.kurohicncr.top/Article/details/93653246806.shtml
-- 2026-06-30 09:15 - 点球大战<br><br> | ??:http://www.share.kurohicncr.top/Article/details/639833314.shtml
-- 2026-06-30 09:07 - 王楚钦孙颖莎vs皮斯特耶库库洛娃<br><br> | ??:https://www.blog.minike.top/Article/details/42228433512.shtml
-- 2026-06-30 09:09 - 男子在京东买到“同仁堂”假药<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/44102497.shtml
-- 2026-06-30 09:03 - 锐评T1战胜KC<br><br> | ??:https://www.share.minike.top/Article/details/447385197806.shtml
-- 2026-06-30 09:10 - 未来的飞机可能会用电吗？<br><br> | ??:http://www.blog.minike.top/Article/details/95470.shtml
-- 2026-06-30 09:21 - 2026年WTT美国大满贯，国乒自带球桌是真实的吗？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/7213098174.shtml
+- 2026-06-30 09:12 - 领克900大型SUV值得购买吗?<br><br> | ??:http://www.share.kurohicncr.top/Article/details/153732159302.shtml
+- 2026-06-30 09:10 - 安切洛蒂 换人<br><br> | ??:https://www.blog.minike.top/Article/details/07483.shtml
+- 2026-06-30 09:04 - 卢卡申科发布解放军仪仗队视频<br><br> | ??:http://www.share.kurohicncr.top/Article/details/859868494.shtml
+- 2026-06-30 09:18 - 德国罚丢3粒点球<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/97987.shtml
+- 2026-06-30 08:54 - 商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？<br><br> | ??:https://www.share.minike.top/Article/details/015103.shtml
+- 2026-06-30 09:00 - 2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/67264.shtml
+- 2026-06-30 09:08 - 极端热浪席卷欧洲多国，热一热百姓让领导先凉快？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/35720.shtml
+- 2026-06-30 09:10 - 啥比桑吉尔夫排位练蓝防（最不抽象的一集）<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/83203.shtml
+- 2026-06-30 08:57 - 德国北部枪击事件致5死<br><br> | ??:http://www.share.kurohicncr.top/Article/details/9676864.shtml
+- 2026-06-30 09:20 - 卖菜老人获博主帮助后遇车祸去世<br><br> | ??:http://www.share.minike.top/Article/details/2811938.shtml
+- 2026-06-30 09:01 - 全网说丑的玫瑰空调卖了5万台<br><br> | ??:https://www.share.minike.top/Article/details/01300734009.shtml
+- 2026-06-30 09:00 - 德国北部枪击事件致5死<br><br> | ??:http://www.share.minike.top/Article/details/9986529.shtml
+- 2026-06-30 08:56 - 第一炉香<br><br> | ??:https://www.share.minike.top/Article/details/00456818.shtml
+- 2026-06-30 09:17 - 点球大战<br><br> | ??:http://www.blog.minike.top/Article/details/743049.shtml
+- 2026-06-30 09:12 - “草莓月亮”浪漫现身<br><br> | ??:http://www.blog.minike.top/Article/details/229697495428.shtml

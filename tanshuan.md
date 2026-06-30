@@ -1,57 +1,61 @@
-# 乌克兰基辅发生枪击事件 致数人死亡
+# 广西持续加大对走私制造毒品等犯罪打击力度
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-当地时间18日，乌克兰基辅市长称基辅市内一家超市发生枪击事件，已造成多人受伤及数人死亡。枪手藏身于超市内，抓捕行动正在进行。 枪击首先发生在基辅市戈洛西伊夫区的一处街道上，据医务人员消息，目前已有两人死亡。街道枪击事件中有五名伤者已被送往首都的医院救治，其中包括一名儿童，以及犯罪嫌疑人闯入并目前藏身的超市的一名保安。超市内也传出枪声，针对嫌犯的抓捕行动仍在进行中。(总台记者 王
+中新网南宁6月24日电(林浩 许林)6月24日，广西壮族自治区高级人民法院副院长陆洪鸣表示，广西法院将持续加大对走私、制造毒品等犯罪的打击力度，同步加大对“零包”贩卖等末端性毒品犯罪的打击力度，加大对新型毒品犯罪、涉麻精药品等成瘾性物质犯罪、侵害青少年以及危害农村地区毒品犯罪的惩处力度，继续注重打财断血，摧毁毒品犯罪经济基础。 当天，广西壮族自治区高级人民法院在南宁市召开新闻发
 
 ## 正文
 
-当地时间18日，乌克兰基辅市长称基辅市内一家超市发生枪击事件，已造成多人受伤及数人死亡。
+中新网南宁6月24日电(林浩 许林)6月24日，广西壮族自治区高级人民法院副院长陆洪鸣表示，广西法院将持续加大对走私、制造毒品等犯罪的打击力度，同步加大对“零包”贩卖等末端性毒品犯罪的打击力度，加大对新型毒品犯罪、涉麻精药品等成瘾性物质犯罪、侵害青少年以及危害农村地区毒品犯罪的惩处力度，继续注重打财断血，摧毁毒品犯罪经济基础。
 
-枪手藏身于超市内，抓捕行动正在进行。
+当天，广西壮族自治区高级人民法院在南宁市召开新闻发布会，发布《广西法院禁毒工作白皮书(2021—2025年)》，通报2026年以来广西法院开展禁毒工作和毒品犯罪案件审判工作情况，并公布五起重大毒品犯罪典型案例。
 
-枪击首先发生在基辅市戈洛西伊夫区的一处街道上，据医务人员消息，目前已有两人死亡。
+陆洪鸣在活动中介绍，2021年至2025年，广西法院一审受理毒品犯罪案件16768件，判决发生法律效力的毒品案件被告人为24005人。
 
-街道枪击事件中有五名伤者已被送往首都的医院救治，其中包括一名儿童，以及犯罪嫌疑人闯入并目前藏身的超市的一名保安。
+今年1月至5月，广西法院一审受理毒品犯罪案件460件。
 
-超市内也传出枪声，针对嫌犯的抓捕行动仍在进行中。
+根据最高人民法院的执行命令，广西法院对罪行极其严重的陈四军、农凯茗、梁国昌等毒品犯罪分子依法执行死刑。
 
-(总台记者 王斌 王德禄)
+从审判情况来看，经过多年持续重拳打击与综合治理，广西毒品犯罪高发态势得到扭转，2025年广西法院一审新收毒品犯罪案件数为1362件，较2021年下降73.13%，禁毒形势持续向好，源头治理成效明显。
+
+在广西法院审理的毒品犯罪案件中，涉案毒品呈现传统、合成、新型毒品“三代并存”格局。
+
+以海洛因为代表的传统毒品数量和占比有所下降，甲基苯丙胺(冰毒)等合成毒品仍占较大比例，国家管制的麻醉药品、精神药品等新型毒品总体呈上升态势，且加速变异、形态迷惑性极强。
 
 ## 相关推荐
 
-- 2026-06-30 09:12 - 啊啊啊<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md
-- 2026-06-30 08:59 - 韩国球迷凌晨4点接机怒骂主教练<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md
-- 2026-06-30 09:09 - 韩国世界杯出局是主帅一个人的锅吗<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md
-- 2026-06-30 09:00 - 诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md
-- 2026-06-30 09:09 - 好像看到了人类带孩子崩溃的样子<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md
-- 2026-06-30 08:57 - 快递到家不能这样拆<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md
-- 2026-06-30 09:05 - 沉睡花园<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md
-- 2026-06-30 09:18 - 哈弗茨头球破门<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md
-- 2026-06-30 09:02 - 诺伊尔尽力了<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md
-- 2026-06-30 09:14 - 12人以护剧为名敲诈剧组艺人被抓<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md
-- 2026-06-30 09:03 - 被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md
-- 2026-06-30 09:10 - 穆祉丞回应获年度人气艺人<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md
-- 2026-06-30 09:19 - 爱很美味<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md
-- 2026-06-30 08:55 - 锐评：网红不能困在无底线逐利里<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md
-- 2026-06-30 09:09 - 未来的飞机可能会用电吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md
+- 2026-06-30 09:10 - 巴西2-1绝杀日本<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md
+- 2026-06-30 08:59 - 妻子撞死家暴丈夫案二审案情反转<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md
+- 2026-06-30 09:15 - 免费试吃发差评被店家挂店门避雷<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md
+- 2026-06-30 09:11 - 明星大侦探第一季<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md
+- 2026-06-30 09:01 - 我们看到的星星是不是有些已经不存在了？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md
+- 2026-06-30 09:21 - 巴西绝杀日本：漫画般结局换了主角<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md
+- 2026-06-30 09:03 - iPhone18e曝光<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md
+- 2026-06-30 08:58 - iPhoneUltra黑色机模<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md
+- 2026-06-30 09:10 - 致敬！中国首批缉毒警已全体退休<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md
+- 2026-06-30 08:57 - 开电动汽车真的很省钱吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md
+- 2026-06-30 09:19 - 媒体：手机测评该挤挤水分了<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md
+- 2026-06-30 09:09 - 内马尔安慰日本球员<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md
+- 2026-06-30 09:12 - 一生一世<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md
+- 2026-06-30 09:06 - 奔跑吧·黄河篇第二季<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md
+- 2026-06-30 09:03 - 勇士续约波尔津吉斯<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:13 - 4000美元是黄金新一轮下跌的开始吗<br><br> | ??:https://www.blog.minike.top/Article/details/53799314549.shtml
-- 2026-06-30 09:15 - 杨紫被质疑未使用原名纯属误解<br><br> | ??:https://www.blog.minike.top/Article/details/900693.shtml
-- 2026-06-30 09:22 - 马耳他著名拱门坍塌致中国男子身亡<br><br> | ??:https://www.blog.minike.top/Article/details/03321.shtml
-- 2026-06-30 09:09 - 男子在京东买到“同仁堂”假药<br><br> | ??:http://www.blog.minike.top/Article/details/31658930233.shtml
-- 2026-06-30 09:11 - 自然光｜papi酱&窦文涛：驴与跑步机<br><br> | ??:https://www.share.kurohicncr.top/Article/details/898714192.shtml
-- 2026-06-30 09:23 - 日本主帅赛后回应淘汰出局<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/01617.shtml
-- 2026-06-30 08:58 - 日本五次世界杯淘汰赛全败<br><br> | ??:https://www.blog.minike.top/Article/details/042354908809.shtml
-- 2026-06-30 09:16 - FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？<br><br> | ??:http://www.blog.minike.top/Article/details/575890020153.shtml
-- 2026-06-30 08:57 - 古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?<br><br> | ??:http://www.share.kurohicncr.top/Article/details/054802.shtml
-- 2026-06-30 08:58 - 古代时期普通老百姓能喝上酒吗？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/5337861.shtml
-- 2026-06-30 09:22 - 尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」<br><br> | ??:https://www.share.kurohicncr.top/Article/details/2734781.shtml
-- 2026-06-30 09:05 - 12人以护剧为名敲诈剧组艺人被抓<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/3114075438.shtml
-- 2026-06-30 09:23 - 泰山建135公里刀片刺绳隔离网<br><br> | ??:https://www.share.kurohicncr.top/Article/details/940407.shtml
-- 2026-06-30 09:19 - 一生一世<br><br> | ??:https://www.share.minike.top/Article/details/27403556.shtml
-- 2026-06-30 09:16 - 金鹰奖视后提名预测<br><br> | ??:http://www.share.minike.top/Article/details/017950.shtml
+- 2026-06-30 09:02 - 世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/35562798.shtml
+- 2026-06-30 09:17 - 如何评价杨紫白玉兰获奖<br><br> | ??:http://www.blog.minike.top/Article/details/757001896275.shtml
+- 2026-06-30 08:56 - 巴拉圭点球大战淘汰德国进16强<br><br> | ??:https://www.share.minike.top/Article/details/589895530.shtml
+- 2026-06-30 09:10 - 德国罚丢3粒点球<br><br> | ??:https://www.share.minike.top/Article/details/35140.shtml
+- 2026-06-30 09:06 - 第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！<br><br> | ??:https://www.blog.minike.top/Article/details/309506436.shtml
+- 2026-06-30 08:58 - 日耳曼拖拉机<br><br> | ??:https://www.blog.minike.top/Article/details/65861.shtml
+- 2026-06-30 09:11 - 王灿兮被烫伤两年后维权成功<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/40741.shtml
+- 2026-06-30 08:58 - 豆包收费了，你还会用吗？<br><br> | ??:http://www.blog.minike.top/Article/details/250869.shtml
+- 2026-06-30 09:23 - Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？<br><br> | ??:https://www.blog.minike.top/Article/details/29453.shtml
+- 2026-06-30 09:16 - “柠檬茶能换怀表？”<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/852674.shtml
+- 2026-06-30 09:20 - 德国巴拉圭进入点球大战<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/96236392.shtml
+- 2026-06-30 09:23 - 董卿父亲报纸上发文悼念亡妻<br><br> | ??:http://www.share.minike.top/Article/details/8425467.shtml
+- 2026-06-30 09:19 - 未来的飞机可能会用电吗？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/2167512.shtml
+- 2026-06-30 09:10 - 这一刀 会很帅<br><br> | ??:https://www.share.kurohicncr.top/Article/details/688973.shtml
+- 2026-06-30 09:16 - 有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？<br><br> | ??:https://www.share.minike.top/Article/details/9444247.shtml

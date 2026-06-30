@@ -1,46 +1,50 @@
-# 此行间·谈国家安全，总书记用过这些精彩比喻
+# 招商银行已成立市值管理小组，彭家文任组长
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月17日 15:11 来源：人民日报客户端 责任编辑：【杨彦宇】
+6月25日金融一线消息，招商银行今日召开2025年度股东会。董事会秘书彭家文强调，招商银行对市值管理非常重视，公司成立了市值管理小组并由其兼任组长，定期召开市值管理分析会议，在会议上持续传递资本市场的声音，收集各位投资者和股东的想法与诉求，并在内部开展充分研究，有一些已经落地到经营策略当中，有一些也会落地到分红等相关策略当中。 彭家文将市值管理分解为三个层级的工作。第一是价值创
 
 ## 正文
 
-发布时间：2026年04月17日 15:11 来源：人民日报客户端 责任编辑：【杨彦宇】
+6月25日金融一线消息，招商银行今日召开2025年度股东会。
+
+董事会秘书彭家文强调，招商银行对市值管理非常重视，公司成立了市值管理小组并由其兼任组长，定期召开市值管理分析会议，在会议上持续传递资本市场的声音，收集各位投资者和股东的想法与诉求，并在内部开展充分研究，有一些已经落地到经营策略当中，有一些也会落地到分红等相关策略当中。
+
+彭家文将市值管理分解为三个层级的工作。
+
+第一是价值创造，把自己做好，能够真正的为股东创造价值；第二是价值发现，不断持续地和投资者、分析师、股东进行沟通，让市场充分了解招行的经营成果与发展价值；第三是价值经营，研究运用分红、回购等工具和手段提升市值水平。
+
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-30 09:16 - iPhone18e曝光<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md
-- 2026-06-30 09:16 - 日本五次世界杯淘汰赛全败<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md
-- 2026-06-30 09:17 - 曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md
-- 2026-06-30 09:11 - 【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md
-- 2026-06-30 09:19 - 日本五次世界杯淘汰赛全败<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md
-- 2026-06-30 09:16 - 高考结束，该不该外出打工体验？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md
-- 2026-06-30 09:23 - 四川宜宾地震瞬间鱼群乱跳<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md
-- 2026-06-30 09:17 - 韩国人为什么这么在乎输赢<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md
-- 2026-06-30 08:55 - 这种关系可能正在悄悄“催老”你<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md
-- 2026-06-30 09:22 - 第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md
-- 2026-06-30 09:19 - 武磊：日本队有能力跟任何强队抗衡<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md
-- 2026-06-30 09:10 - 杨紫大银幕成绩单<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md
-- 2026-06-30 09:02 - 勇士续约波尔津吉斯<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md
-- 2026-06-30 09:03 - 古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md
+- 2026-06-30 09:07 - 蔚来回应高压水枪洗车掉漆<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md
+- 2026-06-30 09:04 - 如何把斧兵改造成精英怪？提高攻速移速！！！<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md
+- 2026-06-30 09:00 - 国内最大沙漠发洪水意味着什么<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md
+- 2026-06-30 09:01 - 男子在非洲务工死亡 公司不认可工亡<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md
+- 2026-06-30 09:12 - 首届《哈基米歌王争霸赛》总决赛<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md
+- 2026-06-30 09:06 - 杨紫获白玉兰视后为何争议难平<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md
+- 2026-06-30 09:06 - 中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md
+- 2026-06-30 08:54 - 韩国球迷凌晨4点接机怒骂主教练<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md
+- 2026-06-30 09:06 - 日本主帅：未能夺冠深感抱歉<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md
+- 2026-06-30 08:56 - 欧洲装一台空调有多难<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:11 - 我设置了全宇宙最安全的密码<br><br> | ??:https://www.blog.minike.top/Article/details/1519659.shtml
-- 2026-06-30 09:09 - 锐评：网红不能困在无底线逐利里<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/567223.shtml
-- 2026-06-30 09:14 - 孙兴慜发长文致歉<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/799125717.shtml
-- 2026-06-30 09:09 - 为什么会有「念旧」的心理？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/53310146705.shtml
-- 2026-06-30 09:06 - 周冬雨多次说演不了话剧文城<br><br> | ??:https://www.blog.minike.top/Article/details/22312595904.shtml
-- 2026-06-30 08:55 - DeepSeek启动成立来最大规模招聘<br><br> | ??:https://www.share.minike.top/Article/details/626172636.shtml
-- 2026-06-30 08:56 - 世界杯：荷兰vs摩洛哥<br><br> | ??:http://www.share.minike.top/Article/details/63437533389.shtml
-- 2026-06-30 09:20 - 哪部作品、哪本书、哪首歌，值得被一直传下去？<br><br> | ??:https://www.blog.minike.top/Article/details/364345.shtml
-- 2026-06-30 09:08 - 速度与激情9<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/499757484431.shtml
-- 2026-06-30 09:23 - FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/480349762035.shtml
-- 2026-06-30 09:16 - “荒唐”背后的韩国足球<br><br> | ??:http://www.blog.minike.top/Article/details/801997.shtml
-- 2026-06-30 09:06 - 如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/10989424119.shtml
-- 2026-06-30 09:03 - 金鹰奖视后提名预测<br><br> | ??:https://www.blog.minike.top/Article/details/1735994607.shtml
-- 2026-06-30 09:19 - 委内瑞拉地震死亡人数升至1719人<br><br> | ??:https://www.blog.minike.top/Article/details/465991133.shtml
-- 2026-06-30 09:18 - 沉睡花园<br><br> | ??:https://www.share.kurohicncr.top/Article/details/289242.shtml
+- 2026-06-30 08:59 - 赵丽颖风吹半夏含金量还在上升<br><br> | ??:http://www.share.minike.top/Article/details/66684.shtml
+- 2026-06-30 09:23 - 7月1日起 一批新规即将落地<br><br> | ??:http://www.share.minike.top/Article/details/168037795.shtml
+- 2026-06-30 09:12 - 全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」<br><br> | ??:https://www.share.minike.top/Article/details/556852420649.shtml
+- 2026-06-30 08:59 - 起风了<br><br> | ??:http://www.share.minike.top/Article/details/36432527.shtml
+- 2026-06-30 09:10 - 为什么香港的冲厕水是咸的？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/2586574404.shtml
+- 2026-06-30 08:58 - 美股深夜大反弹 特斯拉飙涨8%<br><br> | ??:http://www.blog.minike.top/Article/details/9703390.shtml
+- 2026-06-30 08:54 - 7月1日起 一批新规即将落地<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/299177120696.shtml
+- 2026-06-30 08:59 - 致敬！中国首批缉毒警已全体退休<br><br> | ??:http://www.blog.minike.top/Article/details/167468008.shtml
+- 2026-06-30 09:12 - 覃予萱晋级WTT美国大满贯女单32强<br><br> | ??:http://www.blog.minike.top/Article/details/903139893479.shtml
+- 2026-06-30 08:55 - 刘宇宁高情商化解谁站C位<br><br> | ??:http://www.share.kurohicncr.top/Article/details/023347.shtml
+- 2026-06-30 09:03 - 日本主帅赛后回应淘汰出局<br><br> | ??:https://www.blog.minike.top/Article/details/0118947114.shtml
+- 2026-06-30 08:54 - 怕iPhone涨价的用户已紧急换新<br><br> | ??:https://www.share.minike.top/Article/details/226061.shtml
+- 2026-06-30 09:03 - 锐评T1战胜KC<br><br> | ??:http://www.share.kurohicncr.top/Article/details/710052.shtml
+- 2026-06-30 09:02 - 女子遭家暴逃跑致丈夫身亡二审细节<br><br> | ??:https://www.blog.minike.top/Article/details/2138264.shtml
+- 2026-06-30 09:03 - 陈小春人老了干什么也不心酸<br><br> | ??:http://www.share.minike.top/Article/details/79536758118.shtml

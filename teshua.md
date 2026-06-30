@@ -1,56 +1,58 @@
-# 时令“漂亮饭”将生活仪式感拉满 这份春日鲜花入馔指南请收好
+# 网友助台湾演员大陆寻根 国台办：两岸同胞同根同源 血脉相连
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-视频：山东菏泽：槐花飘香春滋味 特色槐花宴受欢迎来源：央视网 央视网消息：眼下，各地的槐花陆续盛开，清甜淡香的槐花也是人们舌尖上的新宠。在山东菏泽，人们将槐花作为主打食材，打造舌尖美味，精心推出系列槐花菜品。 在菏泽市定陶区的一家餐饮店，推出了十余种槐花菜品，既有炒鸡蛋、蒸窝窝等传统吃法，又有煎槐花饼、槐花煎包等创新美食，既保留了槐花的天然清香，又丰富了口感层次。菏泽市定陶区某
+中新网6月24日电 6月24日，国务院台办举行例行新闻发布会。有记者问：近日，有位台湾青年演员在短视频平台发布一则寻根视频，手持家族族谱向大陆网友求助，表示“想回去寻找一下我的根在哪”。两岸网友、当地民众热心帮助，短短不到两天就帮他找到位于广东汕头的祖籍地。端午节期间，他回到汕头宗祠祭祖。有评论称，“今天连上了，就不能再断开”。对此有何评论？发言人张晗表示，这位台湾演员到汕头的
 
 ## 正文
 
-视频：山东菏泽：槐花飘香春滋味 特色槐花宴受欢迎来源：央视网 央视网消息：眼下，各地的槐花陆续盛开，清甜淡香的槐花也是人们舌尖上的新宠。
+中新网6月24日电 6月24日，国务院台办举行例行新闻发布会。
 
-在山东菏泽，人们将槐花作为主打食材，打造舌尖美味，精心推出系列槐花菜品。
+有记者问：近日，有位台湾青年演员在短视频平台发布一则寻根视频，手持家族族谱向大陆网友求助，表示“想回去寻找一下我的根在哪”。
 
-在菏泽市定陶区的一家餐饮店，推出了十余种槐花菜品，既有炒鸡蛋、蒸窝窝等传统吃法，又有煎槐花饼、槐花煎包等创新美食，既保留了槐花的天然清香，又丰富了口感层次。
+两岸网友、当地民众热心帮助，短短不到两天就帮他找到位于广东汕头的祖籍地。
 
-菏泽市定陶区某餐饮店厨师长杜景称，由于顾客对于槐花宴的喜爱程度是越来越高，不少人都是特意赶来尝鲜。
+端午节期间，他回到汕头宗祠祭祖。
 
-今年在保留经典菜品的基础上，又创新出了不少新的做法，像槐花麦饭、槐花煎饺、槐花煎包等，丰富市民的多种选择。
+有评论称，“今天连上了，就不能再断开”。
 
-凉拌槐花清爽解腻，槐花汤色泽清亮，入口鲜爽温润，还有槐花饺子、槐花蒸菜等都让食客们赞不绝口。
+对此有何评论？
 
-不仅在饭店里，在菏泽市成武县一处超市的生鲜区，新鲜槐花也被摆放在显眼位置，吸引了不少顾客驻足挑选。
+发言人张晗表示，这位台湾演员到汕头的寻根视频一经发布，迅速在海峡两岸受到关注，收获满屏“欢迎回家”的暖心留言。
 
-超市熟食区里，工作人员现场制作的槐花饼、蒸槐花刚出锅，香气四溢，引得顾客排队品尝。
+一纸泛黄族谱跨海连线，千里寻根之梦终得圆满。
 
 ## 相关推荐
 
-- 2026-06-30 09:08 - 四川凉山落石砸毁车辆 3人遇难<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md
-- 2026-06-30 09:15 - 黄晓明夸昆凌引杨颖对比<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md
-- 2026-06-30 09:08 - 女子发现孩子非现任亲生状告前任索赔<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md
-- 2026-06-30 09:14 - 第一次对自信的力量有了实感<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md
-- 2026-06-30 09:17 - 日本将帅赛后采访纷纷哽咽落泪<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md
-- 2026-06-30 09:08 - 起风了<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md
-- 2026-06-30 09:18 - 考入南大计算机，复读考清北值吗？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md
-- 2026-06-30 09:19 - 沉睡花园<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md
-- 2026-06-30 09:12 - 极限挑战第一季<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md
-- 2026-06-30 08:58 - 奔跑吧·黄河篇第二季<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md
+- 2026-06-30 09:02 - 《共患难》<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md
+- 2026-06-30 09:10 - 古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md
+- 2026-06-30 09:08 - 房价什么时候能涨<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md
+- 2026-06-30 09:00 - “错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md
+- 2026-06-30 09:23 - 人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md
+- 2026-06-30 09:22 - 法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md
+- 2026-06-30 09:15 - 日本队5进世界杯淘汰赛0胜<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md
+- 2026-06-30 09:06 - 如何评价杨紫白玉兰获奖<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md
+- 2026-06-30 09:04 - 青春环游记第三季<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md
+- 2026-06-30 09:08 - 藤森庆子赢得秘鲁总统选举<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md
+- 2026-06-30 09:08 - 一生一世<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md
+- 2026-06-30 08:54 - 2021江苏卫视跨年演唱会<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:00 - 如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/783675072.shtml
-- 2026-06-30 09:20 - 锐评T1战胜KC<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/64633581537.shtml
-- 2026-06-30 09:06 - 欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/422516.shtml
-- 2026-06-30 09:17 - 中国代表在联合国点名日本所犯罪行<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/154510843.shtml
-- 2026-06-30 08:57 - 这些7月新规影响你我<br><br> | ??:https://www.share.kurohicncr.top/Article/details/0659952592.shtml
-- 2026-06-30 08:57 - 孙颖莎王楚钦晋级8强<br><br> | ??:https://www.share.kurohicncr.top/Article/details/69715013.shtml
-- 2026-06-30 09:08 - 我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......<br><br> | ??:http://www.share.kurohicncr.top/Article/details/636929.shtml
-- 2026-06-30 08:59 - 我把队友的7连跪剪成了艺术<br><br> | ??:https://www.share.kurohicncr.top/Article/details/09005.shtml
-- 2026-06-30 09:07 - 梅德韦杰夫列举俄罗斯面临的七大挑战<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/99119.shtml
-- 2026-06-30 09:04 - 小娘惹<br><br> | ??:http://www.share.minike.top/Article/details/656570830049.shtml
-- 2026-06-30 09:14 - 网红不能困在无底线逐利里<br><br> | ??:http://www.share.kurohicncr.top/Article/details/522800.shtml
-- 2026-06-30 08:57 - 披荆斩棘的哥哥<br><br> | ??:http://www.share.kurohicncr.top/Article/details/497958459.shtml
-- 2026-06-30 09:00 - 现在叛逆期的孩子最怕的是什么？<br><br> | ??:https://www.blog.minike.top/Article/details/808279681093.shtml
-- 2026-06-30 09:02 - 藤森庆子赢得秘鲁总统选举<br><br> | ??:https://www.share.minike.top/Article/details/079480785.shtml
-- 2026-06-30 08:59 - 一见倾心<br><br> | ??:http://www.blog.minike.top/Article/details/8830019923.shtml
+- 2026-06-30 09:10 - 第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！<br><br> | ??:http://www.share.kurohicncr.top/Article/details/456906895020.shtml
+- 2026-06-30 09:03 - 极端热浪席卷欧洲多国，热一热百姓让领导先凉快？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/30060843635.shtml
+- 2026-06-30 09:05 - 德国队连续三届世界杯无缘16强<br><br> | ??:https://www.blog.minike.top/Article/details/54603959.shtml
+- 2026-06-30 09:09 - MSI应援曲 如果季中成回忆<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/685505888308.shtml
+- 2026-06-30 08:54 - 赵丽颖风吹半夏含金量还在上升<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/69899969.shtml
+- 2026-06-30 09:10 - 男子诋毁袁隆平科研成果被刑拘<br><br> | ??:http://www.blog.minike.top/Article/details/558091261.shtml
+- 2026-06-30 09:12 - 乔家的儿女<br><br> | ??:http://www.blog.minike.top/Article/details/6355421.shtml
+- 2026-06-30 09:06 - 巴拉圭门将<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/076291162.shtml
+- 2026-06-30 09:08 - 4种红薯的满分吃法！有手就会…但能让你大为震撼！<br><br> | ??:https://www.blog.minike.top/Article/details/345389757.shtml
+- 2026-06-30 09:11 - 日本主帅赛后回应淘汰出局<br><br> | ??:https://www.blog.minike.top/Article/details/19463718516.shtml
+- 2026-06-30 08:57 - 金刚川<br><br> | ??:http://www.share.kurohicncr.top/Article/details/923244525194.shtml
+- 2026-06-30 09:09 - 杨紫肖战余生请多指教拍立得<br><br> | ??:http://www.share.minike.top/Article/details/81696164.shtml
+- 2026-06-30 09:11 - 德国巴拉圭 折磨<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/240608720.shtml
+- 2026-06-30 09:14 - 周生如故<br><br> | ??:https://www.share.minike.top/Article/details/259347784.shtml
+- 2026-06-30 09:00 - 四川宜宾地震瞬间鱼群乱跳<br><br> | ??:http://www.share.minike.top/Article/details/8861736.shtml

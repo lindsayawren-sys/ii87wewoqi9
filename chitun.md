@@ -1,60 +1,58 @@
-# 阿尔斯通发布盈利预警 股价大跌26%
+# “买车要趁早，涨价是大概率的事” 岚图董事长卢放：有些品牌发布会，把行业风气都破坏了
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 首席执行官马丁・西翁表示公司将立即采取行动稳定业绩 法国列车制造商阿尔斯通于周五发布盈利预警并撤销中期业绩预测，公司股价随即暴跌。 欧洲早盘交易中，阿尔斯通股价大跌26%，报每股 16.98 欧元，或将创下 2023 年 10 月以来最大单日跌幅。 该公司于周四晚间宣布，撤销此前设定的三年累计自由现金流 15 亿欧元（合 17.7 亿美元）
+专题：2026第十七届夏季达沃斯论坛 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！文 | 新浪财经 刘丽丽 在世界经济论坛第十七届新领军者年会期间，新浪财经对话岚图汽车董事长、党委书记卢放。 对于汽车圈“不服就直播”的风气，卢放认为，这是好现象。部分汽车品牌合成视频、夸大宣传是欺骗消费者。针对车市价格战，他提醒，在原材料普涨背景下，汽车涨价是大概率事
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 首席执行官马丁・西翁表示公司将立即采取行动稳定业绩 法国列车制造商阿尔斯通于周五发布盈利预警并撤销中期业绩预测，公司股价随即暴跌。
+专题：2026第十七届夏季达沃斯论坛 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-欧洲早盘交易中，阿尔斯通股价大跌26%，报每股 16.98 欧元，或将创下 2023 年 10 月以来最大单日跌幅。
+文 | 新浪财经 刘丽丽 在世界经济论坛第十七届新领军者年会期间，新浪财经对话岚图汽车董事长、党委书记卢放。
 
-该公司于周四晚间宣布，撤销此前设定的三年累计自由现金流 15 亿欧元（合 17.7 亿美元）的指引，同时取消截至 2027 财年调整后息税前利润率 8% 至 10% 的目标。
+对于汽车圈“不服就直播”的风气，卢放认为，这是好现象。
 
-在此之前，公司曾发布本财年初步展望，目前预计有机销售额增长约 5%，调整后息税前利润率约 6.5%，且实现自由现金流为正。
+部分汽车品牌合成视频、夸大宣传是欺骗消费者。
 
-首席执行官马丁・西翁表示，在截至 3 月 31 日的财年中，公司盈利能力未达预期。
+针对车市价格战，他提醒，在原材料普涨背景下，汽车涨价是大概率事件，建议消费者买车趁早。
 
-他补充称，部分大型轨道交通车辆项目进度慢于预期，将对短期利润率和现金流构成压力。
+同时他表示，现在有些品牌的发布会，“虚假夸大博眼球搞噱头，把行业风气搞坏了”。
 
-2026 财年，集团调整后息税前利润率为 6%，低于上一财年的 6.4%；自由现金流从 5.02 亿欧元降至 3.3 亿欧元。
+“有些品牌发布会虚假夸大，风气都搞坏了” 近日有车企董事长表示，汽车行业进入了一个“不服就直播”的状态，对此卢放表示，这是个好现象。
 
-本财年新增订单有机增长 42%，达 276 亿欧元；销售额有机增长 7%，达 192 亿欧元。
+卢放直言，过去行业里一些产品宣传里存在合成的内容，一些企业会过度宣传、夸张宣传，甚至用AI合成视频或者剪辑来完成，“那是虚假宣传，实际上是对消费者的欺骗，不诚实不真诚。
 
 ## 相关推荐
 
-- 2026-06-30 09:01 - 网友写差评被店家“挂”门口避雷<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md
-- 2026-06-30 09:00 - 杨某诋毁袁隆平院士科研成果被刑拘<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md
-- 2026-06-30 09:03 - 德国进球被吹<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md
-- 2026-06-30 09:07 - 毕业以后，你最怀念的大学记忆是什么？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md
-- 2026-06-30 09:03 - 天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md
-- 2026-06-30 09:15 - 青春环游记第三季<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md
-- 2026-06-30 09:11 - 网瘾賊大的阿嬷<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md
-- 2026-06-30 09:12 - 《我落泪情绪零碎》<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md
-- 2026-06-30 08:59 - 教育部披露：高考生篡改7名同学志愿<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md
-- 2026-06-30 09:13 - 韩国球迷凌晨4点接机怒骂主教练<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md
-- 2026-06-30 09:07 - 《虎吹最难绷の一集》<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md
-- 2026-06-30 09:16 - 失明的我带老妈去了趟“火星”<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md
-- 2026-06-30 09:19 - 日本主帅：未能夺冠深感抱歉<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md
-- 2026-06-30 09:07 - 热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md
+- 2026-06-30 09:15 - 81岁老人被男子买光菜回家车祸去世<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md
+- 2026-06-30 09:03 - 四川凉山落石砸毁车辆 3人遇难<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md
+- 2026-06-30 08:55 - 曝詹姆斯即将与勇士会面<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md
+- 2026-06-30 09:23 - 王楚钦孙颖莎vs皮斯特耶库库洛娃<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md
+- 2026-06-30 09:05 - 诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md
+- 2026-06-30 09:21 - 你这一辈子有没有为进山姆拼过命？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md
+- 2026-06-30 09:21 - 世界杯：荷兰vs摩洛哥<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md
+- 2026-06-30 09:14 - 大蒜晒外面被路过女子连盆端走<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md
+- 2026-06-30 09:23 - 美团、淘宝闪购、京东外卖达成共识<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md
+- 2026-06-30 08:55 - 谢依霖说杨幂是聚会第一把张罗手<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md
+- 2026-06-30 09:15 - 被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md
+- 2026-06-30 09:10 - 勇士续约波尔津吉斯<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:09 - 郑钦文温网首轮出局<br><br> | ??:https://www.share.minike.top/Article/details/920918809.shtml
-- 2026-06-30 08:59 - 披荆斩棘的哥哥<br><br> | ??:http://www.blog.minike.top/Article/details/1746165.shtml
-- 2026-06-30 09:14 - 我吃遍了西安最強的街頭小吃，第九家強得離譜！<br><br> | ??:https://www.share.kurohicncr.top/Article/details/43177712481.shtml
-- 2026-06-30 09:14 - 亚洲球队全部告别世界杯<br><br> | ??:http://www.share.minike.top/Article/details/971459429536.shtml
-- 2026-06-30 09:13 - 女子健身不当 居然“脑子漏水”了<br><br> | ??:https://www.blog.minike.top/Article/details/99350049165.shtml
-- 2026-06-30 08:58 - 我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......<br><br> | ??:http://www.share.minike.top/Article/details/364434.shtml
-- 2026-06-30 08:57 - 斗破苍穹<br><br> | ??:http://www.share.minike.top/Article/details/8675395.shtml
-- 2026-06-30 09:12 - 一切民族英雄都是中华民族的脊梁<br><br> | ??:https://www.blog.minike.top/Article/details/88967.shtml
-- 2026-06-30 09:08 - 乔家的儿女<br><br> | ??:https://www.share.minike.top/Article/details/98764968.shtml
-- 2026-06-30 09:00 - 未来的飞机可能会用电吗？<br><br> | ??:https://www.blog.minike.top/Article/details/5602571.shtml
-- 2026-06-30 09:02 - 我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎<br><br> | ??:http://www.blog.minike.top/Article/details/0805995.shtml
-- 2026-06-30 09:02 - 可以细成这样？1600万预算，颠覆我认知的改造！<br><br> | ??:https://www.share.kurohicncr.top/Article/details/88632762603.shtml
-- 2026-06-30 09:04 - 把毒品藏在哪里，60秒内不会被发现？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/428988.shtml
-- 2026-06-30 09:17 - 欧洲装一台空调有多难<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/469397840298.shtml
-- 2026-06-30 09:18 - 逃狱兄弟<br><br> | ??:https://www.blog.minike.top/Article/details/30025296069.shtml
+- 2026-06-30 09:10 - iPhone18e曝光<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/92644630.shtml
+- 2026-06-30 09:18 - 2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/483360351311.shtml
+- 2026-06-30 09:20 - 德国 传控<br><br> | ??:https://www.blog.minike.top/Article/details/802031.shtml
+- 2026-06-30 08:58 - 挪威国家队紧急从本土订购大批海鲜<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/45687.shtml
+- 2026-06-30 09:13 - 吴启华卖肖像权拍AI电影<br><br> | ??:https://www.share.minike.top/Article/details/356417378.shtml
+- 2026-06-30 09:03 - 吴启华卖肖像权拍AI电影<br><br> | ??:https://www.share.kurohicncr.top/Article/details/0822057726.shtml
+- 2026-06-30 09:07 - 杨紫学位证上就是杨紫<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/335687.shtml
+- 2026-06-30 09:02 - 上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/388837218122.shtml
+- 2026-06-30 09:10 - 董路：谁赢谁是“正路子”<br><br> | ??:https://www.blog.minike.top/Article/details/06275373858.shtml
+- 2026-06-30 08:57 - 日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？<br><br> | ??:http://www.blog.minike.top/Article/details/0612073877.shtml
+- 2026-06-30 08:56 - 佐野海舟远射破门<br><br> | ??:http://www.share.kurohicncr.top/Article/details/9468924214.shtml
+- 2026-06-30 09:03 - 莫兰特转投开拓者效力<br><br> | ??:https://www.share.minike.top/Article/details/90616916.shtml
+- 2026-06-30 09:04 - 已经看完《三国第一部：争洛阳》的人，如何评价这部电影？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/906616146917.shtml
+- 2026-06-30 08:59 - 恋与深空<br><br> | ??:https://www.share.kurohicncr.top/Article/details/8313641587.shtml
+- 2026-06-30 09:13 - 《共患难》<br><br> | ??:https://www.share.kurohicncr.top/Article/details/61178.shtml

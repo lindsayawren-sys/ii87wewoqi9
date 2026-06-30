@@ -1,57 +1,59 @@
-# 中东局势升级推升避险需求，美元兑日元逼近159关口维持高位震荡
+# 嘉利高：印度2026/27榨季不太可能恢复食糖出口
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-汇通财经APP讯——美元兑日元在周一亚洲时段维持强势运行，汇价交投于159.10附近，整体表现出高位震荡特征。在当前市场环境下，避险情绪与政策预期成为主导汇率波动的核心因素。 从背景来看，中东局势持续升级对全球金融市场产生显著影响。伊朗方面否认参与新一轮与美国的谈判，使市场对冲突缓和的预期迅速降温。同时，美国方面采取强硬行动，加剧地区紧张局势。这一系列事件提升了市场的不确定性，
+来源：泛糖科技 核心洞察 印度政府已暂停2025/26年度剩余时间的食糖出口，此举源于食糖产量低于预期及2026年厄尔尼诺现象的预报。若食糖产量再迎一个歉收年，政府可能将面临在制糖与制乙醇之间做出抉择。 综合来看，印度禁止食糖出口是产量危机+季风风险+能源战略+通胀防控四重因素叠加的结果。即便2026/27年度禁令可能形式上解除，只要国内供需紧平衡格局不变，实际出口量也将极为有
 
 ## 正文
 
-汇通财经APP讯——美元兑日元在周一亚洲时段维持强势运行，汇价交投于159.10附近，整体表现出高位震荡特征。
+来源：泛糖科技 核心洞察 印度政府已暂停2025/26年度剩余时间的食糖出口，此举源于食糖产量低于预期及2026年厄尔尼诺现象的预报。
 
-在当前市场环境下，避险情绪与政策预期成为主导汇率波动的核心因素。
+若食糖产量再迎一个歉收年，政府可能将面临在制糖与制乙醇之间做出抉择。
 
-从背景来看，中东局势持续升级对全球金融市场产生显著影响。
+综合来看，印度禁止食糖出口是产量危机+季风风险+能源战略+通胀防控四重因素叠加的结果。
 
-伊朗方面否认参与新一轮与美国的谈判，使市场对冲突缓和的预期迅速降温。
+即便2026/27年度禁令可能形式上解除，只要国内供需紧平衡格局不变，实际出口量也将极为有限。
 
-同时，美国方面采取强硬行动，加剧地区紧张局势。
+印度的优先顺序已然明确：保国内供给、保乙醇产能、控食品通胀——食糖出口，暂时靠后。
 
-这一系列事件提升了市场的不确定性，促使资金流向美元等避险资产，从而对美元兑日元形成支撑。
+近10个榨季印度糖产量及消费量 印度政府暂停食糖出口 上周，印度政府宣布将暂停本榨季（即截至2026年9月30日）剩余时间的食糖出口。
 
-进一步来看，霍尔木兹海峡局势的不稳定加剧了全球能源供应风险。
+此决定是在2025/26榨季甘蔗压榨迅速结束之后做出的，该榨季马邦和卡邦的甘蔗因过早开花而受损，同时大量甘蔗被转用于生产粗糖。
 
-该通道承担全球约20%的海运原油运输，一旦受阻，将推升油价并强化通胀预期。
+政府做出此决定背后有诸多因素。
 
 ## 相关推荐
 
-- 2026-06-30 08:59 - 中国新一轮出口管制直指日本命脉<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md
-- 2026-06-30 08:57 - 第一次对自信的力量有了实感<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md
-- 2026-06-30 09:06 - 我设置了全宇宙最安全的密码<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md
-- 2026-06-30 09:01 - 超神人辉夜姬 第二集<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md
-- 2026-06-30 09:17 - 第一次对自信的力量有了实感<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md
-- 2026-06-30 09:16 - 重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md
-- 2026-06-30 09:00 - 当我知道豆包有后台审核人员<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md
-- 2026-06-30 09:09 - 如何改变自己太负责任的性格?<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md
-- 2026-06-30 09:23 - 左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md
-- 2026-06-30 09:23 - 逃狱兄弟<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md
-- 2026-06-30 09:12 - 森保一致歉：世界第一目标没能实现<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md
+- 2026-06-30 09:10 - 国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md
+- 2026-06-30 09:16 - 马耳他著名拱门坍塌致中国男子身亡<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md
+- 2026-06-30 09:07 - 男子诋毁袁隆平科研成果被刑拘<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md
+- 2026-06-30 08:59 - 一切民族英雄都是中华民族的脊梁<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md
+- 2026-06-30 08:58 - 巴西绝杀日本<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md
+- 2026-06-30 08:58 - 日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md
+- 2026-06-30 08:57 - 德国队世界杯点球大战首败<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md
+- 2026-06-30 09:08 - 杨紫大银幕成绩单如何<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md
+- 2026-06-30 09:01 - 美媒：美军第五舰队司令部已无法使用<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md
+- 2026-06-30 09:03 - 起风了<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md
+- 2026-06-30 08:59 - 日本反击率先破门<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md
+- 2026-06-30 08:58 - 为什么很多企业推行“扁平化管理”后，效率反而下降了？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md
+- 2026-06-30 09:02 - 这一刀 会很帅<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:14 - 电子游戏中有哪些关于武器的“刻板印象”？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/451937129893.shtml
-- 2026-06-30 09:00 - 日本16强魔咒<br><br> | ??:http://www.share.kurohicncr.top/Article/details/68991.shtml
-- 2026-06-30 09:08 - 我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/063883076.shtml
-- 2026-06-30 09:03 - 建议不要突然完全停止喝咖啡<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/230554046.shtml
-- 2026-06-30 08:56 - 天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】<br><br> | ??:https://www.share.kurohicncr.top/Article/details/3771945.shtml
-- 2026-06-30 09:09 - 恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？<br><br> | ??:https://www.share.minike.top/Article/details/96443.shtml
-- 2026-06-30 08:54 - 男子在京东买到“同仁堂”假药<br><br> | ??:http://www.blog.minike.top/Article/details/537765343305.shtml
-- 2026-06-30 09:01 - GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/649323.shtml
-- 2026-06-30 09:10 - 卖菜老人获博主帮助后遇车祸去世<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/583213350.shtml
-- 2026-06-30 09:02 - 马杜罗账号在纽约发文致谢各国援助<br><br> | ??:http://www.blog.minike.top/Article/details/831728.shtml
-- 2026-06-30 08:55 - 存储芯片龙头提示风险<br><br> | ??:http://www.blog.minike.top/Article/details/11040.shtml
-- 2026-06-30 09:03 - 千与千寻<br><br> | ??:http://www.share.minike.top/Article/details/798812650028.shtml
-- 2026-06-30 08:56 - 第一次对自信的力量有了实感<br><br> | ??:https://www.share.minike.top/Article/details/4003629.shtml
-- 2026-06-30 09:13 - 莫兰特转投开拓者效力<br><br> | ??:https://www.share.kurohicncr.top/Article/details/32580.shtml
-- 2026-06-30 09:12 - HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？<br><br> | ??:http://www.blog.minike.top/Article/details/9477257019.shtml
+- 2026-06-30 08:56 - GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？<br><br> | ??:http://www.blog.minike.top/Article/details/435170.shtml
+- 2026-06-30 09:06 - 如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/1243801.shtml
+- 2026-06-30 09:09 - 穆祉丞回应获年度人气艺人<br><br> | ??:https://www.blog.minike.top/Article/details/64731405.shtml
+- 2026-06-30 09:09 - 日本队主帅道歉<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/30520681.shtml
+- 2026-06-30 09:19 - 《虎吹最难绷の一集》<br><br> | ??:http://www.share.minike.top/Article/details/4920685.shtml
+- 2026-06-30 08:56 - FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/788828758.shtml
+- 2026-06-30 09:13 - 妻子撞死家暴丈夫案二审案情反转<br><br> | ??:http://www.blog.minike.top/Article/details/61590035.shtml
+- 2026-06-30 09:00 - 内马尔未登场 安切洛蒂赛后回应<br><br> | ??:https://www.blog.minike.top/Article/details/7065017.shtml
+- 2026-06-30 09:19 - 7月1日起 一批新规即将落地<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/67061321311.shtml
+- 2026-06-30 08:59 - 名记：灰熊将莫兰特交易至开拓者<br><br> | ??:http://www.share.minike.top/Article/details/77864211.shtml
+- 2026-06-30 09:01 - 日本将帅赛后采访纷纷哽咽落泪<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/34831.shtml
+- 2026-06-30 09:05 - 女子健身不当 居然“脑子漏水”了<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/3560955.shtml
+- 2026-06-30 09:08 - 男子中医院拔火罐致浅2度烧伤<br><br> | ??:http://www.blog.minike.top/Article/details/078363977.shtml
+- 2026-06-30 08:55 - 巴拉圭门将<br><br> | ??:http://www.share.minike.top/Article/details/0983642717.shtml
+- 2026-06-30 09:04 - 法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/20853729.shtml

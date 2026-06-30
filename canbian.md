@@ -1,61 +1,58 @@
-# 瑞银研究：资本新规或拖累瑞士经济
+# 海南“十五五”期间将采取四大举措做强林业特色产业
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-瑞银委托的一项研究显示，瑞士政府为瑞银提议的资本金要求可能对该国经济造成持续拖累，双方围绕银行业监管的角力正在升级。 在2023年瑞士信贷倒闭并由瑞银在国家主导的救助中接管后，瑞士正在收紧银行规则以增强金融稳定。 咨询公司BAK Economics在报告中称，政府的一项提案要求这家银行业巨头用普通股一级资本（CET1）全额支持其外国子公司，这可能在10年内使瑞士的年度国内生产总
+中新网海口6月25日电 (记者 符宇群)记者25日从海南省新闻办公室举办的新闻发布会获悉，“十五五”期间，海南省林业产业将紧紧围绕“向绿图强”“向种图强”， 持续深化林业改革，优化林业产业结构，不断扩大优质生态产品供给，着力提升林业科技水平和科技成果转化率，推进海南林业高质量发展。海南省林业局副局长、新闻发言人高述超当日在发布会上介绍了海南自贸港建设背景下“十五五”期间做大做强
 
 ## 正文
 
-瑞银委托的一项研究显示，瑞士政府为瑞银提议的资本金要求可能对该国经济造成持续拖累，双方围绕银行业监管的角力正在升级。
+中新网海口6月25日电 (记者 符宇群)记者25日从海南省新闻办公室举办的新闻发布会获悉，“十五五”期间，海南省林业产业将紧紧围绕“向绿图强”“向种图强”， 持续深化林业改革，优化林业产业结构，不断扩大优质生态产品供给，着力提升林业科技水平和科技成果转化率，推进海南林业高质量发展。
 
-在2023年瑞士信贷倒闭并由瑞银在国家主导的救助中接管后，瑞士正在收紧银行规则以增强金融稳定。
+海南省林业局副局长、新闻发言人高述超当日在发布会上介绍了海南自贸港建设背景下“十五五”期间做大做强林业特色产业的四项举措。
 
-咨询公司BAK Economics在报告中称，政府的一项提案要求这家银行业巨头用普通股一级资本（CET1）全额支持其外国子公司，这可能在10年内使瑞士的年度国内生产总值（GDP）减少1.3%至3.9%。
+——聚焦增量扩产，壮大热带特色林业种植规模。
 
-研究作者表示，瑞银确定了研究主题，而研究由BAK Economics独立进行，基于监管驱动的信贷收缩情景以及对实体经济连锁反应的模拟。
+海南将优化树种良种选育培育技术，打造规模化、标准化林业种植基地。
 
-根据BAK的模拟，这些影响会随时间累积。
+计划到2030年，椰子、沉香、黄花梨种植面积分别达到70万亩、20万亩、16万亩以上，花卉苗木全产业链面积突破22万亩，全省林下经济发展利用总面积达500万亩。
 
-根据传导渠道的不同，预计十年内累计GDP损失在110亿至340亿瑞士法郎之间。
+——聚焦提质增效，升级林产品精深加工水平。
 
-研究指出，与周期性的利率冲击不同，监管驱动的借贷成本上升在本质上是结构性的，无法通过货币政策抵消。
+建立健全海南沉香等林产品分级标准体系，在海口、儋州、澄迈、屯昌、琼中等地布局建设特色林业精深加工基地与产业园区，推动特色木竹等资源集聚化、集约化加工利用。
 
-分析仅聚焦于海外参与机构的CET1全额资本支持——这是唯一会单独影响瑞银的组成部分。
+加大多功能高附加值衍生产品研发，拓展沉香、黄花梨、花卉在药用、香用、茶用领域应用，加强“以竹代塑”产品和技术的推广，培育竹藤产业。
 
 ## 相关推荐
 
-- 2026-06-30 08:57 - 亚洲球队全部告别世界杯<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md
-- 2026-06-30 09:06 - 一见倾心<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md
-- 2026-06-30 09:05 - 美媒：美军第五舰队司令部已无法使用<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md
-- 2026-06-30 08:54 - 巴拉圭先进球了<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md
-- 2026-06-30 09:01 - 宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md
-- 2026-06-30 09:20 - 想问一下学日语的大佬，自学日语要怎么学？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md
-- 2026-06-30 09:10 - 世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md
-- 2026-06-30 09:17 - Melo向柳智敏张元英道歉<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md
-- 2026-06-30 09:10 - 球评巴西绝杀逆转日本<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md
-- 2026-06-30 08:55 - iPhoneUltra黑色机模<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md
-- 2026-06-30 09:11 - 歌剧老师锐评歌手第6期<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md
-- 2026-06-30 09:15 - 董路：谁赢谁是“正路子”<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md
-- 2026-06-30 09:03 - 苗族银饰<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md
-- 2026-06-30 09:03 - 董卿父亲在报纸上发文悼念亡妻<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md
-- 2026-06-30 09:07 - Melo向柳智敏张元英道歉<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md
+- 2026-06-30 08:55 - 日本球员说被绝杀非常不甘心<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md
+- 2026-06-30 08:56 - 我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md
+- 2026-06-30 09:07 - 曝娱乐圈大部分明星失业<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md
+- 2026-06-30 08:57 - 国务院：探索延长义务教育年限<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md
+- 2026-06-30 09:00 - 荷兰vs摩洛哥<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md
+- 2026-06-30 09:18 - 韩国球迷凌晨4点接机怒骂主教练<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md
+- 2026-06-30 09:10 - 如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md
+- 2026-06-30 08:55 - 内马尔安慰日本球员<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md
+- 2026-06-30 08:54 - 奔跑吧·黄河篇第二季<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md
+- 2026-06-30 09:18 - 已经看完《三国第一部：争洛阳》的人，如何评价这部电影？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md
+- 2026-06-30 09:13 - 教育部披露：高考生篡改7名同学志愿<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md
+- 2026-06-30 08:59 - 歌剧老师锐评歌手第6期<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:13 - 为什么会有「念旧」的心理？<br><br> | ??:https://www.share.minike.top/Article/details/480211617.shtml
-- 2026-06-30 09:23 - 日本球迷被强行披上巴西国旗<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/82773.shtml
-- 2026-06-30 09:09 - 网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？<br><br> | ??:http://www.blog.minike.top/Article/details/60613000660.shtml
-- 2026-06-30 08:59 - 巴西绝杀<br><br> | ??:http://www.share.kurohicncr.top/Article/details/03593.shtml
-- 2026-06-30 09:19 - 如何改变自己太负责任的性格?<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/63278.shtml
-- 2026-06-30 09:15 - 峡谷事故团队组队时有人提醒会下雨<br><br> | ??:http://www.share.kurohicncr.top/Article/details/1265788.shtml
-- 2026-06-30 09:01 - 被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】<br><br> | ??:https://www.blog.minike.top/Article/details/72298930.shtml
-- 2026-06-30 09:06 - 日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/16350038.shtml
-- 2026-06-30 09:07 - 教育部披露：高考生篡改7名同学志愿<br><br> | ??:http://www.share.minike.top/Article/details/777457.shtml
-- 2026-06-30 09:08 - 老外对中国cosplay竟这样评价…<br><br> | ??:https://www.blog.minike.top/Article/details/66578993.shtml
-- 2026-06-30 09:18 - 蔚来回应高压水枪洗车掉漆<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/32759794312.shtml
-- 2026-06-30 08:56 - 德国队回应爆冷淘汰<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/28402603.shtml
-- 2026-06-30 09:12 - 古代人对纳妾的态度是什么样的？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/48517091.shtml
-- 2026-06-30 08:57 - 金牌调解<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/356233360777.shtml
-- 2026-06-30 08:55 - 豆包收费了，你还会用吗？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/02565.shtml
+- 2026-06-30 08:59 - 青春环游记第三季<br><br> | ??:http://www.share.minike.top/Article/details/293340201.shtml
+- 2026-06-30 09:20 - 董卿母亲癌症去世<br><br> | ??:http://www.share.kurohicncr.top/Article/details/70299.shtml
+- 2026-06-30 09:07 - 杨某诋毁袁隆平院士科研成果被刑拘<br><br> | ??:http://www.share.kurohicncr.top/Article/details/859311617437.shtml
+- 2026-06-30 09:07 - 「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/859637.shtml
+- 2026-06-30 09:23 - 千香<br><br> | ??:https://www.blog.minike.top/Article/details/091382.shtml
+- 2026-06-30 09:21 - 补时绝杀 巴西2-1淘汰日本<br><br> | ??:https://www.share.kurohicncr.top/Article/details/08301715.shtml
+- 2026-06-30 09:22 - 存储芯片龙头提示风险<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/932009112375.shtml
+- 2026-06-30 08:58 - 追梦拒绝2770万美元球员选项<br><br> | ??:https://www.blog.minike.top/Article/details/392541330.shtml
+- 2026-06-30 09:11 - 国务院：探索延长义务教育年限<br><br> | ??:http://www.share.minike.top/Article/details/29999951.shtml
+- 2026-06-30 09:16 - 媒体：手机测评该挤挤水分了<br><br> | ??:https://www.share.kurohicncr.top/Article/details/70880607.shtml
+- 2026-06-30 09:18 - 萨内 看笑了<br><br> | ??:https://www.blog.minike.top/Article/details/14086702230.shtml
+- 2026-06-30 09:02 - 点球大战 残酷<br><br> | ??:http://www.share.minike.top/Article/details/20677825323.shtml
+- 2026-06-30 09:06 - 欧洲民众抢购空调降温<br><br> | ??:https://www.blog.minike.top/Article/details/00627316719.shtml
+- 2026-06-30 09:12 - 田中碧失误<br><br> | ??:http://www.share.minike.top/Article/details/52797195437.shtml
+- 2026-06-30 08:55 - 全新问界M9现身美国街头<br><br> | ??:http://www.share.kurohicncr.top/Article/details/367349432565.shtml

@@ -1,58 +1,56 @@
-# 近岸蛋白深陷困境：疫情红利褪去后，业绩股价“双杀”，三大隐忧浮出水面
+# 上交所发出公开倡议！
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-昔日备受追捧的新冠概念股近岸蛋白，如今正经历业绩与估值的双重煎熬。公司日前披露的2025年业绩快报显示，去年归母净利润亏损7618万元，同比增亏40%，连续第二年陷入亏损。与此同时，公司股价较发行价破发幅度高达六成，上市三年有余，几乎全程“潜水”。 从业绩巅峰到深度亏损，近岸蛋白的坠落并非单纯的外部环境变化使然。在疫情红利消退的表象之下，公司自身在战略转型、核心竞争力及资金使用
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：金融时报客户端 6月23日，上交所向全体沪市公司发出“提质增效重回报”2.0专项行动的公开倡议，这也是自2024年初，上交所首次发出公开倡议以来的“2.0”升级版，标志着专项行动进入新阶段。 《金融时报》记者关注到，在总结前期实践经验的基础上，本次发布
 
 ## 正文
 
-昔日备受追捧的新冠概念股近岸蛋白，如今正经历业绩与估值的双重煎熬。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-公司日前披露的2025年业绩快报显示，去年归母净利润亏损7618万元，同比增亏40%，连续第二年陷入亏损。
+来源：金融时报客户端 6月23日，上交所向全体沪市公司发出“提质增效重回报”2.0专项行动的公开倡议，这也是自2024年初，上交所首次发出公开倡议以来的“2.0”升级版，标志着专项行动进入新阶段。
 
-与此同时，公司股价较发行价破发幅度高达六成，上市三年有余，几乎全程“潜水”。
+《金融时报》记者关注到，在总结前期实践经验的基础上，本次发布的“2.0”升级版进一步聚焦经营发展、公司治理、信息披露、投资者回报、社会责任五大方面，增设了相关明确、可量化的参考指标，提出多项细化披露建议，并通过“示范文本”的形式“手把手”引导公司更好制定和披露方案，同时也便于投资者获取并理解公司的经营现状与未来重点。
 
-从业绩巅峰到深度亏损，近岸蛋白的坠落并非单纯的外部环境变化使然。
+在参与对象方面，上交所鼓励全体沪市公司参与“2.0”版本的专项行动，并建议相关指数成份股公司及连续多年信息披露为A类的公司积极引领示范。
 
-在疫情红利消退的表象之下，公司自身在战略转型、核心竞争力及资金使用效率等方面的深层问题，正逐一暴露。
+与此同时，倡议还积极推动构建投资高质量上市公司的市场生态，倡导广大投资者积极践行价值投资、长期投资理念，更多关注讲规范、质量优、有担当、重回报的上市公司。
 
-风险一：业务转型迟缓，新增长引擎“失速” 近岸蛋白的核心业务——mRNA原料酶，曾在疫情期间贡献超六成收入。
+专项行动升级为“2.0”版 上市公司发展质量直接关系到资本市场的健康运行和投资者的切身利益。
 
-然而随着全球疫情趋于平缓，相关需求急剧萎缩，公司业绩由此断崖式下滑：从2021年营收3.42亿元、净利润1.49亿元的巅峰，跌至2025年营收仅1.52亿元、亏损超7600万元。
+2024年以来，沪市公司积极响应“提质增效重回报”专项行动倡议，据了解，目前已有约八成沪市公司积极参与并披露行动方案；除新上市外，上证50、上证180、科创50等指数公司已实现全覆盖。
 
-尽管公司试图向靶点蛋白、诊断试剂、CRO服务等非新冠领域拓展，但新业务增长远未形成有效支撑。
+有市场人士表示，从上市公司的日常公告情况来看，可以很清楚地感受到现在很多公司在日常经营和重大决策中，往往会紧扣“提质增效重回报”这个方向，持续提高经营发展质量、积极回报投资者、加强投资者沟通的理念在沪市已形成广泛共识。
 
 ## 相关推荐
 
-- 2026-06-30 09:22 - 你这一辈子有没有为进山姆拼过命？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md
-- 2026-06-30 09:19 - 日本主帅：未能夺冠深感抱歉<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md
-- 2026-06-30 09:04 - 亚洲球队全部出局<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md
-- 2026-06-30 09:09 - hanser X 赖美云《室内系的Track Maker》<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md
-- 2026-06-30 09:07 - 世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md
-- 2026-06-30 09:15 - “草莓月亮”浪漫现身<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md
-- 2026-06-30 09:03 - 美加墨世界杯：亚洲足球的得意与失意<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md
-- 2026-06-30 09:12 - 委内瑞拉地震死亡人数升至1719人<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md
-- 2026-06-30 09:23 - 上市央企地产商 两年换了三任董事长<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md
-- 2026-06-30 08:56 - 马航370搜寻最新消息<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md
-- 2026-06-30 09:19 - “柠檬茶能换怀表？”<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md
-- 2026-06-30 09:08 - 81岁老人被男子买光菜回家车祸去世<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md
+- 2026-06-30 09:13 - 德国北部枪击事件致5死<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md
+- 2026-06-30 09:01 - 警方介入洪明甫死亡威胁<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md
+- 2026-06-30 09:10 - 如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md
+- 2026-06-30 08:54 - 森保一致歉：世界第一目标没能实现<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md
+- 2026-06-30 09:00 - 房价什么时候能涨<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md
+- 2026-06-30 09:03 - 输球后日本球迷被强行披上巴西国旗<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md
+- 2026-06-30 09:15 - F1奥地利站赛后复盘<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md
+- 2026-06-30 09:22 - 怕iPhone涨价的用户已紧急换新<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md
+- 2026-06-30 09:01 - 2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md
+- 2026-06-30 09:10 - 欧洲民众抢购空调降温<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:15 - 点球大战 残酷<br><br> | ??:http://www.share.minike.top/Article/details/2413650286.shtml
-- 2026-06-30 09:16 - 女子健身不当 居然“脑子漏水”了<br><br> | ??:https://www.share.kurohicncr.top/Article/details/141306.shtml
-- 2026-06-30 09:03 - 日耳曼拖拉机<br><br> | ??:http://www.share.kurohicncr.top/Article/details/394062.shtml
-- 2026-06-30 09:07 - “错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】<br><br> | ??:https://www.blog.minike.top/Article/details/382567054.shtml
-- 2026-06-30 09:16 - 马耳他著名拱门坍塌致一中国男子身亡<br><br> | ??:http://www.share.kurohicncr.top/Article/details/401572755.shtml
-- 2026-06-30 09:17 - 内马尔替补<br><br> | ??:https://www.share.minike.top/Article/details/668176630762.shtml
-- 2026-06-30 09:10 - 韩国球迷凌晨4点接机怒骂主教练<br><br> | ??:https://www.blog.minike.top/Article/details/56954732360.shtml
-- 2026-06-30 08:56 - 法总统候选人：拒绝与中国激烈对抗<br><br> | ??:http://www.share.kurohicncr.top/Article/details/31553.shtml
-- 2026-06-30 09:13 - 致敬！中国首批缉毒警已全体退休<br><br> | ??:http://www.blog.minike.top/Article/details/70470075.shtml
-- 2026-06-30 09:11 - 房价什么时候能涨<br><br> | ??:http://www.share.kurohicncr.top/Article/details/51756925.shtml
-- 2026-06-30 09:00 - 韩国球迷凌晨4点接机怒骂主教练<br><br> | ??:http://www.share.minike.top/Article/details/276404.shtml
-- 2026-06-30 09:16 - 电影抓特务上映11天破亿<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/83158271.shtml
-- 2026-06-30 09:02 - 女子遭下药退赔偿拟追刑责<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/893467883669.shtml
-- 2026-06-30 09:23 - 日本进球<br><br> | ??:http://www.share.minike.top/Article/details/605435712.shtml
-- 2026-06-30 09:10 - 低智商犯罪三江口团建来了<br><br> | ??:http://www.blog.minike.top/Article/details/2505412.shtml
+- 2026-06-30 09:23 - 世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？<br><br> | ??:https://www.blog.minike.top/Article/details/56583299.shtml
+- 2026-06-30 09:05 - 巴拉圭进球<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/8829274.shtml
+- 2026-06-30 08:59 - 马航370搜寻最新消息<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/03506497199.shtml
+- 2026-06-30 08:58 - 为什么小组赛出局会让韩国人破防<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/1213021949.shtml
+- 2026-06-30 09:20 - 王曼昱被突如其来的话筒逗笑了<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/29624.shtml
+- 2026-06-30 08:55 - 穆祉丞回应获年度人气艺人<br><br> | ??:https://www.blog.minike.top/Article/details/337633.shtml
+- 2026-06-30 09:09 - 终于把好哥们处成了情侣!<br><br> | ??:https://www.share.kurohicncr.top/Article/details/235865.shtml
+- 2026-06-30 09:14 - 我把队友的7连跪剪成了艺术<br><br> | ??:https://www.share.kurohicncr.top/Article/details/0953734097.shtml
+- 2026-06-30 09:10 - 教育部披露：高考生篡改7名同学志愿<br><br> | ??:https://www.blog.minike.top/Article/details/10692155.shtml
+- 2026-06-30 09:02 - 2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？<br><br> | ??:https://www.share.minike.top/Article/details/3092260.shtml
+- 2026-06-30 09:20 - hanser X 赖美云《室内系的Track Maker》<br><br> | ??:http://www.share.kurohicncr.top/Article/details/83388373.shtml
+- 2026-06-30 09:21 - 如何评价DeepSeek 提出的 DSpark 推理加速方案？<br><br> | ??:http://www.blog.minike.top/Article/details/63392968.shtml
+- 2026-06-30 09:19 - 美股深夜大反弹 特斯拉飙涨8%<br><br> | ??:https://www.share.minike.top/Article/details/02357688206.shtml
+- 2026-06-30 09:11 - 找到了10年前跪舔b站的视频<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/14445.shtml
+- 2026-06-30 09:04 - 徐亮怒斥世界杯踢假球<br><br> | ??:https://www.blog.minike.top/Article/details/013020598.shtml

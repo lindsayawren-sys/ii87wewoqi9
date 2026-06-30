@@ -1,56 +1,56 @@
-# 广西红水河畔歌声起 “三月三”唱响民族团结“同心歌”
+# 海外华文媒体探访“中国古堡民居第一县” 感受东方古堡活化新生
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-中新网河池4月19日电(杨志雄 黄艳梅)“多谢了，多谢四方众乡亲……”4月18日，在广西河池市大化瑶族自治县，国家级非物质文化遗产代表性项目“刘三姐歌谣”代表性传承人谢庆良，与青年歌唱家李思宇及学生等同台唱响《多谢了》，悠扬的歌声回荡在红水河畔，拉开了2026年“广西三月三·河池嘉年华”系列活动的序幕。 当日，主会场展演活动围绕“歌满河池”的核心意象，通过“壮鼓迎宾·三姐迎客”
+中新网晋城6月25日电(高雨晴 杨杰英)25日，“世界目光·晋城机遇”2026海外华文媒体晋城行活动正在进行。其间，采访团走进山西晋城阳城县，探访上庄村与中庄村古堡群，在古今交融间感受东方古堡的活化新生。 阳城县境内保存有大量明清古堡，被称为“中国古堡民居第一县”。位于该县的上庄村是明代杰出政治家、改革家王国光的故里，其故居“天官王府”便坐落于此。整座院落依山而建、错落有致，集
 
 ## 正文
 
-中新网河池4月19日电(杨志雄 黄艳梅)“多谢了，多谢四方众乡亲……”4月18日，在广西河池市大化瑶族自治县，国家级非物质文化遗产代表性项目“刘三姐歌谣”代表性传承人谢庆良，与青年歌唱家李思宇及学生等同台唱响《多谢了》，悠扬的歌声回荡在红水河畔，拉开了2026年“广西三月三·河池嘉年华”系列活动的序幕。
+中新网晋城6月25日电(高雨晴 杨杰英)25日，“世界目光·晋城机遇”2026海外华文媒体晋城行活动正在进行。
 
-当日，主会场展演活动围绕“歌满河池”的核心意象，通过“壮鼓迎宾·三姐迎客”“踏歌为节·山歌飞扬”“歌满河池·情铸辉煌”等篇章，生动呈现刘三姐歌谣文化的传承创新与河池各族文化的多彩多姿。
+其间，采访团走进山西晋城阳城县，探访上庄村与中庄村古堡群，在古今交融间感受东方古堡的活化新生。
 
-在大化江滨文化广场，200余名儿童唱响布努瑶迎客歌，表达河池各族人民热情好客的淳朴情怀，共同绘就了一幅各民族交往交流交融、文化互鉴共荣的生动画卷。
+阳城县境内保存有大量明清古堡，被称为“中国古堡民居第一县”。
 
-“这是我第一次来到大化瑶乡，这里自然风景秀美，民俗文化独特，让我印象深刻，有机会我要带朋友来体验。
+位于该县的上庄村是明代杰出政治家、改革家王国光的故里，其故居“天官王府”便坐落于此。
 
-”泰国留学生郑梓萱接受中新网记者采访时说。
+整座院落依山而建、错落有致，集官宅、民居、祠堂、书院于一体，被誉为中国北方民居建筑的“活化石”。
 
-河池是“刘三姐歌谣”的重要传承地。
+“天官王府完全保留了古建筑原貌，是极具地域辨识度的原生态文旅资源。
 
-今年“三月三”，从4月中旬至5月初，河池市11个县(区)精心筹备的超过70项重点文旅活动及40余项文旅优惠措施将接连登场，形成“县县有活动、处处是舞台、全市同欢庆”的火热局面，为民众和游客奉上一场文化旅游盛宴。
+村落留存古堡独有的明清建筑风貌，与山野风光相融，独特的古建筑风格与乡土的历史底蕴。
 
-在宜州区，刘三姐故里景区推出全时段沉浸式山歌演出，“丝绸新都·华裳同心”民族服饰秀将传统民族元素与现代丝绸时尚相结合；在罗城仫佬族自治县，“万人走歌坡”与“走坡音乐节”将古老歌圩与现代音乐节形式创新结合；在环江毛南族自治县，毛南族非遗展示活动吸引民众“打卡”。
+”菲律宾《商报》编辑陈淳淳在天官王府驻足良久，对这座历经数百年风雨仍保存完好的官宅院落印象深刻。
 
 ## 相关推荐
 
-- 2026-06-30 08:59 - 如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md
-- 2026-06-30 08:57 - 点球大战和诺伊尔都救不回德国队<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md
-- 2026-06-30 09:12 - 苗族银饰<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md
-- 2026-06-30 09:17 - 巴西2比1日本<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md
-- 2026-06-30 09:09 - GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md
-- 2026-06-30 08:56 - 未来五年，教育强国这样建设<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md
-- 2026-06-30 09:07 - 世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md
-- 2026-06-30 09:10 - 杨紫学位证上就是杨紫<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md
-- 2026-06-30 09:11 - 已经看完《三国第一部：争洛阳》的人，如何评价这部电影？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md
-- 2026-06-30 09:06 - 巴西醒醒 这是淘汰赛<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md
+- 2026-06-30 09:06 - 德国队世界杯点球大战首败<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md
+- 2026-06-30 09:10 - 这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md
+- 2026-06-30 09:00 - 极限挑战第一季<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md
+- 2026-06-30 09:16 - 未来五年，教育强国这样建设<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md
+- 2026-06-30 09:01 - 我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md
+- 2026-06-30 09:14 - 送你一朵小红花<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md
+- 2026-06-30 09:20 - 终于把好哥们处成了情侣!<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md
+- 2026-06-30 08:59 - 金鹰奖视后提名预测<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md
+- 2026-06-30 09:17 - 黄晓明夸昆凌引杨颖对比<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md
+- 2026-06-30 09:22 - 中国新一轮出口管制直指日本命脉<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:11 - 为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/18009264102.shtml
-- 2026-06-30 09:08 - 日耳曼拖拉机<br><br> | ??:https://www.share.minike.top/Article/details/3480538890.shtml
-- 2026-06-30 09:07 - 网瘾賊大的阿嬷<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/431389734.shtml
-- 2026-06-30 09:05 - 小娘惹<br><br> | ??:http://www.blog.minike.top/Article/details/25980.shtml
-- 2026-06-30 09:08 - 赵丽颖风吹半夏含金量还在上升<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/727583.shtml
-- 2026-06-30 09:17 - 女子发现孩子非现任亲生状告前任索赔<br><br> | ??:https://www.share.minike.top/Article/details/34288.shtml
-- 2026-06-30 09:12 - 王健林甩卖超80座万达广场<br><br> | ??:https://www.blog.minike.top/Article/details/18957218.shtml
-- 2026-06-30 08:57 - hanser X 赖美云《室内系的Track Maker》<br><br> | ??:https://www.blog.minike.top/Article/details/744768.shtml
-- 2026-06-30 09:18 - 我们看到的星星是不是有些已经不存在了？<br><br> | ??:http://www.share.minike.top/Article/details/70326870712.shtml
-- 2026-06-30 09:21 - 马杜罗账号在纽约发文致谢各国援助<br><br> | ??:https://www.share.minike.top/Article/details/03087.shtml
-- 2026-06-30 09:19 - 首届《哈基米歌王争霸赛》总决赛<br><br> | ??:http://www.share.minike.top/Article/details/622612296.shtml
-- 2026-06-30 09:12 - 苗族银饰<br><br> | ??:https://www.share.minike.top/Article/details/79145731651.shtml
-- 2026-06-30 09:20 - 自然光｜papi酱&窦文涛：驴与跑步机<br><br> | ??:http://www.share.minike.top/Article/details/10784703.shtml
-- 2026-06-30 09:00 - 点球大战和诺伊尔都救不回德国队<br><br> | ??:http://www.share.minike.top/Article/details/913583284060.shtml
-- 2026-06-30 09:08 - 2021江苏卫视跨年演唱会<br><br> | ??:http://www.share.kurohicncr.top/Article/details/10036.shtml
+- 2026-06-30 09:19 - 不开心就去看三年前的购物订单<br><br> | ??:http://www.blog.minike.top/Article/details/1298227737.shtml
+- 2026-06-30 09:11 - 81岁老人被男子买光菜回家车祸去世<br><br> | ??:http://www.share.minike.top/Article/details/458615449.shtml
+- 2026-06-30 09:20 - 上市央企地产商 两年换了三任董事长<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/0572119.shtml
+- 2026-06-30 09:22 - iPhoneUltra黑色机模<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/34769031337.shtml
+- 2026-06-30 09:07 - Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/56855.shtml
+- 2026-06-30 09:13 - F1奥地利站赛后复盘<br><br> | ??:http://www.share.kurohicncr.top/Article/details/8292387.shtml
+- 2026-06-30 09:22 - 扫黑风暴<br><br> | ??:http://www.share.kurohicncr.top/Article/details/9143475177.shtml
+- 2026-06-30 09:11 - 急先锋<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/67829.shtml
+- 2026-06-30 09:21 - 如果有二次元高中是什么样子的？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/696896.shtml
+- 2026-06-30 09:04 - 日本球迷被强行披上巴西国旗<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/851256.shtml
+- 2026-06-30 08:58 - 7月1日起 一批新规即将落地<br><br> | ??:http://www.blog.minike.top/Article/details/918240.shtml
+- 2026-06-30 09:10 - 4000美元是黄金新一轮下跌的开始吗<br><br> | ??:https://www.blog.minike.top/Article/details/8112005.shtml
+- 2026-06-30 09:23 - 起风了<br><br> | ??:http://www.share.kurohicncr.top/Article/details/264694.shtml
+- 2026-06-30 09:08 - 世界杯名画巴拉圭钢铁防线<br><br> | ??:http://www.share.minike.top/Article/details/0199725586.shtml
+- 2026-06-30 09:23 - 王楚钦孙颖莎晋级混双八强<br><br> | ??:http://www.share.kurohicncr.top/Article/details/46483370723.shtml

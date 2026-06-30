@@ -1,56 +1,59 @@
-# 群核科技上市次日涨超56% 盘中股价创新高
+# 美联储加息预期升温削弱避险需求，黄金跌破4100美元创阶段新低
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-群核科技（00068）上市次日涨超60%，高见29.90港元，股价创新高。截至发稿，股价上涨56.34%，现报29.08港元，成交额15.03亿港元。 公开资料显示，群核科技是全球领先的云原生空间设计软件提供商，旗下产品酷家乐及其海外版Coohom服务全球200多个国家和地区，已是全球最大空间设计平台。公司与深度求索、宇树科技、游戏科学、云深处科技、强脑科技并称“杭州六小龙”。
+汇通财经APP讯——国际黄金市场周三延续弱势运行，现货黄金（XAU/USD）亚洲交易时段回落至4086美元附近，较此前高位进一步下滑。随着中东地缘风险降温以及市场重新评估美联储货币政策前景，黄金近期面临明显抛售压力。 自2月底美国与伊朗冲突爆发以来，黄金曾凭借避险需求快速攀升，并一度刷新历史高位。然而随着近期双方达成阶段性协议，市场对于能源供应中断和地区局势恶化的担忧明显缓解。
 
 ## 正文
 
-群核科技（00068）上市次日涨超60%，高见29.90港元，股价创新高。
+汇通财经APP讯——国际黄金市场周三延续弱势运行，现货黄金（XAU/USD）亚洲交易时段回落至4086美元附近，较此前高位进一步下滑。
 
-截至发稿，股价上涨56.34%，现报29.08港元，成交额15.03亿港元。
+随着中东地缘风险降温以及市场重新评估美联储货币政策前景，黄金近期面临明显抛售压力。
 
-公开资料显示，群核科技是全球领先的云原生空间设计软件提供商，旗下产品酷家乐及其海外版Coohom服务全球200多个国家和地区，已是全球最大空间设计平台。
+自2月底美国与伊朗冲突爆发以来，黄金曾凭借避险需求快速攀升，并一度刷新历史高位。
 
-公司与深度求索、宇树科技、游戏科学、云深处科技、强脑科技并称“杭州六小龙”。
+然而随着近期双方达成阶段性协议，市场对于能源供应中断和地区局势恶化的担忧明显缓解。
 
-值得一提的是，群核科技热度从其申购阶段就居高不下，本次港股IPO超额认购逾千倍，融资申购额达1312亿港元。
+原油价格持续回落，全球金融市场风险偏好有所改善，使部分资金逐步撤离黄金市场。
 
-招股书显示，2025年公司营收8.2亿元，毛利率高达82.2%，经调整净利润扭亏为盈达5712.7万元，大客户净收入留存率109%。
+尽管能源价格有所回落，但此前油价大幅上涨带来的通胀影响仍未完全消散。
 
-目前公司已与智元机器人、银河通用、华策影视、PICO、杭叉集团等各行业头部企业建立战略合作，空间智能能力正从空间设计延伸至机器人训练、工业孪生、影视虚拟制作、XR内容生态等千行百业。
+市场普遍认为，能源成本传导效应将在未来数月继续反映在美国通胀数据之中，从而增加美联储维持紧缩政策的必要性。
 
-责任编辑：卢昱君
+上周由美联储主席凯文·沃什主持的利率会议成为近期市场关注焦点。
 
 ## 相关推荐
 
-- 2026-06-30 09:18 - 湖北云南这些涉汛信息都是假的<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md
-- 2026-06-30 08:57 - 2021江苏卫视跨年演唱会<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md
-- 2026-06-30 09:20 - 穆祉丞回应获年度人气艺人<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md
-- 2026-06-30 09:07 - 承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md
-- 2026-06-30 09:13 - 董卿父亲报纸上发文悼念亡妻<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md
-- 2026-06-30 09:20 - 4000美元是黄金新一轮下跌的开始吗<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md
-- 2026-06-30 09:21 - 巴拉圭率先破门<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md
-- 2026-06-30 09:09 - 2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md
-- 2026-06-30 09:23 - 乔家的儿女<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md
-- 2026-06-30 08:56 - 大货车掉落螺丝扎进骑手护目镜<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md
+- 2026-06-30 09:18 - 央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md
+- 2026-06-30 08:54 - 为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md
+- 2026-06-30 09:11 - hanser X 赖美云《室内系的Track Maker》<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md
+- 2026-06-30 09:04 - 锐评：网红不能困在无底线逐利里<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md
+- 2026-06-30 09:09 - 英语考了145的人竟然教数学<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md
+- 2026-06-30 08:54 - 萨内 看笑了<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md
+- 2026-06-30 09:15 - 日本将帅赛后采访纷纷哽咽落泪<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md
+- 2026-06-30 09:23 - 千香<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md
+- 2026-06-30 09:05 - 李准基参加文彩元婚礼<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md
+- 2026-06-30 09:03 - 如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md
+- 2026-06-30 08:57 - 莫兰特被交易到开拓者<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md
+- 2026-06-30 09:12 - 日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md
+- 2026-06-30 09:07 - 健全中小学教师工资长效联动机制<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:58 - 这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/06230078054.shtml
-- 2026-06-30 09:10 - 莫兰特被交易到开拓者<br><br> | ??:https://www.blog.minike.top/Article/details/193066.shtml
-- 2026-06-30 09:00 - 梅德韦杰夫列举俄罗斯面临的七大挑战<br><br> | ??:http://www.share.minike.top/Article/details/2010982.shtml
-- 2026-06-30 09:16 - 全新问界M9现身美国街头<br><br> | ??:http://www.blog.minike.top/Article/details/11023014758.shtml
-- 2026-06-30 09:21 - 斛珠夫人<br><br> | ??:https://www.blog.minike.top/Article/details/81401.shtml
-- 2026-06-30 09:09 - 古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/27136.shtml
-- 2026-06-30 08:57 - 美加墨世界杯：亚洲足球的得意与失意<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/893016.shtml
-- 2026-06-30 09:03 - 人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/4629878.shtml
-- 2026-06-30 09:10 - 如果有二次元高中是什么样子的？<br><br> | ??:https://www.blog.minike.top/Article/details/8725846976.shtml
-- 2026-06-30 08:55 - 【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸<br><br> | ??:https://www.blog.minike.top/Article/details/452859877.shtml
-- 2026-06-30 09:03 - 领克900大型SUV值得购买吗?<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/3088147549.shtml
-- 2026-06-30 09:08 - 巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？<br><br> | ??:https://www.blog.minike.top/Article/details/2857159322.shtml
-- 2026-06-30 08:59 - 世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/44100246171.shtml
-- 2026-06-30 09:07 - 日本队主帅道歉<br><br> | ??:https://www.share.minike.top/Article/details/065209679110.shtml
-- 2026-06-30 09:11 - 张雪的一句“是我们”引发岛内热议<br><br> | ??:https://www.share.minike.top/Article/details/227996.shtml
+- 2026-06-30 09:15 - 国务院：探索延长义务教育年限<br><br> | ??:https://www.blog.minike.top/Article/details/78462929.shtml
+- 2026-06-30 08:59 - 《名肘探科比》：科比大战裂口女<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/88003.shtml
+- 2026-06-30 08:54 - 一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？<br><br> | ??:https://www.share.minike.top/Article/details/59256676.shtml
+- 2026-06-30 09:22 - 这种关系可能正在悄悄“催老”你<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/1511659.shtml
+- 2026-06-30 09:08 - 巴西若输日本将创36年最差纪录<br><br> | ??:https://www.share.minike.top/Article/details/67836.shtml
+- 2026-06-30 09:19 - 沙丘<br><br> | ??:https://www.share.minike.top/Article/details/41287502894.shtml
+- 2026-06-30 08:56 - 王濛回复黄灿灿<br><br> | ??:https://www.share.minike.top/Article/details/380662645.shtml
+- 2026-06-30 09:00 - 主人解开狗绳2只狗将路人撕咬致死<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/36367811.shtml
+- 2026-06-30 09:09 - 小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？<br><br> | ??:https://www.blog.minike.top/Article/details/537503.shtml
+- 2026-06-30 09:04 - 法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？<br><br> | ??:http://www.blog.minike.top/Article/details/908219042.shtml
+- 2026-06-30 09:01 - 日本将帅赛后采访纷纷哽咽落泪<br><br> | ??:https://www.share.minike.top/Article/details/4756138.shtml
+- 2026-06-30 09:01 - 巴西醒醒 这是淘汰赛<br><br> | ??:http://www.share.kurohicncr.top/Article/details/343000467968.shtml
+- 2026-06-30 08:58 - 【Reaction】女生最少的5款游戏<br><br> | ??:http://www.blog.minike.top/Article/details/54164.shtml
+- 2026-06-30 09:13 - 木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？<br><br> | ??:http://www.share.minike.top/Article/details/646743959475.shtml
+- 2026-06-30 09:05 - 【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】<br><br> | ??:http://www.share.kurohicncr.top/Article/details/2965321239.shtml

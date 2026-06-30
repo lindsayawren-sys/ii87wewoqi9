@@ -1,46 +1,59 @@
-# 姓氏是分不开的纽带！台胞：让两岸年轻人多交流，消融更多误解
+# 两册《永乐大典》入藏杭州国家版本馆
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月20日 11:22 来源：中国新闻网 “三月三，拜轩辕”是中华民族的文化传统，肇始于春秋时期，绵延至今。4月19日，正值中国农历三月初三，丙午年黄帝故里拜祖大典在河南新郑举行，不少台胞专程从岛内赶来。 记者 李超庆 阚力 河南郑州报道 责任编辑：【李季】
+中新网杭州6月24日电(鲍梦妮 宣莉)6月24日，两册《永乐大典》入藏杭州国家版本馆。 据悉，《永乐大典》是明成祖永乐年间编纂的一部大型类书。它采摭先秦至明初典籍七八千种，内容包罗万象，且对引文一字不改、原文存录，不仅被誉为“有史以来最大的百科全书”，而且成为保存中国古典文献的渊薮。明嘉靖年间依正本原样重录副本。今正本不知所踪，仅余副本400余册，不到原书的4%。 2020年5
 
 ## 正文
 
-发布时间：2026年04月20日 11:22 来源：中国新闻网 “三月三，拜轩辕”是中华民族的文化传统，肇始于春秋时期，绵延至今。
+中新网杭州6月24日电(鲍梦妮 宣莉)6月24日，两册《永乐大典》入藏杭州国家版本馆。
 
-4月19日，正值中国农历三月初三，丙午年黄帝故里拜祖大典在河南新郑举行，不少台胞专程从岛内赶来。
+据悉，《永乐大典》是明成祖永乐年间编纂的一部大型类书。
 
-记者 李超庆 阚力 河南郑州报道 责任编辑：【李季】
+它采摭先秦至明初典籍七八千种，内容包罗万象，且对引文一字不改、原文存录，不仅被誉为“有史以来最大的百科全书”，而且成为保存中国古典文献的渊薮。
+
+明嘉靖年间依正本原样重录副本。
+
+今正本不知所踪，仅余副本400余册，不到原书的4%。
+
+2020年5月，法国拍卖行惊现两册《永乐大典》，因中国国内单位难以参拍，古籍专家翁连溪遂与浙江企业家金亮联系。
+
+金亮闻讯后，决定以个人之力先行参拍，历经激烈竞拍，终将国宝购得。
+
+此后，经各方协力，两册国宝冲破重重困难运抵回国。
 
 ## 相关推荐
 
-- 2026-06-30 09:01 - 李在明90度鞠躬感谢韩国两大财阀<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md
-- 2026-06-30 08:55 - 世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md
-- 2026-06-30 09:01 - iPhoneUltra黑色机模<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md
-- 2026-06-30 09:03 - “以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md
-- 2026-06-30 09:16 - 法总统候选人：拒绝与中国激烈对抗<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md
-- 2026-06-30 09:04 - 吴易昺不敌德约科维奇 止步温网首轮<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md
-- 2026-06-30 09:12 - 藤森庆子赢得秘鲁总统选举<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md
-- 2026-06-30 09:21 - 世界杯<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md
-- 2026-06-30 09:12 - 巴西足球能否再现昔日荣光<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md
-- 2026-06-30 09:21 - 世界杯名画巴拉圭钢铁防线<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md
+- 2026-06-30 09:01 - 如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md
+- 2026-06-30 08:55 - 未来的飞机可能会用电吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md
+- 2026-06-30 09:00 - 美股收盘 热门中概股普涨<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md
+- 2026-06-30 09:11 - 大货车掉落螺丝扎进骑手护目镜<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md
+- 2026-06-30 09:11 - 泰山建135公里刀片刺绳隔离网<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md
+- 2026-06-30 09:23 - 欧洲家电巨头为何输掉了这个夏天<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md
+- 2026-06-30 08:57 - 王菲谢霆锋十指紧扣好甜<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md
+- 2026-06-30 08:57 - FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md
+- 2026-06-30 09:02 - 韩国球迷凌晨4点接机怒骂主教练<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md
+- 2026-06-30 09:20 - 浪姐成团夜爆笑吐槽<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md
+- 2026-06-30 09:16 - 美股收盘 热门中概股普涨<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md
+- 2026-06-30 09:17 - 美团、淘宝闪购、京东外卖达成共识<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md
+- 2026-06-30 09:00 - 陈幸同晋级WTT美国大满贯女单32强<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:21 - 赵今麦因“瘦而不柴”的体态出圈<br><br> | ??:http://www.blog.minike.top/Article/details/301455.shtml
-- 2026-06-30 09:05 - 深扒韩国队淘汰背后原因<br><br> | ??:http://www.share.minike.top/Article/details/2695541240.shtml
-- 2026-06-30 08:57 - 把毒品藏在哪里，60秒内不会被发现？<br><br> | ??:https://www.blog.minike.top/Article/details/54461854.shtml
-- 2026-06-30 09:06 - 世界杯巴拉圭点球淘汰德国<br><br> | ??:http://www.blog.minike.top/Article/details/412717.shtml
-- 2026-06-30 08:58 - 追梦拒绝2770万美元球员选项<br><br> | ??:https://www.share.kurohicncr.top/Article/details/9648051.shtml
-- 2026-06-30 09:03 - 如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？<br><br> | ??:https://www.share.minike.top/Article/details/199093919975.shtml
-- 2026-06-30 09:16 - 被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】<br><br> | ??:http://www.share.kurohicncr.top/Article/details/016001793.shtml
-- 2026-06-30 09:12 - 张碧晨一开口梦回逐玉<br><br> | ??:http://www.share.kurohicncr.top/Article/details/60098.shtml
-- 2026-06-30 09:09 - 上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶<br><br> | ??:https://www.share.kurohicncr.top/Article/details/51600.shtml
-- 2026-06-30 08:54 - 蜘蛛侠:英雄归来<br><br> | ??:http://www.share.minike.top/Article/details/445272417285.shtml
-- 2026-06-30 09:19 - 球评巴西绝杀逆转日本<br><br> | ??:http://www.share.minike.top/Article/details/904823765563.shtml
-- 2026-06-30 09:03 - 男生180+，有腹肌是什么体验？<br><br> | ??:https://www.blog.minike.top/Article/details/078039594405.shtml
-- 2026-06-30 09:09 - 哪部作品、哪本书、哪首歌，值得被一直传下去？<br><br> | ??:https://www.blog.minike.top/Article/details/717077194.shtml
-- 2026-06-30 08:56 - 世界杯<br><br> | ??:http://www.share.minike.top/Article/details/9779598412.shtml
-- 2026-06-30 09:12 - 诺伊尔尽力了<br><br> | ??:https://www.share.minike.top/Article/details/79352.shtml
+- 2026-06-30 08:57 - 法总统候选人：拒绝与中国激烈对抗<br><br> | ??:http://www.blog.minike.top/Article/details/6108617.shtml
+- 2026-06-30 08:57 - 女子健身不当 居然“脑子漏水”了<br><br> | ??:http://www.share.kurohicncr.top/Article/details/157488.shtml
+- 2026-06-30 08:56 - 千与千寻<br><br> | ??:http://www.share.minike.top/Article/details/7441848.shtml
+- 2026-06-30 09:02 - 詹姆斯 勇士<br><br> | ??:https://www.share.minike.top/Article/details/502814783513.shtml
+- 2026-06-30 09:04 - 韩国球迷凌晨4点接机怒骂主教练<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/4425022955.shtml
+- 2026-06-30 09:14 - 齐思钧回复张月<br><br> | ??:https://www.share.kurohicncr.top/Article/details/6523219103.shtml
+- 2026-06-30 09:23 - 好像看到了人类带孩子崩溃的样子<br><br> | ??:http://www.share.kurohicncr.top/Article/details/275860.shtml
+- 2026-06-30 09:12 - 「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！<br><br> | ??:http://www.share.minike.top/Article/details/392772507.shtml
+- 2026-06-30 09:02 - 欧洲家电巨头为何输掉了这个夏天<br><br> | ??:https://www.blog.minike.top/Article/details/25360128664.shtml
+- 2026-06-30 09:03 - 世界杯名画巴拉圭钢铁防线<br><br> | ??:http://www.share.kurohicncr.top/Article/details/425928.shtml
+- 2026-06-30 09:15 - 《贺子珍》<br><br> | ??:https://www.share.kurohicncr.top/Article/details/88031363.shtml
+- 2026-06-30 08:59 - 教育部披露：高考生篡改7名同学志愿<br><br> | ??:http://www.share.kurohicncr.top/Article/details/284858262109.shtml
+- 2026-06-30 09:18 - 感动全网的699分女生想报考清华<br><br> | ??:http://www.share.kurohicncr.top/Article/details/28140735920.shtml
+- 2026-06-30 09:02 - 檀健次王楚然吻戏看热了<br><br> | ??:https://www.blog.minike.top/Article/details/579356326.shtml
+- 2026-06-30 09:17 - 委内瑞拉地震死亡人数升至1719人<br><br> | ??:https://www.share.minike.top/Article/details/747121025.shtml

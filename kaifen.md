@@ -1,57 +1,58 @@
-# 【讲习所·中国与世界】“构建网络空间命运共同体”成为全球互联网治理的重要思想坐标
+# 重庆已有注册内河船员约11.8万人
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-【本期导读】 “网络空间是亿万民众共同的精神家园。”2016年4月19日，中共中央总书记、国家主席习近平在主持召开网络安全和信息化工作座谈会时强调，推进网络强国建设，推动中国网信事业发展，让互联网更好造福国家和人民。 十年来，在习近平的领航掌舵下，中国从网络大国向着网络强国阔步迈进。同时，习近平始终以全球视野关注互联网发展治理，倡导各国携手构建网络空间命运共同体，通过各种重要场
+中新网重庆6月25日电 (张旭)目前，重庆已有注册内河船员约11.8万人，约占长江经济带11省市总量的14.5%、全国的10.8%。重庆海事局联合多部门25日在渝举办第十六个“世界海员日”庆祝活动，并发布前述数据。 据重庆海事局介绍，2025年，重庆水路货运量达2亿吨，港口货物吞吐量2.45亿吨，均创历史新高。船员，正是水路货运的“动力之源”。 本次活动以“承天下之商，担海上之
 
 ## 正文
 
-【本期导读】 “网络空间是亿万民众共同的精神家园。
+中新网重庆6月25日电 (张旭)目前，重庆已有注册内河船员约11.8万人，约占长江经济带11省市总量的14.5%、全国的10.8%。
 
-”2016年4月19日，中共中央总书记、国家主席习近平在主持召开网络安全和信息化工作座谈会时强调，推进网络强国建设，推动中国网信事业发展，让互联网更好造福国家和人民。
+重庆海事局联合多部门25日在渝举办第十六个“世界海员日”庆祝活动，并发布前述数据。
 
-十年来，在习近平的领航掌舵下，中国从网络大国向着网络强国阔步迈进。
+据重庆海事局介绍，2025年，重庆水路货运量达2亿吨，港口货物吞吐量2.45亿吨，均创历史新高。
 
-同时，习近平始终以全球视野关注互联网发展治理，倡导各国携手构建网络空间命运共同体，通过各种重要场合持续阐释中国方案，指引全球互联网治理体系朝着更加公正合理的方向发展。
+船员，正是水路货运的“动力之源”。
 
-“推进全球互联网治理体系变革是大势所趋、人心所向。
+本次活动以“承天下之商，担海上之险”为主题。
 
-”国际社会认为，习近平主席倡导构建网络空间命运共同体的理念已成为全球互联网治理的重要思想坐标。
+活动当日，何章明、李坚强、王超、杨勇4名一线船长获授“安全诚信船长”称号。
 
-中国言行一致的责任感与提出的系统性方案，持续推动形成多边共治、互利共赢的网络治理新格局，为破解全球数字鸿沟、促进数字文明普惠发展提供了重要实践路径。
+活动现场设置船员党建、海事政务、职业发展、劳资纠纷、水上治安、法律服务、健康咨询7个专业咨询台，一站式受理船员办证、职称评定、薪资工伤纠纷、水上治安、法律帮扶、健康疏导等诉求。
 
-监制：苑听雷、戴爽、金近 策划：张倩楠 文案：娄珂馨 编辑：任丽君 视觉：曹懿心 校对：位树理、吕冬
+同时，主办方协调有关单位现场开展劳动纠纷调解，维护船员合法权益。
 
 ## 相关推荐
 
-- 2026-06-30 09:19 - 董卿父亲报纸上发文悼念亡妻<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md
-- 2026-06-30 09:03 - 日本队5进世界杯淘汰赛0胜<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md
-- 2026-06-30 09:14 - 《恋与深空》被指触碰民族伤痛红线<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md
-- 2026-06-30 09:08 - 安切洛蒂 换人<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md
-- 2026-06-30 09:16 - 道友？你来真的啊？【凡人官方二创大会】<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md
-- 2026-06-30 09:00 - 巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md
-- 2026-06-30 09:12 - 人民锐评网红诋毁袁隆平造谣企业家<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md
-- 2026-06-30 08:56 - 韩国人为什么这么在乎输赢<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md
-- 2026-06-30 08:56 - 一直以为方便面汤是要倒掉的<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md
-- 2026-06-30 09:05 - 巴拉圭先进球了<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md
-- 2026-06-30 09:17 - “荒唐”背后的韩国足球<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md
+- 2026-06-30 09:08 - 欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md
+- 2026-06-30 09:23 - 我们看到的星星是不是有些已经不存在了？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md
+- 2026-06-30 09:15 - 欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md
+- 2026-06-30 08:55 - 日本16强魔咒<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md
+- 2026-06-30 09:01 - “柠檬茶能换怀表？”<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md
+- 2026-06-30 08:56 - 藤森庆子赢得秘鲁总统选举<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md
+- 2026-06-30 09:18 - 杨某诋毁袁隆平院士科研成果被刑拘<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md
+- 2026-06-30 09:04 - 王灿兮被烫伤两年后维权成功<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md
+- 2026-06-30 09:16 - 湖北云南这些涉汛信息都是假的<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md
+- 2026-06-30 09:07 - 杨紫被质疑未使用原名<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md
+- 2026-06-30 09:20 - 勇敢的心第二部<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md
+- 2026-06-30 09:09 - 第一炉香<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:55 - 披荆斩棘的哥哥<br><br> | ??:https://www.blog.minike.top/Article/details/320149026015.shtml
-- 2026-06-30 09:08 - 首届《哈基米歌王争霸赛》总决赛<br><br> | ??:http://www.share.minike.top/Article/details/28708.shtml
-- 2026-06-30 09:12 - 板面：为什么那么多人爱吃？？！<br><br> | ??:https://www.blog.minike.top/Article/details/4170020212.shtml
-- 2026-06-30 09:10 - 4000美元是黄金新一轮下跌的开始吗<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/16231752.shtml
-- 2026-06-30 09:15 - 可以细成这样？1600万预算，颠覆我认知的改造！<br><br> | ??:https://www.share.kurohicncr.top/Article/details/7913736281.shtml
-- 2026-06-30 09:01 - 有人见过武则天的画像吗，非常好奇？<br><br> | ??:http://www.share.minike.top/Article/details/1001358.shtml
-- 2026-06-30 08:58 - 任素汐舞台上唱《王招君》<br><br> | ??:https://www.share.minike.top/Article/details/5755220285.shtml
-- 2026-06-30 09:13 - 我吃遍了西安最強的街頭小吃，第九家強得離譜！<br><br> | ??:https://www.share.minike.top/Article/details/27900745419.shtml
-- 2026-06-30 09:01 - 酒店推行“24小时退房”引热议<br><br> | ??:https://www.share.kurohicncr.top/Article/details/506302.shtml
-- 2026-06-30 09:12 - 7月1日起 一批新规即将落地<br><br> | ??:http://www.share.minike.top/Article/details/43199484500.shtml
-- 2026-06-30 09:04 - 中国代表在联合国点名日本所犯罪行<br><br> | ??:http://www.share.minike.top/Article/details/142131446126.shtml
-- 2026-06-30 09:19 - 如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？<br><br> | ??:http://www.blog.minike.top/Article/details/29970.shtml
-- 2026-06-30 09:03 - 建议不要突然完全停止喝咖啡<br><br> | ??:https://www.share.kurohicncr.top/Article/details/879034451.shtml
-- 2026-06-30 09:17 - 补时绝杀 巴西2-1淘汰日本<br><br> | ??:https://www.blog.minike.top/Article/details/08861272.shtml
-- 2026-06-30 08:57 - 陈小春人老了干什么也不心酸<br><br> | ??:https://www.share.kurohicncr.top/Article/details/5533131.shtml
+- 2026-06-30 08:57 - 杨紫大银幕成绩单<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/667271727158.shtml
+- 2026-06-30 09:00 - 韩国球迷凌晨4点接机怒骂主教练<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/590065967.shtml
+- 2026-06-30 08:54 - 媒体：手机测评该挤挤水分了<br><br> | ??:https://www.blog.minike.top/Article/details/8234377758.shtml
+- 2026-06-30 08:56 - 【硬核拆解】汽车人到底离我们有多远？<br><br> | ??:https://www.blog.minike.top/Article/details/49713.shtml
+- 2026-06-30 09:21 - 《贺子珍》<br><br> | ??:https://www.blog.minike.top/Article/details/922501528.shtml
+- 2026-06-30 08:58 - 巴西绝杀日本：漫画般结局换了主角<br><br> | ??:http://www.blog.minike.top/Article/details/222513827049.shtml
+- 2026-06-30 09:10 - 曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？<br><br> | ??:http://www.share.minike.top/Article/details/589203217432.shtml
+- 2026-06-30 09:19 - 詹姆斯 勇士<br><br> | ??:http://www.share.minike.top/Article/details/298860077.shtml
+- 2026-06-30 09:22 - 美股<br><br> | ??:https://www.share.minike.top/Article/details/75138.shtml
+- 2026-06-30 08:57 - “错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】<br><br> | ??:http://www.blog.minike.top/Article/details/41258.shtml
+- 2026-06-30 09:14 - 古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/224716066924.shtml
+- 2026-06-30 09:21 - 卢卡申科发布解放军仪仗队视频<br><br> | ??:https://www.blog.minike.top/Article/details/31757.shtml
+- 2026-06-30 09:03 - 恋与深空道歉声明<br><br> | ??:https://www.blog.minike.top/Article/details/0244083968.shtml
+- 2026-06-30 09:21 - 人民锐评：网红不能困在无底线逐利里<br><br> | ??:https://www.blog.minike.top/Article/details/5089565.shtml
+- 2026-06-30 09:02 - 感动全网的699分女生想报考清华<br><br> | ??:http://www.share.kurohicncr.top/Article/details/88310323107.shtml

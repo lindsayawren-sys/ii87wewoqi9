@@ -1,54 +1,59 @@
-# 新阶人士走进成都高新天府长岛 共话数字文创新未来
+# 对话岚图卢放：汽车涨价是大概率的，买车还是要趁早
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月17日 20:57 来源：中国新闻网 4月16日，“从心开始·向新而行——共铸新大众文艺视听新声力”系列活动走进位于四川成都高新区的天府长岛数字文创园，近百名全国新的社会阶层人士服务团成员、新联会、网联会、网络大V等人士参与，实地开展参观考察、走访交流。据了解，天府长岛数字文创园汇聚腾讯新文创总部、可可豆动画等60余家企业，培育出“哪吒”等众多现象级I
+专题：2026第十七届夏季达沃斯论坛 6月24日消息，世界经济论坛第十七届新领军者年会（2026大连夏季达沃斯论坛）在大连举行。会议期间，新浪科技对话岚图汽车董事长、党委书记卢放。 华为乾崑智驾的价格近期上调，车价未来是什么走势？卢放直言，今年汽车不涨价已经是非常难的事情，“所有的原材料都在涨价，内存、电池、石化产品都在涨价，铝在涨，钢也在涨，”他表示，在这个背景下，汽车降价是
 
 ## 正文
 
-发布时间：2026年04月17日 20:57 来源：中国新闻网 4月16日，“从心开始·向新而行——共铸新大众文艺视听新声力”系列活动走进位于四川成都高新区的天府长岛数字文创园，近百名全国新的社会阶层人士服务团成员、新联会、网联会、网络大V等人士参与，实地开展参观考察、走访交流。
+专题：2026第十七届夏季达沃斯论坛 6月24日消息，世界经济论坛第十七届新领军者年会（2026大连夏季达沃斯论坛）在大连举行。
 
-据了解，天府长岛数字文创园汇聚腾讯新文创总部、可可豆动画等60余家企业，培育出“哪吒”等众多现象级IP。
+会议期间，新浪科技对话岚图汽车董事长、党委书记卢放。
 
-在AG电竞、艾尔平方等企业，高效协作的“10分钟创作圈”生态与年轻团队饱满的创作热情，给新阶人士留下深刻印象。
+华为乾崑智驾的价格近期上调，车价未来是什么走势？
 
-此次活动让参与人员切实感受到成都数字文创产业的创新活力与发展潜力，搭建文创产业从业者、网络人士与优质文创园区、企业之间的交流对接平台，助力优质文创IP打造、文艺作品创新传播，为数字文创产业与大众文艺视听内容融合发展搭建桥梁。
+卢放直言，今年汽车不涨价已经是非常难的事情，“所有的原材料都在涨价，内存、电池、石化产品都在涨价，铝在涨，钢也在涨，”他表示，在这个背景下，汽车降价是不符合逻辑的。
 
-(记者 吕杨） 责任编辑：【罗攀】
+“汽车是长寿命周期的产品，购买之后实际上还要买未来的服务，任何一个理性的消费者和理性的企业，都不应该希望企业是负毛利的状态。
+
+”卢放表示，现在原材料在涨价，汽车能够维持在某个价格水平已经非常困难，对于企业经营者来讲有巨大的挑战，要想尽一切办法在内部做成本改善、效率改善。
+
+卢放认为，汽车的涨价是大概率的事情，对于原材料涨价，高端车还有一定的承受能力，但很多低端车首当其冲，可能会减产消失。
+
+他建议，消费者买车还是要趁早。
 
 ## 相关推荐
 
-- 2026-06-30 09:14 - 我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md
-- 2026-06-30 09:02 - 高质量发展看新疆<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md
-- 2026-06-30 09:11 - 一见倾心<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md
-- 2026-06-30 09:14 - 点球淘汰德国 巴拉圭首都陷入疯狂<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md
-- 2026-06-30 09:04 - 为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md
-- 2026-06-30 08:58 - 日本淘汰<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md
-- 2026-06-30 09:08 - 美股<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md
-- 2026-06-30 09:18 - 恋与深空已删除锅里洗澡文案<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md
-- 2026-06-30 09:21 - 高考结束，该不该外出打工体验？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md
-- 2026-06-30 09:01 - 城市规划有可能成为「屎山代码」吗？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md
-- 2026-06-30 08:58 - ASMR 千禧年百货大楼初代柜姐给你化大头贴妆<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md
-- 2026-06-30 09:13 - 找到了10年前跪舔b站的视频<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md
-- 2026-06-30 09:11 - 日本进球<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md
-- 2026-06-30 09:07 - 有什么好的高中网课推荐吗？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md
+- 2026-06-30 09:19 - 81岁老人被男子买光菜回家车祸去世<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md
+- 2026-06-30 08:58 - 千万不要随便扣肚脐<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md
+- 2026-06-30 08:54 - 阿娇瘦了10斤<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md
+- 2026-06-30 08:57 - 美股收盘 热门中概股普涨<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md
+- 2026-06-30 09:07 - 商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md
+- 2026-06-30 08:55 - 内马尔中场休息积极鼓励队友<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md
+- 2026-06-30 09:14 - 中国对日本再出重拳<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md
+- 2026-06-30 08:57 - 巴西若输日本将创36年最差纪录<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md
+- 2026-06-30 09:21 - 补时绝杀 巴西2-1淘汰日本<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md
+- 2026-06-30 09:10 - 诺伊尔尽力了<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md
+- 2026-06-30 08:56 - 英语考了145的人竟然教数学<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md
+- 2026-06-30 08:54 - 梅德韦杰夫列举俄罗斯面临的七大挑战<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md
+- 2026-06-30 09:14 - 乔家的儿女<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:01 - 又一家县级医院关停门诊输液大厅<br><br> | ??:https://www.share.kurohicncr.top/Article/details/152735121.shtml
-- 2026-06-30 09:01 - 库尼亚赛后伸五指嘲讽日本<br><br> | ??:https://www.share.kurohicncr.top/Article/details/50694175.shtml
-- 2026-06-30 09:03 - 毕业以后，你最怀念的大学记忆是什么？<br><br> | ??:http://www.share.minike.top/Article/details/591337.shtml
-- 2026-06-30 09:08 - 《鸣潮》玄方主题曲 MV | 定玄<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/37843045.shtml
-- 2026-06-30 09:18 - 女子用家人生日买彩票中1032万<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/88575514093.shtml
-- 2026-06-30 09:12 - 男子醉酒溺水获救后同行人拒协助抬人<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/5962939588.shtml
-- 2026-06-30 09:00 - 泰山建135公里刀片刺绳隔离网<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/8939333.shtml
-- 2026-06-30 09:17 - 我觉得你是在无中生友<br><br> | ??:https://www.share.kurohicncr.top/Article/details/746447884.shtml
-- 2026-06-30 09:17 - 王楚钦说配合稍微有些陌生感<br><br> | ??:https://www.blog.minike.top/Article/details/88974542140.shtml
-- 2026-06-30 09:05 - 日本主帅：未能夺冠深感抱歉<br><br> | ??:https://www.share.minike.top/Article/details/61379037940.shtml
-- 2026-06-30 09:16 - 全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」<br><br> | ??:https://www.share.minike.top/Article/details/65871789097.shtml
-- 2026-06-30 08:56 - 人民锐评：网红不能困在无底线逐利里<br><br> | ??:https://www.share.kurohicncr.top/Article/details/99958.shtml
-- 2026-06-30 09:14 - 日本球迷被强行披上巴西国旗<br><br> | ??:https://www.blog.minike.top/Article/details/92132301927.shtml
-- 2026-06-30 09:06 - 庆祝中国共产党成立105周年大会将举行<br><br> | ??:https://www.share.kurohicncr.top/Article/details/791520738025.shtml
-- 2026-06-30 08:55 - 巴西把自己踢晕了<br><br> | ??:https://www.share.minike.top/Article/details/058297245301.shtml
+- 2026-06-30 09:22 - 徐亮怒斥世界杯踢假球<br><br> | ??:http://www.blog.minike.top/Article/details/322381411.shtml
+- 2026-06-30 08:54 - 庆祝中国共产党成立105周年大会将举行<br><br> | ??:http://www.share.kurohicncr.top/Article/details/5232196.shtml
+- 2026-06-30 09:17 - 檀健次王楚然吻戏看热了<br><br> | ??:http://www.blog.minike.top/Article/details/357624536089.shtml
+- 2026-06-30 08:58 - 存储芯片龙头提示风险<br><br> | ??:http://www.share.minike.top/Article/details/712918.shtml
+- 2026-06-30 09:22 - 日本将帅赛后采访纷纷哽咽落泪<br><br> | ??:http://www.share.minike.top/Article/details/881228446.shtml
+- 2026-06-30 09:18 - 《虎吹最难绷の一集》<br><br> | ??:https://www.blog.minike.top/Article/details/601701.shtml
+- 2026-06-30 09:17 - 世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/3821248.shtml
+- 2026-06-30 08:58 - 巴西在进攻三区完成210脚传球<br><br> | ??:http://www.share.minike.top/Article/details/728778.shtml
+- 2026-06-30 09:04 - 我设置了全宇宙最安全的密码<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/492157786111.shtml
+- 2026-06-30 09:00 - 电子游戏中有哪些关于武器的“刻板印象”？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/721873623.shtml
+- 2026-06-30 08:57 - 曝詹姆斯即将与勇士会面<br><br> | ??:https://www.share.kurohicncr.top/Article/details/665436981558.shtml
+- 2026-06-30 09:00 - 巴西把自己踢晕了<br><br> | ??:http://www.share.minike.top/Article/details/2169616487.shtml
+- 2026-06-30 09:10 - 德国连续三届世界杯无缘16强<br><br> | ??:https://www.share.kurohicncr.top/Article/details/1024611035.shtml
+- 2026-06-30 09:19 - 三星投资计划<br><br> | ??:http://www.blog.minike.top/Article/details/80504020617.shtml
+- 2026-06-30 09:17 - 王濛回复黄灿灿<br><br> | ??:http://www.blog.minike.top/Article/details/065307495.shtml

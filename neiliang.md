@@ -1,61 +1,60 @@
-# 中国人形机器人打破人类半马纪录
+# 多地秋假时间已官宣！集中在11月中下旬，与周末相连形成5天小长假
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-中新社北京4月19日电 (记者 陈杭 徐婧)2026北京亦庄半程马拉松暨人形机器人半程马拉松19日举行，齐天大圣队“闪电”机器人夺冠并打破人类半程马拉松记录。 本届赛事吸引超百支人形机器人赛队与1.2万人共同参赛。“闪电”以50分26秒净用时成绩跑完21.0975公里，打破目前57分20秒的人类半马世界纪录。 该赛事以科创十七街为起点、南海子公园南门为终点，参赛数量、参与范围、
+澎湃新闻记者 唐莹莹 暑假还没开始，多地已经宣布了秋假时间。 6月23日，无锡发布的消息显示，无锡市将于今年秋季首次实施秋假制度，今年秋假的时间为11月16日至18日，与11月14日至15日(周末)相连，共形成5天假期，享受秋假的对象为全市义务教育阶段学生。 此前的6月22日，江苏省教育厅发布消息称，江苏省教育厅印发的《关于优化中小学假期安排的通知》，明确在全省范围内推行春秋假
 
 ## 正文
 
-中新社北京4月19日电 (记者 陈杭 徐婧)2026北京亦庄半程马拉松暨人形机器人半程马拉松19日举行，齐天大圣队“闪电”机器人夺冠并打破人类半程马拉松记录。
+澎湃新闻记者 唐莹莹 暑假还没开始，多地已经宣布了秋假时间。
 
-本届赛事吸引超百支人形机器人赛队与1.2万人共同参赛。
+6月23日，无锡发布的消息显示，无锡市将于今年秋季首次实施秋假制度，今年秋假的时间为11月16日至18日，与11月14日至15日(周末)相连，共形成5天假期，享受秋假的对象为全市义务教育阶段学生。
 
-“闪电”以50分26秒净用时成绩跑完21.0975公里，打破目前57分20秒的人类半马世界纪录。
+此前的6月22日，江苏省教育厅发布消息称，江苏省教育厅印发的《关于优化中小学假期安排的通知》，明确在全省范围内推行春秋假期制度。
 
-该赛事以科创十七街为起点、南海子公园南门为终点，参赛数量、参与范围、技术类型均创历史新高。
+继今年春季学期首次试行春假后，秋季学期的假期安排多地现已确定。
 
-北京经济技术开发区机器人和智能制造产业局局长蔡继征表示，今年赛道更加复杂多样，融合平地、坡道、弯道、狭窄路段等10余种地形，包含接近90度的弯道。
+各义务教育阶段中小学可根据教学进度和季节特点，在10月至11月期间自主安排为期3天的秋假，与周末连休，秋假将再迎来5天小长假。
 
-今年机器人进步速度令人惊叹，大量参赛队伍的成绩超过去年冠军水平。
+其中，南通市已经明确，秋假与双休日连休，共5天，具体时间为11月26日—30日(其中28日—29日为双休日)。
 
-来自齐天大圣队的荣耀公司测试开发工程师杜晓迪说，参考人类优秀运动员身材，“闪电”设计之初便拥有一双“大长腿”，具备强大的液冷系统，助力行进途中散热。
+宿迁市的秋假时间为11月14日至11月18日，秋假设3天，通过与法定节假日或双休日连休，形成5天小长假。
 
-本届赛事分为自主导航组与遥控操作组，混合计时、统一排名。
+另据江苏省教育厅发布的消息，扬州市今年秋假时间优先与11月第二周周六、周日相连；南京市、苏州市、盐城市、镇江市的秋假时间将安排在10月-11月之间；徐州市、连云港市的秋假将安排在11月中下旬；淮安市的秋假将安排在11月中旬；泰州市的秋假时间安排在11月。
 
 ## 相关推荐
 
-- 2026-06-30 09:10 - 巴拉圭点球大战淘汰德国进16强<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md
-- 2026-06-30 09:11 - 王濛回复黄灿灿<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md
-- 2026-06-30 09:07 - 拆解FIFA和世界杯的暗面<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md
-- 2026-06-30 08:59 - 庆祝中国共产党成立105周年大会将举行<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md
-- 2026-06-30 09:08 - 男生180+，有腹肌是什么体验？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md
-- 2026-06-30 09:07 - 安切洛蒂 换人<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md
-- 2026-06-30 09:09 - 沙丘<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md
-- 2026-06-30 09:04 - 失明的我带老妈去了趟“火星”<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md
-- 2026-06-30 08:57 - 【大鸣王潮1566】真拿你没办法<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md
-- 2026-06-30 09:21 - 锐评：网红不能困在无底线逐利里<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md
-- 2026-06-30 09:11 - 【硬核拆解】汽车人到底离我们有多远？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md
-- 2026-06-30 08:57 - 领克900大型SUV值得购买吗?<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md
-- 2026-06-30 09:14 - 天道<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md
-- 2026-06-30 09:01 - 【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md
-- 2026-06-30 09:09 - 欧洲民众抢购空调降温<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md
+- 2026-06-30 09:14 - 巴拉圭率先破门<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md
+- 2026-06-30 09:09 - 巴西醒醒 这是淘汰赛<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md
+- 2026-06-30 09:09 - 巴西若输日本将创36年最差纪录<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md
+- 2026-06-30 09:02 - 杨紫大银幕成绩单如何<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md
+- 2026-06-30 09:13 - 内马尔中场休息积极鼓励队友<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md
+- 2026-06-30 09:04 - 恐怖世界 第三集 埃温霍姆村<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md
+- 2026-06-30 09:00 - 巴拉圭门将<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md
+- 2026-06-30 09:07 - 点球大战<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md
+- 2026-06-30 08:57 - 12人以护剧为名敲诈剧组艺人被抓<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md
+- 2026-06-30 09:07 - 媒体：手机测评该挤挤水分了<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md
+- 2026-06-30 09:01 - 我们看到的星星是不是有些已经不存在了？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md
+- 2026-06-30 08:58 - 女儿从清华毕业 爸爸晒出17年对比照<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md
+- 2026-06-30 09:07 - 李在明90度鞠躬感谢韩国两大财阀<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md
+- 2026-06-30 09:20 - 超神人辉夜姬 第二集<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:59 - 有哪些值得一提的生活窍门？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/1115403.shtml
-- 2026-06-30 09:10 - 吴易昺不敌德约科维奇 止步温网首轮<br><br> | ??:https://www.share.minike.top/Article/details/416988.shtml
-- 2026-06-30 08:56 - 电子游戏中有哪些关于武器的“刻板印象”？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/72663726.shtml
-- 2026-06-30 09:06 - 郑钦文温网首轮出局<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/34496654.shtml
-- 2026-06-30 09:14 - 《赛博朋克：边缘行者 2》｜官方预告片<br><br> | ??:https://www.share.minike.top/Article/details/083293.shtml
-- 2026-06-30 09:11 - 名记：灰熊将莫兰特交易至开拓者<br><br> | ??:http://www.share.kurohicncr.top/Article/details/1448052.shtml
-- 2026-06-30 09:15 - 终于把好哥们处成了情侣!<br><br> | ??:https://www.blog.minike.top/Article/details/85721799.shtml
-- 2026-06-30 08:55 - 爱很美味<br><br> | ??:https://www.share.kurohicncr.top/Article/details/888509229460.shtml
-- 2026-06-30 08:55 - 明星大侦探第四季<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/027174120.shtml
-- 2026-06-30 09:00 - 已经看完《三国第一部：争洛阳》的人，如何评价这部电影？<br><br> | ??:http://www.share.minike.top/Article/details/3458336710.shtml
-- 2026-06-30 09:04 - 警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/371279290193.shtml
-- 2026-06-30 08:54 - 啊啊啊<br><br> | ??:https://www.share.minike.top/Article/details/5919924.shtml
-- 2026-06-30 09:06 - 董卿父亲在报纸上发文悼念亡妻<br><br> | ??:http://www.blog.minike.top/Article/details/419031.shtml
-- 2026-06-30 08:56 - 女子遭家暴逃跑致丈夫身亡二审细节<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/50378716.shtml
-- 2026-06-30 09:12 - 有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/86197762320.shtml
+- 2026-06-30 09:12 - 疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！<br><br> | ??:http://www.share.minike.top/Article/details/0190316.shtml
+- 2026-06-30 09:18 - 荀彧和曹操反目成仇的根本原因是什么？<br><br> | ??:http://www.blog.minike.top/Article/details/31398392240.shtml
+- 2026-06-30 09:09 - 美加墨世界杯：亚洲足球的得意与失意<br><br> | ??:https://www.blog.minike.top/Article/details/560356.shtml
+- 2026-06-30 08:57 - 男子醉酒溺水获救后同行人拒协助抬人<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/504766.shtml
+- 2026-06-30 09:21 - 日本进球<br><br> | ??:https://www.blog.minike.top/Article/details/483376675.shtml
+- 2026-06-30 09:16 - 郑钦文温网一轮游<br><br> | ??:https://www.blog.minike.top/Article/details/0391992.shtml
+- 2026-06-30 09:17 - 奔跑吧·黄河篇第二季<br><br> | ??:http://www.share.kurohicncr.top/Article/details/76389750320.shtml
+- 2026-06-30 09:15 - 高考结束了，你会让孩子在家玩手机吗？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/18699636243.shtml
+- 2026-06-30 09:15 - 乔家的儿女<br><br> | ??:https://www.share.kurohicncr.top/Article/details/266589854.shtml
+- 2026-06-30 08:56 - 巴西vs日本<br><br> | ??:https://www.blog.minike.top/Article/details/823483.shtml
+- 2026-06-30 09:15 - 男子在京东买到“同仁堂”假药<br><br> | ??:https://www.share.minike.top/Article/details/746374.shtml
+- 2026-06-30 09:00 - 巴西把自己踢晕了<br><br> | ??:http://www.share.minike.top/Article/details/0867352693.shtml
+- 2026-06-30 09:02 - 男子在非洲务工死亡 公司不认可工亡<br><br> | ??:https://www.share.kurohicncr.top/Article/details/41398.shtml
+- 2026-06-30 09:07 - 87克大金链到老庙黄金维修少了11克<br><br> | ??:https://www.share.minike.top/Article/details/4427299.shtml
+- 2026-06-30 09:15 - 日耳曼拖拉机<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/024434.shtml

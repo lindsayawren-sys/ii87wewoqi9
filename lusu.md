@@ -1,53 +1,58 @@
-# “高配”绿化带景观亮相昆明街头
+# 国务院办公厅关于进一步完善大中型水库移民后期扶持政策的通知
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月17日 21:56 来源：中国新闻网 春城昆明，向来以“四季如春”闻名。如今，这座城市正将“春”的底色演绎出更为惊艳的“高配”版本。漫步昆明街头，绿化带各类花木高低错落、交替绽放。从“绿化”到“彩化”，从“功能”到“景观”，昆明街头的绿化带生动诠释着“有一种叫云南的生活”。(陈晨） 责任编辑：【罗攀】
+国务院办公厅关于进一步完善 大中型水库移民后期扶持政策的通知 国办发〔2026〕20号 各省、自治区、直辖市人民政府，国务院各部委、各直属机构：根据《国务院关于完善大中型水库移民后期扶持政策的意见》(国发〔2006〕17号)，为巩固拓展大中型水库移民后期扶持政策成果，进一步改善水库移民生产生活条件，经国务院同意，现将有关事项通知如下： 一、设置5年过渡期 对已纳入扶持范围的移民
 
 ## 正文
 
-发布时间：2026年04月17日 21:56 来源：中国新闻网 春城昆明，向来以“四季如春”闻名。
+国务院办公厅关于进一步完善 大中型水库移民后期扶持政策的通知 国办发〔2026〕20号 各省、自治区、直辖市人民政府，国务院各部委、各直属机构：根据《国务院关于完善大中型水库移民后期扶持政策的意见》(国发〔2006〕17号)，为巩固拓展大中型水库移民后期扶持政策成果，进一步改善水库移民生产生活条件，经国务院同意，现将有关事项通知如下： 一、设置5年过渡期 对已纳入扶持范围的移民，扶持期限在现有基础上延长5年；对2026年6月30日以前开工在建水库的未搬迁移民和2026年7月1日之后新建水库产生的移民，纳入扶持范围的，扶持期限按25年计算。
 
-如今，这座城市正将“春”的底色演绎出更为惊艳的“高配”版本。
+二、扶持对象、标准、方式等保持不变 扶持对象仍为大中型水库农村移民。
 
-漫步昆明街头，绿化带各类花木高低错落、交替绽放。
+扶持标准仍为每人每年600元，能够直接发放给水库移民个人的应尽量发放到个人，也可以实行项目扶持，还可以采取两者结合的方式。
 
-从“绿化”到“彩化”，从“功能”到“景观”，昆明街头的绿化带生动诠释着“有一种叫云南的生活”。
+截至2026年6月30日的后期扶持人口，由水利部负责核定。
 
-(陈晨） 责任编辑：【罗攀】
+2026年7月1日之后新建水库产生的需纳入扶持范围的移民，由水利部会同国家发展改革委、国家能源局等有关部门每年核定一次。
+
+三、做好水库移民扶持基金管理 大中型水库移民后期扶持基金、大中型水库库区基金的政策保持稳定，征收标准、征缴程序维持不变。
+
+四、促进水库移民增收 在发放后期扶持资金的同时，继续运用大中型水库移民后期扶持基金、大中型水库库区基金等提升库区和移民安置区发展水平，建立水库移民公平分享产业发展收益机制，不断拓宽水库移民增收渠道，提高移民收入水平。
+
+支持库区和移民安置区立足资源禀赋和产业基础，积极发展特色种植养殖、农产品加工、生态康养、休闲旅游、农村电商等特色产业，壮大新型农村集体经济。
 
 ## 相关推荐
 
-- 2026-06-30 09:03 - 媒体评泰山建135公里刀片刺绳隔离网<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md
-- 2026-06-30 09:17 - 法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md
-- 2026-06-30 09:07 - 泰山景区回应修建刀片刺绳隔离网<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md
-- 2026-06-30 08:55 - FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md
-- 2026-06-30 09:08 - 老外对中国cosplay竟这样评价…<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md
-- 2026-06-30 09:10 - 德国罚丢3粒点球<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md
-- 2026-06-30 09:20 - 曝老詹对自由市场态度与以往截然不同<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md
-- 2026-06-30 09:06 - 莫兰特转投开拓者效力<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md
-- 2026-06-30 09:06 - 千与千寻<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md
-- 2026-06-30 09:06 - 赵丽颖风吹半夏含金量还在上升<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md
-- 2026-06-30 08:56 - 韩国世界杯出局是主帅一个人的锅吗<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md
-- 2026-06-30 09:15 - 发明linux、python、redis、nginx、sqlite的人算不算天才？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md
-- 2026-06-30 09:20 - 索马里女大使：想和中国一起搞事业<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md
+- 2026-06-30 08:56 - 我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md
+- 2026-06-30 09:11 - 欧洲空调卖疯了 下一个爆款是储能吗<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md
+- 2026-06-30 09:19 - 小娘惹<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md
+- 2026-06-30 09:08 - 本科毕业生为何涌入专科学校<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md
+- 2026-06-30 09:17 - 曝灰熊将莫兰特交易至开拓者<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md
+- 2026-06-30 08:57 - hanser X 赖美云《室内系的Track Maker》<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md
+- 2026-06-30 09:22 - 巴拉圭率先破门<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md
+- 2026-06-30 08:55 - 蔚来回应高压水枪洗车掉漆<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md
+- 2026-06-30 08:57 - 如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md
+- 2026-06-30 08:59 - 三星投资计划<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md
+- 2026-06-30 09:14 - 送你一朵小红花<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md
+- 2026-06-30 09:00 - 世界杯欧洲队7战南美仅1胜<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:56 - 网瘾賊大的阿嬷<br><br> | ??:https://www.share.minike.top/Article/details/152619.shtml
-- 2026-06-30 08:59 - 为什么香港的冲厕水是咸的？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/38265074510.shtml
-- 2026-06-30 09:20 - 网红峡谷5人溺亡 有人提醒会下雨<br><br> | ??:https://www.share.minike.top/Article/details/88480.shtml
-- 2026-06-30 09:15 - 中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？<br><br> | ??:http://www.blog.minike.top/Article/details/85329137.shtml
-- 2026-06-30 09:08 - 黄晓明晒和周杰伦的合照<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/1306668.shtml
-- 2026-06-30 09:19 - 日本将帅赛后采访纷纷哽咽落泪<br><br> | ??:https://www.blog.minike.top/Article/details/21381105755.shtml
-- 2026-06-30 09:19 - 这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/86513616104.shtml
-- 2026-06-30 09:01 - 古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?<br><br> | ??:http://www.blog.minike.top/Article/details/846878583.shtml
-- 2026-06-30 09:01 - 日本队5进世界杯淘汰赛0胜<br><br> | ??:http://www.share.kurohicncr.top/Article/details/87792.shtml
-- 2026-06-30 09:10 - 美媒：美军第五舰队司令部已无法使用<br><br> | ??:http://www.blog.minike.top/Article/details/78203360429.shtml
-- 2026-06-30 09:12 - 一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/039687617.shtml
-- 2026-06-30 08:56 - 重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！<br><br> | ??:https://www.blog.minike.top/Article/details/32156016.shtml
-- 2026-06-30 09:21 - 覃予萱晋级WTT美国大满贯女单32强<br><br> | ??:https://www.blog.minike.top/Article/details/212133.shtml
-- 2026-06-30 09:07 - 有什么好的高中网课推荐吗？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/345490359221.shtml
-- 2026-06-30 09:05 - 这几秒成世界杯最值钱广告位<br><br> | ??:http://www.blog.minike.top/Article/details/17744014.shtml
+- 2026-06-30 09:10 - 马航370搜寻最新消息<br><br> | ??:https://www.share.minike.top/Article/details/34915822709.shtml
+- 2026-06-30 08:58 - 巴拉圭率先破门<br><br> | ??:http://www.share.kurohicncr.top/Article/details/35147333.shtml
+- 2026-06-30 09:15 - 恐怖世界 第三集 埃温霍姆村<br><br> | ??:https://www.share.minike.top/Article/details/3382930.shtml
+- 2026-06-30 09:13 - 2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/0244819.shtml
+- 2026-06-30 09:19 - 巴拉圭进球<br><br> | ??:https://www.blog.minike.top/Article/details/70222.shtml
+- 2026-06-30 08:58 - 欧洲家电巨头为何输掉了这个夏天<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/82092596.shtml
+- 2026-06-30 09:09 - 吴易昺不敌德约科维奇 止步温网首轮<br><br> | ??:http://www.share.kurohicncr.top/Article/details/120618.shtml
+- 2026-06-30 09:01 - 这一刀 会很帅<br><br> | ??:http://www.share.minike.top/Article/details/3035574.shtml
+- 2026-06-30 09:01 - 上市央企地产商 两年换了三任董事长<br><br> | ??:http://www.blog.minike.top/Article/details/3854551333.shtml
+- 2026-06-30 09:08 - 世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？<br><br> | ??:http://www.share.minike.top/Article/details/36080198.shtml
+- 2026-06-30 09:06 - 一见倾心<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/701641458109.shtml
+- 2026-06-30 09:23 - 日本将帅赛后采访纷纷哽咽落泪<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/60612715.shtml
+- 2026-06-30 08:57 - 国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？<br><br> | ??:http://www.blog.minike.top/Article/details/39093.shtml
+- 2026-06-30 09:01 - 好像看到了人类带孩子崩溃的样子<br><br> | ??:https://www.blog.minike.top/Article/details/6205211777.shtml
+- 2026-06-30 09:06 - 被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】<br><br> | ??:https://www.share.minike.top/Article/details/58977929.shtml

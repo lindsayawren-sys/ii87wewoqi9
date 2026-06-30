@@ -1,61 +1,55 @@
-# 欧洲报告警告：过度依赖美国云服务威胁欧洲安全
+# 哔哩哔哩-W午前涨逾3% 大摩相信公司股价在未来30天内绝对值上升
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：新华社 欧洲一家机构日前发布报告警告道，超过四分之三的欧洲国家在重要的国家安全工作中使用美国企业提供的云服务，这种依赖性可能使欧洲国家安全受到威胁。 高风险：美国不可靠 据法新社16日报道，总部位于比利时布鲁塞尔的技术前景研究所发现，在欧盟27国及英国中，有23国的国家安全系统“看似依赖于美国技术”。
+哔哩哔哩-W（09626）午前涨逾3%，截至发稿，股价上涨2.70%，现报129.50港元，成交额3.42亿港元。 6月24日，哔哩哔哩-W发布公告，其董事会已授权一项新的股份回购计划，根据该计划，公司可于未来24个月内回购其不超过3亿美元的股份（包括其Z类普通股及╱或美国存托股），自本公告日期起生效。 摩根士丹利发表研报指，相信哔哩哔哩的股价在未来30天内绝对值将会上升，发生
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+哔哩哔哩-W（09626）午前涨逾3%，截至发稿，股价上涨2.70%，现报129.50港元，成交额3.42亿港元。
 
-来源：新华社 欧洲一家机构日前发布报告警告道，超过四分之三的欧洲国家在重要的国家安全工作中使用美国企业提供的云服务，这种依赖性可能使欧洲国家安全受到威胁。
+6月24日，哔哩哔哩-W发布公告，其董事会已授权一项新的股份回购计划，根据该计划，公司可于未来24个月内回购其不超过3亿美元的股份（包括其Z类普通股及╱或美国存托股），自本公告日期起生效。
 
-高风险：美国不可靠 据法新社16日报道，总部位于比利时布鲁塞尔的技术前景研究所发现，在欧盟27国及英国中，有23国的国家安全系统“看似依赖于美国技术”。
+摩根士丹利发表研报指，相信哔哩哔哩的股价在未来30天内绝对值将会上升，发生此情境的概率估计达80%以上（或高度可能）。
 
-研究人员通过分析上述国家国防部网站、国家媒体以及欧盟和英国的公共采购记录等公开信息，研究了它们与微软、谷歌、亚马逊、甲骨文等美国技术企业签订的云服务合同。
+这主要是由于该公司宣布了一项新的股份回购计划，将在未来24个月内回购高达3亿美元的股份，约占其市值4.5%，回购将通过公开市场、大宗交易及或其他许可方式进行。
 
-该机构认为，16个国家存在“被美国紧急切断开关的高风险”，即美国可单方面随时切断关键云服务。
+该行采用现金流量折现法（DCF）估值，给予其美股目标价为31美元，维持“增持”评级。
 
-这些国家包括欧洲主要军事强国德国和英国等，仅奉行中立政策的奥地利被归类为低风险。
-
-随着跨大西洋关系裂痕加深，欧洲各国政府正日益担心，若与美国特朗普政府的紧张关系加剧，欧洲的关键数字服务可能会被美方“一键切断”。
-
-去年2月，特朗普与乌克兰总统泽连斯基在白宫发生激烈争吵后，美国政府中止向乌克兰提供包括美国马克萨尔科技公司卫星图像在内的支持。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 09:11 - 武磊：巴西队赢的并不轻松<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md
-- 2026-06-30 09:12 - 有人见过武则天的画像吗，非常好奇？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md
-- 2026-06-30 09:07 - 四川宜宾地震瞬间鱼群乱跳<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md
-- 2026-06-30 09:14 - 世界杯：荷兰vs摩洛哥<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md
-- 2026-06-30 09:06 - 起风了<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md
-- 2026-06-30 08:59 - 未来五年，教育强国这样建设<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md
-- 2026-06-30 08:54 - 美媒：美军第五舰队司令部已无法使用<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md
-- 2026-06-30 09:20 - "超算小姐，这一次，我一定要带你出去..."<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md
-- 2026-06-30 09:06 - 张碧晨一开口梦回逐玉<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md
-- 2026-06-30 09:12 - 中国猪圈装空调让欧洲网友破防<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md
-- 2026-06-30 09:13 - 郑钦文温网一轮游<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md
-- 2026-06-30 09:21 - 日本队被绝杀后鞠躬致谢观众<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md
-- 2026-06-30 09:17 - 俄乌双方伤亡近180万人<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md
-- 2026-06-30 09:23 - 锐评T1战胜KC<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md
-- 2026-06-30 09:03 - 王楚钦孙颖莎混双对手产生<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md
+- 2026-06-30 09:14 - 詹姆斯 勇士<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md
+- 2026-06-30 08:58 - 【硬核拆解】汽车人到底离我们有多远？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md
+- 2026-06-30 09:04 - 国务院：探索延长义务教育年限<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md
+- 2026-06-30 09:15 - 教育部披露：高考生篡改7名同学志愿<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md
+- 2026-06-30 09:15 - 点球大战 残酷<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md
+- 2026-06-30 08:54 - 这种关系可能正在悄悄“催老”你<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md
+- 2026-06-30 08:54 - 德国巴拉圭 折磨<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md
+- 2026-06-30 09:15 - 锐评T1战胜KC<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md
+- 2026-06-30 09:20 - 本届世界杯已有5名球员被控强奸<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md
+- 2026-06-30 09:02 - 美股<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md
+- 2026-06-30 08:55 - 徐亮怒斥世界杯踢假球<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md
+- 2026-06-30 09:01 - 消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md
+- 2026-06-30 09:09 - 吴易昺不敌德约科维奇 止步温网首轮<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:03 - 球评巴西绝杀逆转日本<br><br> | ??:https://www.share.kurohicncr.top/Article/details/74795.shtml
-- 2026-06-30 09:20 - 泰山建135公里刀片刺绳隔离网<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/48629491.shtml
-- 2026-06-30 09:10 - 法总统候选人：拒绝与中国激烈对抗<br><br> | ??:https://www.share.minike.top/Article/details/671583.shtml
-- 2026-06-30 09:23 - HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？<br><br> | ??:https://www.share.minike.top/Article/details/6031534078.shtml
-- 2026-06-30 09:23 - 国内最大沙漠发洪水意味着什么<br><br> | ??:https://www.share.kurohicncr.top/Article/details/888180.shtml
-- 2026-06-30 09:22 - 庆祝中国共产党成立105周年大会将举行<br><br> | ??:https://www.share.minike.top/Article/details/8121047.shtml
-- 2026-06-30 09:15 - 手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】<br><br> | ??:https://www.share.kurohicncr.top/Article/details/590669.shtml
-- 2026-06-30 09:06 - 普京为何将俄乌谈判时间表与伊朗挂钩<br><br> | ??:https://www.share.kurohicncr.top/Article/details/855355.shtml
-- 2026-06-30 09:23 - 杨紫学位证上就是杨紫<br><br> | ??:https://www.share.kurohicncr.top/Article/details/3377000.shtml
-- 2026-06-30 09:03 - 如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/340643935286.shtml
-- 2026-06-30 08:56 - 补时绝杀 巴西2-1淘汰日本<br><br> | ??:https://www.blog.minike.top/Article/details/06100931.shtml
-- 2026-06-30 08:55 - 【Reaction】女生最少的5款游戏<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/439558603047.shtml
-- 2026-06-30 09:01 - 要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活<br><br> | ??:http://www.share.minike.top/Article/details/6299213.shtml
-- 2026-06-30 09:20 - 日本反击率先破门<br><br> | ??:http://www.share.minike.top/Article/details/9828319248.shtml
-- 2026-06-30 09:22 - 古代人对纳妾的态度是什么样的？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/7759966.shtml
+- 2026-06-30 09:02 - 德国进球被吹<br><br> | ??:http://www.blog.minike.top/Article/details/817499.shtml
+- 2026-06-30 09:00 - 徐亮怒斥世界杯踢假球<br><br> | ??:http://www.blog.minike.top/Article/details/69722.shtml
+- 2026-06-30 09:11 - “错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】<br><br> | ??:https://www.blog.minike.top/Article/details/432923700355.shtml
+- 2026-06-30 09:18 - 深扒韩国队淘汰背后原因<br><br> | ??:https://www.share.kurohicncr.top/Article/details/0163650794.shtml
+- 2026-06-30 09:05 - 极限挑战第一季<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/5375709762.shtml
+- 2026-06-30 09:00 - 马宁怒怼巴拉圭教练组<br><br> | ??:https://www.share.minike.top/Article/details/37169724.shtml
+- 2026-06-30 08:54 - 恋与深空道歉声明<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/27534470029.shtml
+- 2026-06-30 09:09 - 未来五年，教育强国这样建设<br><br> | ??:https://www.blog.minike.top/Article/details/224160421366.shtml
+- 2026-06-30 09:17 - 深扒韩国队淘汰背后原因<br><br> | ??:https://www.share.kurohicncr.top/Article/details/756410164423.shtml
+- 2026-06-30 09:19 - 巴西醒醒 这是淘汰赛<br><br> | ??:http://www.share.kurohicncr.top/Article/details/012187839182.shtml
+- 2026-06-30 09:22 - 我们看到的星星是不是有些已经不存在了？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/6730132489.shtml
+- 2026-06-30 08:55 - 德国队回应爆冷淘汰<br><br> | ??:https://www.blog.minike.top/Article/details/7183107.shtml
+- 2026-06-30 09:02 - 为什么纣王似乎对周文王的扩张完全无动于衷？<br><br> | ??:https://www.share.minike.top/Article/details/35862.shtml
+- 2026-06-30 09:14 - 郑钦文温网首轮出局<br><br> | ??:https://www.share.minike.top/Article/details/02533367399.shtml
+- 2026-06-30 09:07 - 郑钦文温网三连败西尼亚科娃<br><br> | ??:https://www.share.kurohicncr.top/Article/details/28314268740.shtml

@@ -1,56 +1,61 @@
-# 总书记的关切·落地的回响｜中国式现代化要靠科技现代化作支撑
+# 财政部：5月份全国共销售彩票528.63亿元 同比下降7.3%
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-原标题：中国式现代化要靠科技现代化作支撑(总书记的关切·落地的回响) “中国式现代化要靠科技现代化作支撑，实现高质量发展要靠科技创新培育新动能”“打造具有全球影响力的创新高地”。 ——2024年6月24日，习近平总书记在全国科技大会、国家科学技术奖励大会、两院院士大会上强调 国家统计局4月16日发布的数据显示，一季度我国国内生产总值同比增长5.0%。“十五五”首季，主要宏观指标
+中新网6月24日电 据财政部网站消息，财政部24日公布2026年5月份全国彩票销售情况。 全国彩票销售情况 5月份，全国共销售彩票528.63亿元，同比减少41.72亿元，下降7.3%，主要是世界杯前有关足球赛事活动减少，以及即开型彩票销售冲高回落影响。其中，福利彩票机构销售169.71亿元，同比减少15.57亿元，下降8.4%；体育彩票机构销售358.92亿元，同比减少26.
 
 ## 正文
 
-原标题：中国式现代化要靠科技现代化作支撑(总书记的关切·落地的回响) “中国式现代化要靠科技现代化作支撑，实现高质量发展要靠科技创新培育新动能”“打造具有全球影响力的创新高地”。
+中新网6月24日电 据财政部网站消息，财政部24日公布2026年5月份全国彩票销售情况。
 
-——2024年6月24日，习近平总书记在全国科技大会、国家科学技术奖励大会、两院院士大会上强调 国家统计局4月16日发布的数据显示，一季度我国国内生产总值同比增长5.0%。
+全国彩票销售情况 5月份，全国共销售彩票528.63亿元，同比减少41.72亿元，下降7.3%，主要是世界杯前有关足球赛事活动减少，以及即开型彩票销售冲高回落影响。
 
-“十五五”首季，主要宏观指标增速回升，新动能快速成长，国民经济实现良好开局。
+其中，福利彩票机构销售169.71亿元，同比减少15.57亿元，下降8.4%；体育彩票机构销售358.92亿元，同比减少26.15亿元，下降6.8%。
 
-其中，科技创新引领作用增强，新质生产力成效持续显现。
+1-5月累计，全国共销售彩票2508.96亿元，同比减少124.76亿元，下降4.7%。
 
-创新是引领发展的第一动力。
+其中，福利彩票机构销售833.31亿元，同比减少56.48亿元，下降6.3%；体育彩票机构销售1675.65亿元，同比减少68.28亿元，下降3.9%。
 
-“中国式现代化要靠科技现代化作支撑，实现高质量发展要靠科技创新培育新动能”“打造具有全球影响力的创新高地”。
+分类型彩票销售情况 5月份，乐透数字型彩票销售155.52亿元，同比减少6.60亿元，下降4.1%；竞猜型彩票销售242.96亿元，同比减少14.56亿元，下降5.7%；即开型彩票销售98.49亿元，同比减少14.92亿元，下降13.2%；基诺型彩票销售31.65亿元，同比减少5.65亿元，下降15.1%。
 
-科技创新，习近平总书记念兹在兹。
+5月份，乐透数字型、竞猜型、即开型、基诺型彩票销售量分别占彩票销售总量的29.4%、46.0%、18.6%、6.0%。
 
-从基础前沿研究实现新突破，到战略高技术领域迎来新跨越，再到推动科技创新和产业创新深度融合，抢抓战略机遇、勇攀科技高峰，科技强国建设迈出坚实步伐。
+视频型彩票销售0.0039亿元，比上年同期增加0.003亿元。
 
 ## 相关推荐
 
-- 2026-06-30 09:21 - 输球后日本球迷被强行披上巴西国旗<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md
-- 2026-06-30 09:05 - 第一次对自信的力量有了实感<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md
-- 2026-06-30 09:18 - 日本球员说被绝杀非常不甘心<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md
-- 2026-06-30 09:06 - 德国巴拉圭 折磨<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md
-- 2026-06-30 09:04 - 陈幸同晋级WTT美国大满贯女单32强<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md
-- 2026-06-30 09:11 - 王菲谢霆锋十指紧扣好甜<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md
-- 2026-06-30 09:15 - 日耳曼拖拉机<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md
-- 2026-06-30 09:01 - 现在叛逆期的孩子最怕的是什么？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md
-- 2026-06-30 09:05 - 《共患难》<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md
-- 2026-06-30 09:19 - 高考填志愿父亲和女儿产生分歧<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md
+- 2026-06-30 09:17 - IGN评测电影版后室<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md
+- 2026-06-30 09:17 - 女儿从清华毕业 爸爸晒出17年对比照<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md
+- 2026-06-30 09:17 - 有什么好的高中网课推荐吗？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md
+- 2026-06-30 08:54 - 电子游戏中有哪些关于武器的“刻板印象”？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md
+- 2026-06-30 08:55 - 消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md
+- 2026-06-30 09:03 - 消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md
+- 2026-06-30 09:10 - 人民锐评：网红不能困在无底线逐利里<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md
+- 2026-06-30 09:17 - 古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md
+- 2026-06-30 09:06 - 金牌调解<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md
+- 2026-06-30 09:10 - 王灿兮被烫伤两年后维权成功<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md
+- 2026-06-30 09:11 - hanser X 赖美云《室内系的Track Maker》<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md
+- 2026-06-30 09:03 - 有哪些被认为是现代才有的东西其实古代就有了？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md
+- 2026-06-30 09:05 - 《虎吹最难绷の一集》<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md
+- 2026-06-30 09:01 - 毕业以后，你最怀念的大学记忆是什么？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md
+- 2026-06-30 09:03 - 马航MH370传来最新消息<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:19 - 杨紫学位证上就是杨紫<br><br> | ??:http://www.blog.minike.top/Article/details/030072.shtml
-- 2026-06-30 09:07 - 巴西把自己踢晕了<br><br> | ??:http://www.blog.minike.top/Article/details/62803126265.shtml
-- 2026-06-30 09:03 - 发明linux、python、redis、nginx、sqlite的人算不算天才？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/0498272.shtml
-- 2026-06-30 09:07 - 补时绝杀 巴西2-1淘汰日本<br><br> | ??:http://www.share.minike.top/Article/details/129334870939.shtml
-- 2026-06-30 09:18 - 「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！<br><br> | ??:https://www.share.minike.top/Article/details/971445808259.shtml
-- 2026-06-30 09:19 - 蔚来回应高压水枪洗车掉漆<br><br> | ??:http://www.share.minike.top/Article/details/4837870750.shtml
-- 2026-06-30 09:03 - 赵今麦因“瘦而不柴”的体态出圈<br><br> | ??:https://www.blog.minike.top/Article/details/1847704.shtml
-- 2026-06-30 09:03 - 莫兰特被交易到开拓者<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/129360.shtml
-- 2026-06-30 09:01 - 杨紫大银幕成绩单<br><br> | ??:http://www.share.minike.top/Article/details/92009.shtml
-- 2026-06-30 09:03 - 81岁老人被男子买光菜回家车祸去世<br><br> | ??:http://www.share.minike.top/Article/details/17687.shtml
-- 2026-06-30 09:17 - 全球最火存储ETF纳入兆易创新<br><br> | ??:https://www.share.kurohicncr.top/Article/details/294128635.shtml
-- 2026-06-30 09:06 - 【Reaction】女生最少的5款游戏<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/984013542.shtml
-- 2026-06-30 09:18 - 韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？<br><br> | ??:http://www.share.minike.top/Article/details/48954896338.shtml
-- 2026-06-30 09:23 - 巴西足球能否再现昔日荣光<br><br> | ??:http://www.blog.minike.top/Article/details/78689615.shtml
-- 2026-06-30 09:23 - 金刚川<br><br> | ??:https://www.share.minike.top/Article/details/916692.shtml
+- 2026-06-30 09:23 - 恋与深空已删除锅里洗澡文案<br><br> | ??:http://www.share.minike.top/Article/details/1201489656.shtml
+- 2026-06-30 09:14 - 国务院：鼓励行业龙头企业举办职校<br><br> | ??:http://www.share.kurohicncr.top/Article/details/217769.shtml
+- 2026-06-30 08:54 - Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？<br><br> | ??:https://www.share.minike.top/Article/details/792693930476.shtml
+- 2026-06-30 08:59 - 啥比桑吉尔夫排位练蓝防（最不抽象的一集）<br><br> | ??:https://www.blog.minike.top/Article/details/9640792.shtml
+- 2026-06-30 08:57 - 刘宇宁是去进货了吗<br><br> | ??:http://www.share.minike.top/Article/details/321789605237.shtml
+- 2026-06-30 08:54 - 女子发现孩子非现任亲生状告前任索赔<br><br> | ??:https://www.share.minike.top/Article/details/49532620.shtml
+- 2026-06-30 08:57 - 你人生中最艰难的时候是怎么熬过来的？<br><br> | ??:https://www.blog.minike.top/Article/details/480825607953.shtml
+- 2026-06-30 09:06 - 杨紫获白玉兰视后为何争议难平<br><br> | ??:http://www.share.minike.top/Article/details/599751929.shtml
+- 2026-06-30 09:02 - 德国爆冷点球大战不敌巴拉圭<br><br> | ??:http://www.share.kurohicncr.top/Article/details/3099042.shtml
+- 2026-06-30 09:10 - 租房时你会更看重「住得舒服」，还是「每天通勤更方便」？<br><br> | ??:http://www.blog.minike.top/Article/details/921920915399.shtml
+- 2026-06-30 09:05 - 天道<br><br> | ??:https://www.blog.minike.top/Article/details/791010460711.shtml
+- 2026-06-30 08:56 - 宜宾地震食客避难后折返 无人逃单<br><br> | ??:http://www.share.kurohicncr.top/Article/details/6560644868.shtml
+- 2026-06-30 08:57 - 亚洲球队全部出局<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/5092516761.shtml
+- 2026-06-30 09:14 - 道友？你来真的啊？【凡人官方二创大会】<br><br> | ??:http://www.share.kurohicncr.top/Article/details/355379474.shtml
+- 2026-06-30 09:13 - 古代时期普通老百姓能喝上酒吗？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/168369565395.shtml

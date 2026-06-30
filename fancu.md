@@ -1,58 +1,61 @@
-# “疑似被鼠药污染”，国际知名婴幼儿食品，多国下架！
+# 急修“安保三文件”，暴露日本加速军事转轨的急躁姿态（钟声）
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-当地时间4月19日，欧洲知名婴幼儿食品生产商喜宝(HiPP)公司表示，在捷克和斯洛伐克发现了疑似被鼠药污染的该品牌婴幼儿罐装食品。公司声明称“在调查过程中确认，这些食品明显被人为动过手脚”。 喜宝公司表示，出于预防措施，两国的零售商已将所有该品牌婴幼儿罐装食品从货架上撤下。 捷克卫生监督系统在社交平台上表示：“卫生部门正与其他机构密切合作，持续监测事态发展。请公众保持高度警惕。
+历史从不宽恕无视教训的冒险者。日方任何形式的“再军事化”举动，不仅是对地区安全稳定的冲击，更是对自身未来最轻率的背弃 围绕年内修订“安保三文件”，日本自民党日前通过该党拟向政府提交的建议草案。草案内容激进，包括大幅增加防卫费、全面取消武器出口限制，以及大力发展进攻性军事力量等。这已非简单的政策调整，而是日本右翼势力加速挣脱战后束缚、全面推进“再军事化”的危险举措，对地区和平稳定
 
 ## 正文
 
-当地时间4月19日，欧洲知名婴幼儿食品生产商喜宝(HiPP)公司表示，在捷克和斯洛伐克发现了疑似被鼠药污染的该品牌婴幼儿罐装食品。
+历史从不宽恕无视教训的冒险者。
 
-公司声明称“在调查过程中确认，这些食品明显被人为动过手脚”。
+日方任何形式的“再军事化”举动，不仅是对地区安全稳定的冲击，更是对自身未来最轻率的背弃 围绕年内修订“安保三文件”，日本自民党日前通过该党拟向政府提交的建议草案。
 
-喜宝公司表示，出于预防措施，两国的零售商已将所有该品牌婴幼儿罐装食品从货架上撤下。
+草案内容激进，包括大幅增加防卫费、全面取消武器出口限制，以及大力发展进攻性军事力量等。
 
-捷克卫生监督系统在社交平台上表示：“卫生部门正与其他机构密切合作，持续监测事态发展。
+这已非简单的政策调整，而是日本右翼势力加速挣脱战后束缚、全面推进“再军事化”的危险举措，对地区和平稳定的潜在冲击不容小觑。
 
-请公众保持高度警惕。
+日本政府紧锣密鼓推动修订“安保三文件”，是突破战后“专守防卫”原则的关键一步。
 
-”如果有人怀疑自己购买了被污染的食品，应联系当地的卫生监督机构。
+《国家安全保障战略》《国家防卫战略》《防卫力量整备计划》三份安保文件，被认为是日本安全与防务的总纲领。
 
-此前，奥地利卫生与食品安全局通报称，身份未明的不法人员向喜宝公司发送勒索邮件，声称已向其部分产品投放鼠药。
+2022年底，日本政府通过现行版本，原计划到2027财年将防卫费提升至国内生产总值(GDP)的2%。
 
-经调查，在奥地利布尔根兰州首府艾森施塔特的一家SPAR超市发现数罐胡萝卜土豆泥食品“疑似被鼠药污染”，其容器被贴上白色贴纸、标上一个红圈。
+然而，高市早苗上台后便加快推进相关计划，将这一目标提前至2025财年完成。
 
 ## 相关推荐
 
-- 2026-06-30 09:00 - 美股深夜大反弹 特斯拉飙涨8%<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md
-- 2026-06-30 08:54 - 佐野海舟远射破门<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md
-- 2026-06-30 09:13 - 人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md
-- 2026-06-30 09:08 - 第一次对自信的力量有了实感<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md
-- 2026-06-30 09:01 - 【涤墨作战7人870】望：我从地狱杀回来了！<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md
-- 2026-06-30 09:03 - 人类...完蛋了...<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md
-- 2026-06-30 09:17 - 欧洲装一台空调有多难<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md
-- 2026-06-30 09:12 - 日本淘汰<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md
-- 2026-06-30 08:55 - 法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md
-- 2026-06-30 09:10 - 湖北云南这些涉汛信息都是假的<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md
-- 2026-06-30 09:20 - 美加墨世界杯：亚洲足球的得意与失意<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md
-- 2026-06-30 09:23 - 如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md
+- 2026-06-30 09:16 - 极端热浪席卷欧洲多国，热一热百姓让领导先凉快？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md
+- 2026-06-30 09:13 - 周冬雨多次说演不了话剧文城<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md
+- 2026-06-30 08:59 - 手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md
+- 2026-06-30 09:10 - 科学备孕男女都要上心<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md
+- 2026-06-30 09:06 - 为什么会有「念旧」的心理？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md
+- 2026-06-30 09:05 - 曝娱乐圈大部分明星失业<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md
+- 2026-06-30 08:59 - 王健林甩卖超80座万达广场<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md
+- 2026-06-30 09:21 - 巴拉圭率先破门<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md
+- 2026-06-30 09:23 - 警方介入洪明甫死亡威胁<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md
+- 2026-06-30 09:07 - 2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md
+- 2026-06-30 09:15 - 恐怖世界 第三集 埃温霍姆村<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md
+- 2026-06-30 09:21 - 请回答王牌2019<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md
+- 2026-06-30 09:23 - 董路：谁赢谁是“正路子”<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md
+- 2026-06-30 08:55 - 国务院：探索延长义务教育年限<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md
+- 2026-06-30 09:10 - 恐怖世界 第三集 埃温霍姆村<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:14 - 法总统候选人：拒绝与中国激烈对抗<br><br> | ??:http://www.share.minike.top/Article/details/40740823643.shtml
-- 2026-06-30 09:08 - 美股深夜大反弹 特斯拉飙涨8%<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/93654278965.shtml
-- 2026-06-30 09:18 - 千香<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/598427363815.shtml
-- 2026-06-30 09:12 - 日本球迷输球后集体捡垃圾<br><br> | ??:http://www.share.minike.top/Article/details/59470178.shtml
-- 2026-06-30 08:54 - FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/541648.shtml
-- 2026-06-30 08:58 - 英语考了145的人竟然教数学<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/5948594127.shtml
-- 2026-06-30 09:10 - 巴拉圭先进球了<br><br> | ??:http://www.blog.minike.top/Article/details/221348.shtml
-- 2026-06-30 09:18 - 德国4比5巴拉圭<br><br> | ??:http://www.share.minike.top/Article/details/709057388.shtml
-- 2026-06-30 09:03 - 日本球员说被绝杀非常不甘心<br><br> | ??:https://www.share.kurohicncr.top/Article/details/51344044698.shtml
-- 2026-06-30 09:23 - 领克07GT搭载超跑同源MRC悬架<br><br> | ??:http://www.blog.minike.top/Article/details/399083.shtml
-- 2026-06-30 09:00 - 收到补税提醒尽快办理 明起有滞纳金<br><br> | ??:https://www.share.minike.top/Article/details/987619.shtml
-- 2026-06-30 09:10 - 为什么会有「念旧」的心理？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/732039.shtml
-- 2026-06-30 09:21 - 被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】<br><br> | ??:http://www.blog.minike.top/Article/details/443586900.shtml
-- 2026-06-30 09:14 - 首届《哈基米歌王争霸赛》总决赛<br><br> | ??:http://www.share.minike.top/Article/details/54019456352.shtml
-- 2026-06-30 08:56 - 王楚钦说配合稍微有些陌生感<br><br> | ??:http://www.share.minike.top/Article/details/515515405602.shtml
+- 2026-06-30 09:15 - 陈小春人老了干什么也不心酸<br><br> | ??:http://www.share.kurohicncr.top/Article/details/197850510383.shtml
+- 2026-06-30 09:18 - 锐评：网红不能困在无底线逐利里<br><br> | ??:https://www.blog.minike.top/Article/details/229206922.shtml
+- 2026-06-30 09:13 - 男生180+，有腹肌是什么体验？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/21228038.shtml
+- 2026-06-30 09:00 - 我和我的家乡<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/98018.shtml
+- 2026-06-30 09:08 - 沉睡花园<br><br> | ??:http://www.blog.minike.top/Article/details/85310.shtml
+- 2026-06-30 09:05 - 董卿母亲癌症去世<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/7090975109.shtml
+- 2026-06-30 09:01 - 韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/5164068241.shtml
+- 2026-06-30 09:05 - 蜘蛛侠:平行宇宙<br><br> | ??:http://www.share.minike.top/Article/details/73104.shtml
+- 2026-06-30 09:00 - 【大鸣王潮1566】真拿你没办法<br><br> | ??:http://www.share.minike.top/Article/details/09228573896.shtml
+- 2026-06-30 08:55 - iPhone18e曝光<br><br> | ??:https://www.blog.minike.top/Article/details/9151422753.shtml
+- 2026-06-30 09:09 - MSI应援曲 如果季中成回忆<br><br> | ??:http://www.share.kurohicncr.top/Article/details/2812059.shtml
+- 2026-06-30 08:59 - 荷兰VS摩洛哥<br><br> | ??:http://www.blog.minike.top/Article/details/770905073277.shtml
+- 2026-06-30 09:18 - 世界杯巴拉圭点球淘汰德国<br><br> | ??:https://www.share.kurohicncr.top/Article/details/968106328495.shtml
+- 2026-06-30 09:15 - 2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？<br><br> | ??:https://www.share.minike.top/Article/details/20283732104.shtml
+- 2026-06-30 08:58 - 庆祝中国共产党成立105周年大会将举行<br><br> | ??:https://www.share.minike.top/Article/details/36530.shtml

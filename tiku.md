@@ -1,58 +1,61 @@
-# 广西大化瑶乡：多彩民俗欢庆“三月三”
+# 金银价格大幅回落！国有大行停办代理个人贵金属竞价交易业务
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-为啥“100%果汁”，配料表第一位是水？贪得无厌美利坚，“吃拿卡要”每一天从“谭警官”到“谭sir”：一位“交警网红”的变与不变苏林去的这所大学，太宝藏了吧！开赛前两个月已爆单 义乌点燃世界杯经济明起较强冷空气将影响我国，局地降温10℃以上创历史！11名中国选手晋级斯诺克世锦赛正赛中东战火冲击全球，中国经济开门红展现韧性一季度中国经济成绩单现五大亮点中东局势推高燃油成本 航空公
+6月24日，工商银行发布公告称，自7月24日（星期五）日终清算时起，该行停办代理上海黄金交易所个人贵金属竞价交易业务，涉及的合约品种包括Au99.99、Au100g、Au99.95、PGC30g、Au（T+D）、mAu（T+D）、Ag（T+D）、Au（T+N1）、Au（T+N2）等。 7月24日（星期五）日终清算完成后，该行将择时关闭手机银行、网上银行、网点柜面等渠道的代理个人
 
 ## 正文
 
-为啥“100%果汁”，配料表第一位是水？
+6月24日，工商银行发布公告称，自7月24日（星期五）日终清算时起，该行停办代理上海黄金交易所个人贵金属竞价交易业务，涉及的合约品种包括Au99.99、Au100g、Au99.95、PGC30g、Au（T+D）、mAu（T+D）、Ag（T+D）、Au（T+N1）、Au（T+N2）等。
 
-贪得无厌美利坚，“吃拿卡要”每一天从“谭警官”到“谭sir”：一位“交警网红”的变与不变苏林去的这所大学，太宝藏了吧！
+7月24日（星期五）日终清算完成后，该行将择时关闭手机银行、网上银行、网点柜面等渠道的代理个人竞价交易业务交易权限。
 
-开赛前两个月已爆单 义乌点燃世界杯经济明起较强冷空气将影响我国，局地降温10℃以上创历史！
+关闭后，持仓客户的平仓、卖出和提货操作权限将受到限制。
 
-11名中国选手晋级斯诺克世锦赛正赛中东战火冲击全球，中国经济开门红展现韧性一季度中国经济成绩单现五大亮点中东局势推高燃油成本 航空公司削减航班运力10小时、2400公里！
+工商银行建议存量持仓客户及时通过手机银行、网上银行、网点柜面等渠道，对所持有的各类竞价交易合约进行卖出、平仓或提货操作，并办理保证金账户剩余资金的出金。
 
-苏林再坐中国高铁，背后深意耐人寻味法国国民议会通过文物返还法案，大量流失文物能否顺利回家？
+对于无持仓、无库存、无欠款的客户保证金账户内的剩余资金，工商银行后续将统一代为办理批量出金操作。
 
-开局良好！
+6月24日，贵金属价格继续走低。
 
-一图读懂中国经济一季报亮点杀敌八百，自损八千台湾教师王孟筠：台湾同胞在两岸文化交流中增进民族归属感海丝古港、世遗土楼……人这一辈子，一定要去一趟漳州！
+现货白银盘中跌破61美元/盎司，较1月份高点回落超50%；现货黄金盘中跌破4100美元/盎司，较1月高点回落超27%。
 
-苏林当选越南国家主席后首次外访，为何选择中国？
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-30 09:13 - 明星大侦探第四季<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md
-- 2026-06-30 09:07 - 如何改变自己太负责任的性格?<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md
-- 2026-06-30 09:12 - 逃狱兄弟<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md
-- 2026-06-30 08:59 - 人民锐评：网红不能困在无底线逐利里<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md
-- 2026-06-30 09:08 - 德国巴拉圭 折磨<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md
-- 2026-06-30 09:10 - 你人生中最艰难的时候是怎么熬过来的？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md
-- 2026-06-30 09:05 - 你的妻子大喷菇—《植物娘大战僵尸》特别篇<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md
-- 2026-06-30 09:19 - “以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md
-- 2026-06-30 09:21 - 日本球迷输球后集体捡垃圾<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md
-- 2026-06-30 09:06 - 如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md
-- 2026-06-30 08:59 - 檀健次王楚然吻戏看热了<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md
-- 2026-06-30 08:58 - 大学生遇地震裹被子从5楼冲下<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md
+- 2026-06-30 09:17 - 有哪些被认为是现代才有的东西其实古代就有了？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md
+- 2026-06-30 09:21 - 如何看待武亮说大学生生活费1500就够用这一言论？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md
+- 2026-06-30 08:58 - 尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md
+- 2026-06-30 09:05 - 急先锋<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md
+- 2026-06-30 09:05 - 莫兰特转投开拓者效力<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md
+- 2026-06-30 09:00 - 王欣瑜连续4年晋级温网第二轮<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md
+- 2026-06-30 09:23 - 如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md
+- 2026-06-30 09:17 - 德国淘汰<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md
+- 2026-06-30 09:21 - 杨紫肖战余生请多指教拍立得<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md
+- 2026-06-30 09:22 - 一生一世<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md
+- 2026-06-30 09:05 - 韩国世界杯出局是主帅一个人的锅吗<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md
+- 2026-06-30 09:06 - 曝娱乐圈大部分明星失业<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md
+- 2026-06-30 08:54 - 世界杯欧洲队7战南美仅1胜<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md
+- 2026-06-30 08:56 - 齐思钧回复张月<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md
+- 2026-06-30 09:08 - 对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:07 - 巴西在进攻三区完成210脚传球<br><br> | ??:http://www.share.minike.top/Article/details/73431856.shtml
-- 2026-06-30 09:07 - 法总统候选人：拒绝与中国激烈对抗<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/512229560.shtml
-- 2026-06-30 09:21 - 苗族银饰<br><br> | ??:https://www.share.minike.top/Article/details/825465638.shtml
-- 2026-06-30 09:00 - 内马尔安慰日本球员<br><br> | ??:https://www.blog.minike.top/Article/details/55731792305.shtml
-- 2026-06-30 08:58 - 俄乌双方伤亡近180万人<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/549949.shtml
-- 2026-06-30 09:06 - 日本16强魔咒<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/3901378.shtml
-- 2026-06-30 08:55 - 世界杯：荷兰vs摩洛哥<br><br> | ??:https://www.blog.minike.top/Article/details/478878226546.shtml
-- 2026-06-30 09:18 - 我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎<br><br> | ??:https://www.share.kurohicncr.top/Article/details/479149.shtml
-- 2026-06-30 09:10 - 第3集丨“柠檬茶能换怀表？”<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/05284837.shtml
-- 2026-06-30 09:03 - 对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来<br><br> | ??:http://www.share.kurohicncr.top/Article/details/65619720.shtml
-- 2026-06-30 08:56 - 酒店推行“24小时退房”引热议<br><br> | ??:https://www.share.kurohicncr.top/Article/details/9717040119.shtml
-- 2026-06-30 09:05 - 为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/211950682.shtml
-- 2026-06-30 09:24 - 杨紫获白玉兰视后为何争议难平<br><br> | ??:https://www.blog.minike.top/Article/details/13252105452.shtml
-- 2026-06-30 08:56 - 亚洲球队全部告别世界杯<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/33593340975.shtml
-- 2026-06-30 08:59 - 上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶<br><br> | ??:http://www.share.kurohicncr.top/Article/details/488215.shtml
+- 2026-06-30 09:11 - 金牌调解<br><br> | ??:https://www.blog.minike.top/Article/details/387272779.shtml
+- 2026-06-30 09:14 - 德国队连续三届世界杯无缘16强<br><br> | ??:http://www.blog.minike.top/Article/details/804713918543.shtml
+- 2026-06-30 09:11 - 媒体评泰山建135公里刀片刺绳隔离网<br><br> | ??:https://www.share.kurohicncr.top/Article/details/2863295676.shtml
+- 2026-06-30 09:05 - 【Reaction】女生最少的5款游戏<br><br> | ??:https://www.share.kurohicncr.top/Article/details/01090031587.shtml
+- 2026-06-30 09:00 - DeepSeek启动成立来最大规模招聘<br><br> | ??:https://www.blog.minike.top/Article/details/279474058.shtml
+- 2026-06-30 09:23 - 点球大战和诺伊尔都救不回德国队<br><br> | ??:https://www.share.minike.top/Article/details/47494310486.shtml
+- 2026-06-30 09:11 - 极限挑战第一季<br><br> | ??:https://www.blog.minike.top/Article/details/30724846588.shtml
+- 2026-06-30 09:07 - 德国4比5巴拉圭<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/862313.shtml
+- 2026-06-30 09:06 - 世界杯<br><br> | ??:https://www.share.kurohicncr.top/Article/details/731646.shtml
+- 2026-06-30 09:07 - 千与千寻<br><br> | ??:https://www.blog.minike.top/Article/details/932997.shtml
+- 2026-06-30 08:59 - 明星大侦探第四季<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/379467.shtml
+- 2026-06-30 09:11 - 吴易昺不敌德约科维奇 止步温网首轮<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/251857.shtml
+- 2026-06-30 09:13 - 穆祉丞回应获年度人气艺人<br><br> | ??:http://www.share.minike.top/Article/details/7032772099.shtml
+- 2026-06-30 08:57 - 德国队连续三届世界杯无缘16强<br><br> | ??:http://www.share.minike.top/Article/details/67782282.shtml
+- 2026-06-30 09:06 - 【涤墨作战7人870】望：我从地狱杀回来了！<br><br> | ??:http://www.share.minike.top/Article/details/8417292.shtml

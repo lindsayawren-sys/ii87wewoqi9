@@ -1,60 +1,58 @@
-# 罚没超670万！华安财险“空降”临时负责人，李云焕“负荆”请辞？
+# 银川至福州、南昌间将首次实现列车直达
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 来源：燕梳师院 文|王书望 1996年，春风浩荡，“九五”计划徐徐展开。乘此东风，华安财险应运而生，成为金融体制改革的“试验田”之一，寄托着一代人对金融创新的期待。 然而，三十年弹指一挥间，这家老牌险企逐渐掉队，与同期“闯”进来的弄潮儿已拉开天壤之别。如今，董事长空缺数年、合规失守罚单不断、大量股权异常……眼下，总经理李云焕的请
+中新网银川6月24日电 (记者 杨迪)记者24日从宁夏铁路部门了解到，7月1日零时起，全国铁路将迎来2026年三季度列车运行图调整，此次调整后，银川至福州、南昌间将首次实现列车直达，宁夏与福建当地之间的出行更加便利。 调图后，兰州铁路局银川车站部分旅客列车有新变化。在动车组列车方面，新增银川至汉口日常线动车组列车1对G3919/8 G3917/20次；新增高峰线动车组列车3对：
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 来源：燕梳师院 文|王书望 1996年，春风浩荡，“九五”计划徐徐展开。
+中新网银川6月24日电 (记者 杨迪)记者24日从宁夏铁路部门了解到，7月1日零时起，全国铁路将迎来2026年三季度列车运行图调整，此次调整后，银川至福州、南昌间将首次实现列车直达，宁夏与福建当地之间的出行更加便利。
 
-乘此东风，华安财险应运而生，成为金融体制改革的“试验田”之一，寄托着一代人对金融创新的期待。
+调图后，兰州铁路局银川车站部分旅客列车有新变化。
 
-然而，三十年弹指一挥间，这家老牌险企逐渐掉队，与同期“闯”进来的弄潮儿已拉开天壤之别。
+在动车组列车方面，新增银川至汉口日常线动车组列车1对G3919/8 G3917/20次；新增高峰线动车组列车3对：由呼和浩特东至西安北经由银川的D4193/2 D4191/4次1对；银川至兰州西C9877/6 C9875/8次1对；西安北至庆阳D4103/4次1对。
 
-如今，董事长空缺数年、合规失守罚单不断、大量股权异常……眼下，总经理李云焕的请辞，为公司的未来再添一层迷雾。
+变更运行径路列车方面，银川至广州南G1168/5/8、G1167/6/7次列车调整运行径路，武汉至银川段改经武孝城际线、武西高速线、银西高铁、银兰高铁运行。
 
-01 “空降”临时负责人 4月16日，华安财险发布一则临时信息披露公告，称李云焕因个人原因辞去公司总经理职务，根据公司第九届董事会第十次临时会议决议，董事会指定CAI ZHENGYUAN先生为公司临时负责人，指定期不超过六个月。
+普速旅客列车方面，银川至长沙的K1087/6/7 K1088/5/8次列车运行区段调整为银川至福州，途经宁夏、甘肃、陕西、河南、湖北、江西、福建七省(区)。
 
-而就在前一日，公司已为此次人事变动埋下了伏笔。
+此外，随着西安东站正式投入使用，部分原在西安北站始发终到的动车组列车延长至西安东站。
 
-4月15日，一则关于变更境外投资业务风险责任人的公告称，副总经理CAI ZHENGYUAN（蔡政元）为该司境外投资业务的行政责任人，李云焕不再担任境外投资业务的行政责任人。
+具体涉及5对列车：呼和浩特东至西安北经由银川的D1179/8 D1177/80次1对、西安北至银川的D3671/4 D3673/2次、D3517/20 D3539/8次、D3591/4 D3593/2次、D3529/32 D3551/0次4对。
 
-在公告的履历中，我们发现，CAI ZHENGYUAN于2026年4月至今任华安财险临时负责人，按照惯例，后续或将出任华安财险总经理。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 09:03 - 杨紫大银幕成绩单<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md
-- 2026-06-30 08:59 - 德国 传控<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md
-- 2026-06-30 09:12 - 沉睡花园<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md
-- 2026-06-30 08:54 - 美股收盘 热门中概股普涨<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md
-- 2026-06-30 09:16 - 巴拉圭门将<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md
-- 2026-06-30 09:06 - 你人生中最艰难的时候是怎么熬过来的？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md
-- 2026-06-30 09:03 - 疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md
-- 2026-06-30 08:54 - 库尼亚赛后伸五指嘲讽日本<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md
-- 2026-06-30 08:59 - 这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md
-- 2026-06-30 09:16 - 安切洛蒂 换人<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md
-- 2026-06-30 08:56 - 杨紫肖战余生请多指教拍立得<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md
-- 2026-06-30 08:58 - Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md
-- 2026-06-30 08:57 - 媒体：手机测评该挤挤水分了<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md
-- 2026-06-30 09:21 - 恋与深空<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md
+- 2026-06-30 09:05 - 恋与深空道歉声明<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md
+- 2026-06-30 08:58 - 中国代表在联合国点名日本所犯罪行<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md
+- 2026-06-30 09:05 - F1奥地利站赛后复盘<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md
+- 2026-06-30 09:17 - 毕业以后，你最怀念的大学记忆是什么？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md
+- 2026-06-30 09:19 - 毕业以后，你最怀念的大学记忆是什么？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md
+- 2026-06-30 09:15 - 德国巴拉圭加时<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md
+- 2026-06-30 08:55 - 千万不要随便扣肚脐<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md
+- 2026-06-30 09:21 - 时光音乐会<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md
+- 2026-06-30 09:09 - 穆祉丞回应获年度人气艺人<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md
+- 2026-06-30 08:59 - 感动全网的699分女生想报考清华<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md
+- 2026-06-30 09:23 - 教育部披露：高考生篡改7名同学志愿<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md
+- 2026-06-30 09:20 - 我和我的家乡<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:05 - 国务院：稳步推进研究生考试招生改革<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/732011045221.shtml
-- 2026-06-30 09:21 - 球评巴西绝杀逆转日本<br><br> | ??:http://www.blog.minike.top/Article/details/664069171.shtml
-- 2026-06-30 09:01 - 刘宇宁是去进货了吗<br><br> | ??:https://www.blog.minike.top/Article/details/93557.shtml
-- 2026-06-30 09:09 - 开电动汽车真的很省钱吗？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/7532847.shtml
-- 2026-06-30 08:56 - 你这一辈子有没有为进山姆拼过命？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/9807641.shtml
-- 2026-06-30 09:04 - iPhoneUltra黑色机模<br><br> | ??:https://www.share.minike.top/Article/details/358614600800.shtml
-- 2026-06-30 09:14 - 杨某诋毁袁隆平院士科研成果被刑拘<br><br> | ??:http://www.share.kurohicncr.top/Article/details/83767.shtml
-- 2026-06-30 09:06 - 恐怖世界 第三集 埃温霍姆村<br><br> | ??:https://www.blog.minike.top/Article/details/8722024073.shtml
-- 2026-06-30 09:06 - 如何评价杨紫白玉兰获奖<br><br> | ??:http://www.share.minike.top/Article/details/5034381.shtml
-- 2026-06-30 09:00 - 第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/05510699595.shtml
-- 2026-06-30 08:54 - 恋与深空<br><br> | ??:https://www.blog.minike.top/Article/details/50733797330.shtml
-- 2026-06-30 09:16 - 曝iPhone18Pro机密文件现身暗网<br><br> | ??:https://www.blog.minike.top/Article/details/3316567.shtml
-- 2026-06-30 09:13 - 日本球员说被绝杀非常不甘心<br><br> | ??:https://www.share.minike.top/Article/details/90706.shtml
-- 2026-06-30 09:23 - 【Reaction】女生最少的5款游戏<br><br> | ??:https://www.share.minike.top/Article/details/686207.shtml
-- 2026-06-30 09:04 - 2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？<br><br> | ??:http://www.blog.minike.top/Article/details/7385075.shtml
+- 2026-06-30 09:07 - 恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？<br><br> | ??:http://www.share.minike.top/Article/details/29158.shtml
+- 2026-06-30 09:11 - 《恋与深空》被指触碰民族伤痛红线<br><br> | ??:https://www.blog.minike.top/Article/details/17040341329.shtml
+- 2026-06-30 08:56 - 2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/381546936.shtml
+- 2026-06-30 09:18 - 一直以为方便面汤是要倒掉的<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/8223243280.shtml
+- 2026-06-30 08:56 - GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？<br><br> | ??:http://www.share.minike.top/Article/details/24749030.shtml
+- 2026-06-30 08:56 - 荀彧和曹操反目成仇的根本原因是什么？<br><br> | ??:https://www.blog.minike.top/Article/details/7602797577.shtml
+- 2026-06-30 08:54 - 郑钦文温网首轮出局<br><br> | ??:https://www.blog.minike.top/Article/details/191403283.shtml
+- 2026-06-30 08:58 - 爱直接对嘴喝饮料的人天塌了<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/15680130.shtml
+- 2026-06-30 09:23 - 荷兰vs摩洛哥<br><br> | ??:https://www.blog.minike.top/Article/details/866310099.shtml
+- 2026-06-30 09:06 - 【大鸣王潮1566】真拿你没办法<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/255278.shtml
+- 2026-06-30 09:01 - 开电动汽车真的很省钱吗？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/33271296165.shtml
+- 2026-06-30 09:08 - 王曼昱被突如其来的话筒逗笑了<br><br> | ??:https://www.share.minike.top/Article/details/36204122.shtml
+- 2026-06-30 09:07 - 如何把斧兵改造成精英怪？提高攻速移速！！！<br><br> | ??:http://www.blog.minike.top/Article/details/17435568210.shtml
+- 2026-06-30 09:03 - 被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/832259882610.shtml
+- 2026-06-30 08:54 - 苗族银饰<br><br> | ??:https://www.share.minike.top/Article/details/25931268639.shtml

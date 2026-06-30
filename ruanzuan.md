@@ -1,49 +1,53 @@
-# 法国通过文物归还法案 专家：促进文物追索返还国际新秩序的建立
+# 特朗普政府寻求6.72亿美元用于移除伊朗核材料
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月17日 18:44 来源：中国新闻网 2026年4月13日，法国国民议会以170票全票通过《关于归还因非法占有而被剥夺的国家文化财产的法案》，打破“公共藏品不可转让”铁律。4月16日，中国政法大学教授、中国国际私法研究会副会长霍政欣在接受中新社采访时表示，这是文物追索返还领域具有里程碑意义的立法突破，有望推动更多国家在此领域采取立法行动。 记者 刘超
+一名白宫官员称，特朗普政府正寻求6.72亿美元的资金，用于移除伊朗核材料、开展核查与验证工作以及其他防扩散活动。 特朗普政府寻求的这笔资金是800亿美元追加拨款申请的一部分。 一名白宫官员表示，这笔资金将用于支持移除和销毁伊朗的核材料，包括高浓缩铀。 这笔资金还将用于美国在伊朗境内的核查活动，并支持国际原子能机构（IAEA）的检查工作。责任编辑：李桐
 
 ## 正文
 
-发布时间：2026年04月17日 18:44 来源：中国新闻网 2026年4月13日，法国国民议会以170票全票通过《关于归还因非法占有而被剥夺的国家文化财产的法案》，打破“公共藏品不可转让”铁律。
+一名白宫官员称，特朗普政府正寻求6.72亿美元的资金，用于移除伊朗核材料、开展核查与验证工作以及其他防扩散活动。
 
-4月16日，中国政法大学教授、中国国际私法研究会副会长霍政欣在接受中新社采访时表示，这是文物追索返还领域具有里程碑意义的立法突破，有望推动更多国家在此领域采取立法行动。
+特朗普政府寻求的这笔资金是800亿美元追加拨款申请的一部分。
 
-记者 刘超 北京报道 责任编辑：【罗攀】
+一名白宫官员表示，这笔资金将用于支持移除和销毁伊朗的核材料，包括高浓缩铀。
+
+这笔资金还将用于美国在伊朗境内的核查活动，并支持国际原子能机构（IAEA）的检查工作。
+
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-30 09:12 - 点球大战和诺伊尔都救不回德国队<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md
-- 2026-06-30 08:54 - 美股深夜大反弹 特斯拉飙涨8%<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md
-- 2026-06-30 09:21 - 任素汐舞台上唱《王招君》<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md
-- 2026-06-30 09:02 - 网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md
-- 2026-06-30 09:15 - 杨紫肖战余生请多指教拍立得<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md
-- 2026-06-30 09:06 - 荷兰VS摩洛哥<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md
-- 2026-06-30 09:10 - 女子遭家暴逃跑致丈夫身亡二审细节<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md
-- 2026-06-30 09:20 - 警方介入洪明甫死亡威胁<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md
-- 2026-06-30 08:56 - 日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md
-- 2026-06-30 09:15 - 如何改变自己太负责任的性格?<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md
-- 2026-06-30 09:17 - 毕业以后，你最怀念的大学记忆是什么？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md
-- 2026-06-30 08:57 - 李准基参加文彩元婚礼<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md
-- 2026-06-30 09:20 - 金牌调解<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md
+- 2026-06-30 09:07 - 男子诋毁袁隆平科研成果被刑拘<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md
+- 2026-06-30 09:05 - 有人见过武则天的画像吗，非常好奇？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md
+- 2026-06-30 09:05 - 《我落泪情绪零碎》<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md
+- 2026-06-30 09:10 - 如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md
+- 2026-06-30 09:05 - hanser X 赖美云《室内系的Track Maker》<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md
+- 2026-06-30 09:11 - 德国vs巴拉圭<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md
+- 2026-06-30 09:12 - 起风了<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md
+- 2026-06-30 09:00 - 世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md
+- 2026-06-30 09:15 - "超算小姐，这一次，我一定要带你出去..."<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md
+- 2026-06-30 09:09 - 7月1日起 一批新规即将落地<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md
+- 2026-06-30 09:23 - 《赛博朋克：边缘行者 2》｜官方预告片<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md
+- 2026-06-30 09:18 - 普京为何将俄乌谈判时间表与伊朗挂钩<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md
+- 2026-06-30 08:58 - 王楚钦说配合稍微有些陌生感<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:17 - 首届《哈基米歌王争霸赛》总决赛<br><br> | ??:https://www.share.kurohicncr.top/Article/details/877749767623.shtml
-- 2026-06-30 09:03 - 如何把斧兵改造成精英怪？提高攻速移速！！！<br><br> | ??:https://www.blog.minike.top/Article/details/7807067363.shtml
-- 2026-06-30 09:16 - 五哈和他们的朋友<br><br> | ??:https://www.share.minike.top/Article/details/8001986756.shtml
-- 2026-06-30 09:06 - 歌剧老师锐评歌手第6期<br><br> | ??:http://www.share.kurohicncr.top/Article/details/84262636.shtml
-- 2026-06-30 09:23 - 法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？<br><br> | ??:https://www.blog.minike.top/Article/details/84713.shtml
-- 2026-06-30 09:09 - 极端热浪席卷欧洲多国，热一热百姓让领导先凉快？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/0108305.shtml
-- 2026-06-30 09:19 - 2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？<br><br> | ??:http://www.blog.minike.top/Article/details/9781323745.shtml
-- 2026-06-30 08:55 - 啥比桑吉尔夫排位练蓝防（最不抽象的一集）<br><br> | ??:https://www.share.kurohicncr.top/Article/details/5872603447.shtml
-- 2026-06-30 09:22 - 有人见过武则天的画像吗，非常好奇？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/260084.shtml
-- 2026-06-30 09:02 - 博世们还在犹豫 美的们已经卖断货<br><br> | ??:http://www.share.kurohicncr.top/Article/details/175738799.shtml
-- 2026-06-30 09:01 - 超神人辉夜姬 第二集<br><br> | ??:https://www.share.kurohicncr.top/Article/details/88038755.shtml
-- 2026-06-30 08:57 - 巴西在进攻三区完成210脚传球<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/5360688544.shtml
-- 2026-06-30 09:01 - 道友？你来真的啊？【凡人官方二创大会】<br><br> | ??:http://www.share.kurohicncr.top/Article/details/72083.shtml
-- 2026-06-30 08:55 - 日本队5进世界杯淘汰赛0胜<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/25560.shtml
-- 2026-06-30 09:12 - 湖北云南这些涉汛信息都是假的<br><br> | ??:https://www.share.kurohicncr.top/Article/details/444816.shtml
+- 2026-06-30 08:59 - 致敬！中国首批缉毒警已全体退休<br><br> | ??:http://www.share.minike.top/Article/details/6499485.shtml
+- 2026-06-30 09:20 - 这一刀 会很帅<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/5040168770.shtml
+- 2026-06-30 09:10 - 巴西绝杀<br><br> | ??:http://www.blog.minike.top/Article/details/56234041176.shtml
+- 2026-06-30 09:14 - 中国对日本再出重拳<br><br> | ??:http://www.blog.minike.top/Article/details/743236117.shtml
+- 2026-06-30 09:07 - 莫兰特被交易到开拓者<br><br> | ??:http://www.share.minike.top/Article/details/228906.shtml
+- 2026-06-30 08:58 - 杨紫学位证上就是杨紫<br><br> | ??:https://www.share.kurohicncr.top/Article/details/18755849964.shtml
+- 2026-06-30 09:03 - 点球大战 残酷<br><br> | ??:https://www.blog.minike.top/Article/details/6342945.shtml
+- 2026-06-30 09:11 - 杨紫学位证上就是杨紫<br><br> | ??:http://www.blog.minike.top/Article/details/343528.shtml
+- 2026-06-30 09:07 - 人类...完蛋了...<br><br> | ??:https://www.share.kurohicncr.top/Article/details/56776747.shtml
+- 2026-06-30 09:17 - 你人生中最艰难的时候是怎么熬过来的？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/91072.shtml
+- 2026-06-30 09:12 - 荷兰VS摩洛哥<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/1727363.shtml
+- 2026-06-30 08:58 - 发明linux、python、redis、nginx、sqlite的人算不算天才？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/21841130543.shtml
+- 2026-06-30 09:16 - 板面：为什么那么多人爱吃？？！<br><br> | ??:https://www.share.kurohicncr.top/Article/details/621569962250.shtml
+- 2026-06-30 09:01 - 【涤墨作战7人870】望：我从地狱杀回来了！<br><br> | ??:http://www.share.kurohicncr.top/Article/details/0542066.shtml
+- 2026-06-30 09:00 - 女儿从清华毕业 爸爸晒出17年对比照<br><br> | ??:http://www.share.kurohicncr.top/Article/details/21381.shtml

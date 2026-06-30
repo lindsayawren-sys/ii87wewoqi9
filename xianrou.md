@@ -1,56 +1,56 @@
-# 德国将与行业代表商讨航空燃油供应问题
+# 调用量两年增长超千倍 词元经济重塑金融服务模式
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-因重要石油运输航道霍尔木兹海峡出现航运中断，德国经济部与交通部已邀请航空业代表，共同商讨航空燃油供应事宜。 德国经济部一名发言人周六表示，政府正严肃对待行业关切，并补充称，目前德国国内不存在航空燃油短缺风险。 经济部与交通部计划于周一与燃油贸易商、机场及航空公司代表举行会谈。 德国财政部长拉斯・克林贝里表示，必须采取预防措施以保障航空燃油供应安全。 欧洲各航空公司已于周二敦促欧
+来源：中国银行保险报 编者按： 当下，词元（Token）成为科技圈的流行语。随着词元调用规模的持续快速增长，围绕词元计量、调用、核算和价值转化而形成的一种经济新形态——“词元经济”正加速成形。词元经济能为金融行业带来哪些质的变化？在金融创新过程中将发挥哪些作用？本期专题将进行深入探讨。 □本报记者 苏洁 当下，词元（Token）成为热词，其是人工智能大模型处理文本、代码、图像描
 
 ## 正文
 
-因重要石油运输航道霍尔木兹海峡出现航运中断，德国经济部与交通部已邀请航空业代表，共同商讨航空燃油供应事宜。
+来源：中国银行保险报 编者按： 当下，词元（Token）成为科技圈的流行语。
 
-德国经济部一名发言人周六表示，政府正严肃对待行业关切，并补充称，目前德国国内不存在航空燃油短缺风险。
+随着词元调用规模的持续快速增长，围绕词元计量、调用、核算和价值转化而形成的一种经济新形态——“词元经济”正加速成形。
 
-经济部与交通部计划于周一与燃油贸易商、机场及航空公司代表举行会谈。
+词元经济能为金融行业带来哪些质的变化？
 
-德国财政部长拉斯・克林贝里表示，必须采取预防措施以保障航空燃油供应安全。
+在金融创新过程中将发挥哪些作用？
 
-欧洲各航空公司已于周二敦促欧盟采取紧急措施，应对伊朗冲突带来的后续影响，例如对航空燃油供应情况进行监测。
+本期专题将进行深入探讨。
 
-德国已参与国际战略石油储备投放行动。
+□本报记者 苏洁 当下，词元（Token）成为热词，其是人工智能大模型处理文本、代码、图像描述等信息的基本单元，如一个汉字、一个标点、一个词汇片段。
 
-据经济部介绍，德国的投放份额为4.9%，相当于264.7万吨，其中包含5万吨航空燃油。
+2024年初我国日均词元调用量为1000亿，至2026年3月已超过140万亿，两年增长超千倍。
 
-责任编辑：李桐
+词元带动词元经济发展，从本质上看，词元经济的意义不仅在于技术计量层面，更在于为人工智能服务的价值衡量、资源配置和规模化应用等层面显现出重要现实价值。
 
 ## 相关推荐
 
-- 2026-06-30 09:21 - 2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md
-- 2026-06-30 09:13 - 【Reaction】女生最少的5款游戏<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md
-- 2026-06-30 09:06 - 曝詹姆斯即将与勇士会面<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md
-- 2026-06-30 09:16 - 日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md
-- 2026-06-30 09:21 - 王楚钦孙颖莎晋级混双八强<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md
-- 2026-06-30 08:59 - 消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md
-- 2026-06-30 09:22 - 檀健次王楚然吻戏看热了<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md
-- 2026-06-30 09:07 - 如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md
-- 2026-06-30 08:55 - 内马尔中场休息积极鼓励队友<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md
-- 2026-06-30 08:55 - 找到了10年前跪舔b站的视频<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md
+- 2026-06-30 09:13 - 爆冷出局！德国点球大战不敌巴拉圭<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md
+- 2026-06-30 09:15 - 斗破苍穹<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md
+- 2026-06-30 09:06 - 被巴西绝杀后 日球员田中碧跪地痛哭<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md
+- 2026-06-30 09:06 - 如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md
+- 2026-06-30 09:05 - 勇士续约波尔津吉斯<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md
+- 2026-06-30 09:11 - 杨紫学位证上就是杨紫<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md
+- 2026-06-30 09:16 - 男子诋毁袁隆平科研成果被刑拘<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md
+- 2026-06-30 09:12 - 张月收到黄灿灿辣货两眼发光<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md
+- 2026-06-30 08:59 - 三星投资计划<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md
+- 2026-06-30 09:21 - 日本球迷被强行披上巴西国旗<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:04 - 美加墨世界杯：亚洲足球的得意与失意<br><br> | ??:http://www.blog.minike.top/Article/details/99009.shtml
-- 2026-06-30 09:01 - 德国巴拉圭进入点球大战<br><br> | ??:http://www.blog.minike.top/Article/details/38972.shtml
-- 2026-06-30 09:23 - 日本队被绝杀后鞠躬致谢观众<br><br> | ??:http://www.share.minike.top/Article/details/664504108460.shtml
-- 2026-06-30 08:59 - 外国游客开始涌入中国农村<br><br> | ??:http://www.share.minike.top/Article/details/12934081178.shtml
-- 2026-06-30 09:17 - 武磊：巴西队赢的并不轻松<br><br> | ??:http://www.share.minike.top/Article/details/342043368.shtml
-- 2026-06-30 09:09 - 世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/55650423351.shtml
-- 2026-06-30 09:14 - 花少8要去世界杯举办国<br><br> | ??:https://www.share.kurohicncr.top/Article/details/83283.shtml
-- 2026-06-30 09:04 - DeepSeek启动成立来最大规模招聘<br><br> | ??:https://www.blog.minike.top/Article/details/573054.shtml
-- 2026-06-30 09:06 - 有哪些值得一提的生活窍门？<br><br> | ??:https://www.blog.minike.top/Article/details/652468856.shtml
-- 2026-06-30 09:20 - 女儿从清华毕业 爸爸晒出17年对比照<br><br> | ??:https://www.share.kurohicncr.top/Article/details/4491616.shtml
-- 2026-06-30 09:02 - 马耳他著名拱门坍塌致一中国男子身亡<br><br> | ??:https://www.share.minike.top/Article/details/84977.shtml
-- 2026-06-30 09:16 - 张雪的一句“是我们”引发岛内热议<br><br> | ??:http://www.share.minike.top/Article/details/625570205212.shtml
-- 2026-06-30 09:21 - 湖北云南这些涉汛信息都是假的<br><br> | ??:http://www.share.minike.top/Article/details/29857279766.shtml
-- 2026-06-30 08:56 - 收到补税提醒尽快办理 明起有滞纳金<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/5760713763.shtml
-- 2026-06-30 09:06 - 王菲谢霆锋十指紧扣好甜<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/5042032.shtml
+- 2026-06-30 09:20 - “错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】<br><br> | ??:https://www.share.kurohicncr.top/Article/details/47770287.shtml
+- 2026-06-30 08:59 - 如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？<br><br> | ??:https://www.blog.minike.top/Article/details/207467113.shtml
+- 2026-06-30 09:13 - 三星投资计划<br><br> | ??:https://www.blog.minike.top/Article/details/23808.shtml
+- 2026-06-30 09:09 - 输球后日本球迷被强行披上巴西国旗<br><br> | ??:https://www.share.kurohicncr.top/Article/details/61870962.shtml
+- 2026-06-30 09:18 - 【Reaction】女生最少的5款游戏<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/891687025.shtml
+- 2026-06-30 09:16 - 巴西2比1日本<br><br> | ??:http://www.share.minike.top/Article/details/84816461.shtml
+- 2026-06-30 08:55 - 城市规划有可能成为「屎山代码」吗？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/829570871.shtml
+- 2026-06-30 09:06 - 你这一辈子有没有为进山姆拼过命？<br><br> | ??:https://www.blog.minike.top/Article/details/307776.shtml
+- 2026-06-30 09:16 - 一生一世<br><br> | ??:https://www.blog.minike.top/Article/details/826747451100.shtml
+- 2026-06-30 09:05 - 为什么很多企业推行“扁平化管理”后，效率反而下降了？<br><br> | ??:http://www.share.minike.top/Article/details/63204881.shtml
+- 2026-06-30 09:07 - 五哈和他们的朋友<br><br> | ??:https://www.blog.minike.top/Article/details/934581.shtml
+- 2026-06-30 09:19 - 中国新一轮出口管制直指日本命脉<br><br> | ??:http://www.share.minike.top/Article/details/62819.shtml
+- 2026-06-30 08:59 - 高考结束，该不该外出打工体验？<br><br> | ??:https://www.blog.minike.top/Article/details/090999.shtml
+- 2026-06-30 09:12 - 警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？<br><br> | ??:https://www.blog.minike.top/Article/details/565754831573.shtml
+- 2026-06-30 09:13 - 这种关系可能正在悄悄“催老”你<br><br> | ??:http://www.share.kurohicncr.top/Article/details/40982.shtml

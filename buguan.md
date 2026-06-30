@@ -1,52 +1,59 @@
-# 三星SDI与梅赛德斯-奔驰签署首份电动汽车电池供应协议
+# 韩国Foodle创始人兼CEO ChaeYoung Youn：让环保选择变得更美、更自然
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-韩国电池制造商三星SDI周一表示，已与梅赛德斯-奔驰签署一份多年期协议，为其电动汽车供应电池，这是该公司与这家汽车制造商达成的首笔电动汽车电池供应交易。 三星SDI在一份声明中称，这批电池将采用高镍三元（镍、钴、锰）材料体系，为梅赛德斯-奔驰下一代电动汽车提供动力。 声明称，梅赛德斯-奔驰计划将该批电池用于未来推出的紧凑型和中型电动SUV及轿跑车型。 三星SDI并未披露此次协议
+专题：2026第十七届夏季达沃斯论坛 6月25日消息，世界经济论坛第十七届新领军者年会（2026大连夏季达沃斯论坛）今日在大连举行。来自韩国首尔的世界经济论坛全球杰出青年（Global Shaper）、Foodle创始人兼CEO ChaeYoung Youn在面向新浪财经时表示，可持续消费不应通过强制消费者来实现，而应通过更具吸引力的设计，让环保行为自然而然地融入消费者的日常生
 
 ## 正文
 
-韩国电池制造商三星SDI周一表示，已与梅赛德斯-奔驰签署一份多年期协议，为其电动汽车供应电池，这是该公司与这家汽车制造商达成的首笔电动汽车电池供应交易。
+专题：2026第十七届夏季达沃斯论坛 6月25日消息，世界经济论坛第十七届新领军者年会（2026大连夏季达沃斯论坛）今日在大连举行。
 
-三星SDI在一份声明中称，这批电池将采用高镍三元（镍、钴、锰）材料体系，为梅赛德斯-奔驰下一代电动汽车提供动力。
+来自韩国首尔的世界经济论坛全球杰出青年（Global Shaper）、Foodle创始人兼CEO ChaeYoung Youn在面向新浪财经时表示，可持续消费不应通过强制消费者来实现，而应通过更具吸引力的设计，让环保行为自然而然地融入消费者的日常生活。
 
-声明称，梅赛德斯-奔驰计划将该批电池用于未来推出的紧凑型和中型电动SUV及轿跑车型。
+Youn介绍，Foodle是一家以工业设计驱动的社会企业，通过开发可重复使用的餐具、水杯等产品，帮助消费者在日常场景中做出更可持续的选择。
 
-三星SDI并未披露此次协议的交易规模。
+Foodle与韩国化工企业SK化学建立了合作关系，采用其开发的环保材料“Ecozen”。
 
-责任编辑：李肇孚
+该材料由甜菜和玉米等植物基原料混合制成，安全可靠，可应用于婴儿餐具，同时具备高透明度和高强度，外观类似玻璃却不易摔碎，尤其适合户外用餐场景。
+
+作为年轻创业者，Youn认为，年轻一代创业者与传统企业的区别在于，将社会效益与经济效益从一开始就融为一体，而非先赚钱再回馈社会。
+
+“我尝试用设计让商业模式本身帮助社会变得更好——而不是把这个问题甩给下一代。
+
+”他说。
 
 ## 相关推荐
 
-- 2026-06-30 09:18 - 点球大战和诺伊尔都救不回德国队<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md
-- 2026-06-30 09:04 - 热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md
-- 2026-06-30 09:23 - 泰山景区建135公里刀片刺绳隔离网<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md
-- 2026-06-30 09:07 - 小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md
-- 2026-06-30 09:00 - 有人见过武则天的画像吗，非常好奇？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md
-- 2026-06-30 09:23 - 租房时你会更看重「住得舒服」，还是「每天通勤更方便」？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md
-- 2026-06-30 09:06 - 男子诋毁袁隆平科研成果被刑拘<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md
-- 2026-06-30 08:54 - 小娘惹<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md
-- 2026-06-30 09:10 - 啊啊啊<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md
-- 2026-06-30 09:04 - 【硬核拆解】汽车人到底离我们有多远？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md
-- 2026-06-30 09:02 - 发明linux、python、redis、nginx、sqlite的人算不算天才？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md
-- 2026-06-30 09:19 - 爱很美味<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md
+- 2026-06-30 09:19 - 千香<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md
+- 2026-06-30 09:10 - 四川宜宾地震为何震感明显<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md
+- 2026-06-30 09:12 - 如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md
+- 2026-06-30 09:19 - 曝娱乐圈大部分明星失业<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md
+- 2026-06-30 08:55 - 金鹰奖视后提名预测<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md
+- 2026-06-30 09:16 - 美股深夜大反弹 特斯拉飙涨8%<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md
+- 2026-06-30 08:58 - 巴拉圭进球<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md
+- 2026-06-30 09:07 - 宜宾地震食客避难后折返 无人逃单<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md
+- 2026-06-30 09:13 - 金刚川<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md
+- 2026-06-30 08:57 - 董卿父亲报纸上发文悼念亡妻<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md
+- 2026-06-30 09:10 - 不开心就去看三年前的购物订单<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md
+- 2026-06-30 09:10 - 世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md
+- 2026-06-30 08:58 - 未来五年，教育强国这样建设<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:05 - 莫兰特转投开拓者效力<br><br> | ??:http://www.share.minike.top/Article/details/8286511.shtml
-- 2026-06-30 09:08 - 内马尔中场休息积极鼓励队友<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/663403.shtml
-- 2026-06-30 09:20 - 德国罚丢3粒点球<br><br> | ??:https://www.share.minike.top/Article/details/17767.shtml
-- 2026-06-30 09:10 - 世界杯名画巴拉圭钢铁防线<br><br> | ??:http://www.share.kurohicncr.top/Article/details/8905529233.shtml
-- 2026-06-30 09:23 - 人民锐评：网红不能困在无底线逐利里<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/79191907316.shtml
-- 2026-06-30 09:02 - 女儿从清华毕业 爸爸晒出17年对比照<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/4548293482.shtml
-- 2026-06-30 09:19 - 日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？<br><br> | ??:https://www.blog.minike.top/Article/details/757212.shtml
-- 2026-06-30 09:23 - 人民锐评网红诋毁袁隆平造谣企业家<br><br> | ??:https://www.blog.minike.top/Article/details/65030042.shtml
-- 2026-06-30 09:23 - 日本遭读秒绝杀 森保一：我水平不够<br><br> | ??:http://www.share.minike.top/Article/details/269835613.shtml
-- 2026-06-30 09:17 - 陈幸同晋级WTT美国大满贯女单32强<br><br> | ??:http://www.blog.minike.top/Article/details/83342.shtml
-- 2026-06-30 09:17 - 庆祝中国共产党成立105周年大会将举行<br><br> | ??:https://www.blog.minike.top/Article/details/93587.shtml
-- 2026-06-30 08:54 - 如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？<br><br> | ??:http://www.blog.minike.top/Article/details/19743216.shtml
-- 2026-06-30 09:18 - 武磊：巴西队赢的并不轻松<br><br> | ??:http://www.share.minike.top/Article/details/14123631938.shtml
-- 2026-06-30 08:57 - 杨紫被质疑未使用原名纯属误解<br><br> | ??:https://www.share.minike.top/Article/details/2691799.shtml
-- 2026-06-30 09:22 - 卖菜老人获博主帮助后遇车祸去世<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/37279.shtml
+- 2026-06-30 09:17 - 手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】<br><br> | ??:http://www.blog.minike.top/Article/details/6798888330.shtml
+- 2026-06-30 09:07 - 如何看待武亮说大学生生活费1500就够用这一言论？<br><br> | ??:http://www.blog.minike.top/Article/details/86549984.shtml
+- 2026-06-30 09:11 - 德国队回应爆冷淘汰<br><br> | ??:http://www.blog.minike.top/Article/details/448238597617.shtml
+- 2026-06-30 09:18 - 领克900大型SUV值得购买吗?<br><br> | ??:http://www.share.kurohicncr.top/Article/details/06936279.shtml
+- 2026-06-30 08:58 - 木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/579818376.shtml
+- 2026-06-30 09:21 - 董卿母亲癌症去世<br><br> | ??:http://www.share.minike.top/Article/details/2651200.shtml
+- 2026-06-30 09:14 - 人民锐评：网红不能困在无底线逐利里<br><br> | ??:http://www.blog.minike.top/Article/details/84925439706.shtml
+- 2026-06-30 08:59 - 手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】<br><br> | ??:http://www.blog.minike.top/Article/details/23273.shtml
+- 2026-06-30 09:17 - 巴拉圭点球大战淘汰德国进16强<br><br> | ??:http://www.share.kurohicncr.top/Article/details/817117181.shtml
+- 2026-06-30 09:06 - 如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？<br><br> | ??:https://www.blog.minike.top/Article/details/80103354220.shtml
+- 2026-06-30 09:11 - 你的妻子大喷菇—《植物娘大战僵尸》特别篇<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/841140938.shtml
+- 2026-06-30 09:02 - 萨内 看笑了<br><br> | ??:http://www.blog.minike.top/Article/details/62241789.shtml
+- 2026-06-30 09:06 - 古代时期普通老百姓能喝上酒吗？<br><br> | ??:https://www.blog.minike.top/Article/details/2732038.shtml
+- 2026-06-30 09:13 - 锐评T1战胜KC<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/335263.shtml
+- 2026-06-30 09:20 - 法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/0154459421.shtml

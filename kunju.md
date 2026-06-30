@@ -1,60 +1,56 @@
-# 优步以3.18亿美元交易增持外卖平台Delivery Hero股份
+# 消费者曝江边城外烤鱼吃出烟头？门店回应：正在调查，市场监管部门已介入
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-核心要点 优步于周五达成协议，从德国外卖企业 Delivery Hero 的最大股东 Prosus 手中，额外收购该公司 4.5% 的股份。 Prosus 表示，本次交易为其带来的总毛收益约2.7 亿欧元（3.18 亿美元）。优步的收购价为每股 20 欧元，这一价格低于 Delivery Hero 周四大涨 7% 后的收盘价，但 Prosus 称，该价格较其一个月平均股价溢价
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月24日下午消息，据媒体报道，6月23日，有消费者前往江边城外烤全鱼上海合生汇店用餐，就餐时在烤鱼里吃出烟头。事发后消费者十分震惊，当即找来店长反映问题，可店长仅平淡提出更换一份菜品，全程未表达歉意。消费者对此处理方式难以接受，认为门店食品安全存在严重隐患，主张十倍赔偿。目前消费者已携相关证据向市场监管部
 
 ## 正文
 
-核心要点 优步于周五达成协议，从德国外卖企业 Delivery Hero 的最大股东 Prosus 手中，额外收购该公司 4.5% 的股份。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-Prosus 表示，本次交易为其带来的总毛收益约2.7 亿欧元（3.18 亿美元）。
+6月24日下午消息，据媒体报道，6月23日，有消费者前往江边城外烤全鱼上海合生汇店用餐，就餐时在烤鱼里吃出烟头。
 
-优步的收购价为每股 20 欧元，这一价格低于 Delivery Hero 周四大涨 7% 后的收盘价，但 Prosus 称，该价格较其一个月平均股价溢价 22%。
+事发后消费者十分震惊，当即找来店长反映问题，可店长仅平淡提出更换一份菜品，全程未表达歉意。
 
-此次交易前，Prosus 于去年提出以41 亿欧元收购欧洲外卖巨头 Just Eat Takeaway.com。
+消费者对此处理方式难以接受，认为门店食品安全存在严重隐患，主张十倍赔偿。
 
-但该收购案遭到欧盟执行机构欧盟委员会的审查，监管机构表示，只有 Prosus 大幅减持 Delivery Hero 的股份，才会批准这笔交易。
+目前消费者已携相关证据向市场监管部门提交投诉。
 
-Prosus 在周五的新闻稿中称：“公司仍将在规定期限内，出售所持 Delivery Hero 的相应股份。
+对于此事，门店工作人员表示，公司已经在排查，商场及属地市场监督部门也在协查，具体事由及排查结果有待进一步公布。
 
-” 一位发言人向 CNBC 表示，目前 Prosus 持有 Delivery Hero 约 21% 的股份，而去年宣布收购 Just Eat Takeaway.com时，其持股比例约为 27%。
+在大众点评上，门店回应表示，“关于您提到的烟头问题，这也是我们所不想看到的，当时致歉并想办法解决了，不过您并不满意，事情既已经发生，我们非常重视，并会立即进行内部调查。
 
-优步最早于 2024 年通过认购 3 亿美元新发股份，首次入股 Delivery Hero。
+我们承诺所有食材均为每日新鲜采购，并严格遵守食品安全法规。
 
 ## 相关推荐
 
-- 2026-06-30 09:24 - 泰山建135公里刀片刺绳隔离网<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md
-- 2026-06-30 09:21 - 速度与激情9<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md
-- 2026-06-30 09:15 - 日本反击率先破门<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md
-- 2026-06-30 09:09 - 日本五次世界杯淘汰赛全败<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md
-- 2026-06-30 09:00 - 未来的飞机可能会用电吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md
-- 2026-06-30 09:23 - 中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md
-- 2026-06-30 09:05 - 我设置了全宇宙最安全的密码<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md
-- 2026-06-30 09:19 - 第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md
-- 2026-06-30 09:08 - 失明的我带老妈去了趟“火星”<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md
-- 2026-06-30 09:14 - 人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md
-- 2026-06-30 09:07 - 如何评价《龙之家族》第三季第二集？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md
-- 2026-06-30 09:17 - 感动全网的699分女生想报考清华<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md
-- 2026-06-30 09:17 - 宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md
-- 2026-06-30 09:07 - 杨紫学位证上就是杨紫<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md
+- 2026-06-30 09:23 - 巴西绝杀<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md
+- 2026-06-30 08:57 - 陈幸同晋级WTT美国大满贯女单32强<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md
+- 2026-06-30 09:08 - 2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md
+- 2026-06-30 09:19 - 陈小春人老了干什么也不心酸<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md
+- 2026-06-30 09:22 - 日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md
+- 2026-06-30 09:18 - 普京为何将俄乌谈判时间表与伊朗挂钩<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md
+- 2026-06-30 09:00 - 锐评：网红不能困在无底线逐利里<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md
+- 2026-06-30 09:22 - F1奥地利站赛后复盘<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md
+- 2026-06-30 09:05 - 警方介入洪明甫死亡威胁<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md
+- 2026-06-30 09:14 - 日本16强魔咒<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:14 - 日本球迷输球后集体捡垃圾<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/13062072071.shtml
-- 2026-06-30 08:57 - 这几秒成世界杯最值钱广告位<br><br> | ??:http://www.blog.minike.top/Article/details/36781.shtml
-- 2026-06-30 09:00 - 曝老詹对自由市场态度与以往截然不同<br><br> | ??:https://www.share.kurohicncr.top/Article/details/9266330.shtml
-- 2026-06-30 09:02 - 起风了<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/71725502.shtml
-- 2026-06-30 09:09 - 如何评价《龙之家族》第三季第二集？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/336935922.shtml
-- 2026-06-30 08:57 - 2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？<br><br> | ??:http://www.share.minike.top/Article/details/90617.shtml
-- 2026-06-30 08:56 - 杨紫大银幕成绩单如何<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/725648952.shtml
-- 2026-06-30 08:56 - 古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/39397.shtml
-- 2026-06-30 09:14 - 球评巴西绝杀逆转日本<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/4723959909.shtml
-- 2026-06-30 08:55 - 世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/235550.shtml
-- 2026-06-30 09:15 - 韩国世界杯出局是主帅一个人的锅吗<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/1866581882.shtml
-- 2026-06-30 09:04 - 12人以护剧为名敲诈剧组艺人被抓<br><br> | ??:http://www.share.kurohicncr.top/Article/details/49219.shtml
-- 2026-06-30 09:17 - 陈小春人老了干什么也不心酸<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/079814241794.shtml
-- 2026-06-30 08:56 - 英语考了145的人竟然教数学<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/875477.shtml
-- 2026-06-30 09:04 - 未来的飞机可能会用电吗？<br><br> | ??:http://www.share.minike.top/Article/details/9473779136.shtml
+- 2026-06-30 08:59 - 苗族银饰<br><br> | ??:https://www.blog.minike.top/Article/details/00961.shtml
+- 2026-06-30 09:15 - 韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？<br><br> | ??:https://www.blog.minike.top/Article/details/31822379812.shtml
+- 2026-06-30 09:14 - “错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】<br><br> | ??:https://www.blog.minike.top/Article/details/9758026337.shtml
+- 2026-06-30 09:23 - 世界杯巴拉圭点球淘汰德国<br><br> | ??:http://www.blog.minike.top/Article/details/373317543769.shtml
+- 2026-06-30 09:02 - 黄晓明晒和周杰伦的合照<br><br> | ??:http://www.blog.minike.top/Article/details/6420858.shtml
+- 2026-06-30 09:21 - 《我落泪情绪零碎》<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/58959.shtml
+- 2026-06-30 08:56 - 日本进球<br><br> | ??:http://www.share.kurohicncr.top/Article/details/34611506823.shtml
+- 2026-06-30 09:02 - 德国队世界杯点球大战首败<br><br> | ??:https://www.blog.minike.top/Article/details/95442776780.shtml
+- 2026-06-30 09:10 - 卖菜老人获博主帮助后遇车祸去世<br><br> | ??:https://www.share.minike.top/Article/details/69682.shtml
+- 2026-06-30 09:23 - 怕iPhone涨价的用户已紧急换新<br><br> | ??:https://www.share.kurohicncr.top/Article/details/275697726.shtml
+- 2026-06-30 08:54 - iPhoneUltra黑色机模<br><br> | ??:http://www.share.kurohicncr.top/Article/details/8155967144.shtml
+- 2026-06-30 09:03 - 美股<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/992038076146.shtml
+- 2026-06-30 09:12 - 王濛回复黄灿灿<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/116040359.shtml
+- 2026-06-30 09:11 - 宜宾地震食客避难后折返 无人逃单<br><br> | ??:http://www.share.kurohicncr.top/Article/details/7680250.shtml
+- 2026-06-30 09:12 - 泰山建135公里刀片刺绳隔离网<br><br> | ??:http://www.share.kurohicncr.top/Article/details/46377104285.shtml

@@ -1,57 +1,42 @@
-# 法国列车制造商阿尔斯通股价暴跌 因项目延迟导致业绩指引撤销
+# 联合国大会举行艾滋病问题高级别会议：呼吁会员国维持对艾滋病防治的资金捐助
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-法国的阿尔斯通创下两年多来的最大跌幅，之前该列车制造商撤销了本财年的业绩指引，其新任首席执行官Martin Sion称原因是铁路列车关键项目进展缓慢。 这家周四夜间放弃了原定目标，即在截止于2027年3月的当前财年内获得累计15亿欧元（18亿美元）的自由现金流。而且，同期其也将无法实现至多10%的调整后EBIT利润率目标。 该公司股价在巴黎市场一度暴跌36%，创2023年10月
+发布时间：2026年06月24日 10:09 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-法国的阿尔斯通创下两年多来的最大跌幅，之前该列车制造商撤销了本财年的业绩指引，其新任首席执行官Martin Sion称原因是铁路列车关键项目进展缓慢。
-
-这家周四夜间放弃了原定目标，即在截止于2027年3月的当前财年内获得累计15亿欧元（18亿美元）的自由现金流。
-
-而且，同期其也将无法实现至多10%的调整后EBIT利润率目标。
-
-该公司股价在巴黎市场一度暴跌36%，创2023年10月以来最大盘中跌幅。
-
-该股今年以来已累计下跌约38%。
-
-本月刚刚上任的CEO表示：“严密规划和严格执行对本行业至关重要，而一些大型轨道车辆项目的推进速度慢于预期，对短期利润率和现金流造成了压力。
-
-” 阿尔斯通并未具体说明是哪些项目和地区受到延误的影响。
-
-责任编辑：刘明亮
+发布时间：2026年06月24日 10:09 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 09:01 - 人可以极简主义到什么程度？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md
-- 2026-06-30 09:00 - 千万不要随便扣肚脐<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md
-- 2026-06-30 09:23 - 一见倾心<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md
-- 2026-06-30 09:22 - 杨紫获白玉兰视后争议不止<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md
-- 2026-06-30 09:13 - 郑钦文温网首轮出局<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md
-- 2026-06-30 08:54 - 韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md
-- 2026-06-30 08:59 - 高质量发展看新疆<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md
-- 2026-06-30 09:06 - 商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md
-- 2026-06-30 09:16 - 把毒品藏在哪里，60秒内不会被发现？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md
-- 2026-06-30 08:58 - 有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md
-- 2026-06-30 09:09 - 中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md
+- 2026-06-30 08:56 - 我设置了全宇宙最安全的密码<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md
+- 2026-06-30 09:02 - 贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md
+- 2026-06-30 09:03 - 深扒韩国队淘汰背后原因<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md
+- 2026-06-30 09:06 - 爱直接对嘴喝饮料的人天塌了<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md
+- 2026-06-30 09:19 - 我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md
+- 2026-06-30 08:58 - 城市规划有可能成为「屎山代码」吗？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md
+- 2026-06-30 09:10 - 马航MH370传来最新消息<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md
+- 2026-06-30 09:03 - 德国巴拉圭 折磨<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md
+- 2026-06-30 09:12 - 全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md
+- 2026-06-30 08:56 - 第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:15 - 《名肘探科比》：科比大战裂口女<br><br> | ??:http://www.blog.minike.top/Article/details/287489443333.shtml
-- 2026-06-30 09:12 - 萨内 看笑了<br><br> | ??:https://www.share.kurohicncr.top/Article/details/23130407433.shtml
-- 2026-06-30 09:19 - 杨紫获白玉兰视后为何争议难平<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/6370294.shtml
-- 2026-06-30 09:19 - 被巴西绝杀后 日球员田中碧跪地痛哭<br><br> | ??:http://www.share.minike.top/Article/details/781147329155.shtml
-- 2026-06-30 09:00 - 【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸<br><br> | ??:https://www.share.minike.top/Article/details/60436168456.shtml
-- 2026-06-30 08:56 - 锐评T1战胜KC<br><br> | ??:http://www.blog.minike.top/Article/details/05653064.shtml
-- 2026-06-30 08:55 - 领克07GT搭载超跑同源MRC悬架<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/4218550581.shtml
-- 2026-06-30 09:15 - 杨某诋毁袁隆平院士科研成果被刑拘<br><br> | ??:https://www.share.kurohicncr.top/Article/details/45027.shtml
-- 2026-06-30 08:55 - 周冬雨多次说演不了话剧文城<br><br> | ??:http://www.blog.minike.top/Article/details/5313780822.shtml
-- 2026-06-30 08:58 - 我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/9112198003.shtml
-- 2026-06-30 09:11 - 世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？<br><br> | ??:http://www.share.minike.top/Article/details/8743414875.shtml
-- 2026-06-30 09:21 - 德国巴拉圭进入点球大战<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/432963002.shtml
-- 2026-06-30 09:06 - 《名肘探科比》：科比大战裂口女<br><br> | ??:http://www.share.kurohicncr.top/Article/details/489077546.shtml
-- 2026-06-30 08:55 - 德国队世界杯点球大战首败<br><br> | ??:https://www.share.kurohicncr.top/Article/details/9279859.shtml
-- 2026-06-30 09:13 - 蜘蛛侠:英雄归来<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/662207917386.shtml
+- 2026-06-30 09:23 - 扬名立万<br><br> | ??:https://www.share.minike.top/Article/details/2245577347.shtml
+- 2026-06-30 09:23 - 杨紫获白玉兰视后为何争议难平<br><br> | ??:https://www.share.kurohicncr.top/Article/details/33263297245.shtml
+- 2026-06-30 09:21 - MSI应援曲 如果季中成回忆<br><br> | ??:https://www.blog.minike.top/Article/details/91091336052.shtml
+- 2026-06-30 09:04 - 卢卡申科发布解放军仪仗队视频<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/1641865646.shtml
+- 2026-06-30 08:58 - 世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/248435.shtml
+- 2026-06-30 09:06 - 网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/1301231.shtml
+- 2026-06-30 09:17 - 《恋与深空》被指触碰民族伤痛红线<br><br> | ??:https://www.blog.minike.top/Article/details/03988066.shtml
+- 2026-06-30 09:13 - 诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天<br><br> | ??:https://www.share.minike.top/Article/details/79241683664.shtml
+- 2026-06-30 08:56 - 男子醉酒溺水获救后同行人拒协助抬人<br><br> | ??:https://www.blog.minike.top/Article/details/1602165841.shtml
+- 2026-06-30 09:09 - 【Reaction】女生最少的5款游戏<br><br> | ??:http://www.share.minike.top/Article/details/603377838590.shtml
+- 2026-06-30 09:16 - 《赛博朋克：边缘行者 2》｜官方预告片<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/1451735.shtml
+- 2026-06-30 09:22 - 领克07GT搭载超跑同源MRC悬架<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/192427438139.shtml
+- 2026-06-30 09:02 - 巴西绝杀日本：漫画般结局换了主角<br><br> | ??:http://www.share.kurohicncr.top/Article/details/209263.shtml
+- 2026-06-30 09:17 - 天道<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/89683520.shtml
+- 2026-06-30 08:58 - 马杜罗账号在纽约发文致谢各国援助<br><br> | ??:https://www.blog.minike.top/Article/details/29878481103.shtml

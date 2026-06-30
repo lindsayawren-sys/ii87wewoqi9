@@ -1,56 +1,60 @@
-# 特写：中国第七大沙漠“空降”十三朝古都
+# 日方用“阴谋论”抹黑中国国防开支掩饰其“再军事化”
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-中新网西安4月19日电 题：中国第七大沙漠“空降”十三朝古都 中新网记者 李爱平 “哇，沙子。”在2026西安丝绸之路国际旅游博览会暖城鄂尔多斯展台现场，刚上二年级的翟悦欣抓起一把沙子，向妈妈叫喊道。征得工作人员同意后，她一会儿坐到沙丘上面，一会儿站起来玩沙，口中一个劲地说着“好玩，好玩”。 4月18日下午，翟悦欣在妈妈陪同下，第一次在西安这座十三朝古都见到了沙丘，并知道眼前的
+记者：据报道，在今年3月中方反驳日方炒作中国国防支出一事后，日本防卫大臣近期再次公开质疑中国国防费透明度，同时声称“日本将以透明的方式投资于无人机和人工智能等新型作战手段，以适应不断变化的冲突性质”。请问对此有何评论？ 张晓刚：中国的国防费公开透明，每年都依法公开国防支出预算总额及其规模、结构、用途等信息，积极参加联合国军费透明制度，2008年以来每年都向联合国提交上一财政年度
 
 ## 正文
 
-中新网西安4月19日电 题：中国第七大沙漠“空降”十三朝古都 中新网记者 李爱平 “哇，沙子。
+记者：据报道，在今年3月中方反驳日方炒作中国国防支出一事后，日本防卫大臣近期再次公开质疑中国国防费透明度，同时声称“日本将以透明的方式投资于无人机和人工智能等新型作战手段，以适应不断变化的冲突性质”。
 
-”在2026西安丝绸之路国际旅游博览会暖城鄂尔多斯展台现场，刚上二年级的翟悦欣抓起一把沙子，向妈妈叫喊道。
+请问对此有何评论？
 
-征得工作人员同意后，她一会儿坐到沙丘上面，一会儿站起来玩沙，口中一个劲地说着“好玩，好玩”。
+张晓刚：中国的国防费公开透明，每年都依法公开国防支出预算总额及其规模、结构、用途等信息，积极参加联合国军费透明制度，2008年以来每年都向联合国提交上一财政年度军事开支报告。
 
-4月18日下午，翟悦欣在妈妈陪同下，第一次在西安这座十三朝古都见到了沙丘，并知道眼前的沙丘来自中国第七大沙漠——库布其沙漠。
+中国国防支出一贯坚持合理、适度、克制，占GDP的比重长期低于1.5%。
 
-位于内蒙古自治区鄂尔多斯市境内的库布其沙漠，曾被视为“死亡之地”。
+反观日本，作为二战战败国，防卫预算连续14年快速增长，防卫支出占GDP比重飙升至2%，甚至还要进一步提升至3.5%，人均防卫支出是中国的3倍多。
 
-如今，经过几十年的治理，这里的沙海变绿洲，瀚海变通途，也成为中外游客的旅游目的地。
+清者自清，浊者自浊。
 
-当日，这位第一次玩沙就上瘾的小朋友，足足在沙丘前玩了半小时。
+日方用“阴谋论”抹黑中国国防开支，妄想转移视线、误导舆论，掩饰其“再军事化”野心和举动。
 
-临走时，她还带走了一个装有库布其沙漠沙子的玻璃瓶，“要放在书桌前，每天看看这些沙子。
+真正应该向世界讲清楚的是日本：“新型军国主义”成势为患，意欲何为？
 
 ## 相关推荐
 
-- 2026-06-30 09:02 - "超算小姐，这一次，我一定要带你出去..."<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md
-- 2026-06-30 09:09 - 陈小春人老了干什么也不心酸<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md
-- 2026-06-30 09:15 - 德国进球被吹<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md
-- 2026-06-30 08:55 - 有哪些值得一提的生活窍门？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md
-- 2026-06-30 09:08 - 我和我的家乡<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md
-- 2026-06-30 09:19 - 日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md
-- 2026-06-30 09:11 - 巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md
-- 2026-06-30 09:07 - 首届《哈基米歌王争霸赛》总决赛<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md
-- 2026-06-30 09:05 - 科学备孕男女都要上心<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md
-- 2026-06-30 08:57 - 张月收到黄灿灿辣货两眼发光<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md
+- 2026-06-30 09:17 - Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md
+- 2026-06-30 09:22 - 毕业以后，你最怀念的大学记忆是什么？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md
+- 2026-06-30 08:56 - 莫兰特转投开拓者效力<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md
+- 2026-06-30 09:10 - 歌剧老师锐评歌手第6期<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md
+- 2026-06-30 09:16 - 为什么很多企业推行“扁平化管理”后，效率反而下降了？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md
+- 2026-06-30 09:08 - 杨紫大银幕成绩单如何<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md
+- 2026-06-30 09:02 - 郑钦文温网三连败西尼亚科娃<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md
+- 2026-06-30 09:02 - 郑钦文温网一轮游<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md
+- 2026-06-30 09:21 - 董卿父亲报纸上发文悼念亡妻<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md
+- 2026-06-30 09:07 - 《名肘探科比》：科比大战裂口女<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md
+- 2026-06-30 09:20 - 现在叛逆期的孩子最怕的是什么？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md
+- 2026-06-30 09:18 - 董卿父亲报纸上发文悼念亡妻<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md
+- 2026-06-30 09:21 - 一直以为方便面汤是要倒掉的<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md
+- 2026-06-30 09:15 - 覃予萱晋级WTT美国大满贯女单32强<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:06 - 巴西足球能否再现昔日荣光<br><br> | ??:https://www.share.kurohicncr.top/Article/details/5358313.shtml
-- 2026-06-30 09:11 - 终于把好哥们处成了情侣!<br><br> | ??:https://www.share.kurohicncr.top/Article/details/235482.shtml
-- 2026-06-30 09:21 - 宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/833413.shtml
-- 2026-06-30 09:03 - 吴启华卖肖像权拍AI电影<br><br> | ??:http://www.blog.minike.top/Article/details/935907285.shtml
-- 2026-06-30 08:58 - 宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/85750.shtml
-- 2026-06-30 09:02 - 网友写差评被店家“挂”门口避雷<br><br> | ??:http://www.share.kurohicncr.top/Article/details/26790.shtml
-- 2026-06-30 09:08 - 谢依霖说杨幂是聚会第一把张罗手<br><br> | ??:http://www.blog.minike.top/Article/details/36219521.shtml
-- 2026-06-30 09:02 - 想问一下学日语的大佬，自学日语要怎么学？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/05371.shtml
-- 2026-06-30 09:17 - 为什么纣王似乎对周文王的扩张完全无动于衷？<br><br> | ??:https://www.blog.minike.top/Article/details/2053713171.shtml
-- 2026-06-30 09:07 - 穆祉丞回应获年度人气艺人<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/56431207.shtml
-- 2026-06-30 08:56 - 日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？<br><br> | ??:https://www.share.minike.top/Article/details/38415498650.shtml
-- 2026-06-30 08:54 - 小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？<br><br> | ??:https://www.share.minike.top/Article/details/065119736.shtml
-- 2026-06-30 09:13 - 国务院：探索延长义务教育年限<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/197417663.shtml
-- 2026-06-30 09:19 - 健全中小学教师工资长效联动机制<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/5051561107.shtml
-- 2026-06-30 08:56 - 我把队友的7连跪剪成了艺术<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/040241905.shtml
+- 2026-06-30 09:09 - 老外对中国cosplay竟这样评价…<br><br> | ??:https://www.share.minike.top/Article/details/7620700.shtml
+- 2026-06-30 09:10 - 建议不要突然完全停止喝咖啡<br><br> | ??:http://www.share.kurohicncr.top/Article/details/919061.shtml
+- 2026-06-30 09:07 - 网友写差评被店家“挂”门口避雷<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/69850699.shtml
+- 2026-06-30 09:06 - 一直以为方便面汤是要倒掉的<br><br> | ??:http://www.share.kurohicncr.top/Article/details/8081892.shtml
+- 2026-06-30 09:01 - 黄晓明夸昆凌引杨颖对比<br><br> | ??:http://www.share.minike.top/Article/details/35070.shtml
+- 2026-06-30 09:19 - 蜘蛛侠:英雄归来<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/93329.shtml
+- 2026-06-30 09:12 - 12人以护剧为名敲诈剧组艺人被抓<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/108649766.shtml
+- 2026-06-30 09:22 - 如何评价杨紫白玉兰获奖<br><br> | ??:https://www.share.kurohicncr.top/Article/details/075048.shtml
+- 2026-06-30 09:18 - 7月1日起 一批新规即将落地<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/091791546.shtml
+- 2026-06-30 08:58 - 日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/299893.shtml
+- 2026-06-30 09:15 - 日本五次世界杯淘汰赛全败<br><br> | ??:http://www.blog.minike.top/Article/details/590510568805.shtml
+- 2026-06-30 09:16 - 巴拉圭进球<br><br> | ??:https://www.share.minike.top/Article/details/263018.shtml
+- 2026-06-30 09:16 - 重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！<br><br> | ??:https://www.blog.minike.top/Article/details/203309.shtml
+- 2026-06-30 08:54 - 梅德韦杰夫列举俄罗斯面临的七大挑战<br><br> | ??:http://www.blog.minike.top/Article/details/3293190.shtml
+- 2026-06-30 09:07 - 世界杯<br><br> | ??:http://www.blog.minike.top/Article/details/362235459113.shtml

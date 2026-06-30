@@ -1,59 +1,55 @@
-# 东方证券拟收购上海证券100%股权 A股股份4月20日起停牌
+# 刘珺出席第十七届夏季达沃斯“‘一带一路’未来如何发展”分论坛并发言
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-东方证券（03958）发布公告，公司正在筹划通过发行人民币普通股（A股）及支付现金的方式收购上海证券有限责任公司（“标的公司”）100%股权（“拟议交易事项”）。于2026年4月19日，公司分别与标的公司股东百联集团有限公司（“百联集团”）、上海国际集团投资有限公司（“上海国际集团投资”）、上海国际集团有限公司（“上海国际集团”）、上海城投（集团）有限公司（“上海城投集团”）签
+来源：中国工商银行 6月23日，第十七届夏季达沃斯“‘一带一路’未来如何发展”分论坛在大连举行，与会嘉宾围绕“一带一路”未来发展路径进行交流与展望。中国工商银行行长刘珺应邀出席，并就“一带一路”资金融通、绿色转型、基础设施建设等话题发言。 刘珺表示，中资银行将人民币纳入融资结构，并引入出口信用保险、多边金融机构，有效助力“一带一路”共建国家降低融资成本、实现绿色发展。中国工商银
 
 ## 正文
 
-东方证券（03958）发布公告，公司正在筹划通过发行人民币普通股（A股）及支付现金的方式收购上海证券有限责任公司（“标的公司”）100%股权（“拟议交易事项”）。
+来源：中国工商银行 6月23日，第十七届夏季达沃斯“‘一带一路’未来如何发展”分论坛在大连举行，与会嘉宾围绕“一带一路”未来发展路径进行交流与展望。
 
-于2026年4月19日，公司分别与标的公司股东百联集团有限公司（“百联集团”）、上海国际集团投资有限公司（“上海国际集团投资”）、上海国际集团有限公司（“上海国际集团”）、上海城投（集团）有限公司（“上海城投集团”）签署了《发行股份购买资产意向协议》，与国泰海通证券股份有限公司（“国泰海通”）签署了《发行股份及支付现金购买资产意向协议》（合称“意向协议”）。
+中国工商银行行长刘珺应邀出席，并就“一带一路”资金融通、绿色转型、基础设施建设等话题发言。
 
-根据意向协议，公司拟通过发行A股股份的方式购买百联集团持有的标的公司50.0000%股权、上海国际集团投资持有的标的公司16.3333%股权、上海国际集团持有的标的公司7.6767%股权及上海城投集团持有的标的公司1.0000%股权；拟通过发行A股股份的方式购买国泰海通持有的标的公司18.7400%股权，并通过支付现金的方式购买国泰海通持有的标的公司6.2500%股权。
+刘珺表示，中资银行将人民币纳入融资结构，并引入出口信用保险、多边金融机构，有效助力“一带一路”共建国家降低融资成本、实现绿色发展。
 
-意向协议为协议各方就拟议交易事项达成的初步意向，拟议交易事项尚未最终确定。
+中国工商银行作为全球资产规模最大银行和全球系统重要性银行，愿继续与各方合作伙伴一道，共同构建更加公平包容的“一带一路”融资新格局，携手推动共建“一带一路”朝着高韧性、可持续的方向发展。
 
-协议各方将进一步协商确定拟议交易事项的方案、价格等事项，并签署正式交易文件。
+刘珺分享了中国工商银行支持迪拜建成全球最大单体光热光伏项目、牵头筹组哈萨克斯坦坚戈与人民币直接兑换银团贷款的实践案例。
 
-拟议交易事项及正式交易文件尚需协议各方履行相应的内部决策审批程序，并经有权监管机构批准后方可正式实施。
+论坛期间，刘珺还会见了澳大利亚福德士河集团执行董事长兼创始人安德鲁·福瑞斯特，双方围绕跨境人民币、能源转型等话题进行深入交流。
 
-根据上海证券交易所的相关规定及经公司申请，公司于上海证券交易所上市的A股股份（证券代码：600958）将于2026年4月20日星期一上午开市起暂停买卖，预计公司A股股份暂停买卖时间不超过10个A股交易日。
-
-公司将根据适用的监管要求及时发佈相关进展公告并申请公司A股股份复牌。
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-30 09:03 - 庆祝中国共产党成立105周年大会将举行<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md
-- 2026-06-30 08:58 - 欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md
-- 2026-06-30 08:57 - 科学备孕男女都要上心<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md
-- 2026-06-30 09:03 - 中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md
-- 2026-06-30 08:59 - 王楚钦说配合稍微有些陌生感<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md
-- 2026-06-30 09:10 - 曝iPhone18Pro机密文件现身暗网<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md
-- 2026-06-30 09:13 - 勇士续约波尔津吉斯<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md
-- 2026-06-30 09:23 - 齐思钧回复张月<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md
-- 2026-06-30 09:00 - 这几秒成世界杯最值钱广告位<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md
-- 2026-06-30 09:13 - 如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md
-- 2026-06-30 09:20 - 曝iPhone18Pro机密文件现身暗网<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md
-- 2026-06-30 09:17 - 追梦拒绝2770万美元球员选项<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md
-- 2026-06-30 08:55 - 当我知道豆包有后台审核人员<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md
+- 2026-06-30 09:09 - 不开心就去看三年前的购物订单<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md
+- 2026-06-30 09:12 - 世界杯巴拉圭点球淘汰德国<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md
+- 2026-06-30 09:12 - 考入南大计算机，复读考清北值吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md
+- 2026-06-30 09:16 - 《名肘探科比》：科比大战裂口女<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md
+- 2026-06-30 09:14 - HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md
+- 2026-06-30 08:56 - 主人解开狗绳2只狗将路人撕咬致死<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md
+- 2026-06-30 08:57 - 如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md
+- 2026-06-30 09:04 - 中国猪圈装空调让欧洲网友破防<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md
+- 2026-06-30 09:09 - 第一炉香<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md
+- 2026-06-30 09:14 - 【硬核拆解】汽车人到底离我们有多远？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md
+- 2026-06-30 09:18 - 王楚钦孙颖莎混双对手产生<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:17 - 王楚钦孙颖莎晋级混双八强<br><br> | ??:http://www.share.minike.top/Article/details/06489764844.shtml
-- 2026-06-30 08:57 - 你人生中最艰难的时候是怎么熬过来的？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/989100852830.shtml
-- 2026-06-30 09:02 - 苗族银饰<br><br> | ??:https://www.share.minike.top/Article/details/061045675.shtml
-- 2026-06-30 09:15 - 德国北部枪击事件致5死<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/683926970796.shtml
-- 2026-06-30 09:16 - “错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】<br><br> | ??:https://www.share.kurohicncr.top/Article/details/129478243.shtml
-- 2026-06-30 08:54 - 勇士续约波尔津吉斯<br><br> | ??:https://www.share.kurohicncr.top/Article/details/457630564212.shtml
-- 2026-06-30 09:14 - 德国巴拉圭 折磨<br><br> | ??:https://www.blog.minike.top/Article/details/1760594349.shtml
-- 2026-06-30 09:07 - 速度与激情9<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/998288802682.shtml
-- 2026-06-30 09:19 - 想问一下学日语的大佬，自学日语要怎么学？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/94859.shtml
-- 2026-06-30 08:56 - 有人见过武则天的画像吗，非常好奇？<br><br> | ??:http://www.blog.minike.top/Article/details/675756.shtml
-- 2026-06-30 09:12 - 美股收盘 热门中概股普涨<br><br> | ??:https://www.blog.minike.top/Article/details/400416416179.shtml
-- 2026-06-30 09:10 - 赵丽颖风吹半夏含金量还在上升<br><br> | ??:http://www.share.minike.top/Article/details/835542504.shtml
-- 2026-06-30 09:23 - 泰山建135公里刀片刺绳隔离网<br><br> | ??:http://www.share.kurohicncr.top/Article/details/23380796.shtml
-- 2026-06-30 09:00 - “草莓月亮”浪漫现身<br><br> | ??:https://www.share.minike.top/Article/details/45323483148.shtml
-- 2026-06-30 09:22 - 王楚钦说配合稍微有些陌生感<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/261356.shtml
+- 2026-06-30 09:16 - 男子醉酒溺水获救后同行人拒协助抬人<br><br> | ??:http://www.share.kurohicncr.top/Article/details/29958.shtml
+- 2026-06-30 09:00 - 卡塞米罗头球破门<br><br> | ??:https://www.blog.minike.top/Article/details/332176.shtml
+- 2026-06-30 09:10 - 美团、淘宝闪购、京东外卖达成共识<br><br> | ??:http://www.share.kurohicncr.top/Article/details/8593706469.shtml
+- 2026-06-30 09:16 - 网红峡谷5人溺亡 有人提醒会下雨<br><br> | ??:http://www.blog.minike.top/Article/details/39067067.shtml
+- 2026-06-30 09:22 - 一切民族英雄都是中华民族的脊梁<br><br> | ??:https://www.share.kurohicncr.top/Article/details/4110288.shtml
+- 2026-06-30 08:57 - 我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎<br><br> | ??:http://www.share.minike.top/Article/details/26986.shtml
+- 2026-06-30 08:59 - 德国队世界杯点球大战首败<br><br> | ??:https://www.blog.minike.top/Article/details/725195035659.shtml
+- 2026-06-30 09:19 - Melo向柳智敏张元英道歉<br><br> | ??:http://www.blog.minike.top/Article/details/0074711.shtml
+- 2026-06-30 09:05 - 中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/52606646036.shtml
+- 2026-06-30 09:07 - 如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？<br><br> | ??:http://www.share.minike.top/Article/details/49995919320.shtml
+- 2026-06-30 09:17 - DeepSeek启动成立来最大规模招聘<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/9200491.shtml
+- 2026-06-30 09:15 - 日本球迷输球后集体捡垃圾<br><br> | ??:https://www.share.minike.top/Article/details/829505035.shtml
+- 2026-06-30 09:13 - 日耳曼拖拉机<br><br> | ??:http://www.blog.minike.top/Article/details/800827380711.shtml
+- 2026-06-30 09:17 - 曝詹姆斯即将与勇士会面<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/347730.shtml
+- 2026-06-30 09:21 - 马航MH370传来最新消息<br><br> | ??:https://www.share.minike.top/Article/details/076513095094.shtml

@@ -1,59 +1,57 @@
-# 广东蕉岭县海外联谊会第二届第一次理事大会举行
+# 下半年科技股怎么投？中信保诚基金科技矩阵的“共识与节奏”
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-汇智融湾促发展，同心致远赴新程。4月16日，蕉岭县海外联谊会第二届第一次理事大会举行，选举产生了新一届理事会领导机构。大家共叙桑梓情谊，共谋发展大计。 县委书记、蕉华工业园区党委书记刘鸿涛，市委统战部副部长、市民宗局局长、市海外联谊会常务副会长蓝建辉，市委台港澳办副主任李燕玲，县委常委、统战部部长、县海联会第二届理事会会长丘文慈，副县长张慧，县政协副主席汤超宏出席会议，并分别为
+当AI从“讲故事”进入“看业绩”的阶段，当全球算力基建从训练端向推理端延伸，当中国科技自主可控从“卡脖子”走向“挺进大别山”——2026年的科技投资，或正处在方向选择的关键节点。 中信保诚基金四位对科技方向有深入研究的基金经理——王优草、杨柳青、闵东旭、孙浩中，虽然方法论各异、持仓各有侧重，但在“中国科技崛起”这一大方向上形成了高度共识。以下，是他们站在2026年年中对市场的核
 
 ## 正文
 
-汇智融湾促发展，同心致远赴新程。
+当AI从“讲故事”进入“看业绩”的阶段，当全球算力基建从训练端向推理端延伸，当中国科技自主可控从“卡脖子”走向“挺进大别山”——2026年的科技投资，或正处在方向选择的关键节点。
 
-4月16日，蕉岭县海外联谊会第二届第一次理事大会举行，选举产生了新一届理事会领导机构。
+中信保诚基金四位对科技方向有深入研究的基金经理——王优草、杨柳青、闵东旭、孙浩中，虽然方法论各异、持仓各有侧重，但在“中国科技崛起”这一大方向上形成了高度共识。
 
-大家共叙桑梓情谊，共谋发展大计。
+以下，是他们站在2026年年中对市场的核心判断。
 
-县委书记、蕉华工业园区党委书记刘鸿涛，市委统战部副部长、市民宗局局长、市海外联谊会常务副会长蓝建辉，市委台港澳办副主任李燕玲，县委常委、统战部部长、县海联会第二届理事会会长丘文慈，副县长张慧，县政协副主席汤超宏出席会议，并分别为新当选的蕉岭县海外联谊会第二届理事会会长、名誉会长、副会长、秘书长及理事颁发任职证书。
+一、王优草：AI远未到担心投资力度减弱的时候 王优草，前华为鸿蒙架构师。
 
-蓝建辉对大会的召开表示祝贺，希望蕉岭县海外联谊会以乡情亲情为纽带，扎实做好港澳台同胞和海外侨胞联络服务工作，积极开展探亲寻根、文旅交流、投资考察等活动，增进情感认同。
+在他看来，AI作为新一轮工业革命，还远没有到担心投资力度减弱的时候。
 
-要发挥“联”的优势，依托同乡社团、商会组织、侨社平台等，吸引更多项目、资金、人才汇聚蕉岭，凝聚高质量发展合力。
+关于市场整体：王优草对市场总体判断偏乐观。
 
-要牢牢把握外事工作的正确政治方向，提升为“侨”服务效能，努力打造海内外同胞共济的人民之家。
+他认为，美联储降息周期开启叠加国内化债政策落地，市场风险偏好显著回升，权益资产的配置价值突出。
 
-丘文慈表示，蕉岭县海外联谊会将深耕乡情联络，进一步拓展与全球各地蕉岭同乡会、社团组织的合作，积极开展招商引资、招才引智，通过举办经贸、文化、宗亲联谊等活动，让海内外乡亲了解家乡历史、认同客家文化，让跨越山海的文化基因代代相传。
+而本轮行情的核心主线——AI科技，他认为其高景气度确定性相对较强。
 
 ## 相关推荐
 
-- 2026-06-30 09:19 - 李在明向韩国两大财阀90度鞠躬<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md
-- 2026-06-30 09:19 - 中国代表在联合国点名日本所犯罪行<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md
-- 2026-06-30 09:10 - 德国进球被吹<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md
-- 2026-06-30 09:01 - 德国队世界杯点球大战首败<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md
-- 2026-06-30 09:18 - 奔跑吧·黄河篇第二季<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md
-- 2026-06-30 09:22 - 巴西2-1绝杀日本<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md
-- 2026-06-30 09:15 - 巴西替补奇兵读秒绝杀<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md
-- 2026-06-30 09:16 - 郑钦文温网一轮游<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md
-- 2026-06-30 09:21 - 李在明90度鞠躬感谢韩国两大财阀<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md
-- 2026-06-30 09:04 - 收到补税提醒尽快办理 明起有滞纳金<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md
-- 2026-06-30 09:06 - 哈弗茨头球破门<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md
-- 2026-06-30 09:04 - 《共患难》<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md
-- 2026-06-30 09:13 - 挪威国家队紧急从本土订购大批海鲜<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md
+- 2026-06-30 08:58 - AI手机进入Agent时代<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md
+- 2026-06-30 09:02 - 王源近几年没有路演了<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md
+- 2026-06-30 09:09 - GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md
+- 2026-06-30 08:56 - 日本淘汰<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md
+- 2026-06-30 08:54 - 终于把好哥们处成了情侣!<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md
+- 2026-06-30 09:19 - 四川宜宾地震瞬间鱼群乱跳<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md
+- 2026-06-30 09:00 - 逃狱兄弟<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md
+- 2026-06-30 09:21 - 日本主帅赛后回应淘汰出局<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md
+- 2026-06-30 09:09 - 王楚钦说配合稍微有些陌生感<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md
+- 2026-06-30 09:22 - 千与千寻<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md
+- 2026-06-30 09:19 - 巴西替补奇兵读秒绝杀<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:14 - 内马尔中场休息积极鼓励队友<br><br> | ??:http://www.share.minike.top/Article/details/08088397.shtml
-- 2026-06-30 08:58 - 李在明向韩国两大财阀90度鞠躬<br><br> | ??:http://www.share.kurohicncr.top/Article/details/31672.shtml
-- 2026-06-30 09:23 - 泰山建135公里刀片刺绳隔离网<br><br> | ??:https://www.blog.minike.top/Article/details/6703455822.shtml
-- 2026-06-30 09:01 - 男子在非洲务工死亡 公司不认可工亡<br><br> | ??:http://www.blog.minike.top/Article/details/802465946.shtml
-- 2026-06-30 09:15 - 点球淘汰德国 巴拉圭首都陷入疯狂<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/060270893.shtml
-- 2026-06-30 09:19 - 速度与激情9<br><br> | ??:http://www.share.kurohicncr.top/Article/details/532431599.shtml
-- 2026-06-30 09:06 - 巴西若输日本将创36年最差纪录<br><br> | ??:http://www.share.minike.top/Article/details/79770.shtml
-- 2026-06-30 08:58 - 郑钦文温网三连败西尼亚科娃<br><br> | ??:http://www.blog.minike.top/Article/details/76833926.shtml
-- 2026-06-30 08:55 - 世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/789684826.shtml
-- 2026-06-30 09:17 - 如果有二次元高中是什么样子的？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/23737767060.shtml
-- 2026-06-30 09:06 - 俄乌双方伤亡近180万人<br><br> | ??:https://www.share.kurohicncr.top/Article/details/954949617576.shtml
-- 2026-06-30 09:21 - 我把队友的7连跪剪成了艺术<br><br> | ??:https://www.blog.minike.top/Article/details/0308859.shtml
-- 2026-06-30 09:19 - 我把队友的7连跪剪成了艺术<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/8595876.shtml
-- 2026-06-30 09:22 - 巴拉圭点球大战淘汰德国进16强<br><br> | ??:http://www.share.minike.top/Article/details/33880.shtml
-- 2026-06-30 09:13 - 中国代表在联合国点名日本所犯罪行<br><br> | ??:http://www.share.minike.top/Article/details/3947426730.shtml
+- 2026-06-30 09:17 - 女心理师<br><br> | ??:http://www.share.minike.top/Article/details/067170113.shtml
+- 2026-06-30 09:21 - 王曼昱被突如其来的话筒逗笑了<br><br> | ??:https://www.blog.minike.top/Article/details/080730242.shtml
+- 2026-06-30 09:22 - 人类...完蛋了...<br><br> | ??:https://www.share.minike.top/Article/details/54069312.shtml
+- 2026-06-30 09:08 - 如何看待武亮说大学生生活费1500就够用这一言论？<br><br> | ??:https://www.blog.minike.top/Article/details/985180385962.shtml
+- 2026-06-30 09:17 - 当我知道豆包有后台审核人员<br><br> | ??:https://www.blog.minike.top/Article/details/183097626.shtml
+- 2026-06-30 09:09 - 宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/865693534418.shtml
+- 2026-06-30 09:04 - 日本博主：日本足球真的垃圾<br><br> | ??:http://www.share.kurohicncr.top/Article/details/390078636731.shtml
+- 2026-06-30 09:18 - 巴西绝杀日本<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/43841707.shtml
+- 2026-06-30 09:05 - 明星大侦探第四季<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/58995705264.shtml
+- 2026-06-30 09:13 - 诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/27083677899.shtml
+- 2026-06-30 09:21 - 曝iPhone18Pro机密文件现身暗网<br><br> | ??:https://www.blog.minike.top/Article/details/447796669797.shtml
+- 2026-06-30 09:03 - 陈小春人老了干什么也不心酸<br><br> | ??:http://www.share.kurohicncr.top/Article/details/2953838.shtml
+- 2026-06-30 09:19 - 韩国球迷凌晨4点接机怒骂主教练<br><br> | ??:http://www.share.minike.top/Article/details/8716013.shtml
+- 2026-06-30 09:10 - 日本队被绝杀后鞠躬致谢观众<br><br> | ??:http://www.share.minike.top/Article/details/16451858.shtml
+- 2026-06-30 09:05 - 斛珠夫人<br><br> | ??:https://www.share.minike.top/Article/details/453677292348.shtml

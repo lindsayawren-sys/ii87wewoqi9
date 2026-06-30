@@ -1,59 +1,60 @@
-# 从汽车到易拉罐：伊朗战争如何冲击全球铝供应链
+# 西瓜价格一降再降！ 吃瓜群众却不愿买单，“吃瓜自由”背后的市场格局已悄然生变！
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-伊朗战争引发的霍尔木兹海峡航运中断及中东冶炼厂遭袭，正在全球铝市场引发一场前所未有的供应危机，其影响已从工业原料层面渗透至汽车、包装、建筑等终端消费品领域。 中东产能遭重创，复产遥遥无期 中东地区约占全球铝供应量的9%，是除中国以外最重要的铝产区之一。然而，这场冲突对该地区的铝工业造成了毁灭性打击。 阿联酋环球铝业位于Al Taweelah的冶炼厂上个月遭到导弹袭击，该厂年产约
+文/杨宏伟 今年夏天，西瓜的价格接连“跳水”。6月24日，农业农村部单日监测数据显示，西瓜以4.9%的跌幅位居46种鲜活农产品跌幅榜首。往前倒推一周，6月15日至21日周报显示，西瓜周均价环比下跌3.6%，在重点监测的6种水果中跌得最狠。 把镜头拉回一个月前，5月初全国西瓜批发均价还站在5.09元/公斤的年内高位；到了6月初，这个数字滑到了3.68元/公斤，跌幅近三成。6月17
 
 ## 正文
 
-伊朗战争引发的霍尔木兹海峡航运中断及中东冶炼厂遭袭，正在全球铝市场引发一场前所未有的供应危机，其影响已从工业原料层面渗透至汽车、包装、建筑等终端消费品领域。
+文/杨宏伟 今年夏天，西瓜的价格接连“跳水”。
 
-中东产能遭重创，复产遥遥无期 中东地区约占全球铝供应量的9%，是除中国以外最重要的铝产区之一。
+6月24日，农业农村部单日监测数据显示，西瓜以4.9%的跌幅位居46种鲜活农产品跌幅榜首。
 
-然而，这场冲突对该地区的铝工业造成了毁灭性打击。
+往前倒推一周，6月15日至21日周报显示，西瓜周均价环比下跌3.6%，在重点监测的6种水果中跌得最狠。
 
-阿联酋环球铝业位于Al Taweelah的冶炼厂上个月遭到导弹袭击，该厂年产约160万吨铝。
+把镜头拉回一个月前，5月初全国西瓜批发均价还站在5.09元/公斤的年内高位；到了6月初，这个数字滑到了3.68元/公斤，跌幅近三成。
 
-即便战争立即结束，该厂全面恢复生产预计也需要长达一年的时间。
+6月17日，中间价停在3.51元/公斤（约1.76元/斤），北京新发地8424品种更是从6月1日的2.3元/斤跌到了1.65元/斤，较去年同期便宜15.38%。
 
-巴林铝业也受到攻击，目前损失程度尚不明确。
+这轮跌势自5月初一路俯冲，仍未停止。
 
-卡塔尔铝业已于3月初启动有序停产，影响65万吨年产能。
+为何跌得这么狠？
 
-更严峻的是，由于霍尔木兹海峡航运严重受阻，氧化铝等关键原材料无法运入中东，而产出的铝锭也无法运出，形成了“双重挤压”。
+近期的下跌首先源于季节性规律。
 
 ## 相关推荐
 
-- 2026-06-30 09:19 - 电子游戏中有哪些关于武器的“刻板印象”？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md
-- 2026-06-30 09:17 - 欧洲民众抢购空调降温<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md
-- 2026-06-30 09:02 - 天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md
-- 2026-06-30 09:03 - 如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md
-- 2026-06-30 09:16 - 不开心就去看三年前的购物订单<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md
-- 2026-06-30 09:00 - 沉睡花园<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md
-- 2026-06-30 09:06 - 索马里女大使：想和中国一起搞事业<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md
-- 2026-06-30 09:17 - 詹姆斯 勇士<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md
-- 2026-06-30 09:23 - 日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md
-- 2026-06-30 08:56 - 中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md
-- 2026-06-30 09:13 - 斛珠夫人<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md
-- 2026-06-30 09:19 - 女心理师<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md
-- 2026-06-30 08:57 - 好像看到了人类带孩子崩溃的样子<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md
+- 2026-06-30 09:23 - 如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md
+- 2026-06-30 09:17 - 日本进球<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md
+- 2026-06-30 09:21 - 如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md
+- 2026-06-30 09:16 - 存储芯片龙头提示风险<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md
+- 2026-06-30 09:20 - 2021湖南卫视跨年演唱会<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md
+- 2026-06-30 08:55 - 女子用家人生日买彩票中1032万<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md
+- 2026-06-30 09:10 - 梅德韦杰夫列举俄罗斯面临的七大挑战<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md
+- 2026-06-30 09:01 - 杨紫获白玉兰视后为何争议难平<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md
+- 2026-06-30 09:15 - 健全中小学教师工资长效联动机制<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md
+- 2026-06-30 09:03 - 苗族银饰<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md
+- 2026-06-30 09:05 - 曝灰熊将莫兰特交易至开拓者<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md
+- 2026-06-30 09:06 - 如果有二次元高中是什么样子的？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md
+- 2026-06-30 08:57 - 全球最火存储ETF纳入兆易创新<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md
+- 2026-06-30 09:04 - 我吃遍了西安最強的街頭小吃，第九家強得離譜！<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:57 - 女子发现孩子非现任亲生状告前任索赔<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/2280718.shtml
-- 2026-06-30 09:06 - iPhone18e曝光<br><br> | ??:https://www.share.minike.top/Article/details/13514.shtml
-- 2026-06-30 09:04 - 马航370搜寻最新消息<br><br> | ??:http://www.share.kurohicncr.top/Article/details/6884567.shtml
-- 2026-06-30 09:17 - 巴西醒醒 这是淘汰赛<br><br> | ??:http://www.share.minike.top/Article/details/9285356.shtml
-- 2026-06-30 09:12 - 贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？<br><br> | ??:http://www.share.minike.top/Article/details/045374.shtml
-- 2026-06-30 09:13 - 2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/718482.shtml
-- 2026-06-30 09:12 - 教育部披露：高考生篡改7名同学志愿<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/505069601.shtml
-- 2026-06-30 08:59 - 追梦拒绝2770万美元球员选项<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/509907939654.shtml
-- 2026-06-30 08:54 - 巴西足球能否再现昔日荣光<br><br> | ??:http://www.blog.minike.top/Article/details/97358398.shtml
-- 2026-06-30 09:09 - 如何评价杨紫白玉兰获奖<br><br> | ??:http://www.share.minike.top/Article/details/325655716.shtml
-- 2026-06-30 08:57 - 诺伊尔尽力了<br><br> | ??:http://www.blog.minike.top/Article/details/5518889.shtml
-- 2026-06-30 09:08 - 德国4比5巴拉圭<br><br> | ??:http://www.share.kurohicncr.top/Article/details/49141668.shtml
-- 2026-06-30 09:12 - 巴西足球能否再现昔日荣光<br><br> | ??:https://www.share.kurohicncr.top/Article/details/22045245816.shtml
-- 2026-06-30 09:13 - 日本五次世界杯淘汰赛全败<br><br> | ??:https://www.share.minike.top/Article/details/9558452.shtml
-- 2026-06-30 09:17 - 马宁怒怼巴拉圭教练组<br><br> | ??:http://www.blog.minike.top/Article/details/537819122.shtml
+- 2026-06-30 09:08 - 田中碧失误<br><br> | ??:http://www.share.kurohicncr.top/Article/details/81991515966.shtml
+- 2026-06-30 09:13 - 徐亮怒斥世界杯踢假球<br><br> | ??:http://www.share.kurohicncr.top/Article/details/378886813762.shtml
+- 2026-06-30 09:16 - 上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶<br><br> | ??:https://www.share.minike.top/Article/details/6451938105.shtml
+- 2026-06-30 09:20 - 郑钦文温网一轮游<br><br> | ??:https://www.share.minike.top/Article/details/36505987.shtml
+- 2026-06-30 09:14 - 女心理师<br><br> | ??:https://www.blog.minike.top/Article/details/387985.shtml
+- 2026-06-30 09:22 - 曝iPhone18Pro机密文件现身暗网<br><br> | ??:http://www.blog.minike.top/Article/details/223473.shtml
+- 2026-06-30 09:09 - 日本队主帅道歉<br><br> | ??:http://www.blog.minike.top/Article/details/0949028820.shtml
+- 2026-06-30 09:13 - 古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?<br><br> | ??:https://www.share.minike.top/Article/details/5525548368.shtml
+- 2026-06-30 09:19 - 爆冷出局！德国点球大战不敌巴拉圭<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/03416660826.shtml
+- 2026-06-30 09:10 - 想问一下学日语的大佬，自学日语要怎么学？<br><br> | ??:http://www.share.minike.top/Article/details/72392.shtml
+- 2026-06-30 09:02 - 世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/289397217487.shtml
+- 2026-06-30 09:01 - 巴西2比1日本<br><br> | ??:http://www.blog.minike.top/Article/details/88644470621.shtml
+- 2026-06-30 08:56 - 莫兰特被交易到开拓者<br><br> | ??:https://www.share.kurohicncr.top/Article/details/10758461225.shtml
+- 2026-06-30 08:56 - hanser X 赖美云《室内系的Track Maker》<br><br> | ??:https://www.share.minike.top/Article/details/412889660944.shtml
+- 2026-06-30 09:20 - 毕业以后，你最怀念的大学记忆是什么？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/79281952234.shtml

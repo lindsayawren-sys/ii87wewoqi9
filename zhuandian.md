@@ -1,56 +1,48 @@
-# 网传“空气炸锅做的食物会致癌”是真的吗？
+# 视频 | 马斯克：面对失败，从不畏惧
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-近年来，空气炸锅成了厨房的新晋网红，对于厨房小白来说，“万物皆可炸”的空气炸锅实属神器。但是近期，“空气炸锅烹饪的食物会致癌”的说法在网络广泛传播，引发不少消费者担忧。这款深受家庭欢迎的厨房小家电，真的存在健康隐患吗？我们还能安心使用空气炸锅吗？中国农业大学食品科学与营养工程学院教授 范志红：大家所担心的这些所谓的致癌物和疑似致癌物，它们都是因为食材被加热到一定温度以后会产生的
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：Space太空探索 责任编辑：宋雅芳
 
 ## 正文
 
-近年来，空气炸锅成了厨房的新晋网红，对于厨房小白来说，“万物皆可炸”的空气炸锅实属神器。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-但是近期，“空气炸锅烹饪的食物会致癌”的说法在网络广泛传播，引发不少消费者担忧。
-
-这款深受家庭欢迎的厨房小家电，真的存在健康隐患吗？
-
-我们还能安心使用空气炸锅吗？
-
-中国农业大学食品科学与营养工程学院教授 范志红：大家所担心的这些所谓的致癌物和疑似致癌物，它们都是因为食材被加热到一定温度以后会产生的。
-
-其实，跟它是普通的锅，还是烤箱，还是空气炸锅之间并没有一个绝对的关联。
-
-专家表示，并不是食用了高温烹饪的食物就会致癌，摄入量低则无须担心，但长期食用过度焦黄甚至焦煳的食物，确实会增加致癌的风险。
-
-空气炸锅是健康的烹饪方式吗？
+来源：Space太空探索 责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-30 09:02 - Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md
-- 2026-06-30 09:05 - 老人卖菜获博主帮助后遇车祸去世<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md
-- 2026-06-30 09:06 - 吴启华卖肖像权拍AI电影<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md
-- 2026-06-30 09:08 - 【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md
-- 2026-06-30 09:11 - 2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md
-- 2026-06-30 08:57 - 宜宾地震食客避难后折返 无人逃单<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md
-- 2026-06-30 09:07 - 《名肘探科比》：科比大战裂口女<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md
-- 2026-06-30 09:11 - 12人以护剧为名敲诈剧组艺人被抓<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md
-- 2026-06-30 09:04 - 梅德韦杰夫列举俄罗斯面临的七大挑战<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md
-- 2026-06-30 09:23 - 恋与深空已删除锅里洗澡文案<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md
+- 2026-06-30 09:06 - 欧洲家电巨头为何输掉了这个夏天<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md
+- 2026-06-30 09:09 - 女子用家人生日买彩票中1032万<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md
+- 2026-06-30 09:04 - 马航MH370传来最新消息<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md
+- 2026-06-30 09:10 - 如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md
+- 2026-06-30 09:09 - 收到补税提醒尽快办理 明起有滞纳金<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md
+- 2026-06-30 08:55 - 《名肘探科比》：科比大战裂口女<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md
+- 2026-06-30 09:21 - 哪部作品、哪本书、哪首歌，值得被一直传下去？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md
+- 2026-06-30 09:17 - 诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md
+- 2026-06-30 09:23 - 王健林甩卖超80座万达广场<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md
+- 2026-06-30 09:19 - 金牌调解<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md
+- 2026-06-30 08:55 - 佐野海舟远射破门<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md
+- 2026-06-30 09:06 - 日本五次世界杯淘汰赛全败<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md
+- 2026-06-30 08:56 - 巴西在进攻三区完成210脚传球<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md
+- 2026-06-30 08:57 - 点球大战和诺伊尔都救不回德国队<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:12 - 毕业以后，你最怀念的大学记忆是什么？<br><br> | ??:http://www.share.minike.top/Article/details/756634.shtml
-- 2026-06-30 09:03 - 曝iPhone18Pro机密文件现身暗网<br><br> | ??:http://www.share.minike.top/Article/details/17485147770.shtml
-- 2026-06-30 09:13 - 日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？<br><br> | ??:https://www.share.minike.top/Article/details/8221222536.shtml
-- 2026-06-30 09:16 - 日本将帅赛后采访纷纷哽咽落泪<br><br> | ??:http://www.share.kurohicncr.top/Article/details/75001600684.shtml
-- 2026-06-30 08:57 - 古代人对纳妾的态度是什么样的？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/9214836356.shtml
-- 2026-06-30 09:01 - 国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/49827471.shtml
-- 2026-06-30 09:12 - 曝娱乐圈大部分明星失业<br><br> | ??:https://www.share.minike.top/Article/details/02818887279.shtml
-- 2026-06-30 09:16 - 歌剧老师锐评歌手第6期<br><br> | ??:http://www.share.minike.top/Article/details/1423487.shtml
-- 2026-06-30 08:58 - 德国进球被吹<br><br> | ??:http://www.share.kurohicncr.top/Article/details/06874.shtml
-- 2026-06-30 09:07 - 《名肘探科比》：科比大战裂口女<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/722032.shtml
-- 2026-06-30 09:20 - 爱很美味<br><br> | ??:https://www.blog.minike.top/Article/details/66748270.shtml
-- 2026-06-30 09:01 - 7月1日起 一批新规即将落地<br><br> | ??:http://www.share.minike.top/Article/details/430943752531.shtml
-- 2026-06-30 09:16 - 赛博朋克边缘行者2预告片<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/456454531.shtml
-- 2026-06-30 09:17 - 日本五次世界杯淘汰赛全败<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/459966325.shtml
-- 2026-06-30 09:12 - 消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？<br><br> | ??:http://www.blog.minike.top/Article/details/4324353.shtml
+- 2026-06-30 09:17 - 国务院：稳步推进研究生考试招生改革<br><br> | ??:http://www.share.minike.top/Article/details/5877847.shtml
+- 2026-06-30 09:03 - 谢依霖说杨幂是聚会第一把张罗手<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/5371058.shtml
+- 2026-06-30 09:13 - 古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?<br><br> | ??:http://www.share.minike.top/Article/details/548391923553.shtml
+- 2026-06-30 09:18 - 警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/766910.shtml
+- 2026-06-30 09:11 - 领克07GT搭载超跑同源MRC悬架<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/904762858.shtml
+- 2026-06-30 09:00 - 7月1日起 一批新规即将落地<br><br> | ??:https://www.share.minike.top/Article/details/22407876.shtml
+- 2026-06-30 09:18 - 疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！<br><br> | ??:http://www.share.minike.top/Article/details/879733.shtml
+- 2026-06-30 08:58 - 张碧晨一开口梦回逐玉<br><br> | ??:http://www.share.kurohicncr.top/Article/details/969138.shtml
+- 2026-06-30 09:19 - 爱很美味<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/37227274.shtml
+- 2026-06-30 08:57 - 为什么小组赛出局会让韩国人破防<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/86489.shtml
+- 2026-06-30 09:14 - 爱直接对嘴喝饮料的人天塌了<br><br> | ??:https://www.share.kurohicncr.top/Article/details/502325377.shtml
+- 2026-06-30 08:58 - Melo向柳智敏张元英道歉<br><br> | ??:https://www.blog.minike.top/Article/details/895528556524.shtml
+- 2026-06-30 09:05 - 德国身价是巴拉圭6倍<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/4523624.shtml
+- 2026-06-30 09:07 - 如何评价《龙之家族》第三季第二集？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/931950727851.shtml
+- 2026-06-30 08:54 - 三星投资计划<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/66106886952.shtml

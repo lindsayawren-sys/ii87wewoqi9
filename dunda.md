@@ -1,57 +1,52 @@
-# “沙漠水城”牵手“锦绣太原”：宁夏中卫到山西太原推介旅游资源
+# 海南陵水国际影视基地近两年拍摄约140部短剧 多部发行海外
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-中新网太原4月18日电 (刘小红)宁夏中卫2026文旅推介暨产业对接活动17日在山西太原举办。活动现场发布多条特色旅游线路，深入解读“引客入宁”系列优惠措施，并推出银发游专属服务，为太原游客提供更丰富多元的旅游选择。 推介会在悠扬高亢的西北“花儿”联唱中拉开帷幕，浓郁的地域风情迅速点燃现场气氛。主办方围绕“沙漠水城·云天中卫”与“春游宁夏醉揽星霞”主题，全面展示宁夏优质的文旅资
+发布时间：2026年06月24日 11:57 来源：中国新闻网 6月23日，来自12个国家的媒体人走进海南陵水的海风国际影视基地。 据该影视基地品牌宣传部经理刘禾介绍，海风国际影视基地2024年8月正式对外运行以来，已拍摄近140部短剧，其中由外籍演员出演的海外短剧近20部；由国内演员出演制作，且发行到国外的短剧近10部。海外发行多在美国、英国、新加坡、泰国。 俄罗斯《龙报》社
 
 ## 正文
 
-中新网太原4月18日电 (刘小红)宁夏中卫2026文旅推介暨产业对接活动17日在山西太原举办。
+发布时间：2026年06月24日 11:57 来源：中国新闻网 6月23日，来自12个国家的媒体人走进海南陵水的海风国际影视基地。
 
-活动现场发布多条特色旅游线路，深入解读“引客入宁”系列优惠措施，并推出银发游专属服务，为太原游客提供更丰富多元的旅游选择。
+据该影视基地品牌宣传部经理刘禾介绍，海风国际影视基地2024年8月正式对外运行以来，已拍摄近140部短剧，其中由外籍演员出演的海外短剧近20部；由国内演员出演制作，且发行到国外的短剧近10部。
 
-推介会在悠扬高亢的西北“花儿”联唱中拉开帷幕，浓郁的地域风情迅速点燃现场气氛。
+海外发行多在美国、英国、新加坡、泰国。
 
-主办方围绕“沙漠水城·云天中卫”与“春游宁夏醉揽星霞”主题，全面展示宁夏优质的文旅资源，并发布星空度假、黄河研学、康养避暑等特色旅游线路，全方位呈现宁夏及中卫大漠、黄河、星空、绿洲、高山交织的独特魅力。
+俄罗斯《龙报》社国际合作部总经理林喆参观后表示，该影视基地多种场景让自己感觉很穿越，不到半小时，体验了不同的人生。
 
-为增强活动互动性与亲和力，现场设置了多个趣味游戏环节。
+林喆觉得俄罗斯市场对短剧会感兴趣，希望以后有机会推荐俄罗斯演员到该影视基地拍摄，影视公司也可尝试将短剧发行到俄罗斯。
 
-方言互动妙趣横生，中卫特色文创礼品赠送引发嘉宾热情参与；互动问答环节气氛热烈，嘉宾在轻松氛围中进一步加深了对中卫及宁夏文旅的认知。
-
-活动现场，中卫市部分景区与太原文旅企业举行了合作签约仪式，现场达成7项合作，预计全年输送游客5万人次。
-
-双方就客源互送、线路共建、市场共拓等方面开展深度合作，并重点聚焦银发旅游市场，创新打造“太原—中卫”银发游新模式，为中老年游客提供舒适、安心、优质的专属旅游服务，共同开拓晋宁文旅合作新蓝海。
+(记者 李宇凡 林士杰) 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 08:55 - 这种关系可能正在悄悄“催老”你<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md
-- 2026-06-30 09:20 - 勇敢的心第二部<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md
-- 2026-06-30 08:55 - 女子发现孩子非现任亲生状告前任索赔<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md
-- 2026-06-30 09:00 - 莫兰特转投开拓者效力<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md
-- 2026-06-30 09:11 - 金刚川<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md
-- 2026-06-30 09:11 - 《赛博朋克：边缘行者 2》｜官方预告片<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md
-- 2026-06-30 09:19 - 巴西在进攻三区完成210脚传球<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md
-- 2026-06-30 09:08 - 「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md
-- 2026-06-30 09:13 - 金鹰奖视后提名预测<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md
-- 2026-06-30 09:14 - 感动全网的699分女生想报考清华<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md
-- 2026-06-30 09:20 - 81岁老人被男子买光菜回家车祸去世<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md
+- 2026-06-30 09:17 - 如何看待武亮说大学生生活费1500就够用这一言论？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md
+- 2026-06-30 09:18 - 安切洛蒂 换人<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md
+- 2026-06-30 09:00 - 曝娱乐圈大部分明星失业<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md
+- 2026-06-30 09:02 - 重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md
+- 2026-06-30 09:14 - 如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md
+- 2026-06-30 09:02 - 曝老詹对自由市场态度与以往截然不同<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md
+- 2026-06-30 09:11 - 巴拉圭门将<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md
+- 2026-06-30 09:01 - 《鸣潮》玄方主题曲 MV | 定玄<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md
+- 2026-06-30 09:11 - 巴拉圭门将<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md
+- 2026-06-30 08:54 - 德国巴拉圭 折磨<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:58 - 考入南大计算机，复读考清北值吗？<br><br> | ??:http://www.share.minike.top/Article/details/6905382.shtml
-- 2026-06-30 09:05 - 主人解开狗绳2只狗将路人撕咬致死<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/7305253.shtml
-- 2026-06-30 09:11 - DeepSeek启动成立来最大规模招聘<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/58613803135.shtml
-- 2026-06-30 08:57 - 孙兴慜道歉<br><br> | ??:http://www.share.minike.top/Article/details/98494.shtml
-- 2026-06-30 08:57 - 杨紫获白玉兰视后为何争议难平<br><br> | ??:http://www.share.kurohicncr.top/Article/details/56851.shtml
-- 2026-06-30 09:12 - 现在叛逆期的孩子最怕的是什么？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/98990.shtml
-- 2026-06-30 09:15 - 巴拉圭先进球了<br><br> | ??:https://www.share.minike.top/Article/details/120354915.shtml
-- 2026-06-30 09:10 - 王菲谢霆锋十指紧扣好甜<br><br> | ??:http://www.share.kurohicncr.top/Article/details/36922313.shtml
-- 2026-06-30 09:18 - 高考结束了，你会让孩子在家玩手机吗？<br><br> | ??:https://www.blog.minike.top/Article/details/3499337.shtml
-- 2026-06-30 09:00 - 宜宾地震食客避难后折返 无人逃单<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/19845.shtml
-- 2026-06-30 09:22 - 吴易昺不敌德约科维奇 止步温网首轮<br><br> | ??:https://www.share.kurohicncr.top/Article/details/144689210530.shtml
-- 2026-06-30 09:23 - 曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？<br><br> | ??:http://www.blog.minike.top/Article/details/833638706.shtml
-- 2026-06-30 09:08 - 为什么会有「念旧」的心理？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/83202.shtml
-- 2026-06-30 09:21 - 四川凉山落石砸毁车辆 3人遇难<br><br> | ??:https://www.share.minike.top/Article/details/026508552399.shtml
-- 2026-06-30 09:23 - 日本反击率先破门<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/51128721178.shtml
+- 2026-06-30 08:57 - 失明的我带老妈去了趟“火星”<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/377412256642.shtml
+- 2026-06-30 09:00 - 美加墨世界杯：亚洲足球的得意与失意<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/47017962.shtml
+- 2026-06-30 09:03 - 恋与深空已删除锅里洗澡文案<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/14004693633.shtml
+- 2026-06-30 09:13 - 世界杯：荷兰vs摩洛哥<br><br> | ??:http://www.share.minike.top/Article/details/68039976262.shtml
+- 2026-06-30 09:02 - 森保一致歉：世界第一目标没能实现<br><br> | ??:http://www.blog.minike.top/Article/details/78793382.shtml
+- 2026-06-30 09:16 - 日本队5进世界杯淘汰赛0胜<br><br> | ??:https://www.share.minike.top/Article/details/32491238.shtml
+- 2026-06-30 09:10 - 考入南大计算机，复读考清北值吗？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/3083497326.shtml
+- 2026-06-30 09:06 - 王楚钦孙颖莎混双对手产生<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/6719961455.shtml
+- 2026-06-30 09:22 - 莫兰特被交易到开拓者<br><br> | ??:http://www.share.kurohicncr.top/Article/details/82119211.shtml
+- 2026-06-30 09:24 - 承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/41316.shtml
+- 2026-06-30 09:13 - 荀彧和曹操反目成仇的根本原因是什么？<br><br> | ??:https://www.blog.minike.top/Article/details/392103784994.shtml
+- 2026-06-30 08:54 - 德国进球被吹<br><br> | ??:http://www.share.minike.top/Article/details/017457.shtml
+- 2026-06-30 09:06 - 勇士续约波尔津吉斯<br><br> | ??:http://www.share.kurohicncr.top/Article/details/467874995.shtml
+- 2026-06-30 09:23 - 可以细成这样？1600万预算，颠覆我认知的改造！<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/484575893.shtml
+- 2026-06-30 09:01 - 韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/589007.shtml

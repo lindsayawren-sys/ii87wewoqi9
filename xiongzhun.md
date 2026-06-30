@@ -1,56 +1,59 @@
-# 联想集团乔健：企业想真正用好AI，要打破三个瓶颈
+# 金价震荡！工行、建行公告：即将关闭，尽快卖出或平仓
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-专题：2026商界木兰年会 2026年4月17-18日，由《中国企业家》杂志主办的2026（第十八届）《中国企业家》商界木兰年会在浙江省湖州市安吉县召开，主题为“她创·无界”。联想集团高级副总裁、首席战略官、首席市场官，木兰汇轮值主席乔健谈到，算力、模型、数据，这三大发展浪潮，让AI越来越普及，越来越个性化、企业化。 但是，她指出，对企业来说，要真正用好 AI，目前还有三个特别
+来源：中国经营报 6月25日下午，现货黄金短线拉升至4000美元/盎司，随后有所回落，现报3982.718美元/盎司，跌0.23%；现货白银现报57.206美元/盎司，跌0.29%。 国内金饰价持续下调。6月25日，部分品牌克价距离年初高点跌近500元，跌幅超28%。老凤祥报价1215元/克，较前一日下降26元，克价距离年初高点跌498元；周生生报价1221元/克，较前一日下降
 
 ## 正文
 
-专题：2026商界木兰年会 2026年4月17-18日，由《中国企业家》杂志主办的2026（第十八届）《中国企业家》商界木兰年会在浙江省湖州市安吉县召开，主题为“她创·无界”。
+来源：中国经营报 6月25日下午，现货黄金短线拉升至4000美元/盎司，随后有所回落，现报3982.718美元/盎司，跌0.23%；现货白银现报57.206美元/盎司，跌0.29%。
 
-联想集团高级副总裁、首席战略官、首席市场官，木兰汇轮值主席乔健谈到，算力、模型、数据，这三大发展浪潮，让AI越来越普及，越来越个性化、企业化。
+国内金饰价持续下调。
 
-但是，她指出，对企业来说，要真正用好 AI，目前还有三个特别现实的瓶颈： 第一个瓶颈，是“装不上”，AI部署难题。
+6月25日，部分品牌克价距离年初高点跌近500元，跌幅超28%。
 
-对于中小企业来说，挑战在于如何用最低的成本，在缺乏专业人才的情况下，利用碎片化的数据实现业务闭环。
+老凤祥报价1215元/克，较前一日下降26元，克价距离年初高点跌498元；周生生报价1221元/克，较前一日下降19元，克价距离年初高点跌487元；周大福、六福分别报价1222元/克、1220元/克，较前一日均下降16元，克价距离年初高点分别跌约478元、480元。
 
-对于大型企业来说，虽然拥有海量业务数据和AI技术专家，但已有的IT系统是高度碎片化的，因为没法标准化，这套方案在这儿能用，换个场景就得重来，很难在大范围内快速复制。
+近日，在部分银行大幅上调代理上海黄金交易所个人贵金属交易延期合约保证金比例后，有银行宣布将关闭相关业务。
 
-第二个瓶颈，是“不敢用”，AI安全难题。
+6月25日，建设银行发布《关于代理上海黄金交易所个人贵金属交易业务近期安排的公告》。
 
-虽然大模型都在发展，但都是云端的。
+公告称，建设银行将于7月24日日终清算时起关闭代理上海黄金交易所个人贵金属交易业务功能。
 
-不管是大企业还是小企业，大家最担心的就是安全，个人信息、商业机密或客户隐私等敏感资产一旦外泄，后果非常严重。
+关闭的业务品种包括：Au99.99、Au100g、PGC30g、Au、mAu、Ag等。
 
 ## 相关推荐
 
-- 2026-06-30 09:07 - 男子诋毁袁隆平科研成果被刑拘<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md
-- 2026-06-30 09:08 - 世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md
-- 2026-06-30 09:09 - 佐野海舟远射破门<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md
-- 2026-06-30 09:21 - 日本球迷被强行披上巴西国旗<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md
-- 2026-06-30 09:17 - 德国淘汰<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md
-- 2026-06-30 09:00 - “以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md
-- 2026-06-30 09:05 - 王源近几年没有路演了<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md
-- 2026-06-30 08:55 - 请回答王牌2019<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md
-- 2026-06-30 09:23 - 流金岁月<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md
-- 2026-06-30 09:14 - 巴西足球能否再现昔日荣光<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md
+- 2026-06-30 09:02 - 蔚来回应高压水枪洗车掉漆<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md
+- 2026-06-30 09:00 - 未来的飞机可能会用电吗？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md
+- 2026-06-30 08:57 - 这一刀 会很帅<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md
+- 2026-06-30 09:19 - MSI应援曲 如果季中成回忆<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md
+- 2026-06-30 08:56 - 为什么很多企业推行“扁平化管理”后，效率反而下降了？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md
+- 2026-06-30 09:05 - 妻子撞死家暴丈夫案二审案情反转<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md
+- 2026-06-30 09:09 - 【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md
+- 2026-06-30 09:20 - 如何评价《龙之家族》第三季第二集？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md
+- 2026-06-30 09:08 - 内马尔安慰日本球员<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md
+- 2026-06-30 09:24 - 马宁怒怼巴拉圭教练组<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md
+- 2026-06-30 09:06 - 时光音乐会<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md
+- 2026-06-30 09:20 - 7月1日起 一批新规即将落地<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md
+- 2026-06-30 09:14 - HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:57 - 【硬核拆解】汽车人到底离我们有多远？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/7144344.shtml
-- 2026-06-30 09:00 - 曝灰熊将莫兰特交易至开拓者<br><br> | ??:http://www.blog.minike.top/Article/details/0669443527.shtml
-- 2026-06-30 08:56 - 重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！<br><br> | ??:https://www.share.kurohicncr.top/Article/details/96334815.shtml
-- 2026-06-30 09:10 - 金牌调解<br><br> | ??:https://www.blog.minike.top/Article/details/76517213290.shtml
-- 2026-06-30 09:16 - F1奥地利站赛后复盘<br><br> | ??:http://www.share.kurohicncr.top/Article/details/9185191568.shtml
-- 2026-06-30 09:21 - 陈幸同晋级WTT美国大满贯女单32强<br><br> | ??:http://www.share.kurohicncr.top/Article/details/44330.shtml
-- 2026-06-30 09:09 - 《赛博朋克：边缘行者 2》｜官方预告片<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/698745123384.shtml
-- 2026-06-30 08:58 - 这种关系可能正在悄悄“催老”你<br><br> | ??:http://www.share.minike.top/Article/details/95854.shtml
-- 2026-06-30 08:55 - 我和我的家乡<br><br> | ??:https://www.share.minike.top/Article/details/0523345.shtml
-- 2026-06-30 09:02 - 日本五次世界杯淘汰赛全败<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/8010708546.shtml
-- 2026-06-30 08:56 - 租房时你会更看重「住得舒服」，还是「每天通勤更方便」？<br><br> | ??:http://www.share.minike.top/Article/details/71731222.shtml
-- 2026-06-30 09:16 - 首届《哈基米歌王争霸赛》总决赛<br><br> | ??:http://www.blog.minike.top/Article/details/50749926705.shtml
-- 2026-06-30 09:02 - 《名肘探科比》：科比大战裂口女<br><br> | ??:https://www.share.kurohicncr.top/Article/details/19994538204.shtml
-- 2026-06-30 08:57 - 博世们还在犹豫 美的们已经卖断货<br><br> | ??:http://www.blog.minike.top/Article/details/18762.shtml
-- 2026-06-30 09:13 - 日本五次世界杯淘汰赛全败<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/2408196096.shtml
+- 2026-06-30 08:59 - 男子中医院拔火罐致浅2度烧伤<br><br> | ??:https://www.share.kurohicncr.top/Article/details/21242871826.shtml
+- 2026-06-30 09:05 - 我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎<br><br> | ??:https://www.share.kurohicncr.top/Article/details/38786142895.shtml
+- 2026-06-30 09:21 - 卡塞米罗头球破门<br><br> | ??:https://www.share.kurohicncr.top/Article/details/21118.shtml
+- 2026-06-30 08:54 - 外国游客开始涌入中国农村<br><br> | ??:https://www.share.minike.top/Article/details/982229886522.shtml
+- 2026-06-30 08:59 - 第一次对自信的力量有了实感<br><br> | ??:https://www.blog.minike.top/Article/details/01258.shtml
+- 2026-06-30 09:01 - 警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？<br><br> | ??:http://www.share.minike.top/Article/details/38655650.shtml
+- 2026-06-30 09:00 - 电影抓特务上映11天破亿<br><br> | ??:http://www.blog.minike.top/Article/details/2842008698.shtml
+- 2026-06-30 08:54 - 为什么香港的冲厕水是咸的？<br><br> | ??:http://www.share.minike.top/Article/details/91672850269.shtml
+- 2026-06-30 08:57 - 我把队友的7连跪剪成了艺术<br><br> | ??:http://www.share.kurohicncr.top/Article/details/35795203839.shtml
+- 2026-06-30 09:01 - 【硬核拆解】汽车人到底离我们有多远？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/05393401.shtml
+- 2026-06-30 09:07 - 免费试吃发差评被店家挂店门避雷<br><br> | ??:https://www.share.minike.top/Article/details/67151931.shtml
+- 2026-06-30 09:23 - 第3集丨“柠檬茶能换怀表？”<br><br> | ??:http://www.share.minike.top/Article/details/65220.shtml
+- 2026-06-30 09:18 - 欧洲空调卖疯了 下一个爆款是储能吗<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/15077391.shtml
+- 2026-06-30 09:19 - 普京为何将俄乌谈判时间表与伊朗挂钩<br><br> | ??:http://www.share.kurohicncr.top/Article/details/20941397.shtml
+- 2026-06-30 09:10 - 马宁怒怼巴拉圭教练组<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/024762.shtml

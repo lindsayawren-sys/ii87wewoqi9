@@ -1,57 +1,57 @@
-# 特朗普：周末美国将继续与伊朗会谈 很多好事将发生
+# 李玟遗嘱执行人，起诉李玟生前精神科主诊医生及两名救护员
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-特朗普表示，“谈判正在进行中。本周末也会继续，很多好事将发生。” 特朗普是在亚利桑那州对记者发表上述讲话的。 他未进一步说明谈判的具体情况。 特朗普还补充称：“这也包括黎巴嫩”。责任编辑：何云
+歌手李玟(CoCo)因抑郁症在家中轻生，于2023年7月5日与世长辞。其遗嘱执行人于6月24日入禀区域法院，指李玟生前的精神科主诊医生及两名救护员，在提供治疗及运送她前往医院期间涉嫌疏忽，并向他们索赔。司法机构网站显示，该案件将于12月7日开庭审理。诉状显示，原告为李玟遗产的执行人Wang Fang Chi Frances，被告包括精神科医生王颖姗、两名救护员Lao Tai F
 
 ## 正文
 
-特朗普表示，“谈判正在进行中。
+歌手李玟(CoCo)因抑郁症在家中轻生，于2023年7月5日与世长辞。
 
-本周末也会继续，很多好事将发生。
+其遗嘱执行人于6月24日入禀区域法院，指李玟生前的精神科主诊医生及两名救护员，在提供治疗及运送她前往医院期间涉嫌疏忽，并向他们索赔。
 
-” 特朗普是在亚利桑那州对记者发表上述讲话的。
+司法机构网站显示，该案件将于12月7日开庭审理。
 
-他未进一步说明谈判的具体情况。
+诉状显示，原告为李玟遗产的执行人Wang Fang Chi Frances，被告包括精神科医生王颖姗、两名救护员Lao Tai Fung及Lo Hou On，以及香港特区政府消防处。
 
-特朗普还补充称：“这也包括黎巴嫩”。
+原告根据《致命事故条例》及《法律修订及改革(综合)条例》提出申索。
 
-责任编辑：何云
+据了解，王颖姗是李玟的精神科主诊医生。
+
+李玟在2022年8月25日至2023年6月23日期间，曾在王颖姗的诊所接受诊疗，亦曾通过电话问诊。
+
+原告指王颖姗在上述期间提供的治疗涉及疏忽。
 
 ## 相关推荐
 
-- 2026-06-30 09:15 - 女子遭下药退赔偿拟追刑责<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md
-- 2026-06-30 09:20 - 德国4比5巴拉圭<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md
-- 2026-06-30 09:11 - 这些7月新规影响你我<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md
-- 2026-06-30 09:00 - 世界杯：荷兰vs摩洛哥<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md
-- 2026-06-30 08:58 - 覃予萱晋级WTT美国大满贯女单32强<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md
-- 2026-06-30 09:22 - 如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md
-- 2026-06-30 09:08 - 致敬！中国首批缉毒警已全体退休<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md
-- 2026-06-30 09:07 - 巴西vs日本<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md
-- 2026-06-30 09:23 - ASMR 千禧年百货大楼初代柜姐给你化大头贴妆<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md
-- 2026-06-30 09:03 - 《虎吹最难绷の一集》<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md
-- 2026-06-30 08:58 - 挪威国家队紧急从本土订购大批海鲜<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md
-- 2026-06-30 08:58 - 有哪些被认为是现代才有的东西其实古代就有了？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md
-- 2026-06-30 09:19 - 内马尔替补<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md
-- 2026-06-30 09:12 - 荷兰vs摩洛哥<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md
-- 2026-06-30 09:21 - 德国淘汰<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md
+- 2026-06-30 09:03 - 巴拉圭进球<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md
+- 2026-06-30 09:23 - 美股收盘 热门中概股普涨<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md
+- 2026-06-30 08:58 - 巴西2比1日本<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md
+- 2026-06-30 09:08 - 日本球员说被绝杀非常不甘心<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md
+- 2026-06-30 09:08 - 刘宇宁高情商化解谁站C位<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md
+- 2026-06-30 09:18 - 男子中医院拔火罐致浅2度烧伤<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md
+- 2026-06-30 08:55 - 荷兰VS摩洛哥<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md
+- 2026-06-30 09:02 - 点球大战<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md
+- 2026-06-30 09:16 - 现在叛逆期的孩子最怕的是什么？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md
+- 2026-06-30 09:21 - 恋与深空回应争议<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md
+- 2026-06-30 08:59 - 国内最大沙漠发洪水意味着什么<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:07 - 好像看到了人类带孩子崩溃的样子<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/3208547.shtml
-- 2026-06-30 09:11 - 阿娇瘦了10斤<br><br> | ??:http://www.share.kurohicncr.top/Article/details/658619512.shtml
-- 2026-06-30 09:17 - iPhone18e曝光<br><br> | ??:http://www.share.kurohicncr.top/Article/details/024309.shtml
-- 2026-06-30 09:00 - 蜘蛛侠:英雄归来<br><br> | ??:https://www.share.kurohicncr.top/Article/details/189070.shtml
-- 2026-06-30 09:19 - 诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天<br><br> | ??:http://www.share.minike.top/Article/details/72849.shtml
-- 2026-06-30 09:20 - 考入南大计算机，复读考清北值吗？<br><br> | ??:https://www.share.minike.top/Article/details/1208434853.shtml
-- 2026-06-30 09:20 - 田中碧失误<br><br> | ??:http://www.share.kurohicncr.top/Article/details/581874665778.shtml
-- 2026-06-30 08:57 - 商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/89200951.shtml
-- 2026-06-30 09:18 - 《名肘探科比》：科比大战裂口女<br><br> | ??:https://www.share.kurohicncr.top/Article/details/563247611.shtml
-- 2026-06-30 09:23 - IGN评测电影版后室<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/458307348743.shtml
-- 2026-06-30 09:16 - 马杜罗账号在纽约发文致谢各国援助<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/008790924168.shtml
-- 2026-06-30 09:12 - 我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎<br><br> | ??:https://www.share.kurohicncr.top/Article/details/07377.shtml
-- 2026-06-30 09:20 - 我吃遍了西安最強的街頭小吃，第九家強得離譜！<br><br> | ??:http://www.share.minike.top/Article/details/319408686589.shtml
-- 2026-06-30 08:59 - 首届《哈基米歌王争霸赛》总决赛<br><br> | ??:http://www.share.kurohicncr.top/Article/details/41698787.shtml
-- 2026-06-30 09:11 - 庆祝中国共产党成立105周年大会将举行<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/49265456.shtml
+- 2026-06-30 09:06 - 曝灰熊将莫兰特交易至开拓者<br><br> | ??:https://www.blog.minike.top/Article/details/738086031.shtml
+- 2026-06-30 08:54 - 欧洲装一台空调有多难<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/98642.shtml
+- 2026-06-30 09:11 - 檀健次王楚然吻戏看热了<br><br> | ??:http://www.share.minike.top/Article/details/92013941.shtml
+- 2026-06-30 08:56 - 为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/98805748.shtml
+- 2026-06-30 08:55 - 美股深夜大反弹 特斯拉飙涨8%<br><br> | ??:http://www.share.kurohicncr.top/Article/details/184967337333.shtml
+- 2026-06-30 09:10 - 韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？<br><br> | ??:https://www.share.minike.top/Article/details/247444.shtml
+- 2026-06-30 08:58 - 安切洛蒂 换人<br><br> | ??:http://www.share.minike.top/Article/details/8979344331.shtml
+- 2026-06-30 09:20 - 高考结束了，你会让孩子在家玩手机吗？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/313545.shtml
+- 2026-06-30 09:17 - 张碧晨一开口梦回逐玉<br><br> | ??:https://www.share.kurohicncr.top/Article/details/76569.shtml
+- 2026-06-30 09:19 - 浪姐成团夜爆笑吐槽<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/0820190674.shtml
+- 2026-06-30 08:55 - 如何把斧兵改造成精英怪？提高攻速移速！！！<br><br> | ??:https://www.share.minike.top/Article/details/735901385.shtml
+- 2026-06-30 08:55 - 有哪些值得一提的生活窍门？<br><br> | ??:https://www.share.minike.top/Article/details/118441963.shtml
+- 2026-06-30 09:07 - 未来五年，教育强国这样建设<br><br> | ??:http://www.blog.minike.top/Article/details/150290160.shtml
+- 2026-06-30 09:16 - 德国队连续三届世界杯无缘16强<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/04016878301.shtml
+- 2026-06-30 09:11 - 孙兴慜发长文致歉<br><br> | ??:http://www.share.minike.top/Article/details/16168759.shtml

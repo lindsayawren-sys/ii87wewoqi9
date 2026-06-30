@@ -1,59 +1,56 @@
-# 第四十二届兰亭书法节在浙江绍兴开幕
+# 百余所高校在沪直面考生家庭答疑 助力考生科学填报高考志愿
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-为啥“100%果汁”，配料表第一位是水？贪得无厌美利坚，“吃拿卡要”每一天从“谭警官”到“谭sir”：一位“交警网红”的变与不变苏林去的这所大学，太宝藏了吧！开赛前两个月已爆单 义乌点燃世界杯经济明起较强冷空气将影响我国，局地降温10℃以上创历史！11名中国选手晋级斯诺克世锦赛正赛中东战火冲击全球，中国经济开门红展现韧性一季度中国经济成绩单现五大亮点中东局势推高燃油成本 航空公
+中新网上海6月24日电(记者 许婧)6月23日，2026年上海高考放榜。知分知位后，如何填报志愿？6月24日，上海市普通高校志愿填报咨询会在上海杉达学院金海校区举办。活动吸引近8000组考生家庭近2万人预约参与，全国124所本科高校的招生工作人员面对面为考生和家长答疑。 据了解，本次咨询会汇集了包括复旦大学、上海交通大学、同济大学、中国科学技术大学、浙江大学、武汉大学等全国12
 
 ## 正文
 
-为啥“100%果汁”，配料表第一位是水？
+中新网上海6月24日电(记者 许婧)6月23日，2026年上海高考放榜。
 
-贪得无厌美利坚，“吃拿卡要”每一天从“谭警官”到“谭sir”：一位“交警网红”的变与不变苏林去的这所大学，太宝藏了吧！
+知分知位后，如何填报志愿？
 
-开赛前两个月已爆单 义乌点燃世界杯经济明起较强冷空气将影响我国，局地降温10℃以上创历史！
+6月24日，上海市普通高校志愿填报咨询会在上海杉达学院金海校区举办。
 
-11名中国选手晋级斯诺克世锦赛正赛中东战火冲击全球，中国经济开门红展现韧性一季度中国经济成绩单现五大亮点中东局势推高燃油成本 航空公司削减航班运力10小时、2400公里！
+活动吸引近8000组考生家庭近2万人预约参与，全国124所本科高校的招生工作人员面对面为考生和家长答疑。
 
-苏林再坐中国高铁，背后深意耐人寻味法国国民议会通过文物返还法案，大量流失文物能否顺利回家？
+据了解，本次咨询会汇集了包括复旦大学、上海交通大学、同济大学、中国科学技术大学、浙江大学、武汉大学等全国124所本科高校。
 
-开局良好！
+上海市教育考试院专家也来到现场，与考生及家长面对面交流。
 
-一图读懂中国经济一季报亮点杀敌八百，自损八千台湾教师王孟筠：台湾同胞在两岸文化交流中增进民族归属感海丝古港、世遗土楼……人这一辈子，一定要去一趟漳州！
+活动还特邀权威专家提供免费“一对一”个性化志愿填报服务，上海市教育考试院原高招办主任及部分区教育考试中心资深专家针对性地为考生分析院校选择、志愿结构等问题。
 
-苏林当选越南国家主席后首次外访，为何选择中国？
+同时，哈尔滨工业大学、东华大学、华东理工大学、北京航空航天大学等16所高校举行了专场宣讲。
 
 ## 相关推荐
 
-- 2026-06-30 09:06 - 俄乌双方伤亡近180万人<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md
-- 2026-06-30 08:58 - 蔚来回应高压水枪洗车掉漆<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md
-- 2026-06-30 09:17 - 点球大战<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md
-- 2026-06-30 09:07 - 阿娇瘦了10斤<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md
-- 2026-06-30 09:15 - 如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md
-- 2026-06-30 09:06 - 四川宜宾地震为何震感明显<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md
-- 2026-06-30 09:10 - 佐野海舟远射破门<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md
-- 2026-06-30 09:06 - 一直以为方便面汤是要倒掉的<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md
-- 2026-06-30 09:05 - 小娘惹<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md
-- 2026-06-30 09:06 - 中国代表在联合国点名日本所犯罪行<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md
-- 2026-06-30 09:08 - 董卿母亲癌症去世<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md
-- 2026-06-30 09:08 - 王源近几年没有路演了<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md
-- 2026-06-30 09:13 - 球评巴西绝杀逆转日本<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md
+- 2026-06-30 08:54 - 李在明向韩国两大财阀90度鞠躬<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md
+- 2026-06-30 08:58 - 有什么好的高中网课推荐吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md
+- 2026-06-30 09:23 - 扬名立万<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md
+- 2026-06-30 09:14 - 莫兰特转投开拓者效力<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md
+- 2026-06-30 08:59 - 发明linux、python、redis、nginx、sqlite的人算不算天才？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md
+- 2026-06-30 09:00 - 沙丘<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md
+- 2026-06-30 08:57 - 巴西若输日本将创36年最差纪录<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md
+- 2026-06-30 09:04 - 怕iPhone涨价的用户已紧急换新<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md
+- 2026-06-30 09:08 - 湖北云南的这些涉汛信息都是假的<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md
+- 2026-06-30 09:05 - 我和我的家乡<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:21 - 蜘蛛侠:英雄归来<br><br> | ??:http://www.share.minike.top/Article/details/9467599105.shtml
-- 2026-06-30 09:06 - 德国进球被吹<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/339461.shtml
-- 2026-06-30 09:02 - 德国队世界杯点球大战首败<br><br> | ??:https://www.blog.minike.top/Article/details/653169183.shtml
-- 2026-06-30 08:56 - 亚洲球队全部出局<br><br> | ??:http://www.share.minike.top/Article/details/154483209.shtml
-- 2026-06-30 09:06 - 董卿父亲报纸上发文悼念亡妻<br><br> | ??:http://www.blog.minike.top/Article/details/662011754.shtml
-- 2026-06-30 09:22 - 12人以护剧为名敲诈剧组艺人被抓<br><br> | ??:http://www.share.kurohicncr.top/Article/details/1031933.shtml
-- 2026-06-30 09:08 - 补时绝杀 巴西2-1淘汰日本<br><br> | ??:https://www.share.kurohicncr.top/Article/details/2913560.shtml
-- 2026-06-30 09:22 - iPhoneUltra黑色机模<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/04605.shtml
-- 2026-06-30 09:20 - 日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/476134143428.shtml
-- 2026-06-30 09:10 - 世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/66278905.shtml
-- 2026-06-30 09:10 - 世界杯名画巴拉圭钢铁防线<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/56195391.shtml
-- 2026-06-30 09:03 - 为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/071360.shtml
-- 2026-06-30 09:00 - 德国队连续三届世界杯无缘16强<br><br> | ??:http://www.share.minike.top/Article/details/7850383387.shtml
-- 2026-06-30 09:09 - 森保一致歉：世界第一目标没能实现<br><br> | ??:http://www.share.kurohicncr.top/Article/details/88775.shtml
-- 2026-06-30 09:11 - 点球大战和诺伊尔都救不回德国队<br><br> | ??:http://www.share.minike.top/Article/details/35376872276.shtml
+- 2026-06-30 08:56 - 酒店推行“24小时退房”引热议<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/859211.shtml
+- 2026-06-30 08:59 - 董卿父亲报纸上发文悼念亡妻<br><br> | ??:https://www.share.kurohicncr.top/Article/details/67874227.shtml
+- 2026-06-30 09:00 - 法总统候选人：拒绝与中国激烈对抗<br><br> | ??:https://www.share.minike.top/Article/details/05840565487.shtml
+- 2026-06-30 09:13 - Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？<br><br> | ??:https://www.share.minike.top/Article/details/6645082985.shtml
+- 2026-06-30 09:17 - 国务院：鼓励行业龙头企业举办职校<br><br> | ??:http://www.blog.minike.top/Article/details/056115710.shtml
+- 2026-06-30 09:09 - 租房时你会更看重「住得舒服」，还是「每天通勤更方便」？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/7112595038.shtml
+- 2026-06-30 09:10 - 为什么小组赛出局会让韩国人破防<br><br> | ??:https://www.share.kurohicncr.top/Article/details/77595.shtml
+- 2026-06-30 09:23 - 日本队5进世界杯淘汰赛0胜<br><br> | ??:http://www.blog.minike.top/Article/details/735272547991.shtml
+- 2026-06-30 09:16 - Melo向柳智敏张元英道歉<br><br> | ??:https://www.share.kurohicncr.top/Article/details/691759231391.shtml
+- 2026-06-30 09:05 - "超算小姐，这一次，我一定要带你出去..."<br><br> | ??:http://www.share.minike.top/Article/details/22599712956.shtml
+- 2026-06-30 09:04 - 天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】<br><br> | ??:http://www.share.minike.top/Article/details/57447880668.shtml
+- 2026-06-30 08:57 - 湖北云南的这些涉汛信息都是假的<br><br> | ??:https://www.share.minike.top/Article/details/628294.shtml
+- 2026-06-30 09:22 - 「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/66316036589.shtml
+- 2026-06-30 09:05 - 对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来<br><br> | ??:https://www.share.kurohicncr.top/Article/details/768184.shtml
+- 2026-06-30 09:00 - 上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶<br><br> | ??:http://www.blog.minike.top/Article/details/31312875.shtml

@@ -1,56 +1,60 @@
-# 特朗普：若无法达成协议 或将不延长美伊临时停火
+# 什么信号？招行成立市值管理小组，副行长彭家文任组长
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-美国总统唐纳德・特朗普表示，若美伊谈判在下周三前未能达成协议，他可能不会延长两国现有的临时停火协议，战事重启的风险随之上升。 在 “空军一号” 上被问及谈判无果后是否会延续停火、还是恢复军事打击时，特朗普称：“我可能不会延长停火。” 特朗普补充道：“一旦停火不续期，海上封锁将持续，届时我们无奈之下只能再度发动空袭。” 据熟悉谈判内情的伊朗消息人士透露，美伊双方代表团预计将于本周
+来源：行长摘要 6月25日，招商银行2025年度股东会，副行长彭家文面对股东抛出的问题相当直接——“招行股票是不是被低估了？市值管理到底怎么搞？” 彭家文的回答也很干脆：招行已经成立了市值管理小组，由他本人兼任组长，定期开会，把市场和股东的声音直接传导到经营策略和分红决策里。 这话听着挺正式，翻译成大白话就是：股价跌得股东坐不住了，银行自己也坐不住了。 先看看招行股价到底怎么了
 
 ## 正文
 
-美国总统唐纳德・特朗普表示，若美伊谈判在下周三前未能达成协议，他可能不会延长两国现有的临时停火协议，战事重启的风险随之上升。
+来源：行长摘要 6月25日，招商银行2025年度股东会，副行长彭家文面对股东抛出的问题相当直接——“招行股票是不是被低估了？
 
-在 “空军一号” 上被问及谈判无果后是否会延续停火、还是恢复军事打击时，特朗普称：“我可能不会延长停火。
+市值管理到底怎么搞？
 
-” 特朗普补充道：“一旦停火不续期，海上封锁将持续，届时我们无奈之下只能再度发动空袭。
+” 彭家文的回答也很干脆：招行已经成立了市值管理小组，由他本人兼任组长，定期开会，把市场和股东的声音直接传导到经营策略和分红决策里。
 
-” 据熟悉谈判内情的伊朗消息人士透露，美伊双方代表团预计将于本周末抵达巴基斯坦，并有望在下周一举行磋商。
+这话听着挺正式，翻译成大白话就是：股价跌得股东坐不住了，银行自己也坐不住了。
 
-美方暂未确认相关会谈日程。
+先看看招行股价到底怎么了 截至6月25日，招商银行A股年内跌幅已达11.83%，总市值约9137亿元。
 
-特朗普在周五早些时候表态，对双方即将达成协议持乐观态度。
+市净率0.81倍，市盈率6.03倍。
 
-责任编辑：刘明亮
+股东会上，彭家文自己也坦言：“我相信在座的各位股东对招行当前的股价都不满意”。
+
+一家净利润超1500亿、ROE保持在13%以上的银行，股价却一路向下，这事搁谁身上都想不通。
 
 ## 相关推荐
 
-- 2026-06-30 09:22 - 花少8要去世界杯举办国<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md
-- 2026-06-30 09:03 - 日本球迷被强行披上巴西国旗<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md
-- 2026-06-30 09:07 - 时光音乐会<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md
-- 2026-06-30 08:59 - 87克大金链到老庙黄金维修少了11克<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md
-- 2026-06-30 09:05 - 第一次对自信的力量有了实感<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md
-- 2026-06-30 09:00 - 终于把好哥们处成了情侣!<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md
-- 2026-06-30 09:14 - 点球大战和诺伊尔都救不回德国队<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md
-- 2026-06-30 09:06 - 阿娇瘦了10斤<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md
-- 2026-06-30 08:58 - 荷兰VS摩洛哥<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md
-- 2026-06-30 09:08 - 有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md
-- 2026-06-30 09:00 - 国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md
-- 2026-06-30 09:16 - 男子造谣东鹏老板不喝自家饮料被拘<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md
+- 2026-06-30 08:54 - 日本队5进世界杯淘汰赛0胜<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md
+- 2026-06-30 09:10 - 德国4比5巴拉圭<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md
+- 2026-06-30 09:23 - 沙丘<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md
+- 2026-06-30 09:10 - 科学备孕男女都要上心<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md
+- 2026-06-30 08:56 - 如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md
+- 2026-06-30 09:03 - 武磊：日本队有能力跟任何强队抗衡<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md
+- 2026-06-30 09:06 - 电子游戏中有哪些关于武器的“刻板印象”？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md
+- 2026-06-30 09:09 - 这些7月新规影响你我<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md
+- 2026-06-30 09:02 - 张月收到黄灿灿辣货两眼发光<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md
+- 2026-06-30 09:19 - 王曼昱被突如其来的话筒逗笑了<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md
+- 2026-06-30 09:00 - 巴西足球能否再现昔日荣光<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md
+- 2026-06-30 08:57 - 内马尔中场休息积极鼓励队友<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md
+- 2026-06-30 09:02 - 周冬雨多次说演不了话剧文城<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md
+- 2026-06-30 09:06 - 天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:10 - 健全中小学教师工资长效联动机制<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/05755743.shtml
-- 2026-06-30 08:55 - 流金岁月<br><br> | ??:http://www.share.minike.top/Article/details/5804839.shtml
-- 2026-06-30 09:07 - 湖北云南的这些涉汛信息都是假的<br><br> | ??:http://www.blog.minike.top/Article/details/446997.shtml
-- 2026-06-30 09:09 - 输球后日本球迷被强行披上巴西国旗<br><br> | ??:https://www.share.minike.top/Article/details/094312515055.shtml
-- 2026-06-30 09:08 - 日本队5进世界杯淘汰赛0胜<br><br> | ??:http://www.blog.minike.top/Article/details/5567287.shtml
-- 2026-06-30 09:11 - 森保一致歉：世界第一目标没能实现<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/809195238998.shtml
-- 2026-06-30 09:17 - 千与千寻<br><br> | ??:http://www.blog.minike.top/Article/details/521721953570.shtml
-- 2026-06-30 09:05 - 梅德韦杰夫列举俄罗斯面临的七大挑战<br><br> | ??:http://www.blog.minike.top/Article/details/26751410380.shtml
-- 2026-06-30 09:07 - 国务院：稳步推进研究生考试招生改革<br><br> | ??:https://www.share.minike.top/Article/details/534448.shtml
-- 2026-06-30 08:56 - 2026年WTT美国大满贯，国乒自带球桌是真实的吗？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/0316704.shtml
-- 2026-06-30 09:04 - 国务院：探索延长义务教育年限<br><br> | ??:http://www.share.kurohicncr.top/Article/details/6475809.shtml
-- 2026-06-30 08:55 - 终于把好哥们处成了情侣!<br><br> | ??:http://www.share.kurohicncr.top/Article/details/98122.shtml
-- 2026-06-30 09:23 - 荷兰VS摩洛哥<br><br> | ??:http://www.share.kurohicncr.top/Article/details/26862974.shtml
-- 2026-06-30 09:15 - 巴西绝杀<br><br> | ??:https://www.share.minike.top/Article/details/7639133944.shtml
-- 2026-06-30 09:21 - 承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？<br><br> | ??:https://www.share.minike.top/Article/details/42622.shtml
+- 2026-06-30 08:58 - 美股<br><br> | ??:https://www.blog.minike.top/Article/details/58321606326.shtml
+- 2026-06-30 08:59 - 2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/2846477.shtml
+- 2026-06-30 09:14 - 董卿父亲报纸上发文悼念亡妻<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/268794100.shtml
+- 2026-06-30 09:21 - 巴拉圭进球<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/07122104.shtml
+- 2026-06-30 08:58 - 日本淘汰<br><br> | ??:https://www.share.kurohicncr.top/Article/details/317451431869.shtml
+- 2026-06-30 08:59 - GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？<br><br> | ??:https://www.blog.minike.top/Article/details/03620.shtml
+- 2026-06-30 09:02 - 《我落泪情绪零碎》<br><br> | ??:http://www.blog.minike.top/Article/details/761345698.shtml
+- 2026-06-30 09:04 - 手底下人带不动怎么办？<br><br> | ??:http://www.blog.minike.top/Article/details/90799565003.shtml
+- 2026-06-30 09:01 - 四川宜宾地震为何震感明显<br><br> | ??:http://www.share.kurohicncr.top/Article/details/31548055.shtml
+- 2026-06-30 09:07 - 一切民族英雄都是中华民族的脊梁<br><br> | ??:http://www.share.kurohicncr.top/Article/details/025501076.shtml
+- 2026-06-30 09:11 - 孙兴慜道歉<br><br> | ??:https://www.blog.minike.top/Article/details/73730706927.shtml
+- 2026-06-30 09:03 - 一生一世<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/97775719554.shtml
+- 2026-06-30 09:23 - 高质量发展看新疆<br><br> | ??:https://www.share.kurohicncr.top/Article/details/8266721.shtml
+- 2026-06-30 09:03 - 勇敢的心第二部<br><br> | ??:http://www.blog.minike.top/Article/details/823079.shtml
+- 2026-06-30 09:08 - 时光音乐会<br><br> | ??:https://www.share.minike.top/Article/details/177769591534.shtml

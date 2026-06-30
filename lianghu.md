@@ -1,61 +1,58 @@
-# “五一”临近航班遭取消？航空公司：优先签转 保障旅客顺利成行
+# 港仔机器人发布年度业绩 收益1.86亿港元同比增长75.3%
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-“五一”假期临近，不少人正在规划出游。近期，受燃油价格暴涨、供应紧缺等因素影响，全球多家航空公司运力出现不同程度缩减，直接导致了航班大规模取消的情况。目前国内航空公司执行的国际航线，尤其是前往东南亚和大洋洲的航线运营情况如何？运力是否充足呢？ 目前我国航空公司国际航线运力充足 记者从中国航空运输协会了解到，今年我国民航每周国际客运航班计划总体与去年同期持平。“五一”假期期间(5
+港仔机器人（00370）发布截至2026年3月31日止年度业绩，该集团取得收益1.86亿港元，同比增加75.3%；公司拥有人应占亏损1.78亿港元，同比增加28.9%；公司拥有人应占经调整亏损8002.7万港元，同比收窄17.7%；每股亏损8.51港仙。 本公司立足香港，面向全球市场，凭藉稳固的资本基础及全球营运布局，将具身智能机器人确立为其核心战略重点，致力成为世界领先的全栈
 
 ## 正文
 
-“五一”假期临近，不少人正在规划出游。
+港仔机器人（00370）发布截至2026年3月31日止年度业绩，该集团取得收益1.86亿港元，同比增加75.3%；公司拥有人应占亏损1.78亿港元，同比增加28.9%；公司拥有人应占经调整亏损8002.7万港元，同比收窄17.7%；每股亏损8.51港仙。
 
-近期，受燃油价格暴涨、供应紧缺等因素影响，全球多家航空公司运力出现不同程度缩减，直接导致了航班大规模取消的情况。
+本公司立足香港，面向全球市场，凭藉稳固的资本基础及全球营运布局，将具身智能机器人确立为其核心战略重点，致力成为世界领先的全栈式综合机器人营运商及服务提供商。
 
-目前国内航空公司执行的国际航线，尤其是前往东南亚和大洋洲的航线运营情况如何？
+业务采用成熟的订单驱动营运模式，聚焦大湾区及长江三角洲等主要经济区域。
 
-运力是否充足呢？
+通过与地方政府及行业合作伙伴积极合作，本公司正在高需求应用场景中推进智能机器人的规模化部署，持续在智能物业管理、健康医疗及老年护理以及电车充电等领域实施项目，稳步扩大其业务覆盖范围及营运规模。
 
-目前我国航空公司国际航线运力充足 记者从中国航空运输协会了解到，今年我国民航每周国际客运航班计划总体与去年同期持平。
+在技术层面，本公司已建立“资本+核心技术”的双重竞争优势，拥有与云机器人相关的授权专利，并掌握具身智能基础模型及云操作系统等关键技术。
 
-“五一”假期期间(5月1日至5日)，国际客运航班计划增长5.5%。
+在产品层面，本公司已围绕核心型号开发出全面的产品矩阵，以针对主流应用领域：与国内领先企业合作，开发针对新能源补给场景的智能充电机器人；推出用于老年护理及医疗服务的智能医疗机器人；及部署智能巡检机器狗以满足复杂环境下的安保巡逻需求。
 
-中国航空运输协会理事长助理 朱耀春：大家关注的东南亚地区，“五一”期间，中方航空公司提供座位48.7万个，较去年同期增加4.8万个，目前已销售的机票24.8万张，运力完全满足需求。
+该等产品矩阵涵盖智慧能源、智慧医疗及智慧安保，形成多设备协作及全领域融合的互联生态系统。
 
-朱耀春介绍，目前国内至东南亚的核心干线，如飞往曼谷、新加坡、吉隆坡、金边等主要城市的航班全部保持正常通航，基础班次稳定，部分小众旅游城市、低密度支线航线做了阶段性减班。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 09:07 - 巴西在进攻三区完成210脚传球<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md
-- 2026-06-30 09:21 - 陈幸同晋级WTT美国大满贯女单32强<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md
-- 2026-06-30 09:06 - 如何把斧兵改造成精英怪？提高攻速移速！！！<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md
-- 2026-06-30 09:10 - 有哪些值得一提的生活窍门？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md
-- 2026-06-30 09:13 - 委内瑞拉地震死亡人数升至1719人<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md
-- 2026-06-30 09:16 - 为什么纣王似乎对周文王的扩张完全无动于衷？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md
-- 2026-06-30 09:20 - 网红峡谷5人溺亡 有人提醒会下雨<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md
-- 2026-06-30 09:03 - 点球大战<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md
-- 2026-06-30 08:58 - 老外对中国cosplay竟这样评价…<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md
-- 2026-06-30 09:04 - 男子中医院拔火罐致浅2度烧伤<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md
-- 2026-06-30 09:21 - 我把队友的7连跪剪成了艺术<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md
-- 2026-06-30 09:02 - 日本博主：日本足球真的垃圾<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md
-- 2026-06-30 08:59 - 德国北部枪击事件致5死<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md
-- 2026-06-30 09:11 - 为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md
-- 2026-06-30 09:11 - 峡谷事故团队组队时有人提醒会下雨<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md
+- 2026-06-30 09:17 - 中国新一轮出口管制直指日本命脉<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md
+- 2026-06-30 09:11 - 国务院：鼓励行业龙头企业举办职校<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md
+- 2026-06-30 09:04 - 金刚川<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md
+- 2026-06-30 08:57 - 失明的我带老妈去了趟“火星”<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md
+- 2026-06-30 09:16 - 为什么香港的冲厕水是咸的？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md
+- 2026-06-30 09:04 - 藤森庆子赢得秘鲁总统选举<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md
+- 2026-06-30 08:58 - 免费试吃发差评被店家挂店门避雷<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md
+- 2026-06-30 09:22 - 巴拉圭率先破门<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md
+- 2026-06-30 08:55 - 可以细成这样？1600万预算，颠覆我认知的改造！<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md
+- 2026-06-30 09:12 - 高考填志愿父亲和女儿产生分歧<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md
+- 2026-06-30 09:11 - 为什么香港的冲厕水是咸的？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md
+- 2026-06-30 09:10 - 男生180+，有腹肌是什么体验？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:17 - 极端热浪席卷欧洲多国，热一热百姓让领导先凉快？<br><br> | ??:https://www.share.minike.top/Article/details/3486625.shtml
-- 2026-06-30 09:01 - 国务院：鼓励行业龙头企业举办职校<br><br> | ??:https://www.share.minike.top/Article/details/768313.shtml
-- 2026-06-30 09:09 - DeepSeek启动成立来最大规模招聘<br><br> | ??:http://www.share.minike.top/Article/details/169316498.shtml
-- 2026-06-30 09:22 - 法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？<br><br> | ??:http://www.share.minike.top/Article/details/580773697386.shtml
-- 2026-06-30 08:58 - 周生如故<br><br> | ??:http://www.share.minike.top/Article/details/046601.shtml
-- 2026-06-30 09:10 - 中国代表在联合国点名日本所犯罪行<br><br> | ??:http://www.share.kurohicncr.top/Article/details/986542.shtml
-- 2026-06-30 09:00 - 「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！<br><br> | ??:https://www.share.minike.top/Article/details/527484761284.shtml
-- 2026-06-30 09:23 - 网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？<br><br> | ??:https://www.share.minike.top/Article/details/56774.shtml
-- 2026-06-30 08:55 - 湖北云南的这些涉汛信息都是假的<br><br> | ??:http://www.share.kurohicncr.top/Article/details/6621488482.shtml
-- 2026-06-30 09:05 - 网瘾賊大的阿嬷<br><br> | ??:http://www.share.kurohicncr.top/Article/details/87211.shtml
-- 2026-06-30 09:07 - 古代人对纳妾的态度是什么样的？<br><br> | ??:https://www.share.minike.top/Article/details/011656.shtml
-- 2026-06-30 09:05 - 输球后日本球迷被强行披上巴西国旗<br><br> | ??:http://www.share.kurohicncr.top/Article/details/93396.shtml
-- 2026-06-30 09:22 - 房价什么时候能涨<br><br> | ??:http://www.blog.minike.top/Article/details/065498.shtml
-- 2026-06-30 09:11 - 王楚钦说配合稍微有些陌生感<br><br> | ??:http://www.share.minike.top/Article/details/086064.shtml
-- 2026-06-30 08:56 - 内马尔安慰日本球员<br><br> | ??:https://www.share.kurohicncr.top/Article/details/88084.shtml
+- 2026-06-30 09:22 - 李准基参加文彩元婚礼<br><br> | ??:https://www.share.kurohicncr.top/Article/details/63188209538.shtml
+- 2026-06-30 09:12 - F1奥地利站赛后复盘<br><br> | ??:https://www.share.minike.top/Article/details/469259.shtml
+- 2026-06-30 08:55 - 曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？<br><br> | ??:http://www.blog.minike.top/Article/details/32768620.shtml
+- 2026-06-30 08:57 - 日本队被绝杀后鞠躬致谢观众<br><br> | ??:https://www.share.minike.top/Article/details/96990.shtml
+- 2026-06-30 08:56 - 我们看到的星星是不是有些已经不存在了？<br><br> | ??:http://www.blog.minike.top/Article/details/811888440062.shtml
+- 2026-06-30 09:02 - 亚洲球队全部出局<br><br> | ??:https://www.share.kurohicncr.top/Article/details/802756618143.shtml
+- 2026-06-30 09:12 - 可以细成这样？1600万预算，颠覆我认知的改造！<br><br> | ??:https://www.blog.minike.top/Article/details/65327775687.shtml
+- 2026-06-30 09:11 - 博世们还在犹豫 美的们已经卖断货<br><br> | ??:https://www.share.minike.top/Article/details/29382558.shtml
+- 2026-06-30 09:02 - 央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/5521895.shtml
+- 2026-06-30 09:19 - 央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？<br><br> | ??:http://www.blog.minike.top/Article/details/655144088.shtml
+- 2026-06-30 09:23 - 卖菜老人获博主帮助后遇车祸去世<br><br> | ??:https://www.share.kurohicncr.top/Article/details/334618643.shtml
+- 2026-06-30 09:00 - 巴西vs日本<br><br> | ??:https://www.share.kurohicncr.top/Article/details/68493089.shtml
+- 2026-06-30 09:17 - 免费试吃发差评被店家挂店门避雷<br><br> | ??:https://www.share.minike.top/Article/details/9598465.shtml
+- 2026-06-30 09:06 - 本届世界杯已有5名球员被控强奸<br><br> | ??:http://www.share.kurohicncr.top/Article/details/763511565.shtml
+- 2026-06-30 08:55 - 杨紫获白玉兰视后争议不止<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/338682373284.shtml

@@ -1,56 +1,59 @@
-# 上海探索“AI+无线电”融合发展 积极培育创新人才
+# “文载正道 网传新风”网络文明实践主题活动在浙江永康启动
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-中新网上海4月17日电 (记者 郑莹莹)2026全球“Al+无线电”挑战赛17日在复旦大学启动。 国际电信联盟电信标准化局副局长比莱尔·贾穆西在视频致辞中表示，人工智能是破解频谱治理难题的关键路径，只有坚持AI和无线电融合，才能让有限的频谱资源释放更大的价值。 无线电是一种看不见的电磁波，它与人们的生活息息相关。比如无线电频段中的特高频是指300MHz(兆赫兹)至3000MHz
+中新网金华6月24日电(曹丹)当网络文学遇见身边好人，会碰撞出怎样的火花？6月24日，“文载正道 网传新风”网络文明实践主题活动在浙江永康启动。阅文集团、番茄小说、晋江文学、七猫小说、黑岩网、咪咕文学等六大网络文学平台负责人与头部网文作家齐聚，走进基层采风创作，探索“网文+榜样”的实践路径，让先进典型从“被宣传”走向“被阅读”。 中国社会科学院发布的《2025中国网络文学发展研
 
 ## 正文
 
-中新网上海4月17日电 (记者 郑莹莹)2026全球“Al+无线电”挑战赛17日在复旦大学启动。
+中新网金华6月24日电(曹丹)当网络文学遇见身边好人，会碰撞出怎样的火花？
 
-国际电信联盟电信标准化局副局长比莱尔·贾穆西在视频致辞中表示，人工智能是破解频谱治理难题的关键路径，只有坚持AI和无线电融合，才能让有限的频谱资源释放更大的价值。
+6月24日，“文载正道 网传新风”网络文明实践主题活动在浙江永康启动。
 
-无线电是一种看不见的电磁波，它与人们的生活息息相关。
+阅文集团、番茄小说、晋江文学、七猫小说、黑岩网、咪咕文学等六大网络文学平台负责人与头部网文作家齐聚，走进基层采风创作，探索“网文+榜样”的实践路径，让先进典型从“被宣传”走向“被阅读”。
 
-比如无线电频段中的特高频是指300MHz(兆赫兹)至3000MHz之间的频段，这是数字宽带通信的主干道，2G、3G、4G移动通信以及Wi-Fi、蓝牙等都使用这段频率。
+中国社会科学院发布的《2025中国网络文学发展研究报告》显示，截至2025年底，中国网络文学阅读市场规模达502.1亿元，同比增长16.6%；作者规模超3269万人，创作生态持续活跃。
 
-来自上海市经济和信息化委员会方面的数据显示，2025年，上海有394家规模以上人工智能企业，产业规模超6370亿元，其产业基础能力与创新生态建设通过“人工智能+”行动计划得到进一步的巩固与拓展。
+如何借助网络文学这一大众化叙事载体，让先进典型故事走进更广泛的读者群体，已成为各地创新传播方式的新课题。
 
-上海市经济和信息化委员会副主任潘焱称，产业基础为上海推动人工智能与无线电的深度融合提供了条件。
+金华好人辈出、文脉绵长，既是崇德向善的文明之城，也是朝气蓬勃的网络文学创作高地。
 
-2026全球“AI+无线电”挑战赛的初赛聚焦多模态无人机识别，复赛升级为复杂环境下的目标身份关联与三维定位。
+启动仪式上，浙江婺剧艺术研究院舞美设计师葛宗辉、金华永康市前仓镇大陈村党支部书记陈建伟、横店影视城演员公会经纪部高级主管邬影潇、金华市婺城区白龙桥镇郑路村村民郑志军以及金华市婺城区塔石乡卫生院党支部书记、院长傅卫明等五位来自金华各行各业的“好人”以影片与访谈形式分享各自故事，质朴动人、真实鲜活。
 
-今年赛事还特设青少年组，鼓励和支持18岁以下的青少年学习无线电知识和人工智能技能，为“AI+无线电”领域培养具有创新潜质的后备人才。
+五位榜样，五份坚守，五种担当。
 
 ## 相关推荐
 
-- 2026-06-30 08:57 - 四川凉山落石砸毁车辆 3人遇难<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md
-- 2026-06-30 09:22 - 小娘惹<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md
-- 2026-06-30 09:04 - 日本队主帅道歉<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md
-- 2026-06-30 09:20 - 拆解FIFA和世界杯的暗面<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md
-- 2026-06-30 09:01 - 我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md
-- 2026-06-30 09:09 - 韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md
-- 2026-06-30 09:14 - 董卿父亲在报纸上发文悼念亡妻<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md
-- 2026-06-30 09:20 - 这几秒成世界杯最值钱广告位<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md
-- 2026-06-30 09:06 - 《恋与深空》被指触碰民族伤痛红线<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md
-- 2026-06-30 09:12 - 2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md
+- 2026-06-30 08:56 - 一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md
+- 2026-06-30 08:54 - 马杜罗账号在纽约发文致谢各国援助<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md
+- 2026-06-30 08:58 - 詹姆斯 勇士<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md
+- 2026-06-30 09:15 - 尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md
+- 2026-06-30 09:04 - 德国北部枪击事件致5死<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md
+- 2026-06-30 09:10 - 德国巴拉圭进入点球大战<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md
+- 2026-06-30 09:24 - 世界杯：荷兰vs摩洛哥<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md
+- 2026-06-30 09:02 - 低智商犯罪三江口团建来了<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md
+- 2026-06-30 09:00 - DeepSeek启动成立来最大规模招聘<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md
+- 2026-06-30 09:04 - 人可以极简主义到什么程度？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md
+- 2026-06-30 09:00 - 王菲谢霆锋十指紧扣好甜<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md
+- 2026-06-30 09:18 - 刘宇宁高情商化解谁站C位<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md
+- 2026-06-30 08:57 - 2021湖南卫视跨年演唱会<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:20 - 四川宜宾地震瞬间鱼群乱跳<br><br> | ??:http://www.share.kurohicncr.top/Article/details/07475656.shtml
-- 2026-06-30 09:18 - 道友？你来真的啊？【凡人官方二创大会】<br><br> | ??:https://www.blog.minike.top/Article/details/7951407.shtml
-- 2026-06-30 09:02 - 法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？<br><br> | ??:https://www.blog.minike.top/Article/details/1579016098.shtml
-- 2026-06-30 09:19 - 中国代表在联合国点名日本所犯罪行<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/610544597766.shtml
-- 2026-06-30 08:57 - 卖菜老人获博主帮助后遇车祸去世<br><br> | ??:http://www.blog.minike.top/Article/details/602035735.shtml
-- 2026-06-30 09:22 - 四川宜宾地震为何震感明显<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/15787.shtml
-- 2026-06-30 09:05 - 《共患难》<br><br> | ??:https://www.share.minike.top/Article/details/828848736316.shtml
-- 2026-06-30 09:15 - 郑钦文 四年一轮游<br><br> | ??:http://www.blog.minike.top/Article/details/433308726.shtml
-- 2026-06-30 09:13 - 德国队回应爆冷淘汰<br><br> | ??:https://www.share.kurohicncr.top/Article/details/2833025.shtml
-- 2026-06-30 09:03 - 法媒点赞中国小区楼顶“人工降雨”<br><br> | ??:http://www.share.kurohicncr.top/Article/details/691618427961.shtml
-- 2026-06-30 09:09 - “荒唐”背后的韩国足球<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/56816.shtml
-- 2026-06-30 09:12 - 法总统候选人：拒绝与中国激烈对抗<br><br> | ??:https://www.share.kurohicncr.top/Article/details/828132402.shtml
-- 2026-06-30 09:22 - 巴西把自己踢晕了<br><br> | ??:https://www.blog.minike.top/Article/details/0473627238.shtml
-- 2026-06-30 08:55 - 世界杯：荷兰vs摩洛哥<br><br> | ??:https://www.share.minike.top/Article/details/779877.shtml
-- 2026-06-30 08:59 - 世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？<br><br> | ??:http://www.blog.minike.top/Article/details/525645528.shtml
+- 2026-06-30 08:55 - 发明linux、python、redis、nginx、sqlite的人算不算天才？<br><br> | ??:http://www.blog.minike.top/Article/details/183783377525.shtml
+- 2026-06-30 08:57 - 美股<br><br> | ??:http://www.share.minike.top/Article/details/534599065.shtml
+- 2026-06-30 09:16 - 请回答王牌2019<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/5929157113.shtml
+- 2026-06-30 08:58 - 巴西替补奇兵读秒绝杀<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/89146.shtml
+- 2026-06-30 09:01 - 恋与深空道歉声明<br><br> | ??:http://www.share.kurohicncr.top/Article/details/27497434787.shtml
+- 2026-06-30 08:56 - 当我知道豆包有后台审核人员<br><br> | ??:http://www.share.minike.top/Article/details/27820640120.shtml
+- 2026-06-30 09:17 - 日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/6582096.shtml
+- 2026-06-30 09:13 - 李在明90度鞠躬感谢韩国两大财阀<br><br> | ??:http://www.share.kurohicncr.top/Article/details/768736641.shtml
+- 2026-06-30 09:03 - 本届世界杯已有5名球员被控强奸<br><br> | ??:http://www.blog.minike.top/Article/details/701194273.shtml
+- 2026-06-30 09:06 - 为什么香港的冲厕水是咸的？<br><br> | ??:http://www.blog.minike.top/Article/details/30068.shtml
+- 2026-06-30 09:16 - 建议不要突然完全停止喝咖啡<br><br> | ??:https://www.blog.minike.top/Article/details/626403272.shtml
+- 2026-06-30 09:23 - 你人生中最艰难的时候是怎么熬过来的？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/105220.shtml
+- 2026-06-30 09:19 - 沙丘<br><br> | ??:http://www.blog.minike.top/Article/details/0236180.shtml
+- 2026-06-30 09:00 - 左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/057527546.shtml
+- 2026-06-30 08:57 - 7月1日起 一批新规即将落地<br><br> | ??:http://www.blog.minike.top/Article/details/949507965.shtml

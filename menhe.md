@@ -1,61 +1,61 @@
-# 西班牙埃尔切市代表团与广州南沙进行多议题沟通
+# 2026年“一带一路”贸易投资论坛在京举行
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-中新网广州4月19日电 (记者 王坚)据广州市南沙区政府19日消息，在广州市委外事办指导、广州南沙开发区港澳办推动下，西班牙埃尔切市(Elche)市长帕布罗·鲁兹·比亚努埃瓦(Pablo Ruz Villanueva)近日一行到访广州南沙，为中西地方友好合作注入新动力。 南沙区政府介绍，代表团与南沙区相关部门举行座谈，围绕产业对接、经贸合作、文旅体育、教育国际化等议题深入沟通，
+中新网北京6月24日电 (尹倩芸 陶思阅)在第四届中国国际供应链促进博览会期间，2026年“一带一路”贸易投资论坛在北京举行。本次论坛由中国国际商会主办，主题为“链接开放新格局共筑丝路新未来”。来自共建国家政府部门代表、工商界领袖、国际组织负责人、专家学者等200余名代表出席论坛。 中国贸促会会长任鸿斌在论坛致辞中建议，企业要深耕经贸合作，共享发展硕果；政商界坚守多边共识，共筑
 
 ## 正文
 
-中新网广州4月19日电 (记者 王坚)据广州市南沙区政府19日消息，在广州市委外事办指导、广州南沙开发区港澳办推动下，西班牙埃尔切市(Elche)市长帕布罗·鲁兹·比亚努埃瓦(Pablo Ruz Villanueva)近日一行到访广州南沙，为中西地方友好合作注入新动力。
+中新网北京6月24日电 (尹倩芸 陶思阅)在第四届中国国际供应链促进博览会期间，2026年“一带一路”贸易投资论坛在北京举行。
 
-南沙区政府介绍，代表团与南沙区相关部门举行座谈，围绕产业对接、经贸合作、文旅体育、教育国际化等议题深入沟通，广州市南沙区委常委、统战部部长刘小潼出席会见。
+本次论坛由中国国际商会主办，主题为“链接开放新格局共筑丝路新未来”。
 
-在访问期间，代表团全面了解广州南沙在现代农业、文体设施、人工智能、先进制造、教育国际化等方面的发展成果，对广州南沙的各领域发展情况高度认可。
+来自共建国家政府部门代表、工商界领袖、国际组织负责人、专家学者等200余名代表出席论坛。
 
-在广汽科技馆，代表团对中国新能源汽车的智能驾驶技术、工业设计水平和绿色环保理念赞不绝口，并欢迎广汽等中国新能源汽车企业到埃尔切市开设品牌直营店和体验中心。
+中国贸促会会长任鸿斌在论坛致辞中建议，企业要深耕经贸合作，共享发展硕果；政商界坚守多边共识，共筑开放格局；各方畅通运行脉络，共促产业融合。
 
-在云从科技，代表团成员对其在计算机视觉、人脸识别等领域的技术实力，特别是其技术在全国众多枢纽机场和银行的广泛应用连连好评。
+中国贸促会、中国国际商会将进一步发挥桥梁纽带作用，搭建链博会等高质量平台，丰富服务供给，助力企业在共建“一带一路”合作中开拓发展空间。
 
-此外，在广州市执信中学南沙学校，代表团观摩了课堂教学和学生社团活动，被孩子们亲切有礼、积极向上的精神面貌所感染，并希望推动埃尔切市当地学校与执信中学南沙学校建立姊妹校关系、开展师生互访交流。
+丝绸之路商务理事会中国委员会主席单位、中国交通建设集团有限公司董事长宋海良表示，将立足共建“一带一路”新方位，从互联互通、产业融合、科技创新、绿色发展四大维度拓宽合作新空间，聚力当好互联互通示范者、产业交融引领者、科创驱动先行者、绿色发展践行者。
 
-代表团表示，南沙开放包容的发展氛围、强劲的产业活力与完善的城市配套令人印象深刻，期待与广州南沙达成合作协议，助力两地产业升级。
+“中国和南亚多年来共同建立了信任、互联互通和坚实的友谊，双边经贸合作保持强劲增长势头。
 
-南沙区政府表示，接下来，南沙将持续推动与埃尔切市合作走深走实，不断拓宽对外合作“朋友圈”，以高水平对外开放助力粤港澳大湾区建设。
+”南亚联盟工商会主席钱迪·拉吉·达卡尔提出，深化本地化的产业合作、升级机械贸易为全链条产业协作、打造互补型区域价值链，依托丝路平台共同开辟产业、就业、创新协同发展的全新路径。
 
 ## 相关推荐
 
-- 2026-06-30 09:14 - 英语考了145的人竟然教数学<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md
-- 2026-06-30 09:00 - 房价什么时候能涨<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md
-- 2026-06-30 09:23 - 庆祝中国共产党成立105周年大会将举行<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md
-- 2026-06-30 09:07 - 商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md
-- 2026-06-30 09:12 - 萨内 看笑了<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md
-- 2026-06-30 08:57 - 你的妻子大喷菇—《植物娘大战僵尸》特别篇<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md
-- 2026-06-30 09:16 - 致敬！中国首批缉毒警已全体退休<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md
-- 2026-06-30 09:08 - 世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md
-- 2026-06-30 09:18 - 教育部披露：高考生篡改7名同学志愿<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md
-- 2026-06-30 09:10 - 武磊：巴西队赢的并不轻松<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md
-- 2026-06-30 09:19 - 沉睡花园<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md
-- 2026-06-30 09:20 - 泰山景区建135公里刀片刺绳隔离网<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md
-- 2026-06-30 09:23 - 泰山景区回应修建刀片刺绳隔离网<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md
-- 2026-06-30 08:54 - 对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md
-- 2026-06-30 08:58 - 中国猪圈装空调让欧洲网友破防<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md
+- 2026-06-30 09:00 - 日本球迷被强行披上巴西国旗<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md
+- 2026-06-30 09:23 - 2021江苏卫视跨年演唱会<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md
+- 2026-06-30 09:11 - 本科毕业生为何涌入专科学校<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md
+- 2026-06-30 09:12 - 中国猪圈装空调让欧洲网友破防<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md
+- 2026-06-30 09:04 - 佐野海舟远射破门<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md
+- 2026-06-30 09:21 - 巴西2-1绝杀日本<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md
+- 2026-06-30 09:07 - 千与千寻<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md
+- 2026-06-30 09:04 - 赵今麦因“瘦而不柴”的体态出圈<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md
+- 2026-06-30 09:13 - 曝詹姆斯即将与勇士会面<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md
+- 2026-06-30 09:21 - 《鸣潮》玄方主题曲 MV | 定玄<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md
+- 2026-06-30 09:14 - 德国队世界杯点球大战首败<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md
+- 2026-06-30 09:22 - 未来的飞机可能会用电吗？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md
+- 2026-06-30 08:56 - 小娘惹<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md
+- 2026-06-30 08:57 - 詹姆斯 勇士<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md
+- 2026-06-30 09:17 - 急先锋<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:21 - IGN评测电影版后室<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/2350524435.shtml
-- 2026-06-30 09:15 - 网瘾賊大的阿嬷<br><br> | ??:https://www.share.kurohicncr.top/Article/details/185528890454.shtml
-- 2026-06-30 08:59 - "超算小姐，这一次，我一定要带你出去..."<br><br> | ??:http://www.blog.minike.top/Article/details/46340023352.shtml
-- 2026-06-30 09:12 - 中国代表在联合国点名日本所犯罪行<br><br> | ??:http://www.share.kurohicncr.top/Article/details/136510.shtml
-- 2026-06-30 08:54 - 巴西绝杀日本<br><br> | ??:https://www.share.kurohicncr.top/Article/details/4172492.shtml
-- 2026-06-30 09:04 - 如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/28863470.shtml
-- 2026-06-30 09:11 - 当我知道豆包有后台审核人员<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/0555190453.shtml
-- 2026-06-30 09:01 - 吴易昺不敌德约科维奇 止步温网首轮<br><br> | ??:http://www.blog.minike.top/Article/details/216784645.shtml
-- 2026-06-30 09:08 - 谢依霖说杨幂是聚会第一把张罗手<br><br> | ??:https://www.share.minike.top/Article/details/588332618.shtml
-- 2026-06-30 09:21 - 男子在非洲务工死亡 公司不认可工亡<br><br> | ??:https://www.share.kurohicncr.top/Article/details/045343102024.shtml
-- 2026-06-30 09:10 - 开电动汽车真的很省钱吗？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/780206519.shtml
-- 2026-06-30 09:20 - 《我落泪情绪零碎》<br><br> | ??:http://www.blog.minike.top/Article/details/47767301409.shtml
-- 2026-06-30 09:23 - 五哈和他们的朋友<br><br> | ??:https://www.blog.minike.top/Article/details/422257479373.shtml
-- 2026-06-30 09:14 - 孙兴慜道歉<br><br> | ??:https://www.share.kurohicncr.top/Article/details/082760578823.shtml
-- 2026-06-30 09:05 - 国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？<br><br> | ??:https://www.blog.minike.top/Article/details/79213190684.shtml
+- 2026-06-30 09:17 - 有哪些值得一提的生活窍门？<br><br> | ??:https://www.blog.minike.top/Article/details/6116883886.shtml
+- 2026-06-30 09:07 - 扬名立万<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/4257230586.shtml
+- 2026-06-30 09:03 - 急先锋<br><br> | ??:https://www.share.kurohicncr.top/Article/details/9745994788.shtml
+- 2026-06-30 09:05 - 杨某诋毁袁隆平院士科研成果被刑拘<br><br> | ??:https://www.share.kurohicncr.top/Article/details/4349542.shtml
+- 2026-06-30 09:16 - 为什么很多企业推行“扁平化管理”后，效率反而下降了？<br><br> | ??:http://www.blog.minike.top/Article/details/97569189.shtml
+- 2026-06-30 09:04 - 自然光｜papi酱&窦文涛：驴与跑步机<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/21044818.shtml
+- 2026-06-30 09:16 - 男子造谣东鹏老板不喝自家饮料被拘<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/998785400408.shtml
+- 2026-06-30 09:11 - 想问一下学日语的大佬，自学日语要怎么学？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/84773938.shtml
+- 2026-06-30 09:15 - 欧洲空调卖疯了 下一个爆款是储能吗<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/72403.shtml
+- 2026-06-30 09:12 - 追梦拒绝2770万美元球员选项<br><br> | ??:https://www.blog.minike.top/Article/details/6140698.shtml
+- 2026-06-30 09:03 - 爆冷出局！德国点球大战不敌巴拉圭<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/64849494.shtml
+- 2026-06-30 08:55 - 高考结束，该不该外出打工体验？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/5758441.shtml
+- 2026-06-30 09:15 - 赵今麦因“瘦而不柴”的体态出圈<br><br> | ??:https://www.blog.minike.top/Article/details/7783175425.shtml
+- 2026-06-30 09:22 - 孙兴慜道歉<br><br> | ??:https://www.blog.minike.top/Article/details/47601.shtml
+- 2026-06-30 09:17 - 泰山景区建135公里刀片刺绳隔离网<br><br> | ??:http://www.blog.minike.top/Article/details/276517971642.shtml

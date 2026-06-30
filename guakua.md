@@ -1,58 +1,60 @@
-# 二十届中央第七轮巡视完成进驻
+# 哥伦比亚官方：德拉埃斯普列亚当选该国新任总统
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-新华社北京4月18日电 根据党中央关于巡视工作的统一部署，近日，二十届中央第七轮巡视完成进驻工作。15个中央巡视组将对36家中央和国家机关开展常规巡视。 被巡视单位分别召开巡视进驻动员会。各中央巡视组组长作动员讲话，对深入学习贯彻习近平总书记关于巡视工作的重要讲话精神，扎实开展巡视工作提出要求。 各中央巡视组组长强调，中央和国家机关是践行“两个维护”的第一方阵，是贯彻落实党中央
+中新社北京6月25日电 波哥大消息：哥伦比亚全国选举委员会当地时间24日宣布，根据“正式审查计票”结果，来自极右翼政治团体“祖国捍卫者”的独立候选人阿韦拉多·德拉埃斯普列亚当选该国新任总统。 哥伦比亚21日举行总统选举第二轮投票，德拉埃斯普列亚与来自左翼执政联盟“哥伦比亚历史公约联盟”的伊万·塞佩达展开最终角逐。 综合《哥伦比亚人报》、美联社与英国《卫报》报道，在哥全国选举委员
 
 ## 正文
 
-新华社北京4月18日电 根据党中央关于巡视工作的统一部署，近日，二十届中央第七轮巡视完成进驻工作。
+中新社北京6月25日电 波哥大消息：哥伦比亚全国选举委员会当地时间24日宣布，根据“正式审查计票”结果，来自极右翼政治团体“祖国捍卫者”的独立候选人阿韦拉多·德拉埃斯普列亚当选该国新任总统。
 
-15个中央巡视组将对36家中央和国家机关开展常规巡视。
+哥伦比亚21日举行总统选举第二轮投票，德拉埃斯普列亚与来自左翼执政联盟“哥伦比亚历史公约联盟”的伊万·塞佩达展开最终角逐。
 
-被巡视单位分别召开巡视进驻动员会。
+综合《哥伦比亚人报》、美联社与英国《卫报》报道，在哥全国选举委员会宣布正式结果前，塞佩达已于24日承认败选，称这是出于“民主责任感”，也是为了“促进哥伦比亚人民之间的共处、和平与对话”。
 
-各中央巡视组组长作动员讲话，对深入学习贯彻习近平总书记关于巡视工作的重要讲话精神，扎实开展巡视工作提出要求。
+他表示，接受选举结果并不意味着放弃查明真相，也不意味着“对我们认为严重并且影响本次总统选举的情况保持沉默”。
 
-各中央巡视组组长强调，中央和国家机关是践行“两个维护”的第一方阵，是贯彻落实党中央决策部署的“最初一公里”。
+德拉埃斯普列亚竞选团队24日发表声明，称竞选活动已经结束，“是时候团结起来应对国家面临的主要挑战”。
 
-今年是“十五五”开局之年，对中央和国家机关开展巡视，是推动被巡视党组织加强党的政治建设、始终做到“两个维护”，强化党的宗旨意识、树立和践行正确政绩观，深化党的自我革命、持之以恒推进全面从严治党的重要举措。
+47岁的德拉埃斯普列亚将于8月7日开始其为期4年的总统任期。
 
-被巡视党组织要提高政治站位，切实把思想和行动统一到党中央决策部署上来，以高度的责任感使命感完成好党中央交给的巡视任务。
+根据哥伦比亚现行选举制度，选举计票采用“双轨制”。
 
-各中央巡视组组长指出，巡视是党内监督的战略性制度安排，是管党治党的利剑、治国理政的利器。
+选举日结束后，首先由哥伦比亚国家民事登记处委托的技术服务商进行“初步计票”，但该结果不具备法律效力。
 
 ## 相关推荐
 
-- 2026-06-30 08:54 - 周生如故<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md
-- 2026-06-30 08:56 - 领克07GT搭载超跑同源MRC悬架<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md
-- 2026-06-30 09:13 - 曝娱乐圈大部分明星失业<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md
-- 2026-06-30 09:11 - 四川宜宾地震为何震感明显<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md
-- 2026-06-30 09:12 - 董卿父亲报纸上发文悼念亡妻<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md
-- 2026-06-30 09:16 - 法总统候选人：拒绝与中国激烈对抗<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md
-- 2026-06-30 09:09 - 小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md
-- 2026-06-30 09:06 - “柠檬茶能换怀表？”<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md
-- 2026-06-30 09:15 - 高考填志愿父亲和女儿产生分歧<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md
-- 2026-06-30 08:59 - 现在叛逆期的孩子最怕的是什么？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md
-- 2026-06-30 09:07 - 泰山景区回应修建刀片刺绳隔离网<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md
-- 2026-06-30 09:11 - 手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md
+- 2026-06-30 09:18 - 赛博朋克边缘行者2预告片<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md
+- 2026-06-30 09:05 - 欧洲家电巨头为何输掉了这个夏天<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md
+- 2026-06-30 08:54 - 《贺子珍》<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md
+- 2026-06-30 09:07 - 上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md
+- 2026-06-30 09:04 - 峡谷事故团队组队时有人提醒会下雨<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md
+- 2026-06-30 09:09 - 德国巴拉圭加时<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md
+- 2026-06-30 09:05 - 扫黑风暴<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md
+- 2026-06-30 08:58 - 终于把好哥们处成了情侣!<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md
+- 2026-06-30 09:08 - 为什么很多企业推行“扁平化管理”后，效率反而下降了？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md
+- 2026-06-30 09:18 - 全网说丑的玫瑰空调卖了5万台<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md
+- 2026-06-30 09:08 - 全新问界M9现身美国街头<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md
+- 2026-06-30 08:56 - 我和我的家乡<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md
+- 2026-06-30 09:06 - 德国巴拉圭 折磨<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md
+- 2026-06-30 09:16 - 存储芯片龙头提示风险<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:58 - 【硬核拆解】汽车人到底离我们有多远？<br><br> | ??:http://www.share.minike.top/Article/details/6204596269.shtml
-- 2026-06-30 09:00 - 高考结束，该不该外出打工体验？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/6008758472.shtml
-- 2026-06-30 09:01 - 日本淘汰<br><br> | ??:https://www.share.kurohicncr.top/Article/details/1613211042.shtml
-- 2026-06-30 09:02 - FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/12588124.shtml
-- 2026-06-30 09:23 - 老外对中国cosplay竟这样评价…<br><br> | ??:http://www.share.minike.top/Article/details/789831689.shtml
-- 2026-06-30 09:18 - 如何评价《龙之家族》第三季第二集？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/531291.shtml
-- 2026-06-30 09:05 - 网红不能困在无底线逐利里<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/45394482306.shtml
-- 2026-06-30 09:07 - 如果有二次元高中是什么样子的？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/00451257.shtml
-- 2026-06-30 09:17 - 浪姐成团夜爆笑吐槽<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/55096953384.shtml
-- 2026-06-30 09:09 - 日本五次世界杯淘汰赛全败<br><br> | ??:http://www.share.kurohicncr.top/Article/details/805680675.shtml
-- 2026-06-30 09:21 - 《虎吹最难绷の一集》<br><br> | ??:http://www.share.minike.top/Article/details/6992284.shtml
-- 2026-06-30 09:10 - 第一炉香<br><br> | ??:https://www.blog.minike.top/Article/details/242193.shtml
-- 2026-06-30 09:23 - 穆祉丞回应获年度人气艺人<br><br> | ??:https://www.share.minike.top/Article/details/367872486172.shtml
-- 2026-06-30 09:04 - 失明的我带老妈去了趟“火星”<br><br> | ??:https://www.share.kurohicncr.top/Article/details/3031160145.shtml
-- 2026-06-30 09:23 - 苗族银饰<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/732201.shtml
+- 2026-06-30 09:23 - 恋与深空<br><br> | ??:http://www.share.minike.top/Article/details/59370964.shtml
+- 2026-06-30 09:06 - 为什么纣王似乎对周文王的扩张完全无动于衷？<br><br> | ??:http://www.share.minike.top/Article/details/3311931983.shtml
+- 2026-06-30 09:05 - ASMR 千禧年百货大楼初代柜姐给你化大头贴妆<br><br> | ??:http://www.share.kurohicncr.top/Article/details/7740901.shtml
+- 2026-06-30 09:00 - 挪威国家队紧急从本土订购大批海鲜<br><br> | ??:https://www.share.minike.top/Article/details/76771221970.shtml
+- 2026-06-30 09:05 - 第一次对自信的力量有了实感<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/9588241.shtml
+- 2026-06-30 09:06 - 逃狱兄弟<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/94929254443.shtml
+- 2026-06-30 09:05 - 时光音乐会<br><br> | ??:http://www.blog.minike.top/Article/details/975790.shtml
+- 2026-06-30 08:57 - 巴拉圭门将<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/77930692512.shtml
+- 2026-06-30 09:04 - 《虎吹最难绷の一集》<br><br> | ??:https://www.blog.minike.top/Article/details/015049.shtml
+- 2026-06-30 08:54 - 金牌调解<br><br> | ??:https://www.blog.minike.top/Article/details/16869029.shtml
+- 2026-06-30 08:57 - 我吃遍了西安最強的街頭小吃，第九家強得離譜！<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/27956.shtml
+- 2026-06-30 09:06 - 考入南大计算机，复读考清北值吗？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/766836.shtml
+- 2026-06-30 09:18 - 【Reaction】女生最少的5款游戏<br><br> | ??:http://www.share.minike.top/Article/details/9967740379.shtml
+- 2026-06-30 09:09 - 马杜罗账号在纽约发文致谢各国援助<br><br> | ??:https://www.blog.minike.top/Article/details/955819328.shtml
+- 2026-06-30 08:59 - 追梦拒绝2770万美元球员选项<br><br> | ??:http://www.share.minike.top/Article/details/014953704.shtml

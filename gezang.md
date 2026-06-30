@@ -1,52 +1,47 @@
-# 中基协：基金经理要建立阶梯化的绩效薪酬调整机制
+# 伊朗外长与阿曼外长就霍尔木兹海峡安排举行通话
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-17日，中国证券投资基金业协会对2022年发布的《基金管理公司绩效考核与薪酬管理指引》进行了修订，形成《基金管理公司绩效考核管理指引》。《指引》指出，基金管理公司应当根据基金经理过去三年管理主动权益类基金的业绩比较基准对比、基金利润率的不同情形建立阶梯化的绩效薪酬调整机制。过去三年基金产品业绩低于业绩比较基准超过十个百分点且基金利润率为负的，基金经理绩效薪酬应当较上一年明显下降
+据社交媒体上的一则帖子，伊朗外交部长与阿曼外交部长举行了电话会谈，讨论了霍尔木兹海峡海上交通的最新动态，以及计划在60天内实施的临时安排。 伊朗外长在其官方社交媒体频道上表示，双方均强调了在海峡管理方面继续开展协调、双边磋商以及技术和专家层面合作的重要性。责任编辑：何云
 
 ## 正文
 
-17日，中国证券投资基金业协会对2022年发布的《基金管理公司绩效考核与薪酬管理指引》进行了修订，形成《基金管理公司绩效考核管理指引》。
+据社交媒体上的一则帖子，伊朗外交部长与阿曼外交部长举行了电话会谈，讨论了霍尔木兹海峡海上交通的最新动态，以及计划在60天内实施的临时安排。
 
-《指引》指出，基金管理公司应当根据基金经理过去三年管理主动权益类基金的业绩比较基准对比、基金利润率的不同情形建立阶梯化的绩效薪酬调整机制。
+伊朗外长在其官方社交媒体频道上表示，双方均强调了在海峡管理方面继续开展协调、双边磋商以及技术和专家层面合作的重要性。
 
-过去三年基金产品业绩低于业绩比较基准超过十个百分点且基金利润率为负的，基金经理绩效薪酬应当较上一年明显下降，降幅不得少于百分之三十；低于业绩比较基准超过十个百分点但基金利润率为正的，基金经理绩效薪酬应当下降；显著超过业绩比较基准且基金利润率为正的，基金经理绩效薪酬可以合理适度提高。
-
-(总台央视记者 沙千)
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-30 09:21 - 德国巴拉圭进入点球大战<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md
-- 2026-06-30 09:20 - 德国罚丢3粒点球<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md
-- 2026-06-30 09:11 - 存储芯片龙头提示风险<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md
-- 2026-06-30 09:16 - HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md
-- 2026-06-30 09:16 - 莫兰特转投开拓者效力<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md
-- 2026-06-30 09:12 - 《我落泪情绪零碎》<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md
-- 2026-06-30 09:23 - 武磊：日本队有能力跟任何强队抗衡<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md
-- 2026-06-30 09:05 - 杨紫肖战余生请多指教拍立得<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md
-- 2026-06-30 09:15 - 吴启华卖肖像权拍AI电影<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md
-- 2026-06-30 08:56 - 【涤墨作战7人870】望：我从地狱杀回来了！<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md
-- 2026-06-30 09:23 - 现在叛逆期的孩子最怕的是什么？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md
-- 2026-06-30 09:02 - 女子遭下药退赔偿拟追刑责<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md
-- 2026-06-30 09:03 - 俄乌双方伤亡近180万人<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md
-- 2026-06-30 09:14 - 我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md
+- 2026-06-30 09:23 - 五哈和他们的朋友<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md
+- 2026-06-30 09:09 - 德国4比5巴拉圭<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md
+- 2026-06-30 09:24 - 上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md
+- 2026-06-30 09:03 - 主人解开狗绳2只狗将路人撕咬致死<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md
+- 2026-06-30 09:23 - 王健林甩卖超80座万达广场<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md
+- 2026-06-30 09:12 - 如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md
+- 2026-06-30 09:19 - 亚洲球队全部告别世界杯<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md
+- 2026-06-30 08:55 - 孙颖莎王楚钦晋级8强<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md
+- 2026-06-30 09:03 - GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md
+- 2026-06-30 09:15 - 董卿父亲报纸上发文悼念亡妻<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md
+- 2026-06-30 09:14 - 杨紫大银幕成绩单如何<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:08 - 峡谷事故团队组队时有人提醒会下雨<br><br> | ??:http://www.share.kurohicncr.top/Article/details/319703.shtml
-- 2026-06-30 09:20 - 快递到家不能这样拆<br><br> | ??:http://www.share.kurohicncr.top/Article/details/028519.shtml
-- 2026-06-30 09:09 - 恋与深空回应争议<br><br> | ??:http://www.blog.minike.top/Article/details/46556.shtml
-- 2026-06-30 09:03 - 男子造谣东鹏老板不喝自家饮料被拘<br><br> | ??:https://www.blog.minike.top/Article/details/029728263.shtml
-- 2026-06-30 09:05 - 豆包收费了，你还会用吗？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/7284198.shtml
-- 2026-06-30 09:17 - 三星投资计划<br><br> | ??:https://www.share.kurohicncr.top/Article/details/89845.shtml
-- 2026-06-30 09:00 - 乔家的儿女<br><br> | ??:https://www.share.kurohicncr.top/Article/details/648693628923.shtml
-- 2026-06-30 08:55 - 2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？<br><br> | ??:http://www.share.minike.top/Article/details/714978.shtml
-- 2026-06-30 08:58 - 金鹰奖视后提名预测<br><br> | ??:https://www.share.kurohicncr.top/Article/details/216483724.shtml
-- 2026-06-30 09:07 - IGN评测电影版后室<br><br> | ??:http://www.blog.minike.top/Article/details/687647.shtml
-- 2026-06-30 09:22 - 韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/580354090458.shtml
-- 2026-06-30 09:14 - 贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/240328.shtml
-- 2026-06-30 09:05 - hanser X 赖美云《室内系的Track Maker》<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/38065.shtml
-- 2026-06-30 09:19 - 恐怖世界 第三集 埃温霍姆村<br><br> | ??:http://www.share.minike.top/Article/details/3581906.shtml
-- 2026-06-30 09:20 - 致敬！中国首批缉毒警已全体退休<br><br> | ??:https://www.blog.minike.top/Article/details/438798826.shtml
+- 2026-06-30 09:04 - 女儿从清华毕业 爸爸晒出17年对比照<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/894087642133.shtml
+- 2026-06-30 09:07 - 哈弗茨头球破门<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/44929102932.shtml
+- 2026-06-30 09:16 - 韩国道歉完日本道歉<br><br> | ??:http://www.blog.minike.top/Article/details/9296257.shtml
+- 2026-06-30 09:18 - 健全中小学教师工资长效联动机制<br><br> | ??:https://www.blog.minike.top/Article/details/771588703318.shtml
+- 2026-06-30 09:04 - 大蒜晒外面被路过女子连盆端走<br><br> | ??:http://www.share.kurohicncr.top/Article/details/1740733281.shtml
+- 2026-06-30 09:01 - 有人见过武则天的画像吗，非常好奇？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/790316400.shtml
+- 2026-06-30 09:14 - 古代时期普通老百姓能喝上酒吗？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/54212079.shtml
+- 2026-06-30 09:15 - 有什么好的高中网课推荐吗？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/53381451.shtml
+- 2026-06-30 09:10 - 输球后日本球迷被强行披上巴西国旗<br><br> | ??:http://www.share.minike.top/Article/details/531991.shtml
+- 2026-06-30 08:54 - 浪姐成团夜爆笑吐槽<br><br> | ??:http://www.share.kurohicncr.top/Article/details/628491456466.shtml
+- 2026-06-30 09:19 - 高考填志愿父亲和女儿产生分歧<br><br> | ??:http://www.share.minike.top/Article/details/384803960.shtml
+- 2026-06-30 08:59 - 免费试吃发差评被店家挂店门避雷<br><br> | ??:http://www.share.kurohicncr.top/Article/details/66611844354.shtml
+- 2026-06-30 08:58 - 欧洲装一台空调有多难<br><br> | ??:http://www.share.minike.top/Article/details/479817898445.shtml
+- 2026-06-30 08:56 - GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/65323101218.shtml
+- 2026-06-30 09:13 - 酒店推行“24小时退房”引热议<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/3640313.shtml

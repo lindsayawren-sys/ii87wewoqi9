@@ -1,43 +1,47 @@
-# 王勃、陶渊明、文天祥、欧阳修......邀您入群，在线等！挺急的！
+# 民族团结进步促进法是新时代第一部民族领域专门法律
 
-> 更新时间：2026-06-30 09:24:02 UTC+8
+> 更新时间：2026-06-30 09:24:08 UTC+8
 
 ## 摘要
 
-部分图片由AIGC辅助制作 作者：刘占昆 周方雄 编辑：常新宇 臧赫 审校：魏 园 责编：马学玲 (中新社微信公众号)
+中新网北京6月24日电(记者 袁秀月)国务院新闻办公室6月24日举行新闻发布会，介绍《中华人民共和国民族团结进步促进法》和我国民族工作有关情况。发布会上介绍，民族团结进步促进法是新时代第一部民族领域的专门法律，是新时代实施宪法有关规定、处理民族事务和开展民族工作的基本法律。
 
 ## 正文
 
-部分图片由AIGC辅助制作 作者：刘占昆 周方雄 编辑：常新宇 臧赫 审校：魏 园 责编：马学玲 (中新社微信公众号)
+中新网北京6月24日电(记者 袁秀月)国务院新闻办公室6月24日举行新闻发布会，介绍《中华人民共和国民族团结进步促进法》和我国民族工作有关情况。
+
+发布会上介绍，民族团结进步促进法是新时代第一部民族领域的专门法律，是新时代实施宪法有关规定、处理民族事务和开展民族工作的基本法律。
 
 ## 相关推荐
 
-- 2026-06-30 09:13 - 日本反击率先破门<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md
-- 2026-06-30 09:19 - 如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md
-- 2026-06-30 09:17 - Melo向柳智敏张元英道歉<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md
-- 2026-06-30 09:07 - 披荆斩棘的哥哥<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md
-- 2026-06-30 09:00 - 承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md
-- 2026-06-30 09:23 - 亚洲球队全部出局<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md
-- 2026-06-30 08:57 - 《我落泪情绪零碎》<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md
-- 2026-06-30 08:57 - 天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md
-- 2026-06-30 09:02 - 第一炉香<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md
-- 2026-06-30 09:06 - 赛博朋克边缘行者2预告片<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md
-- 2026-06-30 09:06 - 亚洲球队全部出局<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md
+- 2026-06-30 09:08 - 泰山景区建135公里刀片刺绳隔离网<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md
+- 2026-06-30 09:03 - 全新问界M9现身美国街头<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md
+- 2026-06-30 09:01 - 杨紫被质疑未使用原名<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md
+- 2026-06-30 09:20 - 如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md
+- 2026-06-30 09:06 - 手底下人带不动怎么办？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md
+- 2026-06-30 08:54 - 巴西2-1绝杀日本<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md
+- 2026-06-30 09:08 - 2021江苏卫视跨年演唱会<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md
+- 2026-06-30 09:07 - 疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md
+- 2026-06-30 08:54 - 女儿从清华毕业 爸爸晒出17年对比照<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md
+- 2026-06-30 09:08 - 《虎吹最难绷の一集》<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md
+- 2026-06-30 09:01 - 吴易昺不敌德约科维奇 止步温网首轮<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md
+- 2026-06-30 08:55 - 内马尔未登场 安切洛蒂赛后回应<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md
+- 2026-06-30 09:20 - 古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:19 - 曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？<br><br> | ??:https://www.share.minike.top/Article/details/4827771.shtml
-- 2026-06-30 09:04 - 黄晓明夸昆凌引杨颖对比<br><br> | ??:https://www.blog.minike.top/Article/details/024973841939.shtml
-- 2026-06-30 09:17 - 巴拉圭进球<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/685702186.shtml
-- 2026-06-30 09:15 - 这些7月新规影响你我<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/25447.shtml
-- 2026-06-30 09:19 - 德国连续三届世界杯无缘16强<br><br> | ??:https://www.blog.minike.top/Article/details/763963001600.shtml
-- 2026-06-30 09:19 - 女子清吧被陌生人投放伟哥<br><br> | ??:https://www.blog.minike.top/Article/details/653331689571.shtml
-- 2026-06-30 09:05 - 日本博主：日本足球真的垃圾<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/60088.shtml
-- 2026-06-30 09:11 - 金刚川<br><br> | ??:https://www.share.kurohicncr.top/Article/details/942098149.shtml
-- 2026-06-30 09:22 - 高质量发展看新疆<br><br> | ??:http://www.share.minike.top/Article/details/354580782386.shtml
-- 2026-06-30 08:54 - 未来五年，教育强国这样建设<br><br> | ??:http://www.share.minike.top/Article/details/518896.shtml
-- 2026-06-30 09:15 - 输球后日本球迷被强行披上巴西国旗<br><br> | ??:https://www.blog.minike.top/Article/details/553704425.shtml
-- 2026-06-30 08:57 - 如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？<br><br> | ??:https://www.share.minike.top/Article/details/4938641807.shtml
-- 2026-06-30 09:21 - 网红不能困在无底线逐利里<br><br> | ??:http://www.share.minike.top/Article/details/108412.shtml
-- 2026-06-30 09:03 - 小娘惹<br><br> | ??:http://www.blog.minike.top/Article/details/828783533280.shtml
-- 2026-06-30 09:10 - 我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎<br><br> | ??:http://www.blog.minike.top/Article/details/77870.shtml
+- 2026-06-30 09:07 - 女子遭下药退赔偿拟追刑责<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/607323.shtml
+- 2026-06-30 09:15 - 杨紫学位证上就是杨紫<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/79364.shtml
+- 2026-06-30 09:03 - 国务院：鼓励行业龙头企业举办职校<br><br> | ??:https://www.share.minike.top/Article/details/09735571.shtml
+- 2026-06-30 08:56 - 女子用家人生日买彩票中1032万<br><br> | ??:http://www.share.kurohicncr.top/Article/details/4611066.shtml
+- 2026-06-30 09:06 - 王楚钦孙颖莎晋级混双八强<br><br> | ??:http://www.share.minike.top/Article/details/027738.shtml
+- 2026-06-30 09:02 - 德国淘汰<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/9410311.shtml
+- 2026-06-30 09:20 - 承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/635858275972.shtml
+- 2026-06-30 09:00 - 酒店推行“24小时退房”引热议<br><br> | ??:https://www.blog.minike.top/Article/details/4562808.shtml
+- 2026-06-30 09:05 - 曝娱乐圈大部分明星失业<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/151375.shtml
+- 2026-06-30 09:23 - 赵今麦因“瘦而不柴”的体态出圈<br><br> | ??:http://www.share.minike.top/Article/details/20100431727.shtml
+- 2026-06-30 08:59 - 未来五年，教育强国这样建设<br><br> | ??:http://www.share.minike.top/Article/details/3204060.shtml
+- 2026-06-30 09:05 - 恋与深空回应争议<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/79540307.shtml
+- 2026-06-30 08:56 - 英语考了145的人竟然教数学<br><br> | ??:https://www.share.minike.top/Article/details/23709.shtml
+- 2026-06-30 09:00 - 巴拉圭点球大战淘汰德国进16强<br><br> | ??:https://www.share.minike.top/Article/details/0533018364.shtml
+- 2026-06-30 09:03 - 流金岁月<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/88816331079.shtml
