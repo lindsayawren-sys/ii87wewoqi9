@@ -1,60 +1,45 @@
-# “AI电源龙头”麦格米特增收不增利背后：业绩兑现为何滞后于股价？
+# 为两岸谋和平、为同胞谋福祉、为民族谋复兴——习近平总书记会见中国国民党主席郑丽文发表重要讲话引发热烈反响
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-出品：新浪财经上市公司研究院 作者：郝显 2025年，在AI算力需求爆发的大背景下，AI 服务器功耗呈指数级增长，电源从 “配角” 一跃为“算力瓶颈”。 麦格米特作为AI电源企业，凭借“英伟达供应商”这一标签被市场热捧，近一年股价从约42 元最高涨至 163.63元，累计涨幅接近300%。6月9日，公司更是发布公告，拟发行H股股票并在香港联合交易所有限公司上市。 不过与资本市场
+发布时间：2026年04月12日 10:24 来源：央视新闻客户端 责任编辑：【姜媛媛】
 
 ## 正文
 
-出品：新浪财经上市公司研究院 作者：郝显 2025年，在AI算力需求爆发的大背景下，AI 服务器功耗呈指数级增长，电源从 “配角” 一跃为“算力瓶颈”。
-
-麦格米特作为AI电源企业，凭借“英伟达供应商”这一标签被市场热捧，近一年股价从约42 元最高涨至 163.63元，累计涨幅接近300%。
-
-6月9日，公司更是发布公告，拟发行H股股票并在香港联合交易所有限公司上市。
-
-不过与资本市场的热炒形成对比的是，业绩释放较为滞后。
-
-2025年麦格米特收入增长15.05%至94.03亿元，净利润则减少66.58%，今年一季度收入增长20.35%，归母净利润仅增长6.93%，扣非归母净利润则下滑56.23%。
-
-麦格米特增长逻辑是什么？
-
-股价是否已透支业绩？
-
-AI电源龙头 业绩兑现为何滞后于股价？
+发布时间：2026年04月12日 10:24 来源：央视新闻客户端 责任编辑：【姜媛媛】
 
 ## 相关推荐
 
-- 2026-06-30 08:21 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-30 08:16 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-30 08:21 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
-- 2026-06-30 08:28 - [杨紫学位证上就是杨紫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-30 08:18 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-30 08:24 - [郑钦文温网首轮出局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
-- 2026-06-30 08:24 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
-- 2026-06-30 08:38 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
-- 2026-06-30 08:18 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
-- 2026-06-30 08:26 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-30 08:39 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
-- 2026-06-30 08:25 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
-- 2026-06-30 08:17 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
-- 2026-06-30 08:28 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-30 08:39 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-30 08:39 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-30 08:19 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-30 08:31 - [日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-30 08:37 - [德国连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-30 08:19 - [三星投资计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-30 08:41 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-30 08:37 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-30 08:18 - [森保一 保守](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-30 08:37 - [王濛回复黄灿灿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-30 08:41 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-30 08:18 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-30 08:21 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:21 - [“柠檬茶能换怀表？”](https://www.share.kurohicncr.top/Article/details/804120273.shtml)
-- 2026-06-30 08:24 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/989205.shtml)
-- 2026-06-30 08:37 - [女子清吧被陌生人投放伟哥](https://www.blog.kurohicncr.top/Article/details/121824.shtml)
-- 2026-06-30 08:28 - [张碧晨一开口梦回逐玉](http://www.share.minike.top/Article/details/8449674418.shtml)
-- 2026-06-30 08:41 - [日本遭读秒绝杀 森保一：我水平不够](http://www.blog.kurohicncr.top/Article/details/6243919.shtml)
-- 2026-06-30 08:20 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.kurohicncr.top/Article/details/43347.shtml)
-- 2026-06-30 08:23 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/6058577.shtml)
-- 2026-06-30 08:21 - [DeepSeek V4正式版要来了](http://www.blog.minike.top/Article/details/9342647.shtml)
-- 2026-06-30 08:13 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/9060815156.shtml)
-- 2026-06-30 08:28 - [小勒布伦WTT美国大满贯开门红](https://www.share.minike.top/Article/details/303278130954.shtml)
-- 2026-06-30 08:25 - [一生一世](http://www.blog.minike.top/Article/details/1857231.shtml)
-- 2026-06-30 08:13 - [Melo向柳智敏张元英道歉](http://www.share.minike.top/Article/details/61729160.shtml)
-- 2026-06-30 08:15 - [日本16强魔咒](https://www.blog.minike.top/Article/details/86931.shtml)
-- 2026-06-30 08:33 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/4236057.shtml)
-- 2026-06-30 08:19 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/31399405669.shtml)
+- 2026-06-30 08:43 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/92265.shtml)
+- 2026-06-30 08:23 - [点球大战 残酷](https://www.share.kurohicncr.top/Article/details/27715095.shtml)
+- 2026-06-30 08:29 - [德国队连续三届世界杯无缘16强](https://www.blog.minike.top/Article/details/66198718425.shtml)
+- 2026-06-30 08:27 - [《男人至死是傻得儿》](https://www.share.kurohicncr.top/Article/details/34067952.shtml)
+- 2026-06-30 08:33 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/027910.shtml)
+- 2026-06-30 08:47 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.blog.minike.top/Article/details/1660817588.shtml)
+- 2026-06-30 08:44 - [第一炉香](https://www.share.minike.top/Article/details/0630115886.shtml)
+- 2026-06-30 08:25 - [为什么会有「念旧」的心理？](https://www.blog.minike.top/Article/details/03328795.shtml)
+- 2026-06-30 08:35 - [王楚钦说配合稍微有些陌生感](http://www.blog.kurohicncr.top/Article/details/3196328770.shtml)
+- 2026-06-30 08:26 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/326322.shtml)
+- 2026-06-30 08:31 - [王欣瑜2-1击败科恰雷托](http://www.share.kurohicncr.top/Article/details/804542274.shtml)
+- 2026-06-30 08:30 - [德国淘汰](http://www.share.minike.top/Article/details/41804447332.shtml)
+- 2026-06-30 08:22 - [板面：为什么那么多人爱吃？？！](https://www.share.minike.top/Article/details/4190921.shtml)
+- 2026-06-30 08:23 - [请回答王牌2019](http://www.blog.minike.top/Article/details/9849413784.shtml)
+- 2026-06-30 08:33 - [日本反击率先破门](http://www.blog.kurohicncr.top/Article/details/102905526213.shtml)

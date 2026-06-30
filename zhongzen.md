@@ -1,51 +1,59 @@
-# 澜起科技遭瑞银集团减持15.65万股 每股作价约414.92港元
+# 恩智浦半导体袁文博：2030年机器人市场规模将超2000亿美元
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-香港联交所最新数据显示，6月5日，瑞银集团减持澜起科技（06809）15.65万股，每股作价414.9187港元，总金额约为6493.48万港元。减持后最新持股数目约为529.49万股，持股比例为6.99%。责任编辑：卢昱君
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。恩智浦半导体副总裁袁文博出席并演讲。 袁文博表示，恩智浦不仅聚焦汽车领域，更将汽车产业能力延伸至物联网、机器人等关键赛道，通过构建可持续的产业生态，把握行业爆发机遇。 他预测，2030年机器人
 
 ## 正文
 
-香港联交所最新数据显示，6月5日，瑞银集团减持澜起科技（06809）15.65万股，每股作价414.9187港元，总金额约为6493.48万港元。
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
 
-减持后最新持股数目约为529.49万股，持股比例为6.99%。
+恩智浦半导体副总裁袁文博出席并演讲。
 
-责任编辑：卢昱君
+袁文博表示，恩智浦不仅聚焦汽车领域，更将汽车产业能力延伸至物联网、机器人等关键赛道，通过构建可持续的产业生态，把握行业爆发机遇。
+
+他预测，2030年机器人市场规模将超2000亿美元，且2030年后才进入“腾飞期”；预计2040年左右，机器人市场有望创造与汽车同等规模的全球市场，是企业重要的发展战略方向。
+
+他还指出，物联网与超级工厂规模爆发在即，预计2030年超级工厂数量将达400座，物联网设备市场规模将突破400亿美元。
+
+新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
+
+责任编辑：王翔
 
 ## 相关推荐
 
-- 2026-06-30 08:18 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-30 08:33 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
-- 2026-06-30 08:20 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
-- 2026-06-30 08:14 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-30 08:28 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
-- 2026-06-30 08:23 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
-- 2026-06-30 08:29 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
-- 2026-06-30 08:14 - [马耳他著名拱门坍塌致一中国男子身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-30 08:30 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-30 08:27 - [巴拉圭进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-30 08:26 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-30 08:18 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-30 08:18 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-30 08:25 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-30 08:27 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-30 08:32 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
+- 2026-06-30 08:27 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-30 08:22 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-30 08:19 - [孙颖莎王楚钦晋级8强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-30 08:43 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-30 08:20 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-30 08:24 - [森保一 保守](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-30 08:30 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
+- 2026-06-30 08:28 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-30 08:18 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
+- 2026-06-30 08:34 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-30 08:42 - [电影抓特务上映11天破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-30 08:43 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-30 08:20 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-30 08:40 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:36 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.minike.top/Article/details/3098787.shtml)
-- 2026-06-30 08:15 - [马耳他著名拱门坍塌致一中国男子身亡](http://www.blog.kurohicncr.top/Article/details/891687.shtml)
-- 2026-06-30 08:35 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.share.kurohicncr.top/Article/details/51329575582.shtml)
-- 2026-06-30 08:32 - [花少8要去世界杯举办国](http://www.share.kurohicncr.top/Article/details/5204786262.shtml)
-- 2026-06-30 08:17 - [自然光｜papi酱&窦文涛：驴与跑步机](http://www.blog.kurohicncr.top/Article/details/27071478738.shtml)
-- 2026-06-30 08:27 - [健全中小学教师工资长效联动机制](http://www.blog.kurohicncr.top/Article/details/852052.shtml)
-- 2026-06-30 08:37 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/165751439.shtml)
-- 2026-06-30 08:20 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/0455148.shtml)
-- 2026-06-30 08:16 - [德国队连续三届世界杯无缘16强](https://www.share.minike.top/Article/details/504787853.shtml)
-- 2026-06-30 08:13 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://www.share.kurohicncr.top/Article/details/90908.shtml)
-- 2026-06-30 08:16 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.minike.top/Article/details/348802.shtml)
-- 2026-06-30 08:34 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/5369927156.shtml)
-- 2026-06-30 08:13 - [德国巴拉圭加时](https://www.share.kurohicncr.top/Article/details/721883337456.shtml)
-- 2026-06-30 08:40 - [莫兰特转投开拓者效力](https://www.blog.kurohicncr.top/Article/details/951921350.shtml)
-- 2026-06-30 08:34 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/82735180.shtml)
+- 2026-06-30 08:21 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/4452199.shtml)
+- 2026-06-30 08:33 - [巴拉圭先进球了](http://www.share.kurohicncr.top/Article/details/1878851882.shtml)
+- 2026-06-30 08:24 - [王健林甩卖超80座万达广场](http://www.blog.minike.top/Article/details/556200853339.shtml)
+- 2026-06-30 08:26 - [王健林甩卖超80座万达广场](https://www.share.minike.top/Article/details/496744391942.shtml)
+- 2026-06-30 08:40 - [存储芯片龙头提示风险](http://www.share.kurohicncr.top/Article/details/4582125269.shtml)
+- 2026-06-30 08:32 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/779452940236.shtml)
+- 2026-06-30 08:35 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.kurohicncr.top/Article/details/380484.shtml)
+- 2026-06-30 08:31 - [王欣瑜连续4年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/062223499531.shtml)
+- 2026-06-30 08:18 - [日耳曼拖拉机](https://www.share.kurohicncr.top/Article/details/7948035824.shtml)
+- 2026-06-30 08:32 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/259240766.shtml)
+- 2026-06-30 08:21 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/57775271.shtml)
+- 2026-06-30 08:29 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/6576140.shtml)
+- 2026-06-30 08:18 - [网红峡谷5人溺亡 有人提醒会下雨](https://www.share.kurohicncr.top/Article/details/610764.shtml)
+- 2026-06-30 08:47 - [这几秒成世界杯最值钱广告位](https://www.blog.minike.top/Article/details/27186950.shtml)
+- 2026-06-30 08:31 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/411772227.shtml)

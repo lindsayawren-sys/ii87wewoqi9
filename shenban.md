@@ -1,60 +1,60 @@
-# 未入职先“入坑”，一大学生因求职背上巨额债务
+# 【东西问】王馗：梅兰芳1930年访美演出为何具有里程碑意义？
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-原标题：【说案·守护初入职场的“你”①】未入职先“入坑”，一大学生因求职背上巨额债务 编者按 就业是最大的民生，青年是国家的未来。当前，正值高校毕业生求职关键期，不少年轻人怀揣憧憬步入职场，却也有人在找工作时遭遇“招转贷”骗局、求职变“背锅”、实习期权益受侵害等困境。 今日起，本版推出系列稿件《说案·守护初入职场的“你”》，聚焦身边真实案例，以案说法、以法析理，逐一拆解常见陷阱
+发布时间：2026年04月11日 11:07 来源：中国新闻网 正在纽约举办的“飞翼歌舞：梅兰芳访美演出”展览，通过丰富多样的展品再现京剧艺术大师梅兰芳1930年的访美演出历程。该展由华美协进社中国美术馆和中国艺术研究院联合推出。当那些承载舞台记忆的戏服与道具再次呈现在美国观众面前，这位一代名伶近一个世纪前的远行巡演，重新引发公众的关注与探索。 梅兰芳当年赴美演出前做了哪些准备
 
 ## 正文
 
-原标题：【说案·守护初入职场的“你”①】未入职先“入坑”，一大学生因求职背上巨额债务 编者按 就业是最大的民生，青年是国家的未来。
+发布时间：2026年04月11日 11:07 来源：中国新闻网 正在纽约举办的“飞翼歌舞：梅兰芳访美演出”展览，通过丰富多样的展品再现京剧艺术大师梅兰芳1930年的访美演出历程。
 
-当前，正值高校毕业生求职关键期，不少年轻人怀揣憧憬步入职场，却也有人在找工作时遭遇“招转贷”骗局、求职变“背锅”、实习期权益受侵害等困境。
+该展由华美协进社中国美术馆和中国艺术研究院联合推出。
 
-今日起，本版推出系列稿件《说案·守护初入职场的“你”》，聚焦身边真实案例，以案说法、以法析理，逐一拆解常见陷阱、厘清权责，为正在求职和初入职场的年轻人提供一份实用的避坑指南与维权手册。
+当那些承载舞台记忆的戏服与道具再次呈现在美国观众面前，这位一代名伶近一个世纪前的远行巡演，重新引发公众的关注与探索。
 
-“担任法定代表人就能入职”“不用实际干活，躺着拿报酬”……临近毕业的大学生小王，求职时遇上这样的“好事”，收下千元好处费后，便受让一公司全部股权、成为法定代表人。
+梅兰芳当年赴美演出前做了哪些准备？
 
-可他没想到，这看似天上掉馅饼的机遇，竟是一场精心设计的债务转嫁骗局，自己莫名背上了300余万元的债务。
+本次展览呈现出哪些有趣细节？
 
-这场骗局究竟如何上演？
+近一个世纪前的访美演出为何在中美文化交流史上具有里程碑意义？
 
-小王签下的股权转让协议能否撤销？
+作为本次展览的专家，中国艺术研究院戏曲研究所所长、中国戏曲学会会长王馗近日在纽约接受中新社“东西问”专访时表示，梅兰芳不仅让中国戏曲“走出去”，更实现了“走进去”。
 
-近日，《工人日报》记者从北京市通州区人民法院获悉了这起案件。
+他通过艺术创新，使中国戏曲跨越语言与地域的边界，在不同文化之间建立起心灵层面的交流。
 
 ## 相关推荐
 
-- 2026-06-30 08:32 - [刘宇宁高情商化解谁站C位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-30 08:32 - [世界杯巴拉圭点球淘汰德国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
-- 2026-06-30 08:18 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-30 08:40 - [现在叛逆期的孩子最怕的是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-30 08:36 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-30 08:19 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-30 08:36 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-30 08:22 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
-- 2026-06-30 08:21 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-30 08:22 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-30 08:26 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
-- 2026-06-30 08:36 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-30 08:34 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-30 08:13 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-30 08:26 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-30 08:32 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
+- 2026-06-30 08:39 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-30 08:44 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-30 08:34 - [德国队世界杯点球大战首败](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-30 08:40 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-30 08:43 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-30 08:22 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-30 08:39 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-30 08:26 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-30 08:24 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-30 08:23 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-30 08:32 - [周冬雨多次说演不了话剧文城](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-30 08:18 - [日本队主帅道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:24 - [健全中小学教师工资长效联动机制](http://www.blog.kurohicncr.top/Article/details/34825547.shtml)
-- 2026-06-30 08:21 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.kurohicncr.top/Article/details/52039200363.shtml)
-- 2026-06-30 08:20 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/839652927.shtml)
-- 2026-06-30 08:18 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/69117786699.shtml)
-- 2026-06-30 08:20 - [日本进球](https://www.share.minike.top/Article/details/126823232.shtml)
-- 2026-06-30 08:37 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/18942285050.shtml)
-- 2026-06-30 08:30 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/938952.shtml)
-- 2026-06-30 08:23 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/91249751021.shtml)
-- 2026-06-30 08:17 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/7326889.shtml)
-- 2026-06-30 08:24 - [网红峡谷5人溺亡 有人提醒会下雨](http://www.share.kurohicncr.top/Article/details/96752901.shtml)
-- 2026-06-30 08:41 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/3049641.shtml)
-- 2026-06-30 08:23 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/61915617021.shtml)
-- 2026-06-30 08:40 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/16654921203.shtml)
-- 2026-06-30 08:27 - [杨紫肖战余生请多指教拍立得](https://www.share.minike.top/Article/details/73199217062.shtml)
-- 2026-06-30 08:13 - [韩国道歉完日本道歉](http://www.share.minike.top/Article/details/3676722.shtml)
+- 2026-06-30 08:38 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/95838.shtml)
+- 2026-06-30 08:25 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/89699.shtml)
+- 2026-06-30 08:27 - [世界杯“美洲德比”7月1日开打](http://www.blog.kurohicncr.top/Article/details/21332.shtml)
+- 2026-06-30 08:44 - [4000美元是黄金新一轮下跌的开始吗](https://www.blog.kurohicncr.top/Article/details/02619752.shtml)
+- 2026-06-30 08:38 - [送你一朵小红花](http://www.blog.minike.top/Article/details/374391.shtml)
+- 2026-06-30 08:47 - [韩国世界杯出局是主帅一个人的锅吗](https://www.share.minike.top/Article/details/13367494696.shtml)
+- 2026-06-30 08:41 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/507239879.shtml)
+- 2026-06-30 08:26 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.kurohicncr.top/Article/details/914552746.shtml)
+- 2026-06-30 08:44 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/31025.shtml)
+- 2026-06-30 08:30 - [索马里女大使：想和中国一起搞事业](https://www.blog.kurohicncr.top/Article/details/025430223253.shtml)
+- 2026-06-30 08:40 - [锐评T1战胜KC](https://www.share.kurohicncr.top/Article/details/846558.shtml)
+- 2026-06-30 08:43 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/20241.shtml)
+- 2026-06-30 08:26 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/899931963750.shtml)
+- 2026-06-30 08:40 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/3248826.shtml)
+- 2026-06-30 08:24 - [王楚钦说配合稍微有些陌生感](http://www.share.kurohicncr.top/Article/details/5983865341.shtml)

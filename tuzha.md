@@ -1,57 +1,61 @@
-# 第三届长春国际光电博览会开幕
+# 上周三大人民币汇率指数下挫 人民币或将持续处于偏强运行状态
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-特朗普提名的下任国家情报总监是谁？新能源汽车该做“体重管理”了霍尔木兹海峡再度封锁，美伊博弈或迎重要转折谒“一代草圣”于右任墓：长眠高山，遥望故土史上最贵世界杯背后的沉重账单揭幕战红牌比进球多！世界杯开幕日，创多项纪录警惕"科技红利"等幌子 以投资RWA名义诈骗等套路曝光蜜雪冰城旁的正新鸡排，要上市“搏命”？鸡蛋价格连涨7周后多平台限购 专家：不必大量囤货“鹅腿变鸭腿”争议里，
+新华财经上海4月13日电（葛佳明） 中国外汇交易中心公布数据显示，4月10日当周三大人民币汇率指数全线下跌，CFETS人民币汇率指数报100.25，按周跌0.59；BIS货币篮子人民币汇率指数报107.59，按周跌0.5；SDR货币篮子人民币汇率指数报95.23，按周跌0.06。 上周（4月6日至4月10日），地缘局势继续扰动市场风险情绪，油价自年内高位大幅回落，美元也随之下跌
 
 ## 正文
 
-特朗普提名的下任国家情报总监是谁？
+新华财经上海4月13日电（葛佳明） 中国外汇交易中心公布数据显示，4月10日当周三大人民币汇率指数全线下跌，CFETS人民币汇率指数报100.25，按周跌0.59；BIS货币篮子人民币汇率指数报107.59，按周跌0.5；SDR货币篮子人民币汇率指数报95.23，按周跌0.06。
 
-新能源汽车该做“体重管理”了霍尔木兹海峡再度封锁，美伊博弈或迎重要转折谒“一代草圣”于右任墓：长眠高山，遥望故土史上最贵世界杯背后的沉重账单揭幕战红牌比进球多！
+上周（4月6日至4月10日），地缘局势继续扰动市场风险情绪，油价自年内高位大幅回落，美元也随之下跌，全周累计下挫1.49%，报98.699。
 
-世界杯开幕日，创多项纪录警惕"科技红利"等幌子 以投资RWA名义诈骗等套路曝光蜜雪冰城旁的正新鸡排，要上市“搏命”？
+非美货币多数走势亮眼，新西兰央行上周鹰派按兵不动，新元最终收涨2.6%；英镑和欧元同样在美元大幅回落的背景下分别收涨1.7%和1.6%；而在日本国内通胀压力明显加剧的背景下，日元上周表现明显不及其他主要货币，最终仅小幅收涨0.25%。
 
-鸡蛋价格连涨7周后多平台限购 专家：不必大量囤货“鹅腿变鸭腿”争议里，人们在意的从不只是一只腿湖南同日打落多名官员，此前烟花爆炸事故致37人死亡“孤女遭亲舅舅阻止高考”系“剧本式”造谣“秦腔一枝梅”：秦腔不全是“吼”，还有委婉缠绵人工智能成为推动中国外贸增长新引擎销量前十再无燃油车 “油退电进”按下加速键中国元素将亮相美加墨世界杯秘鲁前总理：AI时代，何以守护人类基本人权？
+人民币对美元汇率延续升值态势，其中，在岸人民币对美元收报6.8305，全周累计涨幅为498个基点；离岸人民币对美元收报6.8248，本周累计涨幅为617个基点。
 
-岳云鹏：如果人生能多一个镜头，我想留给父亲西藏拉萨：运动会上的力量之美“AI医生”上高原 智能诊断系统守护基层官兵健康吉林村民遇东北虎捕食黄牛 危急时刻爬树避险成都一高校免费捞鱼900斤 祝愿毕业生“年年有余”蔡正元入狱2个月最新发声94%得票率！
+当周人民币对美元中间价累计调升275个基点。
 
-樊振东当选德甲赛季最佳三峡水库腾出防洪库容 长江万州段水位降至150米全国规模最大海上光氢储一体化项目建成南博会上挑战“见手青拿铁” 喝完会不会看见“小人人”河北农业大学毕业典礼上 学生轮番整活把校长“忙坏了”津台萌娃一逗一捧：“咱说的都是中国话”女子穿旗袍配高跟鞋跳绳惊艳网友秦岭小虎队集体庆生 萌态十足迎“六一”云南西双版纳野象谷添“重量级”新丁航拍丹霞地貌神似“羊肉卷”没有“黑眼圈” 全球唯一野生白色大熊猫长大了北京：圆明园旁扇面湖荷花盛开 世界杯16座城市16种画风 世界最长高原冻土铁路特大桥稳定运行20年 多图直击2026美加墨世界杯开幕式 “洋景漂”父女的三宝村“陶”源生活 杭州：这里的花期已排满，四时各有专属“花 “中国洮砚之乡”采石人：身贴悬崖绝壁深入 广东揭阳：一纸情书 藏在这座低调古城的烟 分享 评论 顶部
+中银证券表示，人民币汇率近期走强的原因在于多方面的避险因素驱动：一是中东局势不确定性的影响，霍尔木兹海峡通行受阻，对国际能源安全和能源化工产业链安全造成明显影响；二是国际油价中枢抬升已经开始影响全球经济和通胀预期，我国扩张性的财政政策和较低的通胀水平，明显有别于主要发达国家和地区；三是人民币资产估值相对合理，且在科技领域具备一定优势，国际资本再配置过程中对人民币资产的偏好可能上升。
+
+中金公司研究部外汇研究首席分析师李刘阳表示，从内部因素来看，外汇市场即期交易量整体保持平稳，反映出市场对人民币升值的预期趋于稳定。
+
+与此同时，人民币对美元的升值幅度明显低于多数主要非美货币，CFETS指数较月初高位有所回落，但仍维持在100以上，显示汇率整体仍处于相对均衡区间。
 
 ## 相关推荐
 
-- 2026-06-30 08:34 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-30 08:27 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-30 08:27 - [莫兰特被交易到开拓者](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-30 08:21 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-30 08:29 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-30 08:40 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
-- 2026-06-30 08:23 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-30 08:14 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-30 08:27 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-30 08:36 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
-- 2026-06-30 08:32 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
-- 2026-06-30 08:13 - [田中碧失误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-30 08:33 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
-- 2026-06-30 08:28 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
-- 2026-06-30 08:22 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-30 08:28 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-30 08:24 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-30 08:25 - [媒体：手机测评该挤挤水分了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-30 08:31 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-30 08:28 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-30 08:18 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-30 08:38 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-30 08:25 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-30 08:42 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
+- 2026-06-30 08:43 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-30 08:32 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-30 08:31 - [三星投资计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-30 08:46 - [马耳他著名拱门坍塌致一中国男子身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-30 08:33 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
+- 2026-06-30 08:34 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:15 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/99977304654.shtml)
-- 2026-06-30 08:33 - [千香](https://www.blog.minike.top/Article/details/603750.shtml)
-- 2026-06-30 08:31 - [杨紫肖战余生请多指教拍立得](http://www.share.kurohicncr.top/Article/details/9484971230.shtml)
-- 2026-06-30 08:31 - [MSI应援曲 如果季中成回忆](https://www.blog.kurohicncr.top/Article/details/301225088412.shtml)
-- 2026-06-30 08:20 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/91304.shtml)
-- 2026-06-30 08:29 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/7053528577.shtml)
-- 2026-06-30 08:35 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/64590532805.shtml)
-- 2026-06-30 08:38 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.kurohicncr.top/Article/details/563739388009.shtml)
-- 2026-06-30 08:34 - [这几秒成世界杯最值钱广告位](https://www.share.minike.top/Article/details/958882726.shtml)
-- 2026-06-30 08:21 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.share.minike.top/Article/details/73877742805.shtml)
-- 2026-06-30 08:26 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/09397721159.shtml)
-- 2026-06-30 08:33 - [杨紫获白玉兰视后争议不止](http://www.share.kurohicncr.top/Article/details/3665074.shtml)
-- 2026-06-30 08:28 - [巴拉圭进球](https://www.share.minike.top/Article/details/661767359.shtml)
-- 2026-06-30 08:37 - [一见倾心](http://www.blog.minike.top/Article/details/907238956.shtml)
-- 2026-06-30 08:12 - [张帅晋级温网次轮](http://www.share.minike.top/Article/details/56397.shtml)
+- 2026-06-30 08:21 - [巴西绝杀](https://www.share.minike.top/Article/details/89419343.shtml)
+- 2026-06-30 08:32 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/81034733635.shtml)
+- 2026-06-30 08:25 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.minike.top/Article/details/46665544668.shtml)
+- 2026-06-30 08:32 - [张碧晨一开口梦回逐玉](https://www.blog.minike.top/Article/details/50478606451.shtml)
+- 2026-06-30 08:45 - [王楚钦说配合稍微有些陌生感](http://www.blog.kurohicncr.top/Article/details/71979.shtml)
+- 2026-06-30 08:24 - [媒体评泰山建135公里刀片刺绳隔离网](http://www.share.minike.top/Article/details/730544793.shtml)
+- 2026-06-30 08:26 - [董卿父亲报纸上发文悼念亡妻](https://www.blog.minike.top/Article/details/300830960.shtml)
+- 2026-06-30 08:36 - [曝老詹对自由市场态度与以往截然不同](https://www.blog.minike.top/Article/details/636112298.shtml)
+- 2026-06-30 08:36 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/874181.shtml)
+- 2026-06-30 08:22 - [孙兴慜道歉](https://www.blog.kurohicncr.top/Article/details/0457172309.shtml)
+- 2026-06-30 08:38 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.kurohicncr.top/Article/details/32034892221.shtml)
+- 2026-06-30 08:18 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/924119997799.shtml)
+- 2026-06-30 08:23 - [存储芯片龙头提示风险](http://www.blog.kurohicncr.top/Article/details/979478903960.shtml)
+- 2026-06-30 08:35 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/01931.shtml)
+- 2026-06-30 08:31 - [德国进球被吹](https://www.share.minike.top/Article/details/298194888153.shtml)

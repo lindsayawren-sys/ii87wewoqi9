@@ -1,59 +1,60 @@
-# A股新一轮市值重构！千亿巨头，9年大增近两倍！地产清零、科技龙头批量上位
+# 财务造假，退市！A股一公司明起摘牌
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-专题：下半年A股高波动延续 坚持“积极防御” 近年来，伴随硬科技赛道行情持续升温，A股市场大市值公司阵营迎来跨越式扩容，市场整体市值格局发生深刻变化。 Wind数据显示，截至6月9日，A股超千亿元市值公司已达202家，较2025年年末增加了26家；市值过万亿元的公司更是达到了12家，为历史最高水平。而在2017年年末，超千亿元和超万亿元市值公司的数量分别为75家和6家。近9年的
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者|江佩霞 见习记者林芊蔚 编辑|刘巷 4月12日晚，长药退发布公告称，公司股票已被深交所决定终止上市，于3月20日进入退市整理期，最后交易日期为4月10日，将在4月13日被摘牌。 此前，长药退公告收到证监会作出的《行政处罚决定书》。经查，*ST长药连续三年虚增收入和利润，违反证券法律法规。证监会对上市公
 
 ## 正文
 
-专题：下半年A股高波动延续 坚持“积极防御” 近年来，伴随硬科技赛道行情持续升温，A股市场大市值公司阵营迎来跨越式扩容，市场整体市值格局发生深刻变化。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-Wind数据显示，截至6月9日，A股超千亿元市值公司已达202家，较2025年年末增加了26家；市值过万亿元的公司更是达到了12家，为历史最高水平。
+记者|江佩霞 见习记者林芊蔚 编辑|刘巷 4月12日晚，长药退发布公告称，公司股票已被深交所决定终止上市，于3月20日进入退市整理期，最后交易日期为4月10日，将在4月13日被摘牌。
 
-而在2017年年末，超千亿元和超万亿元市值公司的数量分别为75家和6家。
+此前，长药退公告收到证监会作出的《行政处罚决定书》。
 
-近9年的时间里，A股千亿市值公司的数量大增近两倍。
+经查，*ST长药连续三年虚增收入和利润，违反证券法律法规。
 
-曾经由金融、能源企业主导的“万亿市值俱乐部”，如今正被人工智能、新能源、光通信等新兴产业加速重塑。
+证监会对上市公司责令改正，给予警告，并处以1000万元罚款。
 
-受访人士表示，A股大市值公司向科技方向扩容，不仅是科技行业的高光时刻，更是中国经济从要素驱动向创新驱动转变的资本印证。
+2020年11月，长药退通过支付现金方式收购湖北长江星医药股份有限公司（简称“长江星”）52.75%的股权。
 
-大市值公司翻倍扩容 A股大市值公司的扩容进程，本质上是科技板块的爆发式成长史。
+同年12月，长江星纳入长药退财务报表合并范围。
 
-数据显示，截至2017年年末，A股市场超千亿元市值公司仅75家，其中金融行业占据26家，占比达34.67%；信息技术行业的千亿市值公司数量为4家，科技板块在资本市场的头部阵营中话语权薄弱。
+长江星原实际控制人罗某等对长江星2020年至2022年净利润等指标进行了业绩承诺。
 
 ## 相关推荐
 
-- 2026-06-30 08:27 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-30 08:23 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-30 08:16 - [日本五次世界杯淘汰赛全败](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
-- 2026-06-30 08:13 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-30 08:27 - [孙颖莎王楚钦晋级8强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-30 08:16 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-30 08:28 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
-- 2026-06-30 08:20 - [库尼亚赛后伸五指嘲讽日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-30 08:26 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-30 08:41 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
-- 2026-06-30 08:15 - [勇士续约波尔津吉斯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-30 08:14 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
-- 2026-06-30 08:40 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-30 08:36 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-30 08:44 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-30 08:41 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
+- 2026-06-30 08:47 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-30 08:44 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-30 08:24 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
+- 2026-06-30 08:31 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-30 08:33 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
+- 2026-06-30 08:43 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-30 08:24 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-30 08:45 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-30 08:32 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-30 08:40 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-30 08:36 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:25 - [齐思钧回复张月](http://www.share.minike.top/Article/details/435577.shtml)
-- 2026-06-30 08:20 - [张雪的一句“是我们”引发岛内热议](http://www.blog.minike.top/Article/details/847982103.shtml)
-- 2026-06-30 08:15 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/40843.shtml)
-- 2026-06-30 08:41 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/018918868.shtml)
-- 2026-06-30 08:22 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.minike.top/Article/details/999390060.shtml)
-- 2026-06-30 08:25 - [日本队5进世界杯淘汰赛0胜](https://www.blog.minike.top/Article/details/8181810.shtml)
-- 2026-06-30 08:28 - [德国巴拉圭加时](http://www.share.kurohicncr.top/Article/details/44873484.shtml)
-- 2026-06-30 08:19 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/01140.shtml)
-- 2026-06-30 08:32 - [孙兴慜道歉](https://www.share.minike.top/Article/details/247175251.shtml)
-- 2026-06-30 08:39 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/4007523191.shtml)
-- 2026-06-30 08:16 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.kurohicncr.top/Article/details/2126435.shtml)
-- 2026-06-30 08:40 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.kurohicncr.top/Article/details/4637949.shtml)
-- 2026-06-30 08:16 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/374201.shtml)
-- 2026-06-30 08:15 - [金牌调解](https://www.share.minike.top/Article/details/89226.shtml)
-- 2026-06-30 08:39 - [花少8要去世界杯举办国](http://www.blog.minike.top/Article/details/207458746.shtml)
+- 2026-06-30 08:32 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/890327.shtml)
+- 2026-06-30 08:42 - [董卿父亲报纸上发文悼念亡妻](https://www.share.minike.top/Article/details/16178147884.shtml)
+- 2026-06-30 08:33 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/61485831.shtml)
+- 2026-06-30 08:37 - [曝iPhone18Pro机密文件现身暗网](https://www.blog.minike.top/Article/details/9493122.shtml)
+- 2026-06-30 08:40 - [男子在京东买到“同仁堂”假药](https://www.share.minike.top/Article/details/923467691093.shtml)
+- 2026-06-30 08:33 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/85041714081.shtml)
+- 2026-06-30 08:40 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/25660773.shtml)
+- 2026-06-30 08:21 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.share.kurohicncr.top/Article/details/3475187.shtml)
+- 2026-06-30 08:44 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/493373433.shtml)
+- 2026-06-30 08:46 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/457251.shtml)
+- 2026-06-30 08:18 - [德国4比5巴拉圭](https://www.share.minike.top/Article/details/87292910985.shtml)
+- 2026-06-30 08:36 - [德国队连续三届世界杯无缘16强](http://www.share.minike.top/Article/details/2996348.shtml)
+- 2026-06-30 08:21 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/3680351.shtml)
+- 2026-06-30 08:32 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/85520365.shtml)
+- 2026-06-30 08:28 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/4855398626.shtml)

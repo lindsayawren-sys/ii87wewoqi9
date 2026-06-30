@@ -1,56 +1,57 @@
-# SpaceX发行价定了今晚上市！马斯克或成史上首位万亿富豪，约400名员工将成亿万富翁，养老基金将成接盘侠？
+# 上海科研团队深耕18年 攻克鳗鲡人工繁殖多项技术难题
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-人类历史上首位万亿富豪或将诞生。北京时间今晚，史上最大规模IPO将上市，据SpaceX向美国证券交易委员会提交文件，其首次公开募股（IPO）价格定为每股135美元。 公司股市1.77万亿美元 马斯克或成首位万亿富豪 美国媒体11日报道，即将上市的美国太空探索技术公司（SpaceX）已确定首次公开募股（IPO）发行价为每股135美元，拟募资750亿美元，公司估值约1.77万亿美元
+中新网上海4月13日电 (记者 许婧)鳗鲡人工繁殖是公认的世界难题。记者12日从上海海洋大学获悉，该校水产与生命学院刘利平教授团队深耕细作、多年积淀，在该领域取得系列新进展，不仅在全人工海水循环系统育苗方面实现新突破，还在亲本营养调控与性腺发育非损伤性监测等方面获得新成果。 作为国内最早开展鳗鲡人工繁殖研究的单位，上海海洋大学自20世纪70年代起便开展相关研究并获得初孵仔鱼。2
 
 ## 正文
 
-人类历史上首位万亿富豪或将诞生。
+中新网上海4月13日电 (记者 许婧)鳗鲡人工繁殖是公认的世界难题。
 
-北京时间今晚，史上最大规模IPO将上市，据SpaceX向美国证券交易委员会提交文件，其首次公开募股（IPO）价格定为每股135美元。
+记者12日从上海海洋大学获悉，该校水产与生命学院刘利平教授团队深耕细作、多年积淀，在该领域取得系列新进展，不仅在全人工海水循环系统育苗方面实现新突破，还在亲本营养调控与性腺发育非损伤性监测等方面获得新成果。
 
-公司股市1.77万亿美元 马斯克或成首位万亿富豪 美国媒体11日报道，即将上市的美国太空探索技术公司（SpaceX）已确定首次公开募股（IPO）发行价为每股135美元，拟募资750亿美元，公司估值约1.77万亿美元。
+作为国内最早开展鳗鲡人工繁殖研究的单位，上海海洋大学自20世纪70年代起便开展相关研究并获得初孵仔鱼。
 
-报道说，SpaceX股票预计将于12日在纳斯达克证券交易所开始交易。
+2008年以来，刘利平团队聚焦日本鳗鲡人工繁殖关键技术攻关，逐步构建起完整技术链条。
 
-按募资规模计算，此次IPO将创下首次公开募股规模纪录。
+团队连续多年获得高质量受精卵和初孵仔鱼，部分批次受精率96.4%、5日龄仔鱼存活率80%，将仔鱼培育至21天创下国内最长存活纪录，还率先获得柳叶鳗前体，储备后备亲鱼2000余尾。
 
-按估值计算，SpaceX上市后将跻身美国上市公司市值前十，超过特斯拉的1.5万亿美元。
+团队利用全人工海水循环系统，对在仿生态条件下培育的日本鳗鲡亲本进行催熟催产、受精卵孵化和仔鱼早期培育研究。
 
-报道还说，SpaceX此次上市安排打破了华尔街部分传统惯例，包括提前确定发行价、为散户投资者预留较高比例股份等。
+通过对温度、盐度、水流、水质等环境因子的综合调控，并结合持续优化的仔鱼开口饵料配方与投喂策略，团队显著改善了仔鱼摄食表现和发育状态，成功将人工孵化仔鱼稳定培育至柳叶鳗前体阶段，并观察到仔鱼摄食和排泄全过程。
 
-IPO完成后，公司创始人埃隆·马斯克仍将保有对公司投票权的高度控制。
+这一进展表明，团队在摆脱天然海水依赖、实现人工繁育环境精准调控方面迈出了重要一步，为在不具备优质海水资源的区域复制和推广鳗鲡人工繁殖技术奠定了基础，拓展了潜力。
 
 ## 相关推荐
 
-- 2026-06-30 08:16 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-30 08:19 - [田中碧失误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-30 08:36 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-30 08:31 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-30 08:15 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-30 08:39 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-30 08:26 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
-- 2026-06-30 08:40 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-30 08:20 - [德国 传控](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
-- 2026-06-30 08:16 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-30 08:29 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-30 08:19 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-30 08:32 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-30 08:36 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-30 08:36 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-30 08:26 - [索马里女大使：想和中国一起搞事业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-30 08:28 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-30 08:41 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-30 08:38 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-30 08:30 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-30 08:33 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:16 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/023259397.shtml)
-- 2026-06-30 08:12 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/7531803289.shtml)
-- 2026-06-30 08:28 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/112704870.shtml)
-- 2026-06-30 08:23 - [MSI应援曲 如果季中成回忆](http://www.blog.minike.top/Article/details/9082088.shtml)
-- 2026-06-30 08:22 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/184358242874.shtml)
-- 2026-06-30 08:33 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/308444589.shtml)
-- 2026-06-30 08:25 - [男子在京东买到“同仁堂”假药](https://www.blog.minike.top/Article/details/5421029.shtml)
-- 2026-06-30 08:40 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/561766.shtml)
-- 2026-06-30 08:41 - [马耳他著名拱门坍塌致中国男子身亡](http://www.blog.kurohicncr.top/Article/details/8020455963.shtml)
-- 2026-06-30 08:40 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/6999688025.shtml)
-- 2026-06-30 08:34 - [德国巴拉圭进入点球大战](https://www.blog.kurohicncr.top/Article/details/294318017.shtml)
-- 2026-06-30 08:28 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/940803.shtml)
-- 2026-06-30 08:34 - [董卿父亲在报纸上发文悼念亡妻](http://www.share.minike.top/Article/details/37195646.shtml)
-- 2026-06-30 08:30 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/9064405997.shtml)
-- 2026-06-30 08:40 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/072022535565.shtml)
+- 2026-06-30 08:36 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/755955968370.shtml)
+- 2026-06-30 08:39 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/72381043052.shtml)
+- 2026-06-30 08:40 - [男子在京东买到“同仁堂”假药](http://www.share.minike.top/Article/details/441764.shtml)
+- 2026-06-30 08:32 - [杨紫学位证上就是杨紫](http://www.share.kurohicncr.top/Article/details/171041.shtml)
+- 2026-06-30 08:21 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/65229709751.shtml)
+- 2026-06-30 08:22 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/2780432.shtml)
+- 2026-06-30 08:32 - [女子清吧被陌生人投放伟哥](https://www.share.kurohicncr.top/Article/details/58318868.shtml)
+- 2026-06-30 08:42 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/485558106.shtml)
+- 2026-06-30 08:30 - [点球大战 残酷](http://www.blog.minike.top/Article/details/612184708.shtml)
+- 2026-06-30 08:29 - [iPhone18e曝光](http://www.share.kurohicncr.top/Article/details/52035205.shtml)
+- 2026-06-30 08:43 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/45286770174.shtml)
+- 2026-06-30 08:36 - [媒体评哈兰德之歌火了](http://www.blog.kurohicncr.top/Article/details/717932872.shtml)
+- 2026-06-30 08:36 - [大蒜晒外面被路过女子连盆端走](http://www.share.kurohicncr.top/Article/details/512910.shtml)
+- 2026-06-30 08:32 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/76890576.shtml)
+- 2026-06-30 08:24 - [德国罚丢3粒点球](https://www.share.kurohicncr.top/Article/details/46553482774.shtml)

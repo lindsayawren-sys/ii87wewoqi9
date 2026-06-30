@@ -1,57 +1,57 @@
-# 2026陆家嘴论坛定档6月17日至18日！这些亮点值得关注
+# 特朗普团队算战争经济账，通胀+贸易逆差扩大，特朗普“打脸”自己？
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-又是一年陆家嘴时间。6月12日，陆家嘴论坛新闻发布会在上海举行。据介绍，2026陆家嘴论坛将于6月17日至18日在上海召开，本届论坛主题为“全球治理倡议下的金融发展与合作：新愿景、新挑战和新机遇”。 2008年以来，陆家嘴论坛至今已举办十六届，是观察中国金融改革开放的重要窗口，论坛由中国人民银行、金融监管总局、中国证监会和上海市人民政府共同主办，本届由金融监管总局局长与上海市市
+汇通财经APP讯——美国总统特朗普及其核心顾问在对伊朗军事行动及后续停火过程中，持续私下听取美国财政部长、国家经济委员会主任及企业领袖意见，重点评估若战事久拖不决对美国经济和金融市场的潜在打击。 白宫国家经济委员会主任哈塞特向特朗普提供详细建议，强调战争可能带来的短期经济干扰。白宫发言人明确表示，政府正与商界密切合作以减轻冲击，特朗普本人已充分意识到战争对经济的负面影响。 财政
 
 ## 正文
 
-又是一年陆家嘴时间。
+汇通财经APP讯——美国总统特朗普及其核心顾问在对伊朗军事行动及后续停火过程中，持续私下听取美国财政部长、国家经济委员会主任及企业领袖意见，重点评估若战事久拖不决对美国经济和金融市场的潜在打击。
 
-6月12日，陆家嘴论坛新闻发布会在上海举行。
+白宫国家经济委员会主任哈塞特向特朗普提供详细建议，强调战争可能带来的短期经济干扰。
 
-据介绍，2026陆家嘴论坛将于6月17日至18日在上海召开，本届论坛主题为“全球治理倡议下的金融发展与合作：新愿景、新挑战和新机遇”。
+白宫发言人明确表示，政府正与商界密切合作以减轻冲击，特朗普本人已充分意识到战争对经济的负面影响。
 
-2008年以来，陆家嘴论坛至今已举办十六届，是观察中国金融改革开放的重要窗口，论坛由中国人民银行、金融监管总局、中国证监会和上海市人民政府共同主办，本届由金融监管总局局长与上海市市长担任共同轮值主席。
+财政部长贝森特与特朗普重点讨论了市场反应、战争持续时间对经济的连锁效应。
 
-金融监管总局局长丁向群将出席开幕致辞，70余名中外嘉宾参加 上海市委金融办常务副主任周小全表示，本届论坛将主题设定为“全球治理倡议下的金融发展与合作：新愿景、新挑战和新机遇”，希望与国内外嘉宾一道，共话全球金融治理新愿景，在挑战中觅机遇，在变革中开新局。
+若战事延续8至12周，财政部需准备应对措施，同时评估汽油价格上涨对美国消费者的直接冲击。
 
-金融监管总局办公厅副主任鄢姣介绍，今年金融监管总局作为轮值主席单位，与上海市政府一道提前谋划、协同推进论坛筹备工作。
+贝森特指出，亚洲和欧洲地区将最易受到能源价格飙升的打击。
 
-目前，各项准备工作正在有序开展。
+特朗普团队与企业领袖意见 特朗普长期经济顾问摩尔曾在3月向白宫通报，若美国在一个月内从伊朗相关行动中撤出且霍尔木兹海峡重新开放，油价有望回落至每桶70美元左右水平。
 
-金融监管总局局长丁向群将出席论坛开幕式，致开幕辞并作主题演讲。
+目前霍尔木兹海峡仍处于关闭状态，油价恐难回落至该水平附近。
 
 ## 相关推荐
 
-- 2026-06-30 08:38 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-30 08:21 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-30 08:14 - [韩国道歉完日本道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-30 08:12 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-30 08:29 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
-- 2026-06-30 08:21 - [孙颖莎王楚钦晋级8强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
-- 2026-06-30 08:19 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
-- 2026-06-30 08:15 - [网瘾賊大的阿嬷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-30 08:17 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
-- 2026-06-30 08:27 - [勇士续约波尔津吉斯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
-- 2026-06-30 08:23 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-30 08:26 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-30 08:43 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-30 08:26 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
+- 2026-06-30 08:43 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-30 08:45 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-30 08:42 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-30 08:24 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-30 08:19 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-30 08:34 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-30 08:41 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-30 08:25 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:33 - [天道](https://www.share.minike.top/Article/details/351350.shtml)
-- 2026-06-30 08:14 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.kurohicncr.top/Article/details/95971.shtml)
-- 2026-06-30 08:25 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.minike.top/Article/details/84420.shtml)
-- 2026-06-30 08:38 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.kurohicncr.top/Article/details/77788621493.shtml)
-- 2026-06-30 08:41 - [MSI应援曲 如果季中成回忆](https://www.share.kurohicncr.top/Article/details/175870823.shtml)
-- 2026-06-30 08:38 - [大蒜晒外面被路过女子连盆端走](http://www.blog.minike.top/Article/details/29025136340.shtml)
-- 2026-06-30 08:28 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/471947978.shtml)
-- 2026-06-30 08:35 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/68379.shtml)
-- 2026-06-30 08:35 - [Melo向柳智敏张元英道歉](https://www.share.kurohicncr.top/Article/details/72858988116.shtml)
-- 2026-06-30 08:22 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/7877250816.shtml)
-- 2026-06-30 08:31 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/02476526881.shtml)
-- 2026-06-30 08:17 - [穆祉丞回应获年度人气艺人](http://www.share.minike.top/Article/details/020986941689.shtml)
-- 2026-06-30 08:38 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/6824118408.shtml)
-- 2026-06-30 08:24 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/745211550.shtml)
-- 2026-06-30 08:17 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/948989.shtml)
+- 2026-06-30 08:43 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/129976978959.shtml)
+- 2026-06-30 08:35 - [王灿兮被烫伤两年后维权成功](http://www.blog.minike.top/Article/details/78151.shtml)
+- 2026-06-30 08:41 - [板面：为什么那么多人爱吃？？！](https://www.blog.minike.top/Article/details/855699.shtml)
+- 2026-06-30 08:21 - [穆祉丞年度人气艺人](http://www.blog.minike.top/Article/details/204696.shtml)
+- 2026-06-30 08:45 - [男子醉酒溺水获救后同行人拒协助抬人](https://www.share.minike.top/Article/details/0399555.shtml)
+- 2026-06-30 08:39 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/547310.shtml)
+- 2026-06-30 08:38 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/78241562003.shtml)
+- 2026-06-30 08:41 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/1485727938.shtml)
+- 2026-06-30 08:45 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.kurohicncr.top/Article/details/70407946740.shtml)
+- 2026-06-30 08:31 - [莫兰特转投开拓者效力](http://www.share.minike.top/Article/details/06145351.shtml)
+- 2026-06-30 08:40 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/7278068811.shtml)
+- 2026-06-30 08:29 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/192557782.shtml)
+- 2026-06-30 08:36 - [日本球迷被强行披上巴西国旗](http://www.blog.minike.top/Article/details/79266.shtml)
+- 2026-06-30 08:22 - [DeepSeek V4正式版要来了](https://www.share.minike.top/Article/details/37722941246.shtml)
+- 2026-06-30 08:20 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/19039.shtml)

@@ -1,60 +1,57 @@
-# 山西7名官员接连落马，此前当地煤矿爆炸致82人遇难
+# 西班牙首相四年四度访华 中西两国书写“变局中的不变友谊”
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-6月11日，山西省纪委监委网站通报，长治市沁源县人民政府党组成员、副县长魏小祥涉嫌严重违纪违法，目前正接受长治市纪委监委纪律审查和监察调查。 此外，山西省长治市沁源县能源局原一级主任科员李军涉嫌严重违纪违法，目前正接受长治市潞城区纪委监委纪律审查和监察调查。 此前一天，山西省纪委监委10日晚通报，山西省应急管理厅副厅长张和平涉嫌严重违纪违法，涉通洲集团留神峪煤业有限公司“5·2
+中新网4月12日电 春暖花开之际，中国再度迎来远道而来的贵宾。时隔一年，西班牙首相桑切斯再次抵达中国，于4月11日至15日对华进行正式访问。 此访是桑切斯首相自2023年以来第四次到访中国。回望建交半个多世纪的历程，中西双方虽历经国际风云变幻考验，却始终相互尊重、平等相待，为不同历史文化、不同社会制度国家间的友好相处树立了典范，在变乱交织的国际局势中书写出不变的友谊篇章。一图了
 
 ## 正文
 
-6月11日，山西省纪委监委网站通报，长治市沁源县人民政府党组成员、副县长魏小祥涉嫌严重违纪违法，目前正接受长治市纪委监委纪律审查和监察调查。
+中新网4月12日电 春暖花开之际，中国再度迎来远道而来的贵宾。
 
-此外，山西省长治市沁源县能源局原一级主任科员李军涉嫌严重违纪违法，目前正接受长治市潞城区纪委监委纪律审查和监察调查。
+时隔一年，西班牙首相桑切斯再次抵达中国，于4月11日至15日对华进行正式访问。
 
-此前一天，山西省纪委监委10日晚通报，山西省应急管理厅副厅长张和平涉嫌严重违纪违法，涉通洲集团留神峪煤业有限公司“5·22”特别重大瓦斯爆炸事故，目前正接受省纪委监委纪律审查和监察调查。
+此访是桑切斯首相自2023年以来第四次到访中国。
 
-5月22日19时29分，长治市沁源县通洲集团留神峪煤矿井下发生瓦斯爆炸。
+回望建交半个多世纪的历程，中西双方虽历经国际风云变幻考验，却始终相互尊重、平等相待，为不同历史文化、不同社会制度国家间的友好相处树立了典范，在变乱交织的国际局势中书写出不变的友谊篇章。
 
-事故共造成82人遇难、2人失联、128人受伤送医。
+一图了解中西关系的发展脉络与友好往来历程。
 
-事故发生后，山西多名官员接连落马。
-
-山西省纪委监委于6月2日晚发布消息称，长治市沁源县委书记赵永进涉嫌严重违纪违法，目前正接受山西省纪委监委纪律审查和监察调查。
-
-另外，长治市沁源县应急管理局党委书记、局长、应急管理综合行政执法队队长孙晓晔，沁源县应急管理局党委委员、应急管理综合行政执法队副队长(负责日常工作)岳晓东，沁源县应急管理综合行政执法队执法一队队长张谦涉嫌严重违纪违法，分别接受长治市上党区纪委监委、沁县纪委监委、壶关县纪委监委纪律审查和监察调查。
+(“图览天下”栏目) 文案：冯小妍 设计：王璐瑶 策划及审校：孟湘君 孔庆玲 谷丽萍 文字来源：中国外交部官网、新华社、中新网等
 
 ## 相关推荐
 
-- 2026-06-30 08:14 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-30 08:14 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-30 08:15 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
-- 2026-06-30 08:29 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
-- 2026-06-30 08:20 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-30 08:20 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-30 08:34 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-30 08:38 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-30 08:27 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-30 08:41 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
-- 2026-06-30 08:22 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
-- 2026-06-30 08:18 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-30 08:23 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-30 08:27 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-30 08:25 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-30 08:30 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-30 08:20 - [德国队连续三届世界杯无缘16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-30 08:25 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-30 08:37 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-30 08:47 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-30 08:30 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-30 08:32 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-30 08:46 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-30 08:32 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-30 08:36 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-30 08:28 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-30 08:46 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
+- 2026-06-30 08:23 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-30 08:22 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:20 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/0683598.shtml)
-- 2026-06-30 08:28 - [日本反击率先破门](https://www.share.minike.top/Article/details/21910.shtml)
-- 2026-06-30 08:23 - [世界杯欧洲队7战南美仅1胜](https://www.blog.minike.top/Article/details/14965.shtml)
-- 2026-06-30 08:30 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/768546.shtml)
-- 2026-06-30 08:41 - [德国4比5巴拉圭](https://www.share.minike.top/Article/details/81242395057.shtml)
-- 2026-06-30 08:18 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.share.minike.top/Article/details/40806746208.shtml)
-- 2026-06-30 08:40 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/587887865952.shtml)
-- 2026-06-30 08:25 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/92626588.shtml)
-- 2026-06-30 08:20 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://www.blog.minike.top/Article/details/39263533.shtml)
-- 2026-06-30 08:22 - [为什么会有「念旧」的心理？](http://www.share.minike.top/Article/details/73505488.shtml)
-- 2026-06-30 08:29 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.share.kurohicncr.top/Article/details/348680.shtml)
-- 2026-06-30 08:19 - [F1奥地利站赛后复盘](https://www.share.kurohicncr.top/Article/details/6037507.shtml)
-- 2026-06-30 08:31 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/0761995.shtml)
-- 2026-06-30 08:37 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.kurohicncr.top/Article/details/17467214543.shtml)
-- 2026-06-30 08:20 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/7338845.shtml)
+- 2026-06-30 08:44 - [诺伊尔尽力了](http://www.share.kurohicncr.top/Article/details/755186800403.shtml)
+- 2026-06-30 08:42 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/87304891.shtml)
+- 2026-06-30 08:33 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/727742.shtml)
+- 2026-06-30 08:21 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/7096038835.shtml)
+- 2026-06-30 08:40 - [杨紫大银幕成绩单如何](http://www.blog.kurohicncr.top/Article/details/696527354.shtml)
+- 2026-06-30 08:29 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/7795289.shtml)
+- 2026-06-30 08:35 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/46427415.shtml)
+- 2026-06-30 08:24 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/54036.shtml)
+- 2026-06-30 08:27 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.kurohicncr.top/Article/details/17078353.shtml)
+- 2026-06-30 08:34 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/462584.shtml)
+- 2026-06-30 08:46 - [内马尔替补](http://www.share.minike.top/Article/details/355596.shtml)
+- 2026-06-30 08:46 - [王曼昱被突如其来的话筒逗笑了](https://www.share.kurohicncr.top/Article/details/16091794933.shtml)
+- 2026-06-30 08:39 - [媒体评泰山建135公里刀片刺绳隔离网](https://www.share.kurohicncr.top/Article/details/04242950733.shtml)
+- 2026-06-30 08:32 - [王欣瑜连续4年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/16490289144.shtml)
+- 2026-06-30 08:34 - [人类...完蛋了...](https://www.blog.minike.top/Article/details/6855137.shtml)

@@ -1,53 +1,60 @@
-# “牢记初心使命 奋进复兴征程”主题采访活动走进河北
+# 中国自主研发的全球首款放射性创新药获批上市
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-新能源汽车该做“体重管理”了霍尔木兹海峡再度封锁，美伊博弈或迎重要转折谒“一代草圣”于右任墓：长眠高山，遥望故土史上最贵世界杯背后的沉重账单揭幕战红牌比进球多！世界杯开幕日，创多项纪录警惕"科技红利"等幌子 以投资RWA名义诈骗等套路曝光蜜雪冰城旁的正新鸡排，要上市“搏命”？鸡蛋价格连涨7周后多平台限购 专家：不必大量囤货“鹅腿变鸭腿”争议里，人们在意的从不只是一只腿湖南同日打
+中新社北京4月10日电 据中国官媒10日消息，中国自主研发的全球首款放射性创新药获批上市，为患者提供全新诊断药物的选择。 这款药物主要用于肺癌患者淋巴结转移的辅助诊断，是中国首个完全自主研发的放射性1类创新药，在全球范围内属于首个针对特定靶点的放射性显像剂。这款药物的获批上市，标志着中国在核药领域实现了从零到一的原创性突破。 这款创新药获批前，由北京协和医院牵头，分别在北京大学
 
 ## 正文
 
-新能源汽车该做“体重管理”了霍尔木兹海峡再度封锁，美伊博弈或迎重要转折谒“一代草圣”于右任墓：长眠高山，遥望故土史上最贵世界杯背后的沉重账单揭幕战红牌比进球多！
+中新社北京4月10日电 据中国官媒10日消息，中国自主研发的全球首款放射性创新药获批上市，为患者提供全新诊断药物的选择。
 
-世界杯开幕日，创多项纪录警惕"科技红利"等幌子 以投资RWA名义诈骗等套路曝光蜜雪冰城旁的正新鸡排，要上市“搏命”？
+这款药物主要用于肺癌患者淋巴结转移的辅助诊断，是中国首个完全自主研发的放射性1类创新药，在全球范围内属于首个针对特定靶点的放射性显像剂。
 
-鸡蛋价格连涨7周后多平台限购 专家：不必大量囤货“鹅腿变鸭腿”争议里，人们在意的从不只是一只腿湖南同日打落多名官员，此前烟花爆炸事故致37人死亡“孤女遭亲舅舅阻止高考”系“剧本式”造谣“秦腔一枝梅”：秦腔不全是“吼”，还有委婉缠绵人工智能成为推动中国外贸增长新引擎销量前十再无燃油车 “油退电进”按下加速键中国元素将亮相美加墨世界杯秘鲁前总理：AI时代，何以守护人类基本人权？
+这款药物的获批上市，标志着中国在核药领域实现了从零到一的原创性突破。
 
-岳云鹏：如果人生能多一个镜头，我想留给父亲炎炎夏日，古人如何避暑？
+这款创新药获批前，由北京协和医院牵头，分别在北京大学肿瘤医院、复旦大学附属肿瘤医院等全国十几家三甲医院进行临床试验。
 
-西藏拉萨：运动会上的力量之美“AI医生”上高原 智能诊断系统守护基层官兵健康吉林村民遇东北虎捕食黄牛 危急时刻爬树避险成都一高校免费捞鱼900斤 祝愿毕业生“年年有余”蔡正元入狱2个月最新发声94%得票率！
+结果显示，这款药物对肺癌淋巴结转移的诊断特异性，优于常用的PET/CT正电子发射断层显像，诊断效果达到研发预期。
 
-樊振东当选德甲赛季最佳三峡水库腾出防洪库容 长江万州段水位降至150米全国规模最大海上光氢储一体化项目建成南博会上挑战“见手青拿铁” 喝完会不会看见“小人人”河北农业大学毕业典礼上 学生轮番整活把校长“忙坏了”津台萌娃一逗一捧：“咱说的都是中国话”女子穿旗袍配高跟鞋跳绳惊艳网友秦岭小虎队集体庆生 萌态十足迎“六一”云南西双版纳野象谷添“重量级”新丁航拍丹霞地貌神似“羊肉卷”没有“黑眼圈” 全球唯一野生白色大熊猫长大了北京：圆明园旁扇面湖荷花盛开 世界杯16座城市16种画风 世界最长高原冻土铁路特大桥稳定运行20年 多图直击2026美加墨世界杯开幕式 “洋景漂”父女的三宝村“陶”源生活 杭州：这里的花期已排满，四时各有专属“花 “中国洮砚之乡”采石人：身贴悬崖绝壁深入 广东揭阳：一纸情书 藏在这座低调古城的烟 分享 评论 顶部
+专家表示，所谓“诊断特异性”是指排除相关疾病的准确性，特异性越高，排除“假阳性”的能力就越强。
+
+放射性药品又称为核药，在恶性肿瘤、心脑血管疾病、中枢神经系统疾病等诊断与治疗方面具有重要作用。
+
+长期以来，中国在原创核医学药物领域存在明显短板，这次中国自主研发的放射性创新药获批，打破了近30年来核医学肿瘤显像诊断缺少原创靶向放射性诊断药物的瓶颈。
 
 ## 相关推荐
 
-- 2026-06-30 08:18 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-30 08:18 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
-- 2026-06-30 08:17 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
-- 2026-06-30 08:38 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-30 08:25 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-30 08:33 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-30 08:35 - [郑钦文温网一轮游](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-30 08:24 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-30 08:18 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-30 08:38 - [德国巴拉圭进入点球大战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-30 08:20 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-30 08:23 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-30 08:19 - [德国淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-30 08:41 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
+- 2026-06-30 08:20 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-30 08:44 - [日本球员说被绝杀非常不甘心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-30 08:45 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-30 08:27 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-30 08:29 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-30 08:39 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-30 08:34 - [齐思钧回复张月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-30 08:19 - [张月收到黄灿灿辣货两眼发光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-30 08:24 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-30 08:45 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-30 08:36 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:32 - [《贺子珍》](http://www.blog.minike.top/Article/details/1331838169.shtml)
-- 2026-06-30 08:33 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/364132993.shtml)
-- 2026-06-30 08:33 - [董卿父亲在报纸上发文悼念亡妻](https://www.blog.minike.top/Article/details/40178099548.shtml)
-- 2026-06-30 08:34 - [徐亮怒斥世界杯踢假球](http://www.blog.minike.top/Article/details/73979598151.shtml)
-- 2026-06-30 08:29 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.minike.top/Article/details/955426559.shtml)
-- 2026-06-30 08:38 - [郑钦文温网三连败西尼亚科娃](http://www.blog.kurohicncr.top/Article/details/28220540519.shtml)
-- 2026-06-30 08:35 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](http://www.blog.minike.top/Article/details/350071487.shtml)
-- 2026-06-30 08:23 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](http://www.blog.kurohicncr.top/Article/details/451772064.shtml)
-- 2026-06-30 08:22 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/747910.shtml)
-- 2026-06-30 08:19 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/46170055.shtml)
-- 2026-06-30 08:14 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/57447689461.shtml)
-- 2026-06-30 08:29 - [啊啊啊](https://www.blog.minike.top/Article/details/4556183.shtml)
-- 2026-06-30 08:35 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/54388441469.shtml)
-- 2026-06-30 08:26 - [日本球迷被强行披上巴西国旗](http://www.share.kurohicncr.top/Article/details/9274103.shtml)
-- 2026-06-30 08:29 - [警犬“多多”助民警寻回失联老人](http://www.share.kurohicncr.top/Article/details/49194083436.shtml)
+- 2026-06-30 08:28 - [现在叛逆期的孩子最怕的是什么？](http://www.share.minike.top/Article/details/377660161983.shtml)
+- 2026-06-30 08:40 - [“柠檬茶能换怀表？”](https://www.blog.minike.top/Article/details/7357619.shtml)
+- 2026-06-30 08:33 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/83166.shtml)
+- 2026-06-30 08:30 - [城市规划有可能成为「屎山代码」吗？](http://www.blog.kurohicncr.top/Article/details/02815394.shtml)
+- 2026-06-30 08:18 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/18839.shtml)
+- 2026-06-30 08:36 - [急先锋](https://www.blog.minike.top/Article/details/29842579.shtml)
+- 2026-06-30 08:38 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/8793110050.shtml)
+- 2026-06-30 08:19 - [【大鸣王潮1566】真拿你没办法](https://www.share.kurohicncr.top/Article/details/76075.shtml)
+- 2026-06-30 08:27 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/133536842677.shtml)
+- 2026-06-30 08:30 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://www.share.minike.top/Article/details/392142.shtml)
+- 2026-06-30 08:40 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/45181702633.shtml)
+- 2026-06-30 08:19 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/63097050.shtml)
+- 2026-06-30 08:25 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/99625.shtml)
+- 2026-06-30 08:19 - [王濛回复黄灿灿](http://www.blog.kurohicncr.top/Article/details/505006.shtml)
+- 2026-06-30 08:42 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/14220074.shtml)

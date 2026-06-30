@@ -1,48 +1,44 @@
-# 国投资本：2026年完成回购金额超2亿元
+# 伊美即将举行第三轮会谈
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-证券日报网讯6月11日，国投资本在互动平台回答投资者提问时表示，二级市场股票价格受资金流向、经济环境、市场情绪等多种因素影响，目前公司经营情况良好，业绩保持稳健。股东回报方面，为增强投资者信心，推动股票价值合理回归，公司已连续实施两轮股份回购：2024年完成回购金额超2亿元，回购股数3133.9万股并注销；2026年完成回购金额超2亿元。同时，公司高度重视并持续督促控股投资企业
+专题：美伊谈判最新进展 据伊朗方面11日晚消息，伊美谈判代表团已在巴基斯坦首都伊斯兰堡完成两轮会谈，第三轮会谈仍定于当晚举行。 责任编辑：李桐
 
 ## 正文
 
-证券日报网讯6月11日，国投资本在互动平台回答投资者提问时表示，二级市场股票价格受资金流向、经济环境、市场情绪等多种因素影响，目前公司经营情况良好，业绩保持稳健。
+专题：美伊谈判最新进展 据伊朗方面11日晚消息，伊美谈判代表团已在巴基斯坦首都伊斯兰堡完成两轮会谈，第三轮会谈仍定于当晚举行。
 
-股东回报方面，为增强投资者信心，推动股票价值合理回归，公司已连续实施两轮股份回购：2024年完成回购金额超2亿元，回购股数3133.9万股并注销；2026年完成回购金额超2亿元。
-
-同时，公司高度重视并持续督促控股投资企业严守合规经营底线，切实履行主体责任，不断提升风险管理能力，维护资本市场平稳健康有序发展。
-
-公司将积极研究推进各项市值管理举措，持续提升经营管理水平和核心竞争力，努力实现公司市场价值与内在价值的动态均衡。
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-30 08:28 - [媒体：手机测评该挤挤水分了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-30 08:24 - [高质量发展看新疆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-30 08:22 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
-- 2026-06-30 08:32 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-30 08:32 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-30 08:22 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-30 08:22 - [安切洛蒂 换人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-30 08:17 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-30 08:40 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
-- 2026-06-30 08:40 - [恋与深空道歉声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-30 08:40 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-30 08:24 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
+- 2026-06-30 08:24 - [男子在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-30 08:22 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-30 08:33 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-30 08:18 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-30 08:39 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-30 08:35 - [德国巴拉圭进入点球大战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-30 08:41 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-30 08:18 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:31 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.kurohicncr.top/Article/details/07484058895.shtml)
-- 2026-06-30 08:17 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/2141081.shtml)
-- 2026-06-30 08:23 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/77762.shtml)
-- 2026-06-30 08:34 - [为什么会有「念旧」的心理？](http://www.blog.minike.top/Article/details/38914534032.shtml)
-- 2026-06-30 08:16 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/5764919.shtml)
-- 2026-06-30 08:21 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/5678323270.shtml)
-- 2026-06-30 08:23 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/490548472118.shtml)
-- 2026-06-30 08:17 - [德国进球被吹](http://www.share.minike.top/Article/details/7619622589.shtml)
-- 2026-06-30 08:28 - [追梦拒绝2770万美元球员选项](https://www.blog.minike.top/Article/details/49825.shtml)
-- 2026-06-30 08:29 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/1157623.shtml)
-- 2026-06-30 08:18 - [董卿父亲报纸上发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/8255910180.shtml)
-- 2026-06-30 08:19 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/03688579531.shtml)
-- 2026-06-30 08:25 - [巴西绝杀日本：漫画般结局换了主角](https://www.share.minike.top/Article/details/753789.shtml)
-- 2026-06-30 08:40 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](http://www.blog.minike.top/Article/details/9978725375.shtml)
-- 2026-06-30 08:32 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/15137430.shtml)
+- 2026-06-30 08:30 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/578183440.shtml)
+- 2026-06-30 08:43 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.kurohicncr.top/Article/details/8750529.shtml)
+- 2026-06-30 08:24 - [免费试吃发差评被店家挂店门避雷](http://www.share.minike.top/Article/details/63293.shtml)
+- 2026-06-30 08:35 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/81951692597.shtml)
+- 2026-06-30 08:20 - [武磊：巴西队赢的并不轻松](https://www.share.minike.top/Article/details/12389805648.shtml)
+- 2026-06-30 08:30 - [德国淘汰](http://www.blog.minike.top/Article/details/47734565.shtml)
+- 2026-06-30 08:38 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/314256928261.shtml)
+- 2026-06-30 08:27 - [金刚川](http://www.share.kurohicncr.top/Article/details/7910438.shtml)
+- 2026-06-30 08:18 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/3083910233.shtml)
+- 2026-06-30 08:28 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/96662421.shtml)
+- 2026-06-30 08:32 - [日本将帅赛后采访纷纷哽咽落泪](https://www.share.kurohicncr.top/Article/details/932379146.shtml)
+- 2026-06-30 08:24 - [【大鸣王潮1566】真拿你没办法](https://www.share.kurohicncr.top/Article/details/75376.shtml)
+- 2026-06-30 08:37 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://www.share.kurohicncr.top/Article/details/637659176.shtml)
+- 2026-06-30 08:20 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/55727256.shtml)
+- 2026-06-30 08:28 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/617939280797.shtml)

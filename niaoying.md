@@ -1,59 +1,58 @@
-# Silence Therapeutics公布divesiran随访数据，展现持久疗效和同类最佳潜力
+# 中国建材午后逆市涨逾7% 机构看好公司高性能电子布持续放量
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-Silence Therapeutics本周在2026年欧洲血液学协会年会上公布了其在研siRNA疗法divesiran的1期SANRECO研究最新随访数据。数据显示，该药物在真性红细胞增多症患者中表现出持久的疗效，停药后仍可维持对红细胞压积的控制，并显著改善疾病相关症状和生活质量。 这项1期研究共纳入21名依赖放血治疗的真性红细胞增多症患者。在治疗前的六个月内，这些患者共接受
+中国建材（03323）午后逆市上涨6.96%，现报5.38港元，成交额3.17亿港元。 据证券时报报道，2025年我国玻璃纤维行业整体运行较前两年已有所改善。国盛证券指出，截至3月30日至4月3日，各类电子纱/布价格再度上涨，G75纱新月报价涨幅500-1000元/吨不等，配套7628电子布价格上调0.5元/米，高端品种价格涨幅亦突出。当前供不应求局面推动下新价落实进程预计将加
 
 ## 正文
 
-Silence Therapeutics本周在2026年欧洲血液学协会年会上公布了其在研siRNA疗法divesiran的1期SANRECO研究最新随访数据。
+中国建材（03323）午后逆市上涨6.96%，现报5.38港元，成交额3.17亿港元。
 
-数据显示，该药物在真性红细胞增多症患者中表现出持久的疗效，停药后仍可维持对红细胞压积的控制，并显著改善疾病相关症状和生活质量。
+据证券时报报道，2025年我国玻璃纤维行业整体运行较前两年已有所改善。
 
-这项1期研究共纳入21名依赖放血治疗的真性红细胞增多症患者。
+国盛证券指出，截至3月30日至4月3日，各类电子纱/布价格再度上涨，G75纱新月报价涨幅500-1000元/吨不等，配套7628电子布价格上调0.5元/米，高端品种价格涨幅亦突出。
 
-在治疗前的六个月内，这些患者共接受了80次放血。
+当前供不应求局面推动下新价落实进程预计将加快。
 
-而在为期34周的积极治疗期间，仅需进行5次放血，且均发生在基线红细胞压积水平高于45%的患者中。
+下游CCL订单饱满，供应端产量增速依旧缓慢，库存低位延续，多数货源紧俏度暂难缓解。
 
-更值得关注的是，在末次给药后的16周随访期内，仅记录了4次放血。
+华泰证券表示，中国建材2025全年新材料板块收入555.57亿元，同比+14.4%，营业利润62.58亿元，同比+11.8%。
 
-在14名拥有更长随访数据的患者中，首次放血的中位时间长达287天。
+分产品看，玻纤销量/均价分别同比+3.1%/+12.8%，实现量价齐升，普通及高性能电子布有望打开玻纤板块新成长空间。
 
-除了放血需求的显著减少，大多数患者的MPN-10总症状评分从基线至第34周均有改善，表明疾病相关症状和整体生活质量得到提升。
+该行认为，随着全球首个零碳智能制造玻纤基地建成，高性能电子布持续放量，预计26年公司新材料业务盈利能力有望持续改善。
 
 ## 相关推荐
 
-- 2026-06-30 08:14 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-30 08:24 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-30 08:20 - [金鹰奖视后提名预测](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
-- 2026-06-30 08:19 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
-- 2026-06-30 08:38 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
-- 2026-06-30 08:29 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-30 08:18 - [莫兰特转投开拓者效力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-30 08:13 - [马耳他著名拱门坍塌致中国男子身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-30 08:12 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-30 08:14 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
-- 2026-06-30 08:25 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-30 08:27 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-30 08:34 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-30 08:20 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-30 08:47 - [德国罚丢3粒点球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-30 08:20 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-30 08:25 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-30 08:39 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-30 08:47 - [田中碧失误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-30 08:36 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-30 08:47 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-30 08:20 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-30 08:35 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
+- 2026-06-30 08:26 - [陈幸同晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-30 08:34 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:17 - [日耳曼拖拉机](https://www.share.kurohicncr.top/Article/details/13215354488.shtml)
-- 2026-06-30 08:20 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/2923505.shtml)
-- 2026-06-30 08:41 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/5417935955.shtml)
-- 2026-06-30 08:24 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/9146244642.shtml)
-- 2026-06-30 08:26 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/411012969390.shtml)
-- 2026-06-30 08:16 - [男子在京东买到“同仁堂”假药](https://www.share.kurohicncr.top/Article/details/284266.shtml)
-- 2026-06-30 08:40 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.minike.top/Article/details/219612700691.shtml)
-- 2026-06-30 08:36 - [我觉得你是在无中生友](http://www.share.minike.top/Article/details/620739.shtml)
-- 2026-06-30 08:30 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.kurohicncr.top/Article/details/46363119.shtml)
-- 2026-06-30 08:38 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/689744.shtml)
-- 2026-06-30 08:34 - [老外对中国cosplay竟这样评价…](http://www.blog.kurohicncr.top/Article/details/7738543654.shtml)
-- 2026-06-30 08:25 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.kurohicncr.top/Article/details/6399267701.shtml)
-- 2026-06-30 08:23 - [达美乐运输面团时被雨淋到 客服回应](http://www.share.kurohicncr.top/Article/details/93734.shtml)
-- 2026-06-30 08:14 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/735888.shtml)
-- 2026-06-30 08:16 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/54766.shtml)
+- 2026-06-30 08:25 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/2133243.shtml)
+- 2026-06-30 08:28 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/73666369.shtml)
+- 2026-06-30 08:27 - [金刚川](http://www.blog.minike.top/Article/details/3842545240.shtml)
+- 2026-06-30 08:40 - [郑钦文 四年一轮游](http://www.blog.kurohicncr.top/Article/details/43887480047.shtml)
+- 2026-06-30 08:38 - [巴拉圭进球](https://www.blog.kurohicncr.top/Article/details/9648321.shtml)
+- 2026-06-30 08:33 - [德国巴拉圭 折磨](http://www.share.kurohicncr.top/Article/details/1455598797.shtml)
+- 2026-06-30 08:28 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.minike.top/Article/details/42787.shtml)
+- 2026-06-30 08:43 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/49650240089.shtml)
+- 2026-06-30 08:31 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/49973118192.shtml)
+- 2026-06-30 08:38 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/75868423497.shtml)
+- 2026-06-30 08:36 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/374572519435.shtml)
+- 2026-06-30 08:41 - [巴西扳平比分](https://www.share.minike.top/Article/details/3473526000.shtml)
+- 2026-06-30 08:35 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/7221300240.shtml)
+- 2026-06-30 08:23 - [孙兴慜发长文致歉](http://www.share.kurohicncr.top/Article/details/51987449.shtml)
+- 2026-06-30 08:36 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/416685459.shtml)

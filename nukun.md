@@ -1,58 +1,57 @@
-# 5月黑猫投诉酒店民宿领域红黑榜：入住麗枫酒店未到退房时间遭强行闯入
+# 纳指八连涨，欧洲三大股指涨跌不一，油价、金价都跌了
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-黑猫投诉 【下载黑猫投诉客户端】发布5月企业投诉处理红黑榜单，数据均来源于黑猫投诉平台，反映了企业在黑猫投诉平台的投诉处理解决情况。 截至2026年5月底，黑猫投诉平台累计收到消费者有效投诉超3594万件，5月有效投诉近88万件。 为了更加精准、及时地展现不同细分消费领域企业在黑猫平台的客诉处理情况，红黑榜单除了按行业划分，还会根据近期热点消费事件设置“最受关注领域榜单”，为消
+中新经纬4月11日电 美东时间周五，美股三大股指收盘涨跌不一。截至收盘，道指跌0.56%报47916.57点；纳指涨0.35%报22902.89点，实现八连涨；标普500指数跌0.11%报6816.89点。 本周，道指涨3.04%，纳指涨4.68%，标普500指数涨3.56%。 Wind截图 北京时间4月10日晚间，美国劳工统计局发布了3月消费者价格指数(CPI)报告，其中显示
 
 ## 正文
 
-黑猫投诉 【下载黑猫投诉客户端】发布5月企业投诉处理红黑榜单，数据均来源于黑猫投诉平台，反映了企业在黑猫投诉平台的投诉处理解决情况。
+中新经纬4月11日电 美东时间周五，美股三大股指收盘涨跌不一。
 
-截至2026年5月底，黑猫投诉平台累计收到消费者有效投诉超3594万件，5月有效投诉近88万件。
+截至收盘，道指跌0.56%报47916.57点；纳指涨0.35%报22902.89点，实现八连涨；标普500指数跌0.11%报6816.89点。
 
-为了更加精准、及时地展现不同细分消费领域企业在黑猫平台的客诉处理情况，红黑榜单除了按行业划分，还会根据近期热点消费事件设置“最受关注领域榜单”，为消费者提供更有价值的消费参考。
+本周，道指涨3.04%，纳指涨4.68%，标普500指数涨3.56%。
 
-关键词：入住麗枫酒店未到退房时间遭强行闯入 麗枫酒店、希岸酒店、7天酒店、喆啡酒店、尚客优酒店登上2026年5月酒店民宿领域企业服务黑榜 本月，多位消费者在黑猫投诉平台反映，入住麗枫酒店时遭遇未到退房时间被强行闯入的情况。
+Wind截图 北京时间4月10日晚间，美国劳工统计局发布了3月消费者价格指数(CPI)报告，其中显示，美国3月CPI同比增长3.3%，为2024年5月以来新高，但低于市场预估的3.4%，前值为2.4%；CPI环比增长0.9%，为2022年6月以来最大单月涨幅，但符合市场预期，前值为0.30%。
 
-一消费者于5月3日入住麗枫酒店，退房时间为中午12点前，次日上午10点30分即有不明人员刷卡进入房间；另一消费者反映，入住前已与前台确认次日14点退房，但次日12点半被电话催促，下午1点扫地大姐敲门未应后直接刷卡进入，并谎称已到退房时间，目前投诉仍在处理中。
+盘面上，大型科技股涨跌互现，万得美国科技七巨头指数涨0.77%。
 
-黑猫投诉5月行业红黑榜单 共享服务 黑榜：光宇科斯特换电、智慧笑联、roadbit、青城赤兔共享单车、天天充电、小电科技、广东聚充充科技、悦快闪充、喵走出行、咻电 红榜：怪兽充电、聚宝充、搜电、街电、松果电单车、倍电、成都诚客至上 购物平台 黑榜：淘宝商城、闲鱼、天猫、1688、拍机堂、阿里巴巴生意参谋、喵速达电器、京东到家、京东商城、点淘 红榜：千山集、闪超科技、乐易购科技天津有限公司、多物优选、GOAT、汇购邦商城、南京合呈网络、卓屿商城、杭州载道、心悦汇商城 旅游出行住宿 黑榜：首都航空、深圳航空、西部航空、成都航空、亚洲航空、昆明航空、麗枫酒店、泰国狮子航空、Agoda安可达、长安航空 红榜：飞悦易登机、青岛海云端、去哪儿网、成都海洋商旅、一嗨租车、携程出行服务、神州租车、途家民宿、风韵出行、梓如旅行社 娱乐生活 黑榜：微信、全民K歌、琛耀科
+个股方面，英伟达、亚马逊涨超2%，特斯拉涨近1%，脸书涨0.23%，苹果持平，谷歌跌0.39%，微软跌0.59%。
 
-在黑猫平台发起投诉后，纠纷处理会由被投诉企业与消费者进行联系沟通，黑猫平台不会有客服人员主动联系介入协助退款！
+英特尔收涨1.07%，本周累涨23.82%，创2000年1月以来最大单周涨幅。
 
-也请大家选择官方渠道解决消费纠纷，不要轻信第三方机构或个人办理代理退费以免上当受骗，如遇诈骗请及时向警方反映。
+能源股全线走低，埃克森美孚跌超1%，雪佛龙跌近1%，康菲石油跌0.75%，斯伦贝谢跌超1%，西方石油跌近1%。
 
 ## 相关推荐
 
-- 2026-06-30 08:22 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-30 08:27 - [齐思钧回复张月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-30 08:14 - [武磊：巴西队赢的并不轻松](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-30 08:31 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
-- 2026-06-30 08:20 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-30 08:23 - [马耳他著名拱门坍塌致一中国男子身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-30 08:26 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
-- 2026-06-30 08:30 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-30 08:22 - [女子遭下药退赔偿拟追刑责](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-30 08:31 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
-- 2026-06-30 08:39 - [日耳曼拖拉机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-30 08:33 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
+- 2026-06-30 08:46 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
+- 2026-06-30 08:43 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-30 08:19 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-30 08:24 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-30 08:28 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-30 08:22 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-30 08:27 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
+- 2026-06-30 08:46 - [高质量发展看新疆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-30 08:28 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-30 08:23 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-30 08:39 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:18 - [第3集丨“柠檬茶能换怀表？”](https://www.blog.minike.top/Article/details/7838771071.shtml)
-- 2026-06-30 08:24 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.blog.kurohicncr.top/Article/details/8029445788.shtml)
-- 2026-06-30 08:27 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/47233.shtml)
-- 2026-06-30 08:25 - [被巴西绝杀后 日球员田中碧跪地痛哭](http://www.share.kurohicncr.top/Article/details/146257548626.shtml)
-- 2026-06-30 08:31 - [千香](https://www.share.minike.top/Article/details/314535298.shtml)
-- 2026-06-30 08:17 - [曝詹姆斯即将与勇士会面](http://www.share.kurohicncr.top/Article/details/09911624907.shtml)
-- 2026-06-30 08:16 - [这几秒成世界杯最值钱广告位](https://www.share.kurohicncr.top/Article/details/3379273.shtml)
-- 2026-06-30 08:33 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/08768636921.shtml)
-- 2026-06-30 08:29 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/070843.shtml)
-- 2026-06-30 08:30 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.minike.top/Article/details/6860572776.shtml)
-- 2026-06-30 08:38 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/917237311817.shtml)
-- 2026-06-30 08:28 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/442717696.shtml)
-- 2026-06-30 08:26 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/28951687892.shtml)
-- 2026-06-30 08:14 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/63125.shtml)
-- 2026-06-30 08:15 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/2636297507.shtml)
+- 2026-06-30 08:30 - [全球最火存储ETF纳入兆易创新](http://www.blog.kurohicncr.top/Article/details/50838410.shtml)
+- 2026-06-30 08:18 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/995505609827.shtml)
+- 2026-06-30 08:30 - [德国巴拉圭进入点球大战](https://www.share.minike.top/Article/details/3487470952.shtml)
+- 2026-06-30 08:27 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/291996963093.shtml)
+- 2026-06-30 08:34 - [为什么会有「念旧」的心理？](https://www.blog.minike.top/Article/details/82344240780.shtml)
+- 2026-06-30 08:45 - [张碧晨一开口梦回逐玉](http://www.share.minike.top/Article/details/97510570.shtml)
+- 2026-06-30 08:18 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/814510680.shtml)
+- 2026-06-30 08:35 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.blog.minike.top/Article/details/065323206.shtml)
+- 2026-06-30 08:38 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/5807403581.shtml)
+- 2026-06-30 08:18 - [女心理师](http://www.blog.minike.top/Article/details/35606150.shtml)
+- 2026-06-30 08:41 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/59184700665.shtml)
+- 2026-06-30 08:41 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/766775884307.shtml)
+- 2026-06-30 08:20 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.minike.top/Article/details/1775197650.shtml)
+- 2026-06-30 08:37 - [杨紫大银幕成绩单如何](https://www.blog.minike.top/Article/details/91457275.shtml)
+- 2026-06-30 08:22 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/2332524656.shtml)

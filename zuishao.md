@@ -1,60 +1,61 @@
-# 巨头抢占银保赛道，中小险企越来越难混了
+# 原油：WTI录得2020年以来最大单周跌幅 伊朗与美国会谈在即
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-来源：险联社 最近两年，寿险行业的格局正在悄悄发生大变化。 以前银行卖保险只是辅助业务，可有可无；现在银保渠道彻底火了，成了保险公司冲业绩、做规模的核心主力，热度已经远远超过越来越难做的传统业务员渠道。 但这波银保红利，基本被大型保险公司独享。国寿、平安这些头部巨头，银保业绩一年比一年火爆，不断刷新纪录。反观中小保险公司，不仅没赚到钱，日子反而越来越难。 随着大公司全部下场抢银
+原油下跌，交投相对清淡，市场正等待备受关注的美伊会谈，此次谈判将决定双方脆弱停火的未来走向。 WTI下跌1.3%，结算价在每桶97美元以下，本周累计跌幅约13.4%，为六年来最大单周跌幅。布伦特原油收盘下跌，报约每桶95美元。 自2月底战争爆发以来，原油市场剧烈震荡，当前价格仍较冲突前高出逾30%。市场关注焦点正转向本周宣布的停火能否持续，以及是否能够达成持久和平，从而恢复经霍
 
 ## 正文
 
-来源：险联社 最近两年，寿险行业的格局正在悄悄发生大变化。
+原油下跌，交投相对清淡，市场正等待备受关注的美伊会谈，此次谈判将决定双方脆弱停火的未来走向。
 
-以前银行卖保险只是辅助业务，可有可无；现在银保渠道彻底火了，成了保险公司冲业绩、做规模的核心主力，热度已经远远超过越来越难做的传统业务员渠道。
+WTI下跌1.3%，结算价在每桶97美元以下，本周累计跌幅约13.4%，为六年来最大单周跌幅。
 
-但这波银保红利，基本被大型保险公司独享。
+布伦特原油收盘下跌，报约每桶95美元。
 
-国寿、平安这些头部巨头，银保业绩一年比一年火爆，不断刷新纪录。
+自2月底战争爆发以来，原油市场剧烈震荡，当前价格仍较冲突前高出逾30%。
 
-反观中小保险公司，不仅没赚到钱，日子反而越来越难。
+市场关注焦点正转向本周宣布的停火能否持续，以及是否能够达成持久和平，从而恢复经霍尔木兹海峡的能源运输。
 
-随着大公司全部下场抢银保市场，再加上监管查得越来越严，中小险企过去十几年靠银保吃饭的那套老路子，已经彻底行不通了。
+目前，通过这一关键水道的运输仍主要限于与德黑兰有关联的船只。
 
-曾经的银保市场，是中小险企的生存基本盘 放在几年前，银保市场完全是中小险企的舒适区。
+“这种抛售并无根据，很可能会出现逆转，”Rapidan Energy Group总裁Bob McNally在接受采访时表示，“如今我们已进入最糟糕的情境，人们总想相信它很快就会结束，因此愿意接受一些安抚性的言辞和口头干预。
 
-那时候大公司根本看不上银保业务，它们主要靠线下业务员卖长期保险产品，利润高、价值稳。
+” 市场还关注美国是否会延长一项制裁豁免，该豁免允许购买已装船的俄罗斯原油。
 
 ## 相关推荐
 
-- 2026-06-30 08:21 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
-- 2026-06-30 08:18 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-30 08:17 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
-- 2026-06-30 08:32 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-30 08:12 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-30 08:38 - [点球大战 残酷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
-- 2026-06-30 08:35 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-30 08:28 - [中国新一轮出口管制直指日本命脉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-30 08:17 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-30 08:26 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
-- 2026-06-30 08:14 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-30 08:32 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-30 08:18 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-30 08:34 - [德国爆冷点球大战不敌巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-30 08:27 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-30 08:22 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-30 08:37 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-30 08:34 - [存储芯片龙头提示风险](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-30 08:40 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-30 08:37 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-30 08:44 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
+- 2026-06-30 08:29 - [追梦拒绝2770万美元球员选项](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-30 08:18 - [杨紫肖战余生请多指教拍立得](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
+- 2026-06-30 08:39 - [网瘾賊大的阿嬷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-30 08:26 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-30 08:43 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-30 08:45 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-30 08:35 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-30 08:40 - [泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:24 - [中国新一轮出口管制直指日本命脉](https://www.share.kurohicncr.top/Article/details/19660697168.shtml)
-- 2026-06-30 08:12 - [“柠檬茶能换怀表？”](http://www.blog.kurohicncr.top/Article/details/344477.shtml)
-- 2026-06-30 08:39 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/260792.shtml)
-- 2026-06-30 08:34 - [巴西vs日本](https://www.share.minike.top/Article/details/34544490248.shtml)
-- 2026-06-30 08:24 - [王欣瑜晋级温网女单次轮](http://www.blog.minike.top/Article/details/24989569701.shtml)
-- 2026-06-30 08:28 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.kurohicncr.top/Article/details/1824771362.shtml)
-- 2026-06-30 08:15 - [起风了](http://www.share.minike.top/Article/details/082782067530.shtml)
-- 2026-06-30 08:39 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/4006465559.shtml)
-- 2026-06-30 08:27 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/1808390303.shtml)
-- 2026-06-30 08:20 - [陈幸同晋级WTT美国大满贯女单32强](http://www.share.kurohicncr.top/Article/details/592080240093.shtml)
-- 2026-06-30 08:28 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://www.blog.minike.top/Article/details/239095418.shtml)
-- 2026-06-30 08:23 - [马耳他著名拱门坍塌致一中国男子身亡](http://www.share.minike.top/Article/details/5794085128.shtml)
-- 2026-06-30 08:17 - [亚洲球队全部告别世界杯](http://www.share.minike.top/Article/details/422403769.shtml)
-- 2026-06-30 08:29 - [穆祉丞年度人气艺人](http://www.share.kurohicncr.top/Article/details/521484555.shtml)
-- 2026-06-30 08:22 - [我觉得你是在无中生友](https://www.blog.minike.top/Article/details/3890154.shtml)
+- 2026-06-30 08:38 - [日本淘汰](http://www.blog.minike.top/Article/details/856991.shtml)
+- 2026-06-30 08:30 - [高考填志愿父亲和女儿产生分歧](http://www.share.minike.top/Article/details/0218543.shtml)
+- 2026-06-30 08:23 - [有酒店推行24小时退房制](https://www.share.minike.top/Article/details/340798.shtml)
+- 2026-06-30 08:30 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/505102337.shtml)
+- 2026-06-30 08:23 - [IGN评测电影版后室](http://www.blog.kurohicncr.top/Article/details/097123.shtml)
+- 2026-06-30 08:24 - [巴西vs日本](https://www.blog.minike.top/Article/details/239499658.shtml)
+- 2026-06-30 08:37 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/0763646755.shtml)
+- 2026-06-30 08:37 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/3529730860.shtml)
+- 2026-06-30 08:28 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/346472183.shtml)
+- 2026-06-30 08:24 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](http://www.share.minike.top/Article/details/6147685.shtml)
+- 2026-06-30 08:25 - [马耳他著名拱门坍塌致一中国男子身亡](http://www.blog.minike.top/Article/details/0349519.shtml)
+- 2026-06-30 08:19 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/2063524.shtml)
+- 2026-06-30 08:43 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/70877967834.shtml)
+- 2026-06-30 08:36 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/07755968531.shtml)
+- 2026-06-30 08:34 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/212356385218.shtml)

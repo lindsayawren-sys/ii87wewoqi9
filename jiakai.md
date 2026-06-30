@@ -1,52 +1,60 @@
-# 武契奇：我计划很快辞职
+# 长城汽车佘士东：大模型上车推动智能座舱从“人机交互”向“人-智-体”三方服务演进
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-中新网6月11日电 综合外媒消息，当地时间10日，塞尔维亚总统武契奇表示，他计划很快辞职。 武契奇在贝尔格莱德电台被问及是否计划在三到四个月内辞职时，他表示“也许甚至更快”。 他还补充说，“会在合适的时机通知大家。”
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。长城汽车智能化产品副总经理佘士东出席并演讲。 他指出，当前智能座舱面临高度同质化的困境，大模型上车正推动行业从“人机交互”向“人-智-体”三方服务演进。长城汽车通过工程化落地，实现了以自然对话
 
 ## 正文
 
-中新网6月11日电 综合外媒消息，当地时间10日，塞尔维亚总统武契奇表示，他计划很快辞职。
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
 
-武契奇在贝尔格莱德电台被问及是否计划在三到四个月内辞职时，他表示“也许甚至更快”。
+长城汽车智能化产品副总经理佘士东出席并演讲。
 
-他还补充说，“会在合适的时机通知大家。
+他指出，当前智能座舱面临高度同质化的困境，大模型上车正推动行业从“人机交互”向“人-智-体”三方服务演进。
 
-”
+长城汽车通过工程化落地，实现了以自然对话为核心的智能体交互，让用户从“操作机器”回归“表达需求”，为智能座舱体验带来革命性升级。
+
+佘士东分析，当前智能座舱界面高度同质化，200多款车型的交互界面相似度达95%以上，行业陷入“无米下锅”的创新瓶颈。
+
+而大模型上车带来了破局机遇，行业正逐步从“人机交互”迈向“人-智-体”三方服务时代。
+
+这一转变的核心，是车从“司机与机器的交互”扩展为“全车成员与智能体的交互”，大六座车型、后排舒适性配置的普及正是这一趋势的体现。
+
+佘士东坦言，当前智能体仍处于“相持相知”阶段，未来将向“美好生活推荐”演进。
 
 ## 相关推荐
 
-- 2026-06-30 08:19 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-30 08:17 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-30 08:34 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-30 08:14 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-30 08:21 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-30 08:29 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
-- 2026-06-30 08:23 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-30 08:21 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
-- 2026-06-30 08:19 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-30 08:22 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-30 08:33 - [田中碧失误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-30 08:35 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-30 08:36 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-30 08:40 - [感动全网的699分女生想报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-30 08:39 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-30 08:35 - [感动全网的699分女生想报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-30 08:45 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-30 08:19 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
+- 2026-06-30 08:38 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-30 08:27 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-30 08:35 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-30 08:29 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-30 08:44 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-30 08:31 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-30 08:43 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-30 08:41 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-30 08:31 - [德国连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-30 08:31 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:38 - [巴西在进攻三区完成210脚传球](https://www.blog.minike.top/Article/details/47517139.shtml)
-- 2026-06-30 08:21 - [曝老詹对自由市场态度与以往截然不同](http://www.share.kurohicncr.top/Article/details/046123922.shtml)
-- 2026-06-30 08:29 - [周冬雨多次说演不了话剧文城](https://www.blog.minike.top/Article/details/792451.shtml)
-- 2026-06-30 08:18 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/73233.shtml)
-- 2026-06-30 08:26 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/6281141367.shtml)
-- 2026-06-30 08:37 - [Melo向柳智敏张元英道歉](https://www.blog.minike.top/Article/details/604878508422.shtml)
-- 2026-06-30 08:38 - [武磊：巴西队赢的并不轻松](https://www.share.minike.top/Article/details/32972316493.shtml)
-- 2026-06-30 08:16 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.minike.top/Article/details/43830.shtml)
-- 2026-06-30 08:26 - [媒体：手机测评该挤挤水分了](http://www.blog.minike.top/Article/details/761013.shtml)
-- 2026-06-30 08:31 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/37782.shtml)
-- 2026-06-30 08:40 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/610051.shtml)
-- 2026-06-30 08:23 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/40822407885.shtml)
-- 2026-06-30 08:24 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/908557.shtml)
-- 2026-06-30 08:20 - [萨内 看笑了](http://www.blog.minike.top/Article/details/30614009081.shtml)
-- 2026-06-30 08:24 - [德国爆冷点球大战不敌巴拉圭](http://www.blog.minike.top/Article/details/83849713.shtml)
+- 2026-06-30 08:24 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.minike.top/Article/details/1900008145.shtml)
+- 2026-06-30 08:18 - [媒体：手机测评该挤挤水分了](http://www.share.kurohicncr.top/Article/details/1773310869.shtml)
+- 2026-06-30 08:45 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/5342759496.shtml)
+- 2026-06-30 08:35 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/16955.shtml)
+- 2026-06-30 08:24 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/5637240.shtml)
+- 2026-06-30 08:19 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/095505820.shtml)
+- 2026-06-30 08:33 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/0082717605.shtml)
+- 2026-06-30 08:32 - [城市规划有可能成为「屎山代码」吗？](https://www.blog.minike.top/Article/details/585807485.shtml)
+- 2026-06-30 08:47 - [曝老詹对自由市场态度与以往截然不同](https://www.blog.kurohicncr.top/Article/details/010760.shtml)
+- 2026-06-30 08:42 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/022181.shtml)
+- 2026-06-30 08:27 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](http://www.blog.minike.top/Article/details/853734285.shtml)
+- 2026-06-30 08:23 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/42521330.shtml)
+- 2026-06-30 08:32 - [美股](http://www.share.minike.top/Article/details/024750.shtml)
+- 2026-06-30 08:31 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/555367429.shtml)
+- 2026-06-30 08:32 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/21639.shtml)

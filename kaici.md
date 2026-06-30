@@ -1,57 +1,59 @@
-# 沃什“首秀”应如何定调？FED前官员呼吁尽快加息：通胀持续是政策错误！
+# 2026北京公众考古季启动 构建考古传播新格局
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-财联社6月11日讯（编辑 黄君芝）下周，新上任的美联储主席凯文·沃什（Kevin Warsh）即将主持其任期内的第一次联邦公开市场委员会（FOMC）会议，等待着他的不仅仅是一个更加“鹰派”的美联储，还有来自各方越发“沉重”的加息压力。 前堪萨斯城联邦储备银行行长托马斯·霍尼格（Thomas Hoenig）最新警告称，当前的货币政策过于“刺激性”，导致通胀持续升温。 最新数据显示
+中新网北京4月10日电(记者 徐婧)由北京市文物局、北京市丰台区人民政府主办的2026北京公众考古季10日开幕。本届公众考古季以“触摸考古 解读北京”为主题，通过25项活动普及考古和文化遗产知识，让公众在模拟发掘、文物修复体验等实践中感知历史温度。 开幕式发布了全年活动安排，包括考古研学、体验考古、考古展览、考古讲座、考古进校园五大板块，共计25项活动，坚持专业引领与社会参与并
 
 ## 正文
 
-财联社6月11日讯（编辑 黄君芝）下周，新上任的美联储主席凯文·沃什（Kevin Warsh）即将主持其任期内的第一次联邦公开市场委员会（FOMC）会议，等待着他的不仅仅是一个更加“鹰派”的美联储，还有来自各方越发“沉重”的加息压力。
+中新网北京4月10日电(记者 徐婧)由北京市文物局、北京市丰台区人民政府主办的2026北京公众考古季10日开幕。
 
-前堪萨斯城联邦储备银行行长托马斯·霍尼格（Thomas Hoenig）最新警告称，当前的货币政策过于“刺激性”，导致通胀持续升温。
+本届公众考古季以“触摸考古 解读北京”为主题，通过25项活动普及考古和文化遗产知识，让公众在模拟发掘、文物修复体验等实践中感知历史温度。
 
-最新数据显示，受伊朗战争推高能源价格影响，美国5月消费者价格指数（CPI）同比上涨4.2%，三年来首次突破4%关口，创下2023年5月以来的最快增速，甚至超过了美国人的薪资涨幅。
+开幕式发布了全年活动安排，包括考古研学、体验考古、考古展览、考古讲座、考古进校园五大板块，共计25项活动，坚持专业引领与社会参与并重，推动市区联动与资源整合，构建起覆盖广泛、共建共享的考古传播新格局。
 
-不过，剔除食品和能源成本后的核心CPI环比仅上涨0.2%，低于市场预期。
+活动带领公众走进考古现场。
 
-霍尼格在接受最新采访时表示，实际利率仍为负值，远低于中性水平，这将导致核心通胀持续居高不下。
+北京市考古研究院依托考古资源，面向学校、亲子家庭等开展考古研学实践活动，通过参与体验、发掘等环节，展现考古工作流程，传播考古知识，增强参与者对历史文化的认同感。
 
-他说道：“当你像过去那样压低利率，导致实际利率为负时，财富效应——也就是那些拥有资产的人——就会从中受益。
+北京多家博物馆打破传统单向展陈模式，提升公众互动体验。
 
-” 霍尼格进一步指出，这种动态正在扭曲市场，迫使消费者退出住房市场，同时在通胀持续升温的情况下，使美国富裕阶层的消费保持稳定。
+首都博物馆推出国宝“戏”游记，以剧本式体验让文物讲述历史；周口店北京人遗址管理处开展化石修复、模拟发掘等实践活动，让公众在专业指导下体验考古流程。
 
-不过，霍尼格预计美联储不会在下周的会议上采取行动，他指出央行不愿给市场带来意外，以及美联储当前面临的政治压力。
+“考古看北京”展览将和公众见面。
 
 ## 相关推荐
 
-- 2026-06-30 08:34 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
-- 2026-06-30 08:15 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-30 08:27 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-30 08:35 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-30 08:26 - [泰山景区回应修建刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
-- 2026-06-30 08:36 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-30 08:23 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-30 08:28 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-30 08:38 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
-- 2026-06-30 08:23 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-30 08:22 - [二次元提前预演明日巴西对日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-30 08:32 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-30 08:24 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-30 08:27 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-30 08:19 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-30 08:43 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-30 08:34 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-30 08:31 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-30 08:26 - [德国队连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-30 08:19 - [日本五次世界杯淘汰赛全败](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-30 08:39 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-30 08:19 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-30 08:26 - [存储芯片龙头提示风险](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
+- 2026-06-30 08:44 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:22 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/90202273.shtml)
-- 2026-06-30 08:26 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.kurohicncr.top/Article/details/4398210.shtml)
-- 2026-06-30 08:16 - [德国淘汰](https://www.blog.minike.top/Article/details/18023.shtml)
-- 2026-06-30 08:23 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.minike.top/Article/details/807948049.shtml)
-- 2026-06-30 08:19 - [日本博主：日本足球真的垃圾](http://www.share.kurohicncr.top/Article/details/60102006327.shtml)
-- 2026-06-30 08:14 - [莫兰特转投开拓者效力](http://www.share.kurohicncr.top/Article/details/09476.shtml)
-- 2026-06-30 08:12 - [高考结束了，你会让孩子在家玩手机吗？](http://www.share.minike.top/Article/details/247126859.shtml)
-- 2026-06-30 08:14 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.minike.top/Article/details/469515676783.shtml)
-- 2026-06-30 08:35 - [恋与深空制作组回应近期争议](http://www.share.kurohicncr.top/Article/details/44218113.shtml)
-- 2026-06-30 08:30 - [这几秒成世界杯最值钱广告位](https://www.share.minike.top/Article/details/34516131227.shtml)
-- 2026-06-30 08:16 - [豆包收费了，你还会用吗？](https://www.share.kurohicncr.top/Article/details/091175910098.shtml)
-- 2026-06-30 08:16 - [为什么会有「念旧」的心理？](http://www.blog.minike.top/Article/details/47492.shtml)
-- 2026-06-30 08:40 - [卡塞米罗头球破门](http://www.share.kurohicncr.top/Article/details/0823831825.shtml)
-- 2026-06-30 08:14 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/8733533.shtml)
-- 2026-06-30 08:27 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/672139.shtml)
+- 2026-06-30 08:34 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/64585834.shtml)
+- 2026-06-30 08:45 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.share.kurohicncr.top/Article/details/941971548.shtml)
+- 2026-06-30 08:43 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/52437845645.shtml)
+- 2026-06-30 08:45 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/4319631931.shtml)
+- 2026-06-30 08:30 - [徐亮怒斥世界杯踢假球](http://www.blog.kurohicncr.top/Article/details/82878201.shtml)
+- 2026-06-30 08:47 - [杨紫学位证上就是杨紫](https://www.blog.minike.top/Article/details/899035774.shtml)
+- 2026-06-30 08:33 - [峡谷事故团队组队时有人提醒会下雨](https://www.blog.kurohicncr.top/Article/details/070250203741.shtml)
+- 2026-06-30 08:39 - [天道](http://www.blog.minike.top/Article/details/39160940027.shtml)
+- 2026-06-30 08:26 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/28756609.shtml)
+- 2026-06-30 08:20 - [爱很美味](https://www.share.minike.top/Article/details/922331381.shtml)
+- 2026-06-30 08:23 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/60651681.shtml)
+- 2026-06-30 08:40 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/37354606236.shtml)
+- 2026-06-30 08:23 - [中国新一轮出口管制直指日本命脉](https://www.share.minike.top/Article/details/41016761.shtml)
+- 2026-06-30 08:33 - [我觉得你是在无中生友](http://www.share.kurohicncr.top/Article/details/876755275.shtml)
+- 2026-06-30 08:43 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/7371969.shtml)

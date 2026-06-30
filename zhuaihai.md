@@ -1,61 +1,61 @@
-# 欧佩克下调本年度全球石油需求增长预期
+# 德国作家骑行长征路：用亲身体验讲述真实中国
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-此前预测全球原油日需求增量 117 万桶，现下调至 97 万桶 / 日 内容速览 受美国封锁伊朗影响，石油输出国组织（欧佩克）将 2026 年全球原油日需求增长预期下调至 97 万桶。 石油输出国组织下调了本年度全球石油需求预测。原因是美国对伊朗实施封锁，霍尔木兹海峡近乎断航，海湾主要产油国原油供应持续受限。 该产油国联盟最新预测，今年全球原油日需求增量为 97 万桶，此前预期
+中新社柏林4月10日电 (记者 马秀秀)德国作家福尔克(Volker Häring)9日在柏林中国文化中心结合影像资料，分享了他与柯立思(Christian Y. Schmidt)骑行中国的见闻与思考。 2024年伊始，福尔克与柯立思从江西瑞金出发，沿中国长征路线骑行。全程历时138天，跨越近7000公里。2025年10月，两人记录此次经历的著作《漫漫骑行长征路——穿越中国70
 
 ## 正文
 
-此前预测全球原油日需求增量 117 万桶，现下调至 97 万桶 / 日 内容速览 受美国封锁伊朗影响，石油输出国组织（欧佩克）将 2026 年全球原油日需求增长预期下调至 97 万桶。
+中新社柏林4月10日电 (记者 马秀秀)德国作家福尔克(Volker Häring)9日在柏林中国文化中心结合影像资料，分享了他与柯立思(Christian Y. Schmidt)骑行中国的见闻与思考。
 
-石油输出国组织下调了本年度全球石油需求预测。
+2024年伊始，福尔克与柯立思从江西瑞金出发，沿中国长征路线骑行。
 
-原因是美国对伊朗实施封锁，霍尔木兹海峡近乎断航，海湾主要产油国原油供应持续受限。
+全程历时138天，跨越近7000公里。
 
-该产油国联盟最新预测，今年全球原油日需求增量为 97 万桶，此前预期为 117 万桶；上调明年需求增长预期至 173 万桶 / 日，此前预测为 154 万桶 / 日。
+2025年10月，两人记录此次经历的著作《漫漫骑行长征路——穿越中国7000公里》出版。
 
-欧佩克的需求预判与其他机构存在明显分歧。
+福尔克接受中新社记者专访时表示，骑行中国的经历精彩而令人着迷，他们希望将这些故事讲给更多人听。
 
-其余分析机构认为，伊朗冲突将对原油消费造成更严重冲击：美国能源信息署预计今年全球原油日需求将减少 110 万桶，国际能源署则预测需求每日收缩 42 万桶。
+福尔克是资深骑行爱好者，每年都会前往中国。
 
-5 月，欧佩克成员国原油日产量下降 17.7 万桶，至 1883 万桶；涵盖更多产油国的欧佩克 + 联盟整体日产量减少 18.5 万桶，报 3313 万桶。
+后来，他偶然结识了志同道合的柯立思，两人一拍即合，决定共同完成这次骑行。
 
-伊朗减产幅度最为剧烈，受美国封锁港口航运影响，原油日产量锐减 54.6 万桶。
+这段近7000公里、最高海拔达4114米的旅程，对两人而言既是一次冒险，也是对身体与意志的考验。
 
 ## 相关推荐
 
-- 2026-06-30 08:26 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
-- 2026-06-30 08:13 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
-- 2026-06-30 08:36 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-30 08:41 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-30 08:22 - [世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-30 08:30 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
-- 2026-06-30 08:29 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-30 08:41 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-30 08:39 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-30 08:35 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
-- 2026-06-30 08:31 - [高质量发展看新疆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-30 08:23 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-30 08:39 - [穆祉丞回应获年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
-- 2026-06-30 08:41 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-30 08:26 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-30 08:43 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-30 08:21 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-30 08:46 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-30 08:43 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-30 08:33 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-30 08:21 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
+- 2026-06-30 08:28 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
+- 2026-06-30 08:30 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-30 08:30 - [马耳他著名拱门坍塌致中国男子身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-30 08:33 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-30 08:22 - [金鹰奖视后提名预测](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-30 08:42 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-30 08:23 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-30 08:27 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-30 08:45 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:35 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/66621.shtml)
-- 2026-06-30 08:31 - [一生一世](http://www.blog.kurohicncr.top/Article/details/5091235.shtml)
-- 2026-06-30 08:30 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/8107652.shtml)
-- 2026-06-30 08:38 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/0814107859.shtml)
-- 2026-06-30 08:36 - [刘宇宁高情商化解谁站C位](http://www.share.minike.top/Article/details/71895526.shtml)
-- 2026-06-30 08:21 - [感动全网的699分女生想报考清华](http://www.share.kurohicncr.top/Article/details/15137946593.shtml)
-- 2026-06-30 08:41 - [网友写差评被店家“挂”门口避雷](https://www.share.minike.top/Article/details/5569869112.shtml)
-- 2026-06-30 08:28 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/83928706642.shtml)
-- 2026-06-30 08:38 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/234904436.shtml)
-- 2026-06-30 08:17 - [王楚钦说配合稍微有些陌生感](https://www.share.minike.top/Article/details/7457238.shtml)
-- 2026-06-30 08:39 - [千香](https://www.blog.minike.top/Article/details/285075.shtml)
-- 2026-06-30 08:22 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/58269346724.shtml)
-- 2026-06-30 08:13 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/846810396250.shtml)
-- 2026-06-30 08:23 - [一生一世](http://www.share.minike.top/Article/details/179079586.shtml)
-- 2026-06-30 08:21 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/24970835.shtml)
+- 2026-06-30 08:21 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/4510899378.shtml)
+- 2026-06-30 08:34 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/8466310.shtml)
+- 2026-06-30 08:37 - [豆包收费了，你还会用吗？](https://www.blog.minike.top/Article/details/50196047244.shtml)
+- 2026-06-30 08:44 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/10727.shtml)
+- 2026-06-30 08:47 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/845136.shtml)
+- 2026-06-30 08:26 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/51093.shtml)
+- 2026-06-30 08:47 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/080541214.shtml)
+- 2026-06-30 08:25 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://www.blog.minike.top/Article/details/8599936.shtml)
+- 2026-06-30 08:35 - [速度与激情9](http://www.share.minike.top/Article/details/3908685.shtml)
+- 2026-06-30 08:45 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/522147178.shtml)
+- 2026-06-30 08:36 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/14434.shtml)
+- 2026-06-30 08:29 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://www.blog.minike.top/Article/details/59343544542.shtml)
+- 2026-06-30 08:30 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/565921.shtml)
+- 2026-06-30 08:31 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/87997833503.shtml)
+- 2026-06-30 08:44 - [巴西绝杀日本](http://www.share.minike.top/Article/details/1238921854.shtml)

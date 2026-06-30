@@ -1,52 +1,57 @@
-# 中华保险：指定邵晓怡为集团临时负责人 代行总经理职权
+# 南方精工（002553）索赔案已有获赔后再提交立案，宜通世纪（300310）索赔案已有胜诉及获赔
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-6月11日金融一线消息，中华保险今日发布公告表示，经该集团董事会审议通过，聘任邵晓怡为公司总经理，待国家金融监管总局核准其总经理任职资格后正式履职。在其任职资格获批并被正式任命前，指定其为中华保险集团临时负责人，代行总经理职权。 简历显示，邵晓怡，中共党员，本科学历，硕士学位，高级会计师。现任中华保险集团党委副书记、临时负责人、副总经理、财务负责人，中华人寿党委书记、董事长。历
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年4月9日，上海久诚律师事务所股票索赔律师许峰代理的南方精工（维权）（002553）虚假陈述投资者索赔案再向法院提交一次立案。 许峰律师代理的前期部分南方精工投资者索赔案件已经达成调解，投资者获赔到位，律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。（许峰律师专栏） 2023年7月10日，南方精
 
 ## 正文
 
-6月11日金融一线消息，中华保险今日发布公告表示，经该集团董事会审议通过，聘任邵晓怡为公司总经理，待国家金融监管总局核准其总经理任职资格后正式履职。
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年4月9日，上海久诚律师事务所股票索赔律师许峰代理的南方精工（维权）（002553）虚假陈述投资者索赔案再向法院提交一次立案。
 
-在其任职资格获批并被正式任命前，指定其为中华保险集团临时负责人，代行总经理职权。
+许峰律师代理的前期部分南方精工投资者索赔案件已经达成调解，投资者获赔到位，律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
 
-简历显示，邵晓怡，中共党员，本科学历，硕士学位，高级会计师。
+（许峰律师专栏） 2023年7月10日，南方精工公告收到《江苏证监局关于对江苏南方精工股份有限公司、史建伟、史维采取出具警示函措施的决定》。
 
-现任中华保险集团党委副书记、临时负责人、副总经理、财务负责人，中华人寿党委书记、董事长。
+经查，南方精工2023年6月19日在深圳证券交易所互动易平台上回复投资者有关人形机器人相关业务的内容不准确，导致公司股价连续多次涨停。
 
-历任信永中和会计师事务所审计员，普华永道中天会计师事务所审计经理，中国财产再保险股份有限公司会计师，中国东方资产管理股份有限公司综合计划与战略协同部副总经理，中华财险董事、副总经理、财务负责人等职务。
+在股价异动后，南方精工未及时了解造成交易异常波动的影响因素，未在6月26日、6月28日发布的股票交易异常波动公告中就公司在互动易平台发布内容进行澄清，未披露造成股价异常波动的影响因素，信息披露不完整。
 
-责任编辑：王馨茹
+许峰律师认为，根据前期投资者获赔条件，在2023年6月20日到2023年7月5日之间买入南方精工股票，并在2023年7月5日后卖出或继续持有股票的投资者，目前还可发起索赔，已经进入倒计时，诉讼时效已经不足三个月，“过期作废”。
+
+（南方精工维权入口） 除了南方精工投资者索赔案再次提交法院立案，许峰律师提示，宜通世纪（维权）（300310）投资者索案目前还在持续推进中。
+
+许峰律师代理的部分宜通世纪投资者索赔案已调解获赔到位，目前也还在继续接受其他投资者的索赔委托，该案前期已有投资者胜诉判决以及调解获赔案例，还在诉讼时效内，建议投资者关注索赔事项。
 
 ## 相关推荐
 
-- 2026-06-30 08:30 - [全球芯片巨头史诗级扩产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
-- 2026-06-30 08:17 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-30 08:27 - [孙颖莎王楚钦晋级8强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
-- 2026-06-30 08:15 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
-- 2026-06-30 08:26 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
-- 2026-06-30 08:25 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-30 08:31 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-30 08:30 - [马耳他著名拱门坍塌致一中国男子身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-30 08:18 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-30 08:20 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
+- 2026-06-30 08:47 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-30 08:41 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
+- 2026-06-30 08:28 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-30 08:35 - [王楚钦说配合稍微有些陌生感](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-30 08:39 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-30 08:25 - [日本球员说被绝杀非常不甘心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-30 08:35 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-30 08:40 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-30 08:21 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-30 08:45 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-30 08:46 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:31 - [日本进球](https://www.share.kurohicncr.top/Article/details/485189659.shtml)
-- 2026-06-30 08:39 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/66853.shtml)
-- 2026-06-30 08:16 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/042381.shtml)
-- 2026-06-30 08:41 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/90871896.shtml)
-- 2026-06-30 08:18 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/173947589436.shtml)
-- 2026-06-30 08:20 - [金鹰奖视后提名预测](http://www.blog.kurohicncr.top/Article/details/2887849939.shtml)
-- 2026-06-30 08:20 - [董卿父亲报纸上发文悼念亡妻](http://www.blog.minike.top/Article/details/880362.shtml)
-- 2026-06-30 08:32 - [千香](https://www.share.minike.top/Article/details/835224.shtml)
-- 2026-06-30 08:33 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/971618.shtml)
-- 2026-06-30 08:12 - [存储芯片龙头提示风险](https://www.blog.minike.top/Article/details/61320292333.shtml)
-- 2026-06-30 08:13 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/4375700302.shtml)
-- 2026-06-30 08:13 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/689663943.shtml)
-- 2026-06-30 08:24 - [日本进球](https://www.blog.kurohicncr.top/Article/details/97234141203.shtml)
-- 2026-06-30 08:40 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.minike.top/Article/details/5391470.shtml)
-- 2026-06-30 08:24 - [内马尔中场休息积极鼓励队友](https://www.share.kurohicncr.top/Article/details/61007667.shtml)
+- 2026-06-30 08:27 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/10627411117.shtml)
+- 2026-06-30 08:23 - [网瘾賊大的阿嬷](http://www.share.minike.top/Article/details/351135219455.shtml)
+- 2026-06-30 08:30 - [郑钦文温网首轮出局](https://www.share.kurohicncr.top/Article/details/406451099.shtml)
+- 2026-06-30 08:18 - [AI手机进入Agent时代](http://www.blog.minike.top/Article/details/9235707891.shtml)
+- 2026-06-30 08:38 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.blog.kurohicncr.top/Article/details/647778.shtml)
+- 2026-06-30 08:43 - [日本 高位逼抢](https://www.share.minike.top/Article/details/7564160.shtml)
+- 2026-06-30 08:34 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/412656356.shtml)
+- 2026-06-30 08:34 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://www.blog.minike.top/Article/details/1771065.shtml)
+- 2026-06-30 08:41 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.minike.top/Article/details/96910927.shtml)
+- 2026-06-30 08:23 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.minike.top/Article/details/15175838.shtml)
+- 2026-06-30 08:44 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/89517311189.shtml)
+- 2026-06-30 08:21 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/99188593.shtml)
+- 2026-06-30 08:31 - [世界杯](http://www.blog.kurohicncr.top/Article/details/693698357.shtml)
+- 2026-06-30 08:19 - [一生一世](http://www.blog.minike.top/Article/details/5599772.shtml)
+- 2026-06-30 08:30 - [起风了](https://www.share.kurohicncr.top/Article/details/14523987.shtml)

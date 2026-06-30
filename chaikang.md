@@ -1,56 +1,57 @@
-# 第10届中国—南亚博览会在云南昆明开幕
+# Petra Energy获得马来西亚国家石油公司砂拉越天然气项目工作订单
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-炎炎夏日，古人如何避暑？美国网红想拍“落后的中国”，却被一群大凉山孩子追问爱泼斯坦巨星与新星，谁将加冕北美之夏？美国工厂里，没有童年封关半年看海南：一碗糟粕醋如何发酵“酸爽”大产业？2000年交往史，16载自贸情，这对贸易搭子的“含金量”还在上升新能源汽车不能再胖了苏州以资本之力蓄创新之势日本前众议长河野洋平去世 曾发表著名的“河野谈话”“世界第一碗面条”并非小麦制作，实证了什
+马来西亚Petra Energy公司已获得价值7，500万美元（2.98亿林吉特）的工作订单，为马来西亚砂拉越的一个天然气项目提供服务。 这些合同由Petra Energy的子公司Petra Resources根据现有的马来西亚全国海上服务协议从马来西亚国家石油公司子公司Petronas Carigali获得。 工作订单涉及为民都鲁综合设施复兴项目二期提供连接和调试服务。 工作
 
 ## 正文
 
-炎炎夏日，古人如何避暑？
+马来西亚Petra Energy公司已获得价值7，500万美元（2.98亿林吉特）的工作订单，为马来西亚砂拉越的一个天然气项目提供服务。
 
-美国网红想拍“落后的中国”，却被一群大凉山孩子追问爱泼斯坦巨星与新星，谁将加冕北美之夏？
+这些合同由Petra Energy的子公司Petra Resources根据现有的马来西亚全国海上服务协议从马来西亚国家石油公司子公司Petronas Carigali获得。
 
-美国工厂里，没有童年封关半年看海南：一碗糟粕醋如何发酵“酸爽”大产业？
+工作订单涉及为民都鲁综合设施复兴项目二期提供连接和调试服务。
 
-2000年交往史，16载自贸情，这对贸易搭子的“含金量”还在上升新能源汽车不能再胖了苏州以资本之力蓄创新之势日本前众议长河野洋平去世 曾发表著名的“河野谈话”“世界第一碗面条”并非小麦制作，实证了什么？
+工作范围包括大宗材料采购、工程设计活动以及施工和调试服务。
 
-“粤车南下”扩围大湾区“双向奔赴”再提速“鹅腿阿姨”塌房？
+Petra Energy表示，这些工作订单于2025年12月至2026年1月期间发出，是涵盖砂拉越天然气资产的海上维护、施工、改造以及连接和调试服务的更广泛合同的一部分。
 
-相关部门已介入，微信平台提示其账号违反使用规范揭秘档案修裱：秉承最小干预原则 补纸选择有讲究新疆算力布局优势显现，加速迈向绿色算力新高地数据中心发电厂噪音扰民！
+该公司表示，这些合同预计将为截至2026年12月的财政年度及以后的盈利和净资产做出积极贡献。
 
-马斯克两公司遭万人集体诉讼抹黑中国，救不了欧洲产业更“世界”的世界杯要来了：哪些纪录有望改写？
+Petra Energy补充说，这些工作订单不需要股东或监管机构批准，也不会影响其股本或所有权结构。
 
-谁将是最大黑马？
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-30 08:37 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
-- 2026-06-30 08:13 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-30 08:12 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-30 08:36 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-30 08:39 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-30 08:25 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-30 08:14 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-30 08:13 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-30 08:21 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
-- 2026-06-30 08:18 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
+- 2026-06-30 08:23 - [4000美元是黄金新一轮下跌的开始吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
+- 2026-06-30 08:29 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-30 08:34 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-30 08:37 - [巴西足球能否再现昔日荣光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-30 08:20 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-30 08:30 - [点球大战 残酷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-30 08:29 - [勇士续约波尔津吉斯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-30 08:40 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-30 08:21 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-30 08:24 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-30 08:24 - [巴西在进攻三区完成210脚传球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:22 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/528319004.shtml)
-- 2026-06-30 08:27 - [天道](http://www.share.minike.top/Article/details/64431261.shtml)
-- 2026-06-30 08:26 - [美人鱼](https://www.blog.minike.top/Article/details/774629969185.shtml)
-- 2026-06-30 08:33 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/0418287.shtml)
-- 2026-06-30 08:26 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://www.share.minike.top/Article/details/246671863.shtml)
-- 2026-06-30 08:29 - [巴拉圭点球大战淘汰德国进16强](http://www.share.minike.top/Article/details/498207409.shtml)
-- 2026-06-30 08:41 - [张雪的一句“是我们”引发岛内热议](http://www.share.kurohicncr.top/Article/details/50469994.shtml)
-- 2026-06-30 08:17 - [板面：为什么那么多人爱吃？？！](https://www.blog.minike.top/Article/details/34293731800.shtml)
-- 2026-06-30 08:24 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/854065591.shtml)
-- 2026-06-30 08:38 - [卡塞米罗头球破门 巴西扳平日本](https://www.share.kurohicncr.top/Article/details/90387908088.shtml)
-- 2026-06-30 08:23 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/55442855237.shtml)
-- 2026-06-30 08:26 - [巴西足球能否再现昔日荣光](http://www.share.minike.top/Article/details/4060235.shtml)
-- 2026-06-30 08:20 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/1515361.shtml)
-- 2026-06-30 08:22 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/4168689004.shtml)
-- 2026-06-30 08:30 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/77862.shtml)
+- 2026-06-30 08:24 - [绘画区你赢了](http://www.blog.minike.top/Article/details/215105499.shtml)
+- 2026-06-30 08:34 - [问心2神一集鬼三集](http://www.blog.minike.top/Article/details/15209667.shtml)
+- 2026-06-30 08:34 - [亚洲球队全部出局](https://www.blog.kurohicncr.top/Article/details/498364.shtml)
+- 2026-06-30 08:46 - [金刚川](http://www.share.kurohicncr.top/Article/details/30624246221.shtml)
+- 2026-06-30 08:20 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/811960.shtml)
+- 2026-06-30 08:24 - [全新问界M9现身美国街头](http://www.share.kurohicncr.top/Article/details/33590077017.shtml)
+- 2026-06-30 08:45 - [板面：为什么那么多人爱吃？？！](http://www.blog.minike.top/Article/details/738021882061.shtml)
+- 2026-06-30 08:18 - [输球后日本球迷被强行披上巴西国旗](http://www.blog.minike.top/Article/details/9091427.shtml)
+- 2026-06-30 08:24 - [官方否认宜宾地震与页岩气开采有关](https://www.share.minike.top/Article/details/699467878.shtml)
+- 2026-06-30 08:27 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/89756878.shtml)
+- 2026-06-30 08:24 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/0301528203.shtml)
+- 2026-06-30 08:36 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/77033664.shtml)
+- 2026-06-30 08:44 - [勇士续约波尔津吉斯](https://www.blog.minike.top/Article/details/4312382729.shtml)
+- 2026-06-30 08:35 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.minike.top/Article/details/6132205636.shtml)
+- 2026-06-30 08:27 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.minike.top/Article/details/082246680214.shtml)

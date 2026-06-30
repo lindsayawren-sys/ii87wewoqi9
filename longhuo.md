@@ -1,56 +1,61 @@
-# 002490，直线涨停！002971，3连板！
+# “弃英赴美”+1！Wise Q4 业绩亮眼，有望下月转战纳斯达克
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-受外围市场影响，6月11日A股三大指数集体低开。开盘后指数拉升，创业板指一度涨超1%，截至发稿，深证成指、创业板指再度下跌。 盘面上，石油石化、煤炭、资源开采、工业气体、磷化工概念等板块开盘活跃；机器人、航空机场、元件、汽车服务、水泥、贵金属等板块开盘走低。 港股方面，恒生指数、恒生科技指数均下跌超1%。泡泡玛特、腾讯控股、中国海洋石油等涨近2%，华虹宏力跌近4%，长飞光纤光缆
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：智通财经 跨境支付企业Wise Plc表示，公司有望下个月将其主要上市地点从伦敦转移到纳斯达克。与此同时，这家汇款公司第四财季的关键盈利数据超出了分析师的预期。 Wise首席执行官兼联合创始人Kristo Käärmann周一在一份声明中表示，预计将于5月11日在美国上市的计划“将进一步提升”该公司在
 
 ## 正文
 
-受外围市场影响，6月11日A股三大指数集体低开。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-开盘后指数拉升，创业板指一度涨超1%，截至发稿，深证成指、创业板指再度下跌。
+来源：智通财经 跨境支付企业Wise Plc表示，公司有望下个月将其主要上市地点从伦敦转移到纳斯达克。
 
-盘面上，石油石化、煤炭、资源开采、工业气体、磷化工概念等板块开盘活跃；机器人、航空机场、元件、汽车服务、水泥、贵金属等板块开盘走低。
+与此同时，这家汇款公司第四财季的关键盈利数据超出了分析师的预期。
 
-港股方面，恒生指数、恒生科技指数均下跌超1%。
+Wise首席执行官兼联合创始人Kristo Käärmann周一在一份声明中表示，预计将于5月11日在美国上市的计划“将进一步提升”该公司在美国的知名度。
 
-泡泡玛特、腾讯控股、中国海洋石油等涨近2%，华虹宏力跌近4%，长飞光纤光缆跌近3%，中芯国际跌近2%。
+该公司正寻求与全美4000多家银行建立合作关系。
 
-油气概念盘初走强 油气概念盘初走强，山东墨龙（002490）涨停，通源石油、泰山石油、潜能恒信、贝肯能源、蓝焰控股纷纷上扬。
+这家金融科技公司去年宣布了在美国上市的计划。
 
-消息面上，布伦特原油一度站上95美元/桶，涨超2%。
+它已申请在美国成立一家全国性信托银行，这将使Wise能够接入美联储的支付系统。
 
-化工板块走高，硫磺、磷化工方向领涨，兴发集团、澄星股份、六国化工涨停，粤桂股份触及涨停，川金诺、迪尔化工、赤天化、云天化跟涨。
+在美国，Wise的员工人数已超过750人，其中450人在奥斯汀。
 
 ## 相关推荐
 
-- 2026-06-30 08:26 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-30 08:23 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-30 08:33 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-30 08:38 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-30 08:16 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-30 08:25 - [张月收到黄灿灿辣货两眼发光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-30 08:34 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-30 08:18 - [曝iPhone18Pro机密文件现身暗网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
-- 2026-06-30 08:12 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
-- 2026-06-30 08:12 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-30 08:36 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
+- 2026-06-30 08:33 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-30 08:36 - [自然光｜papi酱&窦文涛：驴与跑步机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-30 08:24 - [日本队5进世界杯淘汰赛0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
+- 2026-06-30 08:37 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-30 08:25 - [周冬雨多次说演不了话剧文城](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-30 08:37 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-30 08:42 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-30 08:35 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-30 08:23 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-30 08:27 - [巴拉圭点球大战淘汰德国进16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-30 08:33 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-30 08:35 - [泰山景区回应修建刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-30 08:25 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
+- 2026-06-30 08:29 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:29 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/568581113.shtml)
-- 2026-06-30 08:20 - [日本反击率先破门](http://www.blog.minike.top/Article/details/47202839.shtml)
-- 2026-06-30 08:36 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/237044.shtml)
-- 2026-06-30 08:34 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/959670818.shtml)
-- 2026-06-30 08:41 - [男子在京东买到“同仁堂”假药](http://www.blog.kurohicncr.top/Article/details/10321.shtml)
-- 2026-06-30 08:23 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/0558074.shtml)
-- 2026-06-30 08:17 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/34690.shtml)
-- 2026-06-30 08:26 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/2227103243.shtml)
-- 2026-06-30 08:21 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/3209667174.shtml)
-- 2026-06-30 08:41 - [美股](https://www.blog.minike.top/Article/details/606006.shtml)
-- 2026-06-30 08:35 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](http://www.share.kurohicncr.top/Article/details/89361.shtml)
-- 2026-06-30 08:33 - [巴西扳平比分](https://www.blog.kurohicncr.top/Article/details/07461964274.shtml)
-- 2026-06-30 08:14 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/4985480.shtml)
-- 2026-06-30 08:24 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/34325959121.shtml)
-- 2026-06-30 08:12 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/02909669.shtml)
+- 2026-06-30 08:36 - [勇士续约波尔津吉斯](https://www.share.minike.top/Article/details/379380215338.shtml)
+- 2026-06-30 08:45 - [Melo向柳智敏张元英道歉](http://www.blog.minike.top/Article/details/4084670965.shtml)
+- 2026-06-30 08:42 - [《共患难》](http://www.share.kurohicncr.top/Article/details/714247625.shtml)
+- 2026-06-30 08:23 - [勇士续约波尔津吉斯](https://www.share.kurohicncr.top/Article/details/02228782.shtml)
+- 2026-06-30 08:20 - [巴西醒醒 这是淘汰赛](http://www.blog.minike.top/Article/details/59294.shtml)
+- 2026-06-30 08:20 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/248185.shtml)
+- 2026-06-30 08:45 - [日本博主：日本足球真的垃圾](https://www.share.kurohicncr.top/Article/details/1320240197.shtml)
+- 2026-06-30 08:31 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.kurohicncr.top/Article/details/852041915.shtml)
+- 2026-06-30 08:21 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/3698118.shtml)
+- 2026-06-30 08:36 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://www.share.minike.top/Article/details/897573629848.shtml)
+- 2026-06-30 08:45 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/93016150327.shtml)
+- 2026-06-30 08:29 - [老外对中国cosplay竟这样评价…](http://www.blog.minike.top/Article/details/048791593583.shtml)
+- 2026-06-30 08:44 - [豆包收费了，你还会用吗？](https://www.blog.minike.top/Article/details/951638.shtml)
+- 2026-06-30 08:28 - [周冬雨多次说演不了话剧文城](https://www.share.kurohicncr.top/Article/details/7531199.shtml)
+- 2026-06-30 08:39 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.blog.kurohicncr.top/Article/details/002758558563.shtml)

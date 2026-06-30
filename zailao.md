@@ -1,59 +1,56 @@
-# 公安部公布一起涉高考网络谣言典型案例 造谣者已被行拘
+# 两大巨头宣布：稀土提价！连续七个季度调升！华宝基金有色ETF（159876）日k线低位上行，展现右侧信号？
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-中新网6月11日电 据“公安部网安局”微信公众号消息，公安部网安局11日公布了一起涉高考网络谣言典型案例。2026年6月5日，高考前夕，网络自媒体博主“方***倾听”发布一则信息，谎称“广东惠州一孤女模拟考648分，却遭亲舅舅烧书阻止参加高考”，该信息在社交媒体广泛传播，引发大量网民关注和讨论。经查，自媒体从业人员黄某(女，41岁)为蹭高考热度、博取关注、吸粉增流，实现引流带货
+或由于美伊首轮会谈未达成共识，特朗普宣布，封锁霍尔木兹海峡，原油价格上涨，现货黄金小幅回调，今日（4月13日）揽尽有色金属行业龙头的有色ETF华宝（159876）在水面附近震荡，场内价格盘中摸高0.46%，现跌0.46%，固然行情有所波动，但从日k线来看，自3月23日本轮低点以来，或已走出上行台阶，可能已经展现出低位上行的右侧信号。 成份股方面，华钰矿业领涨超6%，雅化集团、国
 
 ## 正文
 
-中新网6月11日电 据“公安部网安局”微信公众号消息，公安部网安局11日公布了一起涉高考网络谣言典型案例。
+或由于美伊首轮会谈未达成共识，特朗普宣布，封锁霍尔木兹海峡，原油价格上涨，现货黄金小幅回调，今日（4月13日）揽尽有色金属行业龙头的有色ETF华宝（159876）在水面附近震荡，场内价格盘中摸高0.46%，现跌0.46%，固然行情有所波动，但从日k线来看，自3月23日本轮低点以来，或已走出上行台阶，可能已经展现出低位上行的右侧信号。
 
-2026年6月5日，高考前夕，网络自媒体博主“方***倾听”发布一则信息，谎称“广东惠州一孤女模拟考648分，却遭亲舅舅烧书阻止参加高考”，该信息在社交媒体广泛传播，引发大量网民关注和讨论。
+成份股方面，华钰矿业领涨超6%，雅化集团、国城矿业涨逾5%，腾远钴业、盛新锂能等个股跟涨。
 
-经查，自媒体从业人员黄某(女，41岁)为蹭高考热度、博取关注、吸粉增流，实现引流带货牟利的目的，通过策划撰写剧本，雇用虚假连麦人员，编造上述不实信息，并在自媒体账号“方***倾听”发布，引发网民热议。
+稀土龙头北方稀土、中国稀土涨超1%，盛和资源涨近1%。
 
-经审讯，黄某对其违法行为供认不讳。
+另一方面，西部黄金跌超3%，湖南黄金、赤峰黄金跌逾2%，黄金股跌幅居前，拖累指数表现。
 
-目前，属地公安机关已依法对黄某予以行政拘留。
+消息面上，4月10日，包钢股份、北方稀土两稀土巨头宣布提价。
 
-网警提醒：网络空间并非法外之地，网络发言须严守法律法规。
+稀土精矿交易价格，自2024年第四季度以来已经连续七个季度调升。
 
-针对编造、传播网络谣言，扰乱公共秩序的行为，公安机关将依法严肃处理，坚决维护清朗网络空间。
+从2024年三季度触及16741元/吨的阶段低点后至今，稀土精矿价格已累计上涨22063元/吨，涨幅高达131.79%，即一年半时间，稀土精矿价格已实现翻倍增长。
+
+中信证券指出，全球稀土供给增速放缓，供给刚性逻辑加强。
 
 ## 相关推荐
 
-- 2026-06-30 08:31 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
-- 2026-06-30 08:33 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-30 08:12 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-30 08:18 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
-- 2026-06-30 08:12 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
-- 2026-06-30 08:36 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
-- 2026-06-30 08:33 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
-- 2026-06-30 08:26 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-30 08:27 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-30 08:26 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
-- 2026-06-30 08:41 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-30 08:13 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-30 08:28 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-30 08:12 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
-- 2026-06-30 08:26 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-30 08:33 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
+- 2026-06-30 08:39 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-30 08:29 - [郑钦文温网一轮游](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-30 08:36 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-30 08:29 - [日本队5进世界杯淘汰赛0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-30 08:26 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-30 08:26 - [索马里女大使：想和中国一起搞事业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-30 08:41 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-30 08:45 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-30 08:43 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:39 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.share.minike.top/Article/details/267371461.shtml)
-- 2026-06-30 08:21 - [Melo向柳智敏张元英道歉](http://www.share.kurohicncr.top/Article/details/69046.shtml)
-- 2026-06-30 08:41 - [巴拉圭点球大战淘汰德国进16强](http://www.blog.minike.top/Article/details/36068.shtml)
-- 2026-06-30 08:38 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/554516694.shtml)
-- 2026-06-30 08:12 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.minike.top/Article/details/732199506.shtml)
-- 2026-06-30 08:22 - [莫兰特转投开拓者效力](https://www.share.kurohicncr.top/Article/details/57564282.shtml)
-- 2026-06-30 08:17 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/8993429029.shtml)
-- 2026-06-30 08:16 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/83349307.shtml)
-- 2026-06-30 08:27 - [一生一世](https://www.blog.kurohicncr.top/Article/details/7996206.shtml)
-- 2026-06-30 08:12 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/12191557349.shtml)
-- 2026-06-30 08:38 - [王源近几年没有路演了](http://www.blog.minike.top/Article/details/571877780.shtml)
-- 2026-06-30 08:26 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/277533.shtml)
-- 2026-06-30 08:24 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/389746.shtml)
-- 2026-06-30 08:29 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/3331634.shtml)
-- 2026-06-30 08:37 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.minike.top/Article/details/297978997862.shtml)
+- 2026-06-30 08:20 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/793476391.shtml)
+- 2026-06-30 08:27 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/04348.shtml)
+- 2026-06-30 08:40 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/20414511575.shtml)
+- 2026-06-30 08:47 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/20450.shtml)
+- 2026-06-30 08:46 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/234507.shtml)
+- 2026-06-30 08:42 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/48805705404.shtml)
+- 2026-06-30 08:22 - [高考结束了，你会让孩子在家玩手机吗？](http://www.blog.kurohicncr.top/Article/details/586974750627.shtml)
+- 2026-06-30 08:20 - [男子身高一米八二仍做断骨增高](https://www.blog.minike.top/Article/details/0252655904.shtml)
+- 2026-06-30 08:41 - [警犬“多多”助民警寻回失联老人](http://www.share.minike.top/Article/details/77726079281.shtml)
+- 2026-06-30 08:44 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.kurohicncr.top/Article/details/51735203.shtml)
+- 2026-06-30 08:27 - [泰山景区回应修建刀片刺绳隔离网](https://www.share.minike.top/Article/details/40847592352.shtml)
+- 2026-06-30 08:25 - [孙兴慜发长文致歉](https://www.blog.minike.top/Article/details/481987393105.shtml)
+- 2026-06-30 08:35 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/222321.shtml)
+- 2026-06-30 08:25 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/54889.shtml)
+- 2026-06-30 08:21 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/227966734.shtml)

@@ -1,44 +1,59 @@
-# 加拿大：拟禁止16岁以下青少年注册社交媒体账号
+# 赛力斯康波：真正的创新不是一蹴而就，而是长期的坚持和积累
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月11日 19:46 来源：央视新闻 责任编辑：【王祎】
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。赛力斯集团副总裁康波出席并演讲。 康波指出，中国已经成为引领全球汽车产业绿色转型的核心力量。单打独斗的时代已经过去，面对技术迭代加速、供应链重构、全球化竞争加剧，唯有开放合作、跨界融合以及供应
 
 ## 正文
 
-发布时间：2026年06月11日 19:46 来源：央视新闻 责任编辑：【王祎】
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
+
+赛力斯集团副总裁康波出席并演讲。
+
+康波指出，中国已经成为引领全球汽车产业绿色转型的核心力量。
+
+单打独斗的时代已经过去，面对技术迭代加速、供应链重构、全球化竞争加剧，唯有开放合作、跨界融合以及供应链产业链协同才能赢得未来。
+
+他强调，真正的创新不是一蹴而就，而是长期的坚持和积累。
+
+在全球化电动化转型中，突出的挑战是转型难度大、发展不平衡、供应链协同难。
+
+如何构建一个高效、韧性、可持续性的全球供应链体系，赛力斯的选择是以开放合作构建共赢生态。
+
+康波表示，当前，中国车企面临着前所未有的机遇，全球消费者对中国制造的认可度正在迅速提升，汽车出海全面提速。
 
 ## 相关推荐
 
-- 2026-06-30 08:29 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
-- 2026-06-30 08:14 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-30 08:15 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
-- 2026-06-30 08:39 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-30 08:26 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-30 08:31 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-30 08:34 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
-- 2026-06-30 08:41 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-30 08:27 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
-- 2026-06-30 08:38 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
-- 2026-06-30 08:23 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
-- 2026-06-30 08:33 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-30 08:35 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-30 08:23 - [勇士续约波尔津吉斯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
+- 2026-06-30 08:36 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-30 08:31 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-30 08:32 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-30 08:40 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
+- 2026-06-30 08:43 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
+- 2026-06-30 08:35 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-30 08:20 - [田中碧失误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-30 08:22 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-30 08:43 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-30 08:23 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-30 08:19 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:26 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/20375408.shtml)
-- 2026-06-30 08:28 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/9736360.shtml)
-- 2026-06-30 08:40 - [全新问界M9现身美国街头](http://www.blog.kurohicncr.top/Article/details/719105.shtml)
-- 2026-06-30 08:34 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/888087994375.shtml)
-- 2026-06-30 08:13 - [张凌赫杨超越 峨眉](https://www.share.kurohicncr.top/Article/details/452685196790.shtml)
-- 2026-06-30 08:23 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/523011737874.shtml)
-- 2026-06-30 08:29 - [内马尔替补](https://www.blog.minike.top/Article/details/073275.shtml)
-- 2026-06-30 08:32 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](http://www.blog.minike.top/Article/details/177415843.shtml)
-- 2026-06-30 08:33 - [金牌调解](https://www.share.minike.top/Article/details/298907325.shtml)
-- 2026-06-30 08:13 - [扬名立万](http://www.share.kurohicncr.top/Article/details/238437.shtml)
-- 2026-06-30 08:26 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.minike.top/Article/details/939744170.shtml)
-- 2026-06-30 08:13 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.minike.top/Article/details/765528800953.shtml)
-- 2026-06-30 08:23 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/58914705972.shtml)
-- 2026-06-30 08:37 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/2943676.shtml)
-- 2026-06-30 08:21 - [卢卡申科发布解放军仪仗队视频](http://www.share.kurohicncr.top/Article/details/40651620.shtml)
+- 2026-06-30 08:32 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.minike.top/Article/details/8381594.shtml)
+- 2026-06-30 08:25 - [亚洲球队全部出局](https://www.share.kurohicncr.top/Article/details/0366138017.shtml)
+- 2026-06-30 08:20 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/95598215.shtml)
+- 2026-06-30 08:30 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/7502430096.shtml)
+- 2026-06-30 08:39 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/65100715254.shtml)
+- 2026-06-30 08:31 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/67899.shtml)
+- 2026-06-30 08:20 - [勇士续约波尔津吉斯](https://www.share.minike.top/Article/details/236216.shtml)
+- 2026-06-30 08:25 - [藤森庆子赢得秘鲁总统选举](https://www.share.kurohicncr.top/Article/details/8946651914.shtml)
+- 2026-06-30 08:21 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.minike.top/Article/details/624816704859.shtml)
+- 2026-06-30 08:41 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/47185902941.shtml)
+- 2026-06-30 08:24 - [4000美元是黄金新一轮下跌的开始吗](https://www.share.minike.top/Article/details/22560785632.shtml)
+- 2026-06-30 08:35 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/421139.shtml)
+- 2026-06-30 08:45 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/365316.shtml)
+- 2026-06-30 08:24 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/947472550118.shtml)
+- 2026-06-30 08:18 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/4600974.shtml)

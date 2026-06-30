@@ -1,56 +1,58 @@
-# 第40届香港国际旅游展开幕 展示多元文旅成果
+# 海南国际旅行卫生保健中心（海口海关口岸门诊部）实验室及普通医用耗材采购项目比选公告
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-中新网香港6月12日电 (记者 赵静怡)第40届香港国际旅游展11日在香港会议展览中心开幕。来自66个国家和地区的逾500家参展商齐聚一堂，通过推介会、洽谈会等多种方式，向海内外游客展示多元文旅成果。 展览主办机构汇众展览服务有限公司董事总经理汤锦成介绍，本次展览打造了怀旧旅行主题展区用以集中展示香港九大区域的旅游风貌，还设置了 AI 复古拍照体验区，旨在呼吁旅游业在深耕商务合
+一、采购条件 海南国际旅行卫生保健中心(海口海关口岸门诊部)实验室及普通医用耗材采购项目已获批准实施，项目业主为海南国际旅行卫生保健中心(海口海关口岸门诊部)，项目资金来自财政资金，项目出资比例为100%，采购人为海南国际旅行卫生保健中心(海口海关口岸门诊部)。项目已具备采购条件，现对该项目进行比选采购。 二、项目概况与采购范围 (一)项目名称：海南国际旅行卫生保健中心(海口海
 
 ## 正文
 
-中新网香港6月12日电 (记者 赵静怡)第40届香港国际旅游展11日在香港会议展览中心开幕。
+一、采购条件 海南国际旅行卫生保健中心(海口海关口岸门诊部)实验室及普通医用耗材采购项目已获批准实施，项目业主为海南国际旅行卫生保健中心(海口海关口岸门诊部)，项目资金来自财政资金，项目出资比例为100%，采购人为海南国际旅行卫生保健中心(海口海关口岸门诊部)。
 
-来自66个国家和地区的逾500家参展商齐聚一堂，通过推介会、洽谈会等多种方式，向海内外游客展示多元文旅成果。
+项目已具备采购条件，现对该项目进行比选采购。
 
-展览主办机构汇众展览服务有限公司董事总经理汤锦成介绍，本次展览打造了怀旧旅行主题展区用以集中展示香港九大区域的旅游风貌，还设置了 AI 复古拍照体验区，旨在呼吁旅游业在深耕商务合作的同时还要增添趣味体验。
+二、项目概况与采购范围 (一)项目名称：海南国际旅行卫生保健中心(海口海关口岸门诊部)实验室及普通医用耗材采购项目。
 
-记者在现场看到，来自不同国家和地区的参展商“各显神通”：多个参展人员身着特色民族服饰、在展区摆放特色美食吸引公众驻足；不少展商还推出互动游戏，邀请公众答题赢取电子现金券、机票船票等。
+(二)项目概况：为满足海南国际旅行卫生保健中心(海口海关口岸门诊部)业务需求，现对医用外科口罩、乙醇消毒液、免洗手皮肤消毒液等共104项耗材进行采购。
 
-中国内地展馆规模较往届扩大30%，涵盖20个省市，为全场最大展团，汇聚北京、上海、江苏、浙江等地的文旅资源，并设有20场地方推介会活动。
+(三)交货期：自约定达成起，根据采购人的需求分批次将指定品种和数量的货物送至采购人指定地点。
 
-其中，贵州展位通过多媒体展陈、微景观还原、非遗展示等多元形式，全方位呈现贵州世界级山地生态风光、浓郁民族风情与文旅新业态发展成果。
+(四)质量要求：符合国家及相关行业标准，交付的试剂耗材验收合格后剩余的有效期应超过整体有效期的三分之二。
 
-“香港是我们非常重要的细分客源市场。
+(五)免费质保期：每批次货品自该批次货品经采购人验收合格之日起180天或自启用之日起90天。
 
-”塞舌尔旅游局高级市场主任于森表示，此前塞舌尔主打蜜月旅行，随着游客选择的多元变化，当地更倾向展示海岛花岗岩巨石等生物多样性文旅内容。
+(六)送货地点：海南省海口市美兰区南贸大道6号A座、海南省三亚市吉阳区河东路475号。
 
 ## 相关推荐
 
-- 2026-06-30 08:31 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-30 08:13 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-30 08:37 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-30 08:32 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
-- 2026-06-30 08:21 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-30 08:28 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-30 08:37 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-30 08:25 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-30 08:12 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-30 08:15 - [齐思钧回复张月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-30 08:29 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-30 08:36 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-30 08:44 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
+- 2026-06-30 08:41 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-30 08:46 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-30 08:39 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
+- 2026-06-30 08:24 - [世界杯欧洲队7战南美仅1胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-30 08:44 - [穆祉丞回应获年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-30 08:40 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
+- 2026-06-30 08:25 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
+- 2026-06-30 08:43 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
+- 2026-06-30 08:32 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:18 - [斛珠夫人](http://www.blog.minike.top/Article/details/72465074.shtml)
-- 2026-06-30 08:12 - [千与千寻](http://www.share.kurohicncr.top/Article/details/7488143104.shtml)
-- 2026-06-30 08:35 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://www.share.kurohicncr.top/Article/details/9734440828.shtml)
-- 2026-06-30 08:14 - [输球后日本球迷被强行披上巴西国旗](http://www.blog.minike.top/Article/details/26848850924.shtml)
-- 2026-06-30 08:14 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/92189.shtml)
-- 2026-06-30 08:34 - [世界杯巴拉圭点球淘汰德国](https://www.share.kurohicncr.top/Article/details/052217128328.shtml)
-- 2026-06-30 08:36 - [佐野海舟远射破门](https://www.share.kurohicncr.top/Article/details/47097418308.shtml)
-- 2026-06-30 08:21 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/24048459.shtml)
-- 2026-06-30 08:38 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.minike.top/Article/details/883911843539.shtml)
-- 2026-06-30 08:29 - [德国队连续三届世界杯无缘16强](http://www.blog.kurohicncr.top/Article/details/9353420.shtml)
-- 2026-06-30 08:28 - [一见倾心](http://www.share.kurohicncr.top/Article/details/31317.shtml)
-- 2026-06-30 08:38 - [美股深夜大反弹 特斯拉飙涨8%](https://www.blog.minike.top/Article/details/097480980.shtml)
-- 2026-06-30 08:14 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](http://www.blog.minike.top/Article/details/859977.shtml)
-- 2026-06-30 08:17 - [藤森庆子赢得秘鲁总统选举](https://www.blog.minike.top/Article/details/87914.shtml)
-- 2026-06-30 08:25 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/70191862.shtml)
+- 2026-06-30 08:29 - [网红峡谷5人溺亡 有人提醒会下雨](https://www.share.kurohicncr.top/Article/details/17438800.shtml)
+- 2026-06-30 08:29 - [巴西在进攻三区完成210脚传球](http://www.blog.kurohicncr.top/Article/details/005263219911.shtml)
+- 2026-06-30 08:24 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/1683029488.shtml)
+- 2026-06-30 08:18 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](http://www.share.kurohicncr.top/Article/details/385726027133.shtml)
+- 2026-06-30 08:40 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/44926435451.shtml)
+- 2026-06-30 08:20 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/359262418.shtml)
+- 2026-06-30 08:39 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.minike.top/Article/details/408974109.shtml)
+- 2026-06-30 08:39 - [千万不要随便扣肚脐](https://www.share.kurohicncr.top/Article/details/72075664.shtml)
+- 2026-06-30 08:32 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/80301971.shtml)
+- 2026-06-30 08:35 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/74015.shtml)
+- 2026-06-30 08:43 - [沙丘](http://www.share.minike.top/Article/details/14414379.shtml)
+- 2026-06-30 08:36 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](http://www.share.kurohicncr.top/Article/details/655869993.shtml)
+- 2026-06-30 08:31 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.minike.top/Article/details/82570206524.shtml)
+- 2026-06-30 08:44 - [MSI应援曲 如果季中成回忆](http://www.blog.kurohicncr.top/Article/details/0519898.shtml)
+- 2026-06-30 08:23 - [金牌调解](https://www.share.minike.top/Article/details/26122188201.shtml)

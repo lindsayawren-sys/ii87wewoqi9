@@ -1,57 +1,58 @@
-# 广东采供血总量去年居内地首位
+# 数聚智连港股IPO：业务本质仍是经销商 毛利率垫底、存货逐年攀升 控股股东认定与前次发行不一致
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-中新网广州6月11日电 (记者 蔡敏婕)广东省卫生健康委员会11日举行第23个世界献血者日宣传活动媒体座谈会。记者从会上获悉，广东采供血总量去年位居内地首位。2025年，广东累计献血138.5万人次、采血量达228.25万单位。目前，血液尚无法人工合成，临床用血全部来自公众自愿无偿捐献，无偿献血是保障临床用血供应和安全的重要基础。 今年6月14日是第23个世界献血者日。广东省卫
+出品：新浪财经上市公司研究院 作者：渚 3月31日，数聚智连向联交所主板提交上市申请，这是其继2024年折戟创业板后的第二次IPO尝试，华兴资本为独家保荐人。 2024年，受国内电商存量市场内卷加剧的直接冲击，数聚智连业绩出现断崖式下跌，营收同比下滑13.5%，净利润暴跌88.6%，毛利率跌破20%，经营现金流收缩至0.59亿元。2025年，尽管业绩有所反弹，但盈利水平仍未回到
 
 ## 正文
 
-中新网广州6月11日电 (记者 蔡敏婕)广东省卫生健康委员会11日举行第23个世界献血者日宣传活动媒体座谈会。
+出品：新浪财经上市公司研究院 作者：渚 3月31日，数聚智连向联交所主板提交上市申请，这是其继2024年折戟创业板后的第二次IPO尝试，华兴资本为独家保荐人。
 
-记者从会上获悉，广东采供血总量去年位居内地首位。
+2024年，受国内电商存量市场内卷加剧的直接冲击，数聚智连业绩出现断崖式下跌，营收同比下滑13.5%，净利润暴跌88.6%，毛利率跌破20%，经营现金流收缩至0.59亿元。
 
-2025年，广东累计献血138.5万人次、采血量达228.25万单位。
+2025年，尽管业绩有所反弹，但盈利水平仍未回到2023年的高位，且经营现金流出现大幅恶化，全年经营性现金流为-1.41亿元，同比下滑340%，呈现出“增收不增现”的尴尬局面。
 
-目前，血液尚无法人工合成，临床用血全部来自公众自愿无偿捐献，无偿献血是保障临床用血供应和安全的重要基础。
+在买断经销模式下，数聚智连需先向品牌方或其授权分销商付款采购产品，取得商品的完整所有权，这意味着公司需全额承担库存风险。
 
-今年6月14日是第23个世界献血者日。
+同时，大规模采购需要占用大量资金，导致公司资金周转速度缓慢，财务成本居高不下，进一步加重了运营负担。
 
-广东省卫生健康委员会相关负责人表示，广东现已建成布局科学、运转高效的采供血服务网络，充足的血液储备，为全省常态化临床救治、应急医疗用血提供保障。
+截至今年1月底，存货余额及占流动资产的比例进一步提升至4.27亿元、50.66%，显著异于同行。
 
-在创新输血医学技术方面，广东在“亚洲型”DEL输注相容性、抗CD36介导的新生儿同种免疫性血小板减少症(FNAIT)、输血相关急性肺损伤(TRALI)等方面研究优势突出。
+前后两次发行关于控股股东认定不一致 数聚智连是一家以品效营销驱动销售的综合性全链路电子商务运营服务商，通过为国内外知名品牌提供包括品牌电商运营、渠道分销、品效营销等专业、高效、全链路的电商运营及营销服务，协助品牌提升在中国市场知名度及销售业绩，同时为消费者提供良好的购物体验。
 
-在特殊血型用血保障方面，2021年广州血液中心牵头建成内地规模最大的稀有血型资料库与实体库，为内地多地提供应急用血支援。
+数聚智连曾经系上市公司蓝色光标的子公司，曾用名为蓝标电商。
 
 ## 相关推荐
 
-- 2026-06-30 08:20 - [点球大战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-30 08:16 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-30 08:15 - [齐思钧回复张月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
-- 2026-06-30 08:21 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
-- 2026-06-30 08:17 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
-- 2026-06-30 08:28 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-30 08:25 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-30 08:34 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-30 08:20 - [第3集丨“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
-- 2026-06-30 08:18 - [德国连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-30 08:14 - [F1奥地利站赛后复盘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-30 08:47 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
+- 2026-06-30 08:28 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-30 08:47 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-30 08:36 - [王楚钦说配合稍微有些陌生感](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-30 08:39 - [日本五次世界杯淘汰赛全败](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-30 08:23 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-30 08:32 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-30 08:20 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-30 08:47 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
+- 2026-06-30 08:43 - [三星投资计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-30 08:30 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-30 08:25 - [森保一 保守](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:30 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/615102932.shtml)
-- 2026-06-30 08:35 - [巴西2-1绝杀日本](https://www.blog.minike.top/Article/details/5039488.shtml)
-- 2026-06-30 08:33 - [巴西扳平比分](https://www.blog.minike.top/Article/details/250893153096.shtml)
-- 2026-06-30 08:39 - [巴西半场0比1日本](https://www.blog.kurohicncr.top/Article/details/97482435014.shtml)
-- 2026-06-30 08:25 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/25516.shtml)
-- 2026-06-30 08:39 - [存储芯片龙头提示风险](https://www.blog.minike.top/Article/details/294126.shtml)
-- 2026-06-30 08:33 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/7069181543.shtml)
-- 2026-06-30 08:30 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/09887220325.shtml)
-- 2026-06-30 08:12 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/83454319.shtml)
-- 2026-06-30 08:40 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/3477530.shtml)
-- 2026-06-30 08:30 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.minike.top/Article/details/086127262.shtml)
-- 2026-06-30 08:37 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/8751847158.shtml)
-- 2026-06-30 08:34 - [日本遭读秒绝杀 森保一：我水平不够](https://www.share.minike.top/Article/details/785954318.shtml)
-- 2026-06-30 08:39 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/86092.shtml)
-- 2026-06-30 08:33 - [如果有二次元高中是什么样子的？](http://www.blog.minike.top/Article/details/0253985018.shtml)
+- 2026-06-30 08:35 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/3802920.shtml)
+- 2026-06-30 08:29 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://www.share.kurohicncr.top/Article/details/0215815654.shtml)
+- 2026-06-30 08:45 - [自然光｜papi酱&窦文涛：驴与跑步机](http://www.share.minike.top/Article/details/215451.shtml)
+- 2026-06-30 08:38 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/730737.shtml)
+- 2026-06-30 08:22 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/957010181119.shtml)
+- 2026-06-30 08:20 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](https://www.share.kurohicncr.top/Article/details/2952807.shtml)
+- 2026-06-30 08:34 - [金牌调解](https://www.share.minike.top/Article/details/998576500397.shtml)
+- 2026-06-30 08:26 - [锐评T1战胜KC](https://www.blog.minike.top/Article/details/950190286828.shtml)
+- 2026-06-30 08:26 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.blog.minike.top/Article/details/811729.shtml)
+- 2026-06-30 08:29 - [世界杯：德国vs巴拉圭](http://www.share.minike.top/Article/details/12978799244.shtml)
+- 2026-06-30 08:45 - [亚洲球队全部告别世界杯](http://www.blog.minike.top/Article/details/501294.shtml)
+- 2026-06-30 08:36 - [点球大战](http://www.blog.minike.top/Article/details/619147445.shtml)
+- 2026-06-30 08:25 - [巴拉圭率先破门](https://www.blog.kurohicncr.top/Article/details/94531.shtml)
+- 2026-06-30 08:25 - [男子在京东买到“同仁堂”假药](http://www.share.kurohicncr.top/Article/details/10006.shtml)
+- 2026-06-30 08:41 - [曝灰熊将莫兰特交易至开拓者](https://www.blog.minike.top/Article/details/88873.shtml)

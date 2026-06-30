@@ -1,61 +1,48 @@
-# 国家邮政局对极兔速递立案调查 回应：安全生产是不可逾越的红线，高度重视，全面整改
+# 第六届消博会启动在即 布展进入收尾阶段
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-新浪科技讯 6月11日午间消息，据国家邮政局官网消息，今年以来，使用“极兔速递”商标、字号、快递运单经营快递业务的企业多发生产安全事故，场所内多次被检查发现生产安全事故隐患。极兔速递有限公司对极兔速递相关企业安全生产管理缺位，未按规定实行安全保障统一管理，国家邮政局依法对极兔速递有限公司进行立案调查。 对此，极兔速递回应称，关于国家邮政局依法对极兔速递有限公司立案调查一事，极兔
+发布时间：2026年04月12日 13:26 来源：中国新闻网 以“开放引领全球消费，创新驱动美好生活”为主题的第六届中国国际消费品博览会将于4月13日至18日在海南举办。4月11日，记者在本届消博会的主会场海南国际会展中心内看到，各展区、展位搭建工作已全部结束，部分参展商正进行最后阶段的设备调试及展品陈列，各项工作有序推进。 作为海南自贸港全岛封关运作后的首届消博会，本届消博
 
 ## 正文
 
-新浪科技讯 6月11日午间消息，据国家邮政局官网消息，今年以来，使用“极兔速递”商标、字号、快递运单经营快递业务的企业多发生产安全事故，场所内多次被检查发现生产安全事故隐患。
+发布时间：2026年04月12日 13:26 来源：中国新闻网 以“开放引领全球消费，创新驱动美好生活”为主题的第六届中国国际消费品博览会将于4月13日至18日在海南举办。
 
-极兔速递有限公司对极兔速递相关企业安全生产管理缺位，未按规定实行安全保障统一管理，国家邮政局依法对极兔速递有限公司进行立案调查。
+4月11日，记者在本届消博会的主会场海南国际会展中心内看到，各展区、展位搭建工作已全部结束，部分参展商正进行最后阶段的设备调试及展品陈列，各项工作有序推进。
 
-对此，极兔速递回应称，关于国家邮政局依法对极兔速递有限公司立案调查一事，极兔速递中国区高度重视，诚恳接受，坚决服从、全力配合主管部门依法依规开展的各项调查工作。
+作为海南自贸港全岛封关运作后的首届消博会，本届消博会将有来自60多个国家和地区的超过3400个品牌参展。
 
-极兔速递表示，安全生产是企业不可逾越的红线。
-
-极兔中国深刻反思，深感作为品牌总部，在对使用“极兔速递”商标、字号、快递运单经营的部分企业落实安全保障统一管理责任方面存在差距和不足，教训深刻。
-
-对此极兔中国诚恳接受监督。
-
-极兔速递称，极兔中国已第一时间成立专项工作组，由安全负责人牵头，开展安全生产隐患排查整治工作，并承诺坚决做到：一是压实统一管理责任，进一步健全完善对各相关企业、加盟网点的统一安全管理制度与管控标准，明确中国区总部、代理区、转运中心、网点的四级安全责任链条；二是聚焦关键环节闭环整改，全面核查分拣装卸、车辆通行、设备运维、人员作业等关键环节风险点，建档立账、限期整改、闭环管理；三是持续加强一线人员安全保障，加强开展安全生产教育与岗位安全培训，增配现场安全员、防护设施与应急物资，切实提升一线人员安全意识与自救互救能力，坚决守牢安全底线。
-
-“极兔中国将以此次调查为深刻警醒，举一反三、即知即改，切实把整改要求落实到位，主动接受主管部门和社会各界监督，坚定维护邮政快递业安全稳定运行。
+(记者 李宇凡） 责任编辑：【卢岩】
 
 ## 相关推荐
 
-- 2026-06-30 08:24 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-30 08:27 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-30 08:40 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
-- 2026-06-30 08:16 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-30 08:18 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-30 08:18 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
-- 2026-06-30 08:18 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
-- 2026-06-30 08:33 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-30 08:18 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-30 08:15 - [全球芯片巨头史诗级扩产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-30 08:30 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-30 08:16 - [德国4比5巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-30 08:27 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
-- 2026-06-30 08:37 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
-- 2026-06-30 08:19 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-30 08:27 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-30 08:47 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-30 08:21 - [库尼亚赛后伸五指嘲讽日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
+- 2026-06-30 08:47 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-30 08:38 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
+- 2026-06-30 08:46 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-30 08:37 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-30 08:33 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-30 08:28 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-30 08:45 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:26 - [DeepSeek启动成立来最大规模招聘](http://www.share.minike.top/Article/details/144279126256.shtml)
-- 2026-06-30 08:27 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/213229743246.shtml)
-- 2026-06-30 08:36 - [城市规划有可能成为「屎山代码」吗？](http://www.share.kurohicncr.top/Article/details/42907397130.shtml)
-- 2026-06-30 08:26 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/386464263.shtml)
-- 2026-06-30 08:31 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/9871428784.shtml)
-- 2026-06-30 08:22 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](http://www.share.minike.top/Article/details/160091083.shtml)
-- 2026-06-30 08:32 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/519680.shtml)
-- 2026-06-30 08:30 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/11193452.shtml)
-- 2026-06-30 08:19 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.minike.top/Article/details/76356702.shtml)
-- 2026-06-30 08:26 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://www.blog.minike.top/Article/details/5063195.shtml)
-- 2026-06-30 08:29 - [高质量发展看新疆](http://www.blog.kurohicncr.top/Article/details/6502569.shtml)
-- 2026-06-30 08:34 - [田中碧失误](http://www.blog.minike.top/Article/details/8245127.shtml)
-- 2026-06-30 08:35 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/1363308.shtml)
-- 2026-06-30 08:41 - [王欣瑜晋级温网女单次轮](http://www.blog.minike.top/Article/details/006682.shtml)
-- 2026-06-30 08:22 - [内马尔替补](http://www.blog.minike.top/Article/details/452207673772.shtml)
+- 2026-06-30 08:46 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/51306.shtml)
+- 2026-06-30 08:27 - [网友写差评被店家“挂”门口避雷](http://www.share.minike.top/Article/details/450493616.shtml)
+- 2026-06-30 08:44 - [库尼亚赛后伸五指嘲讽日本](http://www.blog.kurohicncr.top/Article/details/19174.shtml)
+- 2026-06-30 08:20 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/02487951.shtml)
+- 2026-06-30 08:45 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/32744.shtml)
+- 2026-06-30 08:38 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/34060.shtml)
+- 2026-06-30 08:28 - [森保一致歉：世界第一目标没能实现](https://www.share.minike.top/Article/details/59681821.shtml)
+- 2026-06-30 08:31 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.kurohicncr.top/Article/details/13788150.shtml)
+- 2026-06-30 08:40 - [网友写差评被店家“挂”门口避雷](https://www.blog.kurohicncr.top/Article/details/36884.shtml)
+- 2026-06-30 08:35 - [日本反击率先破门](http://www.blog.kurohicncr.top/Article/details/674514244.shtml)
+- 2026-06-30 08:35 - [德国巴拉圭加时](https://www.share.minike.top/Article/details/04314117.shtml)
+- 2026-06-30 08:24 - [时光音乐会](http://www.share.minike.top/Article/details/531533778.shtml)
+- 2026-06-30 08:43 - [明星大侦探第一季](https://www.share.minike.top/Article/details/413156123.shtml)
+- 2026-06-30 08:22 - [全球最火存储ETF纳入兆易创新](https://www.blog.minike.top/Article/details/29385.shtml)
+- 2026-06-30 08:44 - [爆冷出局！德国点球大战不敌巴拉圭](http://www.blog.minike.top/Article/details/72822726226.shtml)

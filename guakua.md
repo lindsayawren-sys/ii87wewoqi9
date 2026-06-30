@@ -1,56 +1,56 @@
-# 沃什政策首秀在即 Pimco称市场关注其如何为美联储打上自身印记
+# 逆市狂飙！猪周期磨底信号频现，华宝基金农牧渔ETF（159275）盘中涨超1%！左侧布局时机到了？
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-品浩（Pimco）的管理人士表示，债券投资者将关注下周的美联储会议，以判断新任主席凯文·沃什会以多快速度为这家央行打上自己印记。 前美联储副主席、Pimco全球经济顾问Richard Clarida称，投资者仍在试图判断沃什将如何处理美联储与市场的沟通。 “回顾80年代的时候，可以理解的是，当一位新任美联储主席上任时，会有一段也许以周或月来衡量的时期，在这段时期里，你会试图了解
+农牧渔板块今日（4月13日）逆市大涨，全市场首只农牧渔ETF（159275）开盘后震荡拉升，盘中场内价格最高涨幅达到1.47%，截至发稿，涨0.94%。 成份股方面，畜牧养殖板块大面积上攻，截至发稿，天邦食品、华英农业双双涨停，立华股份、巨星农牧、正邦科技等涨超3%，新赛股份、金健米业、益客食品等多股涨超2%。 消息面上，当前猪价已创下多年新低。中航证券指出，当前生猪周期处于蛛
 
 ## 正文
 
-品浩（Pimco）的管理人士表示，债券投资者将关注下周的美联储会议，以判断新任主席凯文·沃什会以多快速度为这家央行打上自己印记。
+农牧渔板块今日（4月13日）逆市大涨，全市场首只农牧渔ETF（159275）开盘后震荡拉升，盘中场内价格最高涨幅达到1.47%，截至发稿，涨0.94%。
 
-前美联储副主席、Pimco全球经济顾问Richard Clarida称，投资者仍在试图判断沃什将如何处理美联储与市场的沟通。
+成份股方面，畜牧养殖板块大面积上攻，截至发稿，天邦食品、华英农业双双涨停，立华股份、巨星农牧、正邦科技等涨超3%，新赛股份、金健米业、益客食品等多股涨超2%。
 
-“回顾80年代的时候，可以理解的是，当一位新任美联储主席上任时，会有一段也许以周或月来衡量的时期，在这段时期里，你会试图了解制度框架和沟通情况，” Clarida周四在纽约举行的一场Pimco新闻活动上表示，“对我来说，真正的问题在于沃什会在多大程度上、以及如何在这种沟通上打上自己的印记并施加自己的重点。
+消息面上，当前猪价已创下多年新低。
 
-” 新任美联储主席沃什曾游说争取接替杰罗姆·鲍威尔担任这一职务，同时主张回归一种透明度较低的货币政策方式。
+中航证券指出，当前生猪周期处于蛛网模型下的正常调节阶段。
 
-沃什在4月份的参议院确认听证会上表示：“与我过去和现在的许多同事不同，我不相信前瞻指引。
+受养殖利润亏损、政策“反内卷”引导以及产能去化趋势影响，生猪板块配置价值凸显。
 
-” 债券投资者正在权衡可能出现的变化，包括联邦公开市场委员会声明缩短、取消点阵图，以及美联储主席举行更少新闻发布会。
+行业优势企业凭借成本管理、现金流改善及分红潜力，正逐步展现出较强的价值属性与红利属性。
 
-但如果央行提供的指引减少、行动的可预测性降低，并引发更多内部辩论并导致官员更经常提出异议，投资者将面对波动性更大的市场。
+财通证券认为，生猪板块当前处于周期左侧，未来能繁母猪产能加速出清或成为板块行情的核心催化剂。
 
-“从边际上看，沟通减少可能会造成略高一些的波动性和不确定性，而这或许可以通过主动管理带来更多回报，”Pimco首席投资官Daniel Ivascyn表示，“沃什领导下的美联储将在市场最关注的领域保持足够的独立性，主要是利率和资产负债表政策。
+行业面临猪价底部、仔猪价格回落明显、饲料原料价格上涨’等多重困境，行业或迎来能繁母猪产能的加速出清，下一轮上行周期景气度值得期待。
 
 ## 相关推荐
 
-- 2026-06-30 08:12 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-30 08:40 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-30 08:14 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-30 08:18 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
-- 2026-06-30 08:12 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-30 08:16 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-30 08:26 - [巴西扳平比分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-30 08:21 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
-- 2026-06-30 08:15 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-30 08:38 - [德国连续三届世界杯无缘16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-30 08:27 - [勇士续约波尔津吉斯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-30 08:22 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-30 08:43 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-30 08:33 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-30 08:46 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-30 08:36 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-30 08:39 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-30 08:22 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-30 08:30 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-30 08:22 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:20 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/1500029641.shtml)
-- 2026-06-30 08:16 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/8579662.shtml)
-- 2026-06-30 08:30 - [流金岁月](https://www.share.minike.top/Article/details/544813.shtml)
-- 2026-06-30 08:22 - [日本淘汰](http://www.share.minike.top/Article/details/125591592475.shtml)
-- 2026-06-30 08:38 - [德国队世界杯点球大战首败](https://www.share.minike.top/Article/details/41210416.shtml)
-- 2026-06-30 08:34 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](https://www.blog.kurohicncr.top/Article/details/32780713531.shtml)
-- 2026-06-30 08:39 - [巴西绝杀日本：漫画般结局换了主角](http://www.share.kurohicncr.top/Article/details/5348236.shtml)
-- 2026-06-30 08:23 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.kurohicncr.top/Article/details/77298993651.shtml)
-- 2026-06-30 08:33 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/943542733.shtml)
-- 2026-06-30 08:15 - [韩国道歉完日本道歉](https://www.share.kurohicncr.top/Article/details/21826717.shtml)
-- 2026-06-30 08:19 - [卡塞米罗头球破门](http://www.blog.minike.top/Article/details/16807806043.shtml)
-- 2026-06-30 08:13 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.kurohicncr.top/Article/details/560939967.shtml)
-- 2026-06-30 08:32 - [巴西2比1日本](https://www.share.minike.top/Article/details/83824.shtml)
-- 2026-06-30 08:39 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/421178.shtml)
-- 2026-06-30 08:38 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/22156.shtml)
+- 2026-06-30 08:25 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/92616586.shtml)
+- 2026-06-30 08:41 - [我和我的家乡](https://www.blog.minike.top/Article/details/476358922650.shtml)
+- 2026-06-30 08:41 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/73278388290.shtml)
+- 2026-06-30 08:37 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/23262151346.shtml)
+- 2026-06-30 08:30 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/9611949557.shtml)
+- 2026-06-30 08:34 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/2242346.shtml)
+- 2026-06-30 08:21 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/22453592.shtml)
+- 2026-06-30 08:22 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/84056444057.shtml)
+- 2026-06-30 08:24 - [日本遭读秒绝杀 森保一：我水平不够](http://www.blog.minike.top/Article/details/585321139101.shtml)
+- 2026-06-30 08:47 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.minike.top/Article/details/75852.shtml)
+- 2026-06-30 08:45 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](https://www.share.minike.top/Article/details/521239.shtml)
+- 2026-06-30 08:37 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/504067007692.shtml)
+- 2026-06-30 08:29 - [第3集丨“柠檬茶能换怀表？”](http://www.blog.minike.top/Article/details/3241890.shtml)
+- 2026-06-30 08:22 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](http://www.share.minike.top/Article/details/692980788.shtml)
+- 2026-06-30 08:23 - [杨紫被质疑未使用原名纯属误解](https://www.blog.kurohicncr.top/Article/details/4993371757.shtml)

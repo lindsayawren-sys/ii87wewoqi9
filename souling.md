@@ -1,59 +1,61 @@
-# 欧洲央行官员认为下一次加息最早可能在7月进行
+# 2026年全国教育科研工作会议在京举行
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-知情人士透露，欧洲央行官员不排除最早在下一次货币政策会议上再次加息的可能性。 尽管市场和经济学家普遍预计，欧洲央行决策者将在9月召开会议并更新季度预测时再次加息，但上述知情人士表示，出于对伊朗战争引发通胀的担忧，不能排除7月加息的可能性。 这些因讨论非公开事务不愿透露姓名的人士强调，如果在此期间通胀局势好转，欧洲央行仍可选择在7月维持利率不变。 欧洲央行周四进行了2023年以来
+中新网北京4月12日电 (记者 曾玥)记者从中国教育科学研究院获悉，2026年全国教育科研工作会议4月10至11日在北京举行。此次会议聚焦基础教育高质量发展的关键性与引领性议题，围绕基础教育发展战略暨义务教育法实施四十周年开展主题研讨。教育部党组成员、副部长、总督学王嘉毅出席会议并讲话。会议指出，党的十八大以来，我国基础教育取得了历史性成就、发生了格局性变化，各项关键指标显著提
 
 ## 正文
 
-知情人士透露，欧洲央行官员不排除最早在下一次货币政策会议上再次加息的可能性。
+中新网北京4月12日电 (记者 曾玥)记者从中国教育科学研究院获悉，2026年全国教育科研工作会议4月10至11日在北京举行。
 
-尽管市场和经济学家普遍预计，欧洲央行决策者将在9月召开会议并更新季度预测时再次加息，但上述知情人士表示，出于对伊朗战争引发通胀的担忧，不能排除7月加息的可能性。
+此次会议聚焦基础教育高质量发展的关键性与引领性议题，围绕基础教育发展战略暨义务教育法实施四十周年开展主题研讨。
 
-这些因讨论非公开事务不愿透露姓名的人士强调，如果在此期间通胀局势好转，欧洲央行仍可选择在7月维持利率不变。
+教育部党组成员、副部长、总督学王嘉毅出席会议并讲话。
 
-欧洲央行周四进行了2023年以来的首次加息。
+会议指出，党的十八大以来，我国基础教育取得了历史性成就、发生了格局性变化，各项关键指标显著提升。
 
-行长克里斯蒂娜·拉加德警告称，最初由能源成本飙升引发的通胀正向欧元区21国蔓延。
+“十五五”时期是贯彻落实民生为大、基教优先的关键阶段，基础教育改革发展既面临重要机遇，也面临诸多挑战。
 
-欧洲央行最新的经济展望显示，未来两年消费者价格将更快上涨，而需求疲软将拖累经济增长。
+要深刻把握时代变局、人口变化、教育功利化倾向、学生身心健康和人工智能快速发展带来的新要求、新考验。
 
-“中东战事正对经济活动构成拖累，各项调查也显示经济增长正在放缓，尤其是在服务业领域，”拉加德表示，“能源价格上涨将进一步推高夏季的通胀水平，并导致通胀率在2027年上半年持续高于目标水平。
+牢牢守住意识形态主阵地，精准配置教育资源，统筹推进学前教育优质普惠、义务教育优质均衡、高中教育优质特色发展，全面深入推进“人工智能+教育”，持续营造风清气正的教育生态。
 
-” 尽管英国和北美等地的央行目前按兵不动，但投资者预计欧洲央行将再进行两次存款利率上调。
+会议强调，教育科研是推动教育事业发展的战略引擎，必须切实发挥好教育科研作用，从学科发展逻辑向问题解决逻辑转变，加快AI+科研范式转型，构建能够指导教育强国建设的自主知识体系。
 
 ## 相关推荐
 
-- 2026-06-30 08:34 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-30 08:39 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
-- 2026-06-30 08:17 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
-- 2026-06-30 08:41 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
-- 2026-06-30 08:20 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-30 08:41 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-30 08:15 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
-- 2026-06-30 08:31 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-30 08:15 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-30 08:39 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-30 08:20 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-30 08:28 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-30 08:24 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-30 08:39 - [德国 传控](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-30 08:42 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-30 08:38 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-30 08:39 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-30 08:21 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-30 08:43 - [库尼亚赛后伸五指嘲讽日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-30 08:26 - [日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-30 08:38 - [齐思钧回复张月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-30 08:28 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-30 08:30 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
+- 2026-06-30 08:39 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-30 08:34 - [巴拉圭进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-30 08:43 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
+- 2026-06-30 08:38 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-30 08:31 - [锐评T1战胜KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:38 - [巴西替补奇兵读秒绝杀](http://www.blog.minike.top/Article/details/104061874.shtml)
-- 2026-06-30 08:30 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/62742956.shtml)
-- 2026-06-30 08:27 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.share.kurohicncr.top/Article/details/679529.shtml)
-- 2026-06-30 08:31 - [张雪的一句“是我们”引发岛内热议](https://www.share.kurohicncr.top/Article/details/827679.shtml)
-- 2026-06-30 08:16 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/88965.shtml)
-- 2026-06-30 08:35 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.kurohicncr.top/Article/details/24572956618.shtml)
-- 2026-06-30 08:12 - [德国巴拉圭进入点球大战](http://www.share.kurohicncr.top/Article/details/61389237646.shtml)
-- 2026-06-30 08:24 - [泰山建135公里刀片刺绳隔离网](https://www.share.kurohicncr.top/Article/details/4618163637.shtml)
-- 2026-06-30 08:31 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/304156255166.shtml)
-- 2026-06-30 08:41 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/14558317504.shtml)
-- 2026-06-30 08:33 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/30406096216.shtml)
-- 2026-06-30 08:25 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/715952.shtml)
-- 2026-06-30 08:16 - [人类...完蛋了...](https://www.share.kurohicncr.top/Article/details/38665065.shtml)
-- 2026-06-30 08:27 - [日耳曼拖拉机](https://www.share.minike.top/Article/details/59186.shtml)
-- 2026-06-30 08:36 - [委内瑞拉地震死亡人数升至1719人](https://www.blog.kurohicncr.top/Article/details/297472995657.shtml)
+- 2026-06-30 08:38 - [森保一致歉：世界第一目标没能实现](http://www.share.minike.top/Article/details/4149163.shtml)
+- 2026-06-30 08:41 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/57928.shtml)
+- 2026-06-30 08:44 - [F1奥地利站赛后复盘](http://www.blog.kurohicncr.top/Article/details/6601003607.shtml)
+- 2026-06-30 08:47 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/5122897918.shtml)
+- 2026-06-30 08:47 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/3968197850.shtml)
+- 2026-06-30 08:22 - [这几秒成世界杯最值钱广告位](http://www.share.minike.top/Article/details/5758593.shtml)
+- 2026-06-30 08:34 - [穆祉丞回应获年度人气艺人](http://www.share.kurohicncr.top/Article/details/41047.shtml)
+- 2026-06-30 08:25 - [德国队连续三届世界杯无缘16强](http://www.blog.minike.top/Article/details/8626099.shtml)
+- 2026-06-30 08:42 - [F1奥地利站赛后复盘](http://www.share.kurohicncr.top/Article/details/089022.shtml)
+- 2026-06-30 08:25 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/16938.shtml)
+- 2026-06-30 08:21 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/012686549803.shtml)
+- 2026-06-30 08:21 - [巴西绝杀日本](http://www.share.minike.top/Article/details/88030321693.shtml)
+- 2026-06-30 08:48 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/02987827366.shtml)
+- 2026-06-30 08:28 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/907396760664.shtml)
+- 2026-06-30 08:44 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/727391966564.shtml)

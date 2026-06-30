@@ -1,56 +1,60 @@
-# 清越科技涉嫌财务造假触及退市红线 中介机构火速启动先行赔付
+# 华为董事侯金龙：加快超充网络建设是推动重卡电动化可持续发展的关键
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 这家有着“清华基因”的科创板上市公司，终究没能跨过诚信的底线。2026年5月8日，清越科技正式收到中国证监会下发的《行政处罚事先告知书》，该公司涉嫌在IPO阶段及上市后持续进行财务造假，可能被实施重大违法强制退市。与此同时，保荐机构广发证券及审计机构立信会计师事务所已启动先行赔付，成为A股市场第六单先行赔付案例。 持续数年的财务
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。华为董事、华为数字能源总裁侯金龙出席并演讲。 侯金龙指出，面向汽车电动化产业，华为数字能源定位为运动与及重点网络解决方案的提供商。在智能电动领域，致力于帮助车企造好车，为用户带来极致的驾乘体验
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 这家有着“清华基因”的科创板上市公司，终究没能跨过诚信的底线。
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
 
-2026年5月8日，清越科技正式收到中国证监会下发的《行政处罚事先告知书》，该公司涉嫌在IPO阶段及上市后持续进行财务造假，可能被实施重大违法强制退市。
+华为董事、华为数字能源总裁侯金龙出席并演讲。
 
-与此同时，保荐机构广发证券及审计机构立信会计师事务所已启动先行赔付，成为A股市场第六单先行赔付案例。
+侯金龙指出，面向汽车电动化产业，华为数字能源定位为运动与及重点网络解决方案的提供商。
 
-持续数年的财务造假链条 公开资料显示，清越科技成立于2010年，主营PMOLED、电子纸模组与硅基OLED微显示器等产品，2022年12月登陆上交所科创板，保荐机构为广发证券。
+在智能电动领域，致力于帮助车企造好车，为用户带来极致的驾乘体验。
 
-公司创始人、实际控制人、董事长高裕弟是清华大学化学博士，是国内OLED显示领域的技术专家。
+在智能充电领域，致力于为运营商提供高质量的充电解决方案，为用户带来更优质的体验。
 
-然而，这份光环并未能遮掩公司在财务合规层面的暗疾。
+电动重卡走向开放场景，侯金龙认为，打造点线面的超充网络覆盖是关键，加快以兆瓦超充为主的超充网络是推动重卡电动化可持续发展的关键。
 
-2025年10月31日，清越科技公告收到证监会《立案告知书》，因公司涉嫌定期报告等财务数据虚假记载被正式立案调查。
+他提出三点建议： 第一，强化产业链的生态协同，包括车装网、运营商联合开展技术创新和商业协同，来供应发展的机遇。
 
-时隔半年，调查结果终于出炉。
+他认为，电动重卡物流的电动化转型是个非常大的发展机遇。
 
 ## 相关推荐
 
-- 2026-06-30 08:15 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
-- 2026-06-30 08:32 - [IGN评测电影版后室](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-30 08:20 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-30 08:25 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-30 08:28 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
-- 2026-06-30 08:15 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-30 08:37 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-30 08:13 - [索马里女大使：想和中国一起搞事业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-30 08:30 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
-- 2026-06-30 08:12 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
+- 2026-06-30 08:48 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-30 08:42 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-30 08:32 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-30 08:45 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
+- 2026-06-30 08:29 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
+- 2026-06-30 08:45 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-30 08:30 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-30 08:47 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
+- 2026-06-30 08:33 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-30 08:38 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-30 08:19 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-30 08:25 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-30 08:19 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-30 08:24 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:19 - [韩国球迷凌晨4点接机怒骂主教练](http://www.blog.minike.top/Article/details/01139.shtml)
-- 2026-06-30 08:22 - [森保一 保守](http://www.blog.kurohicncr.top/Article/details/6599708322.shtml)
-- 2026-06-30 08:41 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/718117331047.shtml)
-- 2026-06-30 08:38 - [巴西在进攻三区完成210脚传球](http://www.blog.kurohicncr.top/Article/details/300302.shtml)
-- 2026-06-30 08:18 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/724759338.shtml)
-- 2026-06-30 08:32 - [巴西绝杀日本：漫画般结局换了主角](https://www.blog.kurohicncr.top/Article/details/70750122098.shtml)
-- 2026-06-30 08:26 - [巴拉圭进球](https://www.blog.kurohicncr.top/Article/details/973560.shtml)
-- 2026-06-30 08:16 - [杨紫学位证上就是杨紫](http://www.blog.minike.top/Article/details/163741809.shtml)
-- 2026-06-30 08:13 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/15453.shtml)
-- 2026-06-30 08:23 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/24313769359.shtml)
-- 2026-06-30 08:33 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/4381806929.shtml)
-- 2026-06-30 08:33 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/69163825079.shtml)
-- 2026-06-30 08:14 - [南北多地暴雨和强对流天气持续](https://www.share.kurohicncr.top/Article/details/965267.shtml)
-- 2026-06-30 08:24 - [杨紫获白玉兰视后争议不止](http://www.blog.kurohicncr.top/Article/details/85955.shtml)
-- 2026-06-30 08:13 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/90638804.shtml)
+- 2026-06-30 08:20 - [王欣瑜2-1击败科恰雷托](http://www.blog.kurohicncr.top/Article/details/476438684.shtml)
+- 2026-06-30 08:26 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/5199760894.shtml)
+- 2026-06-30 08:41 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/04813697.shtml)
+- 2026-06-30 08:33 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/209216218203.shtml)
+- 2026-06-30 08:46 - [郑钦文温网一轮游](http://www.blog.kurohicncr.top/Article/details/46149857772.shtml)
+- 2026-06-30 08:30 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/21005.shtml)
+- 2026-06-30 08:29 - [刘宇宁是去进货了吗](http://www.blog.kurohicncr.top/Article/details/434565.shtml)
+- 2026-06-30 08:41 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/11749.shtml)
+- 2026-06-30 08:25 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.kurohicncr.top/Article/details/44204.shtml)
+- 2026-06-30 08:31 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/33238.shtml)
+- 2026-06-30 08:43 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/8848891885.shtml)
+- 2026-06-30 08:27 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.minike.top/Article/details/62524.shtml)
+- 2026-06-30 08:27 - [德国爆冷点球大战不敌巴拉圭](http://www.share.minike.top/Article/details/8499692.shtml)
+- 2026-06-30 08:27 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/332817890.shtml)
+- 2026-06-30 08:21 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.minike.top/Article/details/763203.shtml)

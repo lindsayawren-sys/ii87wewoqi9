@@ -1,56 +1,56 @@
-# 第三届中巴金融合作论坛在京召开
+# 从“门外汉”到“新农人”：海南“乡姐阿碧”的数字逆袭
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-来源：国家开发银行 6月9日，中国—巴西高层协调与合作委员会财金分委会（简称“中巴财金分委会”）项下第三届中国—巴西金融合作论坛（简称“中巴金融合作论坛”）在北京召开。本次论坛是中巴财金分委会第十二次会议配套活动，由中国财政部主办，中国国家开发银行承办，主题为 “金融助力多元发展，树立中巴南南合作典范”。 中国财政部副部长廖岷、巴西财政部副部长阿伦卡斯特罗出席论坛开幕式并致辞。
+中新网海口4月12日电 题：从“门外汉”到“新农人”：海南“乡姐阿碧”的数字逆袭 中新网记者 张茜翼 “没有天生的好命，就奋不顾身努力。”4月12日，在“开局之年看中国·开放自贸港”网络主题传播活动启动仪式上，海南农业网络达人江碧珍用这句话，为自己跌宕起伏的十年做出注脚。 现场掌声响起。这位来自海南陵水黎族自治县文罗镇放卓村的“85后”新农人，还有一个更亲切的名字——“乡姐阿碧
 
 ## 正文
 
-来源：国家开发银行 6月9日，中国—巴西高层协调与合作委员会财金分委会（简称“中巴财金分委会”）项下第三届中国—巴西金融合作论坛（简称“中巴金融合作论坛”）在北京召开。
+中新网海口4月12日电 题：从“门外汉”到“新农人”：海南“乡姐阿碧”的数字逆袭 中新网记者 张茜翼 “没有天生的好命，就奋不顾身努力。
 
-本次论坛是中巴财金分委会第十二次会议配套活动，由中国财政部主办，中国国家开发银行承办，主题为 “金融助力多元发展，树立中巴南南合作典范”。
+”4月12日，在“开局之年看中国·开放自贸港”网络主题传播活动启动仪式上，海南农业网络达人江碧珍用这句话，为自己跌宕起伏的十年做出注脚。
 
-中国财政部副部长廖岷、巴西财政部副部长阿伦卡斯特罗出席论坛开幕式并致辞。
+现场掌声响起。
 
-国开行董事长赵欢，巴西国家开发银行、巴中企业家委员会、巴西私人保险监管局有关负责人出席论坛开幕式并作主旨发言，巴西驻华使馆公使衔参赞马嘉良出席论坛。
+这位来自海南陵水黎族自治县文罗镇放卓村的“85后”新农人，还有一个更亲切的名字——“乡姐阿碧”。
 
-来自中国投资有限责任公司、中国进出口银行、中国工商银行、巴西全国保险公司、巴西石油公司等30余家金融机构和企业的代表参加论坛，围绕强化金融创新，推进绿色、农业、数智等领域投融资合作等议题进行深入交流。
+她是一名拥有超200万粉丝的短视频博主，也是累计帮助3000多位农户销售农产品的助农带头人。
 
-近年来，中巴两国政治互信不断提升，两国发展战略对接进展顺利，各领域务实合作成果丰硕。
+从谷底起步 江碧珍是广东人，2014年随丈夫从广东回到陵水农村。
 
-第三届中巴金融合作论坛的召开，有助于进一步深化中巴金融和企业界之间沟通交流、凝聚合作共识，更好服务中巴命运共同体建设。
+她种过圣女果、养过猪、开过包子店、酿过米酒，却屡遭挫折，日子一度跌入谷底。
 
-赵欢表示，国开行开展对巴西业务已近20年，在油气、矿业、电力、基础设施、金融合作、汽车与机械制造、海工装备制造、农产品加工等领域，助力一批重大标志性工程和“小而美”民生项目落地实施，为两国经济社会发展和改善民生作出积极贡献。
+“日子再难，只要人在，就有翻盘的机会。
 
 ## 相关推荐
 
-- 2026-06-30 08:28 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-30 08:13 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-30 08:22 - [德国连续三届世界杯无缘16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-30 08:40 - [感动全网的699分女生想报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
-- 2026-06-30 08:22 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-30 08:14 - [iPhone18e曝光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-30 08:32 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
-- 2026-06-30 08:35 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
-- 2026-06-30 08:38 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
-- 2026-06-30 08:27 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-30 08:32 - [莫兰特转投开拓者效力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
+- 2026-06-30 08:38 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-30 08:31 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
+- 2026-06-30 08:19 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-30 08:39 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-30 08:43 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-30 08:39 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-30 08:30 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-30 08:44 - [莫兰特被交易到开拓者](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-30 08:23 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:18 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/5415480.shtml)
-- 2026-06-30 08:16 - [徐亮怒斥世界杯踢假球](http://www.share.minike.top/Article/details/29698970.shtml)
-- 2026-06-30 08:39 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/969127296.shtml)
-- 2026-06-30 08:35 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/31760142597.shtml)
-- 2026-06-30 08:24 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.kurohicncr.top/Article/details/74890.shtml)
-- 2026-06-30 08:28 - [拆解FIFA和世界杯的暗面](https://www.blog.minike.top/Article/details/3119815816.shtml)
-- 2026-06-30 08:41 - [杨紫学位证上就是杨紫](https://www.blog.kurohicncr.top/Article/details/0296620.shtml)
-- 2026-06-30 08:28 - [王濛回复黄灿灿](http://www.blog.minike.top/Article/details/111257253.shtml)
-- 2026-06-30 08:19 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.kurohicncr.top/Article/details/74157.shtml)
-- 2026-06-30 08:33 - [王濛回复黄灿灿](http://www.blog.minike.top/Article/details/2470088.shtml)
-- 2026-06-30 08:26 - [郑钦文 四年一轮游](http://www.blog.kurohicncr.top/Article/details/882832909.shtml)
-- 2026-06-30 08:18 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/69875.shtml)
-- 2026-06-30 08:26 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://www.blog.minike.top/Article/details/3177937.shtml)
-- 2026-06-30 08:35 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/7181008706.shtml)
-- 2026-06-30 08:35 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/923282.shtml)
+- 2026-06-30 08:23 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/3707378.shtml)
+- 2026-06-30 08:28 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/89797414687.shtml)
+- 2026-06-30 08:43 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.minike.top/Article/details/82090.shtml)
+- 2026-06-30 08:36 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/6361678.shtml)
+- 2026-06-30 08:20 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/921274.shtml)
+- 2026-06-30 08:27 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/29776.shtml)
+- 2026-06-30 08:32 - [女子遭下药退赔偿拟追刑责](https://www.blog.minike.top/Article/details/69686971.shtml)
+- 2026-06-30 08:22 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/36775953.shtml)
+- 2026-06-30 08:35 - [金刚川](http://www.blog.kurohicncr.top/Article/details/42609.shtml)
+- 2026-06-30 08:30 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/2430211843.shtml)
+- 2026-06-30 08:26 - [巴西在进攻三区完成210脚传球](http://www.blog.minike.top/Article/details/093936986680.shtml)
+- 2026-06-30 08:27 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/8403117.shtml)
+- 2026-06-30 08:35 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/182152681583.shtml)
+- 2026-06-30 08:34 - [内马尔中场休息积极鼓励队友](https://www.share.minike.top/Article/details/34879488810.shtml)
+- 2026-06-30 08:39 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/0772125348.shtml)

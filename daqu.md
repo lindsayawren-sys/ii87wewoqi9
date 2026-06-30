@@ -1,56 +1,59 @@
-# SpaceX发行价敲定135美元，马斯克个人财富将达1.1万亿美元
+# 广西将组团参加第六届消博会 共享海南自贸港建设机遇
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-SpaceX周四宣布其首次公开募股（IPO）定价为每股135美元。此举将促成史上规模最大的IPO，募资额约为750亿美元。 这也将使埃隆·马斯克的个人财富达到惊人的1万亿美元，成为全球首位达到这一里程碑的亿万富翁。 根据福布斯和彭博的富豪榜，马斯克此前已是全球首富。如果他带领特斯拉汽车公司达成特定里程碑，他还将获得万亿美元的薪酬。而SpaceX的IPO将使他更早成为全球首位万亿
+中新网南宁4月10日电 (林浩)4月10日，广西壮族自治区商务厅介绍，为深化桂琼合作，共享海南自贸港建设机遇，广西将组建高规格代表团参加第六届中国国际消费品博览会，聚焦人工智能+消费、桂品出海、内外贸一体化、非遗活化、乡村振兴五大重点方向，精选广西14个地市的约64家广西优质企业、超350人参展参会。广西高度重视本届消博会，参会期间，将与海南签署相关协议，合力推进粤桂琼自贸试验
 
 ## 正文
 
-SpaceX周四宣布其首次公开募股（IPO）定价为每股135美元。
+中新网南宁4月10日电 (林浩)4月10日，广西壮族自治区商务厅介绍，为深化桂琼合作，共享海南自贸港建设机遇，广西将组建高规格代表团参加第六届中国国际消费品博览会，聚焦人工智能+消费、桂品出海、内外贸一体化、非遗活化、乡村振兴五大重点方向，精选广西14个地市的约64家广西优质企业、超350人参展参会。
 
-此举将促成史上规模最大的IPO，募资额约为750亿美元。
+广西高度重视本届消博会，参会期间，将与海南签署相关协议，合力推进粤桂琼自贸试验区(港)合作建设，深化在海事、旅游、物流、医疗、消费维权、育种等领域协作，共同加密北部湾港至海南港口的集装箱航线，拓展中国—东盟区域医药交易集采平台应用范围，促进桂琼两地创新链、政策链、资源链深度融合。
 
-这也将使埃隆·马斯克的个人财富达到惊人的1万亿美元，成为全球首位达到这一里程碑的亿万富翁。
+立足“北上广研发、广西集成、东盟应用”创新协同格局，广西还将以“潮起八桂智链全球，让国际消费更便利更美好！
 
-根据福布斯和彭博的富豪榜，马斯克此前已是全球首富。
+”为主题，设立广西馆，紧扣数字赋能、消费升级、开放共赢领域，按照智汇广西、智造桂品、桂韵新潮三大板块科学布局，同步特设东盟优品展示区，全方位展现广西智能制造硬实力、桂字号品牌影响力与中国—东盟开放合作新成果。
 
-如果他带领特斯拉汽车公司达成特定里程碑，他还将获得万亿美元的薪酬。
+“观众可以在展会上了解广西推动中国—东盟国家人工智能应用合作中心建设的成就，看到广西向海经济、汽车制造、数字硬件全链条发展成果，打卡体验广西非遗美食、民族康养与老字号茶酒，感受新时代壮美广西‘开放、创新、绿色、高质量’的发展图景。
 
-而SpaceX的IPO将使他更早成为全球首位万亿美元富翁，至少在账面上是如此。
+”广西商务厅相关负责人说。
 
-根据 SpaceX 披露的信息，马斯克持有该公司大约一半的股份，其中包括他在未来可能因将数据中心发射到太空和在火星上建立人类定居点等成就而赚取的股份。
+本届消博会上，广西还将与海南以“让国际消费更便利更美好”为主题，共同举办“潮涌消博会燃动北部湾——2026购在中国·广西主题推介活动”，推动两省区在规则对接、产业联动、通道协同、AI合作等领域落地一批合作项目，展现广西助力高标准建设海南自由贸易港，服务和融入新发展格局的具体成效，推动共建全球消费新高地。
 
-按周四公布的IPO价格计算，马斯克持有的SpaceX股份价值约8670亿美元。
+广西还将启动“购在中国·桂字号——广西品牌天下行”活动，助力广西优质品牌走向世界，开启桂琼消费协同发展全新篇章。
 
 ## 相关推荐
 
-- 2026-06-30 08:13 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-30 08:34 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-30 08:36 - [王楚钦孙颖莎晋级混双八强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-30 08:27 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-30 08:35 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
-- 2026-06-30 08:27 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
-- 2026-06-30 08:38 - [王濛回复黄灿灿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-30 08:28 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
-- 2026-06-30 08:16 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
-- 2026-06-30 08:38 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-30 08:38 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
+- 2026-06-30 08:45 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-30 08:21 - [德国罚丢3粒点球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-30 08:23 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-30 08:45 - [勇士续约波尔津吉斯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
+- 2026-06-30 08:21 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-30 08:41 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-30 08:47 - [德国淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-30 08:33 - [巴西绝杀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-30 08:34 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-30 08:40 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-30 08:28 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-30 08:30 - [杨紫大银幕成绩单如何](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:16 - [有什么好的高中网课推荐吗？](https://www.share.minike.top/Article/details/84646.shtml)
-- 2026-06-30 08:37 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/797557.shtml)
-- 2026-06-30 08:40 - [藤森庆子赢得秘鲁总统选举](http://www.blog.minike.top/Article/details/05544677.shtml)
-- 2026-06-30 08:24 - [王楚钦说配合稍微有些陌生感](https://www.share.minike.top/Article/details/15240124200.shtml)
-- 2026-06-30 08:33 - [啊啊啊](https://www.blog.minike.top/Article/details/78843112.shtml)
-- 2026-06-30 08:14 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/5786964964.shtml)
-- 2026-06-30 08:38 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/504914773528.shtml)
-- 2026-06-30 08:32 - [苗族银饰](http://www.blog.kurohicncr.top/Article/details/50275.shtml)
-- 2026-06-30 08:16 - [王楚钦说配合稍微有些陌生感](https://www.share.kurohicncr.top/Article/details/7048957.shtml)
-- 2026-06-30 08:21 - [巴西替补奇兵读秒绝杀](http://www.blog.kurohicncr.top/Article/details/59153.shtml)
-- 2026-06-30 08:23 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/7102220.shtml)
-- 2026-06-30 08:38 - [库尼亚赛后伸五指嘲讽日本](http://www.blog.kurohicncr.top/Article/details/8666717283.shtml)
-- 2026-06-30 08:21 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/483580139114.shtml)
-- 2026-06-30 08:35 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/204985.shtml)
-- 2026-06-30 08:37 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/2155656068.shtml)
+- 2026-06-30 08:43 - [女子清吧被陌生人投放伟哥](http://www.share.minike.top/Article/details/322915.shtml)
+- 2026-06-30 08:45 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.kurohicncr.top/Article/details/587740932339.shtml)
+- 2026-06-30 08:45 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/22410459.shtml)
+- 2026-06-30 08:29 - [又一家县级医院关停门诊输液大厅](http://www.share.minike.top/Article/details/5616019.shtml)
+- 2026-06-30 08:22 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/4854366122.shtml)
+- 2026-06-30 08:23 - [佐野海舟远射破门](https://www.blog.minike.top/Article/details/94273.shtml)
+- 2026-06-30 08:34 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/3011254.shtml)
+- 2026-06-30 08:18 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/05638981170.shtml)
+- 2026-06-30 08:30 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/5860615719.shtml)
+- 2026-06-30 08:31 - [吴易昺不敌德约科维奇 止步温网首轮](http://www.blog.kurohicncr.top/Article/details/2571330.shtml)
+- 2026-06-30 08:22 - [张雪的一句“是我们”引发岛内热议](https://www.share.minike.top/Article/details/7635027050.shtml)
+- 2026-06-30 08:38 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](http://www.share.kurohicncr.top/Article/details/85112911966.shtml)
+- 2026-06-30 08:45 - [开电动汽车真的很省钱吗？](https://www.share.minike.top/Article/details/5635137897.shtml)
+- 2026-06-30 08:44 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/603929822.shtml)
+- 2026-06-30 08:41 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/5209402.shtml)

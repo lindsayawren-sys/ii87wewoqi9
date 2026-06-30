@@ -1,57 +1,57 @@
-# 河北武邑：“云端”种田 无人农场高效抢三夏
+# 4月10日股票ETF整体净流出231.9亿元
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-人工智能成为推动中国外贸增长新引擎销量前十再无燃油车 “油退电进”按下加速键中国元素将亮相美加墨世界杯秘鲁前总理：AI时代，何以守护人类基本人权？岳云鹏：如果人生能多一个镜头，我想留给父亲炎炎夏日，古人如何避暑？美国网红想拍“落后的中国”，却被一群大凉山孩子追问爱泼斯坦巨星与新星，谁将加冕北美之夏？美国工厂里，没有童年封关半年看海南：一碗糟粕醋如何发酵“酸爽”大产业？2000年
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国基金报 记者：王思文 上周五（4月10日），A股三大指数集体收涨。上证指数涨0.51%，报收于3986.22点，盘中一度突破4000点整数关口；深证成指涨2.24%，创业板指涨3.78%，创2021年12月以来收盘新高。盘面上，券商、电工电网等行业板块涨幅居前，动力电池产业链概念股爆发。 在三大指
 
 ## 正文
 
-人工智能成为推动中国外贸增长新引擎销量前十再无燃油车 “油退电进”按下加速键中国元素将亮相美加墨世界杯秘鲁前总理：AI时代，何以守护人类基本人权？
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-岳云鹏：如果人生能多一个镜头，我想留给父亲炎炎夏日，古人如何避暑？
+来源：中国基金报 记者：王思文 上周五（4月10日），A股三大指数集体收涨。
 
-美国网红想拍“落后的中国”，却被一群大凉山孩子追问爱泼斯坦巨星与新星，谁将加冕北美之夏？
+上证指数涨0.51%，报收于3986.22点，盘中一度突破4000点整数关口；深证成指涨2.24%，创业板指涨3.78%，创2021年12月以来收盘新高。
 
-美国工厂里，没有童年封关半年看海南：一碗糟粕醋如何发酵“酸爽”大产业？
+盘面上，券商、电工电网等行业板块涨幅居前，动力电池产业链概念股爆发。
 
-2000年交往史，16载自贸情，这对贸易搭子的“含金量”还在上升新能源汽车不能再胖了苏州以资本之力蓄创新之势日本前众议长河野洋平去世 曾发表著名的“河野谈话”“世界第一碗面条”并非小麦制作，实证了什么？
+在三大指数集体上涨情况下，ETF市场资金选择“落袋为安”。
 
-“粤车南下”扩围大湾区“双向奔赴”再提速“鹅腿阿姨”塌房？
+4月10日，股票ETF资金净流出231.9亿元，与此同时，商品ETF与债券ETF资金净流入居前。
 
-相关部门已介入，微信平台提示其账号违反使用规范揭秘档案修裱：秉承最小干预原则 补纸选择有讲究成都一高校免费捞鱼900斤 祝愿毕业生“年年有余”蔡正元入狱2个月最新发声94%得票率！
+值得注意的是，各类宽基ETF资金流向分化显著。
 
-樊振东当选德甲赛季最佳三峡水库腾出防洪库容 长江万州段水位降至150米全国规模最大海上光氢储一体化项目建成吴石烈士孙女：我想对爷爷说，您的儿孙们一直坚守着沉默的荣耀宁夏冷凉蔬菜迎采收旺季 最快3天可抵大湾区杭州：四季繁花轮番登场 各有专属“花样浪漫”河北农业大学毕业典礼上 学生轮番整活把校长“忙坏了”津台萌娃一逗一捧：“咱说的都是中国话”女子穿旗袍配高跟鞋跳绳惊艳网友秦岭小虎队集体庆生 萌态十足迎“六一”云南西双版纳野象谷添“重量级”新丁航拍丹霞地貌神似“羊肉卷”没有“黑眼圈” 全球唯一野生白色大熊猫长大了北京天坛的奠基土来自山西后土祠？
+中证500ETF获得资金青睐，而沪深300ETF资金净流出明显；热门赛道证券板块、半导体板块、人工智能板块也成为资金流出“大户”。
 
 ## 相关推荐
 
-- 2026-06-30 08:39 - [郑钦文温网一轮游](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-30 08:34 - [郑钦文 四年一轮游](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-30 08:33 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
-- 2026-06-30 08:12 - [齐思钧回复张月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
-- 2026-06-30 08:40 - [萨内 看笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-30 08:41 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-30 08:32 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-30 08:40 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-30 08:38 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-30 08:22 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
-- 2026-06-30 08:36 - [诺伊尔尽力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-30 08:44 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-30 08:19 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-30 08:18 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-30 08:26 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-30 08:31 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-30 08:42 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-30 08:33 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-30 08:44 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
+- 2026-06-30 08:25 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-30 08:46 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-30 08:31 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:15 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/5828092893.shtml)
-- 2026-06-30 08:40 - [张帅时隔四年晋级温网第二轮](http://www.blog.minike.top/Article/details/231813931.shtml)
-- 2026-06-30 08:29 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/38537.shtml)
-- 2026-06-30 08:41 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://www.share.minike.top/Article/details/56821.shtml)
-- 2026-06-30 08:38 - [德国巴拉圭 折磨](http://www.blog.kurohicncr.top/Article/details/6487603.shtml)
-- 2026-06-30 08:25 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/31647583.shtml)
-- 2026-06-30 08:19 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/0545127.shtml)
-- 2026-06-30 08:35 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/46035272.shtml)
-- 2026-06-30 08:29 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/414510013484.shtml)
-- 2026-06-30 08:36 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/89796179593.shtml)
-- 2026-06-30 08:12 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.minike.top/Article/details/768694.shtml)
-- 2026-06-30 08:15 - [内马尔替补](http://www.blog.minike.top/Article/details/17791574171.shtml)
-- 2026-06-30 08:38 - [DeepSeek启动成立来最大规模招聘](http://www.share.minike.top/Article/details/95947.shtml)
-- 2026-06-30 08:29 - [莫兰特被交易到开拓者](http://www.share.kurohicncr.top/Article/details/457888426509.shtml)
-- 2026-06-30 08:14 - [千与千寻](https://www.share.minike.top/Article/details/0967422.shtml)
+- 2026-06-30 08:18 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/830139.shtml)
+- 2026-06-30 08:46 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/567275271.shtml)
+- 2026-06-30 08:34 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/47908392591.shtml)
+- 2026-06-30 08:32 - [德国连续三届世界杯无缘16强](https://www.share.minike.top/Article/details/87016256.shtml)
+- 2026-06-30 08:40 - [被巴西绝杀后 日球员田中碧跪地痛哭](http://www.share.minike.top/Article/details/491554214770.shtml)
+- 2026-06-30 08:20 - [巴西足球能否再现昔日荣光](https://www.blog.minike.top/Article/details/870744.shtml)
+- 2026-06-30 08:23 - [存储芯片龙头提示风险](https://www.share.kurohicncr.top/Article/details/19279586802.shtml)
+- 2026-06-30 08:29 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/998971491165.shtml)
+- 2026-06-30 08:21 - [王源近几年没有路演了](https://www.share.kurohicncr.top/Article/details/4634546.shtml)
+- 2026-06-30 08:40 - [王源近几年没有路演了](http://www.blog.minike.top/Article/details/238976735184.shtml)
+- 2026-06-30 08:39 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/13011096.shtml)
+- 2026-06-30 08:18 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.minike.top/Article/details/6990972635.shtml)
+- 2026-06-30 08:37 - [一生一世](http://www.share.minike.top/Article/details/34731999.shtml)
+- 2026-06-30 08:44 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/64989538.shtml)
+- 2026-06-30 08:30 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/887622.shtml)

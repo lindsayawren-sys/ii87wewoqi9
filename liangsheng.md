@@ -1,57 +1,59 @@
-# 泉州对台海运快件进口业务试点正式启动
+# 海泰发展（600082）被出具警示函，受损股民可索赔
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月11日 18:54 来源：中国新闻网 6月11日，经厦门海关所属泉州海关监管，一批86件、重700公斤的进口快件，从台湾台中港搭乘“丰泽园”船舶抵达泉州石湖港区后，立即运至晋江陆地港完成通关手续，标志着泉州对台海运快件业务试点正式启动。 此前，海关总署出台了《海关支持福建探索海峡两岸融合发展新路 建设两岸融合发展示范区十项措施》，支持泉州等地条件成熟时
+登录新浪财经APP 搜索【信披】查看更多考评等级 近期，天津海泰科技发展股份有限公司（证券简称：海泰发展（维权），证券代码：600082）及相关人员收到中国证券监督管理委员会天津监管局出具的《警示函》，指出公司存在信息披露违规问题。经查明，海泰发展存在未及时披露重大诉讼、未披露担保事项后续进展等违规行为。根据《中华人民共和国证券法》《上市公司信息披露管理办法》等相关规定，天津证
 
 ## 正文
 
-发布时间：2026年06月11日 18:54 来源：中国新闻网 6月11日，经厦门海关所属泉州海关监管，一批86件、重700公斤的进口快件，从台湾台中港搭乘“丰泽园”船舶抵达泉州石湖港区后，立即运至晋江陆地港完成通关手续，标志着泉州对台海运快件业务试点正式启动。
+登录新浪财经APP 搜索【信披】查看更多考评等级 近期，天津海泰科技发展股份有限公司（证券简称：海泰发展（维权），证券代码：600082）及相关人员收到中国证券监督管理委员会天津监管局出具的《警示函》，指出公司存在信息披露违规问题。
 
-此前，海关总署出台了《海关支持福建探索海峡两岸融合发展新路 建设两岸融合发展示范区十项措施》，支持泉州等地条件成熟时开展对台海运快件试点。
+经查明，海泰发展存在未及时披露重大诉讼、未披露担保事项后续进展等违规行为。
 
-晋江陆地港为福建省最大的进口快件监管现场，2025年泉州海关共监管进口快件达到273万件。
+根据《中华人民共和国证券法》《上市公司信息披露管理办法》等相关规定，天津证监局决定对公司及相关责任人采取出具警示函的监督管理措施。
 
-首批进口海运快件以日用品、家具装饰品等产品为主。
+海泰发展表示，公司将严格按照监管要求进行整改，加强相关法律法规学习，提升信息披露质量。
 
-该业务的启动，依托现有的“大三通”(泉州-台中)航线，将进一步缩短对台海运快件运输时效，大幅降低运输成本，为两岸经贸往来提供了更具性价比的物流选择，并为深化泉台全域交流合作筑牢了坚实根基。
+截至本公告披露日，公司尚未收到进一步的调查结论或行政处罚决定。
 
-为确保试点取得成功，泉州海关组建工作专班，对企业开展“一对一”政策宣传，指导规范申报，量身定制监管保障方案，并提前开展运行测试，为业务开通筑牢基础；通过智能审图、智慧物流等智能化系统运用，优化通关流程，以科技赋能提升监管质效；开辟“绿色通道”，实行预约通关服务，做到进口快件“即到、即验、即放”，最大限度提高通关效率，助推闽台经贸合作与两岸融合高质量发展。
+上海百悦律师事务所牛彬律师表示，海泰发展因信息披露违规被采取监管措施，受损投资者或可索赔。
 
-泉州系台湾同胞的主要祖籍地，泉州距台湾本岛仅97海里，且与台湾在历史、文化、语言、民俗等方面渊源深厚，开展对台经贸合作优势明显。
+暂定：于2022年4月30日至2026年2月28日之间买入海泰发展（600082），且在2026年2月28日之后卖出或仍持有该股票的亏损投资者符合索赔条件。
 
-近年来，泉州对台经贸往来稳步发展，今年前5个月，泉州与台湾地区进出口总值为29.7亿元人民币，同比增长10.5%。
+（海泰发展维权入口） 索赔材料： 一、买卖海泰发展（600082）股票的对账单原件 （1）对账单原件需要加盖证券公司营业部印章； （2）对账单从第一次买入海泰发展（600082）股票开始打到打印日当天，所有该股票的交易记录，目前仍持有该股票的投资者还须显示剩余持股总数。
 
 ## 相关推荐
 
-- 2026-06-30 08:12 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-30 08:21 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-30 08:15 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-30 08:32 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-30 08:35 - [郑钦文温网首轮出局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
-- 2026-06-30 08:41 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-30 08:40 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-30 08:38 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
-- 2026-06-30 08:39 - [德国爆冷点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-30 08:21 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-30 08:41 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-30 08:36 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-30 08:41 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-30 08:39 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-30 08:46 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-30 08:29 - [德国爆冷点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-30 08:25 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-30 08:36 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-30 08:27 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-30 08:39 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
+- 2026-06-30 08:22 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-30 08:20 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-30 08:37 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-30 08:19 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:21 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](https://www.share.kurohicncr.top/Article/details/066199043265.shtml)
-- 2026-06-30 08:33 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/5218495.shtml)
-- 2026-06-30 08:41 - [索马里女大使：想和中国一起搞事业](http://www.blog.minike.top/Article/details/22575770031.shtml)
-- 2026-06-30 08:35 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.share.minike.top/Article/details/608216.shtml)
-- 2026-06-30 08:16 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/6073803239.shtml)
-- 2026-06-30 08:35 - [世界杯：德国vs巴拉圭](https://www.blog.minike.top/Article/details/933498.shtml)
-- 2026-06-30 08:17 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/1762493.shtml)
-- 2026-06-30 08:22 - [曝iPhone18Pro机密文件现身暗网](https://www.share.kurohicncr.top/Article/details/374372107816.shtml)
-- 2026-06-30 08:21 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/736994126387.shtml)
-- 2026-06-30 08:30 - [齐思钧回复张月](http://www.share.minike.top/Article/details/94445938.shtml)
-- 2026-06-30 08:32 - [内马尔替补](http://www.share.minike.top/Article/details/76685.shtml)
-- 2026-06-30 08:15 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.kurohicncr.top/Article/details/986662.shtml)
-- 2026-06-30 08:23 - [董卿父亲在报纸上发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/942710.shtml)
-- 2026-06-30 08:35 - [郑钦文温网三连败西尼亚科娃](https://www.share.kurohicncr.top/Article/details/6697342.shtml)
-- 2026-06-30 08:31 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](http://www.blog.minike.top/Article/details/02163120775.shtml)
+- 2026-06-30 08:35 - [恋与深空道歉声明](http://www.share.kurohicncr.top/Article/details/49820908.shtml)
+- 2026-06-30 08:24 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/73840.shtml)
+- 2026-06-30 08:28 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/81156753.shtml)
+- 2026-06-30 08:37 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/130923898.shtml)
+- 2026-06-30 08:39 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/3494485880.shtml)
+- 2026-06-30 08:18 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/24350.shtml)
+- 2026-06-30 08:25 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/75677110114.shtml)
+- 2026-06-30 08:44 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/55992444.shtml)
+- 2026-06-30 08:42 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.kurohicncr.top/Article/details/877424806453.shtml)
+- 2026-06-30 08:33 - [巴拉圭点球大战淘汰德国进16强](https://www.blog.minike.top/Article/details/822445416.shtml)
+- 2026-06-30 08:29 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/563662914102.shtml)
+- 2026-06-30 08:27 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/7416022123.shtml)
+- 2026-06-30 08:32 - [张碧晨一开口梦回逐玉](https://www.blog.minike.top/Article/details/228499629.shtml)
+- 2026-06-30 08:41 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/0299217.shtml)
+- 2026-06-30 08:35 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/44738249020.shtml)

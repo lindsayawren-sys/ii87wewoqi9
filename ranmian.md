@@ -1,60 +1,56 @@
-# 三把“钥匙”破解义乌小商品出海“通关密码”
+# Onyx称如果美国真的封锁霍尔木兹海峡 油价或涨至每桶150美元
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-中新社北京6月11日电 (记者 刘文文)作为中国外贸的“风向标”，义乌在便利化通关和制度创新上一直走在前列。国务院新闻办公室11日举行中外记者见面会。谈及义乌小商品出口的“通关密码”，杭州海关所属义乌海关综合业务二科科长陈冰格分享了三把关键的“小钥匙”。 第一，首创贸易方式。义乌超过90%都是中小微企业，外国客商来义乌常常一次性采购上百种小商品，组货后出口就面临着品种多、批量小
+一位石油市场高管表示，如果美国按计划对霍尔木兹海峡实施海上封锁，油价应该会比目前水准高得多。 布伦特原油价格周一升至每桶103美元以上，此前华盛顿和德黑兰未在周末的谈判达成协议，加剧了这场震动市场的全球能源危机。美军将于纽约时间周一10：00开始实施封锁，该封锁适用于所有进出伊朗港口的船只。 Onyx Capital Group董事总经理Jorge Montepeque表示，今
 
 ## 正文
 
-中新社北京6月11日电 (记者 刘文文)作为中国外贸的“风向标”，义乌在便利化通关和制度创新上一直走在前列。
+一位石油市场高管表示，如果美国按计划对霍尔木兹海峡实施海上封锁，油价应该会比目前水准高得多。
 
-国务院新闻办公室11日举行中外记者见面会。
+布伦特原油价格周一升至每桶103美元以上，此前华盛顿和德黑兰未在周末的谈判达成协议，加剧了这场震动市场的全球能源危机。
 
-谈及义乌小商品出口的“通关密码”，杭州海关所属义乌海关综合业务二科科长陈冰格分享了三把关键的“小钥匙”。
+美军将于纽约时间周一10：00开始实施封锁，该封锁适用于所有进出伊朗港口的船只。
 
-第一，首创贸易方式。
+Onyx Capital Group董事总经理Jorge Montepeque表示，今天早上看到的数字——103美元；上涨8%——完全不能反映如果美国真的决定实施封锁将会发生什么。
 
-义乌超过90%都是中小微企业，外国客商来义乌常常一次性采购上百种小商品，组货后出口就面临着品种多、批量小、频次高的申报难题。
+这完全说不通。
 
-陈冰格介绍，为此摸索出了市场采购，简化申报，让中小微企业可以低成本、便捷参与到国际贸易中来。
+油价应该到140美元、150美元。
 
-这项改革现已复制推广到全国21个省(区、市)，带动全国的市场采购年出口额达到8477亿元人民币。
+Montepeque表示，美国的封锁可能将一场区域性冲突升级为一场全球性冲突，导致每日供应减少高达1，200万桶。
 
-第二，不断拓宽物流通道。
+“用一个词来形容就是：疯狂，”Montepeque在接受Haslinda Amin采访时说道。
 
 ## 相关推荐
 
-- 2026-06-30 08:33 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
-- 2026-06-30 08:18 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-30 08:33 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-30 08:37 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-30 08:40 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-30 08:41 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-30 08:22 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
-- 2026-06-30 08:28 - [马耳他著名拱门坍塌致一中国男子身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-30 08:20 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-30 08:34 - [巴西足球能否再现昔日荣光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
-- 2026-06-30 08:25 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
-- 2026-06-30 08:25 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
-- 2026-06-30 08:23 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-30 08:13 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-30 08:39 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-30 08:30 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-30 08:21 - [周冬雨多次说演不了话剧文城](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-30 08:25 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-30 08:22 - [如果有二次元高中是什么样子的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-30 08:45 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-30 08:34 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-30 08:18 - [马耳他著名拱门坍塌致中国男子身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-30 08:40 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-30 08:28 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:24 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/446859693371.shtml)
-- 2026-06-30 08:22 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.minike.top/Article/details/87071791.shtml)
-- 2026-06-30 08:30 - [我和我的家乡](http://www.share.minike.top/Article/details/418781969.shtml)
-- 2026-06-30 08:29 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/02709537.shtml)
-- 2026-06-30 08:17 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/931454.shtml)
-- 2026-06-30 08:23 - [世界杯巴拉圭点球淘汰德国](https://www.blog.minike.top/Article/details/4674242.shtml)
-- 2026-06-30 08:39 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/84234.shtml)
-- 2026-06-30 08:28 - [巴西醒醒 这是淘汰赛](http://www.blog.minike.top/Article/details/18999531.shtml)
-- 2026-06-30 08:29 - [藤森庆子赢得秘鲁总统选举](https://www.share.minike.top/Article/details/21800340542.shtml)
-- 2026-06-30 08:15 - [孙颖莎王楚钦晋级8强](https://www.share.minike.top/Article/details/136914.shtml)
-- 2026-06-30 08:13 - [王濛回复黄灿灿](http://www.blog.kurohicncr.top/Article/details/059945717.shtml)
-- 2026-06-30 08:28 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/5550742.shtml)
-- 2026-06-30 08:30 - [巴西扳平比分](http://www.share.kurohicncr.top/Article/details/694931369212.shtml)
-- 2026-06-30 08:39 - [巴西绝杀日本](http://www.share.minike.top/Article/details/9112980056.shtml)
-- 2026-06-30 08:16 - [DeepSeek启动成立来最大规模招聘](http://www.blog.kurohicncr.top/Article/details/80826056.shtml)
+- 2026-06-30 08:36 - [金刚川](https://www.share.kurohicncr.top/Article/details/394679141.shtml)
+- 2026-06-30 08:25 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/874155.shtml)
+- 2026-06-30 08:47 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/114297990187.shtml)
+- 2026-06-30 08:35 - [急先锋](http://www.blog.kurohicncr.top/Article/details/272769319.shtml)
+- 2026-06-30 08:40 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/5078177264.shtml)
+- 2026-06-30 08:22 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/3089363.shtml)
+- 2026-06-30 08:24 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/7347115.shtml)
+- 2026-06-30 08:38 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.minike.top/Article/details/50942629058.shtml)
+- 2026-06-30 08:43 - [自然光｜papi酱&窦文涛：驴与跑步机](http://www.share.minike.top/Article/details/170070226850.shtml)
+- 2026-06-30 08:35 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/2101442.shtml)
+- 2026-06-30 08:45 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/618379469293.shtml)
+- 2026-06-30 08:43 - [日本球迷被强行披上巴西国旗](https://www.blog.kurohicncr.top/Article/details/7302210962.shtml)
+- 2026-06-30 08:29 - [请回答王牌2019](http://www.blog.minike.top/Article/details/14428925.shtml)
+- 2026-06-30 08:39 - [“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/028600890.shtml)
+- 2026-06-30 08:38 - [恋与深空制作组回应近期争议](http://www.blog.minike.top/Article/details/694359225233.shtml)

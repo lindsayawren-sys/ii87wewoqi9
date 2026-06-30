@@ -1,56 +1,58 @@
-# 聚焦AI时代保障发展权 多国专家共议机遇与挑战
+# 书写山火救援与生态复绿 长篇小说《城头有座山》出版
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-中新社北京6月12日电 (记者 肖玉笛 胡默达)“2026·全球人权治理高端论坛”6月11日至12日在北京举行。在主题为“AI时代的发展权保障与新挑战”的分论坛上，多国与会专家学者普遍认为，在鼓励人工智能发展的同时，应对其加强治理，保障各领域发展权。 保加利亚《24小时报》特约撰稿人格奥尔吉·格奥尔吉埃夫说，人工智能正迅速崛起为全球变革性力量，在人权、人格尊严和发展权等方面带来
+中新网重庆4月12日电 (记者 钟旖)由重庆市江津区作协副主席徐华亮创作的长篇小说《城头有座山》，近期正式出版发行。小说以重庆北碚山火救援及后续缙云山生态重建为背景，讲述生态复绿、情感复绿和生命复绿的动人故事。 12日，在重庆自然博物馆举行的“如果生命是一片森林——长篇小说《城头有座山》新书发布暨广播剧《琼楠树下》演播推广会”上，记者获悉前述消息。 据介绍，新书《城头有座山》由
 
 ## 正文
 
-中新社北京6月12日电 (记者 肖玉笛 胡默达)“2026·全球人权治理高端论坛”6月11日至12日在北京举行。
+中新网重庆4月12日电 (记者 钟旖)由重庆市江津区作协副主席徐华亮创作的长篇小说《城头有座山》，近期正式出版发行。
 
-在主题为“AI时代的发展权保障与新挑战”的分论坛上，多国与会专家学者普遍认为，在鼓励人工智能发展的同时，应对其加强治理，保障各领域发展权。
+小说以重庆北碚山火救援及后续缙云山生态重建为背景，讲述生态复绿、情感复绿和生命复绿的动人故事。
 
-保加利亚《24小时报》特约撰稿人格奥尔吉·格奥尔吉埃夫说，人工智能正迅速崛起为全球变革性力量，在人权、人格尊严和发展权等方面带来重大挑战。
+12日，在重庆自然博物馆举行的“如果生命是一片森林——长篇小说《城头有座山》新书发布暨广播剧《琼楠树下》演播推广会”上，记者获悉前述消息。
 
-在《发展权利宣言》通过40周年之际，人工智能治理绝不是技术或监管问题，而是关乎人类基本权利的核心要务。
+据介绍，新书《城头有座山》由中国言实出版社出版，系徐华亮首部长篇小说。
 
-“人工智能应当服务于人，而非凌驾于人；应当赋能于人，而非取代于人。
+小说结合“救灾与复绿”“城市精神传承”双线叙事，通过一对摩托车志愿者恋人曹天生、丁小渝在灾难磨砺中的成长变化，聚焦一群志愿者的命运轨迹，勾勒出大时代里平民英雄的群像。
 
-”四川大学人权研究中心执行主任李成表示，在数智时代，有必要重申发展权“以人为中心”的基本理念，实现技术进步与人的全面发展的协调统一。
+小说用市井烟火气包裹宏大命题，不仅着墨山火救援，也关注生态建设“后半篇文章”，同时刻画出重庆人在时代大背景下经烈火淬炼，展现出的忠勇之魂、坚韧之志。
 
-华东政法大学数字法治研究院院长马长山认为，数字时代到来后，每个人既是生物人也是数字人，数字人权应当得到有力保护。
+“这部作品是对山火志愿者最真诚的致敬，是对缙云山重生的深情记录，是对重庆城市精神的生动诠释，更是当代文学扎根现实、回应时代的一次精彩实践。
 
-11日发布的《国家人权行动计划(2026-2030年)》中包含了这一点，体现了中国的重视和作为。
+”中国少数民族作家学会会长冉冉评价称，山火救援是刻在重庆人血脉里的特殊记忆，这部作品写得真、写得深、写得美，不只是一本文学著作，更是一部有温度、有筋骨、有力量的城市英雄史诗，做到了思想性与艺术性相融、生活质感与精神高度统一。
 
 ## 相关推荐
 
-- 2026-06-30 08:28 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-30 08:33 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-30 08:17 - [森保一 保守](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-30 08:15 - [女子遭下药退赔偿拟追刑责](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
-- 2026-06-30 08:38 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-30 08:35 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-30 08:38 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-30 08:32 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
-- 2026-06-30 08:31 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-30 08:33 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-30 08:24 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-30 08:36 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
+- 2026-06-30 08:19 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-30 08:29 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
+- 2026-06-30 08:46 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
+- 2026-06-30 08:40 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-30 08:46 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-30 08:45 - [巴西绝杀日本：漫画般结局换了主角](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-30 08:38 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-30 08:41 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
+- 2026-06-30 08:35 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-30 08:46 - [武磊：巴西队赢的并不轻松](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:17 - [男子醉酒溺水获救后同行人拒协助抬人](http://www.blog.minike.top/Article/details/98145.shtml)
-- 2026-06-30 08:34 - [张凌赫杨超越 峨眉](https://www.blog.kurohicncr.top/Article/details/7524588.shtml)
-- 2026-06-30 08:39 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/125127651.shtml)
-- 2026-06-30 08:17 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/11485.shtml)
-- 2026-06-30 08:28 - [曝老詹对自由市场态度与以往截然不同](http://www.share.minike.top/Article/details/84828240.shtml)
-- 2026-06-30 08:38 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/1579759376.shtml)
-- 2026-06-30 08:32 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/835406466454.shtml)
-- 2026-06-30 08:28 - [德国连续三届世界杯无缘16强](https://www.share.kurohicncr.top/Article/details/950706955703.shtml)
-- 2026-06-30 08:17 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/2526306.shtml)
-- 2026-06-30 08:13 - [我觉得你是在无中生友](https://www.blog.kurohicncr.top/Article/details/674651250.shtml)
-- 2026-06-30 08:18 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/0764735117.shtml)
-- 2026-06-30 08:18 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/77537283.shtml)
-- 2026-06-30 08:39 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.share.minike.top/Article/details/9637180.shtml)
-- 2026-06-30 08:29 - [杨紫被质疑未使用原名纯属误解](https://www.blog.minike.top/Article/details/8733999.shtml)
-- 2026-06-30 08:30 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/26965973867.shtml)
+- 2026-06-30 08:43 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.kurohicncr.top/Article/details/1202786.shtml)
+- 2026-06-30 08:26 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/79642.shtml)
+- 2026-06-30 08:34 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.minike.top/Article/details/793382383.shtml)
+- 2026-06-30 08:45 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/5798764.shtml)
+- 2026-06-30 08:28 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/345468027729.shtml)
+- 2026-06-30 08:29 - [德国罚丢3粒点球](https://www.share.kurohicncr.top/Article/details/06828643.shtml)
+- 2026-06-30 08:29 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/81171052.shtml)
+- 2026-06-30 08:23 - [王欣瑜2-1击败科恰雷托](https://www.share.kurohicncr.top/Article/details/85486487.shtml)
+- 2026-06-30 08:30 - [曝iPhone18Pro机密文件现身暗网](http://www.blog.kurohicncr.top/Article/details/84195775280.shtml)
+- 2026-06-30 08:47 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.kurohicncr.top/Article/details/191499960.shtml)
+- 2026-06-30 08:29 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/382091560.shtml)
+- 2026-06-30 08:35 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/9501890.shtml)
+- 2026-06-30 08:30 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/9419959998.shtml)
+- 2026-06-30 08:23 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/65579793.shtml)
+- 2026-06-30 08:41 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/89255984482.shtml)

@@ -1,60 +1,60 @@
-# 东北地区首单能源公募REITs获批
+# 重庆铜梁龙登顶中超榜首 “西部足球城”打造最宠球迷赛区
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-2026年6月10日，华泰三峡清洁能源封闭式基础设施证券投资基金（以下简称“本项目”）正式获得中国证监会准予注册的批复，成为我国东北地区首单获批的能源公募REITs项目，后续将在上海证券交易所挂牌上市。 本项目发起人及原始权益人为中国三峡新能源（集团）股份有限公司（简称“三峡能源”，股票代码：600905），基金管理人和专项计划管理人为华泰证券（上海）资产管理有限公司（简称“华
+中新网重庆4月12日电(记者 肖江川)11日晚，在2026中国足球超级联赛第5轮比赛中，重庆铜梁龙主场2比1战胜武汉三镇，积11分暂列积分榜第一名。 重庆铜梁龙足球队是一支流淌着“中华龙乡·重庆铜梁”血液的队伍，骨子里镌刻着“坚韧、忠勇、开放、争先”的重庆城市精神，“诞生于铜梁”是根，“代表重庆”是魂，“为重庆而战”是使命。 从中冠到中超，重庆铜梁龙用四年时间完成“三级跳”。2
 
 ## 正文
 
-2026年6月10日，华泰三峡清洁能源封闭式基础设施证券投资基金（以下简称“本项目”）正式获得中国证监会准予注册的批复，成为我国东北地区首单获批的能源公募REITs项目，后续将在上海证券交易所挂牌上市。
+中新网重庆4月12日电(记者 肖江川)11日晚，在2026中国足球超级联赛第5轮比赛中，重庆铜梁龙主场2比1战胜武汉三镇，积11分暂列积分榜第一名。
 
-本项目发起人及原始权益人为中国三峡新能源（集团）股份有限公司（简称“三峡能源”，股票代码：600905），基金管理人和专项计划管理人为华泰证券（上海）资产管理有限公司（简称“华泰证券资管”）。
+重庆铜梁龙足球队是一支流淌着“中华龙乡·重庆铜梁”血液的队伍，骨子里镌刻着“坚韧、忠勇、开放、争先”的重庆城市精神，“诞生于铜梁”是根，“代表重庆”是魂，“为重庆而战”是使命。
 
-本项目的底层资产为三峡新能源大连市庄河Ⅲ海上风电项目，项目位于辽宁省大连市庄河海域，并网容量29.88万千瓦，是我国东北地区首个全容量并网的海上风电项目。
+从中冠到中超，重庆铜梁龙用四年时间完成“三级跳”。
 
-作为三峡能源的控股股东，中国长江三峡集团有限公司（简称“三峡集团”）成立于1993年，是国务院国资委确定的首批创建世界一流示范企业之一，历经30多年持续高质量发展，已成为全球最大的水电开发运营企业和我国领先的清洁能源、生态环保集团。
+2026赛季，目前球队取得3胜2平，以不败的战绩暂列中超联赛积分榜首位。
 
-作为三峡集团新能源业务的战略实施主体，三峡能源坚定实施“海上风电引领者”战略，加快推进“沙戈荒”新能源基地建设，有序布局陆上常规新能源，积极拓展“新能源+”等新业务新业态，构建多能互补、协同发展的清洁能源新格局。
+为助力球队轻装上阵、全力征战中超，重庆市铜梁区与重庆铜梁龙足球俱乐部签署十年合作协议，构建了全方位的支持体系，为足球事业发展保驾护航。
 
-目前，三峡能源业务已覆盖全国30个省、自治区和直辖市，装机规模、盈利能力等居于国内同行业前列。
+从渝西小城到坐拥中超球队、构建全链条足球生态的“西部足球城”，铜梁仅用数年时间，便以“有温度、宠球迷、宠游客”的姿态，让每一位远道而来的球迷都能感受到城市的温暖。
 
-基金管理人华泰证券资管系华泰证券全资子公司，以“投资资管”+“投行资管”特有禀赋，持续发力公募REITs业务，已成功推动多单不同底层资产属性的公募REITs完成发行上市。
+重庆铜梁龙对阵武汉三镇的比赛，吸引了18326位球迷来到铜梁龙体育场为两支球队加油助威。
 
-截至本项目获批之日，在中国证监会和沪深交易所的大力支持下，全市场已有82只REITs产品上市，常态化发行效果显著，存量资产不断盘活，推动资本市场持续高质量发展。
+当天，为了迎接远道而来的球迷，包括铜梁区委在内的多个机关单位，免费开放停车场供球迷停车。
 
 ## 相关推荐
 
-- 2026-06-30 08:41 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-30 08:41 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
-- 2026-06-30 08:38 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-30 08:17 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-30 08:36 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-30 08:37 - [德国队连续三届世界杯无缘16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-30 08:30 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-30 08:13 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-30 08:39 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-30 08:14 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-30 08:22 - [周冬雨多次说演不了话剧文城](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-30 08:34 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-30 08:30 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-30 08:35 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-30 08:39 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-30 08:19 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-30 08:45 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
+- 2026-06-30 08:39 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
+- 2026-06-30 08:18 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-30 08:23 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-30 08:30 - [三星投资计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-30 08:45 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-30 08:35 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-30 08:32 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-30 08:41 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-30 08:28 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-30 08:34 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-30 08:38 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:18 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.kurohicncr.top/Article/details/198963.shtml)
-- 2026-06-30 08:14 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/376241.shtml)
-- 2026-06-30 08:41 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/92483818228.shtml)
-- 2026-06-30 08:22 - [陈幸同晋级WTT美国大满贯女单32强](https://www.blog.kurohicncr.top/Article/details/071065.shtml)
-- 2026-06-30 08:25 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/74781.shtml)
-- 2026-06-30 08:23 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/037034293872.shtml)
-- 2026-06-30 08:26 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.kurohicncr.top/Article/details/17664.shtml)
-- 2026-06-30 08:29 - [苗族银饰](http://www.share.minike.top/Article/details/2919136.shtml)
-- 2026-06-30 08:16 - [董卿父亲报纸上发文悼念亡妻](http://www.blog.minike.top/Article/details/01720100.shtml)
-- 2026-06-30 08:29 - [歌剧老师锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/299463.shtml)
-- 2026-06-30 08:23 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/09280.shtml)
-- 2026-06-30 08:38 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/705343.shtml)
-- 2026-06-30 08:20 - [武磊：日本队有能力跟任何强队抗衡](https://www.blog.minike.top/Article/details/81046277752.shtml)
-- 2026-06-30 08:33 - [存储芯片龙头提示风险](https://www.blog.kurohicncr.top/Article/details/0146756615.shtml)
-- 2026-06-30 08:31 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/87305.shtml)
+- 2026-06-30 08:46 - [王楚钦孙颖莎晋级混双八强](http://www.blog.kurohicncr.top/Article/details/49584.shtml)
+- 2026-06-30 08:38 - [花少8要去世界杯举办国](https://www.blog.minike.top/Article/details/81953928443.shtml)
+- 2026-06-30 08:26 - [曝詹姆斯即将与勇士会面](https://www.share.kurohicncr.top/Article/details/342915.shtml)
+- 2026-06-30 08:47 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/10260587087.shtml)
+- 2026-06-30 08:44 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/3159918.shtml)
+- 2026-06-30 08:36 - [日本遭读秒绝杀 森保一：我水平不够](http://www.share.kurohicncr.top/Article/details/61481977.shtml)
+- 2026-06-30 08:26 - [刘宇宁是去进货了吗](https://www.share.kurohicncr.top/Article/details/6617074.shtml)
+- 2026-06-30 08:26 - [天道](http://www.blog.kurohicncr.top/Article/details/62656769208.shtml)
+- 2026-06-30 08:43 - [问心2神一集鬼三集](https://www.share.kurohicncr.top/Article/details/4675937257.shtml)
+- 2026-06-30 08:47 - [板面：为什么那么多人爱吃？？！](https://www.blog.minike.top/Article/details/615880.shtml)
+- 2026-06-30 08:19 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/0868942608.shtml)
+- 2026-06-30 08:44 - [内马尔中场休息积极鼓励队友](https://www.share.kurohicncr.top/Article/details/003962.shtml)
+- 2026-06-30 08:43 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/1292556684.shtml)
+- 2026-06-30 08:45 - [大学生遇地震裹被子从5楼冲下](https://www.blog.minike.top/Article/details/7076638984.shtml)
+- 2026-06-30 08:46 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/15995289521.shtml)

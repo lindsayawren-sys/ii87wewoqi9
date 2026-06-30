@@ -1,58 +1,55 @@
-# 超150亿主力资金狂涌！有色金属领涨两市，同标的指数规模最大——有色ETF华宝（159876）涨超2.8%，多股涨停
+# OpenAI首席执行官住所再遭枪击
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-今日（6月11日）A股三大指数悉数飘绿，有色金属板块逆市领涨，截至发稿，获主力资金净流入超151亿元，板块吸金额高居31个申万一级行业首位！云南锗业获主力资金净流入19亿元，跻身A股吸金榜第二位。 热门ETF方面，同标的指数规模最大*的有色ETF华宝（159876）午后继续上攻，场内价格现涨2.85%，盘中收复5日均线，冲击日线3连阳！ 成份股方面，博威合金、海亮股份、金钼股份
+当地时间4月12日凌晨1点40分，OpenAI CEO萨姆·奥特曼（Sam Altman）的住所又被袭击，两名嫌疑人从车内向奥特曼的住所开枪，无人受伤。这次袭击距离奥特曼住所第一次被袭击隔了45小时45分钟。 目前，旧金山警察局宣布已逮捕了开枪的两名嫌疑人。他们分别是25岁的阿曼达·汤姆（Amanda Tom）和23岁的穆罕默德·塔里克·侯赛因（Muhamad Tarik Hu
 
 ## 正文
 
-今日（6月11日）A股三大指数悉数飘绿，有色金属板块逆市领涨，截至发稿，获主力资金净流入超151亿元，板块吸金额高居31个申万一级行业首位！
+当地时间4月12日凌晨1点40分，OpenAI CEO萨姆·奥特曼（Sam Altman）的住所又被袭击，两名嫌疑人从车内向奥特曼的住所开枪，无人受伤。
 
-云南锗业获主力资金净流入19亿元，跻身A股吸金榜第二位。
+这次袭击距离奥特曼住所第一次被袭击隔了45小时45分钟。
 
-热门ETF方面，同标的指数规模最大*的有色ETF华宝（159876）午后继续上攻，场内价格现涨2.85%，盘中收复5日均线，冲击日线3连阳！
+目前，旧金山警察局宣布已逮捕了开枪的两名嫌疑人。
 
-成份股方面，博威合金、海亮股份、金钼股份、国城矿业4股涨停，云南锗业涨超8%，永兴材料、盛新锂能等个股大幅跟涨。
+他们分别是25岁的阿曼达·汤姆（Amanda Tom）和23岁的穆罕默德·塔里克·侯赛因（Muhamad Tarik Hussein），因疏忽开枪被警方控制。
 
-2026年以来，多种小金属价格持续攀升。
+此前在当地时间4月10日凌晨3点45分，一名20岁男子向奥特曼的住所投掷燃烧弹，该装置烧毁了房屋外门，无人受伤。
 
-根据上海钢联数据，截至6月1日，钽锭价格较去年年底上涨157.69%、锗锭价格较去年年底上涨83.82%、钼铁价格较去年年底上涨35.65%。
-
-有业内人士表示，钽、锗、钼等小金属年内价格攀升，核心逻辑均指向供给刚性约束与新兴需求扩张的双重共振。
-
-供给侧来看，科技与稀缺共振，战略性矿产已成全球资源竞争的重要领域。
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-30 08:28 - [王楚钦说配合稍微有些陌生感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-30 08:35 - [曝老詹对自由市场态度与以往截然不同](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-30 08:39 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
-- 2026-06-30 08:23 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
-- 2026-06-30 08:31 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-30 08:21 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
-- 2026-06-30 08:26 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-30 08:12 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-30 08:41 - [韩国道歉完日本道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-30 08:29 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-30 08:14 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-30 08:24 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-30 08:18 - [韩国道歉完日本道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
+- 2026-06-30 08:33 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-30 08:21 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-30 08:21 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-30 08:47 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-30 08:36 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-30 08:20 - [媒体：手机测评该挤挤水分了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-30 08:25 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-30 08:43 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-30 08:40 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-30 08:35 - [网瘾賊大的阿嬷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
+- 2026-06-30 08:29 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-30 08:18 - [恋与深空道歉声明](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:21 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/956584939.shtml)
-- 2026-06-30 08:27 - [德国爆冷点球大战不敌巴拉圭](https://www.blog.kurohicncr.top/Article/details/29642.shtml)
-- 2026-06-30 08:22 - [DeepSeek V4正式版要来了](http://www.share.minike.top/Article/details/157136801933.shtml)
-- 2026-06-30 08:30 - [曝詹姆斯即将与勇士会面](https://www.share.kurohicncr.top/Article/details/579625755.shtml)
-- 2026-06-30 08:15 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.kurohicncr.top/Article/details/88532472.shtml)
-- 2026-06-30 08:38 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/57777086.shtml)
-- 2026-06-30 08:41 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/465183559876.shtml)
-- 2026-06-30 08:32 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/5794295.shtml)
-- 2026-06-30 08:20 - [点球大战](http://www.blog.kurohicncr.top/Article/details/93659.shtml)
-- 2026-06-30 08:16 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/49906169.shtml)
-- 2026-06-30 08:23 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/719374744.shtml)
-- 2026-06-30 08:38 - [德国 传控](http://www.blog.kurohicncr.top/Article/details/427882.shtml)
-- 2026-06-30 08:26 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/855795413099.shtml)
-- 2026-06-30 08:35 - [巴西2比1日本](http://www.blog.minike.top/Article/details/4303784.shtml)
-- 2026-06-30 08:36 - [南北多地暴雨和强对流天气持续](http://www.blog.kurohicncr.top/Article/details/00708.shtml)
+- 2026-06-30 08:25 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/3998978.shtml)
+- 2026-06-30 08:31 - [女子清吧被陌生人投放伟哥](http://www.share.minike.top/Article/details/5741928126.shtml)
+- 2026-06-30 08:22 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/3561835001.shtml)
+- 2026-06-30 08:33 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/442160811.shtml)
+- 2026-06-30 08:21 - [周冬雨多次说演不了话剧文城](https://www.blog.kurohicncr.top/Article/details/5020015521.shtml)
+- 2026-06-30 08:21 - [请回答王牌2019](http://www.share.minike.top/Article/details/9807764.shtml)
+- 2026-06-30 08:26 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/15131.shtml)
+- 2026-06-30 08:27 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/72611538820.shtml)
+- 2026-06-30 08:24 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.blog.minike.top/Article/details/59698.shtml)
+- 2026-06-30 08:42 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/504354306602.shtml)
+- 2026-06-30 08:31 - [德国罚丢3粒点球](https://www.blog.minike.top/Article/details/10761572.shtml)
+- 2026-06-30 08:42 - [日耳曼拖拉机](https://www.share.minike.top/Article/details/924774.shtml)
+- 2026-06-30 08:46 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/14001696619.shtml)
+- 2026-06-30 08:37 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.kurohicncr.top/Article/details/09935.shtml)
+- 2026-06-30 08:24 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.minike.top/Article/details/2837432.shtml)

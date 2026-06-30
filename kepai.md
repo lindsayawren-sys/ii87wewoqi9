@@ -1,44 +1,56 @@
-# 只是按个肩颈 为何会突发血栓
+# 在美国养育一名子女至成年的花费已超30万美元
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月11日 17:43 来源：央视新闻 责任编辑：【王祎】
+LendingTree借贷平台的一项最新研究显示，在美国将一名孩子抚养至18岁的平均总成本已达到303418美元。 不同州的总花费差异悬殊。夏威夷州是养育子女成本最高的地区，LendingTree预估总成本为412661美元；阿拉斯加州和马里兰州紧随其后，分别为365047美元与326360美元。与此同时，新罕布什尔州是养育成本最低的州，仅需201963美元，不到夏威夷州花费的
 
 ## 正文
 
-发布时间：2026年06月11日 17:43 来源：央视新闻 责任编辑：【王祎】
+LendingTree借贷平台的一项最新研究显示，在美国将一名孩子抚养至18岁的平均总成本已达到303418美元。
+
+不同州的总花费差异悬殊。
+
+夏威夷州是养育子女成本最高的地区，LendingTree预估总成本为412661美元；阿拉斯加州和马里兰州紧随其后，分别为365047美元与326360美元。
+
+与此同时，新罕布什尔州是养育成本最低的州，仅需201963美元，不到夏威夷州花费的一半。
+
+为3岁与4岁儿童提供免费学前教育的华盛顿哥伦比亚特区，以及南卡罗来纳州，分列养育成本最低地区的第二、三位。
+
+受房租与服装成本大幅上涨影响，育儿成本同比上涨1.9%。
+
+LendingTree数据显示，平均房租已从2025年上一次调查时的1128美元飙升至今年的1680美元，涨幅接近50%；服装成本同比涨幅超过25%。
+
+该研究作者、LendingTree首席消费金融分析师马特・舒尔茨在接受采访时表示：“通胀显然正在给人们带来沉重压力，这无疑也是育儿成本出现如此大幅增长的原因之一。
 
 ## 相关推荐
 
-- 2026-06-30 08:15 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-30 08:27 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
-- 2026-06-30 08:28 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-30 08:37 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
-- 2026-06-30 08:16 - [亚洲球队全部出局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
-- 2026-06-30 08:25 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-30 08:35 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-30 08:12 - [高质量发展看新疆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
-- 2026-06-30 08:38 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-30 08:24 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-30 08:25 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
-- 2026-06-30 08:36 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-30 08:35 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
+- 2026-06-30 08:26 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-30 08:35 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-30 08:47 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-30 08:33 - [董路：谁赢谁是“正路子”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-30 08:41 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-30 08:29 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
+- 2026-06-30 08:20 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-30 08:43 - [日本球迷被强行披上巴西国旗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-30 08:28 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:13 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/74961638407.shtml)
-- 2026-06-30 08:19 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/658721.shtml)
-- 2026-06-30 08:29 - [曝灰熊将莫兰特交易至开拓者](https://www.blog.kurohicncr.top/Article/details/993545256.shtml)
-- 2026-06-30 08:29 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/083552425.shtml)
-- 2026-06-30 08:30 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/744283306.shtml)
-- 2026-06-30 08:37 - [院士：太空轨道必须抢](http://www.blog.minike.top/Article/details/556730.shtml)
-- 2026-06-30 08:14 - [高考结束了，你会让孩子在家玩手机吗？](https://www.blog.kurohicncr.top/Article/details/569019804475.shtml)
-- 2026-06-30 08:41 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.kurohicncr.top/Article/details/651952.shtml)
-- 2026-06-30 08:14 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/878086603999.shtml)
-- 2026-06-30 08:40 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/7784845.shtml)
-- 2026-06-30 08:19 - [天道](https://www.share.kurohicncr.top/Article/details/162269509259.shtml)
-- 2026-06-30 08:35 - [巴西2比1日本](http://www.share.minike.top/Article/details/2861845283.shtml)
-- 2026-06-30 08:39 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/1346419.shtml)
-- 2026-06-30 08:22 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/1085021512.shtml)
-- 2026-06-30 08:33 - [郑钦文温网一轮游](http://www.blog.minike.top/Article/details/4793900.shtml)
+- 2026-06-30 08:32 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/43119735.shtml)
+- 2026-06-30 08:21 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/96151035024.shtml)
+- 2026-06-30 08:27 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.minike.top/Article/details/87821002908.shtml)
+- 2026-06-30 08:26 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/14504344861.shtml)
+- 2026-06-30 08:45 - [巴西绝杀日本](https://www.blog.minike.top/Article/details/56315320.shtml)
+- 2026-06-30 08:39 - [美人鱼](https://www.share.minike.top/Article/details/63745109624.shtml)
+- 2026-06-30 08:21 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/4269831771.shtml)
+- 2026-06-30 08:33 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/139537231.shtml)
+- 2026-06-30 08:44 - [森保一 保守](http://www.share.minike.top/Article/details/67755.shtml)
+- 2026-06-30 08:40 - [博世们还在犹豫 美的们已经卖断货](http://www.share.kurohicncr.top/Article/details/97636221449.shtml)
+- 2026-06-30 08:26 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/8208977394.shtml)
+- 2026-06-30 08:23 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/96259591841.shtml)
+- 2026-06-30 08:40 - [【大鸣王潮1566】真拿你没办法](http://www.blog.minike.top/Article/details/191981003951.shtml)
+- 2026-06-30 08:46 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/357863993355.shtml)
+- 2026-06-30 08:41 - [马耳他著名拱门坍塌致中国男子身亡](https://www.share.kurohicncr.top/Article/details/6654968434.shtml)

@@ -1,54 +1,50 @@
-# 晶澳科技将于6月26日召开股东会审议下修可转债转股价格的议案
+# 蔚来李斌：蔚来的车用的时间越长，保值率越好
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-上证报中国证券网讯6月11日，晶澳科技公告披露，公司将于6月26日15:30在北京诺德中心8号楼8层会议室召开股东会，审议下修可转债转股价格的议案。本次股东会的股权登记日为6月22日。值得注意的是，向下修正转股价格须经出席会议的股东所持表决权的三分之二以上通过方可实施。股东会进行表决时，持有本次可转债的股东应当回避。修正后的转股价格应不低于股东会召开日前二十个交易日公司股票交易
+专题：智能电动汽车发展高层论坛（2026） 新浪科技讯 4月11日上午消息，2026智能电动汽车发展高层论坛举行，蔚来汽车创始人、董事长、CEO李斌与新浪科技等媒体进行对话。 谈及近期蔚来及乐道二手车量价齐升的情况，李斌分析：“量的增加可能是因为我们的保有量增加了。价的提升，我想可能因为蔚来的车用的时间越长，车辆的保值率就越好，这也是跟我们的换电体系及整个体系化的创新优势有关。
 
 ## 正文
 
-上证报中国证券网讯6月11日，晶澳科技公告披露，公司将于6月26日15:30在北京诺德中心8号楼8层会议室召开股东会，审议下修可转债转股价格的议案。
+专题：智能电动汽车发展高层论坛（2026） 新浪科技讯 4月11日上午消息，2026智能电动汽车发展高层论坛举行，蔚来汽车创始人、董事长、CEO李斌与新浪科技等媒体进行对话。
 
-本次股东会的股权登记日为6月22日。
+谈及近期蔚来及乐道二手车量价齐升的情况，李斌分析：“量的增加可能是因为我们的保有量增加了。
 
-值得注意的是，向下修正转股价格须经出席会议的股东所持表决权的三分之二以上通过方可实施。
+价的提升，我想可能因为蔚来的车用的时间越长，车辆的保值率就越好，这也是跟我们的换电体系及整个体系化的创新优势有关。
 
-股东会进行表决时，持有本次可转债的股东应当回避。
-
-修正后的转股价格应不低于股东会召开日前二十个交易日公司股票交易均价和前一交易日公司股票交易均价，且修正后的价格不低于最近一期经审计的每股净资产值和股票面值。
-
-如股东会召开时，上述任意一个指标高于本次调整前“晶澳转债”的转股价格(11.66元/股)，则“晶澳转债”转股价格无需调整。
-
-(刘明杰)
+”责任编辑：郝欣煜
 
 ## 相关推荐
 
-- 2026-06-30 08:29 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-30 08:21 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-30 08:24 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-30 08:35 - [莫兰特被交易到开拓者](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-30 08:26 - [巴西绝杀日本：漫画般结局换了主角](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-30 08:41 - [索马里女大使：想和中国一起搞事业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-30 08:17 - [点球大战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-30 08:19 - [全新问界M9现身美国街头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-30 08:24 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
-- 2026-06-30 08:32 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-30 08:36 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-30 08:46 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-30 08:26 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-30 08:23 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-30 08:42 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-30 08:24 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-30 08:35 - [第3集丨“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-30 08:21 - [全球芯片巨头史诗级扩产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-30 08:27 - [美股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-30 08:30 - [iPhone18e曝光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-30 08:39 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-30 08:38 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:33 - [世界杯“美洲德比”7月1日开打](https://www.blog.kurohicncr.top/Article/details/936830.shtml)
-- 2026-06-30 08:32 - [美股](http://www.blog.kurohicncr.top/Article/details/2445321.shtml)
-- 2026-06-30 08:15 - [曝詹姆斯即将与勇士会面](https://www.blog.kurohicncr.top/Article/details/5578695.shtml)
-- 2026-06-30 08:12 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/49076.shtml)
-- 2026-06-30 08:39 - [巴西vs日本](http://www.share.kurohicncr.top/Article/details/20954982687.shtml)
-- 2026-06-30 08:12 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/73012347909.shtml)
-- 2026-06-30 08:32 - [媒体：手机测评该挤挤水分了](http://www.blog.kurohicncr.top/Article/details/902893094524.shtml)
-- 2026-06-30 08:12 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.minike.top/Article/details/6419354160.shtml)
-- 2026-06-30 08:19 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/035469085280.shtml)
-- 2026-06-30 08:29 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/834678012542.shtml)
-- 2026-06-30 08:33 - [德国连续三届世界杯无缘16强](http://www.blog.minike.top/Article/details/850637.shtml)
-- 2026-06-30 08:36 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/69023209.shtml)
-- 2026-06-30 08:24 - [哈弗茨头球破门](http://www.share.minike.top/Article/details/299181.shtml)
-- 2026-06-30 08:16 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/4542346513.shtml)
-- 2026-06-30 08:22 - [明星大侦探第四季](http://www.share.minike.top/Article/details/991557.shtml)
+- 2026-06-30 08:21 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.kurohicncr.top/Article/details/9796647352.shtml)
+- 2026-06-30 08:36 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/177031569157.shtml)
+- 2026-06-30 08:35 - [小娘惹](http://www.share.minike.top/Article/details/73165.shtml)
+- 2026-06-30 08:20 - [豆包收费了，你还会用吗？](http://www.share.kurohicncr.top/Article/details/22541.shtml)
+- 2026-06-30 08:26 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/461092559.shtml)
+- 2026-06-30 08:30 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/65747897.shtml)
+- 2026-06-30 08:30 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/572332855860.shtml)
+- 2026-06-30 08:21 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/85323.shtml)
+- 2026-06-30 08:23 - [张月收到黄灿灿辣货两眼发光](https://www.blog.minike.top/Article/details/408842040.shtml)
+- 2026-06-30 08:35 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/651605677.shtml)
+- 2026-06-30 08:36 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.kurohicncr.top/Article/details/0412789119.shtml)
+- 2026-06-30 08:19 - [高考结束了，你会让孩子在家玩手机吗？](https://www.blog.kurohicncr.top/Article/details/47739314515.shtml)
+- 2026-06-30 08:42 - [男子中医院拔火罐致浅2度烧伤](http://www.share.kurohicncr.top/Article/details/748107.shtml)
+- 2026-06-30 08:37 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/594986328333.shtml)
+- 2026-06-30 08:37 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/51856309.shtml)

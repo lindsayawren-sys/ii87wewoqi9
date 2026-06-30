@@ -1,59 +1,60 @@
-# 香港按揭证券公司成功发行约120亿港元数码债券 创全球最大规模纪录
+# 港股主题基金发行热潮：46只新品抢滩，ETF细分赛道扩容
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-中新社香港6月11日电 香港按揭证券有限公司(简称“按揭证券公司”)11日宣布，在其300亿美元中期债券发行计划下，成功为总额约120亿港元等值的首批公募数码债券发行定价，创下全球最大规模数码债券发行纪录，凸显了相关市场的充裕流动性和机构投资者加速认受数码债券的趋势。通过本次发行，按揭证券公司成为香港首家发行数码债券的公营机构。此次发行的数码债券包括60亿港元两年期、25亿港元
+来源：财闻 年内新成立港股主题ETF及其联接基金共25只，涉及医疗、汽车、信息技术、生物科技、互联网等领域，细分赛道产品进一步扩容。 4月13日，博时恒生港股通科技主题ETF、国联恒生港股通科技ETF、银华中证港股通医疗主题ETF正式开启发行。这也是年内港股主题基金发行热潮的一个缩影。 今年以来，公募机构加速布局港股市场，掀起新一轮产品发行热潮。数据显示，截至4月12日，年内新
 
 ## 正文
 
-中新社香港6月11日电 香港按揭证券有限公司(简称“按揭证券公司”)11日宣布，在其300亿美元中期债券发行计划下，成功为总额约120亿港元等值的首批公募数码债券发行定价，创下全球最大规模数码债券发行纪录，凸显了相关市场的充裕流动性和机构投资者加速认受数码债券的趋势。
+来源：财闻 年内新成立港股主题ETF及其联接基金共25只，涉及医疗、汽车、信息技术、生物科技、互联网等领域，细分赛道产品进一步扩容。
 
-通过本次发行，按揭证券公司成为香港首家发行数码债券的公营机构。
+4月13日，博时恒生港股通科技主题ETF、国联恒生港股通科技ETF、银华中证港股通医疗主题ETF正式开启发行。
 
-此次发行的数码债券包括60亿港元两年期、25亿港元五年期和30亿元人民币三年期的数码债券，当中五年期港元债券是历来发行年期最长的港元数码债券，为港元债券市场设立新基准。
+这也是年内港股主题基金发行热潮的一个缩影。
 
-本次发行受到多元化的优质机构投资者热烈追捧，发行最高峰期的合计认购金额约240亿港元等值，来自超过100个账户。
+今年以来，公募机构加速布局港股市场，掀起新一轮产品发行热潮。
 
-香港金融管理局副总裁兼按揭证券公司执行董事李达志表示，此次发行有助于深化香港的数码资产生态系统，加速代币化技术在固定收益市场的采用，启发更多不同的发行人、投资者、中介机构及其他行业持份者接纳这个创新的金融工具。
+数据显示，截至4月12日，年内新成立港股主题基金已达46只，相较于去年同期的23只实现数量翻倍。
 
-经过一系列成功的预售推广活动和投资者路演后，相关债券于2026年6月10日在香港完成簿记建档和定价。
+在年内新成立的港股主题基金中，ETF成为机构布局港股的核心工具。
 
-按揭证券公司执行董事兼总裁鲍克运说，此项里程碑凸显了承销银行和首次投资数码债券的投资者参与度正日益增长，巩固了香港在连结传统金融与数码资产时代的独特地位。
+年内新成立港股主题ETF及其联接基金共25只，涉及医疗、汽车、信息技术、生物科技、互联网等领域，细分赛道产品进一步扩容。
 
-(完)
+同时，部分公募机构通过布局指数增强基金以挖掘更多超额收益。
 
 ## 相关推荐
 
-- 2026-06-30 08:33 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
-- 2026-06-30 08:16 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
-- 2026-06-30 08:21 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-30 08:28 - [板面：为什么那么多人爱吃？？！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
-- 2026-06-30 08:34 - [森保一致歉：世界第一目标没能实现](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-30 08:35 - [德国罚丢3粒点球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-30 08:38 - [第3集丨“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-30 08:32 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
-- 2026-06-30 08:23 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
-- 2026-06-30 08:40 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-30 08:41 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-30 08:35 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-30 08:16 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-30 08:19 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-30 08:31 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-30 08:43 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-30 08:35 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-30 08:20 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-30 08:23 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-30 08:21 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-30 08:36 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-30 08:29 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-30 08:22 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-30 08:25 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-30 08:29 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-30 08:40 - [点球大战 残酷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-30 08:36 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:20 - [《共患难》](http://www.blog.minike.top/Article/details/06563882202.shtml)
-- 2026-06-30 08:29 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/02428.shtml)
-- 2026-06-30 08:19 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.kurohicncr.top/Article/details/3622128301.shtml)
-- 2026-06-30 08:12 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/9235209.shtml)
-- 2026-06-30 08:37 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.minike.top/Article/details/514583955.shtml)
-- 2026-06-30 08:27 - [卡塞米罗头球破门](https://www.share.kurohicncr.top/Article/details/3402277899.shtml)
-- 2026-06-30 08:31 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/66114.shtml)
-- 2026-06-30 08:34 - [大蒜晒外面被路过女子连盆端走](https://www.share.kurohicncr.top/Article/details/31419875.shtml)
-- 2026-06-30 08:16 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/08550134.shtml)
-- 2026-06-30 08:18 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/4969155965.shtml)
-- 2026-06-30 08:38 - [巴西绝杀](https://www.share.kurohicncr.top/Article/details/232133403257.shtml)
-- 2026-06-30 08:16 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/785070.shtml)
-- 2026-06-30 08:21 - [乔家的儿女](http://www.blog.minike.top/Article/details/276650842.shtml)
-- 2026-06-30 08:16 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/69095.shtml)
-- 2026-06-30 08:31 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/830724.shtml)
+- 2026-06-30 08:42 - [郑钦文温网一轮游](https://www.share.kurohicncr.top/Article/details/7056578926.shtml)
+- 2026-06-30 08:21 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/1630949195.shtml)
+- 2026-06-30 08:20 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/455036.shtml)
+- 2026-06-30 08:19 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/219258251.shtml)
+- 2026-06-30 08:47 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.share.minike.top/Article/details/2852826661.shtml)
+- 2026-06-30 08:35 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/6880463497.shtml)
+- 2026-06-30 08:36 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.blog.kurohicncr.top/Article/details/9393561899.shtml)
+- 2026-06-30 08:34 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/139579.shtml)
+- 2026-06-30 08:25 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/394920142.shtml)
+- 2026-06-30 08:30 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/29785825.shtml)
+- 2026-06-30 08:35 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/767569372094.shtml)
+- 2026-06-30 08:28 - [爆冷出局！德国点球大战不敌巴拉圭](https://www.blog.minike.top/Article/details/558551.shtml)
+- 2026-06-30 08:28 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/02604351.shtml)
+- 2026-06-30 08:44 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/273712815.shtml)
+- 2026-06-30 08:37 - [勇士续约波尔津吉斯](http://www.share.minike.top/Article/details/5406258.shtml)

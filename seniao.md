@@ -1,58 +1,59 @@
-# 金价大幅震荡，黄金牛市结束了吗
+# 英国将向海湾地区派遣新型拦截导弹
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-金价持续大跌，黄金牛市结束了吗？黄金是投资者对冲通货膨胀和地缘风险以及实现财富保值增值最重要的金融工具。金价的涨跌，直接关系着咱们投资者的收益。那么究竟是什么原因导致近期金价大跌？黄金还具有投资价值吗？短期究竟是抄底还是规避风险？ 5月中旬以来，金价持续走低，从4819.5美元/盎司一路跌至6月10日收盘4094.1美元/盎司，一个多月时间内价格快速下挫725美元，目前金价整体
+英国国防大臣希利表示，英国计划为英军及其海湾地区伙伴采购先进拦截导弹，专门用于对抗伊朗“沙赫德”类攻击无人机。 英国国防部称，首批大量导弹及发射装置将于5月交付，根据协议，更多装备将在六个月内陆续供应。这款名为Skyhammer的新型导弹由剑桥航空航天公司研制，射程超18英里，最高时速逾430英里。 此项宣布正值英国首相斯塔默对海湾地区进行为期三天的访问。尽管起步较晚，英国目前
 
 ## 正文
 
-金价持续大跌，黄金牛市结束了吗？
+英国国防大臣希利表示，英国计划为英军及其海湾地区伙伴采购先进拦截导弹，专门用于对抗伊朗“沙赫德”类攻击无人机。
 
-黄金是投资者对冲通货膨胀和地缘风险以及实现财富保值增值最重要的金融工具。
+英国国防部称，首批大量导弹及发射装置将于5月交付，根据协议，更多装备将在六个月内陆续供应。
 
-金价的涨跌，直接关系着咱们投资者的收益。
+这款名为Skyhammer的新型导弹由剑桥航空航天公司研制，射程超18英里，最高时速逾430英里。
 
-那么究竟是什么原因导致近期金价大跌？
+此项宣布正值英国首相斯塔默对海湾地区进行为期三天的访问。
 
-黄金还具有投资价值吗？
+尽管起步较晚，英国目前已成为海湾国家防空领域最主要的外部援助方之一。
 
-短期究竟是抄底还是规避风险？
+自美国和以色列打击伊朗后，伊朗向邻国发射数千枚弹药，海湾国家便一直在寻求新的防空装备供应，相关采购多来自乌克兰及欧洲其他初创企业。
 
-5月中旬以来，金价持续走低，从4819.5美元/盎司一路跌至6月10日收盘4094.1美元/盎司，一个多月时间内价格快速下挫725美元，目前金价整体仍处于快速下跌通道之中，还没有明显的止跌迹象。
-
-从基本面、技术面和情绪面综合来看，黄金已处于阶段性的熊市之中，投资者需要高度关注黄金市场的风险。
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-30 08:41 - [点球大战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
-- 2026-06-30 08:39 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-30 08:23 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-30 08:28 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
-- 2026-06-30 08:35 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-30 08:18 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
-- 2026-06-30 08:22 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-30 08:35 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-30 08:34 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-30 08:25 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-30 08:32 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-30 08:39 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-30 08:39 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
+- 2026-06-30 08:30 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-30 08:40 - [王楚钦孙颖莎晋级混双八强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-30 08:29 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-30 08:31 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-30 08:38 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-30 08:33 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-30 08:18 - [第3集丨“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-30 08:46 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-30 08:31 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-30 08:42 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-30 08:24 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-30 08:47 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-30 08:18 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-30 08:33 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:13 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.kurohicncr.top/Article/details/818043415.shtml)
-- 2026-06-30 08:18 - [全球芯片巨头史诗级扩产](https://www.blog.kurohicncr.top/Article/details/75264.shtml)
-- 2026-06-30 08:38 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/95750933500.shtml)
-- 2026-06-30 08:20 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/3905190.shtml)
-- 2026-06-30 08:28 - [王欣瑜连续4年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/11126.shtml)
-- 2026-06-30 08:38 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/0953272.shtml)
-- 2026-06-30 08:12 - [天道](http://www.share.minike.top/Article/details/058450278892.shtml)
-- 2026-06-30 08:14 - [房价什么时候能涨](http://www.share.minike.top/Article/details/595205.shtml)
-- 2026-06-30 08:28 - [巴西补时绝杀日本](http://www.share.kurohicncr.top/Article/details/10467623.shtml)
-- 2026-06-30 08:38 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/368726.shtml)
-- 2026-06-30 08:20 - [巴西半场0比1日本](https://www.blog.minike.top/Article/details/219569.shtml)
-- 2026-06-30 08:25 - [Melo向柳智敏张元英道歉](http://www.share.minike.top/Article/details/1556883081.shtml)
-- 2026-06-30 08:37 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/04421.shtml)
-- 2026-06-30 08:27 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/880169050.shtml)
-- 2026-06-30 08:20 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/085794199143.shtml)
+- 2026-06-30 08:23 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/35245229.shtml)
+- 2026-06-30 08:24 - [刘必安等16人非法集资案二审宣判](http://www.share.kurohicncr.top/Article/details/932620.shtml)
+- 2026-06-30 08:37 - [F1奥地利站赛后复盘](https://www.share.minike.top/Article/details/492335471160.shtml)
+- 2026-06-30 08:21 - [德国巴拉圭加时](https://www.share.kurohicncr.top/Article/details/93598.shtml)
+- 2026-06-30 08:26 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/78634.shtml)
+- 2026-06-30 08:47 - [起风了](http://www.share.minike.top/Article/details/665274453.shtml)
+- 2026-06-30 08:18 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/7336335636.shtml)
+- 2026-06-30 08:43 - [iPhone18e曝光](https://www.blog.minike.top/Article/details/812285605.shtml)
+- 2026-06-30 08:27 - [网友写差评被店家“挂”门口避雷](https://www.share.minike.top/Article/details/782228671.shtml)
+- 2026-06-30 08:25 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/0372005.shtml)
+- 2026-06-30 08:27 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/594035.shtml)
+- 2026-06-30 08:33 - [网红峡谷5人溺亡 有人提醒会下雨](http://www.blog.minike.top/Article/details/43917633.shtml)
+- 2026-06-30 08:23 - [建议不要突然完全停止喝咖啡](http://www.blog.minike.top/Article/details/0063826473.shtml)
+- 2026-06-30 08:24 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/371851143.shtml)
+- 2026-06-30 08:31 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/6691121.shtml)

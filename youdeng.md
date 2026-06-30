@@ -1,60 +1,60 @@
-# SpaceX上市是一场针对马斯克的全民信任公投
+# WTT太原站收官 中国乒乓选手获四冠
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-多位市场分析人士表示，万众期待的 SpaceX 本周五上市，不仅会成为资本市场标志性事件，更是一场针对埃隆・马斯克领导能力的 “信任公投”。 SpaceX 给出的目标估值高达 1.75 万亿美元，市盈率接近 100 倍。作为对比，芯片巨头英伟达市盈率仅 20 至 25 倍，苹果市盈率约 10 倍。 纳斯达克交易所近期修改了上市规则，放宽门槛，方便 SpaceX 以及其他计划开展
+中新社太原4月12日电 (记者 胡健)2026年世界乒乓球职业大联盟(WTT)常规挑战赛太原站12日收官，中国乒乓球新生代选手共斩获四项冠军。 女双决赛中，中国组合石洵瑶/韩菲儿以3比1战胜中国香港组合杜凯琹/吴咏琳。男双决赛上，两对中国组合温瑞博/李和宸与林诗栋/黄友政鏖战五局，最终温瑞博/李和宸以3比2险胜。 女单决赛在两名日本选手之间展开，大藤沙月以4比1击败队友佐藤瞳登
 
 ## 正文
 
-多位市场分析人士表示，万众期待的 SpaceX 本周五上市，不仅会成为资本市场标志性事件，更是一场针对埃隆・马斯克领导能力的 “信任公投”。
+中新社太原4月12日电 (记者 胡健)2026年世界乒乓球职业大联盟(WTT)常规挑战赛太原站12日收官，中国乒乓球新生代选手共斩获四项冠军。
 
-SpaceX 给出的目标估值高达 1.75 万亿美元，市盈率接近 100 倍。
+女双决赛中，中国组合石洵瑶/韩菲儿以3比1战胜中国香港组合杜凯琹/吴咏琳。
 
-作为对比，芯片巨头英伟达市盈率仅 20 至 25 倍，苹果市盈率约 10 倍。
+男双决赛上，两对中国组合温瑞博/李和宸与林诗栋/黄友政鏖战五局，最终温瑞博/李和宸以3比2险胜。
 
-纳斯达克交易所近期修改了上市规则，放宽门槛，方便 SpaceX 以及其他计划开展巨型 IPO 的企业纳入纳斯达克 100 指数；但标普全球明确表态，不会破例让 SpaceX 提前纳入标普 500 指数。
+女单决赛在两名日本选手之间展开，大藤沙月以4比1击败队友佐藤瞳登顶。
 
-马斯克将保留多少投票权？
+在此前一天的混双决赛中，中国组合黄友政/石洵瑶以3比1战胜中国香港组合黄镇廷/杜凯琹。
 
-而投资者还要接受两大特殊条件：超高估值，以及马斯克坚持手握 SpaceX 约 80%-85% 投票权的条款。
+男单决赛在国乒小将温瑞博与日本老将吉村真晴之间展开。
 
-即便不少持续稳定盈利的上市公司，这种高度集中的创始人控制权，也往往会劝退潜在投资方，尚未稳定盈利的 SpaceX 更是争议重重。
+19岁的温瑞博在晋级之路上连克强手，半决赛经历五局战胜队友李天阳，闯入决赛。
 
-企业软件公司 Appian 首席执行官马特・卡尔金斯周四做客 CNBC《欧洲财经早间直播间》时表示：“这次 IPO 本质就是对埃隆本人的一次信任投票，考验投资者对这位创业者的信任程度。
+决赛中，温瑞博面对经验丰富的吉村真晴，凭借出色的相持能力和关键分处理，最终以4比2战胜对手，加冕本站赛事“双冠王”。
 
 ## 相关推荐
 
-- 2026-06-30 08:38 - [杨紫肖战余生请多指教拍立得](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-30 08:30 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-30 08:36 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-30 08:16 - [日本五次世界杯淘汰赛全败](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
-- 2026-06-30 08:41 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-30 08:13 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-30 08:17 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
-- 2026-06-30 08:28 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-30 08:16 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
-- 2026-06-30 08:38 - [千香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-30 08:19 - [马耳他著名拱门坍塌致一中国男子身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-30 08:33 - [孙颖莎王楚钦晋级8强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-30 08:29 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
-- 2026-06-30 08:15 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-30 08:43 - [德国巴拉圭加时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-30 08:45 - [4000美元是黄金新一轮下跌的开始吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-30 08:35 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
+- 2026-06-30 08:47 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-30 08:32 - [高质量发展看新疆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-30 08:34 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-30 08:25 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-30 08:41 - [恋与深空制作组回应近期争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-30 08:29 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-30 08:34 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-30 08:45 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-30 08:40 - [现在叛逆期的孩子最怕的是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-30 08:47 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-30 08:27 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:31 - [女心理师](https://www.blog.kurohicncr.top/Article/details/395873247.shtml)
-- 2026-06-30 08:20 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/445358.shtml)
-- 2026-06-30 08:31 - [人类...完蛋了...](https://www.share.kurohicncr.top/Article/details/14260505.shtml)
-- 2026-06-30 08:37 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/7740462845.shtml)
-- 2026-06-30 08:36 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/14042953.shtml)
-- 2026-06-30 08:18 - [DeepSeek V4正式版要来了](http://www.share.kurohicncr.top/Article/details/86331932532.shtml)
-- 2026-06-30 08:25 - [德国连续三届世界杯无缘16强](http://www.share.minike.top/Article/details/205883.shtml)
-- 2026-06-30 08:20 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/54303099.shtml)
-- 2026-06-30 08:18 - [德国巴拉圭 折磨](http://www.blog.minike.top/Article/details/64919.shtml)
-- 2026-06-30 08:16 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/2481870.shtml)
-- 2026-06-30 08:12 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/044839880.shtml)
-- 2026-06-30 08:23 - [王楚钦孙颖莎晋级混双八强](https://www.share.minike.top/Article/details/19082242325.shtml)
-- 2026-06-30 08:35 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.share.minike.top/Article/details/75127469378.shtml)
-- 2026-06-30 08:36 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/128428155.shtml)
-- 2026-06-30 08:32 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/152413.shtml)
+- 2026-06-30 08:41 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/0186719393.shtml)
+- 2026-06-30 08:20 - [欧洲装一台空调有多难](http://www.share.minike.top/Article/details/18105287.shtml)
+- 2026-06-30 08:34 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/63874984.shtml)
+- 2026-06-30 08:40 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/8151245198.shtml)
+- 2026-06-30 08:40 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/3519326654.shtml)
+- 2026-06-30 08:34 - [安切洛蒂 换人](https://www.share.kurohicncr.top/Article/details/238845672.shtml)
+- 2026-06-30 08:29 - [世界杯巴拉圭点球淘汰德国](http://www.blog.kurohicncr.top/Article/details/50494185016.shtml)
+- 2026-06-30 08:28 - [现在叛逆期的孩子最怕的是什么？](http://www.share.minike.top/Article/details/253152591049.shtml)
+- 2026-06-30 08:46 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.minike.top/Article/details/580483527083.shtml)
+- 2026-06-30 08:42 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/40205403.shtml)
+- 2026-06-30 08:31 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.minike.top/Article/details/96031.shtml)
+- 2026-06-30 08:40 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](https://www.blog.minike.top/Article/details/252496771818.shtml)
+- 2026-06-30 08:31 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/0603805410.shtml)
+- 2026-06-30 08:32 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/47237.shtml)
+- 2026-06-30 08:37 - [巴西扳平比分](https://www.share.minike.top/Article/details/5288094542.shtml)

@@ -1,59 +1,59 @@
-# “医保异常”来电险些卷走189万！警惕电信诈骗
+# 张国清在中国雅江集团调研时强调 扛牢工程建设主体责任 全面提升运营管理能力
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-一通“医保异常”的电话，险些让长春市民刘阿姨的189万元养老钱打了水漂。面对民警，刘阿姨起初只承认卡里有1万多元钱。然而民警发现，她的手机已被骗子远程操控。一场紧急止付行动，刻不容缓。 “医保异常”来电步步惊心 民警保住189万 长春市公安局南关区分局曙光派出所民警 陈盛林：她接到一个自称是医保局工作人员的陌生电话，对方说她名下有两个医保账户，需要消除一个。说你要是不取消这个账
+新华社拉萨4月12日电 中共中央政治局委员、国务院副总理张国清10日至12日在西藏林芝调研中国雅江集团组建运营和雅下水电工程建设等情况。 张国清先后来到工程现场和集团总部，实地了解施工进展、装备运行、工程调度、公司管理、生活保障等情况，与技术骨干、施工人员充分交流。他强调，雅江集团要深入贯彻习近平总书记重要指示批示精神，落实党中央、国务院决策部署，以对历史、对人民高度负责的态度
 
 ## 正文
 
-一通“医保异常”的电话，险些让长春市民刘阿姨的189万元养老钱打了水漂。
+新华社拉萨4月12日电 中共中央政治局委员、国务院副总理张国清10日至12日在西藏林芝调研中国雅江集团组建运营和雅下水电工程建设等情况。
 
-面对民警，刘阿姨起初只承认卡里有1万多元钱。
+张国清先后来到工程现场和集团总部，实地了解施工进展、装备运行、工程调度、公司管理、生活保障等情况，与技术骨干、施工人员充分交流。
 
-然而民警发现，她的手机已被骗子远程操控。
+他强调，雅江集团要深入贯彻习近平总书记重要指示批示精神，落实党中央、国务院决策部署，以对历史、对人民高度负责的态度，坚决扛牢工程建设主体责任，把雅下水电工程建成新时代的重大标志性工程。
 
-一场紧急止付行动，刻不容缓。
+要坚持质量为先、安全为本，严格落实工程建设标准规范和生态环保要求，强化对工程设计、施工组织、材料供应等全过程质量管控，压紧压实安全生产责任措施，确保进度服从质量和安全。
 
-“医保异常”来电步步惊心 民警保住189万 长春市公安局南关区分局曙光派出所民警 陈盛林：她接到一个自称是医保局工作人员的陌生电话，对方说她名下有两个医保账户，需要消除一个。
+要坚持党的领导、加强党的建设，全面提升公司运营管理能力，构建智能化指挥调度系统和穿透式监管系统，健全科学高效的运行机制，集约规范用好资源资金，打造廉洁工程。
 
-说你要是不取消这个账户，可能会对你医保账户或是余额，还有对你以后的使用涉及违规违法。
+各有关方面要强化一盘棋思想，为工程建设和公司运营提供有力支持保障，共同服务国家战略、促进西藏经济社会发展。
 
-民警介绍，刘阿姨在退休之前有一个职工医保账户，但因工作单位欠缴医保费不能正常使用，后来她又办理了城镇居民医保。
+其间，张国清还到林芝消防救援机动支队了解队伍建设、保障施工安全等情况。
 
-听对方说出她有两个医保账户的事，刘阿姨信以为真。
+他强调，要着眼于提升高原复杂环境下应急救援攻坚能力，常态化开展实战实训，前置先进适用装备，快速响应、高效救援，全力保障人民群众生命财产安全。
 
 ## 相关推荐
 
-- 2026-06-30 08:28 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
-- 2026-06-30 08:23 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-30 08:12 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
-- 2026-06-30 08:31 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-30 08:14 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-30 08:37 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
-- 2026-06-30 08:37 - [田中碧失误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-30 08:16 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-30 08:21 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
-- 2026-06-30 08:39 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
-- 2026-06-30 08:14 - [董路：谁赢谁是“正路子”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-30 08:12 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
-- 2026-06-30 08:21 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-30 08:34 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-30 08:43 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-30 08:36 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-30 08:32 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-30 08:28 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
+- 2026-06-30 08:39 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-30 08:40 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-30 08:38 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-30 08:25 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-30 08:29 - [哈弗茨头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-30 08:47 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-30 08:34 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-30 08:23 - [锐评T1战胜KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:35 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/837872821.shtml)
-- 2026-06-30 08:20 - [武磊：日本队有能力跟任何强队抗衡](http://www.share.minike.top/Article/details/670062724833.shtml)
-- 2026-06-30 08:33 - [赛博朋克边缘行者2预告片](http://www.blog.minike.top/Article/details/881425215329.shtml)
-- 2026-06-30 08:24 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/6763183401.shtml)
-- 2026-06-30 08:19 - [电影抓特务上映11天破亿](https://www.blog.kurohicncr.top/Article/details/095662.shtml)
-- 2026-06-30 08:22 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/158009.shtml)
-- 2026-06-30 08:36 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](https://www.blog.kurohicncr.top/Article/details/498899282296.shtml)
-- 2026-06-30 08:17 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/997674870.shtml)
-- 2026-06-30 08:40 - [武磊：巴西队赢的并不轻松](http://www.share.kurohicncr.top/Article/details/997815.shtml)
-- 2026-06-30 08:35 - [巴西2比1日本](https://www.share.kurohicncr.top/Article/details/283002729112.shtml)
-- 2026-06-30 08:19 - [IGN评测电影版后室](http://www.share.minike.top/Article/details/3289326.shtml)
-- 2026-06-30 08:23 - [恋与深空道歉声明](https://www.blog.minike.top/Article/details/9000560.shtml)
-- 2026-06-30 08:23 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/639142057351.shtml)
-- 2026-06-30 08:34 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/638177293640.shtml)
-- 2026-06-30 08:28 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.minike.top/Article/details/707454.shtml)
+- 2026-06-30 08:31 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/19731525.shtml)
+- 2026-06-30 08:28 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/794249200852.shtml)
+- 2026-06-30 08:28 - [逃狱兄弟](https://www.blog.minike.top/Article/details/08275192669.shtml)
+- 2026-06-30 08:25 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/74874.shtml)
+- 2026-06-30 08:42 - [孙兴慜发长文致歉](http://www.blog.minike.top/Article/details/660050247535.shtml)
+- 2026-06-30 08:42 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/60413057.shtml)
+- 2026-06-30 08:37 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/394534420.shtml)
+- 2026-06-30 08:47 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/924711.shtml)
+- 2026-06-30 08:33 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/1977878.shtml)
+- 2026-06-30 08:29 - [开电动汽车真的很省钱吗？](https://www.share.kurohicncr.top/Article/details/69468624.shtml)
+- 2026-06-30 08:39 - [索马里女大使：想和中国一起搞事业](https://www.share.minike.top/Article/details/24840946.shtml)
+- 2026-06-30 08:29 - [全新问界M9现身美国街头](https://www.blog.kurohicncr.top/Article/details/139018319.shtml)
+- 2026-06-30 08:34 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/52045.shtml)
+- 2026-06-30 08:38 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/254616618782.shtml)
+- 2026-06-30 08:33 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.kurohicncr.top/Article/details/459577246.shtml)

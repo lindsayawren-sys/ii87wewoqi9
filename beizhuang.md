@@ -1,43 +1,49 @@
-# 四部门部署实施创业模式引领行动：加大创业支持力度 以创业带动就业
+# 王石回应外界关切：一切安好，造谣者交给法律
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月12日 13:21 来源：央视新闻 责任编辑：【韦俊龙】
+近日，网络上有王石的相关传言引发网友热议。4月12日晚，王石回应辟谣，“看来大家比我本人还关心我的动态，一切安好，造谣者交给法律。 ” 责任编辑：王珂
 
 ## 正文
 
-发布时间：2026年06月12日 13:21 来源：央视新闻 责任编辑：【韦俊龙】
+近日，网络上有王石的相关传言引发网友热议。
+
+4月12日晚，王石回应辟谣，“看来大家比我本人还关心我的动态，一切安好，造谣者交给法律。
+
+” 责任编辑：王珂
 
 ## 相关推荐
 
-- 2026-06-30 08:25 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-30 08:23 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-30 08:37 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-30 08:35 - [德国队连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
-- 2026-06-30 08:24 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
-- 2026-06-30 08:17 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
-- 2026-06-30 08:23 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
-- 2026-06-30 08:35 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-30 08:29 - [德国队连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-30 08:15 - [巴西绝杀日本：漫画般结局换了主角](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-30 08:17 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-30 08:41 - [日本球员说被绝杀非常不甘心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-30 08:42 - [巴西绝杀日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-30 08:20 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-30 08:44 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-30 08:47 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-30 08:43 - [韩国道歉完日本道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
+- 2026-06-30 08:42 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
+- 2026-06-30 08:24 - [老外对中国cosplay竟这样评价…](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-30 08:20 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-30 08:26 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-30 08:38 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
+- 2026-06-30 08:33 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-30 08:44 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:25 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/28538608.shtml)
-- 2026-06-30 08:35 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/421406.shtml)
-- 2026-06-30 08:13 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/9092907792.shtml)
-- 2026-06-30 08:29 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/4447069.shtml)
-- 2026-06-30 08:27 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/6919396770.shtml)
-- 2026-06-30 08:22 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.kurohicncr.top/Article/details/224683532.shtml)
-- 2026-06-30 08:20 - [德国 传控](https://www.share.minike.top/Article/details/800393248179.shtml)
-- 2026-06-30 08:19 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/778333984.shtml)
-- 2026-06-30 08:16 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/655984713.shtml)
-- 2026-06-30 08:29 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/381592.shtml)
-- 2026-06-30 08:19 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/736731.shtml)
-- 2026-06-30 08:18 - [日本半场1比0领先巴西](http://www.blog.minike.top/Article/details/37268804.shtml)
-- 2026-06-30 08:30 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://www.share.minike.top/Article/details/46442.shtml)
-- 2026-06-30 08:26 - [Melo向柳智敏张元英道歉](http://www.share.kurohicncr.top/Article/details/00268786855.shtml)
-- 2026-06-30 08:16 - [点球大战 残酷](https://www.share.kurohicncr.top/Article/details/53682165122.shtml)
+- 2026-06-30 08:25 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/645379856864.shtml)
+- 2026-06-30 08:46 - [韩国球迷凌晨4点接机怒骂主教练](http://www.share.minike.top/Article/details/355022902.shtml)
+- 2026-06-30 08:42 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/07561.shtml)
+- 2026-06-30 08:28 - [覃予萱晋级WTT美国大满贯女单32强](https://www.blog.minike.top/Article/details/0837142947.shtml)
+- 2026-06-30 08:30 - [董卿父亲报纸上发文悼念亡妻](http://www.blog.minike.top/Article/details/65027803.shtml)
+- 2026-06-30 08:48 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/82105.shtml)
+- 2026-06-30 08:21 - [男子在京东买到“同仁堂”假药](http://www.share.minike.top/Article/details/88748098.shtml)
+- 2026-06-30 08:43 - [巴西2比1日本](https://www.share.minike.top/Article/details/2470204192.shtml)
+- 2026-06-30 08:21 - [天道](https://www.share.minike.top/Article/details/368953481.shtml)
+- 2026-06-30 08:35 - [日本反击率先破门](http://www.blog.kurohicncr.top/Article/details/571751.shtml)
+- 2026-06-30 08:36 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/9042589042.shtml)
+- 2026-06-30 08:25 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/49081301366.shtml)
+- 2026-06-30 08:45 - [iPhone18e曝光](http://www.blog.minike.top/Article/details/57666.shtml)
+- 2026-06-30 08:42 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/89947418791.shtml)
+- 2026-06-30 08:37 - [德国 传控](http://www.blog.minike.top/Article/details/206467254.shtml)

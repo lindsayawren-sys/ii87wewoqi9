@@ -1,57 +1,59 @@
-# 滴滴充电联合肯德基推出“送餐到站”服务 探索充电新体验
+# 3月北京CPI环比由涨转降 同比涨幅回落
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-6月9日至22日，滴滴充电联合肯德基推出“送餐到站”服务，首批覆盖北京、上海、广州、杭州等14座城市的近50个充电场站，为用户提供“充电+用餐”的一站式服务体验。 活动期间，用户在指定场站通过滴滴出行App、滴滴充电App及其小程序等渠道扫码启动充电，即可一键下单“满电能量餐”，享受餐品直送充电场站的服务。同时，结合不同用户的需求，滴滴充电与肯德基联合推出多款优惠套餐券，并赠送
+中新社北京4月13日电 (记者 吕少威)国家统计局北京调查总队13日发布的数据显示，今年3月，北京居民消费价格指数(CPI)环比由涨转降，同比涨幅回落。 从环比看，3月北京CPI下降1.1%。食品中，鲜菜价格由上月上涨4.9%转为下降15.2%，鲜果价格下降4.4%，猪肉、鸡蛋和水产品价格分别下降6.6%、4.0%和1.1%。非食品中，在出行需求阶段性减退影响下服务价格由涨转降
 
 ## 正文
 
-6月9日至22日，滴滴充电联合肯德基推出“送餐到站”服务，首批覆盖北京、上海、广州、杭州等14座城市的近50个充电场站，为用户提供“充电+用餐”的一站式服务体验。
+中新社北京4月13日电 (记者 吕少威)国家统计局北京调查总队13日发布的数据显示，今年3月，北京居民消费价格指数(CPI)环比由涨转降，同比涨幅回落。
 
-活动期间，用户在指定场站通过滴滴出行App、滴滴充电App及其小程序等渠道扫码启动充电，即可一键下单“满电能量餐”，享受餐品直送充电场站的服务。
+从环比看，3月北京CPI下降1.1%。
 
-同时，结合不同用户的需求，滴滴充电与肯德基联合推出多款优惠套餐券，并赠送15天免费充电会员。
+食品中，鲜菜价格由上月上涨4.9%转为下降15.2%，鲜果价格下降4.4%，猪肉、鸡蛋和水产品价格分别下降6.6%、4.0%和1.1%。
 
-用户在全国滴滴充电场站均可参与活动，所购套餐券可到任意肯德基线下门店使用核销。
+非食品中，在出行需求阶段性减退影响下服务价格由涨转降，下降1.4%，其中飞机票、交通工具租赁和旅行社收费价格分别下降34.0%、12.8%和11.5%。
 
-数据显示，公共充电高峰集中在中午和晚上正餐时段，用户就餐需求随之增加。
+从同比看，3月北京CPI涨幅由上月的1.4%回落至0.5%。
 
-而受场地条件影响，多数充电站缺少餐饮类等生活配套设施。
+食品中，猪肉、鸡蛋和鲜果价格分别下降12.7%、4.3%和0.4%，鲜菜、羊肉、水产品价格分别上涨10.8%、3.2%和2.6%。
 
-滴滴充电表示，此次联合肯德基推出的“送餐到站”服务，从用户充电等候场景切入，是充电场景与餐饮业态及本地生活融合的全新探索，致力于为更多用户提供更加便捷、高效的充电与用餐一体化体验，持续创造用户价值。
+非食品中，工业消费品价格上涨2.1%，其中，黄金饰品价格上涨67.0%；汽油价格由降转涨，上涨3.6%；服务价格涨幅由上月1.5%回落至0.2%，其中，外卖餐饮、网络影音服务、养老服务、摄影服务和家政服务价格分别上涨9.0%、3.7%、3.5%、2.2%和1.8%，飞机票和旅行社收费价格均由上月的上涨转为下降，降幅分别为2.1%和1.1%。
 
-滴滴充电始终将用户体验作为服务升级的核心。
+数据显示，3月北京工业生产者出厂价格同比下降2.5%、环比下降0.5%；工业生产者购进价格同比下降1.3%、环比持平。
 
 ## 相关推荐
 
-- 2026-06-30 08:22 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-30 08:23 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-30 08:13 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-30 08:13 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-30 08:23 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-30 08:35 - [穆祉丞回应获年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-30 08:25 - [日耳曼拖拉机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-30 08:32 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-30 08:41 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-30 08:21 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-30 08:19 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
+- 2026-06-30 08:25 - [董路：谁赢谁是“正路子”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
+- 2026-06-30 08:21 - [森保一致歉：世界第一目标没能实现](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-30 08:32 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-30 08:39 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-30 08:25 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-30 08:46 - [周冬雨多次说演不了话剧文城](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-30 08:30 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-30 08:34 - [女子遭下药退赔偿拟追刑责](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-30 08:36 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-30 08:44 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-30 08:36 - [点球大战 残酷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
+- 2026-06-30 08:43 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-30 08:22 - [杨紫学位证上就是杨紫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:22 - [巴西半场0比1日本](https://www.blog.minike.top/Article/details/9040106.shtml)
-- 2026-06-30 08:15 - [德国巴拉圭 折磨](https://www.blog.kurohicncr.top/Article/details/248322195.shtml)
-- 2026-06-30 08:22 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/511734232668.shtml)
-- 2026-06-30 08:17 - [上市央企地产商 两年换了三任董事长](http://www.share.minike.top/Article/details/38815613510.shtml)
-- 2026-06-30 08:38 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/42507.shtml)
-- 2026-06-30 08:41 - [扫黑风暴](http://www.share.minike.top/Article/details/52979796569.shtml)
-- 2026-06-30 08:21 - [孙兴慜发长文致歉](http://www.share.kurohicncr.top/Article/details/60558321.shtml)
-- 2026-06-30 08:23 - [又一家县级医院关停门诊输液大厅](http://www.share.minike.top/Article/details/5437677.shtml)
-- 2026-06-30 08:29 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/20124.shtml)
-- 2026-06-30 08:39 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/653935467.shtml)
-- 2026-06-30 08:22 - [郑钦文温网首轮出局](http://www.share.minike.top/Article/details/742078.shtml)
-- 2026-06-30 08:22 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/664528330.shtml)
-- 2026-06-30 08:20 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/733862.shtml)
-- 2026-06-30 08:23 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.share.minike.top/Article/details/5455985311.shtml)
-- 2026-06-30 08:24 - [王濛回复黄灿灿](https://www.blog.kurohicncr.top/Article/details/41668057177.shtml)
+- 2026-06-30 08:32 - [德国4比5巴拉圭](https://www.blog.minike.top/Article/details/21789343.shtml)
+- 2026-06-30 08:43 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/76557208.shtml)
+- 2026-06-30 08:18 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/576832.shtml)
+- 2026-06-30 08:35 - [德国罚丢3粒点球](http://www.share.kurohicncr.top/Article/details/52356491325.shtml)
+- 2026-06-30 08:20 - [马耳他著名拱门坍塌致中国男子身亡](https://www.blog.kurohicncr.top/Article/details/838764077.shtml)
+- 2026-06-30 08:31 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/7366855385.shtml)
+- 2026-06-30 08:45 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.kurohicncr.top/Article/details/058013123644.shtml)
+- 2026-06-30 08:27 - [王欣瑜2-1击败科恰雷托](https://www.blog.minike.top/Article/details/9801903989.shtml)
+- 2026-06-30 08:26 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/226901233.shtml)
+- 2026-06-30 08:18 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/420444.shtml)
+- 2026-06-30 08:24 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/333730338.shtml)
+- 2026-06-30 08:22 - [《贺子珍》](https://www.share.minike.top/Article/details/93995119260.shtml)
+- 2026-06-30 08:22 - [世界杯“美洲德比”7月1日开打](http://www.share.minike.top/Article/details/608660232.shtml)
+- 2026-06-30 08:19 - [德国队连续三届世界杯无缘16强](https://www.blog.kurohicncr.top/Article/details/388196.shtml)
+- 2026-06-30 08:36 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/772438973220.shtml)

@@ -1,54 +1,58 @@
-# 探访四川巴山大峡谷：“穴居咖啡”成游客休憩打卡地
+# 欧洲央行支持欧盟集中金融监管的计划
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月11日 22:15 来源：中国新闻网 6月11日，位于四川省达州市宣汉县巴山大峡谷景区内的“穴居咖啡”，成为游客休憩打卡的新去处。游客们徒步结束后，纷纷走进天然洞穴避暑，在扑面而来的咖啡香中，享受峡谷的清凉。 据了解，依托巴山大峡谷的独特地貌，景区正大力发展沉浸式旅游新业态，让游客在青山绿水间感受别样的巴山风情。(张浪 制作：何美锟) 【同期】巴山大峡
+欧洲央行周五对欧盟委员会通过联合监管以更好整合欧盟资本市场的计划表示支持，但同时提醒称，此举需配备充足的人员与资金保障。 推动金融市场参与者在欧盟层面而非成员国层面接受监管，是由法德牵头的一项举措的一部分。该举措旨在提升欧盟的竞争力，当前欧盟正面临经济增长乏力以及来自中美激烈竞争的困境。 欧洲央行的支持将向市场以及爱尔兰、卢森堡等部分对该计划态度消极的欧盟小国政府释放信心信号。
 
 ## 正文
 
-发布时间：2026年06月11日 22:15 来源：中国新闻网 6月11日，位于四川省达州市宣汉县巴山大峡谷景区内的“穴居咖啡”，成为游客休憩打卡的新去处。
+欧洲央行周五对欧盟委员会通过联合监管以更好整合欧盟资本市场的计划表示支持，但同时提醒称，此举需配备充足的人员与资金保障。
 
-游客们徒步结束后，纷纷走进天然洞穴避暑，在扑面而来的咖啡香中，享受峡谷的清凉。
+推动金融市场参与者在欧盟层面而非成员国层面接受监管，是由法德牵头的一项举措的一部分。
 
-据了解，依托巴山大峡谷的独特地貌，景区正大力发展沉浸式旅游新业态，让游客在青山绿水间感受别样的巴山风情。
+该举措旨在提升欧盟的竞争力，当前欧盟正面临经济增长乏力以及来自中美激烈竞争的困境。
 
-(张浪 制作：何美锟) 【同期】巴山大峡谷工作人员 杨大田 我们这个山洞里面，想到这个地方比较凉快，就把这个山洞打造出来就做这个咖啡，游客到我们这里来，可以享受这个山洞里面的清凉，很自在、很凉爽，很凉快的。
+欧洲央行的支持将向市场以及爱尔兰、卢森堡等部分对该计划态度消极的欧盟小国政府释放信心信号。
 
-责任编辑：【刘湃】
+欧洲央行在一份意见文件中表示，完全支持在欧盟层面加强对具有系统重要性的跨境金融市场参与者的监管，其中包括主要交易场所、中央对手方、中央证券存管机构以及加密资产服务提供商。
+
+欧盟委员会已提议将此类监管权限从各国监管机构移交至位于巴黎的欧洲证券和市场管理局（ESMA）。
+
+欧洲央行在这份欧盟立法程序要求出具、但对立法者无约束力的意见中称：“欧洲央行完全支持委员会的相关提案，这些提案是朝着深化欧盟内部资本市场与金融市场监管一体化迈出的雄心勃勃的一步。
+
+” 欧洲央行表示，应在欧洲证券和市场管理局董事会中为其设立一个无表决权席位，且不仅在监管决策方面，在技术标准、指引和建议制定上也应采纳其专业意见。
 
 ## 相关推荐
 
-- 2026-06-30 08:40 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-30 08:15 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-30 08:16 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-30 08:35 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-30 08:17 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-30 08:40 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-30 08:38 - [王濛回复黄灿灿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-30 08:31 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-30 08:21 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-30 08:20 - [田中碧失误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-30 08:14 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-30 08:22 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
-- 2026-06-30 08:22 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
-- 2026-06-30 08:17 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-30 08:40 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-30 08:32 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-30 08:34 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
+- 2026-06-30 08:18 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
+- 2026-06-30 08:22 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-30 08:42 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-30 08:29 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-30 08:43 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-30 08:33 - [日本队5进世界杯淘汰赛0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
+- 2026-06-30 08:41 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-30 08:36 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-30 08:33 - [巴西绝杀日本：漫画般结局换了主角](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:41 - [卢卡申科发布解放军仪仗队视频](http://www.share.minike.top/Article/details/11343496.shtml)
-- 2026-06-30 08:20 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/543275.shtml)
-- 2026-06-30 08:32 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.kurohicncr.top/Article/details/6770542638.shtml)
-- 2026-06-30 08:19 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.kurohicncr.top/Article/details/39296991.shtml)
-- 2026-06-30 08:16 - [莫兰特转投开拓者效力](http://www.share.kurohicncr.top/Article/details/720077832.shtml)
-- 2026-06-30 08:21 - [卡塞米罗头球破门](http://www.blog.minike.top/Article/details/322684107.shtml)
-- 2026-06-30 08:13 - [自然光｜papi酱&窦文涛：驴与跑步机](https://www.blog.kurohicncr.top/Article/details/35767681.shtml)
-- 2026-06-30 08:31 - [DeepSeek V4正式版要来了](http://www.share.kurohicncr.top/Article/details/871007705164.shtml)
-- 2026-06-30 08:30 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.minike.top/Article/details/2564998.shtml)
-- 2026-06-30 08:12 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/34436.shtml)
-- 2026-06-30 08:29 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/0383684753.shtml)
-- 2026-06-30 08:29 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/192292230153.shtml)
-- 2026-06-30 08:27 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/174207457.shtml)
-- 2026-06-30 08:16 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/471767366128.shtml)
-- 2026-06-30 08:12 - [巴拉圭点球大战淘汰德国进16强](http://www.share.kurohicncr.top/Article/details/1190723180.shtml)
+- 2026-06-30 08:34 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/1262592.shtml)
+- 2026-06-30 08:32 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/2319308.shtml)
+- 2026-06-30 08:30 - [感动全网的699分女生想报考清华](http://www.blog.minike.top/Article/details/082494568772.shtml)
+- 2026-06-30 08:31 - [诺伊尔尽力了](http://www.share.minike.top/Article/details/24911342122.shtml)
+- 2026-06-30 08:39 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/5013746.shtml)
+- 2026-06-30 08:31 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/425603865583.shtml)
+- 2026-06-30 08:47 - [流金岁月](http://www.blog.minike.top/Article/details/51293353.shtml)
+- 2026-06-30 08:44 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](http://www.share.kurohicncr.top/Article/details/448714138.shtml)
+- 2026-06-30 08:38 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/700751327688.shtml)
+- 2026-06-30 08:35 - [覃予萱晋级WTT美国大满贯女单32强](https://www.share.kurohicncr.top/Article/details/525050301.shtml)
+- 2026-06-30 08:34 - [巴拉圭率先破门](https://www.blog.kurohicncr.top/Article/details/885148434.shtml)
+- 2026-06-30 08:35 - [孙兴慜发长文致歉](https://www.share.minike.top/Article/details/7245663.shtml)
+- 2026-06-30 08:22 - [沙丘](http://www.blog.kurohicncr.top/Article/details/1357443933.shtml)
+- 2026-06-30 08:37 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/408230137857.shtml)
+- 2026-06-30 08:45 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/26864.shtml)

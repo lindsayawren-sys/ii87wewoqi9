@@ -1,57 +1,61 @@
-# 中加基金固收周报|央行态度边际收敛，债市先强后弱
+# 联讯仪器明日申购 6.00万市值可顶格申购
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-一级市场回顾 上周一级市场国债、地方债和政策性金融债发行规模分别为3091亿、2010亿和1140亿，净融资额为-311亿、873亿和990亿。金融债（不含政金债）共计发行规模1789亿，净融资额1284亿。非金信用债共计发行规模1967亿，净融资额752亿。转债新券发行2只，预计融资规模22亿元。 二级市场回顾 央行暂停买断式投放，长端收益率到达关键点位后转震荡。主要影响因素
+联讯仪器明日开启申购，公司本次发行前总股本为7700.00万股，本次拟公开发行股票2566.67万股，占发行后总股本的比例为25.00%，其中网上发行616.00万股，申购代码787808，申购价格为81.88元 ，发行市盈率为63.64倍，单一账户申购上限为0.60万股，申购数量为500股的整数倍，顶格申购需持有沪市市值6.00万元。公司主营业务为电子测量仪器和半导体测试设备
 
 ## 正文
 
-一级市场回顾 上周一级市场国债、地方债和政策性金融债发行规模分别为3091亿、2010亿和1140亿，净融资额为-311亿、873亿和990亿。
+联讯仪器明日开启申购，公司本次发行前总股本为7700.00万股，本次拟公开发行股票2566.67万股，占发行后总股本的比例为25.00%，其中网上发行616.00万股，申购代码787808，申购价格为81.88元 ，发行市盈率为63.64倍，单一账户申购上限为0.60万股，申购数量为500股的整数倍，顶格申购需持有沪市市值6.00万元。
 
-金融债（不含政金债）共计发行规模1789亿，净融资额1284亿。
+公司主营业务为电子测量仪器和半导体测试设备的研发、制造、销售及服务。
 
-非金信用债共计发行规模1967亿，净融资额752亿。
+（数据宝）新股申购信息公司募集资金投向主要财务指标科创板打新攻略个人投资者参与科创板打新，必须满足以下三个条件：1、申请权限开通前20个交易日证券账户及资金账户内的资产日均不低于人民币 50万元；2、参与证券交易24个月以上；3、持有沪市股票市值1万元以上。
 
-转债新券发行2只，预计融资规模22亿元。
+前两个条件，是科创板的投资者适当性条件所要求的。
 
-二级市场回顾 央行暂停买断式投放，长端收益率到达关键点位后转震荡。
+满足这两个条件的投资者，可以在已有沪市A股证券账户的基础上，申请开通交易权限。
 
-主要影响因素包括：资金面、央行操作、交易盘止盈情绪。
+另外，科创板打新仍采用市值配售方式，符合条件的投资者开通交易权限且持有沪市市值达到1万元以上方可参与网上申购。
 
-流动性跟踪 月初资金面自然宽裕，但央行投放转向回笼。
+每5000元市值可申购一个申购单位，不足5000元的部分不计入申购额度。
 
-最终R001和R007分别较前周下行0.2BP和下行0.9BP。
+每一个新股申购单位为500股，申购数量应当为500股或其整数倍，但最高申购数量不得超过当次网上初始发行数量的千分之一。
 
 ## 相关推荐
 
-- 2026-06-30 08:29 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-30 08:28 - [全球芯片巨头史诗级扩产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-30 08:25 - [曝iPhone18Pro机密文件现身暗网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-30 08:29 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-30 08:32 - [恋与深空回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-30 08:41 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-30 08:41 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-30 08:30 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-30 08:19 - [恋与深空道歉声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
-- 2026-06-30 08:32 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-30 08:12 - [森保一致歉：世界第一目标没能实现](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-30 08:47 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
+- 2026-06-30 08:40 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-30 08:38 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-30 08:23 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-30 08:39 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-30 08:36 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-30 08:24 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-30 08:24 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-30 08:28 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
+- 2026-06-30 08:27 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
+- 2026-06-30 08:36 - [杨紫学位证上就是杨紫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-30 08:25 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-30 08:24 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-30 08:47 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-30 08:34 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:22 - [田中碧失误](http://www.share.kurohicncr.top/Article/details/07646.shtml)
-- 2026-06-30 08:23 - [恋与深空制作组回应近期争议](http://www.blog.kurohicncr.top/Article/details/242738.shtml)
-- 2026-06-30 08:39 - [日本淘汰](https://www.share.kurohicncr.top/Article/details/5343711789.shtml)
-- 2026-06-30 08:30 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/1324404600.shtml)
-- 2026-06-30 08:25 - [森保一 保守](https://www.blog.minike.top/Article/details/888816.shtml)
-- 2026-06-30 08:16 - [现在叛逆期的孩子最怕的是什么？](http://www.blog.minike.top/Article/details/5097834126.shtml)
-- 2026-06-30 08:28 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.kurohicncr.top/Article/details/53365451243.shtml)
-- 2026-06-30 08:12 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](http://www.share.minike.top/Article/details/1864231898.shtml)
-- 2026-06-30 08:33 - [Melo向柳智敏张元英道歉](http://www.share.minike.top/Article/details/78596243173.shtml)
-- 2026-06-30 08:22 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/9145457.shtml)
-- 2026-06-30 08:34 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/397849.shtml)
-- 2026-06-30 08:30 - [覃予萱晋级WTT美国大满贯女单32强](https://www.blog.kurohicncr.top/Article/details/244344477241.shtml)
-- 2026-06-30 08:35 - [DeepSeek V4正式版要来了](http://www.blog.minike.top/Article/details/02788750248.shtml)
-- 2026-06-30 08:32 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.minike.top/Article/details/43320319.shtml)
-- 2026-06-30 08:16 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/13930.shtml)
+- 2026-06-30 08:20 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/25046710116.shtml)
+- 2026-06-30 08:44 - [巴西替补奇兵读秒绝杀](http://www.share.minike.top/Article/details/7345497.shtml)
+- 2026-06-30 08:30 - [《男人至死是傻得儿》](http://www.share.minike.top/Article/details/66903801.shtml)
+- 2026-06-30 08:19 - [中国新一轮出口管制直指日本命脉](http://www.blog.kurohicncr.top/Article/details/20300205.shtml)
+- 2026-06-30 08:22 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/13614698.shtml)
+- 2026-06-30 08:20 - [男子醉酒溺水获救后同行人拒协助抬人](http://www.blog.kurohicncr.top/Article/details/5256896691.shtml)
+- 2026-06-30 08:44 - [德国连续三届世界杯无缘16强](http://www.share.kurohicncr.top/Article/details/590452.shtml)
+- 2026-06-30 08:29 - [德国 传控](https://www.share.minike.top/Article/details/402166197163.shtml)
+- 2026-06-30 08:40 - [德国巴拉圭 折磨](http://www.share.kurohicncr.top/Article/details/6238357.shtml)
+- 2026-06-30 08:27 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/8547547931.shtml)
+- 2026-06-30 08:37 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.kurohicncr.top/Article/details/07155.shtml)
+- 2026-06-30 08:37 - [卡塞米罗头球破门](http://www.share.minike.top/Article/details/03550.shtml)
+- 2026-06-30 08:33 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](https://www.blog.minike.top/Article/details/7414646202.shtml)
+- 2026-06-30 08:18 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.minike.top/Article/details/88001.shtml)
+- 2026-06-30 08:22 - [马耳他著名拱门坍塌致一中国男子身亡](https://www.share.kurohicncr.top/Article/details/1548897827.shtml)

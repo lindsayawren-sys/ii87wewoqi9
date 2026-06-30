@@ -1,58 +1,47 @@
-# 日本两大航司将上调欧美航线燃油附加费，单程2750元创新高
+# 伊朗军方称将落实“控制霍尔木兹海峡永久机制”
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-中新经纬6月12日电 据日本共同社12日报道，日本两大航司欧美航线燃油附加费将创新高。 该报道称，关于7月至8月出票的国际航线燃油附加费，全日空与日本航空公司决定将北美和欧洲航线单程上调至6.5万日元(约合人民币2750元)。5至6月已高达5.6万日元，继续上调将刷新最高纪录。 该报道指出，上调燃油附加费是由于中东局势恶化，飞机燃料价格持续飙升。往返将上调至13万日元左右，恐怕
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社德黑兰4月13日电伊朗武装部队哈塔姆安比亚中央总部发言人13日表示，面对威胁，伊朗将坚决落实“控制霍尔木兹海峡永久机制”。（完）责任编辑：宋雅芳
 
 ## 正文
 
-中新经纬6月12日电 据日本共同社12日报道，日本两大航司欧美航线燃油附加费将创新高。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-该报道称，关于7月至8月出票的国际航线燃油附加费，全日空与日本航空公司决定将北美和欧洲航线单程上调至6.5万日元(约合人民币2750元)。
+新华社德黑兰4月13日电伊朗武装部队哈塔姆安比亚中央总部发言人13日表示，面对威胁，伊朗将坚决落实“控制霍尔木兹海峡永久机制”。
 
-5至6月已高达5.6万日元，继续上调将刷新最高纪录。
-
-该报道指出，上调燃油附加费是由于中东局势恶化，飞机燃料价格持续飙升。
-
-往返将上调至13万日元左右，恐怕会影响暑期旅游需求。
-
-燃油附加费是在机票外另收取燃料费变动部分。
-
-该报道称，两家航司对飞往亚洲等其他地区的航线也将上调。
-
-最快将于12日公布各地区的附加费金额。
+（完）责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-30 08:12 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
-- 2026-06-30 08:29 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-30 08:39 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-30 08:33 - [萨内 看笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-30 08:24 - [日本博主：日本足球真的垃圾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-30 08:12 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-30 08:33 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
-- 2026-06-30 08:34 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-30 08:38 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-30 08:18 - [张月收到黄灿灿辣货两眼发光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
-- 2026-06-30 08:25 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-30 08:18 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-30 08:24 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-30 08:21 - [世界杯巴拉圭点球淘汰德国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-30 08:22 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-30 08:47 - [田中碧失误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-30 08:43 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-30 08:41 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-30 08:35 - [二次元提前预演明日巴西对日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-30 08:30 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
+- 2026-06-30 08:41 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-30 08:23 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-30 08:20 - [德国爆冷点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:34 - [二次元提前预演明日巴西对日本](http://www.blog.minike.top/Article/details/780744391392.shtml)
-- 2026-06-30 08:29 - [建议不要突然完全停止喝咖啡](https://www.share.minike.top/Article/details/50897760.shtml)
-- 2026-06-30 08:33 - [女子遭下药退赔偿拟追刑责](http://www.share.minike.top/Article/details/681144.shtml)
-- 2026-06-30 08:13 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/326959574345.shtml)
-- 2026-06-30 08:41 - [巴西扳平比分](https://www.share.kurohicncr.top/Article/details/5544398190.shtml)
-- 2026-06-30 08:27 - [女心理师](http://www.share.kurohicncr.top/Article/details/789464.shtml)
-- 2026-06-30 08:16 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/94836.shtml)
-- 2026-06-30 08:41 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/687232245.shtml)
-- 2026-06-30 08:13 - [卢卡申科发布解放军仪仗队视频](https://www.blog.kurohicncr.top/Article/details/03342232398.shtml)
-- 2026-06-30 08:19 - [委内瑞拉地震死亡人数升至1719人](https://www.share.minike.top/Article/details/431216888.shtml)
-- 2026-06-30 08:14 - [日本进球](http://www.blog.minike.top/Article/details/399850.shtml)
-- 2026-06-30 08:26 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.minike.top/Article/details/2651659.shtml)
-- 2026-06-30 08:33 - [武磊：巴西队赢的并不轻松](https://www.share.kurohicncr.top/Article/details/9440876968.shtml)
-- 2026-06-30 08:40 - [杨紫学位证上就是杨紫](http://www.share.minike.top/Article/details/169507.shtml)
-- 2026-06-30 08:25 - [孙兴慜发长文致歉](https://www.blog.minike.top/Article/details/072150.shtml)
+- 2026-06-30 08:31 - [城市规划有可能成为「屎山代码」吗？](http://www.blog.minike.top/Article/details/82169953.shtml)
+- 2026-06-30 08:34 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/767311051256.shtml)
+- 2026-06-30 08:45 - [问心2神一集鬼三集](http://www.share.minike.top/Article/details/289022750.shtml)
+- 2026-06-30 08:46 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/1491091486.shtml)
+- 2026-06-30 08:20 - [王灿兮被烫伤两年后维权成功](http://www.blog.minike.top/Article/details/1534430636.shtml)
+- 2026-06-30 08:26 - [峡谷事故团队组队时有人提醒会下雨](http://www.blog.kurohicncr.top/Article/details/274462008.shtml)
+- 2026-06-30 08:27 - [女子遭下药退赔偿拟追刑责](https://www.share.minike.top/Article/details/0653360.shtml)
+- 2026-06-30 08:41 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/9363910.shtml)
+- 2026-06-30 08:25 - [全球芯片巨头史诗级扩产](http://www.share.minike.top/Article/details/13715555.shtml)
+- 2026-06-30 08:44 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.minike.top/Article/details/3057402845.shtml)
+- 2026-06-30 08:27 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/92035.shtml)
+- 2026-06-30 08:41 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/191838577.shtml)
+- 2026-06-30 08:43 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/66319299.shtml)
+- 2026-06-30 08:28 - [索马里女大使：想和中国一起搞事业](https://www.blog.minike.top/Article/details/432003688471.shtml)
+- 2026-06-30 08:31 - [王濛回复黄灿灿](https://www.share.kurohicncr.top/Article/details/15710548759.shtml)

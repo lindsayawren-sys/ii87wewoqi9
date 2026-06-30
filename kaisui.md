@@ -1,44 +1,58 @@
-# 中国AI医疗亮相越南 赋能东盟智慧医疗发展
+# 郑丽文一行拜谒孙中山先生衣冠冢
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月11日 17:21 来源：中国新闻网 在近期举办的“智联东盟·医创未来”防城港国际医学开放试验区-北京经济技术开发区产业合作推介会上，越南中国商会医疗健康产业分会副会长陈家旭表示，AI与手术机器人大幅缩短外科医生培养周期，远程技术还能跨区域协同开展复杂手术，这套应用模式获得当地医疗主管部门与从业者的一致看好。(张静） 责任编辑：【程春雨】
+中新社北京4月11日电 (记者 路梅 刘子衿)11日上午，中国国民党主席郑丽文率国民党访问团，赴北京香山碧云寺拜谒孙中山先生衣冠冢。 碧云寺坐落于北京香山公园北麓，始建于元朝至顺二年(公元1331年)。孙中山先生逝世后，曾停灵于此；移灵南京时，更换出的中山先生衣帽封入金刚宝座塔石塔内。此地成为追思这位世纪伟人的重要纪念场所。 当天上午，碧空如洗。郑丽文一行抵达碧云寺，向寺内孙中
 
 ## 正文
 
-发布时间：2026年06月11日 17:21 来源：中国新闻网 在近期举办的“智联东盟·医创未来”防城港国际医学开放试验区-北京经济技术开发区产业合作推介会上，越南中国商会医疗健康产业分会副会长陈家旭表示，AI与手术机器人大幅缩短外科医生培养周期，远程技术还能跨区域协同开展复杂手术，这套应用模式获得当地医疗主管部门与从业者的一致看好。
+中新社北京4月11日电 (记者 路梅 刘子衿)11日上午，中国国民党主席郑丽文率国民党访问团，赴北京香山碧云寺拜谒孙中山先生衣冠冢。
 
-(张静） 责任编辑：【程春雨】
+碧云寺坐落于北京香山公园北麓，始建于元朝至顺二年(公元1331年)。
+
+孙中山先生逝世后，曾停灵于此；移灵南京时，更换出的中山先生衣帽封入金刚宝座塔石塔内。
+
+此地成为追思这位世纪伟人的重要纪念场所。
+
+当天上午，碧空如洗。
+
+郑丽文一行抵达碧云寺，向寺内孙中山纪念堂正中安放的中山先生汉白玉全身塑像行三鞠躬礼，并献花篮。
+
+随后，访问团成员瞻仰了纪念堂内存放的玻璃盖钢棺，及中山先生遗墨、遗著。
+
+来到孙中山先生衣冠冢前，一行人再次庄重鞠躬行礼，向这位中国民主革命的伟大先驱致敬。
 
 ## 相关推荐
 
-- 2026-06-30 08:28 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-30 08:20 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
-- 2026-06-30 08:13 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-30 08:33 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-30 08:40 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-30 08:22 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
-- 2026-06-30 08:26 - [恋与深空制作组回应近期争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
-- 2026-06-30 08:18 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
-- 2026-06-30 08:28 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-30 08:17 - [日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-30 08:29 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-30 08:34 - [莫兰特转投开拓者效力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-30 08:29 - [王楚钦说配合稍微有些陌生感](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-30 08:23 - [王楚钦孙颖莎晋级混双八强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
+- 2026-06-30 08:34 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
+- 2026-06-30 08:44 - [藤森庆子赢得秘鲁总统选举](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-30 08:41 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-30 08:32 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-30 08:18 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-30 08:47 - [森保一致歉：世界第一目标没能实现](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-30 08:27 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-30 08:26 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:32 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/405522.shtml)
-- 2026-06-30 08:29 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/55773287.shtml)
-- 2026-06-30 08:39 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](http://www.blog.kurohicncr.top/Article/details/06363965.shtml)
-- 2026-06-30 08:15 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/556999001030.shtml)
-- 2026-06-30 08:27 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/85087632986.shtml)
-- 2026-06-30 08:17 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/411586540670.shtml)
-- 2026-06-30 08:16 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/137519612297.shtml)
-- 2026-06-30 08:30 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/882514.shtml)
-- 2026-06-30 08:29 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/468239043879.shtml)
-- 2026-06-30 08:25 - [日本半场1比0领先巴西](https://www.blog.minike.top/Article/details/1263741296.shtml)
-- 2026-06-30 08:21 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/40208798.shtml)
-- 2026-06-30 08:28 - [二次元提前预演明日巴西对日本](https://www.share.kurohicncr.top/Article/details/105606194.shtml)
-- 2026-06-30 08:20 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/093085.shtml)
-- 2026-06-30 08:32 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.share.kurohicncr.top/Article/details/67048053.shtml)
-- 2026-06-30 08:33 - [穆祉丞年度人气艺人](http://www.blog.minike.top/Article/details/139785877322.shtml)
+- 2026-06-30 08:35 - [AI手机进入Agent时代](http://www.blog.minike.top/Article/details/61975870501.shtml)
+- 2026-06-30 08:24 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/4561141267.shtml)
+- 2026-06-30 08:38 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/04747.shtml)
+- 2026-06-30 08:22 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.kurohicncr.top/Article/details/4677128.shtml)
+- 2026-06-30 08:34 - [本届世界杯已有5名球员被控强奸](https://www.share.minike.top/Article/details/527223163470.shtml)
+- 2026-06-30 08:34 - [“柠檬茶能换怀表？”](http://www.blog.kurohicncr.top/Article/details/2515217877.shtml)
+- 2026-06-30 08:42 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/77164.shtml)
+- 2026-06-30 08:26 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/9784076411.shtml)
+- 2026-06-30 08:22 - [扫黑风暴](https://www.share.minike.top/Article/details/707129556202.shtml)
+- 2026-06-30 08:40 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/75397.shtml)
+- 2026-06-30 08:30 - [点球大战 残酷](https://www.share.kurohicncr.top/Article/details/652297515.shtml)
+- 2026-06-30 08:31 - [王灿兮被烫伤两年后维权成功](http://www.blog.minike.top/Article/details/60848616.shtml)
+- 2026-06-30 08:21 - [德国4比5巴拉圭](https://www.blog.kurohicncr.top/Article/details/88718794.shtml)
+- 2026-06-30 08:19 - [郑钦文温网一轮游](http://www.share.minike.top/Article/details/7898202018.shtml)
+- 2026-06-30 08:42 - [金牌调解](https://www.share.kurohicncr.top/Article/details/12390870.shtml)

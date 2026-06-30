@@ -1,59 +1,57 @@
-# 泰山：捡垃圾换礼品 守护文化自然遗产
+# 广州清明祭扫再迎高峰 无烟祭扫预约量逐年攀升
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月12日 07:53 来源：中国新闻网 近日，走进泰山景区，游客们会发现一个有趣的细节，不少人手中拎着印有环保标语的可降解垃圾袋，里面装着他们在登山途中捡拾的废弃物。这正是泰山景区推出的“垃圾换礼品”激励机制。通过“零碳泰山”APP小程序，景区将游客的每一次环保行为转化为碳积分。据统计，景区每年发放环保垃圾袋约6万个，兑换礼品3万余份，减少垃圾量约20吨
+中新网广州4月13日电 (记者 蔡敏婕)清明时节，追思悠悠。广州市民政局13日发布消息称，上周末(11日至12日)广州清明拜祭迎来了第二波小高峰，全市各拜祭场所接待民众68.6万人次、车辆10.7万辆次。 从焚香烧纸到鲜花追忆、电子香炉寄托哀思，清明祭扫方式正在悄然变化。绿色、文明、低碳，如今成为越来越多广州市民的选择。 广州市持续深化绿色殡葬理念，引导各拜祭场所设置无烟祭扫区
 
 ## 正文
 
-发布时间：2026年06月12日 07:53 来源：中国新闻网 近日，走进泰山景区，游客们会发现一个有趣的细节，不少人手中拎着印有环保标语的可降解垃圾袋，里面装着他们在登山途中捡拾的废弃物。
+中新网广州4月13日电 (记者 蔡敏婕)清明时节，追思悠悠。
 
-这正是泰山景区推出的“垃圾换礼品”激励机制。
+广州市民政局13日发布消息称，上周末(11日至12日)广州清明拜祭迎来了第二波小高峰，全市各拜祭场所接待民众68.6万人次、车辆10.7万辆次。
 
-通过“零碳泰山”APP小程序，景区将游客的每一次环保行为转化为碳积分。
+从焚香烧纸到鲜花追忆、电子香炉寄托哀思，清明祭扫方式正在悄然变化。
 
-据统计，景区每年发放环保垃圾袋约6万个，兑换礼品3万余份，减少垃圾量约20吨。
+绿色、文明、低碳，如今成为越来越多广州市民的选择。
 
-泰山境内古树名木资源丰富，现存古树18195棵，被誉为“绿色国宝”“活文物”。
+广州市持续深化绿色殡葬理念，引导各拜祭场所设置无烟祭扫区，推广鲜花祭扫、天堂信箱等环保祭拜方式。
 
-保护古树，不仅要让现存者“老有所依”，更要让珍贵基因“后继有树”。
+广州市殡葬服务中心优化铭恩园无烟拜祭区，将怀恩广场设为无烟区，免费提供电子香炉，设置生态安葬宣传栏及祈福设施，开展亲情寄语、天堂信箱等免费追思服务。
 
-(制作 乐小敏 视频来源 泰安台） 责任编辑：【苏亦瑜】
+今年，无烟拜祭区面积扩大一倍至2400平方米，共82张拜祭台，清明节当天(4月5日)全部约满。
+
+“能把想说的话写下来寄出去，真的很好。
 
 ## 相关推荐
 
-- 2026-06-30 08:17 - [曝iPhone18Pro机密文件现身暗网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-30 08:22 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-30 08:38 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-30 08:38 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
-- 2026-06-30 08:23 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
-- 2026-06-30 08:31 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-30 08:31 - [日耳曼拖拉机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-30 08:24 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
-- 2026-06-30 08:14 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-30 08:31 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
-- 2026-06-30 08:30 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-30 08:26 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-30 08:22 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-30 08:16 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
-- 2026-06-30 08:25 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-30 08:41 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-30 08:28 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-30 08:23 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
+- 2026-06-30 08:30 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-30 08:47 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-30 08:45 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-30 08:21 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-30 08:29 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-30 08:44 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-30 08:36 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-30 08:30 - [媒体：手机测评该挤挤水分了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:32 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/57408858.shtml)
-- 2026-06-30 08:35 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.kurohicncr.top/Article/details/79651792903.shtml)
-- 2026-06-30 08:32 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/234239587452.shtml)
-- 2026-06-30 08:31 - [日本五次世界杯淘汰赛全败](http://www.share.kurohicncr.top/Article/details/48032138.shtml)
-- 2026-06-30 08:28 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/58305.shtml)
-- 2026-06-30 08:25 - [巴西足球能否再现昔日荣光](https://www.blog.minike.top/Article/details/426313992852.shtml)
-- 2026-06-30 08:36 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/433089.shtml)
-- 2026-06-30 08:15 - [巴西替补奇兵读秒绝杀](http://www.share.minike.top/Article/details/571359276.shtml)
-- 2026-06-30 08:35 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/779385728.shtml)
-- 2026-06-30 08:34 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/37541298073.shtml)
-- 2026-06-30 08:12 - [卡塞米罗头球破门](https://www.share.kurohicncr.top/Article/details/738849152116.shtml)
-- 2026-06-30 08:23 - [德国队连续三届世界杯无缘16强](https://www.blog.minike.top/Article/details/0604440286.shtml)
-- 2026-06-30 08:27 - [吴易昺不敌德约科维奇 止步温网首轮](http://www.share.minike.top/Article/details/94025319.shtml)
-- 2026-06-30 08:32 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/675084.shtml)
-- 2026-06-30 08:34 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/52737544777.shtml)
+- 2026-06-30 08:19 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/900784366.shtml)
+- 2026-06-30 08:43 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/88541511.shtml)
+- 2026-06-30 08:47 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/637870455501.shtml)
+- 2026-06-30 08:46 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/7392126036.shtml)
+- 2026-06-30 08:18 - [巴西2比1日本](https://www.share.kurohicncr.top/Article/details/103145.shtml)
+- 2026-06-30 08:38 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/634989.shtml)
+- 2026-06-30 08:26 - [DeepSeek V4正式版要来了](http://www.share.kurohicncr.top/Article/details/608294889625.shtml)
+- 2026-06-30 08:25 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/50296383631.shtml)
+- 2026-06-30 08:32 - [王健林甩卖超80座万达广场](http://www.blog.minike.top/Article/details/28901644.shtml)
+- 2026-06-30 08:27 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/0186747.shtml)
+- 2026-06-30 08:39 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/235965181624.shtml)
+- 2026-06-30 08:24 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/539941.shtml)
+- 2026-06-30 08:31 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/27165691903.shtml)
+- 2026-06-30 08:18 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/7098555.shtml)
+- 2026-06-30 08:47 - [巴西2-1绝杀日本](http://www.share.kurohicncr.top/Article/details/15631242.shtml)

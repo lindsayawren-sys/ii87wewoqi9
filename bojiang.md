@@ -1,47 +1,59 @@
-# 国常会：研究2025年度中央预算执行和其他财政收支审计查出问题整改工作
+# 加拿大开普勒卫星集群开启在轨计算商业化探索
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-据央视，李强主持召开国务院常务会议，研究2025年度中央预算执行和其他财政收支审计查出问题整改工作；听取关于贯彻落实全国科技大会精神情况汇报；审议通过《教育发展“十五五”规划》；审议通过《美丽中国建设“十五五”规划》；讨论《中华人民共和国道路交通安全法（修订草案）》。 （本文来自第一财经） 责任编辑：刘万里 SF014
+尽管对太空数据中心的各种炒作很多，但目前在轨运行的GPU数量其实非常稀少。随着这一局面开始改变，轨道算力的短期商业形态正逐步成型。 目前在轨规模最大的算力集群由加拿大开普勒通信公司（Kepler Communications）于今年1月发射，由10颗在轨卫星搭载约40块英伟达Orin边缘处理器组成，并通过激光通信链路实现星间组网。 该公司目前已拥有18家客户，并于周一宣布了最新
 
 ## 正文
 
-据央视，李强主持召开国务院常务会议，研究2025年度中央预算执行和其他财政收支审计查出问题整改工作；听取关于贯彻落实全国科技大会精神情况汇报；审议通过《教育发展“十五五”规划》；审议通过《美丽中国建设“十五五”规划》；讨论《中华人民共和国道路交通安全法（修订草案）》。
+尽管对太空数据中心的各种炒作很多，但目前在轨运行的GPU数量其实非常稀少。
 
-（本文来自第一财经） 责任编辑：刘万里 SF014
+随着这一局面开始改变，轨道算力的短期商业形态正逐步成型。
+
+目前在轨规模最大的算力集群由加拿大开普勒通信公司（Kepler Communications）于今年1月发射，由10颗在轨卫星搭载约40块英伟达Orin边缘处理器组成，并通过激光通信链路实现星间组网。
+
+该公司目前已拥有18家客户，并于周一宣布了最新合作伙伴：初创企业索菲亚航天（Sophia Space）。
+
+后者将在开普勒的卫星星座上测试其专用轨道计算机软件。
+
+专家预计，类似SpaceX或蓝色起源构想的大型太空数据中心，要到2030年代才可能出现。
+
+现阶段的第一步，是对在轨采集的数据进行实时处理，以提升企业与政府部门所使用的天基传感器效能。
+
+开普勒通信首席执行官Mina Mitry表示，公司并不把自己定位为数据中心企业，而是太空应用基础设施提供商。
 
 ## 相关推荐
 
-- 2026-06-30 08:22 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-30 08:37 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-30 08:34 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-30 08:37 - [董路：谁赢谁是“正路子”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
-- 2026-06-30 08:19 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-30 08:36 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-30 08:40 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
-- 2026-06-30 08:28 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-30 08:39 - [德国队连续三届世界杯无缘16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-30 08:15 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
-- 2026-06-30 08:18 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-30 08:37 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-30 08:16 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-30 08:29 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-30 08:42 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-30 08:20 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-30 08:40 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-30 08:34 - [欧洲装一台空调有多难](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
+- 2026-06-30 08:41 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
+- 2026-06-30 08:35 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-30 08:33 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-30 08:37 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-30 08:22 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-30 08:35 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-30 08:29 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-30 08:35 - [泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:19 - [日本半场1比0领先巴西](http://www.share.kurohicncr.top/Article/details/8980023.shtml)
-- 2026-06-30 08:30 - [爱很美味](http://www.share.minike.top/Article/details/095100954.shtml)
-- 2026-06-30 08:20 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/782069.shtml)
-- 2026-06-30 08:27 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/83114.shtml)
-- 2026-06-30 08:29 - [武磊：巴西队赢的并不轻松](http://www.share.kurohicncr.top/Article/details/743077.shtml)
-- 2026-06-30 08:36 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/38395988180.shtml)
-- 2026-06-30 08:14 - [曝老詹对自由市场态度与以往截然不同](https://www.share.minike.top/Article/details/361757.shtml)
-- 2026-06-30 08:19 - [天道](http://www.share.minike.top/Article/details/092136309208.shtml)
-- 2026-06-30 08:12 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/843078676.shtml)
-- 2026-06-30 08:23 - [赛博朋克边缘行者2预告片](https://www.blog.kurohicncr.top/Article/details/62914312846.shtml)
-- 2026-06-30 08:17 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.share.minike.top/Article/details/184507.shtml)
-- 2026-06-30 08:31 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.minike.top/Article/details/98097125437.shtml)
-- 2026-06-30 08:20 - [AI手机进入Agent时代](https://www.blog.kurohicncr.top/Article/details/31261692.shtml)
-- 2026-06-30 08:29 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/276332514.shtml)
-- 2026-06-30 08:20 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/9423288.shtml)
+- 2026-06-30 08:27 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/73697253053.shtml)
+- 2026-06-30 08:41 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.kurohicncr.top/Article/details/227097892651.shtml)
+- 2026-06-30 08:20 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.kurohicncr.top/Article/details/8454374.shtml)
+- 2026-06-30 08:34 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/6819022.shtml)
+- 2026-06-30 08:21 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/76651709843.shtml)
+- 2026-06-30 08:27 - [青春环游记第三季](https://www.blog.minike.top/Article/details/9739984435.shtml)
+- 2026-06-30 08:31 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/56923749281.shtml)
+- 2026-06-30 08:20 - [日本博主：日本足球真的垃圾](https://www.blog.kurohicncr.top/Article/details/006178.shtml)
+- 2026-06-30 08:22 - [感动全网的699分女生想报考清华](https://www.blog.minike.top/Article/details/5817072823.shtml)
+- 2026-06-30 08:28 - [卢卡申科发布解放军仪仗队视频](http://www.share.kurohicncr.top/Article/details/69475441.shtml)
+- 2026-06-30 08:33 - [请回答王牌2019](http://www.blog.minike.top/Article/details/03146909.shtml)
+- 2026-06-30 08:19 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/73830.shtml)
+- 2026-06-30 08:23 - [莫兰特被交易到开拓者](http://www.share.minike.top/Article/details/71967095.shtml)
+- 2026-06-30 08:36 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/17160.shtml)
+- 2026-06-30 08:29 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.share.minike.top/Article/details/73956658.shtml)

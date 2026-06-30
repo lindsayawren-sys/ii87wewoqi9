@@ -1,57 +1,59 @@
-# 欧央行近三年首次加息，金价会否跌至3500？
+# 谈判无果而终，给伊朗战事留下两大疑问
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！欧洲央行加息25个基点，政策层面的核心意义在于，宣告欧元区降息周期暂停、紧缩态势重启；也向市场传递出信号：全球高通胀并未彻底结束，地缘冲突等外部冲击会反复扰动物价，央行抗通胀的底线不会松动 文|《财经》研究员 顾欣宇 编辑|张威 北京时间6月11日晚8点15分，欧洲央行宣布将三项关键利率上调25个基点，为近
+中新网4月12日电(管娜)“随着这场马拉松式的谈判持续推进，人们目睹伊斯兰堡日落又日出。但谈判最后无果而终，这对刚刚显现的缓解危机希望，是一次重大打击。”美国有线电视新闻网(CNN)如是评价道。 美国与伊朗在巴基斯坦首都伊斯兰堡举行的多轮谈判，当地时间12日告一段落。 美国副总统万斯称，美伊谈判未能达成共识。伊朗外交部发言人巴加埃说，伊朗和美国在一些问题上达成了共识，但在两三个
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网4月12日电(管娜)“随着这场马拉松式的谈判持续推进，人们目睹伊斯兰堡日落又日出。
 
-欧洲央行加息25个基点，政策层面的核心意义在于，宣告欧元区降息周期暂停、紧缩态势重启；也向市场传递出信号：全球高通胀并未彻底结束，地缘冲突等外部冲击会反复扰动物价，央行抗通胀的底线不会松动 文|《财经》研究员 顾欣宇 编辑|张威 北京时间6月11日晚8点15分，欧洲央行宣布将三项关键利率上调25个基点，为近三年来首次加息。
+但谈判最后无果而终，这对刚刚显现的缓解危机希望，是一次重大打击。
 
-东北证券宏观经济首席分析师廖博表示，欧洲央行成为G7经济体中在2026年率先启动加息的央行，反映欧洲央行希冀货币政策灵活调整，走在通胀曲线的前面。
+”美国有线电视新闻网(CNN)如是评价道。
 
-欧洲央行6月11日货币政策决议显示，由于能源价格走高，上调了2026年和2027年的基线通胀预测。
+美国与伊朗在巴基斯坦首都伊斯兰堡举行的多轮谈判，当地时间12日告一段落。
 
-整体来看，中国银河证券首席策略分析师杨超强调，若本轮部分央行加息，并非经济过热驱动，而是地缘冲突推升油价、通胀反弹带来的被动应急式加息，并非新一轮主动紧缩周期。
+美国副总统万斯称，美伊谈判未能达成共识。
 
-多数经济体经济复苏乏力，基本面不支持持续大幅加息。
+伊朗外交部发言人巴加埃说，伊朗和美国在一些问题上达成了共识，但在两三个重要问题上存在分歧，最终未能达成协议。
 
-因此接下来全球央行只会是局部加息、整体分化，不会形成全球性的加息浪潮。
+协议未达成，冲突走向仍是未知数。
 
-6月15日当周，全球其他主要央行如美联储、日本央行、英国央行、澳大利亚储备银行（下称“澳大利亚央行”）亦会发布利率决议。
+未达共识：双方分歧明显 12日上午，万斯在伊斯兰堡举行新闻发布会。
 
 ## 相关推荐
 
-- 2026-06-30 08:27 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-30 08:29 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-30 08:17 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-30 08:36 - [日本球迷被强行披上巴西国旗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
-- 2026-06-30 08:19 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-30 08:32 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
-- 2026-06-30 08:37 - [德国爆冷点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-30 08:16 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-30 08:15 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-30 08:26 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
-- 2026-06-30 08:25 - [杨紫学位证上就是杨紫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-30 08:37 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-30 08:44 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-30 08:39 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
+- 2026-06-30 08:45 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-30 08:39 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-30 08:39 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-30 08:29 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-30 08:18 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-30 08:41 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-30 08:47 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-30 08:41 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-30 08:35 - [如果有二次元高中是什么样子的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-30 08:22 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:26 - [我觉得你是在无中生友](https://www.share.kurohicncr.top/Article/details/139448286.shtml)
-- 2026-06-30 08:19 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/635422364996.shtml)
-- 2026-06-30 08:34 - [巴西2-1绝杀日本](http://www.share.kurohicncr.top/Article/details/309767172.shtml)
-- 2026-06-30 08:36 - [杨紫获白玉兰视后争议不止](https://www.share.kurohicncr.top/Article/details/67245069059.shtml)
-- 2026-06-30 08:22 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/942951.shtml)
-- 2026-06-30 08:21 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/6621123541.shtml)
-- 2026-06-30 08:25 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.kurohicncr.top/Article/details/4696376.shtml)
-- 2026-06-30 08:39 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/13310959.shtml)
-- 2026-06-30 08:22 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/579711938.shtml)
-- 2026-06-30 08:14 - [吴易昺不敌德约科维奇 止步温网首轮](https://www.share.kurohicncr.top/Article/details/30270.shtml)
-- 2026-06-30 08:21 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/37112175007.shtml)
-- 2026-06-30 08:32 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.kurohicncr.top/Article/details/74146.shtml)
-- 2026-06-30 08:16 - [王欣瑜连续4年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/201837042.shtml)
-- 2026-06-30 08:14 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/57139.shtml)
-- 2026-06-30 08:37 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/32596591114.shtml)
+- 2026-06-30 08:27 - [李准基参加文彩元婚礼](https://www.blog.kurohicncr.top/Article/details/383534461247.shtml)
+- 2026-06-30 08:43 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/325034604.shtml)
+- 2026-06-30 08:45 - [健全中小学教师工资长效联动机制](http://www.blog.kurohicncr.top/Article/details/92212.shtml)
+- 2026-06-30 08:31 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/23802878239.shtml)
+- 2026-06-30 08:38 - [巴西2比1日本](https://www.share.kurohicncr.top/Article/details/60130.shtml)
+- 2026-06-30 08:18 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/139370075.shtml)
+- 2026-06-30 08:46 - [日本16强魔咒](http://www.share.kurohicncr.top/Article/details/9400600519.shtml)
+- 2026-06-30 08:47 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/863278.shtml)
+- 2026-06-30 08:36 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/91526.shtml)
+- 2026-06-30 08:47 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/916473582469.shtml)
+- 2026-06-30 08:39 - [送你一朵小红花](http://www.share.minike.top/Article/details/8721197.shtml)
+- 2026-06-30 08:31 - [第3集丨“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/02439.shtml)
+- 2026-06-30 08:33 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/49801657379.shtml)
+- 2026-06-30 08:33 - [巴拉圭率先破门](http://www.blog.kurohicncr.top/Article/details/555295882.shtml)
+- 2026-06-30 08:24 - [杨紫被质疑未使用原名纯属误解](https://www.blog.kurohicncr.top/Article/details/22378471707.shtml)

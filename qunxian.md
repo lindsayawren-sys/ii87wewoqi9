@@ -1,58 +1,48 @@
-# SBTi出台企业净零排放全新规则
+# 特朗普称赞“世界上最强大的重置” 但未作详细说明
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-碳清除方案与环境信用额度将纳入企业脱碳核算体系 全球头部企业气候标准制定机构发布全新规则，允许企业在碳足迹核算中计入外购环境信用额度。该机构称，出台新规是为正视部分排放无法完全清零的客观现实。 科学碳目标倡议（SBTi）发布万众期待的企业净零排放准则修订版，其中明确表态：“我们主动承认，企业无法掌控所有排放环节，一味否认现实对各方都毫无益处。” 这家总部位于英国的非营利组织表示
+特朗普称赞“世界上最强大的重置”，但未详细说明他指的是什么。责任编辑：李肇孚
 
 ## 正文
 
-碳清除方案与环境信用额度将纳入企业脱碳核算体系 全球头部企业气候标准制定机构发布全新规则，允许企业在碳足迹核算中计入外购环境信用额度。
+特朗普称赞“世界上最强大的重置”，但未详细说明他指的是什么。
 
-该机构称，出台新规是为正视部分排放无法完全清零的客观现实。
-
-科学碳目标倡议（SBTi）发布万众期待的企业净零排放准则修订版，其中明确表态：“我们主动承认，企业无法掌控所有排放环节，一味否认现实对各方都毫无益处。
-
-” 这家总部位于英国的非营利组织表示，整套新规以 “尽最大努力行动” 为核心框架：“核心要求清晰明确：基于科学设定减排目标，配套可行落地方案；穷尽自身可控渠道减排；如实披露各类阻碍减排的客观瓶颈，并持续公示为突破瓶颈采取的举措。
-
-” 在此之前，SBTi 要求企业仅聚焦自身供应链内部脱碳，例如厂区运营全面使用可再生电力。
-
-而采购可持续航空燃料信用额度这类市场化减排手段，属于企业供应链之外的减排行为，此前不被认可、无法计入 SBTi 认证气候目标的完成进度。
-
-如今，这类市场化工具正式成为企业净零战略的核心组成部分。
-
-针对难以或几乎无法彻底消除的残余排放，企业可借助碳清除技术实现碳中和，包含直接空气捕集、造林碳汇信用等方式。
+责任编辑：李肇孚
 
 ## 相关推荐
 
-- 2026-06-30 08:18 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-30 08:28 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-30 08:19 - [4000美元是黄金新一轮下跌的开始吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-30 08:16 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
-- 2026-06-30 08:24 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-30 08:13 - [日耳曼拖拉机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
-- 2026-06-30 08:24 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-30 08:16 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-30 08:20 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
-- 2026-06-30 08:25 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
-- 2026-06-30 08:40 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
-- 2026-06-30 08:19 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-30 08:45 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-30 08:34 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-30 08:32 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-30 08:24 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
+- 2026-06-30 08:24 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-30 08:46 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-30 08:39 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-30 08:20 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-30 08:26 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-30 08:41 - [二次元提前预演明日巴西对日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-30 08:43 - [存储芯片龙头提示风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-30 08:25 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-30 08:19 - [IGN评测电影版后室](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-30 08:22 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:22 - [大蒜晒外面被路过女子连盆端走](https://www.blog.kurohicncr.top/Article/details/854368306.shtml)
-- 2026-06-30 08:34 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/496705069.shtml)
-- 2026-06-30 08:30 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/0641804.shtml)
-- 2026-06-30 08:26 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/0522504184.shtml)
-- 2026-06-30 08:33 - [三星投资计划](http://www.blog.minike.top/Article/details/5076784153.shtml)
-- 2026-06-30 08:31 - [德国巴拉圭 折磨](https://www.blog.kurohicncr.top/Article/details/75106.shtml)
-- 2026-06-30 08:28 - [急先锋](https://www.share.kurohicncr.top/Article/details/3489208381.shtml)
-- 2026-06-30 08:31 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.kurohicncr.top/Article/details/783991815.shtml)
-- 2026-06-30 08:16 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/9115783767.shtml)
-- 2026-06-30 08:35 - [杨紫获白玉兰视后争议不止](https://www.share.minike.top/Article/details/407269460123.shtml)
-- 2026-06-30 08:17 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/692351337414.shtml)
-- 2026-06-30 08:32 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/6094434.shtml)
-- 2026-06-30 08:29 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/4695564.shtml)
-- 2026-06-30 08:27 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.minike.top/Article/details/255342.shtml)
-- 2026-06-30 08:33 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/24175.shtml)
+- 2026-06-30 08:42 - [王濛回复黄灿灿](http://www.share.minike.top/Article/details/52169745.shtml)
+- 2026-06-30 08:34 - [人类...完蛋了...](https://www.blog.minike.top/Article/details/8541144079.shtml)
+- 2026-06-30 08:41 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/744827448.shtml)
+- 2026-06-30 08:20 - [日本队5进世界杯淘汰赛0胜](https://www.blog.kurohicncr.top/Article/details/6032267.shtml)
+- 2026-06-30 08:33 - [巴拉圭进球](https://www.share.kurohicncr.top/Article/details/34545333056.shtml)
+- 2026-06-30 08:30 - [郑钦文 四年一轮游](https://www.share.kurohicncr.top/Article/details/732128366.shtml)
+- 2026-06-30 08:40 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/088434.shtml)
+- 2026-06-30 08:30 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/94971634771.shtml)
+- 2026-06-30 08:45 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/52494192.shtml)
+- 2026-06-30 08:35 - [王源近几年没有路演了](http://www.share.minike.top/Article/details/8776821323.shtml)
+- 2026-06-30 08:47 - [女子清吧被陌生人投放伟哥](http://www.share.minike.top/Article/details/622441270043.shtml)
+- 2026-06-30 08:35 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/883388.shtml)
+- 2026-06-30 08:18 - [德国vs巴拉圭](https://www.blog.minike.top/Article/details/817443043390.shtml)
+- 2026-06-30 08:39 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/5075286.shtml)
+- 2026-06-30 08:20 - [德国淘汰](https://www.blog.minike.top/Article/details/319257127215.shtml)

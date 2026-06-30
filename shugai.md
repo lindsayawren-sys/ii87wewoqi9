@@ -1,60 +1,59 @@
-# 中哈武术展演交流活动在阿斯塔纳举行
+# 房子两天内遭遇两次攻击，OpenAI CEO此前曾回应“AI焦虑”
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-中新网阿斯塔纳6月11日电 (记者 单璐)“武韵传情·文明对话”中哈武术展演交流活动10日在哈萨克斯坦首都阿斯塔纳举行。活动以“武术”为媒介、以“文明对话”为主题，通过武术展演、大师班和互动体验等形式，展示中华武术文化魅力。中国驻哈萨克斯坦大使韩春霖在致辞中表示，当天恰逢联合国“文明对话国际日”，本次活动主题与其倡导的尊重文明多样性、推动不同文明交流对话、互学互鉴理念高度契合。
+OpenAI CEO奥尔特曼（Sam Altman）家被扔燃烧瓶后不到2天时间，他位于美国旧金山的房子又遭遇了枪击。 美国旧金山警方发布的相关声明称，当地时间4月12日凌晨2点多，警方前往俄罗斯山调查可疑的枪击事件，随后警察逮捕了两名嫌疑人，两人因过失射击被登记，调查仍在进行中，警方还在调查过程中缴获了3把枪支。当地媒体则称，这处房产是奥尔特曼的房子。 而在当地时间4月10日凌
 
 ## 正文
 
-中新网阿斯塔纳6月11日电 (记者 单璐)“武韵传情·文明对话”中哈武术展演交流活动10日在哈萨克斯坦首都阿斯塔纳举行。
+OpenAI CEO奥尔特曼（Sam Altman）家被扔燃烧瓶后不到2天时间，他位于美国旧金山的房子又遭遇了枪击。
 
-活动以“武术”为媒介、以“文明对话”为主题，通过武术展演、大师班和互动体验等形式，展示中华武术文化魅力。
+美国旧金山警方发布的相关声明称，当地时间4月12日凌晨2点多，警方前往俄罗斯山调查可疑的枪击事件，随后警察逮捕了两名嫌疑人，两人因过失射击被登记，调查仍在进行中，警方还在调查过程中缴获了3把枪支。
 
-中国驻哈萨克斯坦大使韩春霖在致辞中表示，当天恰逢联合国“文明对话国际日”，本次活动主题与其倡导的尊重文明多样性、推动不同文明交流对话、互学互鉴理念高度契合。
+当地媒体则称，这处房产是奥尔特曼的房子。
 
-武术是中华优秀传统文化的重要组成部分，也是跨越语言、融通心灵的文化符号。
+而在当地时间4月10日凌晨，奥尔特曼的房子还被扔了一个燃烧瓶。
 
-本次活动以武为媒、以艺架桥，为两国民众相知相亲、文明互鉴搭建交流平台。
+奥尔特曼在社交媒体上透露了此事，称幸好燃烧瓶反弹出去，没有人受伤。
 
-哈萨克斯坦旅游和体育部体育委员会副主席阿曼拜·努尔穆罕贝托夫表示，武术已成为哈中体育文化合作的重要方向，双方正围绕联合训练营、国际赛事以及教练员、运动员交流开展合作。
+美国旧金山警方在一份声明中表示，投掷燃烧性破坏装置导致住宅一处外门起火，警方已对一名20岁男子实施逮捕，但警方尚未透露调查结果。
 
-他表示，近年来武术运动在哈萨克斯坦发展迅速，越来越多哈萨克斯坦运动员登上亚洲和世界级武术赛事舞台。
+奥尔特曼的房子遭遇了两次攻击事件，具体原因仍待调查。
 
-活动现场，哈萨克斯坦武术与功夫协会武术队、中国武术协会教练组和上海体育大学武术学院学生同台展演，通过太极拳以及刀、枪、剑、棍等传统武术器械项目展示中华武术风采。
+奥尔特曼在第一次攻击事件后发布的博客中，则提到人们对人工智能的焦虑情绪。
 
 ## 相关推荐
 
-- 2026-06-30 08:36 - [巴拉圭率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
-- 2026-06-30 08:31 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-30 08:37 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
-- 2026-06-30 08:21 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-30 08:29 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
-- 2026-06-30 08:12 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-30 08:32 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-30 08:20 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-30 08:22 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
-- 2026-06-30 08:34 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
-- 2026-06-30 08:24 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-30 08:32 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
-- 2026-06-30 08:25 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-30 08:15 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-30 08:44 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-30 08:20 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-30 08:39 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-30 08:36 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-30 08:20 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-30 08:43 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-30 08:37 - [第3集丨“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
+- 2026-06-30 08:25 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-30 08:40 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-30 08:20 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-30 08:44 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-30 08:35 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-30 08:43 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:22 - [高考结束了，你会让孩子在家玩手机吗？](https://www.share.minike.top/Article/details/5786153321.shtml)
-- 2026-06-30 08:25 - [爆冷出局！德国点球大战不敌巴拉圭](https://www.blog.kurohicncr.top/Article/details/48769.shtml)
-- 2026-06-30 08:40 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/1884379.shtml)
-- 2026-06-30 08:30 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/4988158435.shtml)
-- 2026-06-30 08:28 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/47273.shtml)
-- 2026-06-30 08:31 - [千香](http://www.blog.kurohicncr.top/Article/details/076274.shtml)
-- 2026-06-30 08:19 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](http://www.blog.kurohicncr.top/Article/details/3886861.shtml)
-- 2026-06-30 08:39 - [湖南祁东原文化馆被指贱卖](https://www.share.minike.top/Article/details/51687384.shtml)
-- 2026-06-30 08:26 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/30850034.shtml)
-- 2026-06-30 08:29 - [二次元提前预演明日巴西对日本](http://www.share.kurohicncr.top/Article/details/1329864111.shtml)
-- 2026-06-30 08:15 - [千香](https://www.share.kurohicncr.top/Article/details/7682433405.shtml)
-- 2026-06-30 08:13 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/5126206735.shtml)
-- 2026-06-30 08:12 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/6551919.shtml)
-- 2026-06-30 08:22 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/06858.shtml)
-- 2026-06-30 08:36 - [网红峡谷5人溺亡 有人提醒会下雨](http://www.share.kurohicncr.top/Article/details/709723450175.shtml)
+- 2026-06-30 08:39 - [亚洲球队全部告别世界杯](http://www.blog.kurohicncr.top/Article/details/77845.shtml)
+- 2026-06-30 08:27 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/88422.shtml)
+- 2026-06-30 08:19 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/2348831.shtml)
+- 2026-06-30 08:20 - [德国罚丢3粒点球](https://www.share.minike.top/Article/details/577280.shtml)
+- 2026-06-30 08:32 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/40320240.shtml)
+- 2026-06-30 08:31 - [哈弗茨头球破门](https://www.blog.kurohicncr.top/Article/details/8058136.shtml)
+- 2026-06-30 08:28 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/36061361368.shtml)
+- 2026-06-30 08:33 - [刘必安等16人非法集资案二审宣判](http://www.share.kurohicncr.top/Article/details/120378432038.shtml)
+- 2026-06-30 08:28 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/090448.shtml)
+- 2026-06-30 08:30 - [莫兰特被交易到开拓者](https://www.share.minike.top/Article/details/456930.shtml)
+- 2026-06-30 08:26 - [日本将帅赛后采访纷纷哽咽落泪](http://www.blog.kurohicncr.top/Article/details/372657.shtml)
+- 2026-06-30 08:36 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/322679.shtml)
+- 2026-06-30 08:25 - [巴拉圭先进球了](http://www.share.minike.top/Article/details/2933698.shtml)
+- 2026-06-30 08:24 - [“柠檬茶能换怀表？”](http://www.blog.kurohicncr.top/Article/details/70539450095.shtml)
+- 2026-06-30 08:36 - [巴拉圭率先破门](https://www.share.kurohicncr.top/Article/details/3374027.shtml)

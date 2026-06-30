@@ -1,58 +1,56 @@
-# 中东局势峰回路转 特朗普取消原定对伊朗的军事打击
+# （近观中国）国共领导人十年再会面，习近平定调“守护好、建设好共同家园”
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-特朗普表示取消了原定对伊朗的军事打击计划，这堪称惊人转折 —— 就在数小时前，他还发誓言要“狠狠”打击伊朗，并威胁要夺取其石油基础设施。 特朗普周四表示，与德黑兰的谈判“已经提交至伊朗最高领导层”。他称“协议签署的时间和地点将很快公布”，但未提供更多细节。 特朗普在社交媒体上发帖表示，“我作为美利坚合众国总统，已取消原定于今晚针对伊朗的打击和轰炸行动。” 特朗普发表讲话后，油价
+中新社北京4月10日电 题：国共领导人十年再会面，习近平定调“守护好、建设好共同家园” 中新社记者 杨程晨 黄钰钦 “中国是中华民族的共同家园。” 中共中央总书记习近平10日在北京会见中国国民党主席郑丽文率领的访问团时强调，两岸同胞要守护好、建设好这个共同家园。 这是台海形势复杂严峻背景下，国共领导人时隔10年再次会面。观察人士指出，习近平重要讲话，昭示大陆方面推动两岸关系和平
 
 ## 正文
 
-特朗普表示取消了原定对伊朗的军事打击计划，这堪称惊人转折 —— 就在数小时前，他还发誓言要“狠狠”打击伊朗，并威胁要夺取其石油基础设施。
+中新社北京4月10日电 题：国共领导人十年再会面，习近平定调“守护好、建设好共同家园” 中新社记者 杨程晨 黄钰钦 “中国是中华民族的共同家园。
 
-特朗普周四表示，与德黑兰的谈判“已经提交至伊朗最高领导层”。
+” 中共中央总书记习近平10日在北京会见中国国民党主席郑丽文率领的访问团时强调，两岸同胞要守护好、建设好这个共同家园。
 
-他称“协议签署的时间和地点将很快公布”，但未提供更多细节。
+这是台海形势复杂严峻背景下，国共领导人时隔10年再次会面。
 
-特朗普在社交媒体上发帖表示，“我作为美利坚合众国总统，已取消原定于今晚针对伊朗的打击和轰炸行动。
+观察人士指出，习近平重要讲话，昭示大陆方面推动两岸关系和平发展、融合发展的坚定决心与最大诚意，宣示“两岸同胞走亲走近、走到一起的大潮流不会改变”。
 
-” 特朗普发表讲话后，油价暴跌近4%，布伦特价格跌破每桶90美元。
+从共同家园看初心，“九二共识”是台海和平稳定锚。
 
-伊朗尚未就特朗普的言论置评。
+2016年，习近平会见来访的时任国民党主席洪秀柱时指出，两岸是割舍不断的命运共同体。
 
-这些言论标志着特朗普就战争形势发出的最新矛盾信号：他一会儿威胁要加大攻击力度，一会儿又坚称和平协议近在咫尺。
+时隔10年，习近平在此次讲话中提到，两岸同胞“是休戚与共的命运共同体”；大陆和台湾同属一个中国，中国是中华民族的共同家园。
 
-然而，这两种情况都尚未成为现实，华盛顿和德黑兰在伊朗核计划和冻结资产等关键问题上仍僵持不下。
+众所周知，要守护好、建设好共同家园，其根本在于坚持“九二共识”、反对“台独”，其核心是认同两岸同属一个中国。
 
 ## 相关推荐
 
-- 2026-06-30 08:40 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-30 08:34 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-30 08:28 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
-- 2026-06-30 08:28 - [森保一 保守](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
-- 2026-06-30 08:19 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-30 08:15 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
-- 2026-06-30 08:13 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-30 08:36 - [张月收到黄灿灿辣货两眼发光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-30 08:38 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
-- 2026-06-30 08:14 - [德国4比5巴拉圭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-30 08:40 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-30 08:26 - [日本五次世界杯淘汰赛全败](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-30 08:35 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-30 08:37 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
+- 2026-06-30 08:40 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-30 08:29 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
+- 2026-06-30 08:27 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-30 08:22 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-30 08:24 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-30 08:47 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-30 08:32 - [日本队主帅道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
+- 2026-06-30 08:44 - [三星投资计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:32 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.minike.top/Article/details/6620938.shtml)
-- 2026-06-30 08:20 - [曝灰熊将莫兰特交易至开拓者](https://www.share.kurohicncr.top/Article/details/0471066097.shtml)
-- 2026-06-30 08:18 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/564086020214.shtml)
-- 2026-06-30 08:27 - [女心理师](http://www.blog.kurohicncr.top/Article/details/2678637.shtml)
-- 2026-06-30 08:35 - [德国巴拉圭加时](https://www.share.minike.top/Article/details/59094.shtml)
-- 2026-06-30 08:21 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.minike.top/Article/details/375384864.shtml)
-- 2026-06-30 08:32 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/35961127352.shtml)
-- 2026-06-30 08:28 - [真实感受到千香是积压剧了](https://www.share.kurohicncr.top/Article/details/96032710038.shtml)
-- 2026-06-30 08:30 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/960181367.shtml)
-- 2026-06-30 08:21 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/78222.shtml)
-- 2026-06-30 08:38 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/4379654.shtml)
-- 2026-06-30 08:38 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/37970108.shtml)
-- 2026-06-30 08:21 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.kurohicncr.top/Article/details/307713.shtml)
-- 2026-06-30 08:32 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/65920686945.shtml)
-- 2026-06-30 08:39 - [巴拉圭率先破门](http://www.blog.kurohicncr.top/Article/details/131398.shtml)
+- 2026-06-30 08:27 - [中国新一轮出口管制直指日本命脉](http://www.share.kurohicncr.top/Article/details/65527334348.shtml)
+- 2026-06-30 08:24 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/671954200842.shtml)
+- 2026-06-30 08:29 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/08930418.shtml)
+- 2026-06-30 08:40 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/97800.shtml)
+- 2026-06-30 08:27 - [泰山景区回应修建刀片刺绳隔离网](http://www.share.kurohicncr.top/Article/details/3452572.shtml)
+- 2026-06-30 08:23 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://www.blog.minike.top/Article/details/45066.shtml)
+- 2026-06-30 08:34 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.minike.top/Article/details/26596981171.shtml)
+- 2026-06-30 08:20 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/6115827141.shtml)
+- 2026-06-30 08:44 - [男子身高一米八二仍做断骨增高](http://www.share.kurohicncr.top/Article/details/825265146.shtml)
+- 2026-06-30 08:26 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/182796768.shtml)
+- 2026-06-30 08:41 - [日本进球](https://www.share.minike.top/Article/details/60443.shtml)
+- 2026-06-30 08:34 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.kurohicncr.top/Article/details/194013613.shtml)
+- 2026-06-30 08:28 - [有什么好的高中网课推荐吗？](http://www.blog.kurohicncr.top/Article/details/056780872982.shtml)
+- 2026-06-30 08:19 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/751114.shtml)
+- 2026-06-30 08:26 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/19246751191.shtml)

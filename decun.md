@@ -1,59 +1,56 @@
-# “科学与中国”科普行走进内蒙古 院士专家赴校园访企业“传经送宝”
+# 领充新能源周强：高速公路充电已成为第二大能耗场景
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-中新网内蒙古巴彦淖尔6月12日电 (记者 孙自法)“科学与中国——千名院士·千场科普”内蒙古行系列活动，6月10日至12日先后在呼和浩特、巴彦淖尔顺利举行，包括3位院士在内的20多位专家学者代表，深入两市大中小学、企业园区、政府机关等“传经送宝”，以科技“第一生产力”助力当地经济社会高质量发展。 聚焦粮食安全这一“国之大者”，中国科学院院士、中国科学院遗传与发育生物学研究所曹晓
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。领充新能源科技有限公司CEO周强出席并演讲。 他指出，随着新能源汽车渗透率提升、电池技术进步，电动汽车已从城市短途通勤工具转变为长途出行选择，高速公路充电需求随之激增。当前高速公路充电设施覆盖
 
 ## 正文
 
-中新网内蒙古巴彦淖尔6月12日电 (记者 孙自法)“科学与中国——千名院士·千场科普”内蒙古行系列活动，6月10日至12日先后在呼和浩特、巴彦淖尔顺利举行，包括3位院士在内的20多位专家学者代表，深入两市大中小学、企业园区、政府机关等“传经送宝”，以科技“第一生产力”助力当地经济社会高质量发展。
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
 
-聚焦粮食安全这一“国之大者”，中国科学院院士、中国科学院遗传与发育生物学研究所曹晓风研究员以“饲草育种与土壤改良”为题作主旨报告指出，中国盐碱荒(草)地达1.85亿亩，适宜开发的达4363万亩，集中分布于东北、新疆等地区，潜力巨大，另有盐碱障碍耕地1.14亿亩，产能亟需提升。
+领充新能源科技有限公司CEO周强出席并演讲。
 
-她带领团队承担中国科学院重点部署项目“边际土地产能扩增机理与藏粮于地技术模式”，致力于解锁盐碱荒地利用，提出因地制宜筛选适宜边际土地种植饲草的方案。
+他指出，随着新能源汽车渗透率提升、电池技术进步，电动汽车已从城市短途通勤工具转变为长途出行选择，高速公路充电需求随之激增。
 
-研究团队从800多份绿肥中筛选出耐盐碱植物田菁，在此基础上开展基因育种，成功培育出极耐盐碱、极耐涝且具有广适性的“中科菁”系列新品系，已进入国家级草品种区试。
+当前高速公路充电设施覆盖率虽达98%，但能耗结构已发生变化——充电设施能耗占比达15%，成为仅次于隧道供电的第二大能耗场景。
 
-曹晓风院士透露，研究团队还积极探索“田菁+”种植模式，包括田菁+燕麦、田菁+玉米、田菁+羊草、光伏+田菁等混播及间作栽培，并在多地开展试验示范。
+周强分析，中国新能源汽车已获广泛认可，驾驶舒适性、智能化水平及电池安全性、续航里程均满足用户需求，固态电池、钠电池有望在“十五五”末量产，进一步推动电动化普及。
 
-结果表明，作为一种优质的肥饲兼用作物，田菁在重度盐碱荒地改良、改善土壤结构和肥力、提高土地利用率、提升农田生态效益和经济效益等方面成效显著。
+这使得高速公路成为电动汽车常态行驶场景，能源需求呈现两大变化：充电能耗占比提升；服务区功能升级带动能源需求增长。
 
-在内蒙古大学，中国工程院院士、中国科学院沈阳应用生态研究所所长朱教君研究员以《三北工程与中国治沙》为题做科普报告强调，治沙不是简单种树，而是遵循自然规律的科学治理，一代代治沙人凭科技、靠坚守，硬生生锁住了漫天黄沙。
+周强总表示，交能融合的核心是交通设施能源供给转型，通过“大功率超充+绿色能源替代+信息化引导”，可实现高速公路“随到随充”的补能体验，同时推动交通领域绿色低碳发展。
 
-他立足北方地区风沙治理、水土流失治理现状，回顾三北防护林工程的建设背景与重大战略意义，系统梳理了工程从初期防风固沙、守护农田草场，到新时代统筹山水林田湖草沙一体化保护和系统治理的科学治沙路径，用详实数据、生动案例展现中国从“沙进人退”到“绿进沙退”的历史性跨越，诠释中国科技治沙、科学护绿的硬核实力与坚守精神。
+新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
 
 ## 相关推荐
 
-- 2026-06-30 08:34 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
-- 2026-06-30 08:37 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
-- 2026-06-30 08:41 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-30 08:26 - [莫兰特转投开拓者效力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-30 08:40 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
-- 2026-06-30 08:35 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-30 08:23 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-30 08:13 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
-- 2026-06-30 08:39 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
-- 2026-06-30 08:23 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-30 08:38 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-30 08:28 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
-- 2026-06-30 08:17 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-30 08:34 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-30 08:45 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
+- 2026-06-30 08:23 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-30 08:26 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
+- 2026-06-30 08:35 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-30 08:24 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-30 08:37 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
+- 2026-06-30 08:36 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-30 08:39 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-30 08:33 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:28 - [周生如故](https://www.share.minike.top/Article/details/5476919826.shtml)
-- 2026-06-30 08:33 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/572756505.shtml)
-- 2026-06-30 08:34 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/619138.shtml)
-- 2026-06-30 08:13 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/87853591650.shtml)
-- 2026-06-30 08:33 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/85383538.shtml)
-- 2026-06-30 08:24 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/69388903.shtml)
-- 2026-06-30 08:28 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/19914.shtml)
-- 2026-06-30 08:22 - [金刚川](https://www.blog.kurohicncr.top/Article/details/037600010.shtml)
-- 2026-06-30 08:17 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/7239539.shtml)
-- 2026-06-30 08:35 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/584117.shtml)
-- 2026-06-30 08:31 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/343236591986.shtml)
-- 2026-06-30 08:22 - [王曼昱被突如其来的话筒逗笑了](http://www.blog.minike.top/Article/details/36362629.shtml)
-- 2026-06-30 08:30 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/8113424981.shtml)
-- 2026-06-30 08:25 - [日本球员说被绝杀非常不甘心](https://www.share.kurohicncr.top/Article/details/36427113.shtml)
-- 2026-06-30 08:22 - [4000美元是黄金新一轮下跌的开始吗](https://www.share.kurohicncr.top/Article/details/1999778.shtml)
+- 2026-06-30 08:25 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](http://www.blog.minike.top/Article/details/84426305.shtml)
+- 2026-06-30 08:27 - [韩国世界杯出局是主帅一个人的锅吗](https://www.blog.kurohicncr.top/Article/details/601442.shtml)
+- 2026-06-30 08:40 - [豆包收费了，你还会用吗？](http://www.blog.kurohicncr.top/Article/details/72869.shtml)
+- 2026-06-30 08:37 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/05551.shtml)
+- 2026-06-30 08:42 - [日本队5进世界杯淘汰赛0胜](http://www.share.minike.top/Article/details/30399252.shtml)
+- 2026-06-30 08:29 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.minike.top/Article/details/45970.shtml)
+- 2026-06-30 08:32 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.minike.top/Article/details/32483.shtml)
+- 2026-06-30 08:21 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/3004523487.shtml)
+- 2026-06-30 08:22 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.minike.top/Article/details/632954767997.shtml)
+- 2026-06-30 08:25 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/654523277.shtml)
+- 2026-06-30 08:38 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/56865369508.shtml)
+- 2026-06-30 08:21 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/330506.shtml)
+- 2026-06-30 08:19 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/6397253614.shtml)
+- 2026-06-30 08:26 - [巴西醒醒 这是淘汰赛](https://www.blog.kurohicncr.top/Article/details/975439.shtml)
+- 2026-06-30 08:36 - [德国4比5巴拉圭](https://www.blog.kurohicncr.top/Article/details/234903828455.shtml)

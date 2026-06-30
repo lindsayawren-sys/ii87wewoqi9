@@ -1,57 +1,58 @@
-# 境外间谍利用“谍龟谍鱼”窃取我国海洋敏感数据 国家安全部提示
+# 金价回吐上周涨幅 美国封锁霍尔木兹海峡的计划加剧通胀风险
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-深蓝之下 暗流涌动 我国是一个陆海兼备的海洋大国，1.8万余公里大陆海岸线和1.4万余公里岛屿岸线组成的海岸蜿蜒绵亘，约300万平方公里的管辖海域浩瀚辽阔。这片广袤的蓝色疆域，是大自然给予中华民族的宝贵馈赠，为我国推动高质量发展、推进中国式现代化提供了战略空间和丰厚资源。然而，在广袤无垠的海面下，一场看不见的窃密暗战正悄然上演…… 海洋窃密手段多样 近年来，国家安全机关工作发现
+通胀担忧升温推动金价下跌，之前美伊和平谈判未果，而且美国打算封锁霍尔木兹海峡，加剧全球能源供应冲击。 金价一度跌2.2%，跌破每盎司4650美元，抹去上周涨幅。在中东地区陷入战争六周之际，美国与伊朗周末举行谈判，但未能达成将脆弱的停火变成持久和平的协议，美国军方表示，它将从美东时间周一上午10点开始封锁霍尔木兹海峡。 石油和天然气价格大涨。美国总统唐纳德·特朗普还表示，美国将拦
 
 ## 正文
 
-深蓝之下 暗流涌动 我国是一个陆海兼备的海洋大国，1.8万余公里大陆海岸线和1.4万余公里岛屿岸线组成的海岸蜿蜒绵亘，约300万平方公里的管辖海域浩瀚辽阔。
+通胀担忧升温推动金价下跌，之前美伊和平谈判未果，而且美国打算封锁霍尔木兹海峡，加剧全球能源供应冲击。
 
-这片广袤的蓝色疆域，是大自然给予中华民族的宝贵馈赠，为我国推动高质量发展、推进中国式现代化提供了战略空间和丰厚资源。
+金价一度跌2.2%，跌破每盎司4650美元，抹去上周涨幅。
 
-然而，在广袤无垠的海面下，一场看不见的窃密暗战正悄然上演…… 海洋窃密手段多样 近年来，国家安全机关工作发现，境外间谍情报机关通过多种新型间谍设备，持续搜集窃取我海洋敏感数据。
+在中东地区陷入战争六周之际，美国与伊朗周末举行谈判，但未能达成将脆弱的停火变成持久和平的协议，美国军方表示，它将从美东时间周一上午10点开始封锁霍尔木兹海峡。
 
-——探测浮标。
+石油和天然气价格大涨。
 
-例如，在我国某海域发现的球形海洋监测浮标，系境外某海洋研究所投放，顶部装有气象传感套件，底部拖着一条用于固定的锚链，挂载着高精度监听传感器阵列，可以实时搜集周边声波数据和我国潜艇的声纹信息。
+美国总统唐纳德·特朗普还表示，美国将拦截任何向伊朗付了通行费以求安全通过霍尔木兹海峡的船只。
 
-——谍龟谍鱼。
+霍尔木兹海峡是连接波斯湾和全球市场的海上咽喉要道。
 
-例如，在我国某海域发现有较大型活体海洋动物被挂上传感器，在特定区域游动，实时收集附近的水温、盐度、洋流等海洋环境敏感数据，并通过卫星向境外传输。
+战前，全球五分之一的原油和液化天然气都要经过该海峡。
 
-——水面航行器。
+股指期货下跌，一项美元指数一度上涨逾0.4%，这对以美元计价的黄金不利。
 
 ## 相关推荐
 
-- 2026-06-30 08:34 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-30 08:31 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-30 08:25 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
-- 2026-06-30 08:19 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-30 08:29 - [德国巴拉圭加时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
-- 2026-06-30 08:17 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
-- 2026-06-30 08:21 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
-- 2026-06-30 08:27 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-30 08:13 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-30 08:28 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-30 08:20 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-30 08:21 - [日本将帅赛后采访纷纷哽咽落泪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-30 08:32 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-30 08:28 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-30 08:27 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-30 08:24 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-30 08:31 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
+- 2026-06-30 08:43 - [杨紫肖战余生请多指教拍立得](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-30 08:28 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-30 08:30 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-30 08:24 - [金鹰奖视后提名预测](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-30 08:18 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-30 08:39 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:35 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.kurohicncr.top/Article/details/27278313.shtml)
-- 2026-06-30 08:15 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/00099.shtml)
-- 2026-06-30 08:39 - [为什么会有「念旧」的心理？](http://www.blog.kurohicncr.top/Article/details/06470219.shtml)
-- 2026-06-30 08:36 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/7379787.shtml)
-- 2026-06-30 08:41 - [藤森庆子赢得秘鲁总统选举](http://www.share.minike.top/Article/details/8959687.shtml)
-- 2026-06-30 08:38 - [DeepSeek启动成立来最大规模招聘](https://www.blog.minike.top/Article/details/41377918.shtml)
-- 2026-06-30 08:36 - [董卿父亲报纸上发文悼念亡妻](http://www.blog.minike.top/Article/details/88387746.shtml)
-- 2026-06-30 08:36 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/18922189.shtml)
-- 2026-06-30 08:22 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/608837.shtml)
-- 2026-06-30 08:29 - [湖南祁东原文化馆被指贱卖](https://www.share.kurohicncr.top/Article/details/556776344079.shtml)
-- 2026-06-30 08:20 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/663467058.shtml)
-- 2026-06-30 08:38 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.minike.top/Article/details/6808113803.shtml)
-- 2026-06-30 08:21 - [田中碧失误](http://www.blog.kurohicncr.top/Article/details/054761.shtml)
-- 2026-06-30 08:27 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.kurohicncr.top/Article/details/29821095.shtml)
-- 2026-06-30 08:24 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/931453.shtml)
+- 2026-06-30 08:41 - [孙颖莎王楚钦晋级8强](http://www.share.kurohicncr.top/Article/details/526929.shtml)
+- 2026-06-30 08:19 - [起风了](https://www.share.kurohicncr.top/Article/details/057034803.shtml)
+- 2026-06-30 08:23 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.kurohicncr.top/Article/details/379741662703.shtml)
+- 2026-06-30 08:23 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/620227.shtml)
+- 2026-06-30 08:31 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.kurohicncr.top/Article/details/28571118011.shtml)
+- 2026-06-30 08:29 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/9678810288.shtml)
+- 2026-06-30 08:38 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/48942644013.shtml)
+- 2026-06-30 08:44 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/9187142716.shtml)
+- 2026-06-30 08:19 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/5846131.shtml)
+- 2026-06-30 08:23 - [王源近几年没有路演了](http://www.blog.kurohicncr.top/Article/details/12491285857.shtml)
+- 2026-06-30 08:23 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/327055.shtml)
+- 2026-06-30 08:25 - [花少8要去世界杯举办国](http://www.blog.kurohicncr.top/Article/details/94812.shtml)
+- 2026-06-30 08:41 - [高考结束了，你会让孩子在家玩手机吗？](https://www.blog.kurohicncr.top/Article/details/488832.shtml)
+- 2026-06-30 08:38 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.kurohicncr.top/Article/details/77742.shtml)
+- 2026-06-30 08:26 - [内马尔中场休息积极鼓励队友](http://www.share.minike.top/Article/details/3679872273.shtml)

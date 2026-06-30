@@ -1,60 +1,56 @@
-# 贵州茅台董事长陈华：价格不能出现大起大落，公司暂无拆股计划
+# 苹果正为即将推出的智能眼镜测试四种设计方案
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-专题：贵州茅台2025年度股东大会 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：e公司 6月11日下午，贵州茅台（600519）2025年度股东会在茅台会议中心召开，来自全国千余名茅台股东、机构投资者与分析师齐聚茅台镇。 针对茅台酒价格问题，茅台集团董事长陈华表示，将随行就市，相对平稳，价格不能出现大起大落，供需适配、量价平衡。目前，茅台酒价格
+据科技新闻记者马克·古尔曼消息，苹果计划在2027年发售首款智能眼镜，有可能在今年年底正式亮相。 古尔曼一直持续跟进该公司智能眼镜项目的战略进展，而如今他披露了更多有关产品外观的细节——他表示苹果正在测试四种设计款式，最终上市时可能会推出其中部分款式，也可能全部推出。 据透露，这些设计包括：大号矩形镜框、纤薄矩形镜框（与CEO蒂姆·库克佩戴的眼镜款式相近）、偏大的椭圆形或圆形镜
 
 ## 正文
 
-专题：贵州茅台2025年度股东大会 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+据科技新闻记者马克·古尔曼消息，苹果计划在2027年发售首款智能眼镜，有可能在今年年底正式亮相。
 
-来源：e公司 6月11日下午，贵州茅台（600519）2025年度股东会在茅台会议中心召开，来自全国千余名茅台股东、机构投资者与分析师齐聚茅台镇。
+古尔曼一直持续跟进该公司智能眼镜项目的战略进展，而如今他披露了更多有关产品外观的细节——他表示苹果正在测试四种设计款式，最终上市时可能会推出其中部分款式，也可能全部推出。
 
-针对茅台酒价格问题，茅台集团董事长陈华表示，将随行就市，相对平稳，价格不能出现大起大落，供需适配、量价平衡。
+据透露，这些设计包括：大号矩形镜框、纤薄矩形镜框（与CEO蒂姆·库克佩戴的眼镜款式相近）、偏大的椭圆形或圆形镜框，以及偏小的椭圆形或圆形镜框。
 
-目前，茅台酒价格调整社会高度关注，公司对此高度保密，网上流传有各种信息，大家不传谣、不信谣。
+苹果同时也在考虑多种配色，包含黑色、海蓝色与浅棕色。
 
-针对拆股问题，陈华表示，股东观点目前不统一、分化明显，综合研判，公司目前暂无拆股计划。
+在某些方面，这款眼镜相比苹果此前的宏大计划有所收敛——苹果曾计划推出多款混合现实与增强现实设备，而这一规划已因产品多次延期、以及Vision Pro市场反响平淡而遭遇挫折。
 
-此次股东会还出现了有趣的一幕：10日晚，贵州茅台为股东准备了自助餐欢迎晚宴，没有提供白酒品鉴，仅供应可乐、雪碧、橙汁等常见饮料。
+与此同时，这款眼镜听起来与Meta旗下的雷朋智能眼镜更为接近。
 
-现场，有投资者吐槽茅台应主动推广饮酒文化，借股东会适时营销自家产品；有股东无奈自带白酒饮用。
+它不会配备显示屏，但支持用户拍摄照片和视频（苹果或将采用椭圆形摄像头镜片）、接听电话、播放音乐，并与备受期待的升级版Siri进行交互。
 
-11日中午，茅台为参会股东准备了自助午餐，将可乐、雪碧等碳酸饮料撤下，转而提供茶、咖啡、果汁等饮品。
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-30 08:40 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
-- 2026-06-30 08:21 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
-- 2026-06-30 08:35 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-30 08:34 - [德国队世界杯点球大战首败](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-30 08:21 - [点球大战 残酷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-30 08:19 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-30 08:12 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-30 08:23 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-30 08:22 - [男子在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
-- 2026-06-30 08:39 - [巴西足球能否再现昔日荣光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-30 08:26 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
-- 2026-06-30 08:38 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
-- 2026-06-30 08:29 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-30 08:20 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-30 08:19 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-30 08:40 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-30 08:44 - [世界杯欧洲队7战南美仅1胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-30 08:19 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-30 08:39 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-30 08:36 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-30 08:27 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-30 08:30 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-30 08:45 - [巴拉圭进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-30 08:32 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:18 - [王欣瑜2-1击败科恰雷托](http://www.blog.kurohicncr.top/Article/details/239867.shtml)
-- 2026-06-30 08:20 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.kurohicncr.top/Article/details/63223660153.shtml)
-- 2026-06-30 08:12 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/5160382.shtml)
-- 2026-06-30 08:19 - [日本16强魔咒](http://www.blog.minike.top/Article/details/246316.shtml)
-- 2026-06-30 08:35 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/88964.shtml)
-- 2026-06-30 08:14 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/86264175.shtml)
-- 2026-06-30 08:39 - [速度与激情9](http://www.blog.minike.top/Article/details/72533.shtml)
-- 2026-06-30 08:37 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/6409045.shtml)
-- 2026-06-30 08:29 - [巴西补时绝杀日本](https://www.blog.minike.top/Article/details/50887451.shtml)
-- 2026-06-30 08:30 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/838970106495.shtml)
-- 2026-06-30 08:23 - [泰山建135公里刀片刺绳隔离网](https://www.blog.minike.top/Article/details/01340705464.shtml)
-- 2026-06-30 08:21 - [安切洛蒂 换人](http://www.share.minike.top/Article/details/19471005.shtml)
-- 2026-06-30 08:21 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/583280.shtml)
-- 2026-06-30 08:28 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/69986082.shtml)
-- 2026-06-30 08:14 - [藤森庆子赢得秘鲁总统选举](https://www.blog.kurohicncr.top/Article/details/4080379.shtml)
+- 2026-06-30 08:24 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.minike.top/Article/details/8018326940.shtml)
+- 2026-06-30 08:31 - [媒体评泰山建135公里刀片刺绳隔离网](http://www.blog.kurohicncr.top/Article/details/69138778.shtml)
+- 2026-06-30 08:38 - [武磊：日本队有能力跟任何强队抗衡](https://www.blog.kurohicncr.top/Article/details/247522618.shtml)
+- 2026-06-30 08:32 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/46710053.shtml)
+- 2026-06-30 08:24 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/170805085.shtml)
+- 2026-06-30 08:32 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/919499.shtml)
+- 2026-06-30 08:30 - [德国连续三届世界杯无缘16强](http://www.share.minike.top/Article/details/108697.shtml)
+- 2026-06-30 08:35 - [张雪的一句“是我们”引发岛内热议](http://www.blog.minike.top/Article/details/2491429.shtml)
+- 2026-06-30 08:41 - [第一炉香](http://www.blog.minike.top/Article/details/87351.shtml)
+- 2026-06-30 08:27 - [日本球迷被强行披上巴西国旗](http://www.blog.minike.top/Article/details/2232488.shtml)
+- 2026-06-30 08:34 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/62931395140.shtml)
+- 2026-06-30 08:31 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/998470.shtml)
+- 2026-06-30 08:20 - [二次元提前预演明日巴西对日本](http://www.blog.kurohicncr.top/Article/details/63576037.shtml)
+- 2026-06-30 08:24 - [小娘惹](http://www.blog.minike.top/Article/details/5639465.shtml)
+- 2026-06-30 08:22 - [三星投资计划](https://www.share.kurohicncr.top/Article/details/2013991.shtml)

@@ -1,58 +1,59 @@
-# 大商所：2026年端午节期间交易时间安排
+# 开局起步“十五五”：海南“外联内畅”促“人享其行、物畅其流”
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-关于2026年端午节期间交易时间安排的通知 大商所发〔2026〕211号 各会员单位： 根据《关于2026年部分节假日休市安排的通知》（大商所发〔2025〕437号）有关规定，现就2026年端午节期间交易时间安排通知如下： 6月19日（周五）至6月21日（周日）休市，6月22日（周一）起照常开市。 6月18日（周四）晚上不进行夜盘交易。6月22日（周一）所有合约集合竞价时间为0
+中新网海口4月10日电 (记者 王子谦)海南省发展和改革委员会主任綦树利10日在海口表示，“十五五”期间海南将以“人享其行、物畅其流”为愿景，打造“外联内畅”的基础设施体系，助力构建国内国际双循环战略交汇点。 “开局起步‘十五五’——高标准建设海南自由贸易港”专场新闻发布会10日在海口举行。在会上，如何强化基础设施供给能力和稳定性，构建对内对外互联互通新格局备受关注。 《海南省
 
 ## 正文
 
-关于2026年端午节期间交易时间安排的通知 大商所发〔2026〕211号 各会员单位： 根据《关于2026年部分节假日休市安排的通知》（大商所发〔2025〕437号）有关规定，现就2026年端午节期间交易时间安排通知如下： 6月19日（周五）至6月21日（周日）休市，6月22日（周一）起照常开市。
+中新网海口4月10日电 (记者 王子谦)海南省发展和改革委员会主任綦树利10日在海口表示，“十五五”期间海南将以“人享其行、物畅其流”为愿景，打造“外联内畅”的基础设施体系，助力构建国内国际双循环战略交汇点。
 
-6月18日（周四）晚上不进行夜盘交易。
+“开局起步‘十五五’——高标准建设海南自由贸易港”专场新闻发布会10日在海口举行。
 
-6月22日（周一）所有合约集合竞价时间为08：55-09：00。
+在会上，如何强化基础设施供给能力和稳定性，构建对内对外互联互通新格局备受关注。
 
-6月22日（周一）当晚恢复夜盘交易。
+《海南省国民经济和社会发展第十五个五年规划纲要》明确提出，海南将强化基础设施供给能力和稳定性，以集成融合为导向，着眼补短板、强弱项，提升安全韧性和运营可持续性，构建适度超前的自由贸易港对内对外互联互通新格局。
 
-请各会员单位做好客户交易时间安排的提示工作，确保市场平稳运行。
+綦树利在会上表示，“十五五”海南基础设施提质升级主要体现在三个方面： 第一，是交通网络更通达。
 
-特此通知。
+在对外联通方面，加快推进三亚新机场、儋州机场、东方机场建设，完善海南自贸港特色运输机场群；进一步完善以洋浦国际枢纽港为龙头、以海口港为重点的港口体系建设；打造琼州海峡“黄金水道”，加快建设湛海高铁，大幅缩短旅客过海时间。
 
-大连商品交易所 2026年06月11日责任编辑：李铁民
+在对内畅行方面，推动环岛高铁公交化运营，实施环岛高速、国省干道、旅游公路等扩容提升工程，基本形成“123交通出行圈”，实现三大经济圈1小时通勤、主要城市2小时互通、全岛3小时畅行。
+
+第二，是能源体系更坚韧。
 
 ## 相关推荐
 
-- 2026-06-30 08:36 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-30 08:41 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
-- 2026-06-30 08:25 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-30 08:12 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-30 08:31 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-30 08:31 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-30 08:24 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-30 08:19 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-30 08:26 - [勇士续约波尔津吉斯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
-- 2026-06-30 08:36 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-30 08:16 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
-- 2026-06-30 08:35 - [恋与深空道歉声明](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-30 08:20 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
-- 2026-06-30 08:36 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-30 08:44 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-30 08:34 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-30 08:44 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-30 08:18 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-30 08:41 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-30 08:45 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-30 08:47 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-30 08:29 - [森保一 保守](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-30 08:23 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-30 08:44 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-30 08:44 - [二次元提前预演明日巴西对日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-30 08:22 - [德国队世界杯点球大战首败](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-30 08:46 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:34 - [建议不要突然完全停止喝咖啡](http://www.blog.kurohicncr.top/Article/details/97521587.shtml)
-- 2026-06-30 08:26 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](http://www.blog.kurohicncr.top/Article/details/5994283.shtml)
-- 2026-06-30 08:21 - [王健林甩卖超80座万达广场](http://www.blog.minike.top/Article/details/0999478069.shtml)
-- 2026-06-30 08:25 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/11929.shtml)
-- 2026-06-30 08:33 - [巴西2-1绝杀日本](http://www.blog.kurohicncr.top/Article/details/669442.shtml)
-- 2026-06-30 08:22 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/33008970264.shtml)
-- 2026-06-30 08:25 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/0255549.shtml)
-- 2026-06-30 08:27 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/83153091.shtml)
-- 2026-06-30 08:17 - [一见倾心](https://www.blog.minike.top/Article/details/49024044836.shtml)
-- 2026-06-30 08:17 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/4361392627.shtml)
-- 2026-06-30 08:33 - [大蒜晒外面被路过女子连盆端走](https://www.share.minike.top/Article/details/2749346.shtml)
-- 2026-06-30 08:21 - [日本领先巴西](https://www.blog.minike.top/Article/details/847427798.shtml)
-- 2026-06-30 08:39 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/6540788.shtml)
-- 2026-06-30 08:18 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/037977446174.shtml)
-- 2026-06-30 08:23 - [苗族银饰](http://www.share.kurohicncr.top/Article/details/01376370945.shtml)
+- 2026-06-30 08:23 - [诺伊尔尽力了](https://www.blog.kurohicncr.top/Article/details/93081280899.shtml)
+- 2026-06-30 08:23 - [速度与激情9](https://www.share.minike.top/Article/details/59573510055.shtml)
+- 2026-06-30 08:37 - [郑钦文温网一轮游](https://www.blog.kurohicncr.top/Article/details/03451069.shtml)
+- 2026-06-30 08:25 - [苗族银饰](http://www.blog.kurohicncr.top/Article/details/9918940434.shtml)
+- 2026-06-30 08:29 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://www.share.minike.top/Article/details/055863819903.shtml)
+- 2026-06-30 08:32 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/182844181.shtml)
+- 2026-06-30 08:19 - [萨内 看笑了](http://www.blog.kurohicncr.top/Article/details/3745799814.shtml)
+- 2026-06-30 08:42 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/581552382363.shtml)
+- 2026-06-30 08:28 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/02528171744.shtml)
+- 2026-06-30 08:39 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/8711488.shtml)
+- 2026-06-30 08:31 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/448254203.shtml)
+- 2026-06-30 08:26 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/85806.shtml)
+- 2026-06-30 08:31 - [点球大战](https://www.share.minike.top/Article/details/71621.shtml)
+- 2026-06-30 08:27 - [孙兴慜发长文致歉](https://www.blog.kurohicncr.top/Article/details/97061.shtml)
+- 2026-06-30 08:45 - [网友写差评被店家“挂”门口避雷](https://www.blog.minike.top/Article/details/405115737142.shtml)

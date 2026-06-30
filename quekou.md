@@ -1,56 +1,59 @@
-# 海信家电早盘涨超8% 618促销带动白电销售市场有所回暖
+# 台各界盼当局务实回应陆方十项“和平利好”
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-海信家电（00921）早盘涨幅持续扩大，截至发稿，股价上涨8.07%，报26.52港元，成交额4465.46万港元。 根据奥维W22数据，线上彩电、冰箱、空调及洗衣机销量同比分别为-8%、2%、72%和17%；线下彩电、冰箱、空调及洗衣机销量同比分别为-5%、3%、24%和5%。其中，空调受厄尔尼诺现象带来的异常高温天气及618促销带动下本周表现突出，冰箱及洗衣机销量同比均实现
+中新社台北4月12日电 (记者 陈建新)十项促进两岸交流合作的政策措施12日上午公布，涉及赴台(本岛)个人游、台湾农渔产品拓展大陆销售渠道等方面。岛内各界期盼台当局务实回应这些民生关切。 十项“和平利好”包含“推动恢复上海市及福建省居民赴台(本岛)个人游试点”，引起台湾观光产业具优势的多个县市关注。 近年来，受陆客团减少及台风、地震等灾害影响，岛内一些县市观光业不振。许多民宿、
 
 ## 正文
 
-海信家电（00921）早盘涨幅持续扩大，截至发稿，股价上涨8.07%，报26.52港元，成交额4465.46万港元。
+中新社台北4月12日电 (记者 陈建新)十项促进两岸交流合作的政策措施12日上午公布，涉及赴台(本岛)个人游、台湾农渔产品拓展大陆销售渠道等方面。
 
-根据奥维W22数据，线上彩电、冰箱、空调及洗衣机销量同比分别为-8%、2%、72%和17%；线下彩电、冰箱、空调及洗衣机销量同比分别为-5%、3%、24%和5%。
+岛内各界期盼台当局务实回应这些民生关切。
 
-其中，空调受厄尔尼诺现象带来的异常高温天气及618促销带动下本周表现突出，冰箱及洗衣机销量同比均实现改善。
+十项“和平利好”包含“推动恢复上海市及福建省居民赴台(本岛)个人游试点”，引起台湾观光产业具优势的多个县市关注。
 
-国金证券指出，白电26H1承压主因25年国补的高基数透支，但Q3起基数压力将大幅缓解，高温预期叠加空调库存低位，景气拐点临近。
+近年来，受陆客团减少及台风、地震等灾害影响，岛内一些县市观光业不振。
 
-该行指出，白电龙头盈利稳健、现金流充裕，分红持续提升的空间与意愿兼具，是红利配置方向优选。
+许多民宿、特产商店业者期待今次政策能够落地，带动当地产业和经济发展。
 
-责任编辑：卢昱君
+台湾中华优质旅游发展协会理事长李奇岳认为，大陆推动恢复个人游所释出的开放信号更强烈了。
+
+他说，相较于团队游，个人游带来的观光效益更广泛，可惠及各行各业。
+
+此次公布的政策还强调“推动全面恢复两岸空中客运直航正常化”，李奇岳表示，民众在赴大陆旅游、经商、求学等方面有实际需求，期盼台当局务实回应，趁此机会解除“禁团令”，推动两岸人员往来交流正常化。
 
 ## 相关推荐
 
-- 2026-06-30 08:41 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-30 08:31 - [点球大战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-30 08:30 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-30 08:34 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
-- 2026-06-30 08:34 - [穆祉丞回应获年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-30 08:31 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-30 08:40 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-30 08:27 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-30 08:38 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-30 08:25 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
-- 2026-06-30 08:41 - [男子在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
-- 2026-06-30 08:38 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-30 08:21 - [王楚钦孙颖莎晋级混双八强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
-- 2026-06-30 08:35 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
+- 2026-06-30 08:36 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-30 08:25 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-30 08:42 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-30 08:20 - [德国 传控](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-30 08:24 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-30 08:27 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
+- 2026-06-30 08:37 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-30 08:33 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-30 08:38 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-30 08:38 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-30 08:31 - [4000美元是黄金新一轮下跌的开始吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-30 08:44 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-30 08:23 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:28 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/69250671.shtml)
-- 2026-06-30 08:20 - [亚洲球队全部告别世界杯](https://www.blog.minike.top/Article/details/99435211211.shtml)
-- 2026-06-30 08:15 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/41020167.shtml)
-- 2026-06-30 08:41 - [日本领先巴西](http://www.blog.kurohicncr.top/Article/details/95989.shtml)
-- 2026-06-30 08:17 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/56878834612.shtml)
-- 2026-06-30 08:19 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/5919669391.shtml)
-- 2026-06-30 08:39 - [女子清吧被陌生人投放伟哥](https://www.blog.kurohicncr.top/Article/details/55143.shtml)
-- 2026-06-30 08:24 - [王欣瑜2-1击败科恰雷托](https://www.blog.kurohicncr.top/Article/details/3605802749.shtml)
-- 2026-06-30 08:18 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/037659675988.shtml)
-- 2026-06-30 08:35 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.minike.top/Article/details/9016985729.shtml)
-- 2026-06-30 08:26 - [急先锋](http://www.blog.minike.top/Article/details/157587.shtml)
-- 2026-06-30 08:32 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/7526321.shtml)
-- 2026-06-30 08:30 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/0326588.shtml)
-- 2026-06-30 08:14 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/3073231.shtml)
-- 2026-06-30 08:26 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/93766803.shtml)
+- 2026-06-30 08:34 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.minike.top/Article/details/207796115.shtml)
+- 2026-06-30 08:41 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/20272430.shtml)
+- 2026-06-30 08:31 - [齐思钧回复张月](http://www.share.minike.top/Article/details/9213100803.shtml)
+- 2026-06-30 08:24 - [《共患难》](https://www.share.kurohicncr.top/Article/details/35726120.shtml)
+- 2026-06-30 08:20 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/9891836.shtml)
+- 2026-06-30 08:33 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/46820.shtml)
+- 2026-06-30 08:36 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/7916395282.shtml)
+- 2026-06-30 08:40 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/72716.shtml)
+- 2026-06-30 08:31 - [女子遭下药退赔偿拟追刑责](https://www.share.minike.top/Article/details/05660138.shtml)
+- 2026-06-30 08:36 - [巴西半场0比1日本](https://www.blog.minike.top/Article/details/73210111861.shtml)
+- 2026-06-30 08:28 - [日本16强魔咒](https://www.share.minike.top/Article/details/974872018385.shtml)
+- 2026-06-30 08:40 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://www.blog.minike.top/Article/details/61702.shtml)
+- 2026-06-30 08:21 - [巴拉圭率先破门](http://www.share.minike.top/Article/details/20392.shtml)
+- 2026-06-30 08:33 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/3001994.shtml)
+- 2026-06-30 08:23 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/3451957644.shtml)

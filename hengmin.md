@@ -1,51 +1,46 @@
-# “数爱无疆”数字公益故事展播 | 那些山路上的AI光
+# 三大指数低开高走，创业板续创四年新高，市场结构性分化加剧 | 华宝基金3A日报（2026.4.13）
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月12日 15:26 来源：中国新闻网 2026年5月，中国网络文明大会期间，网络公益建设分论坛发布了2025“数爱无疆”数字公益故事征集展播活动结果。 2025年11月起，中国网络社会组织联合会携手中国互联网发展基金会、中国新闻网组织开展2025“数爱无疆”数字公益故事征集展播活动，最终遴选出50个具有代表性的数字公益故事，由安徽云树智汇科技有限公司推
+责任编辑：张乔松
 
 ## 正文
 
-发布时间：2026年06月12日 15:26 来源：中国新闻网 2026年5月，中国网络文明大会期间，网络公益建设分论坛发布了2025“数爱无疆”数字公益故事征集展播活动结果。
-
-2025年11月起，中国网络社会组织联合会携手中国互联网发展基金会、中国新闻网组织开展2025“数爱无疆”数字公益故事征集展播活动，最终遴选出50个具有代表性的数字公益故事，由安徽云树智汇科技有限公司推送的“那些山路上的AI光”作品入选。
-
-责任编辑：【刘湃】
+责任编辑：张乔松
 
 ## 相关推荐
 
-- 2026-06-30 08:37 - [泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-30 08:37 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-30 08:13 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-30 08:33 - [德国爆冷点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
-- 2026-06-30 08:23 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-30 08:14 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-30 08:36 - [巴拉圭进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-30 08:31 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-30 08:18 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-30 08:33 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
-- 2026-06-30 08:39 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-30 08:21 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-30 08:34 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-30 08:13 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-30 08:23 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-30 08:34 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-30 08:24 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-30 08:47 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
+- 2026-06-30 08:19 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-30 08:39 - [马耳他著名拱门坍塌致一中国男子身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-30 08:30 - [锐评T1战胜KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-30 08:38 - [张雪的一句“是我们”引发岛内热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-30 08:33 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-30 08:31 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-30 08:30 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-30 08:44 - [穆祉丞回应获年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
+- 2026-06-30 08:34 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-30 08:33 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-30 08:20 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:38 - [追梦拒绝2770万美元球员选项](http://www.share.minike.top/Article/details/3981580835.shtml)
-- 2026-06-30 08:37 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/33558.shtml)
-- 2026-06-30 08:31 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/734021.shtml)
-- 2026-06-30 08:40 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/4914184.shtml)
-- 2026-06-30 08:27 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/5135500.shtml)
-- 2026-06-30 08:39 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/916834597358.shtml)
-- 2026-06-30 08:29 - [高质量发展看新疆](https://www.share.minike.top/Article/details/7510669413.shtml)
-- 2026-06-30 08:23 - [流金岁月](http://www.share.minike.top/Article/details/0036535.shtml)
-- 2026-06-30 08:22 - [世界杯欧洲队7战南美仅1胜](https://www.share.minike.top/Article/details/2325814.shtml)
-- 2026-06-30 08:37 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/01304615.shtml)
-- 2026-06-30 08:18 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/35163.shtml)
-- 2026-06-30 08:12 - [开电动汽车真的很省钱吗？](https://www.share.kurohicncr.top/Article/details/621883037.shtml)
-- 2026-06-30 08:22 - [王欣瑜连续4年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/579004795.shtml)
-- 2026-06-30 08:34 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/3880037974.shtml)
-- 2026-06-30 08:21 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/15904632567.shtml)
+- 2026-06-30 08:29 - [存储芯片龙头提示风险](http://www.share.minike.top/Article/details/765183579643.shtml)
+- 2026-06-30 08:24 - [《共患难》](https://www.blog.minike.top/Article/details/019606.shtml)
+- 2026-06-30 08:44 - [巴西在进攻三区完成210脚传球](http://www.blog.kurohicncr.top/Article/details/64432149.shtml)
+- 2026-06-30 08:24 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/719971.shtml)
+- 2026-06-30 08:25 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/798557776889.shtml)
+- 2026-06-30 08:35 - [内马尔替补](https://www.share.minike.top/Article/details/075074.shtml)
+- 2026-06-30 08:27 - [女子健身不当 居然“脑子漏水”了](http://www.share.kurohicncr.top/Article/details/4549829297.shtml)
+- 2026-06-30 08:33 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/22596.shtml)
+- 2026-06-30 08:44 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.kurohicncr.top/Article/details/5394394.shtml)
+- 2026-06-30 08:37 - [日本遭读秒绝杀 森保一：我水平不够](http://www.blog.minike.top/Article/details/98859486.shtml)
+- 2026-06-30 08:42 - [追梦拒绝2770万美元球员选项](https://www.share.minike.top/Article/details/33443.shtml)
+- 2026-06-30 08:36 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/52917076828.shtml)
+- 2026-06-30 08:31 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](https://www.blog.kurohicncr.top/Article/details/12406.shtml)
+- 2026-06-30 08:22 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/879709477.shtml)
+- 2026-06-30 08:44 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/760310.shtml)

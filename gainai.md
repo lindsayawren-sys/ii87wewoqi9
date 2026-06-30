@@ -1,60 +1,57 @@
-# 西藏聂拉木边检站为尼泊尔病重患者开通“生命救助绿色通道”
+# 飞书洪涛：汽车产业竞争已转变为产品力、算力、技术创新以及组织力的综合较量
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-中新网拉萨6月11日电 (段秋宇)近日，西藏聂拉木边检站为一名急需转运回国的尼泊尔籍病重患者及家属提供优先通关便利，通过开通“生命救助绿色通道”为患者赢得宝贵时间。 据悉，该尼泊尔籍患者此前在天津市第一中心医院接受救治，经病人家属要求，决定将其转运回尼泊尔接受后续治疗。由于患者身体指标不符合民航承运标准，只能通过陆路口岸返尼。 接到协助函后，聂拉木边检站迅速响应，提前部署警力，
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。飞书产品副总裁、飞书项目负责人洪涛出席并演讲。 洪涛提到，在过去100多年里，全球制造业长期仰望的标杆可能是德国。过去汽车竞争更多是马力级别的竞争，而今天及未来，汽车产业竞争已逐渐转变为产品力
 
 ## 正文
 
-中新网拉萨6月11日电 (段秋宇)近日，西藏聂拉木边检站为一名急需转运回国的尼泊尔籍病重患者及家属提供优先通关便利，通过开通“生命救助绿色通道”为患者赢得宝贵时间。
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
 
-据悉，该尼泊尔籍患者此前在天津市第一中心医院接受救治，经病人家属要求，决定将其转运回尼泊尔接受后续治疗。
+飞书产品副总裁、飞书项目负责人洪涛出席并演讲。
 
-由于患者身体指标不符合民航承运标准，只能通过陆路口岸返尼。
+洪涛提到，在过去100多年里，全球制造业长期仰望的标杆可能是德国。
 
-接到协助函后，聂拉木边检站迅速响应，提前部署警力，细化通关保障方案。
+过去汽车竞争更多是马力级别的竞争，而今天及未来，汽车产业竞争已逐渐转变为产品力、算力、技术创新以及组织力的综合较量。
 
-6月10日凌晨3时50分，搭载患者的救护车抵达樟木口岸。
+他相信，在中国的产业沃土必然会孕育出属于中国的新一代先进管理软件数字化产品，实现从德国经验到中国答案的跨越。
 
-聂拉木边检站民警快速为患者及家属办理了出境手续，并配合急救人员抬运担架，顺利将患者安全移交尼方急救车辆。
+他介绍，飞书项目陪伴、服务了上千家数字化研发团队，发现汽车行业面临一个核心问题：整车研发的复杂度指数级上升。
 
-中尼双方在樟木国门一线进行无缝对接，为救治患者赢得宝贵时间。
+以前机械工程相关的硬件制造部分，往往采用瀑布流开发，迭代周期长，对质量要求高，需要足够稳健。
 
-此次延时紧急通关彰显了移民管理队伍过硬的专业履职能力。
+而从事互联网软件研发的团队，是按天迭代，敏捷第一，速度非常快。
 
 ## 相关推荐
 
-- 2026-06-30 08:15 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-30 08:22 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
-- 2026-06-30 08:12 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
-- 2026-06-30 08:40 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-30 08:16 - [第3集丨“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
-- 2026-06-30 08:40 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-30 08:17 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-30 08:28 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-30 08:28 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-30 08:19 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-30 08:16 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-30 08:14 - [诺伊尔尽力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
-- 2026-06-30 08:20 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-30 08:19 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-30 08:44 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-30 08:20 - [穆祉丞回应获年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-30 08:42 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-30 08:44 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-30 08:45 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-30 08:44 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-30 08:18 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-30 08:20 - [曝iPhone18Pro机密文件现身暗网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-30 08:19 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-30 08:38 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-30 08:46 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:29 - [巴西绝杀日本](https://www.share.minike.top/Article/details/07334.shtml)
-- 2026-06-30 08:39 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/943991561.shtml)
-- 2026-06-30 08:30 - [张帅时隔四年晋级温网第二轮](http://www.blog.minike.top/Article/details/83253435185.shtml)
-- 2026-06-30 08:41 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/75328.shtml)
-- 2026-06-30 08:21 - [爱很美味](http://www.blog.minike.top/Article/details/1161720.shtml)
-- 2026-06-30 08:27 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/72447379.shtml)
-- 2026-06-30 08:29 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/03912.shtml)
-- 2026-06-30 08:20 - [内马尔替补](https://www.share.kurohicncr.top/Article/details/86101.shtml)
-- 2026-06-30 08:12 - [大蒜晒外面被路过女子连盆端走](https://www.share.kurohicncr.top/Article/details/12477419332.shtml)
-- 2026-06-30 08:42 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/855049950257.shtml)
-- 2026-06-30 08:41 - [日本 高位逼抢](https://www.share.kurohicncr.top/Article/details/3144190351.shtml)
-- 2026-06-30 08:41 - [MSI应援曲 如果季中成回忆](http://www.blog.kurohicncr.top/Article/details/190314436.shtml)
-- 2026-06-30 08:36 - [日本淘汰](http://www.share.minike.top/Article/details/492210.shtml)
-- 2026-06-30 08:16 - [巴西绝杀日本：漫画般结局换了主角](http://www.share.minike.top/Article/details/551609594513.shtml)
-- 2026-06-30 08:41 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.share.minike.top/Article/details/44549710891.shtml)
+- 2026-06-30 08:45 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/67908455453.shtml)
+- 2026-06-30 08:33 - [穆祉丞年度人气艺人](https://www.blog.kurohicncr.top/Article/details/736112011.shtml)
+- 2026-06-30 08:23 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/772765936.shtml)
+- 2026-06-30 08:31 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/44606924712.shtml)
+- 2026-06-30 08:28 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/2056940528.shtml)
+- 2026-06-30 08:46 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/423574099158.shtml)
+- 2026-06-30 08:32 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/239320952.shtml)
+- 2026-06-30 08:19 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.kurohicncr.top/Article/details/77698826.shtml)
+- 2026-06-30 08:45 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/2258906184.shtml)
+- 2026-06-30 08:44 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/96916595.shtml)
+- 2026-06-30 08:26 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/565913640042.shtml)
+- 2026-06-30 08:32 - [董路：谁赢谁是“正路子”](http://www.share.kurohicncr.top/Article/details/4170532003.shtml)
+- 2026-06-30 08:26 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/668089469771.shtml)
+- 2026-06-30 08:21 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.kurohicncr.top/Article/details/85889154367.shtml)
+- 2026-06-30 08:39 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/168179596772.shtml)

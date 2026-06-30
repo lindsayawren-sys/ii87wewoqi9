@@ -1,59 +1,60 @@
-# 云台咖啡纪念林在云南保山“扎根” 推动两岸合作“结果”
+# 中国制造从“单点突破”到“全域协同” 以发展阔步远航成就“飞驰人生”
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-中新网云南保山6月12日电 (陈静 袁鸿凯)6月的云南省保山市烟雨朦胧，参加“云上咖啡·香飘两岸”第二届海峡两岸咖啡文化交流活动的嘉宾，11日冒雨在新寨村种下咖啡树苗，共建“云台咖啡纪念林”；走进当地咖啡庄园，开展咖啡杯测与冲泡，以“一棵苗”和“一杯咖”推动两岸产业合作“扎根”与“结果”。 “咖啡是国际性饮品，我们能够借由这个载体把两岸关系拉近、拉亲，是件很好的事。”参与植树的
+央视网消息：前不久，在世界超级摩托车锦标赛(WSBK)葡萄牙站，来自中国重庆的摩托车制造商“张雪机车”在中量级组别中包揽两回合冠军，实现单站双冠，不仅打破了欧洲和日本等厂商对这一赛事长达数十年的垄断，也让世界看到中国摩托车产业的“硬核”实力。中国摩托车赛场突破的背后，产业链如何实现坚实托举？世界超级摩托车锦标赛要求所有参赛车辆，必须基于市售量产车进行有限改装，是制造商展示量产车
 
 ## 正文
 
-中新网云南保山6月12日电 (陈静 袁鸿凯)6月的云南省保山市烟雨朦胧，参加“云上咖啡·香飘两岸”第二届海峡两岸咖啡文化交流活动的嘉宾，11日冒雨在新寨村种下咖啡树苗，共建“云台咖啡纪念林”；走进当地咖啡庄园，开展咖啡杯测与冲泡，以“一棵苗”和“一杯咖”推动两岸产业合作“扎根”与“结果”。
+央视网消息：前不久，在世界超级摩托车锦标赛(WSBK)葡萄牙站，来自中国重庆的摩托车制造商“张雪机车”在中量级组别中包揽两回合冠军，实现单站双冠，不仅打破了欧洲和日本等厂商对这一赛事长达数十年的垄断，也让世界看到中国摩托车产业的“硬核”实力。
 
-“咖啡是国际性饮品，我们能够借由这个载体把两岸关系拉近、拉亲，是件很好的事。
+中国摩托车赛场突破的背后，产业链如何实现坚实托举？
 
-”参与植树的台北岚山咖啡创始人游启明说，希望再过几年，种下的咖啡树可以开花结果，两岸关系也越来越好。
+世界超级摩托车锦标赛要求所有参赛车辆，必须基于市售量产车进行有限改装，是制造商展示量产车技术实力的重要舞台。
 
-6月10日至13日，由云南海外联谊会、云南省委台办联合主办的“云上咖啡·香飘两岸”第二届海峡两岸咖啡文化交流活动在云南保山举办，近200名两岸咖啡行业从业者参加。
+本次夺冠的张雪机车，就是以这款标准版为基础改装而成。
 
-保山市地处云南西部，与缅甸山水相连，是云南优质小粒咖啡黄金原产地。
+据张雪介绍，这款车的国产化率超过90%，发动机、电控、车架三大核心部件则是100%自主化。
 
-得天独厚的立体气候、优质的生态环境，孕育出“浓而不苦、香味独特、略带果酸”的保山小粒咖啡，享誉海内外。
+重庆张雪机车创始人张雪表示，对行业来说，它是一剂强心剂，让我们更敢相信，我们可以去冲高端。
 
-截至目前，保山市咖啡种植面积达18.06万亩，产量2.68万吨，绿色、有机认证基地达1.7万亩，咖啡综合产值223.28亿元；全市共有咖啡企业82户，注册咖啡商标600余个，咖啡精品率居全省前列。
+相当于一个样板打出来了，大家的信心会更足，零部件有50%在重庆，重庆为主，重庆占大头。
 
-在保山市潞江镇，两岸嘉宾探访“中国咖啡第一村”新寨村，了解当地咖啡种植历史与文化；走进比顿咖啡产业文化园，在咖啡烘焙、杯测与冲泡中，共品咖香、共话合作。
+重庆是我国的工业重镇，有深厚的机械制造和工业化基础，而坡多路陡的地形，又适合摩托车出行，因此多年来，已经形成比较完整的摩托车产业集群。
 
 ## 相关推荐
 
-- 2026-06-30 08:14 - [全新问界M9现身美国街头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-30 08:17 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-30 08:27 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-30 08:34 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-30 08:32 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-30 08:13 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-30 08:30 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
-- 2026-06-30 08:14 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
-- 2026-06-30 08:34 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-30 08:21 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-30 08:39 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-30 08:26 - [媒体：手机测评该挤挤水分了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
-- 2026-06-30 08:13 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-30 08:29 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-30 08:44 - [网友写差评被店家“挂”门口避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-30 08:20 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
+- 2026-06-30 08:35 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-30 08:30 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
+- 2026-06-30 08:46 - [德国巴拉圭进入点球大战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-30 08:34 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-30 08:43 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-30 08:34 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-30 08:38 - [巴拉圭先进球了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-30 08:37 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-30 08:38 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-30 08:22 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
+- 2026-06-30 08:46 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:18 - [巴拉圭点球大战淘汰德国进16强](https://www.share.minike.top/Article/details/42059424826.shtml)
-- 2026-06-30 08:20 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/4055102432.shtml)
-- 2026-06-30 08:17 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/1789625.shtml)
-- 2026-06-30 08:34 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/87902850987.shtml)
-- 2026-06-30 08:22 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.kurohicncr.top/Article/details/77374.shtml)
-- 2026-06-30 08:22 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/17593173.shtml)
-- 2026-06-30 08:13 - [毒液2](https://www.share.kurohicncr.top/Article/details/997808.shtml)
-- 2026-06-30 08:35 - [城市规划有可能成为「屎山代码」吗？](https://www.share.kurohicncr.top/Article/details/9283760.shtml)
-- 2026-06-30 08:30 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/748188197.shtml)
-- 2026-06-30 08:36 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/3848234833.shtml)
-- 2026-06-30 08:33 - [德国淘汰](http://www.blog.kurohicncr.top/Article/details/949001018250.shtml)
-- 2026-06-30 08:21 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/63370694.shtml)
-- 2026-06-30 08:26 - [一见倾心](https://www.blog.minike.top/Article/details/30803.shtml)
-- 2026-06-30 08:33 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/65445.shtml)
-- 2026-06-30 08:35 - [小娘惹](https://www.share.minike.top/Article/details/894731.shtml)
+- 2026-06-30 08:38 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/10685.shtml)
+- 2026-06-30 08:21 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/892110578179.shtml)
+- 2026-06-30 08:35 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/467972.shtml)
+- 2026-06-30 08:42 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.kurohicncr.top/Article/details/338865.shtml)
+- 2026-06-30 08:32 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/31036.shtml)
+- 2026-06-30 08:18 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/3415361452.shtml)
+- 2026-06-30 08:28 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/99285203.shtml)
+- 2026-06-30 08:34 - [德国连续三届世界杯无缘16强](https://www.blog.kurohicncr.top/Article/details/77577169.shtml)
+- 2026-06-30 08:41 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/121210997061.shtml)
+- 2026-06-30 08:32 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/30246213.shtml)
+- 2026-06-30 08:18 - [千香](https://www.blog.minike.top/Article/details/560601.shtml)
+- 2026-06-30 08:26 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.kurohicncr.top/Article/details/7244257.shtml)
+- 2026-06-30 08:29 - [现在叛逆期的孩子最怕的是什么？](http://www.blog.kurohicncr.top/Article/details/3381005.shtml)
+- 2026-06-30 08:27 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/767743130.shtml)
+- 2026-06-30 08:46 - [日本球员说被绝杀非常不甘心](http://www.blog.kurohicncr.top/Article/details/9119552178.shtml)

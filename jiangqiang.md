@@ -1,55 +1,59 @@
-# 康诺亚-B午后涨超4% Ouro Medicines并购协议已完成
+# 医院通用人工智能平台在广州发布
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-康诺亚-B（02162）盘中涨近6%，截至发稿，股价上涨4.05%，现报57.80港元，成交额9857.17万港元。 近日，康诺亚-B发布公告，有关出售集团于Ouro Medicines的少数股权，2026年6月5日，集团NewCo合作企业Ouro Medicines通过该等公告披露的并购协议现已正式完成，集团已收到2.57亿美元首付款。 根据并购协议条款，吉利德以16.75亿
+中新网广州4月10日电 (记者 蔡敏婕)医院通用人工智能平台(Hospital AI Platform，简称：HAIP)10日在广州发布，该平台通过统筹全院算力、数据、模型资源，将分散的AI能力整合为可共享、可进化、可向基层赋能的统一数智化底座，推动医疗AI建设从“单点部署、零散应用”向“统一规划、全域协同”转变。“AI驱动智慧医院建设新范式高峰论坛”当天在广州举行。该论坛由广
 
 ## 正文
 
-康诺亚-B（02162）盘中涨近6%，截至发稿，股价上涨4.05%，现报57.80港元，成交额9857.17万港元。
+中新网广州4月10日电 (记者 蔡敏婕)医院通用人工智能平台(Hospital AI Platform，简称：HAIP)10日在广州发布，该平台通过统筹全院算力、数据、模型资源，将分散的AI能力整合为可共享、可进化、可向基层赋能的统一数智化底座，推动医疗AI建设从“单点部署、零散应用”向“统一规划、全域协同”转变。
 
-近日，康诺亚-B发布公告，有关出售集团于Ouro Medicines的少数股权，2026年6月5日，集团NewCo合作企业Ouro Medicines通过该等公告披露的并购协议现已正式完成，集团已收到2.57亿美元首付款。
+“AI驱动智慧医院建设新范式高峰论坛”当天在广州举行。
 
-根据并购协议条款，吉利德以16.75亿美元首付款及最高5亿美元的潜在里程碑付款，收购了Ouro Medicines全部股权。
+该论坛由广东省卫生健康委员会、广州市卫生健康委员会指导支持，南方医科大学南方医院等共同举办，探讨AI技术在医疗行业规模化落地路径。
 
-集团获告知根据吉利德科学公司（吉利德）和Lakefront Biotherapeutics NV（“Lakefront”， Euronext & Nasdaq： LKFT，曾用名Galapagos）之间的安排，他们双方将平摊首付款（按惯例调整）及最高5亿美元的潜在里程碑付款。
+“过去各个学科打造的都是各自独立的‘烟囱式’AI智能体，HAIP平台就像一条高速公路，建好底座后，不同学科的AI智能体可以高效运行、互通有无。
 
-作为Ouro Medicines的股东，集团获得约2.57亿美元首付款及有权获得最高约7000万美元里程碑付款。
+”南方医科大学南方医院院长孙剑表示，未来在平台上搭载不同专家、不同学科的AI智能体，根据临床场景形成智慧医院模式，“希望把智慧模式复制推广赋能基层，不仅赋能城市医联体，还能赋能城市各行各业，打造城市的HAIP平台”。
 
-此外，集团与Ouro Medicines于2024年11月订立的独家许可协议继续有效，最高6.1亿美元的里程碑付款及销售净额的分层特许权使用费由吉利德与Lakefront履行。
+“数据无法流通、资源不能协同、AI难以融入全流程等是主要挑战。
 
-责任编辑：卢昱君
+”针对当前医疗AI落地面临的瓶颈，华为副总裁李俊风指出，“该平台的核心就是建立统一数据底座，不打破医院现有流程，让人工智能赋能每个诊疗环节，实现全流程、全科室覆盖，让病人和医生享受普惠的AI服务。
+
+” 据介绍，HAIP平台打通全院统一的数据视图，打破科室壁垒与数据孤岛，构建AI训练的“数据粮仓”。
 
 ## 相关推荐
 
-- 2026-06-30 08:29 - [森保一 保守](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-30 08:13 - [日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
-- 2026-06-30 08:12 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-30 08:15 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-30 08:13 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
-- 2026-06-30 08:15 - [日耳曼拖拉机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
-- 2026-06-30 08:16 - [德国队世界杯点球大战首败](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-30 08:40 - [巴拉圭进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-30 08:29 - [男子在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-30 08:27 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
-- 2026-06-30 08:28 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-30 08:30 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-30 08:21 - [巴拉圭进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-30 08:45 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
+- 2026-06-30 08:38 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-30 08:42 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-30 08:40 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-30 08:31 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-30 08:42 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-30 08:41 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-30 08:36 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-30 08:19 - [马耳他著名拱门坍塌致中国男子身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-30 08:25 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-30 08:35 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:24 - [【大鸣王潮1566】真拿你没办法](https://www.share.kurohicncr.top/Article/details/963820.shtml)
-- 2026-06-30 08:27 - [扫黑风暴](http://www.blog.minike.top/Article/details/68143104.shtml)
-- 2026-06-30 08:35 - [爆冷出局！德国点球大战不敌巴拉圭](https://www.share.kurohicncr.top/Article/details/77763.shtml)
-- 2026-06-30 08:30 - [郑钦文温网首轮出局](https://www.blog.kurohicncr.top/Article/details/3196205497.shtml)
-- 2026-06-30 08:19 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.share.kurohicncr.top/Article/details/4115627174.shtml)
-- 2026-06-30 08:27 - [索马里女大使：想和中国一起搞事业](http://www.share.minike.top/Article/details/44114.shtml)
-- 2026-06-30 08:24 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/00885224.shtml)
-- 2026-06-30 08:29 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.kurohicncr.top/Article/details/74835908576.shtml)
-- 2026-06-30 08:14 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/771456498727.shtml)
-- 2026-06-30 08:14 - [内马尔中场休息积极鼓励队友](https://www.blog.minike.top/Article/details/5971574279.shtml)
-- 2026-06-30 08:36 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/142617446.shtml)
-- 2026-06-30 08:21 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/675057465.shtml)
-- 2026-06-30 08:18 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/94645078110.shtml)
-- 2026-06-30 08:19 - [穆祉丞回应获年度人气艺人](http://www.blog.minike.top/Article/details/36701.shtml)
-- 2026-06-30 08:38 - [警犬“多多”助民警寻回失联老人](https://www.share.minike.top/Article/details/84906.shtml)
+- 2026-06-30 08:29 - [诺伊尔尽力了](http://www.blog.kurohicncr.top/Article/details/7212959.shtml)
+- 2026-06-30 08:35 - [德国vs巴拉圭](https://www.blog.kurohicncr.top/Article/details/853630.shtml)
+- 2026-06-30 08:42 - [我觉得你是在无中生友](https://www.share.kurohicncr.top/Article/details/180526.shtml)
+- 2026-06-30 08:36 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/568040054.shtml)
+- 2026-06-30 08:47 - [这种关系可能正在悄悄“催老”你](https://www.share.minike.top/Article/details/569094038806.shtml)
+- 2026-06-30 08:18 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/5808688.shtml)
+- 2026-06-30 08:20 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/2066460.shtml)
+- 2026-06-30 08:47 - [亚洲球队全部告别世界杯](https://www.share.kurohicncr.top/Article/details/3115372965.shtml)
+- 2026-06-30 08:33 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/0829983.shtml)
+- 2026-06-30 08:30 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/3512560.shtml)
+- 2026-06-30 08:19 - [电影抓特务上映11天破亿](https://www.share.minike.top/Article/details/05704601.shtml)
+- 2026-06-30 08:39 - [泰山建135公里刀片刺绳隔离网](http://www.share.minike.top/Article/details/24353159365.shtml)
+- 2026-06-30 08:18 - [泰山建135公里刀片刺绳隔离网](http://www.share.kurohicncr.top/Article/details/576658342288.shtml)
+- 2026-06-30 08:21 - [电影抓特务上映11天破亿](https://www.share.minike.top/Article/details/89684.shtml)
+- 2026-06-30 08:24 - [《男人至死是傻得儿》](http://www.share.kurohicncr.top/Article/details/81338.shtml)

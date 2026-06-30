@@ -1,57 +1,59 @@
-# 外交部：日本已经摘下所谓“和平国家”的面具
+# 途虎养车胡晓东：推出了AI用车助手，准确率达到90%
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-6月11日，外交部发言人林剑主持例行记者会。有记者提问，据报道，多名消息人士称，针对中国和巴基斯坦5月下旬发表的联合声明中提及反对军国主义卷土重来的图谋，日本政府表示日本坚守“专守防卫”方针作为和平国家的发展道路并未改变。请问中方对此有何评论？ 林剑表示，反对军国主义是国际社会不容撼动的共同意志。日本嘴上喊着“和平”“防卫”，行动上却朝着“再军事化”狂飙突进，持续大幅扩充军费，
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。 途虎养车总裁胡晓东谈到，中国汽车产业正站在一个关键的转折点。新能源汽车的渗透率在持续攀升，总保有量已经突破3000万辆，市场从政策驱动逐渐转向消费需求驱动，产品和服务的迭代也正在加速，用户的
 
 ## 正文
 
-6月11日，外交部发言人林剑主持例行记者会。
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
 
-有记者提问，据报道，多名消息人士称，针对中国和巴基斯坦5月下旬发表的联合声明中提及反对军国主义卷土重来的图谋，日本政府表示日本坚守“专守防卫”方针作为和平国家的发展道路并未改变。
+途虎养车总裁胡晓东谈到，中国汽车产业正站在一个关键的转折点。
 
-请问中方对此有何评论？
+新能源汽车的渗透率在持续攀升，总保有量已经突破3000万辆，市场从政策驱动逐渐转向消费需求驱动，产品和服务的迭代也正在加速，用户的需求、消费逻辑以及对品牌价值的判断，都在发生根本性、结构性且长期的变化。
 
-林剑表示，反对军国主义是国际社会不容撼动的共同意志。
+胡晓东表示，过去，用户购车的核心可能会关注一些产品能力，比如续航、动力、价格；而今天，用户更关注体验和服务，“长期放心”已经成为主流的消费思考逻辑。
 
-日本嘴上喊着“和平”“防卫”，行动上却朝着“再军事化”狂飙突进，持续大幅扩充军费，放宽杀伤性武器出口，推进部署中远程导弹，扩充进攻性军事力量，囤积大量敏感核材料，推动修改“和平宪法”，实际上已经自己摘下了所谓“和平国家”的面具。
+用户不仅会在意“买得值不值得”，更会关心“用得顺不顺、养得方不方便、修得放不放心”等这些长期价值。
 
-国际社会应对此高度警惕，绝不允许日本军国主义死灰复燃。
+他介绍，在数字化、标准化的基础上，正在加速推动AI与汽车服务行业的深度融合。
 
-责任编辑：孙同怀
+2025年，我们在客户服务侧打造了面向轮胎与保养业务的AI智能导购，2025年12月，轮胎导购的转化率同比提升约10%，用户满意度提升17%；在线下门店，多模态AI智能巡检可实现火情与设备状态识别，显著提升巡检效率。
+
+他还表示，推出了AI用车助手，覆盖养车咨询、故障识别、轮胎诊断等高频需求，准确率达到90%，让用户决策更智能、更放心。
 
 ## 相关推荐
 
-- 2026-06-30 08:14 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
-- 2026-06-30 08:19 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-30 08:32 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
-- 2026-06-30 08:33 - [王欣瑜2-1击败科恰雷托](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-30 08:16 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-30 08:38 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
-- 2026-06-30 08:14 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
-- 2026-06-30 08:29 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-30 08:25 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
-- 2026-06-30 08:12 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
-- 2026-06-30 08:38 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-30 08:18 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-30 08:22 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-30 08:41 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-30 08:45 - [森保一 保守](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-30 08:46 - [勇士续约波尔津吉斯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-30 08:39 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-30 08:45 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-30 08:35 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-30 08:28 - [德国巴拉圭进入点球大战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-30 08:18 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-30 08:33 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-30 08:41 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-30 08:43 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-30 08:21 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-30 08:27 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:34 - [如何改变自己太负责任的性格?](https://www.share.minike.top/Article/details/562702444143.shtml)
-- 2026-06-30 08:27 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.minike.top/Article/details/188250798036.shtml)
-- 2026-06-30 08:28 - [IGN评测电影版后室](https://www.blog.kurohicncr.top/Article/details/249494.shtml)
-- 2026-06-30 08:39 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.kurohicncr.top/Article/details/278859424618.shtml)
-- 2026-06-30 08:29 - [哈弗茨头球破门](https://www.share.kurohicncr.top/Article/details/732588731.shtml)
-- 2026-06-30 08:22 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/82809800.shtml)
-- 2026-06-30 08:22 - [德国爆冷点球大战不敌巴拉圭](https://www.share.kurohicncr.top/Article/details/3077203384.shtml)
-- 2026-06-30 08:28 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/7262408.shtml)
-- 2026-06-30 08:16 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/9044068114.shtml)
-- 2026-06-30 08:34 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.minike.top/Article/details/29653.shtml)
-- 2026-06-30 08:22 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/13412794392.shtml)
-- 2026-06-30 08:37 - [周冬雨多次说演不了话剧文城](https://www.blog.kurohicncr.top/Article/details/80120.shtml)
-- 2026-06-30 08:17 - [库尼亚赛后伸五指嘲讽日本](http://www.blog.minike.top/Article/details/8869922.shtml)
-- 2026-06-30 08:37 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/1366110.shtml)
-- 2026-06-30 08:29 - [曝老詹对自由市场态度与以往截然不同](http://www.share.kurohicncr.top/Article/details/7218785505.shtml)
+- 2026-06-30 08:20 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](http://www.blog.minike.top/Article/details/374270206219.shtml)
+- 2026-06-30 08:30 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/8205424344.shtml)
+- 2026-06-30 08:44 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/776772.shtml)
+- 2026-06-30 08:34 - [董路：谁赢谁是“正路子”](http://www.blog.kurohicncr.top/Article/details/0892600.shtml)
+- 2026-06-30 08:42 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/30092301876.shtml)
+- 2026-06-30 08:20 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/820015732.shtml)
+- 2026-06-30 08:27 - [花少8要去世界杯举办国](http://www.share.kurohicncr.top/Article/details/936726086.shtml)
+- 2026-06-30 08:39 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/65735861.shtml)
+- 2026-06-30 08:38 - [起风了](http://www.share.minike.top/Article/details/23087641338.shtml)
+- 2026-06-30 08:30 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/498092.shtml)
+- 2026-06-30 08:40 - [爱很美味](https://www.blog.minike.top/Article/details/4065024.shtml)
+- 2026-06-30 08:27 - [德国vs巴拉圭](https://www.share.kurohicncr.top/Article/details/256855397884.shtml)
+- 2026-06-30 08:36 - [点球大战](http://www.blog.minike.top/Article/details/352182466318.shtml)
+- 2026-06-30 08:45 - [泰山景区回应修建刀片刺绳隔离网](http://www.share.minike.top/Article/details/531684158593.shtml)
+- 2026-06-30 08:18 - [马耳他著名拱门坍塌致中国男子身亡](https://www.blog.minike.top/Article/details/722181696528.shtml)

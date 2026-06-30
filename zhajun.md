@@ -1,60 +1,58 @@
-# RLJ Lodging Trust定于8月6日发布二季度财报并举行电话会
+# 跟“潮汐”抢时间 浙江舟山提升效率释放港口产能
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-RLJ Lodging Trust周四宣布，将于8月6日美股收盘后发布2026年第二季度财务业绩，并于次日（8月7日）中午12点（美国东部时间）举行财报电话会议。业绩发布和电话会议的具体日期与此前市场预期基本一致。 这家专注于城市精选服务酒店的不动产投资信托公司此前公布的一季度业绩表现强劲。财报显示，一季度可比RevPAR同比增长4.8%至148.55美元，酒店EBITDA达8
+中新网舟山4月11日电 (刘子琳 骆泽明)“我们是在跟‘潮汐’抢时间。”11日，在浙江舟山鼠浪湖码头，舟山出入境边防检查站执勤二队副队长张培说。 10日晚，随着潮水上涨，一艘货轮缓缓靠近码头，靠泊作业后，舟山边检站执勤民警随即登船进行检查。 “大型船舶受潮汐影响明显，往往需要在夜间高水位时段靠泊。”张培说，为此，执勤点前移至码头一线，实行7×24小时驻点保障，实现“潮来即靠、靠
 
 ## 正文
 
-RLJ Lodging Trust周四宣布，将于8月6日美股收盘后发布2026年第二季度财务业绩，并于次日（8月7日）中午12点（美国东部时间）举行财报电话会议。
+中新网舟山4月11日电 (刘子琳 骆泽明)“我们是在跟‘潮汐’抢时间。
 
-业绩发布和电话会议的具体日期与此前市场预期基本一致。
+”11日，在浙江舟山鼠浪湖码头，舟山出入境边防检查站执勤二队副队长张培说。
 
-这家专注于城市精选服务酒店的不动产投资信托公司此前公布的一季度业绩表现强劲。
+10日晚，随着潮水上涨，一艘货轮缓缓靠近码头，靠泊作业后，舟山边检站执勤民警随即登船进行检查。
 
-财报显示，一季度可比RevPAR同比增长4.8%至148.55美元，酒店EBITDA达8990万美元，同比增长7.2%。
+“大型船舶受潮汐影响明显，往往需要在夜间高水位时段靠泊。
 
-公司总裁兼首席执行官在一季度电话会上表示，北加州、南佛罗里达等核心市场的休闲和商务旅行需求强劲，叠加近期完成的酒店翻新和改造项目，推动了业绩超出预期。
+”张培说，为此，执勤点前移至码头一线，实行7×24小时驻点保障，实现“潮来即靠、靠即检查”。
 
-对于2026年全年，公司已上调业绩指引，预计可比RevPAR增长1.5%至3.5%，酒店EBITDA在3.56亿至3.8亿美元之间，调整后稀释每股营运资金在1.29至1.45美元之间。
+今年以来，已保障73批次夜间潮水高峰勤务，确保船舶到港即可投入作业。
 
-公司一季度每股收益为-0.05美元，好于市场预期的-0.08美元。
+为了助力这个40万吨级的大码头释放“硬核”产能，边检机关围绕通关效率持续优化流程。
 
-公司近期股价表现强劲，本周一度创下52周新高10.87美元，年初至今涨幅超过45%。
+“我们通过数字化手段让通关‘跑’起来，这不仅节省时间，也提升了泊位周转效率。
 
 ## 相关推荐
 
-- 2026-06-30 08:33 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
-- 2026-06-30 08:35 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-30 08:31 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-30 08:12 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-30 08:15 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-30 08:29 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-30 08:12 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-30 08:18 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-30 08:21 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-30 08:23 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-30 08:41 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
-- 2026-06-30 08:22 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-30 08:30 - [全新问界M9现身美国街头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-30 08:17 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-30 08:35 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
+- 2026-06-30 08:18 - [三星投资计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-30 08:29 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-30 08:31 - [日本队5进世界杯淘汰赛0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-30 08:28 - [现在叛逆期的孩子最怕的是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-30 08:29 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
+- 2026-06-30 08:29 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-30 08:38 - [Melo向柳智敏张元英道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
+- 2026-06-30 08:22 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-30 08:24 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-30 08:34 - [泰山景区回应修建刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-30 08:36 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:21 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.kurohicncr.top/Article/details/124393821.shtml)
-- 2026-06-30 08:31 - [日本遭读秒绝杀 森保一：我水平不够](http://www.share.kurohicncr.top/Article/details/69566185269.shtml)
-- 2026-06-30 08:16 - [全球芯片巨头史诗级扩产](http://www.share.minike.top/Article/details/15186.shtml)
-- 2026-06-30 08:32 - [郑钦文 四年一轮游](http://www.blog.minike.top/Article/details/790909.shtml)
-- 2026-06-30 08:19 - [世界杯巴拉圭点球淘汰德国](https://www.blog.kurohicncr.top/Article/details/560049.shtml)
-- 2026-06-30 08:29 - [哈弗茨头球破门](http://www.blog.minike.top/Article/details/569115.shtml)
-- 2026-06-30 08:36 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/141462265.shtml)
-- 2026-06-30 08:40 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/4993460.shtml)
-- 2026-06-30 08:19 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/3078083362.shtml)
-- 2026-06-30 08:38 - [【大鸣王潮1566】真拿你没办法](https://www.share.minike.top/Article/details/71836785.shtml)
-- 2026-06-30 08:28 - [开电动汽车真的很省钱吗？](https://www.share.kurohicncr.top/Article/details/9258251326.shtml)
-- 2026-06-30 08:12 - [王欣瑜2-1击败科恰雷托](https://www.blog.minike.top/Article/details/64462588.shtml)
-- 2026-06-30 08:34 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/355023981900.shtml)
-- 2026-06-30 08:41 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/1637956.shtml)
-- 2026-06-30 08:29 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/35302468113.shtml)
+- 2026-06-30 08:47 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/525714.shtml)
+- 2026-06-30 08:41 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.kurohicncr.top/Article/details/115370262.shtml)
+- 2026-06-30 08:28 - [张帅时隔四年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/3142238873.shtml)
+- 2026-06-30 08:26 - [DeepSeek V4正式版要来了](http://www.blog.kurohicncr.top/Article/details/754496.shtml)
+- 2026-06-30 08:45 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/8545968419.shtml)
+- 2026-06-30 08:41 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/4095158.shtml)
+- 2026-06-30 08:22 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/47800825038.shtml)
+- 2026-06-30 08:29 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/04076581720.shtml)
+- 2026-06-30 08:42 - [张雪的一句“是我们”引发岛内热议](https://www.share.kurohicncr.top/Article/details/66730807138.shtml)
+- 2026-06-30 08:43 - [极限挑战第一季](https://www.blog.minike.top/Article/details/04542994.shtml)
+- 2026-06-30 08:20 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/4741930.shtml)
+- 2026-06-30 08:35 - [网友写差评被店家“挂”门口避雷](http://www.blog.kurohicncr.top/Article/details/127279622386.shtml)
+- 2026-06-30 08:32 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.kurohicncr.top/Article/details/52222168382.shtml)
+- 2026-06-30 08:20 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/6462164.shtml)
+- 2026-06-30 08:21 - [杨紫学位证上就是杨紫](https://www.blog.kurohicncr.top/Article/details/1468338664.shtml)

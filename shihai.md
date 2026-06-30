@@ -1,61 +1,61 @@
-# 在家门口掌握一技之长 人社部门打造“30分钟培训圈”
+# 锁定四大应用场景！汇丰、渣打拿下香港首批稳定币牌照，后续门槛将持续高企
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-技能水平是劳动者应聘求职的硬核实力。今年，人力资源社会保障部推出一系列职业培训举措，让更多劳动者掌握一技之长。 今年，围绕人工智能、先进制造、低空经济、新能源汽车、康养服务等重点领域，各地推出技能提升专项行动。其中，人工智能技术技能提升行动将加强通识教育，劳动者可通过技工教育网等平台免费学习相关课程。百万青年技能提升培训，鼓励各地通过开设大学生技师班等多种方式，为青年掌握实用技
+4月10日，根据香港金融管理局（下称“金管局”）消息，首批稳定币发行人牌照已正式发出。碇点金融科技有限公司（由渣打银行（香港）、香港电讯及安拟集团联合组建）及香港上海汇丰银行有限公司成为首批获牌机构。牌照自今日起生效。 这一落地标志着香港稳定币监管制度正式进入落地实施新阶段。 预计年中起陆续面世 根据持牌机构的业务计划，在完成相关筹备工作后，两家机构计划在未来数月内正式开展业务
 
 ## 正文
 
-技能水平是劳动者应聘求职的硬核实力。
+4月10日，根据香港金融管理局（下称“金管局”）消息，首批稳定币发行人牌照已正式发出。
 
-今年，人力资源社会保障部推出一系列职业培训举措，让更多劳动者掌握一技之长。
+碇点金融科技有限公司（由渣打银行（香港）、香港电讯及安拟集团联合组建）及香港上海汇丰银行有限公司成为首批获牌机构。
 
-今年，围绕人工智能、先进制造、低空经济、新能源汽车、康养服务等重点领域，各地推出技能提升专项行动。
+牌照自今日起生效。
 
-其中，人工智能技术技能提升行动将加强通识教育，劳动者可通过技工教育网等平台免费学习相关课程。
+这一落地标志着香港稳定币监管制度正式进入落地实施新阶段。
 
-百万青年技能提升培训，鼓励各地通过开设大学生技师班等多种方式，为青年掌握实用技能创造条件。
+预计年中起陆续面世 根据持牌机构的业务计划，在完成相关筹备工作后，两家机构计划在未来数月内正式开展业务。
 
-在培训模式上，产教评等新模式正在进一步推广。
+金管局总裁余伟文表示：“批出稳定币发行人牌照，是香港数字资产发展的重要里程碑。
 
-龙头企业将联合院校和培训机构打造技能生态链，技工院校普遍对接企业需求开展订单式培训，用工紧缺领域由政府组织项目制培训，推动培训内容与岗位需求更加匹配。
+相关监管制度为稳定币发行人提供了规范有序的运营环境，使其在运用创新技术的同时，能够切实保障用户权益、管控相关风险，推动香港稳定币生态实现健康、负责任、可持续地发展。
 
-与此同时，人社部门正在推动培训资源向企业、院校、乡镇下沉，通过高技能人才培训基地、公共实训基地、技能大师工作室等各类培训载体，完善职业技能培训导航图，打造30分钟培训圈、技能加油站等服务网络，方便劳动者就近参加培训。
+我期待各持牌机构按照计划开展业务，在做好风险管控的前提下积极拓展发展空间，推广合规稳定币的应用，解决金融与经济活动中的痛点难点，为市民和企业创造价值，助力香港数字资产健康发展。
 
 ## 相关推荐
 
-- 2026-06-30 08:35 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
-- 2026-06-30 08:23 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-30 08:16 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
-- 2026-06-30 08:30 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
-- 2026-06-30 08:23 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
-- 2026-06-30 08:28 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-30 08:18 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-30 08:31 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
-- 2026-06-30 08:30 - [如果有二次元高中是什么样子的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-30 08:24 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
-- 2026-06-30 08:23 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-30 08:27 - [刘宇宁高情商化解谁站C位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-30 08:22 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-30 08:38 - [欧洲装一台空调有多难](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
-- 2026-06-30 08:14 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-30 08:43 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-30 08:25 - [女子遭下药退赔偿拟追刑责](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
+- 2026-06-30 08:31 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-30 08:38 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-30 08:19 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-30 08:41 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-30 08:25 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-30 08:40 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-30 08:46 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-30 08:33 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-30 08:26 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
+- 2026-06-30 08:38 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-30 08:22 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-30 08:32 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-30 08:19 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:26 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/2689778.shtml)
-- 2026-06-30 08:32 - [板面：为什么那么多人爱吃？？！](http://www.share.minike.top/Article/details/9112130611.shtml)
-- 2026-06-30 08:41 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/770846.shtml)
-- 2026-06-30 08:12 - [日本球员说被绝杀非常不甘心](http://www.share.minike.top/Article/details/6299401.shtml)
-- 2026-06-30 08:38 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/0311385348.shtml)
-- 2026-06-30 08:14 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/91524903.shtml)
-- 2026-06-30 08:33 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/6637763.shtml)
-- 2026-06-30 08:40 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.blog.kurohicncr.top/Article/details/625934305806.shtml)
-- 2026-06-30 08:31 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/3788501.shtml)
-- 2026-06-30 08:29 - [德国淘汰](http://www.blog.minike.top/Article/details/813449813.shtml)
-- 2026-06-30 08:16 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/75152896.shtml)
-- 2026-06-30 08:18 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/79741.shtml)
-- 2026-06-30 08:12 - [巴西绝杀](http://www.blog.kurohicncr.top/Article/details/51340062101.shtml)
-- 2026-06-30 08:32 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/0435837265.shtml)
-- 2026-06-30 08:34 - [二次元提前预演明日巴西对日本](http://www.share.kurohicncr.top/Article/details/398475.shtml)
+- 2026-06-30 08:24 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.minike.top/Article/details/570982.shtml)
+- 2026-06-30 08:40 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/42655896073.shtml)
+- 2026-06-30 08:32 - [郑钦文 四年一轮游](http://www.share.kurohicncr.top/Article/details/96010066238.shtml)
+- 2026-06-30 08:33 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/18646940.shtml)
+- 2026-06-30 08:22 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/173824.shtml)
+- 2026-06-30 08:41 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/6905581338.shtml)
+- 2026-06-30 08:47 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/8305667465.shtml)
+- 2026-06-30 08:35 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.kurohicncr.top/Article/details/03534.shtml)
+- 2026-06-30 08:35 - [DeepSeek V4正式版要来了](http://www.blog.minike.top/Article/details/9952563.shtml)
+- 2026-06-30 08:23 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/79031636.shtml)
+- 2026-06-30 08:46 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.kurohicncr.top/Article/details/64893293.shtml)
+- 2026-06-30 08:44 - [扬名立万](http://www.blog.minike.top/Article/details/973174438.shtml)
+- 2026-06-30 08:38 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/14312.shtml)
+- 2026-06-30 08:19 - [警犬“多多”助民警寻回失联老人](http://www.share.kurohicncr.top/Article/details/92537492.shtml)
+- 2026-06-30 08:23 - [王欣瑜连续4年晋级温网第二轮](http://www.share.minike.top/Article/details/529629313579.shtml)

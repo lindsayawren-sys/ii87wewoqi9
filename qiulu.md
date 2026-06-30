@@ -1,57 +1,61 @@
-# 特朗普称伊朗各方均已批准美伊协议
+# 从“碰运气”到“有底气” 莽格吐乡“订单+复种”绘出产业振兴新图景
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-当地时间6月11日，美国总统特朗普谈及美伊协议称，据他了解，伊朗最高领袖已同意该协议，伊朗各方均已批准该协议。他还表示，这是一份非常有力、非常详尽的谅解备忘录。特朗普还称，伊朗将不会拥有核武器。 特朗普表示，一旦签署谅解备忘录，霍尔木兹海峡将立即开放。他还称，哈尔克岛行动不在考虑之列。 此前，一名接近伊朗谈判团队的知情人士称，伊朗“尚未批准任何与美国达成的初步谅解备忘录文本”。
+中新网齐齐哈尔4月11日电 题：从“碰运气”到“有底气” 莽格吐乡“订单+复种”绘出产业振兴新图景 作者 刘锡菊 张也 曾雪 春耕时节，莽格吐乡莽格吐村的田间地头热闹起来。种植大户徐星冬蹲在自家大棚里，手指轻轻拨开覆膜，看着新移栽的豆角秧苗在泥土里扎下根。“以前种地全凭感觉，哪块地肥、哪种作物值钱，就一窝蜂往上种。等到秋收才发现，种得好不如卖得好。”徐星冬站起身，拍了拍手上的土
 
 ## 正文
 
-当地时间6月11日，美国总统特朗普谈及美伊协议称，据他了解，伊朗最高领袖已同意该协议，伊朗各方均已批准该协议。
+中新网齐齐哈尔4月11日电 题：从“碰运气”到“有底气” 莽格吐乡“订单+复种”绘出产业振兴新图景 作者 刘锡菊 张也 曾雪 春耕时节，莽格吐乡莽格吐村的田间地头热闹起来。
 
-他还表示，这是一份非常有力、非常详尽的谅解备忘录。
+种植大户徐星冬蹲在自家大棚里，手指轻轻拨开覆膜，看着新移栽的豆角秧苗在泥土里扎下根。
 
-特朗普还称，伊朗将不会拥有核武器。
+“以前种地全凭感觉，哪块地肥、哪种作物值钱，就一窝蜂往上种。
 
-特朗普表示，一旦签署谅解备忘录，霍尔木兹海峡将立即开放。
+等到秋收才发现，种得好不如卖得好。
 
-他还称，哈尔克岛行动不在考虑之列。
+”徐星冬站起身，拍了拍手上的土，“今年不一样了，订单拿到手，种什么都心里有底。
 
-此前，一名接近伊朗谈判团队的知情人士称，伊朗“尚未批准任何与美国达成的初步谅解备忘录文本”。
+” 订单在手，种地从“碰运气”变“有底气”。
 
-(央视记者 吴汉婴)
+徐星冬的底气，来自梅里斯达斡尔族区莽格吐乡党委、政府主动扛起“搭桥人”的职责。
+
+该乡立足黑土地资源禀赋，精准对接黑龙江中蓝食品有限公司与辖区种植大户，建立“企业下单、农户种植、定向收购”的闭环模式。
 
 ## 相关推荐
 
-- 2026-06-30 08:33 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-30 08:24 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
-- 2026-06-30 08:30 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-30 08:38 - [武磊：巴西队赢的并不轻松](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-30 08:33 - [郑钦文 四年一轮游](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
-- 2026-06-30 08:21 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
-- 2026-06-30 08:36 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
-- 2026-06-30 08:40 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-30 08:12 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
-- 2026-06-30 08:21 - [周冬雨多次说演不了话剧文城](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-30 08:31 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-30 08:31 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-30 08:40 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-30 08:21 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-30 08:44 - [泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-30 08:27 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-30 08:24 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-30 08:30 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-30 08:35 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-30 08:31 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-30 08:35 - [曝iPhone18Pro机密文件现身暗网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
+- 2026-06-30 08:23 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
+- 2026-06-30 08:26 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-30 08:28 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-30 08:26 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-30 08:25 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-30 08:23 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-30 08:23 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:40 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/11406678.shtml)
-- 2026-06-30 08:28 - [花少8要去世界杯举办国](http://www.share.kurohicncr.top/Article/details/299601.shtml)
-- 2026-06-30 08:25 - [刘宇宁是去进货了吗](http://www.share.minike.top/Article/details/08717.shtml)
-- 2026-06-30 08:17 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/413323695.shtml)
-- 2026-06-30 08:13 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/200290.shtml)
-- 2026-06-30 08:22 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/922772459.shtml)
-- 2026-06-30 08:16 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.kurohicncr.top/Article/details/702319994.shtml)
-- 2026-06-30 08:26 - [千香](http://www.share.minike.top/Article/details/0809126095.shtml)
-- 2026-06-30 08:38 - [王健林甩卖超80座万达广场](https://www.blog.minike.top/Article/details/10273971495.shtml)
-- 2026-06-30 08:13 - [网瘾賊大的阿嬷](http://www.blog.kurohicncr.top/Article/details/59705.shtml)
-- 2026-06-30 08:31 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/136258250.shtml)
-- 2026-06-30 08:40 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.blog.kurohicncr.top/Article/details/3595136409.shtml)
-- 2026-06-30 08:36 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/669530422873.shtml)
-- 2026-06-30 08:25 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/9333964144.shtml)
-- 2026-06-30 08:13 - [韩国人为什么这么在乎输赢](https://www.blog.kurohicncr.top/Article/details/60632294369.shtml)
+- 2026-06-30 08:47 - [赛博朋克边缘行者2预告片](https://www.share.kurohicncr.top/Article/details/488249675.shtml)
+- 2026-06-30 08:20 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/691621920.shtml)
+- 2026-06-30 08:25 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/55217355298.shtml)
+- 2026-06-30 08:39 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.minike.top/Article/details/9660657.shtml)
+- 2026-06-30 08:34 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/453502.shtml)
+- 2026-06-30 08:35 - [这种关系可能正在悄悄“催老”你](https://www.blog.kurohicncr.top/Article/details/44660.shtml)
+- 2026-06-30 08:39 - [佐野海舟远射破门](http://www.share.minike.top/Article/details/21956.shtml)
+- 2026-06-30 08:24 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/9798581049.shtml)
+- 2026-06-30 08:34 - [郑钦文温网一轮游](http://www.share.kurohicncr.top/Article/details/2526732.shtml)
+- 2026-06-30 08:29 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/774430879723.shtml)
+- 2026-06-30 08:40 - [亚洲球队全部出局](https://www.blog.minike.top/Article/details/08826449.shtml)
+- 2026-06-30 08:27 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/296180.shtml)
+- 2026-06-30 08:45 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/40085939797.shtml)
+- 2026-06-30 08:20 - [城市规划有可能成为「屎山代码」吗？](http://www.blog.kurohicncr.top/Article/details/478423291.shtml)
+- 2026-06-30 08:47 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/4295639.shtml)

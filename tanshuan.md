@@ -1,45 +1,50 @@
-# 以色列媒体报道：以官员称以色列已做好冲突重启的准备
+# 全国爱鼻日：孩子打鼾要重视 但也不要着急做手术
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月11日 10:30 来源：央视新闻 责任编辑：【李骏】
+发布时间：2026年04月11日 20:23 来源：中国新闻网 4月11日是第26个全国爱鼻日，主题为“关爱鼻腔健康，畅享清新呼吸”。中国医科大学附属盛京医院第二耳鼻咽喉头颈外科鼻科病房副教授于晓峰提示，家中孩子张嘴睡觉、打呼噜，需要引起重视。建议家长不要急于为孩子进行手术治疗，可先采取药物干预。(记者 禹瑞斋) 责任编辑：【罗攀】
 
 ## 正文
 
-发布时间：2026年06月11日 10:30 来源：央视新闻 责任编辑：【李骏】
+发布时间：2026年04月11日 20:23 来源：中国新闻网 4月11日是第26个全国爱鼻日，主题为“关爱鼻腔健康，畅享清新呼吸”。
+
+中国医科大学附属盛京医院第二耳鼻咽喉头颈外科鼻科病房副教授于晓峰提示，家中孩子张嘴睡觉、打呼噜，需要引起重视。
+
+建议家长不要急于为孩子进行手术治疗，可先采取药物干预。
+
+(记者 禹瑞斋) 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-30 08:26 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-30 08:24 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-30 08:31 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-30 08:14 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-30 08:40 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-30 08:21 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
-- 2026-06-30 08:38 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
-- 2026-06-30 08:18 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-30 08:21 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-30 08:40 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-30 08:39 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-30 08:34 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
-- 2026-06-30 08:41 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-30 08:22 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-30 08:36 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-30 08:38 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-30 08:22 - [锐评T1战胜KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-30 08:20 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
+- 2026-06-30 08:31 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-30 08:23 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-30 08:30 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-30 08:30 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-30 08:26 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-30 08:35 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-30 08:31 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:20 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/1395700.shtml)
-- 2026-06-30 08:30 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://www.blog.minike.top/Article/details/852147513.shtml)
-- 2026-06-30 08:15 - [王源近几年没有路演了](http://www.blog.minike.top/Article/details/61816440475.shtml)
-- 2026-06-30 08:24 - [日本球员说被绝杀非常不甘心](http://www.share.minike.top/Article/details/853658455.shtml)
-- 2026-06-30 08:16 - [曝灰熊将莫兰特交易至开拓者](https://www.blog.kurohicncr.top/Article/details/385965268622.shtml)
-- 2026-06-30 08:22 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/820599198.shtml)
-- 2026-06-30 08:19 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/10472.shtml)
-- 2026-06-30 08:34 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/091054.shtml)
-- 2026-06-30 08:41 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/12160027201.shtml)
-- 2026-06-30 08:31 - [周生如故](https://www.share.kurohicncr.top/Article/details/1843928.shtml)
-- 2026-06-30 08:38 - [周生如故](https://www.blog.minike.top/Article/details/5022305539.shtml)
-- 2026-06-30 08:17 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/66661.shtml)
-- 2026-06-30 08:39 - [王健林甩卖超80座万达广场](http://www.share.kurohicncr.top/Article/details/63564758.shtml)
-- 2026-06-30 08:35 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/06707805509.shtml)
-- 2026-06-30 08:28 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/831515.shtml)
+- 2026-06-30 08:46 - [德国巴拉圭进入点球大战](https://www.blog.kurohicncr.top/Article/details/2428035.shtml)
+- 2026-06-30 08:44 - [亚洲球队全部出局](https://www.share.minike.top/Article/details/3948600.shtml)
+- 2026-06-30 08:28 - [日本五次世界杯淘汰赛全败](https://www.share.minike.top/Article/details/74645.shtml)
+- 2026-06-30 08:39 - [世界杯](https://www.share.kurohicncr.top/Article/details/671678143.shtml)
+- 2026-06-30 08:36 - [本科毕业生为何涌入专科学校](http://www.blog.kurohicncr.top/Article/details/2076989572.shtml)
+- 2026-06-30 08:42 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/23779.shtml)
+- 2026-06-30 08:19 - [德国罚丢3粒点球](http://www.share.minike.top/Article/details/15895860939.shtml)
+- 2026-06-30 08:43 - [世界杯欧洲队7战南美仅1胜](http://www.blog.minike.top/Article/details/68131.shtml)
+- 2026-06-30 08:45 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/4426480698.shtml)
+- 2026-06-30 08:25 - [日本反击率先破门](http://www.share.minike.top/Article/details/29531.shtml)
+- 2026-06-30 08:18 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.minike.top/Article/details/59161498556.shtml)
+- 2026-06-30 08:22 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/29795.shtml)
+- 2026-06-30 08:20 - [F1奥地利站赛后复盘](https://www.share.minike.top/Article/details/481271470.shtml)
+- 2026-06-30 08:37 - [韩乔生吐槽世界杯扩军](http://www.share.kurohicncr.top/Article/details/41179222422.shtml)
+- 2026-06-30 08:43 - [锐评T1战胜KC](http://www.blog.minike.top/Article/details/585774.shtml)

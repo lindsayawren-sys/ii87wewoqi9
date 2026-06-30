@@ -1,58 +1,57 @@
-# CBCX:金油交易时段再延展
+# 游客喊话“欢迎回来” 郑丽文北京行显温情
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-6月12日，芝商所计划为新的原油和黄金合约引入全天候交易后，CBCX表示这反映出市场正尝试用更长的交易覆盖来匹配全球投资者的风险管理需求。 就交易结构而言，CBCX认为时段延展有助于提升消息发布后的即时定价效率，也可能让金油资产在跨时区环境下呈现更连续的流动性特征。 对于短线参与者来说，交易机会的增加常伴随波动延伸，尤其是在宏观数据和大宗商品消息频繁出现的阶段，价格节奏可能更加
+发布时间：2026年04月13日 11:41 来源：中国新闻网 4月9日到12日，中国国民党主席郑丽文率团参访北京，这是此次大陆行日程最充实的一站，在我看来也是最具温情的一站。 郑丽文希望深入了解大陆中小学人工智能教育与科创发展，于是走进清华附中与师生交流，细心带走桌上教材；希望与科创企业座谈，于是来到中关村科技园，现场邀请企业家赴台发展。访问团还在国家大剧院了解两岸文艺交流的
 
 ## 正文
 
-6月12日，芝商所计划为新的原油和黄金合约引入全天候交易后，CBCX表示这反映出市场正尝试用更长的交易覆盖来匹配全球投资者的风险管理需求。
+发布时间：2026年04月13日 11:41 来源：中国新闻网 4月9日到12日，中国国民党主席郑丽文率团参访北京，这是此次大陆行日程最充实的一站，在我看来也是最具温情的一站。
 
-就交易结构而言，CBCX认为时段延展有助于提升消息发布后的即时定价效率，也可能让金油资产在跨时区环境下呈现更连续的流动性特征。
+郑丽文希望深入了解大陆中小学人工智能教育与科创发展，于是走进清华附中与师生交流，细心带走桌上教材；希望与科创企业座谈，于是来到中关村科技园，现场邀请企业家赴台发展。
 
-对于短线参与者来说，交易机会的增加常伴随波动延伸，尤其是在宏观数据和大宗商品消息频繁出现的阶段，价格节奏可能更加紧凑。
+访问团还在国家大剧院了解两岸文艺交流的闪耀时刻；近距离感受了大陆新能源汽车与智能制造进展，郑丽文说“我家都是小米的东西！
 
-从后续影响看，CBCX分析称投资者可留意新合约能否吸引稳定成交，若流动性持续改善，贵金属与能源品种的全球联动也会更明显。
+”。
 
-风险提示：本文仅为资讯分享，不构成投资建议。
+真诚分享大陆的发展成果，是我们对待家人的态度。
 
-外汇、贵金属属高风险产品，波动较大或致本金亏损。
+郑丽文也多次感叹“不虚此行”，为行程安排点赞。
 
-请理性投资、自担风险。
+在故宫参访，人群中响起“欢迎回来”，厦门乡亲用闽南话热情问候，郑丽文一一亲切回应，朴素民意传递浓浓两岸亲情。
 
-责任编辑：陈平
+随行台湾媒体也为故宫芳姿吸引，感叹这里很美，必须再来。
 
 ## 相关推荐
 
-- 2026-06-30 08:34 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-30 08:41 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-30 08:26 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-30 08:34 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-30 08:22 - [陈幸同晋级WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
-- 2026-06-30 08:35 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
-- 2026-06-30 08:40 - [日本博主：日本足球真的垃圾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-30 08:41 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-30 08:17 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
-- 2026-06-30 08:16 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-30 08:38 - [德国进球被吹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
-- 2026-06-30 08:25 - [4000美元是黄金新一轮下跌的开始吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-30 08:35 - [德国巴拉圭进入点球大战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-30 08:19 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-30 08:36 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-30 08:46 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-30 08:45 - [韩国世界杯出局是主帅一个人的锅吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-30 08:28 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-30 08:24 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-30 08:22 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-30 08:30 - [IGN评测电影版后室](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-30 08:36 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-30 08:28 - [第3集丨“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:37 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.kurohicncr.top/Article/details/691819820528.shtml)
-- 2026-06-30 08:29 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.minike.top/Article/details/01789278276.shtml)
-- 2026-06-30 08:19 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/089191653663.shtml)
-- 2026-06-30 08:14 - [巴西醒醒 这是淘汰赛](http://www.share.kurohicncr.top/Article/details/36560.shtml)
-- 2026-06-30 08:21 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://www.share.minike.top/Article/details/95877665232.shtml)
-- 2026-06-30 08:31 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/2881867941.shtml)
-- 2026-06-30 08:25 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/240878.shtml)
-- 2026-06-30 08:39 - [库尼亚赛后伸五指嘲讽日本](https://www.blog.kurohicncr.top/Article/details/59175907.shtml)
-- 2026-06-30 08:14 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/98976.shtml)
-- 2026-06-30 08:28 - [全球芯片巨头史诗级扩产](http://www.blog.minike.top/Article/details/333984.shtml)
-- 2026-06-30 08:26 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/123843.shtml)
-- 2026-06-30 08:27 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/33797292.shtml)
-- 2026-06-30 08:14 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/49140.shtml)
-- 2026-06-30 08:26 - [德国4比5巴拉圭](https://www.share.minike.top/Article/details/773583320040.shtml)
-- 2026-06-30 08:22 - [我觉得你是在无中生友](https://www.blog.kurohicncr.top/Article/details/9109614.shtml)
+- 2026-06-30 08:47 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://www.share.kurohicncr.top/Article/details/5292753418.shtml)
+- 2026-06-30 08:41 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](http://www.share.kurohicncr.top/Article/details/822179562596.shtml)
+- 2026-06-30 08:43 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/7058253.shtml)
+- 2026-06-30 08:29 - [高质量发展看新疆](http://www.share.minike.top/Article/details/848883632.shtml)
+- 2026-06-30 08:20 - [失明的我带老妈去了趟“火星”](https://www.share.minike.top/Article/details/466414.shtml)
+- 2026-06-30 08:24 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/58260610240.shtml)
+- 2026-06-30 08:40 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/870132902.shtml)
+- 2026-06-30 08:39 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/40065614.shtml)
+- 2026-06-30 08:47 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/26377157463.shtml)
+- 2026-06-30 08:35 - [穆祉丞年度人气艺人](http://www.blog.kurohicncr.top/Article/details/690326.shtml)
+- 2026-06-30 08:21 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/48765221.shtml)
+- 2026-06-30 08:23 - [索马里女大使：想和中国一起搞事业](https://www.blog.kurohicncr.top/Article/details/28946996.shtml)
+- 2026-06-30 08:26 - [复古未来主义沙画「夜泳」](http://www.share.kurohicncr.top/Article/details/36298250.shtml)
+- 2026-06-30 08:23 - [内马尔中场休息积极鼓励队友](http://www.blog.kurohicncr.top/Article/details/3291374884.shtml)
+- 2026-06-30 08:23 - [点球大战 残酷](http://www.share.kurohicncr.top/Article/details/074351377.shtml)

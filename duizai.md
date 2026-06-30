@@ -1,59 +1,54 @@
-# 五粮液（000858）股民索赔再提交法院立案，任子行（300311）索赔案已有胜诉后再收测算报告
+# 特朗普下令对霍尔木兹海峡实施军事封锁，中方表态
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-2026年6月11日，上海久诚律师事务所股票索赔律师许峰代理的五粮液（维权）（000858）投资者索赔案再向成渝金融法院提交一批立案。（许峰律师专栏） 2026年5月20日，许峰律师代理的五粮液（000858）投资者索赔案已获得成渝金融法院立案，目前正在等待法院的下一步安排。律师团队同步还在继续推进后续案件的代理工作，还在继续接受其他投资者的索赔委托。 2026年4月30日晚，
+【环球时报-环球网报道 记者李萌】4月13日，外交部发言人郭嘉昆主持例行记者会。会上有外媒记者提问称，4月12日，美国总统特朗普下令对霍尔木兹海峡实施军事封锁，并对与伊朗进行能源贸易的国家采取措施，请问中方对此有何评论？中方如何看待霍尔木兹海峡海域安全以及相关能源问题？ 郭嘉昆表示，霍尔木兹海峡是重要的国际货物和能源贸易通道，维护该地区的安全稳定和畅通，符合国际社会共同利益。海
 
 ## 正文
 
-2026年6月11日，上海久诚律师事务所股票索赔律师许峰代理的五粮液（维权）（000858）投资者索赔案再向成渝金融法院提交一批立案。
+【环球时报-环球网报道 记者李萌】4月13日，外交部发言人郭嘉昆主持例行记者会。
 
-（许峰律师专栏） 2026年5月20日，许峰律师代理的五粮液（000858）投资者索赔案已获得成渝金融法院立案，目前正在等待法院的下一步安排。
+会上有外媒记者提问称，4月12日，美国总统特朗普下令对霍尔木兹海峡实施军事封锁，并对与伊朗进行能源贸易的国家采取措施，请问中方对此有何评论？
 
-律师团队同步还在继续推进后续案件的代理工作，还在继续接受其他投资者的索赔委托。
+中方如何看待霍尔木兹海峡海域安全以及相关能源问题？
 
-2026年4月30日晚，五粮液（000858）发布关于前期会计差错更正的公告，许峰律师认为，在2025年4月28日到2026年5月1日之间买入五粮液股票，并且在2026年5月1日后卖出或继续持有股票的投资者，目前还可发起索赔，具体应以法院认定为准。
+郭嘉昆表示，霍尔木兹海峡是重要的国际货物和能源贸易通道，维护该地区的安全稳定和畅通，符合国际社会共同利益。
 
-（五粮液维权入口） 除了五粮液投资者索赔案再次提交法院立案，2026年6月11日，许峰律师代理的任子行（300311） 投资者索赔案再收到部分测算报告，部分案件或将进入调解阶段。
+海峡通航受阻的根源在于伊朗战事，解决这一问题的出路是尽快停火止战，各方应该保持冷静和克制，中方愿继续发挥积极建设性作用。
 
-2026年6月3日，许峰律师代理的部分任子行投资者索赔案收到广东省高级人民人民法院送达的终审判决判决书，广东高院驳回任子行的上诉，维持投资者一审胜诉判决，投资者获得终审胜诉 2025年7月18日，任子行公告收到《行政处罚决定书》的公告，经查明，任子行存在如下违法事实： 通过相关方式，2020年至2022年上半年，任子行虚增营业收入36，951，333.48元、48，435，351.70元、26，929，607.08元，分别占当期报告记载金额的4.21%、6.97%、10.81%；虚增利润总额19，406，901.32元、37，317，431.71元、16，560，909.58元，分别占当期报告记载金额绝对值的85.93%、70.03%、30.79%。
-
-任子行披露的《2020年年度报告》《2021年年度报告》《2022年半年度报告》存在虚假记载。
-
-2023年2月14日，任子行披露《创业板向特定对象发行股票之募集说明书（注册稿）》，引用了上述2020年度及2021年度营业收入数据。
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-30 08:30 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-30 08:19 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-30 08:28 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-30 08:37 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
-- 2026-06-30 08:24 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-30 08:33 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
-- 2026-06-30 08:26 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
-- 2026-06-30 08:30 - [全球芯片巨头史诗级扩产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-30 08:15 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-30 08:34 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-30 08:13 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-30 08:39 - [泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
-- 2026-06-30 08:33 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-30 08:27 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-30 08:29 - [世界杯巴拉圭点球淘汰德国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-30 08:27 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
+- 2026-06-30 08:23 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-30 08:41 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-30 08:25 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-30 08:34 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-30 08:37 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-30 08:40 - [日本队5进世界杯淘汰赛0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
+- 2026-06-30 08:33 - [日本五次世界杯淘汰赛全败](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-30 08:19 - [中国新一轮出口管制直指日本命脉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-30 08:27 - [勇士续约波尔津吉斯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:34 - [巴西扳平比分](https://www.blog.minike.top/Article/details/15863501.shtml)
-- 2026-06-30 08:22 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/239064685.shtml)
-- 2026-06-30 08:21 - [孙兴慜发长文致歉](http://www.share.kurohicncr.top/Article/details/0958046.shtml)
-- 2026-06-30 08:14 - [豆包收费了，你还会用吗？](https://www.blog.minike.top/Article/details/476553308.shtml)
-- 2026-06-30 08:24 - [马耳他著名拱门坍塌致一中国男子身亡](http://www.share.kurohicncr.top/Article/details/404470950386.shtml)
-- 2026-06-30 08:36 - [哈弗茨头球破门](https://www.share.minike.top/Article/details/14891542.shtml)
-- 2026-06-30 08:21 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/8800637.shtml)
-- 2026-06-30 08:29 - [穆祉丞年度人气艺人](https://www.blog.minike.top/Article/details/46159.shtml)
-- 2026-06-30 08:29 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/88701.shtml)
-- 2026-06-30 08:13 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/3417182068.shtml)
-- 2026-06-30 08:29 - [高考结束了，你会让孩子在家玩手机吗？](http://www.blog.kurohicncr.top/Article/details/79065559270.shtml)
-- 2026-06-30 08:19 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/1532401954.shtml)
-- 2026-06-30 08:22 - [补时绝杀 巴西2-1淘汰日本](https://www.share.kurohicncr.top/Article/details/657284.shtml)
-- 2026-06-30 08:38 - [勇士续约波尔津吉斯](https://www.share.kurohicncr.top/Article/details/413433795927.shtml)
-- 2026-06-30 08:20 - [网红峡谷5人溺亡 有人提醒会下雨](http://www.blog.minike.top/Article/details/14519317.shtml)
+- 2026-06-30 08:47 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/4041315.shtml)
+- 2026-06-30 08:23 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/89553581644.shtml)
+- 2026-06-30 08:33 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/1566679913.shtml)
+- 2026-06-30 08:28 - [巴西绝杀](https://www.blog.minike.top/Article/details/62528866694.shtml)
+- 2026-06-30 08:46 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/1028506.shtml)
+- 2026-06-30 08:40 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.kurohicncr.top/Article/details/7590843.shtml)
+- 2026-06-30 08:39 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/6957265944.shtml)
+- 2026-06-30 08:32 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/784164577.shtml)
+- 2026-06-30 08:26 - [美人鱼](https://www.share.minike.top/Article/details/184215005660.shtml)
+- 2026-06-30 08:27 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/90105974.shtml)
+- 2026-06-30 08:46 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/44133258.shtml)
+- 2026-06-30 08:39 - [诺伊尔尽力了](https://www.blog.minike.top/Article/details/57861580042.shtml)
+- 2026-06-30 08:35 - [小娘惹](http://www.share.kurohicncr.top/Article/details/346794332214.shtml)
+- 2026-06-30 08:35 - [孙颖莎王楚钦晋级8强](https://www.share.minike.top/Article/details/55051678.shtml)
+- 2026-06-30 08:30 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/658237380217.shtml)

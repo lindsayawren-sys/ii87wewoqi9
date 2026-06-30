@@ -1,57 +1,56 @@
-# 优时科技林培森：很多品牌看似一直在投放流量，实则是在为平台打工
+# 文件显示：迪拜将外国航班限制至5月31日 印度航司受冲击最大
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-专题：2026IAI传鉴国际创意节 2026IAI传鉴国际创意节于6月12日至13日在北京举办，主题为“聚势新增长”。优时科技创始人林培森在演讲中表示，当下我们正处在碎片化时间经济时代。 他指出，过去大家还有整块时间读书、看长视频，如今内容形式不断精简，慢慢变成短视频，甚至短短0.3秒内抓不住用户视线，用户就会直接划走。在这样的注意力环境里，单纯投流并不等同于有效增长。 “就拿
+文件显示，受伊朗局势影响，迪拜已限制外国航空公司在5月31日前每日仅可运营一班飞往其机场的航班，这引发印度航空公司的营收损失担忧——此前印度航司计划飞往迪拜的航班数量远超其他国家航司。 据印度航空公司联合会（FIA）3月31日致印度政府的信函，该机构代表靛蓝航空（IndiGo）、印度航空、香料航空（SpiceJet）等头部航司，已请求印度政府推动迪拜当局取消此项限制；若未能实现
 
 ## 正文
 
-专题：2026IAI传鉴国际创意节 2026IAI传鉴国际创意节于6月12日至13日在北京举办，主题为“聚势新增长”。
+文件显示，受伊朗局势影响，迪拜已限制外国航空公司在5月31日前每日仅可运营一班飞往其机场的航班，这引发印度航空公司的营收损失担忧——此前印度航司计划飞往迪拜的航班数量远超其他国家航司。
 
-优时科技创始人林培森在演讲中表示，当下我们正处在碎片化时间经济时代。
+据印度航空公司联合会（FIA）3月31日致印度政府的信函，该机构代表靛蓝航空（IndiGo）、印度航空、香料航空（SpiceJet）等头部航司，已请求印度政府推动迪拜当局取消此项限制；若未能实现，则考虑对阿联酋航空、迪拜航空（flydubai）等迪拜航司采取对等反制措施。
 
-他指出，过去大家还有整块时间读书、看长视频，如今内容形式不断精简，慢慢变成短视频，甚至短短0.3秒内抓不住用户视线，用户就会直接划走。
+自去年印巴两国因军事紧张关系禁止印度航司使用巴基斯坦领空后，印度航司已面临燃油价格上涨、飞往西方目的地航线航程拉长带来的财务压力。
 
-在这样的注意力环境里，单纯投流并不等同于有效增长。
+迪拜机场3月27日致各航司的非公开邮件显示，4月20日至5月31日夏季运营期间，境外航司每日仅可在迪拜国际机场（DXB，全球最繁忙国际航空枢纽）及规模较小的阿勒马克图姆国际机场（DWC）各运营一班往返航班，此项限制是此前冲突爆发后相关管控措施的延续。
 
-“就拿三只松鼠来说，企业营收达到五百亿，但净利润不足五千万。
+邮件称：“在运力条件允许增班之前，各航司仍将被限制为每日一班航班……若运力充足，将另行分配额外时刻。
 
-这也反映出一个行业现状：很多品牌看似一直在投放流量，实则是在为平台打工。
+” 印度航空公司联合会向印度政府表示，阿联酋航空、迪拜航空等迪拜本土航司并未受此限制约束，由此形成不公平竞争环境，或将给印度航司带来“巨额”营收损失。
 
-线上流量已经见顶，如果品牌线上转化率达不到2%，那剩下98%的曝光都属于资源浪费。
+迪拜机场及迪拜媒体办公室未回应多次置评请求。
 
-”他说。
+迪拜航空称其航班时刻已获相关部门批准，阿联酋航空则未予回应。
 
 ## 相关推荐
 
-- 2026-06-30 08:33 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
-- 2026-06-30 08:32 - [刘宇宁高情商化解谁站C位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
-- 2026-06-30 08:37 - [IGN评测电影版后室](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-30 08:23 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
-- 2026-06-30 08:14 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-30 08:39 - [泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-30 08:37 - [张雪的一句“是我们”引发岛内热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-30 08:27 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
-- 2026-06-30 08:20 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-30 08:34 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
-- 2026-06-30 08:26 - [电影抓特务上映11天破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-30 08:31 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-30 08:25 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-30 08:42 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-30 08:34 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-30 08:25 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-30 08:47 - [周冬雨多次说演不了话剧文城](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
+- 2026-06-30 08:22 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-30 08:31 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-30 08:19 - [世界杯欧洲队7战南美仅1胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-30 08:36 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:17 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/59544225090.shtml)
-- 2026-06-30 08:22 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/457528102.shtml)
-- 2026-06-30 08:24 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/62027775913.shtml)
-- 2026-06-30 08:20 - [恋与深空道歉声明](http://www.blog.kurohicncr.top/Article/details/918723411.shtml)
-- 2026-06-30 08:28 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](http://www.blog.minike.top/Article/details/81791441771.shtml)
-- 2026-06-30 08:24 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.kurohicncr.top/Article/details/3198567424.shtml)
-- 2026-06-30 08:18 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/88778904.shtml)
-- 2026-06-30 08:29 - [巴西足球能否再现昔日荣光](https://www.share.kurohicncr.top/Article/details/008250.shtml)
-- 2026-06-30 08:17 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/1288996636.shtml)
-- 2026-06-30 08:23 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/73239.shtml)
-- 2026-06-30 08:29 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/513038.shtml)
-- 2026-06-30 08:36 - [齐思钧回复张月](https://www.blog.minike.top/Article/details/580582.shtml)
-- 2026-06-30 08:15 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/50980.shtml)
-- 2026-06-30 08:35 - [董卿父亲报纸上发文悼念亡妻](http://www.blog.minike.top/Article/details/6322687343.shtml)
-- 2026-06-30 08:41 - [巴西补时绝杀日本](https://www.blog.minike.top/Article/details/7755523631.shtml)
+- 2026-06-30 08:36 - [苗族银饰](https://www.share.minike.top/Article/details/4880643.shtml)
+- 2026-06-30 08:45 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/343998123634.shtml)
+- 2026-06-30 08:23 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/637174852.shtml)
+- 2026-06-30 08:26 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/405971.shtml)
+- 2026-06-30 08:39 - [日本淘汰](http://www.blog.minike.top/Article/details/6235422608.shtml)
+- 2026-06-30 08:33 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/44940.shtml)
+- 2026-06-30 08:26 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.minike.top/Article/details/7642010.shtml)
+- 2026-06-30 08:44 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/82043500242.shtml)
+- 2026-06-30 08:22 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/9675926.shtml)
+- 2026-06-30 08:24 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.kurohicncr.top/Article/details/4659004.shtml)
+- 2026-06-30 08:28 - [日本队主帅道歉](https://www.share.kurohicncr.top/Article/details/634109643597.shtml)
+- 2026-06-30 08:26 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/83446945.shtml)
+- 2026-06-30 08:25 - [赛博朋克边缘行者2预告片](http://www.blog.minike.top/Article/details/038122971091.shtml)
+- 2026-06-30 08:18 - [免费试吃发差评被店家挂店门避雷](http://www.blog.kurohicncr.top/Article/details/8400771406.shtml)
+- 2026-06-30 08:27 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/2501268999.shtml)

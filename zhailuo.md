@@ -1,48 +1,56 @@
-# 埃斯顿获Barclays PLC增持315.12万股 每股作价约19.17港元
+# 亚马逊计划投资250亿美元在密西西比州建设数据中心，创造2000个就业岗位
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-香港联交所最新资料显示，6月8日，Barclays PLC增持埃斯顿（02715）315.12万股，每股作价19.1701港元，总金额约为6040.88万港元。增持后最新持股数目为509万股，最新持股比例为5.26%。责任编辑：卢昱君
+亚马逊公司宣布，将把在密西西比州的计划投资总额提升至250亿美元，并预计在该州所有数据中心运营中创造2000个高技能就业岗位。 追加投资与设施扩建 亚马逊的最新扩张计划包括在麦迪逊县追加110亿美元投资，以及在欣兹县投资10亿美元，用于将当地一处前德尔福制造厂改造成一个先进的数据中心设施。 在此之前，亚马逊已宣布在麦迪逊县投资100亿美元建设其首个数据中心园区，并于2025年1
 
 ## 正文
 
-香港联交所最新资料显示，6月8日，Barclays PLC增持埃斯顿（02715）315.12万股，每股作价19.1701港元，总金额约为6040.88万港元。
+亚马逊公司宣布，将把在密西西比州的计划投资总额提升至250亿美元，并预计在该州所有数据中心运营中创造2000个高技能就业岗位。
 
-增持后最新持股数目为509万股，最新持股比例为5.26%。
+追加投资与设施扩建 亚马逊的最新扩张计划包括在麦迪逊县追加110亿美元投资，以及在欣兹县投资10亿美元，用于将当地一处前德尔福制造厂改造成一个先进的数据中心设施。
 
-责任编辑：卢昱君
+在此之前，亚马逊已宣布在麦迪逊县投资100亿美元建设其首个数据中心园区，并于2025年11月宣布在沃伦县投资30亿美元建设一个新园区。
+
+就业岗位与社区影响 密西西比州州长泰特·里夫斯在周四的新闻发布会上表示，这些项目将创造“2000个新工作岗位”，并称“密西西比州不仅仅是在吸引未来产业，我们正在建设它们”。
+
+此前宣布的麦迪逊县项目已预计创造1200个岗位，最新公告在此基础上增加了约800个新岗位。
+
+能源与基础设施承诺 亚马逊全球公共政策及法律事务主管大卫·扎波尔斯基表示，亚马逊正在为电网带来新的能源，并承担全部能源费用。
+
+AWS经济发展总监罗杰·韦纳在活动中介绍了数据中心对当地资源的承诺： 在克林顿市（欣兹县）的数据中心将完全不使用水 在里奇兰市（麦迪逊县）的数据中心，一年中约有30天（约9%的时间）会使用水，其余时间将使用回收水 Entergy Mississippi总裁海利·费萨克利表示，亚马逊已承诺支付与电力相关的所有增量成本，包括变电站和输电升级，这部分额外收入将有助于为客户降低系统故障并节省约20亿美元。
+
+全球投资背景 亚马逊在2月财报中表示，计划在2026年投入约2000亿美元用于集团范围内的资本支出，主要用于AWS和AI基础设施的扩张。
 
 ## 相关推荐
 
-- 2026-06-30 08:14 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-30 08:28 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
-- 2026-06-30 08:23 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-30 08:28 - [追梦拒绝2770万美元球员选项](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-30 08:40 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
-- 2026-06-30 08:34 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-30 08:18 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
-- 2026-06-30 08:14 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-30 08:30 - [泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
-- 2026-06-30 08:30 - [郑钦文温网一轮游](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-30 08:16 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-30 08:31 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-30 08:40 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-30 08:39 - [媒体：手机测评该挤挤水分了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-30 08:46 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-30 08:45 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
+- 2026-06-30 08:30 - [世界杯欧洲队7战南美仅1胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-30 08:18 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-30 08:26 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-30 08:24 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
+- 2026-06-30 08:18 - [三星投资计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-30 08:46 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:28 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/645239545388.shtml)
-- 2026-06-30 08:40 - [德国进球被吹](http://www.share.kurohicncr.top/Article/details/36595618097.shtml)
-- 2026-06-30 08:38 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.kurohicncr.top/Article/details/6384302.shtml)
-- 2026-06-30 08:17 - [男子身高一米八二仍做断骨增高](http://www.share.kurohicncr.top/Article/details/049841219.shtml)
-- 2026-06-30 08:41 - [周冬雨多次说演不了话剧文城](http://www.share.minike.top/Article/details/06517141605.shtml)
-- 2026-06-30 08:32 - [“柠檬茶能换怀表？”](http://www.blog.kurohicncr.top/Article/details/68236005.shtml)
-- 2026-06-30 08:14 - [男子在京东买到“同仁堂”假药](http://www.share.minike.top/Article/details/06859673.shtml)
-- 2026-06-30 08:25 - [有酒店推行24小时退房制](http://www.blog.minike.top/Article/details/07058.shtml)
-- 2026-06-30 08:30 - [现在叛逆期的孩子最怕的是什么？](https://www.blog.kurohicncr.top/Article/details/3740093412.shtml)
-- 2026-06-30 08:31 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/50124058183.shtml)
-- 2026-06-30 08:28 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/6272300415.shtml)
-- 2026-06-30 08:30 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/29862214.shtml)
-- 2026-06-30 08:23 - [德国巴拉圭加时](https://www.share.minike.top/Article/details/01554043.shtml)
-- 2026-06-30 08:29 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/11490704765.shtml)
-- 2026-06-30 08:40 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/68976821193.shtml)
+- 2026-06-30 08:19 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/20246.shtml)
+- 2026-06-30 08:40 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/016654.shtml)
+- 2026-06-30 08:22 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/365769745.shtml)
+- 2026-06-30 08:31 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/745575.shtml)
+- 2026-06-30 08:44 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/10768229.shtml)
+- 2026-06-30 08:25 - [郑钦文温网首轮出局](https://www.share.minike.top/Article/details/25234676.shtml)
+- 2026-06-30 08:42 - [杨紫获白玉兰视后为何争议难平](https://www.share.minike.top/Article/details/66253234.shtml)
+- 2026-06-30 08:22 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/02301806943.shtml)
+- 2026-06-30 08:35 - [【涤墨作战7人870】望：我从地狱杀回来了！](http://www.share.kurohicncr.top/Article/details/15237084.shtml)
+- 2026-06-30 08:47 - [AI手机进入Agent时代](https://www.share.minike.top/Article/details/5883006.shtml)
+- 2026-06-30 08:42 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/110693.shtml)
+- 2026-06-30 08:27 - [iPhone18e曝光](http://www.blog.kurohicncr.top/Article/details/60875.shtml)
+- 2026-06-30 08:25 - [千香](http://www.share.kurohicncr.top/Article/details/1751104.shtml)
+- 2026-06-30 08:29 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](http://www.share.minike.top/Article/details/423945.shtml)
+- 2026-06-30 08:34 - [德国4比5巴拉圭](http://www.blog.kurohicncr.top/Article/details/2841861.shtml)

@@ -1,58 +1,58 @@
-# 迎接2026 FIFA世界杯：贝克汉姆见证联想AI创新体验落地中国
+# 开行三周年！中老铁路国际旅客列车发送跨境旅客超80万人次
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！北京时间6月12日凌晨，2026年FIFA世界杯在墨西哥城阿兹特克球场正式开幕。作为历史上规模最大的一届世界杯，本届赛事将迎来48支球队、104场比赛，并覆盖全球数十亿观众，其中也包括数以亿计的中国球迷。与此同时，人工智能正在深度融入赛事运营、球队备战、比赛呈现与球迷互动，让世界杯成为全球最具代表性的AI应
+截至4月12日，中老铁路国际旅客列车开行三周年，累计开行3190余列，发送来自120余个国家和地区的跨境旅客超80万人次，运输安全平稳有序，为促进中老两国人员往来、经贸合作与人文交流注入了强劲动力。 精心组织跨境运输，旅客发送量持续增长。中老铁路国际旅客列车自2023年4月13日开通以来，凭借安全、高效、便捷的运输服务，迅速成为旅客跨境出行的首选。为适应旅客跨境出行需求，铁路部
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+截至4月12日，中老铁路国际旅客列车开行三周年，累计开行3190余列，发送来自120余个国家和地区的跨境旅客超80万人次，运输安全平稳有序，为促进中老两国人员往来、经贸合作与人文交流注入了强劲动力。
 
-北京时间6月12日凌晨，2026年FIFA世界杯在墨西哥城阿兹特克球场正式开幕。
+精心组织跨境运输，旅客发送量持续增长。
 
-作为历史上规模最大的一届世界杯，本届赛事将迎来48支球队、104场比赛，并覆盖全球数十亿观众，其中也包括数以亿计的中国球迷。
+中老铁路国际旅客列车自2023年4月13日开通以来，凭借安全、高效、便捷的运输服务，迅速成为旅客跨境出行的首选。
 
-与此同时，人工智能正在深度融入赛事运营、球队备战、比赛呈现与球迷互动，让世界杯成为全球最具代表性的AI应用场景之一。
+为适应旅客跨境出行需求，铁路部门精准施策，动态优化列车开行方案，2024年4月13日起逢周末开行西双版纳至琅勃拉邦国际旅客列车，2025年两次扩大其开行范围，将运行区间延伸至昆明至万象，成为第二对昆明至万象国际旅客列车。
 
-为与中国球迷共同迎接这场足球盛会，北京时间6月11日晚，2026 FIFA世界杯联想嘉年华在北京举办。
+目前，昆明与万象间每日开行国际旅客列车4列，每趟列车的跨境旅客席位从开通初期的250个增至420个。
 
-联想集团全球代言人、国际足球传奇巨星大卫·贝克汉姆亲临现场，与中国社会科学院大学教授、国家数据专家咨询委员会主任、国务院原副秘书长江小涓；联想集团高级副总裁、首席战略官和首席市场官乔健等嘉宾共同见证AI与足球融合带来的全新体验。
+昆明南至万象间列车运行时间压缩至9小时36分，磨憨铁路口岸通关时间压缩至50分钟左右，为旅客跨境旅游、求学、经商提供了极大便利。
 
-“AI与体育高度适配，技术正在全方位改变参赛与观赛体验，所能带来的价值是非常明显的。
+今年一季度，国际旅客列车发送跨境旅客11.2万人次，同比增长32.4%，日均跨境旅客发送量较2023年增长三倍。
 
-”江小涓现场表示，“希望诸如联想这样具备技术创新能力的企业，能够将服务世界杯顶级赛事所积累的技术能力，进一步应用到中国足球和体育事业的发展中来。
+服务品质持续优化，旅客体验更加美好。
 
 ## 相关推荐
 
-- 2026-06-30 08:29 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-30 08:13 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-30 08:18 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-30 08:21 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-30 08:17 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-30 08:29 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-30 08:33 - [王濛回复黄灿灿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
-- 2026-06-30 08:28 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-30 08:39 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-30 08:24 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-30 08:37 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
-- 2026-06-30 08:14 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-30 08:42 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-30 08:22 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-30 08:32 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-30 08:43 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-30 08:35 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-30 08:45 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-30 08:36 - [张月收到黄灿灿辣货两眼发光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-30 08:25 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-30 08:31 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-30 08:38 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-30 08:38 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-30 08:39 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:32 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/78656791.shtml)
-- 2026-06-30 08:24 - [【大鸣王潮1566】真拿你没办法](https://www.blog.kurohicncr.top/Article/details/789515889.shtml)
-- 2026-06-30 08:20 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.kurohicncr.top/Article/details/67160330.shtml)
-- 2026-06-30 08:17 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/535188651197.shtml)
-- 2026-06-30 08:18 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/90274.shtml)
-- 2026-06-30 08:35 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/657363.shtml)
-- 2026-06-30 08:29 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](http://www.share.kurohicncr.top/Article/details/74196.shtml)
-- 2026-06-30 08:17 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/56502597.shtml)
-- 2026-06-30 08:26 - [巴西醒醒 这是淘汰赛](http://www.share.kurohicncr.top/Article/details/58759.shtml)
-- 2026-06-30 08:33 - [郑钦文温网三连败西尼亚科娃](http://www.blog.minike.top/Article/details/497623.shtml)
-- 2026-06-30 08:16 - [中国新一轮出口管制直指日本命脉](https://www.blog.minike.top/Article/details/183919618.shtml)
-- 2026-06-30 08:22 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.minike.top/Article/details/3648420750.shtml)
-- 2026-06-30 08:39 - [起风了](http://www.blog.minike.top/Article/details/3984837270.shtml)
-- 2026-06-30 08:16 - [明星大侦探第四季](https://www.share.minike.top/Article/details/3158866391.shtml)
-- 2026-06-30 08:23 - [千与千寻](http://www.blog.minike.top/Article/details/86710197762.shtml)
+- 2026-06-30 08:22 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/26117.shtml)
+- 2026-06-30 08:23 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.kurohicncr.top/Article/details/879892.shtml)
+- 2026-06-30 08:31 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/512759.shtml)
+- 2026-06-30 08:24 - [网红峡谷5人溺亡 有人提醒会下雨](https://www.share.minike.top/Article/details/59828087.shtml)
+- 2026-06-30 08:30 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.kurohicncr.top/Article/details/557215189.shtml)
+- 2026-06-30 08:40 - [世界杯](http://www.share.minike.top/Article/details/23233908840.shtml)
+- 2026-06-30 08:34 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.blog.kurohicncr.top/Article/details/77877666.shtml)
+- 2026-06-30 08:33 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/6964831854.shtml)
+- 2026-06-30 08:27 - [二次元提前预演明日巴西对日本](http://www.share.kurohicncr.top/Article/details/2155893815.shtml)
+- 2026-06-30 08:30 - [媒体：手机测评该挤挤水分了](https://www.share.kurohicncr.top/Article/details/2463996779.shtml)
+- 2026-06-30 08:31 - [点球大战 残酷](http://www.blog.minike.top/Article/details/604975225.shtml)
+- 2026-06-30 08:24 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/8648814111.shtml)
+- 2026-06-30 08:37 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/85053193.shtml)
+- 2026-06-30 08:24 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.kurohicncr.top/Article/details/206087538.shtml)
+- 2026-06-30 08:20 - [马耳他著名拱门坍塌致中国男子身亡](http://www.blog.minike.top/Article/details/93328.shtml)

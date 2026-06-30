@@ -1,56 +1,53 @@
-# 直面新能源车险“两难”痛点，多地出手施策破题！还有哪些关要闯？
+# “吉林一号”高分03D55星出征 遥感卫星家族再扩容
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-来源：中保新知 当前，新能源车险既是推动新能源汽车产业发展、拉动财险行业增长的关键抓手，也是关乎千万车主用车保障的民生议题。 近日，堪称中国“最电动”、新能源汽车渗透率领先的深圳，最新发布《关于促进深圳新能源车险高质量发展若干措施的通知》，推出十项政策举措，从产品创新、数据共享、定价优化到维修降本全方位探索行业新生态，被业内称为“深十条”。继“深十条”后，日前，重庆监管局公布对
+中新网长春4月12日电 (记者 郭佳)长光卫星技术股份有限公司(以下简称“长光卫星”)12日在长春举行“吉林一号”高分03D55星出征仪式。该系列卫星作为公司成熟批产型号之一，目前已累计发射64颗，在轨运行状态稳定。 “吉林一号”高分03D55星是长光卫星自研的高分辨率光学遥感卫星，集成轻量化结构设计、高度集成电子学系统、高分辨率超轻量化相机等创新技术，具备低成本、低功耗、低重
 
 ## 正文
 
-来源：中保新知 当前，新能源车险既是推动新能源汽车产业发展、拉动财险行业增长的关键抓手，也是关乎千万车主用车保障的民生议题。
+中新网长春4月12日电 (记者 郭佳)长光卫星技术股份有限公司(以下简称“长光卫星”)12日在长春举行“吉林一号”高分03D55星出征仪式。
 
-近日，堪称中国“最电动”、新能源汽车渗透率领先的深圳，最新发布《关于促进深圳新能源车险高质量发展若干措施的通知》，推出十项政策举措，从产品创新、数据共享、定价优化到维修降本全方位探索行业新生态，被业内称为“深十条”。
+该系列卫星作为公司成熟批产型号之一，目前已累计发射64颗，在轨运行状态稳定。
 
-继“深十条”后，日前，重庆监管局公布对市政协六届四次会议相关提案的答复中，亦聚焦高赔付风险新能源汽车投保难、承保压力大问题给出相关扶持政策。
+“吉林一号”高分03D55星是长光卫星自研的高分辨率光学遥感卫星，集成轻量化结构设计、高度集成电子学系统、高分辨率超轻量化相机等创新技术，具备低成本、低功耗、低重量、高指标的特点。
 
-实际上，近年围绕新能源车险“车主喊贵、险企叫亏”两难问题的讨论始终不断，尤其在2024年我国新能源商业车险年度保费首次突破千亿元、2025年达到1900亿元后，新能源车险能否顺利转向精细化运营、破解“两难”痛点，已成为这一黄金赛道能否释放长线增长势能的必答题。
+长光卫星表示，该系列卫星有力支撑“吉林一号”卫星工程组网建设，为高清遥感数据获取及优质信息服务保障奠定坚实基础。
 
-同时需要看到，新能源车险已成为诸多财险公司的必争之地，但当前市场分化加剧，财险“老三家”在2025年保费合计占比超76%，马太效应凸显，承保盈利承压叠加竞争加剧下，中小险企该如何有效突围，分到一杯羹？
+此次出征的“吉林一号”高分03D55星将于近期在酒泉卫星发射中心择期发射。
 
-破题加速 地方政策密集出台 “每3辆汽车就有1辆挂绿牌，目前新能源汽车保有量已超150万辆，新车新能源渗透率超80%。
-
-”这是今年初深圳市生态环境局公布的一组数据。
-
-作为新能源车险渗透率最高、也是全球新能源汽车产业链最完整的城市之一，深圳金融监管局、工信局、交通运输局、商务局近日联合印发“深十条”，从产品创新、定价改革和产业协同三个维度系统施策。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 08:30 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
-- 2026-06-30 08:17 - [王楚钦说配合稍微有些陌生感](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
-- 2026-06-30 08:38 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-30 08:37 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
-- 2026-06-30 08:32 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
-- 2026-06-30 08:24 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-30 08:34 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-30 08:19 - [巴拉圭点球大战淘汰德国进16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
-- 2026-06-30 08:17 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-30 08:39 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-30 08:20 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-30 08:32 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-30 08:42 - [曝老詹对自由市场态度与以往截然不同](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-30 08:32 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-30 08:26 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-30 08:45 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-30 08:42 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-30 08:30 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-30 08:46 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-30 08:24 - [索马里女大使：想和中国一起搞事业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-30 08:44 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:16 - [日本遭读秒绝杀 森保一：我水平不够](https://www.share.kurohicncr.top/Article/details/98600.shtml)
-- 2026-06-30 08:19 - [输球后日本球迷被强行披上巴西国旗](http://www.share.minike.top/Article/details/7989854046.shtml)
-- 2026-06-30 08:41 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/291726.shtml)
-- 2026-06-30 08:38 - [索马里女大使：想和中国一起搞事业](http://www.blog.kurohicncr.top/Article/details/193177.shtml)
-- 2026-06-30 08:15 - [千与千寻](https://www.blog.minike.top/Article/details/803167.shtml)
-- 2026-06-30 08:16 - [男子醉酒溺水获救后同行人拒协助抬人](http://www.share.kurohicncr.top/Article/details/45367415169.shtml)
-- 2026-06-30 08:21 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/0978819.shtml)
-- 2026-06-30 08:16 - [日本淘汰](https://www.blog.kurohicncr.top/Article/details/06458.shtml)
-- 2026-06-30 08:41 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.share.kurohicncr.top/Article/details/48260664.shtml)
-- 2026-06-30 08:21 - [日本队主帅道歉](http://www.share.minike.top/Article/details/25151926748.shtml)
-- 2026-06-30 08:23 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/4687585418.shtml)
-- 2026-06-30 08:41 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/316565829.shtml)
-- 2026-06-30 08:15 - [日本进球](https://www.share.minike.top/Article/details/24353.shtml)
-- 2026-06-30 08:26 - [王濛回复黄灿灿](https://www.share.minike.top/Article/details/96943531.shtml)
-- 2026-06-30 08:34 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/037203942343.shtml)
+- 2026-06-30 08:29 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/8433589700.shtml)
+- 2026-06-30 08:25 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/800770874349.shtml)
+- 2026-06-30 08:47 - [王曼昱被突如其来的话筒逗笑了](http://www.blog.minike.top/Article/details/4636148.shtml)
+- 2026-06-30 08:33 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/15076.shtml)
+- 2026-06-30 08:42 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/184719010686.shtml)
+- 2026-06-30 08:47 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/186624962.shtml)
+- 2026-06-30 08:45 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/6461908.shtml)
+- 2026-06-30 08:41 - [MSI应援曲 如果季中成回忆](https://www.share.kurohicncr.top/Article/details/49553839797.shtml)
+- 2026-06-30 08:19 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/64838523.shtml)
+- 2026-06-30 08:45 - [张月收到黄灿灿辣货两眼发光](https://www.blog.kurohicncr.top/Article/details/23099338.shtml)
+- 2026-06-30 08:23 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/011036630182.shtml)
+- 2026-06-30 08:47 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/90863127055.shtml)
+- 2026-06-30 08:39 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.blog.minike.top/Article/details/063795666625.shtml)
+- 2026-06-30 08:18 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/5929893077.shtml)
+- 2026-06-30 08:22 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/975505012240.shtml)

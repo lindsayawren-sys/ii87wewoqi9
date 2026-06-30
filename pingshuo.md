@@ -1,59 +1,60 @@
-# 东兴海关二桥旅检大厅重点查验区玻璃隔断采购竞争性协商公告
+# 晋商银行：容常青获批担任董事及副董事长
 
-> 更新时间：2026-06-30 08:42:02 UTC+8
+> 更新时间：2026-06-30 08:48:03 UTC+8
 
 ## 摘要
 
-中华人民共和国东兴海关委托广西桂水工程咨询有限公司，现对东兴海关二桥旅检大厅重点查验区玻璃隔断采购进行竞争性协商采购，该项目为非政府采购项目，欢迎符合条件的供应商前来参加协商活动，现将有关事项通知如下：一、采购项目名称：东兴海关二桥旅检大厅重点查验区玻璃隔断采购 二、采购项目编号：GSZB-FCG-2026-07 三、采购项目的名称、数量、简要规格描述或项目基本概况介绍： 东兴
+4月10日金融一线消息，晋商银行今日发布公告称，该行已于近日收到《山西监管局关于容常青晋商银行股份有限公司董事任职资格的批复》（晋金管复\[2026\]36号），容常青担任董事及董事会副董事长的任职资格已获山西监管局核准。容常青担任非执行董事、董事会副董事长及董事会审计委员会成员的任期自2026年4月8日起生效，直至第七届董事会任期（自2025年12月19日起三年）届满之日止。 公
 
 ## 正文
 
-中华人民共和国东兴海关委托广西桂水工程咨询有限公司，现对东兴海关二桥旅检大厅重点查验区玻璃隔断采购进行竞争性协商采购，该项目为非政府采购项目，欢迎符合条件的供应商前来参加协商活动，现将有关事项通知如下：一、采购项目名称：东兴海关二桥旅检大厅重点查验区玻璃隔断采购 二、采购项目编号：GSZB-FCG-2026-07 三、采购项目的名称、数量、简要规格描述或项目基本概况介绍： 东兴海关二桥旅检大厅重点查验区玻璃隔断采购一批。
+4月10日金融一线消息，晋商银行今日发布公告称，该行已于近日收到《山西监管局关于容常青晋商银行股份有限公司董事任职资格的批复》（晋金管复\[2026\]36号），容常青担任董事及董事会副董事长的任职资格已获山西监管局核准。
 
-如需进一步了解详细内容，详见竞争性协商采购文件。
+容常青担任非执行董事、董事会副董事长及董事会审计委员会成员的任期自2026年4月8日起生效，直至第七届董事会任期（自2025年12月19日起三年）届满之日止。
 
-四、采购预算金额(人民币)：146193.05元 五、协商供应商资格要求： 1.符合中华人民共和国法律法规要求，具有经营本次采购货物或服务能力的企事业单位； 2.本项目的特定资格要求：无。
+公开资料显示，容常青，男，1970年1月生，管理学硕士研究生学历。
 
-3.本项目不接受联合体协商； 4.本项目不接受未购买本竞争性协商采购文件的供应商参与协商。
+1991年获武汉大学经济学学士学位，2002年获中南财经政法大学管理学硕士学位，2005年评定为高级审计师，2009年取得企业法律顾问资格。
 
-六、竞争性协商采购文件的获取： 1.凡有意参加协商者，请于2026年6月11日至2026年6月18日(法定公休日、法定节假日除外)，每日上午9时至12时，下午15时至17时30分(北京时间，下同)，由法定代表人或委托代理人携带本人身份证原件和复印件(委托代理人须携带法定代表人授权书原件)、主体资格证明(如营业执照或事业单位法人证书)副本复印件获取，以上复印件均须加盖单位公章。
+容常青于1991年起任职于审计署武汉特派办，后曾在京东方科技集团股份有限公司移动数码事业部、北京荣泰恒嘉房地产开发有限公司及北京万东医疗装备股份有限公司担任财务、审计及管理职务。
 
-地址：广西桂水工程咨询有限公司(南宁市青秀区建政路12号商业综合楼A区五楼)。
+2004年6月至2018年历任华能资本服务有限公司审计监察部主管及副处长、总经理工作部副处长及副经理、风险控制部经理及总法律顾问。
 
-2.采购文件每套售价300元，售后不退。
+他于2018年9月起任晋商银行执行董事，同年12月起出任副行长，负责法律合规部、零售银行部、个人信贷资产部、信用卡业务部、资产管理部及小企业金融部。
 
-七、协商保证金(人民币)：人民币贰仟元整 (¥2000.00)(须一次性足额交纳)； 协商供应商应于响应文件递交截止时间前从供应商账户将协商保证金以汇票、电汇、转账和网银等非现金形式交至以下账户并确保到账。
+2020年11月因工作调动辞任后，于2021年1月被永诚财产保险股份有限公司聘任为公司总裁，但其任职资格并未获批。
 
 ## 相关推荐
 
-- 2026-06-30 08:28 - [杨紫肖战余生请多指教拍立得](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-30 08:24 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-30 08:20 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-30 08:30 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
-- 2026-06-30 08:40 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
-- 2026-06-30 08:18 - [点球大战 残酷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-30 08:29 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
-- 2026-06-30 08:34 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-30 08:17 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-30 08:12 - [马耳他著名拱门坍塌致一中国男子身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
-- 2026-06-30 08:13 - [德国队连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-30 08:25 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-30 08:18 - [为什么会有「念旧」的心理？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-30 08:27 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-30 08:27 - [为什么会有「念旧」的心理？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-30 08:28 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-30 08:30 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-30 08:37 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-30 08:31 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-30 08:45 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-30 08:22 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-30 08:40 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-30 08:29 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-30 08:27 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-30 08:28 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
+- 2026-06-30 08:43 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-30 08:37 - [杨紫肖战余生请多指教拍立得](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:15 - [董卿父亲在报纸上发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/780817.shtml)
-- 2026-06-30 08:38 - [郑钦文温网一轮游](http://www.blog.kurohicncr.top/Article/details/7023720.shtml)
-- 2026-06-30 08:23 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/9815423019.shtml)
-- 2026-06-30 08:31 - [《共患难》](https://www.blog.minike.top/Article/details/533842123766.shtml)
-- 2026-06-30 08:36 - [曝老詹对自由市场态度与以往截然不同](http://www.share.minike.top/Article/details/7145363340.shtml)
-- 2026-06-30 08:25 - [MSI应援曲 如果季中成回忆](http://www.blog.minike.top/Article/details/358423695.shtml)
-- 2026-06-30 08:19 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/526201793585.shtml)
-- 2026-06-30 08:32 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/99277.shtml)
-- 2026-06-30 08:26 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/68928.shtml)
-- 2026-06-30 08:32 - [诺伊尔尽力了](https://www.blog.minike.top/Article/details/3802917884.shtml)
-- 2026-06-30 08:13 - [卡塞米罗头球破门](http://www.blog.kurohicncr.top/Article/details/8037349.shtml)
-- 2026-06-30 08:24 - [有酒店推行24小时退房制](http://www.blog.minike.top/Article/details/6313639.shtml)
-- 2026-06-30 08:18 - [【涤墨作战7人870】望：我从地狱杀回来了！](http://www.share.minike.top/Article/details/79453678.shtml)
-- 2026-06-30 08:34 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/885012820665.shtml)
-- 2026-06-30 08:14 - [世界杯：德国vs巴拉圭](https://www.blog.kurohicncr.top/Article/details/994454.shtml)
+- 2026-06-30 08:28 - [德国爆冷点球大战不敌巴拉圭](https://www.share.minike.top/Article/details/04076296670.shtml)
+- 2026-06-30 08:46 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.minike.top/Article/details/72625.shtml)
+- 2026-06-30 08:22 - [巴西绝杀](https://www.blog.minike.top/Article/details/12031860597.shtml)
+- 2026-06-30 08:46 - [张月收到黄灿灿辣货两眼发光](https://www.blog.kurohicncr.top/Article/details/7657607.shtml)
+- 2026-06-30 08:20 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/0588652.shtml)
+- 2026-06-30 08:37 - [锐评T1战胜KC](https://www.share.minike.top/Article/details/0818889861.shtml)
+- 2026-06-30 08:24 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/22330015.shtml)
+- 2026-06-30 08:29 - [女子清吧被陌生人投放伟哥](https://www.blog.minike.top/Article/details/4324997.shtml)
+- 2026-06-30 08:39 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/622074168.shtml)
+- 2026-06-30 08:42 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/258403.shtml)
+- 2026-06-30 08:25 - [日本淘汰](https://www.blog.minike.top/Article/details/908737.shtml)
+- 2026-06-30 08:32 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.minike.top/Article/details/7038539444.shtml)
+- 2026-06-30 08:35 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/588438763.shtml)
+- 2026-06-30 08:28 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/873192552635.shtml)
+- 2026-06-30 08:20 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/51844211916.shtml)
