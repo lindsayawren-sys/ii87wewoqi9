@@ -1,48 +1,61 @@
-# 黄金股早盘涨幅居前 紫金黄金国际涨逾13%中国黄金国际涨逾7%
+# 湖北推出518条文旅惠民措施
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-黄金股早盘涨幅居前，截至发稿，紫金黄金国际（02259）上涨13.07%，报119.40港元；中国黄金国际（02099）上涨6.72%，报160.40港元；招金矿业（01818）上涨6.69%，报21.39港元；赤峰黄金（06693）上涨6.07%，报29.36港元；紫金矿业（02899）上涨5.80%，报33.22港元。责任编辑：卢昱君
+中新网武汉5月19日电 (记者 梁婷)由湖北省文化和旅游厅、鄂州市政府共同主办的2026年“5·19中国旅游日”湖北分会场活动19日在鄂州启动。湖北发布系列惠民福利，向广大游客发出畅游荆楚、乐享山水的诚挚邀约。 2026年“5·19中国旅游日”以“乐享品质旅游，共赴美好山河”为主题，湖北聚焦文旅深度融合，集中展示荆楚文旅新成果、新场景、新体验。 当前，湖北正全力建设世界知名文化
 
 ## 正文
 
-黄金股早盘涨幅居前，截至发稿，紫金黄金国际（02259）上涨13.07%，报119.40港元；中国黄金国际（02099）上涨6.72%，报160.40港元；招金矿业（01818）上涨6.69%，报21.39港元；赤峰黄金（06693）上涨6.07%，报29.36港元；紫金矿业（02899）上涨5.80%，报33.22港元。
+中新网武汉5月19日电 (记者 梁婷)由湖北省文化和旅游厅、鄂州市政府共同主办的2026年“5·19中国旅游日”湖北分会场活动19日在鄂州启动。
 
-责任编辑：卢昱君
+湖北发布系列惠民福利，向广大游客发出畅游荆楚、乐享山水的诚挚邀约。
+
+2026年“5·19中国旅游日”以“乐享品质旅游，共赴美好山河”为主题，湖北聚焦文旅深度融合，集中展示荆楚文旅新成果、新场景、新体验。
+
+当前，湖北正全力建设世界知名文化旅游目的地，推进文旅深度融合，持续激活全域资源、促进服务升级，不断丰富文旅产品供给、创新文旅业态模式、优化文旅服务体验。
+
+据悉，“5·19中国旅游日”主题月期间，湖北文旅推出的惠民举措包含三大类共518条(项)福利。
+
+全省4个市州发放文旅消费券，16家企业上线线上优惠活动，联动金融机构赋能文旅消费；200余家文旅企业推出229项优惠，包括82家景区当日免门票、99家景区实行半价或套票折扣、48家酒店民宿及餐饮商户推出满减、抽奖等福利；170余家文博及公共文化场馆推出261项惠民服务，举办800余场公益展演、非遗体验活动，同步配套景区便民、公交利民、文旅志愿服务等暖心举措。
+
+活动现场，湖北省旅游协会发布“票游湖北 楚超有礼”惠民福利，覆盖景区畅玩、文旅趣玩、酒店优享等全场景，以实惠权益助力大众畅游荆楚。
+
+来自旅行社、酒店、导游等文旅行业的5位代表向全省文旅企业和从业人员发出倡议，倡导诚信经营、优质服务、文明安全旅游。
 
 ## 相关推荐
 
-- 2026-06-30 07:49 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
-- 2026-06-30 08:05 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-30 08:10 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-30 07:44 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-30 07:49 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
-- 2026-06-30 08:08 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-30 08:07 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-30 08:10 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-30 07:42 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-30 07:42 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-30 07:52 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-30 08:05 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
-- 2026-06-30 07:53 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
-- 2026-06-30 08:11 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-30 08:15 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-30 08:00 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-30 08:05 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-30 08:02 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-30 08:04 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
+- 2026-06-30 08:08 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-30 07:59 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-30 08:13 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-30 07:48 - [日本球员说被绝杀非常不甘心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-30 08:10 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-30 08:12 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-30 07:50 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-30 07:52 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-30 07:56 - [王楚钦说配合稍微有些陌生感](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-30 07:53 - [德国巴拉圭进入点球大战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:07 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/669982064710.shtml)
-- 2026-06-30 07:47 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/26864436.shtml)
-- 2026-06-30 07:50 - [巴拉圭率先破门](https://www.share.kurohicncr.top/Article/details/963926941.shtml)
-- 2026-06-30 07:55 - [巴西绝杀](http://www.share.kurohicncr.top/Article/details/99534362.shtml)
-- 2026-06-30 08:10 - [开电动汽车真的很省钱吗？](https://www.share.minike.top/Article/details/5506328.shtml)
-- 2026-06-30 08:11 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/881361196.shtml)
-- 2026-06-30 07:53 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/852858929.shtml)
-- 2026-06-30 07:49 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/191975204134.shtml)
-- 2026-06-30 08:11 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/4097366598.shtml)
-- 2026-06-30 08:03 - [王濛回复黄灿灿](http://www.share.minike.top/Article/details/8258392.shtml)
-- 2026-06-30 07:55 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/8752720490.shtml)
-- 2026-06-30 07:46 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/968017981811.shtml)
-- 2026-06-30 07:58 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/12096956.shtml)
-- 2026-06-30 07:46 - [卢卡申科发布解放军仪仗队视频](https://www.share.minike.top/Article/details/418841287233.shtml)
-- 2026-06-30 08:11 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://www.share.minike.top/Article/details/66878.shtml)
+- 2026-06-30 07:50 - [德国爆冷点球大战不敌巴拉圭](https://www.blog.minike.top/Article/details/6684362.shtml)
+- 2026-06-30 07:52 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.minike.top/Article/details/320716.shtml)
+- 2026-06-30 08:09 - [毒液2](https://www.blog.kurohicncr.top/Article/details/603166879643.shtml)
+- 2026-06-30 07:54 - [为什么会有「念旧」的心理？](http://www.share.kurohicncr.top/Article/details/07403364.shtml)
+- 2026-06-30 08:01 - [赛博朋克边缘行者2预告片](http://www.share.kurohicncr.top/Article/details/636063013.shtml)
+- 2026-06-30 07:50 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/727662.shtml)
+- 2026-06-30 07:55 - [萨内 看笑了](https://www.blog.minike.top/Article/details/00894.shtml)
+- 2026-06-30 07:52 - [詹姆斯下赛季去哪](https://www.blog.minike.top/Article/details/0359198898.shtml)
+- 2026-06-30 08:05 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/95296511.shtml)
+- 2026-06-30 08:10 - [张帅晋级温网次轮](https://www.share.kurohicncr.top/Article/details/11192872630.shtml)
+- 2026-06-30 07:56 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/04737443231.shtml)
+- 2026-06-30 08:07 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/722591736318.shtml)
+- 2026-06-30 08:06 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/326221425.shtml)
+- 2026-06-30 07:54 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/19206728000.shtml)
+- 2026-06-30 07:59 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/789730700.shtml)

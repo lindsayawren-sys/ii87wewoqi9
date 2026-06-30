@@ -1,61 +1,60 @@
-# （投资中国）派安盈全球高级副总裁：中国市场是全球产品创新的重要战略支点
+# 专访巴巴耶夫：俄中关系是相邻国家友好关系的典范
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-中新社上海6月15日电 (高志苗)Payoneer派安盈全球高级副总裁、大中华区总裁承丹丹近日线上接受中新社采访时表示，中国市场不仅是公司全球营收的重要贡献者，更是全球产品创新与服务升级的重要战略支点。 作为总部位于美国的全球金融科技平台，派安盈2013年正式进入中国市场，并于2025年完成对中国持牌支付机构的收购。最新披露的财务报告显示，派安盈大中华区2026年第一季度营收规
+中新社北京5月19日电 (记者 官逸伦)俄罗斯科学院中国与现代亚洲研究所所长巴巴耶夫19日接受中新社记者书面专访时表示，俄中关系对当今世界非常重要，是相邻国家友好关系的典范。 应中国国家主席习近平邀请，俄罗斯总统普京于5月19日至20日对中国进行国事访问。 巴巴耶夫表示，俄中两国为推动建立多极世界贡献重要力量。普京此次访华具有重要意义，有利于两国元首在新的国际形势下协调努力。他
 
 ## 正文
 
-中新社上海6月15日电 (高志苗)Payoneer派安盈全球高级副总裁、大中华区总裁承丹丹近日线上接受中新社采访时表示，中国市场不仅是公司全球营收的重要贡献者，更是全球产品创新与服务升级的重要战略支点。
+中新社北京5月19日电 (记者 官逸伦)俄罗斯科学院中国与现代亚洲研究所所长巴巴耶夫19日接受中新社记者书面专访时表示，俄中关系对当今世界非常重要，是相邻国家友好关系的典范。
 
-作为总部位于美国的全球金融科技平台，派安盈2013年正式进入中国市场，并于2025年完成对中国持牌支付机构的收购。
+应中国国家主席习近平邀请，俄罗斯总统普京于5月19日至20日对中国进行国事访问。
 
-最新披露的财务报告显示，派安盈大中华区2026年第一季度营收规模继续领先全球各区域市场，达8700万美元，同比增长2%。
+巴巴耶夫表示，俄中两国为推动建立多极世界贡献重要力量。
 
-承丹丹表示，中国市场的重要性不仅体现在营收规模上，更在于其服务数百万全球跨境中小微企业，帮助它们发掘全球市场机遇。
+普京此次访华具有重要意义，有利于两国元首在新的国际形势下协调努力。
 
-“当前中国企业出海正从‘规模扩张’转向‘价值深耕’，从‘走出去’迈向‘走进去’直至‘扎下根’。
+他说，两国在人类未来和完善全球治理体系方面拥有共同愿景，将继续携手前行，推动构建更加公正合理的国际秩序。
 
-”她认为，这些企业对跨境支付的要求已发生深刻变化，推动着跨境金融不断向前发展。
+今年是“中俄教育年”启动之年。
 
-承丹丹说，中国中小企业在跨境支付方面呈现三大特点：一是对资金效率要求高，关注资金能否快速、安全流转；二是多币种和全球资金管理需求复杂，需要用一个账户统一管理全球收付款；三是对本地化支付与合规能力要求提升，需满足不同国家监管、支付及税务要求，让资金“安全合规地使用和落地”。
+巴巴耶夫表示，教育对于增进两国互相理解具有重要意义。
 
-近年来中国持续优化外资营商环境，尤其是在金融开放、数字经济以及跨境贸易等领域，释放出更加稳定、透明和开放的政策信号。
+通过研究彼此的经济、法律、语言、历史、文化等内容，两国关系能够更加紧密，使俄中友谊得以持久并不断蓬勃发展。
 
 ## 相关推荐
 
-- 2026-06-30 08:03 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
-- 2026-06-30 07:42 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
-- 2026-06-30 07:59 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-30 08:07 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-30 07:46 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
-- 2026-06-30 08:09 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-30 07:46 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
-- 2026-06-30 08:08 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-30 08:05 - [曝老詹对自由市场态度与以往截然不同](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-30 08:03 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
-- 2026-06-30 07:56 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-30 07:58 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-30 08:04 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
-- 2026-06-30 07:45 - [德国爆冷点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-30 08:00 - [勇士续约波尔津吉斯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-30 07:58 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-30 08:09 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-30 08:11 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-30 07:50 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-30 08:04 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-30 08:00 - [巴西2比1日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-30 08:01 - [德国爆冷点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-30 07:59 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-30 08:03 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-30 07:56 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-30 08:16 - [巴拉圭进球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-30 07:51 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-30 08:07 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-30 08:01 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:08 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/7708765.shtml)
-- 2026-06-30 08:01 - [巴拉圭先进球了](http://www.blog.minike.top/Article/details/229223853.shtml)
-- 2026-06-30 08:03 - [全新问界M9现身美国街头](http://www.blog.minike.top/Article/details/8761846.shtml)
-- 2026-06-30 08:04 - [安切洛蒂 换人](https://www.share.kurohicncr.top/Article/details/45960447.shtml)
-- 2026-06-30 07:51 - [郑钦文温网三连败西尼亚科娃](http://www.share.minike.top/Article/details/21312696.shtml)
-- 2026-06-30 07:51 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.share.minike.top/Article/details/64276.shtml)
-- 2026-06-30 08:04 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/276969624974.shtml)
-- 2026-06-30 07:53 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/17893.shtml)
-- 2026-06-30 07:42 - [小娘惹](http://www.share.minike.top/Article/details/8366402994.shtml)
-- 2026-06-30 07:54 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.minike.top/Article/details/4229112.shtml)
-- 2026-06-30 07:52 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.kurohicncr.top/Article/details/7191911578.shtml)
-- 2026-06-30 07:53 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/68785825.shtml)
-- 2026-06-30 07:52 - [德国队连续三届世界杯无缘16强](http://www.blog.minike.top/Article/details/57207483.shtml)
-- 2026-06-30 07:54 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/05295383.shtml)
-- 2026-06-30 08:01 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/355534609.shtml)
+- 2026-06-30 08:00 - [卢卡申科发布解放军仪仗队视频](https://www.share.kurohicncr.top/Article/details/26774.shtml)
+- 2026-06-30 07:53 - [安切洛蒂 换人](http://www.share.minike.top/Article/details/336735669.shtml)
+- 2026-06-30 08:15 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.minike.top/Article/details/538459913896.shtml)
+- 2026-06-30 07:54 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/306276941.shtml)
+- 2026-06-30 08:09 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/385662556.shtml)
+- 2026-06-30 08:04 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/36323.shtml)
+- 2026-06-30 07:53 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/5300826381.shtml)
+- 2026-06-30 07:57 - [孙兴慜发长文致歉](http://www.share.kurohicncr.top/Article/details/931106.shtml)
+- 2026-06-30 07:57 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/010643.shtml)
+- 2026-06-30 08:17 - [大蒜晒外面被路过女子连盆端走](http://www.blog.minike.top/Article/details/066015448280.shtml)
+- 2026-06-30 08:09 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/921733164441.shtml)
+- 2026-06-30 07:53 - [巴西2-1绝杀日本](http://www.blog.minike.top/Article/details/420258081909.shtml)
+- 2026-06-30 07:58 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/82676420031.shtml)
+- 2026-06-30 07:59 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.minike.top/Article/details/913559760.shtml)
+- 2026-06-30 07:51 - [日本 高位逼抢](http://www.share.minike.top/Article/details/588924655.shtml)

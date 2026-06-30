@@ -1,49 +1,59 @@
-# 巴基斯坦总理：美伊达成和平协议
+# 银行投科技，市场买账吗？
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-新华社伊斯兰堡6月15日电(记者杨恺)巴基斯坦总理夏巴兹15日在社交媒体发文说，美国与伊朗已达成和平协议。(完)
+来源：看懂经济 如果把银行的科技投入和股价走势这两个变量放在一起来看，会发生什么样的化学反应？ 看懂经济把15家A股上市银行近十年的科技投入、A股股价走势拉到一起，做了一次梳理分析。看看这些年持续投向科技的钱，最后有没有变成资本市场愿意定价的长期能力？ 从数据看，2019年至2025年，样本银行科技投入总额从约1030亿元增长至约1887亿元，七年累计增幅约83%。 更有意思的
 
 ## 正文
 
-新华社伊斯兰堡6月15日电(记者杨恺)巴基斯坦总理夏巴兹15日在社交媒体发文说，美国与伊朗已达成和平协议。
+来源：看懂经济 如果把银行的科技投入和股价走势这两个变量放在一起来看，会发生什么样的化学反应？
 
-(完)
+看懂经济把15家A股上市银行近十年的科技投入、A股股价走势拉到一起，做了一次梳理分析。
+
+看看这些年持续投向科技的钱，最后有没有变成资本市场愿意定价的长期能力？
+
+从数据看，2019年至2025年，样本银行科技投入总额从约1030亿元增长至约1887亿元，七年累计增幅约83%。
+
+更有意思的是，如果用Pearson相关系数做量化测算，国有大行科技投入与股价收益率呈中度正相关，Pearson相关系数为+0.461；股份制银行几乎没有相关性，相关系数为-0.014。
+
+（简单说，就是把各家银行一定周期内的科技投入作为一组变量，把对应年度的股价收益率作为另一组变量，观察两者是否同向变化、同向程度有多强。
+
+相关系数越接近1，说明正相关越强；越接近-1，说明负相关越强；越接近0，则说明线性关系越弱。
+
+） 需要强调的是，相关性不等于因果关系。
 
 ## 相关推荐
 
-- 2026-06-30 08:08 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
-- 2026-06-30 07:59 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-30 08:06 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-30 08:08 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
-- 2026-06-30 07:45 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-30 07:49 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-30 07:48 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
-- 2026-06-30 08:02 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-30 07:49 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-30 08:06 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-30 07:55 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
-- 2026-06-30 07:50 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-30 08:00 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-30 07:53 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-30 07:51 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-30 07:57 - [孙颖莎王楚钦晋级8强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-30 08:08 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-30 08:09 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-30 08:14 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-30 08:16 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-30 08:04 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
+- 2026-06-30 08:16 - [武磊：巴西队赢的并不轻松](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
+- 2026-06-30 08:07 - [德国队连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-30 08:17 - [网友写差评被店家“挂”门口避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-30 08:15 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-30 08:12 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
+- 2026-06-30 07:54 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-30 07:51 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:54 - [青春环游记第三季](https://www.blog.minike.top/Article/details/286765063.shtml)
-- 2026-06-30 07:55 - [F1奥地利站赛后复盘](https://www.share.kurohicncr.top/Article/details/062499.shtml)
-- 2026-06-30 08:06 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/21863.shtml)
-- 2026-06-30 07:51 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/958389.shtml)
-- 2026-06-30 08:00 - [巴西半场0比1日本](http://www.blog.kurohicncr.top/Article/details/077531945756.shtml)
-- 2026-06-30 07:55 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/97964.shtml)
-- 2026-06-30 07:56 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/078852.shtml)
-- 2026-06-30 07:51 - [哈弗茨头球破门](https://www.share.kurohicncr.top/Article/details/10534.shtml)
-- 2026-06-30 07:51 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://www.blog.kurohicncr.top/Article/details/235793200139.shtml)
-- 2026-06-30 08:00 - [天道](http://www.share.minike.top/Article/details/249913.shtml)
-- 2026-06-30 08:08 - [穆祉丞年度人气艺人](http://www.share.kurohicncr.top/Article/details/36995281.shtml)
-- 2026-06-30 07:58 - [德国vs巴拉圭](https://www.blog.minike.top/Article/details/44375.shtml)
-- 2026-06-30 08:04 - [有什么好的高中网课推荐吗？](https://www.blog.minike.top/Article/details/178746490.shtml)
-- 2026-06-30 07:46 - [巴西在进攻三区完成210脚传球](http://www.blog.minike.top/Article/details/63624688.shtml)
-- 2026-06-30 07:59 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/6780596917.shtml)
+- 2026-06-30 08:05 - [又一家县级医院关停门诊输液大厅](http://www.share.minike.top/Article/details/00017.shtml)
+- 2026-06-30 08:05 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.blog.kurohicncr.top/Article/details/175158115489.shtml)
+- 2026-06-30 07:54 - [【大鸣王潮1566】真拿你没办法](http://www.blog.kurohicncr.top/Article/details/2893200.shtml)
+- 2026-06-30 07:54 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/01822.shtml)
+- 2026-06-30 08:00 - [免费试吃发差评被店家挂店门避雷](http://www.blog.kurohicncr.top/Article/details/0168249970.shtml)
+- 2026-06-30 08:09 - [王楚钦说配合稍微有些陌生感](https://www.share.kurohicncr.top/Article/details/9042129747.shtml)
+- 2026-06-30 08:09 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/23504.shtml)
+- 2026-06-30 08:05 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/782522871.shtml)
+- 2026-06-30 08:07 - [人类...完蛋了...](https://www.share.kurohicncr.top/Article/details/7533306.shtml)
+- 2026-06-30 07:55 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/0675058.shtml)
+- 2026-06-30 07:51 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/053003474042.shtml)
+- 2026-06-30 08:03 - [泰山建135公里刀片刺绳隔离网](https://www.share.kurohicncr.top/Article/details/256030.shtml)
+- 2026-06-30 08:16 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/4719289.shtml)
+- 2026-06-30 07:56 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/3550404540.shtml)
+- 2026-06-30 08:00 - [诺伊尔尽力了](http://www.blog.minike.top/Article/details/80918161.shtml)

@@ -1,58 +1,55 @@
-# 光大期货：6月15日矿钢煤焦日报
+# 中方：敦促美方立即停止对古巴的封锁和胁迫施压
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-钢材：螺纹转入累库周期，钢价仍将窄幅震荡 （邱跃成，从业资格号：F3060829；交易咨询资格号：Z0016941） 螺纹方面，本周全国螺纹产量环比回升2.44万吨至214.59万吨，同比增加7.02万吨；社库环比回落0.45万吨至479.16万吨，同比增加103.97万吨；厂库环比增加7.72万吨至181.8万吨，同比减少1.09万吨；螺纹表需环比回落5.85万吨至207.3
+中新网北京5月19日电 (记者 李京泽)中国外交部发言人郭嘉昆19日主持例行记者会。 有记者提问：据报道，18日，古巴国家主席迪亚斯—卡内尔在社交媒体发帖称，古巴面临来自美国这一超级大国的军事侵略威胁，而威胁本身已构成国际犯罪，若落实将引发流血冲突并破坏地区和平。古巴对包括美国在内的任何国家均无侵略意图，但遭受着美方多维侵略，拥有绝对合法的自卫权。同日，美国财政部将古巴情报局9
 
 ## 正文
 
-钢材：螺纹转入累库周期，钢价仍将窄幅震荡 （邱跃成，从业资格号：F3060829；交易咨询资格号：Z0016941） 螺纹方面，本周全国螺纹产量环比回升2.44万吨至214.59万吨，同比增加7.02万吨；社库环比回落0.45万吨至479.16万吨，同比增加103.97万吨；厂库环比增加7.72万吨至181.8万吨，同比减少1.09万吨；螺纹表需环比回落5.85万吨至207.32万吨，同比减少12.66万吨。
+中新网北京5月19日电 (记者 李京泽)中国外交部发言人郭嘉昆19日主持例行记者会。
 
-螺纹产量有所回升，库存由降转增，表需继续下降，供需数据表现偏弱。
+有记者提问：据报道，18日，古巴国家主席迪亚斯—卡内尔在社交媒体发帖称，古巴面临来自美国这一超级大国的军事侵略威胁，而威胁本身已构成国际犯罪，若落实将引发流血冲突并破坏地区和平。
 
-据海关数据，2026年5月中国出口钢材1034.1万吨，较上月增加84.3万吨，环比增长8.9%；1-5月累计出口钢材4455.4万吨，同比下降8.1%。
+古巴对包括美国在内的任何国家均无侵略意图，但遭受着美方多维侵略，拥有绝对合法的自卫权。
 
-钢材出口最近三个月均环比增长，单月出口量再次超过1000万吨，在一定程度上缓解了国内供应压力。
+同日，美国财政部将古巴情报局9名个人列入新一轮制裁名单。
 
-另据央行数据，5月单月新增人民币贷款5200亿元，同比少增1000亿元；其中5月住户部门新增中长期贷款为负571亿元，同比少增1317亿元。
+中方对此有何评论？
 
-信贷数据表现依然较弱，居民贷款需求较为低迷。
+郭嘉昆：中方一贯反对没有国际法依据的非法单边制裁，坚定支持古巴维护国家主权和安全，敦促美方立即停止对古巴的封锁和任何形式的胁迫施压，停止侵犯古巴人民的生存权、发展权。
 
-当前螺纹库存已转入累积通道，叠加表需持续回落，供需矛盾逐步积累。
-
-不过近期焦炭价格持续大涨，铁矿石价格也表现坚挺，钢厂盈利明显收窄，对钢价形成一定底部支撑。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 08:10 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
-- 2026-06-30 07:58 - [男子在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-30 07:57 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-30 07:54 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-30 07:51 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
-- 2026-06-30 07:49 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-30 08:06 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
-- 2026-06-30 07:55 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-30 08:10 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-30 08:05 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-30 08:00 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-30 07:58 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
+- 2026-06-30 08:17 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-30 08:03 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-30 08:01 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-30 07:53 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-30 07:59 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-30 08:14 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-30 08:06 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-30 08:02 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-30 08:06 - [锐评T1战胜KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-30 08:06 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-30 08:07 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:44 - [扫黑风暴](http://www.share.minike.top/Article/details/73222.shtml)
-- 2026-06-30 08:03 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/8129087.shtml)
-- 2026-06-30 08:01 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/96153548.shtml)
-- 2026-06-30 07:50 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/890666387.shtml)
-- 2026-06-30 08:08 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/286465.shtml)
-- 2026-06-30 07:54 - [孙兴慜发长文致歉](https://www.share.kurohicncr.top/Article/details/584250416.shtml)
-- 2026-06-30 07:48 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/95992711.shtml)
-- 2026-06-30 07:48 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/04257179.shtml)
-- 2026-06-30 08:09 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.kurohicncr.top/Article/details/628140.shtml)
-- 2026-06-30 08:05 - [【大鸣王潮1566】真拿你没办法](http://www.share.minike.top/Article/details/97319222.shtml)
-- 2026-06-30 07:55 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.minike.top/Article/details/336137063005.shtml)
-- 2026-06-30 08:01 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/84478.shtml)
-- 2026-06-30 08:08 - [有什么好的高中网课推荐吗？](https://www.share.minike.top/Article/details/833624.shtml)
-- 2026-06-30 07:55 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/7516906178.shtml)
-- 2026-06-30 08:11 - [现在叛逆期的孩子最怕的是什么？](https://www.blog.minike.top/Article/details/3925184301.shtml)
+- 2026-06-30 08:12 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/64871413479.shtml)
+- 2026-06-30 07:58 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/86911.shtml)
+- 2026-06-30 08:03 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/141835.shtml)
+- 2026-06-30 07:50 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/4597755387.shtml)
+- 2026-06-30 07:50 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/0166606810.shtml)
+- 2026-06-30 08:11 - [刘必安等16人非法集资案二审宣判](http://www.share.kurohicncr.top/Article/details/24489053463.shtml)
+- 2026-06-30 07:59 - [沙丘](http://www.share.minike.top/Article/details/55806.shtml)
+- 2026-06-30 08:15 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/9480490.shtml)
+- 2026-06-30 08:02 - [穆祉丞年度人气艺人](https://www.share.minike.top/Article/details/09162870222.shtml)
+- 2026-06-30 07:57 - [青春环游记第三季](http://www.blog.minike.top/Article/details/945584.shtml)
+- 2026-06-30 08:03 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/39144906.shtml)
+- 2026-06-30 07:54 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/22010.shtml)
+- 2026-06-30 08:17 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/305750.shtml)
+- 2026-06-30 08:07 - [董卿父亲在报纸上发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/94173.shtml)
+- 2026-06-30 08:12 - [刘宇宁高情商化解谁站C位](https://www.share.minike.top/Article/details/689844149.shtml)

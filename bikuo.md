@@ -1,60 +1,56 @@
-# 德国总统施泰因迈尔访问印尼
+# 金价短线反弹 关注4500美元关口支撑
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-中新社雅加达6月15日电 (记者 李志全)德国总统施泰因迈尔15日抵达雅加达，对印度尼西亚进行访问。印尼方面表示，此访对印尼具有重要意义，体现了两国良好关系。 印尼总统普拉博沃当天在雅加达独立宫为施泰因迈尔举行欢迎仪式。随后，两国领导人举行双边会晤，并共同会见记者。印尼总统府表示，此访将进一步推动印尼与德国在多领域的合作。 普拉博沃在联合新闻声明中表示，双方讨论了加强经济、投资
+文章来源：新华财经 新华财经北京5月19日电 周一（5月18日），国际金价开盘4531.02美元，最高4585.03美元，最低4480.01美元，收盘报4566.39美元，全天波幅105.02美元，上涨27.00美元美元，涨幅0.59%，日K线呈现带有长下影线的小阳线形态。从整体上来看，金价的4500美元关口暂时失而复得，再次回归4500-4800美元的震荡区间，能否触及区间上
 
 ## 正文
 
-中新社雅加达6月15日电 (记者 李志全)德国总统施泰因迈尔15日抵达雅加达，对印度尼西亚进行访问。
+文章来源：新华财经 新华财经北京5月19日电 周一（5月18日），国际金价开盘4531.02美元，最高4585.03美元，最低4480.01美元，收盘报4566.39美元，全天波幅105.02美元，上涨27.00美元美元，涨幅0.59%，日K线呈现带有长下影线的小阳线形态。
 
-印尼方面表示，此访对印尼具有重要意义，体现了两国良好关系。
+从整体上来看，金价的4500美元关口暂时失而复得，再次回归4500-4800美元的震荡区间，能否触及区间上限，短期需要重点关注4625美元一线阻力。
 
-印尼总统普拉博沃当天在雅加达独立宫为施泰因迈尔举行欢迎仪式。
+基本面上看，美伊谈判依旧存在较大不确定性。
 
-随后，两国领导人举行双边会晤，并共同会见记者。
+而在经济数据层面，周一暂无重磅宏观数据扰动，市场焦点集中在利率与债市定价上。
 
-印尼总统府表示，此访将进一步推动印尼与德国在多领域的合作。
+市场普遍预期美联储维持利率不变，且加息可能性有所上升，这一政策预期仍然对金价构成压制。
 
-普拉博沃在联合新闻声明中表示，双方讨论了加强经济、投资、能源转型、能源安全、教育及劳工等领域合作，并一致同意继续扩大互利共赢的贸易和投资规模。
+但是，摩根大通表示，本月美债收益率大幅上行或已接近峰值，市场对政策前景的定价较机构基准情景更为鹰派。
 
-在具体合作方面，普拉博沃邀请德国扩大对印尼重点领域投资，包括能源转型、资源深加工、汽车及电动车产业和基础设施建设等，并欢迎德国企业参与印尼半导体产业发展以及关键矿产和稀土供应链合作。
+收益率见顶预期也缓解了金价下行压力。
 
-施泰因迈尔称，印尼是东盟地区重要的稳定力量。
+此外，美元指数在逼近100关口受阻回落，为金价回升提供助力。
 
 ## 相关推荐
 
-- 2026-06-30 08:03 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-30 07:46 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-30 08:02 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-30 08:11 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-30 07:55 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-30 08:00 - [孙颖莎王楚钦晋级8强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
-- 2026-06-30 08:03 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-30 07:56 - [巴西绝杀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-30 08:09 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
-- 2026-06-30 08:05 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
-- 2026-06-30 07:55 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
-- 2026-06-30 07:52 - [日本队5进世界杯淘汰赛0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-30 08:08 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
-- 2026-06-30 08:02 - [泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-30 07:54 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
+- 2026-06-30 08:04 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-30 08:01 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
+- 2026-06-30 08:09 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
+- 2026-06-30 07:55 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-30 07:48 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-30 07:52 - [田中碧失误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-30 08:12 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-30 07:53 - [张雪的一句“是我们”引发岛内热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-30 07:52 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:44 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/165574.shtml)
-- 2026-06-30 08:08 - [《贺子珍》](https://www.share.minike.top/Article/details/489923538679.shtml)
-- 2026-06-30 07:48 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/01215892.shtml)
-- 2026-06-30 07:56 - [辛纳vs凯茨玛诺维奇](http://www.share.minike.top/Article/details/02045.shtml)
-- 2026-06-30 07:42 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/312788.shtml)
-- 2026-06-30 08:01 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/83621.shtml)
-- 2026-06-30 07:50 - [全球最火存储ETF纳入兆易创新](https://www.blog.kurohicncr.top/Article/details/03490026.shtml)
-- 2026-06-30 07:53 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/225317341865.shtml)
-- 2026-06-30 07:56 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/49549726042.shtml)
-- 2026-06-30 08:09 - [一生一世](http://www.blog.kurohicncr.top/Article/details/35152643.shtml)
-- 2026-06-30 08:00 - [郑钦文温网一轮游](http://www.share.minike.top/Article/details/566136.shtml)
-- 2026-06-30 08:00 - [周冬雨多次说演不了话剧文城](https://www.share.kurohicncr.top/Article/details/2839297.shtml)
-- 2026-06-30 08:04 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/14227994.shtml)
-- 2026-06-30 07:43 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.kurohicncr.top/Article/details/60206487073.shtml)
-- 2026-06-30 08:01 - [王楚钦说配合稍微有些陌生感](http://www.share.minike.top/Article/details/9101166.shtml)
+- 2026-06-30 07:56 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.minike.top/Article/details/591345709223.shtml)
+- 2026-06-30 08:04 - [世界杯巴拉圭点球淘汰德国](https://www.blog.kurohicncr.top/Article/details/406321400.shtml)
+- 2026-06-30 08:05 - [张雪的一句“是我们”引发岛内热议](http://www.share.minike.top/Article/details/2493696936.shtml)
+- 2026-06-30 08:10 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.share.minike.top/Article/details/962117692230.shtml)
+- 2026-06-30 08:14 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/544058.shtml)
+- 2026-06-30 08:01 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/532161492.shtml)
+- 2026-06-30 08:00 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/1096011156.shtml)
+- 2026-06-30 08:11 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/03346.shtml)
+- 2026-06-30 07:48 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/20730434841.shtml)
+- 2026-06-30 08:05 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/600761520.shtml)
+- 2026-06-30 08:09 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/172498.shtml)
+- 2026-06-30 07:52 - [杨紫获白玉兰视后争议不止](http://www.blog.minike.top/Article/details/490742409.shtml)
+- 2026-06-30 07:51 - [三星投资计划](https://www.share.kurohicncr.top/Article/details/0751867.shtml)
+- 2026-06-30 08:16 - [F1奥地利站赛后复盘](https://www.blog.minike.top/Article/details/91905939.shtml)
+- 2026-06-30 07:48 - [曝老詹对自由市场态度与以往截然不同](http://www.share.kurohicncr.top/Article/details/238766017722.shtml)

@@ -1,54 +1,55 @@
-# 美伊签署停火协议前夕 美方对伊朗港口封锁仍维持实质运作
+# 公募基金重仓的苏州、武汉前十大上市公司分别出炉
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-负责协调地区航运与军事力量沟通的联合海事信息中心（JMIC）日前分发官方通告明确，在美伊双方定于6月19日正式执行停火协议前，美国对伊朗港口的军事封锁措施依然有效，各航运主体仍须严格遵守相关禁令。 通告强调，目前受封锁措施约束的船只应当继续遵从封锁方现场指挥官的直接指令。通告警告称，任何不立即遵守相关指令的行为，均可能迅速导致相关船只丧失行动能力，甚至面临毁灭性军事火力的打击。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！转自：证券时报 人民财讯5月19日电，2026年，光通信再次站在市场聚光灯下，更成为公募基金等机构投资者共识度最高的景气资产，其背后离不开苏州、武汉两座城市的支撑。这两座长江沿岸城市，一端映射着全球算力产业链的爆发态势，一端承载着通信自主可控的时代使命，在资本版图上交相辉映，勾勒出科技投资从单一企业投资向区
 
 ## 正文
 
-负责协调地区航运与军事力量沟通的联合海事信息中心（JMIC）日前分发官方通告明确，在美伊双方定于6月19日正式执行停火协议前，美国对伊朗港口的军事封锁措施依然有效，各航运主体仍须严格遵守相关禁令。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-通告强调，目前受封锁措施约束的船只应当继续遵从封锁方现场指挥官的直接指令。
+转自：证券时报 人民财讯5月19日电，2026年，光通信再次站在市场聚光灯下，更成为公募基金等机构投资者共识度最高的景气资产，其背后离不开苏州、武汉两座城市的支撑。
 
-通告警告称，任何不立即遵守相关指令的行为，均可能迅速导致相关船只丧失行动能力，甚至面临毁灭性军事火力的打击。
+这两座长江沿岸城市，一端映射着全球算力产业链的爆发态势，一端承载着通信自主可控的时代使命，在资本版图上交相辉映，勾勒出科技投资从单一企业投资向区域产业集群溢价深度演进的清晰路径。
 
-联合海事信息中心为此建议各民航与商业船长在封锁执行的最后阶段保持格外谨慎，务必遵守旨在确保船员安全而发布的一切现行安全指令。
+Wind数据显示，截至2026年一季度末，公募基金投资市值最高的前五大苏州上市公司，分别为中际旭创（注册地在山东，但核心业绩由苏州旭创贡献）、天孚通信、东山精密、亨通光电、沪电股份，主要聚焦于高速光模块、高端PCB、光纤光网及AI数据中心高速光互连等领域，偏向AI算力需求直接映射下的高弹性资产。
 
-责任编辑：龙运翔
+而公募基金投资市值最高的前五大武汉上市公司，则分别为航天电子、长飞光纤、烽火通信、精测电子、宏发股份。
+
+除光纤光缆、通信设备外，半导体检测设备、工业电子、军工电子等方向同样占据武汉产业集群的重要位置，这意味着武汉承载的并不仅仅是AI算力需求本身，更是中国高端制造体系中的基础工业能力，武汉光谷正从传统通信产业集群，逐步演变为中部地区重要的硬科技产业高地。
 
 ## 相关推荐
 
-- 2026-06-30 08:01 - [巴西足球能否再现昔日荣光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-30 07:50 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-30 07:57 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-30 08:03 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-30 07:54 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-30 07:51 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
-- 2026-06-30 07:58 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-30 07:59 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
-- 2026-06-30 08:05 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-30 07:53 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-30 07:51 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-30 08:00 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-30 08:05 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-30 07:43 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-30 08:13 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-30 08:11 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-30 08:16 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-30 08:09 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-30 08:02 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-30 08:06 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-30 07:58 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-30 08:14 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-30 08:06 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-30 07:59 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-30 08:02 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-30 08:00 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-30 07:56 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:05 - [金刚川](http://www.share.minike.top/Article/details/96181.shtml)
-- 2026-06-30 07:55 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/12091823709.shtml)
-- 2026-06-30 08:08 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/28453.shtml)
-- 2026-06-30 07:51 - [三星投资计划](https://www.share.minike.top/Article/details/4272559186.shtml)
-- 2026-06-30 08:04 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/702200026.shtml)
-- 2026-06-30 08:06 - [毒液2](https://www.share.kurohicncr.top/Article/details/438204104.shtml)
-- 2026-06-30 07:48 - [森保一 保守](http://www.share.minike.top/Article/details/79940.shtml)
-- 2026-06-30 07:42 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/8244229558.shtml)
-- 2026-06-30 07:56 - [日本领先巴西](http://www.blog.minike.top/Article/details/791810.shtml)
-- 2026-06-30 08:04 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/3895570179.shtml)
-- 2026-06-30 07:43 - [流金岁月](http://www.blog.minike.top/Article/details/722123.shtml)
-- 2026-06-30 07:57 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/084981.shtml)
-- 2026-06-30 07:46 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/74787.shtml)
-- 2026-06-30 07:42 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/72578060.shtml)
-- 2026-06-30 08:00 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/9696140803.shtml)
+- 2026-06-30 08:07 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/9770100151.shtml)
+- 2026-06-30 07:51 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/234284425.shtml)
+- 2026-06-30 07:49 - [萨内 看笑了](https://www.share.kurohicncr.top/Article/details/31247277.shtml)
+- 2026-06-30 08:11 - [Melo向柳智敏张元英道歉](http://www.blog.minike.top/Article/details/55380258094.shtml)
+- 2026-06-30 08:03 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/464731178.shtml)
+- 2026-06-30 08:15 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/918612455.shtml)
+- 2026-06-30 07:59 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.minike.top/Article/details/54335.shtml)
+- 2026-06-30 07:54 - [詹姆斯下赛季去哪](http://www.share.kurohicncr.top/Article/details/08696246886.shtml)
+- 2026-06-30 07:51 - [巴西醒醒 这是淘汰赛](http://www.blog.kurohicncr.top/Article/details/177025382.shtml)
+- 2026-06-30 08:13 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/03105560804.shtml)
+- 2026-06-30 07:53 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/295561457714.shtml)
+- 2026-06-30 07:58 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/987444184.shtml)
+- 2026-06-30 08:13 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/63283886.shtml)
+- 2026-06-30 07:49 - [上市央企地产商 两年换了三任董事长](http://www.share.minike.top/Article/details/632170599754.shtml)
+- 2026-06-30 08:07 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/01183.shtml)

@@ -1,56 +1,59 @@
-# 绿电点亮南博会 更连通澜湄万家灯火
+# 华泰期货：郑棉止跌企稳，糖价窄幅波动
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-中新网昆明6月14日电 (记者 韩帅南)灵活舞动的机器人、闪耀的灯光、震撼的音响……14日，在第10届中国—南亚博览会(南博会)场馆中，这些设备都由绿色能源驱动。中国华能集团有限公司已连续4年为南博会提供全量绿电保障。 绿色电力不止点亮南博会，中国企业也将绿电带到老挝、柬埔寨、缅甸等周边国家。在柬埔寨，中国华能建成装机40万千瓦的桑河二级水电站，极大缓解当地供电不足。今年4月，
+来源：华泰期货 作者： 李馨 棉花观点 市场要闻与重要数据 期货方面，昨日收盘棉花2609合约16090元/吨，较前一日变动+5元/吨，幅度+0.03%。现货方面，3128B棉新疆到厂价17556元/吨，较前一日变动-223元/吨，现货基差CF09+1466，较前一日变动-228；3128B棉全国均价17703元/吨，较前一日变动-257元/吨，现货基差CF09+1613，较前
 
 ## 正文
 
-中新网昆明6月14日电 (记者 韩帅南)灵活舞动的机器人、闪耀的灯光、震撼的音响……14日，在第10届中国—南亚博览会(南博会)场馆中，这些设备都由绿色能源驱动。
+来源：华泰期货 作者： 李馨 棉花观点 市场要闻与重要数据 期货方面，昨日收盘棉花2609合约16090元/吨，较前一日变动+5元/吨，幅度+0.03%。
 
-中国华能集团有限公司已连续4年为南博会提供全量绿电保障。
+现货方面，3128B棉新疆到厂价17556元/吨，较前一日变动-223元/吨，现货基差CF09+1466，较前一日变动-228；3128B棉全国均价17703元/吨，较前一日变动-257元/吨，现货基差CF09+1613，较前一日变动-262。
 
-绿色电力不止点亮南博会，中国企业也将绿电带到老挝、柬埔寨、缅甸等周边国家。
+近期市场资讯，据美国农业部（USDA）报告，5月8日至5月14日，美国2025/26年度棉花分级检验0.15万吨，95.4%的皮棉达到ICE期棉交割要求。
 
-在柬埔寨，中国华能建成装机40万千瓦的桑河二级水电站，极大缓解当地供电不足。
+至同期，累计分级检验306.76万吨，81.7%的皮棉达到ICE期棉交割要求。
 
-今年4月，中广核老挝北部清洁能源基地一期100万千瓦光伏项目并网，不仅保障当地用电，更支撑起产业升级。
+其中陆地棉检验量为297.91万吨，皮马棉为8.86万吨。
 
-“过去我的工厂经常用柴油发电，成本高，排烟也不环保。
+市场分析 昨日郑棉期价止跌企稳。
 
-”南博会参展商黄文强来自越南南部，他对中国的绿色能源合作项目感触颇深。
+国际方面，中东冲突推高棉花种植成本，26/27年度全球供应减产的预期持续存在，当前北半球正处于关键种植期，市场已进入对天气高度敏感的阶段，推动美棉持续走强。
 
-黄文强说，他的家乡风力资源丰富，但几年前却是“缺电重灾区”。
+不过目前市场已对供应缩减预期进行了较为充分的交易，近期美棉产区也迎来降雨，美棉持续上涨动能减弱，短期面临一定回调压力。
 
 ## 相关推荐
 
-- 2026-06-30 07:49 - [德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-30 07:53 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-30 07:43 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-30 08:07 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-30 07:43 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
-- 2026-06-30 07:49 - [田中碧失误](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-30 07:57 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-30 07:43 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
-- 2026-06-30 08:08 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-30 07:44 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
+- 2026-06-30 08:01 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-30 08:09 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-30 08:14 - [郑钦文温网首轮出局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-30 08:04 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-30 08:02 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-30 08:04 - [世界杯欧洲队7战南美仅1胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
+- 2026-06-30 07:51 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-30 08:06 - [日本队5进世界杯淘汰赛0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-30 08:01 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-30 08:03 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
+- 2026-06-30 07:51 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-30 07:52 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-30 07:48 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:47 - [本科毕业生为何涌入专科学校](https://www.blog.minike.top/Article/details/897729400754.shtml)
-- 2026-06-30 07:49 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/699968733.shtml)
-- 2026-06-30 08:09 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/962617852.shtml)
-- 2026-06-30 07:54 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://www.blog.minike.top/Article/details/276407163.shtml)
-- 2026-06-30 08:11 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/627988.shtml)
-- 2026-06-30 08:04 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/7936636212.shtml)
-- 2026-06-30 07:46 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/687358289.shtml)
-- 2026-06-30 08:04 - [武磊：日本队有能力跟任何强队抗衡](https://www.share.kurohicncr.top/Article/details/7440952608.shtml)
-- 2026-06-30 07:43 - [AI手机进入Agent时代](http://www.blog.kurohicncr.top/Article/details/883704.shtml)
-- 2026-06-30 08:10 - [曝多支争冠球队有意塞克斯顿](https://www.blog.kurohicncr.top/Article/details/0291182838.shtml)
-- 2026-06-30 07:55 - [“草莓月亮”浪漫现身](http://www.share.kurohicncr.top/Article/details/8748429.shtml)
-- 2026-06-30 07:56 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/9955194608.shtml)
-- 2026-06-30 07:54 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://www.blog.kurohicncr.top/Article/details/4694154074.shtml)
-- 2026-06-30 08:08 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/1779997695.shtml)
-- 2026-06-30 07:57 - [韩国球迷凌晨4点接机怒骂主教练](http://www.share.minike.top/Article/details/1783617.shtml)
+- 2026-06-30 07:53 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/18364769496.shtml)
+- 2026-06-30 08:14 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/587538036811.shtml)
+- 2026-06-30 07:48 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/05617422.shtml)
+- 2026-06-30 08:12 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/4553739636.shtml)
+- 2026-06-30 08:08 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.kurohicncr.top/Article/details/15007.shtml)
+- 2026-06-30 07:53 - [女子遭下药退赔偿拟追刑责](http://www.blog.minike.top/Article/details/723592086.shtml)
+- 2026-06-30 07:56 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://www.share.kurohicncr.top/Article/details/59896235.shtml)
+- 2026-06-30 07:51 - [周生如故](https://www.share.kurohicncr.top/Article/details/647038839.shtml)
+- 2026-06-30 07:54 - [世界杯巴拉圭点球淘汰德国](https://www.blog.kurohicncr.top/Article/details/101937476952.shtml)
+- 2026-06-30 08:07 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/820361.shtml)
+- 2026-06-30 08:14 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/47403.shtml)
+- 2026-06-30 07:49 - [巴拉圭先进球了](http://www.blog.kurohicncr.top/Article/details/52823935.shtml)
+- 2026-06-30 08:01 - [普京间接喊话特朗普有何考量](https://www.blog.kurohicncr.top/Article/details/0512106.shtml)
+- 2026-06-30 07:52 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.minike.top/Article/details/983639649.shtml)
+- 2026-06-30 08:04 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/53256191952.shtml)

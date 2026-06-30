@@ -1,61 +1,56 @@
-# 2026年“汉语桥”中文比赛印尼赛区决赛在雅加达举行
+# 上市一个月，涨超16倍！301666紧急停牌
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-中新网雅加达6月15日电 (记者 李志全)2026年“汉语桥”中文比赛印度尼西亚赛区总决赛14日在雅加达举行。中国驻印尼大使王鲁彤、印尼高等教育与科技部副部长蒋黛兰、印尼阿拉扎大学孔子学院理事会成员艾哈迈德·萨菲克、雅加达华文教育协调机构执行主席蔡昌杰等出席，并为获奖选手颁奖。 王鲁彤在致辞中表示，“汉语桥”比赛在印尼具有独特的文化价值与教育意义，它不仅是语言竞技的赛事，更是中
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月18日晚间，大普微（301666）发布公告称，因股价波动较大，公司将就股票交易波动情况进行核查。经公司申请，公司股票自2026年5月19日开市起停牌，待核查结束并披露相关公告后复牌，预计停牌时间不超过3个交易日。 上市一个月涨超16倍 公告显示，公司股票于5月14日、5月15日、5月18日连续三个交易日
 
 ## 正文
 
-中新网雅加达6月15日电 (记者 李志全)2026年“汉语桥”中文比赛印度尼西亚赛区总决赛14日在雅加达举行。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-中国驻印尼大使王鲁彤、印尼高等教育与科技部副部长蒋黛兰、印尼阿拉扎大学孔子学院理事会成员艾哈迈德·萨菲克、雅加达华文教育协调机构执行主席蔡昌杰等出席，并为获奖选手颁奖。
+5月18日晚间，大普微（301666）发布公告称，因股价波动较大，公司将就股票交易波动情况进行核查。
 
-王鲁彤在致辞中表示，“汉语桥”比赛在印尼具有独特的文化价值与教育意义，它不仅是语言竞技的赛事，更是中印尼人文交流的生动缩影。
+经公司申请，公司股票自2026年5月19日开市起停牌，待核查结束并披露相关公告后复牌，预计停牌时间不超过3个交易日。
 
-近年来，中印尼教育文化领域合作成果丰硕，希望大家以“汉语桥”比赛为新的起点，以语言为桥、以文化为媒，持续传递两国友好之声、续写人文互通新篇章。
+上市一个月涨超16倍 公告显示，公司股票于5月14日、5月15日、5月18日连续三个交易日收盘价格涨幅偏离值累计超过30%，根据《深圳证券交易所交易规则》，属于股票异常波动情形。
 
-蔡昌杰表示，“汉语桥”已成为印中人文交流的一张亮丽名片，不仅是一场语言能力竞赛，更是一场文明交流互鉴的盛会。
+交易行情显示，5月12日至18日期间的5个交易日，大普微股价区间累计涨幅达62.82%。
 
-他说，随着印尼与中国交流合作不断深化，越来越多企业需要既精通中文、又了解中国文化，同时具备国际视野的复合型人才。
+截至5月18日收盘，大普微报816元/股，总市值高达3560亿元。
 
-艾哈迈德·萨菲克认为，当前印尼与中国在教育、经济、科技、文化和创新等领域合作持续深化，对既懂语言、又懂文化，同时具备国际视野和跨文化沟通能力的复合型人才需求不断增长。
+作为创业板第三套上市标准启用后首家未盈利上市企业，大普微于2026年4月16日登陆深交所创业板，发行价为46.08元/股。
 
-相信参加本届“汉语桥”比赛的学生，未来都将成为促进两国友好交流的重要使者。
+上市首日，该股收盘涨超430%。
 
 ## 相关推荐
 
-- 2026-06-30 08:06 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
-- 2026-06-30 07:55 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-30 07:44 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
-- 2026-06-30 07:51 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-30 07:48 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-30 08:09 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
-- 2026-06-30 07:52 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-30 07:58 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
-- 2026-06-30 07:43 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
-- 2026-06-30 07:44 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-30 08:09 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-30 07:57 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-30 07:57 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-30 07:47 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
-- 2026-06-30 08:06 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-30 08:12 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-30 08:07 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-30 08:06 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-30 07:48 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-30 07:48 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-30 08:10 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-30 08:15 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
+- 2026-06-30 08:05 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
+- 2026-06-30 08:13 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-30 08:08 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:00 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/406374651452.shtml)
-- 2026-06-30 07:46 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/662740.shtml)
-- 2026-06-30 08:01 - [世界杯](https://www.blog.minike.top/Article/details/6857362.shtml)
-- 2026-06-30 07:42 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/721890.shtml)
-- 2026-06-30 08:09 - [日本五次世界杯淘汰赛全败](http://www.share.minike.top/Article/details/69715.shtml)
-- 2026-06-30 07:45 - [男子醉酒溺水获救后同行人拒协助抬人](https://www.blog.kurohicncr.top/Article/details/95000758209.shtml)
-- 2026-06-30 07:53 - [郑钦文温网首轮出局](http://www.blog.minike.top/Article/details/1336712.shtml)
-- 2026-06-30 07:44 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/316830.shtml)
-- 2026-06-30 07:59 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/197277.shtml)
-- 2026-06-30 07:55 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/2772316097.shtml)
-- 2026-06-30 07:47 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.blog.minike.top/Article/details/681959.shtml)
-- 2026-06-30 08:09 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/660874016.shtml)
-- 2026-06-30 07:52 - [日本队5进世界杯淘汰赛0胜](https://www.share.minike.top/Article/details/6829931.shtml)
-- 2026-06-30 08:08 - [我觉得你是在无中生友](https://www.share.kurohicncr.top/Article/details/825133238105.shtml)
-- 2026-06-30 08:07 - [巴拉圭先进球了](https://www.blog.kurohicncr.top/Article/details/4821561314.shtml)
+- 2026-06-30 07:56 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/84585217634.shtml)
+- 2026-06-30 08:02 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/9176692.shtml)
+- 2026-06-30 07:52 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/54216.shtml)
+- 2026-06-30 08:01 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.kurohicncr.top/Article/details/199999.shtml)
+- 2026-06-30 08:04 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/421364158950.shtml)
+- 2026-06-30 08:05 - [刘必安等16人非法集资案二审宣判](http://www.share.minike.top/Article/details/288460899.shtml)
+- 2026-06-30 08:01 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/52347281689.shtml)
+- 2026-06-30 07:55 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/8915520192.shtml)
+- 2026-06-30 08:06 - [刘宇宁高情商化解谁站C位](http://www.blog.kurohicncr.top/Article/details/151018993833.shtml)
+- 2026-06-30 08:04 - [国务院：鼓励行业龙头企业举办职校](http://www.share.minike.top/Article/details/254953707.shtml)
+- 2026-06-30 07:51 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/13326093421.shtml)
+- 2026-06-30 08:07 - [周冬雨多次说演不了话剧文城](https://www.share.minike.top/Article/details/682997277.shtml)
+- 2026-06-30 08:02 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/633428780213.shtml)
+- 2026-06-30 08:16 - [美股](https://www.share.kurohicncr.top/Article/details/6413970.shtml)
+- 2026-06-30 07:50 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/81467902.shtml)

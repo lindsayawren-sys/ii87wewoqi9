@@ -1,50 +1,57 @@
-# 持续增长、产销两旺！我国多领域发布亮眼“成绩单”
+# 利好来了，虚拟电厂迎超级风口！6只大牛股年内猛涨超100%
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-原标题：持续增长、产销两旺！我国多领域发布亮眼“成绩单” 上周 我国外贸、交通运输等多领域 亮眼数据不断！ 彰显我国经济高质量发展的澎湃能量 不断向新、向优发展 中国经济前行的脚步 坚实有力 来源：央视新闻客户端
+记者|曹恩惠 编辑|包芳鸣 随着算电协同技术加速落地，虚拟电厂迎来“黄金发展期”。 据《证券时报》，近日，我国首次实现大型数据中心以虚拟电厂形式参与电力现货交易。中国联通集团韶关数据中心、中国移动集团广州及湛江数据中心共3个大型数据中心集群，依托广东电网能源投资有限公司“粤能投虚拟电厂运营平台”，正式参与现货市场电能量交易与结算，实现“现货灵活购”。 5月19日，虚拟电厂概念股
 
 ## 正文
 
-原标题：持续增长、产销两旺！
+记者|曹恩惠 编辑|包芳鸣 随着算电协同技术加速落地，虚拟电厂迎来“黄金发展期”。
 
-我国多领域发布亮眼“成绩单” 上周 我国外贸、交通运输等多领域 亮眼数据不断！
+据《证券时报》，近日，我国首次实现大型数据中心以虚拟电厂形式参与电力现货交易。
 
-彰显我国经济高质量发展的澎湃能量 不断向新、向优发展 中国经济前行的脚步 坚实有力 来源：央视新闻客户端
+中国联通集团韶关数据中心、中国移动集团广州及湛江数据中心共3个大型数据中心集群，依托广东电网能源投资有限公司“粤能投虚拟电厂运营平台”，正式参与现货市场电能量交易与结算，实现“现货灵活购”。
+
+5月19日，虚拟电厂概念股集体大涨：林洋能源封涨停板，国能日新、智光电气涨超8%，国网信通、协鑫能科、阳光电源、东方电子、南网电源等同步上涨。
+
+年初至今，四方股份、远东股份、润建股份、协鑫能科等6只虚拟电厂概念股已累计涨超100%。
+
+首单“算随电动”落地广东 5月14日，在广东韶关中国联通数据中心运营后台，众人紧盯着监控大屏。
+
+依托广东电网能源投资有限公司“粤能投虚拟电厂运营平台”，该数据中心结合广东电力现货日前价格走势预测，完成了一场精准的现货市场电能量交易与结算——在低谷时段（10：00-14：00）调增算力任务、提升用电负荷，而在高峰时段（16：00-20：00）调减非紧急任务、合理压减负荷。
+
+同一天，中国移动广州及湛江数据中心这两个大型数据中心集群，也上演了一场跟随虚拟电厂指令联动的算电协同调度。
 
 ## 相关推荐
 
-- 2026-06-30 07:58 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
-- 2026-06-30 07:43 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-30 08:00 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-30 07:53 - [世界杯巴拉圭点球淘汰德国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-30 07:55 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-30 07:44 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-30 08:04 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-30 08:04 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
-- 2026-06-30 07:45 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-30 08:01 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
-- 2026-06-30 08:01 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-30 07:53 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-30 07:48 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-30 07:42 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
+- 2026-06-30 07:49 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-30 08:05 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-30 08:15 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-30 08:08 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-30 07:49 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-30 07:48 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-30 07:59 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-30 08:07 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
+- 2026-06-30 07:49 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-30 08:11 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-30 08:17 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:05 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/88510.shtml)
-- 2026-06-30 08:11 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/9120676746.shtml)
-- 2026-06-30 07:50 - [刘宇宁是去进货了吗](https://www.share.kurohicncr.top/Article/details/446166470.shtml)
-- 2026-06-30 07:43 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/11167311662.shtml)
-- 2026-06-30 08:02 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/756345464.shtml)
-- 2026-06-30 07:45 - [庆祝中国共产党成立105周年音乐会](http://www.blog.kurohicncr.top/Article/details/9994488.shtml)
-- 2026-06-30 08:07 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/17631016.shtml)
-- 2026-06-30 07:50 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.kurohicncr.top/Article/details/640521637031.shtml)
-- 2026-06-30 07:51 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.kurohicncr.top/Article/details/03999572.shtml)
-- 2026-06-30 07:58 - [老外对中国cosplay竟这样评价…](http://www.share.kurohicncr.top/Article/details/8110934092.shtml)
-- 2026-06-30 08:07 - [媒体：手机测评该挤挤水分了](https://www.share.kurohicncr.top/Article/details/49447.shtml)
-- 2026-06-30 08:08 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/0243362.shtml)
-- 2026-06-30 07:42 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/244873792688.shtml)
-- 2026-06-30 07:59 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/045640401120.shtml)
-- 2026-06-30 08:09 - [有酒店推行24小时退房制](https://www.blog.minike.top/Article/details/08540972643.shtml)
+- 2026-06-30 08:05 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/0442099587.shtml)
+- 2026-06-30 08:13 - [花少8要去世界杯举办国](https://www.share.minike.top/Article/details/830952457.shtml)
+- 2026-06-30 08:01 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/91879.shtml)
+- 2026-06-30 08:14 - [日本 高位逼抢](http://www.share.kurohicncr.top/Article/details/0339820077.shtml)
+- 2026-06-30 07:56 - [董卿父亲在报纸上发文悼念亡妻](http://www.share.minike.top/Article/details/7929702771.shtml)
+- 2026-06-30 07:55 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](http://www.blog.minike.top/Article/details/00597128442.shtml)
+- 2026-06-30 07:51 - [我和我的家乡](http://www.blog.minike.top/Article/details/9794005005.shtml)
+- 2026-06-30 08:01 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.kurohicncr.top/Article/details/8868720.shtml)
+- 2026-06-30 08:02 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/957007649597.shtml)
+- 2026-06-30 08:13 - [董卿父亲在报纸上发文悼念亡妻](http://www.blog.minike.top/Article/details/92838.shtml)
+- 2026-06-30 07:51 - [媒体评哈兰德之歌火了](http://www.share.kurohicncr.top/Article/details/5927900.shtml)
+- 2026-06-30 08:06 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.kurohicncr.top/Article/details/865567390952.shtml)
+- 2026-06-30 07:52 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.kurohicncr.top/Article/details/53687799.shtml)
+- 2026-06-30 07:50 - [卢卡申科发布解放军仪仗队视频](https://www.blog.minike.top/Article/details/99221.shtml)
+- 2026-06-30 07:51 - [MSI应援曲 如果季中成回忆](http://www.blog.minike.top/Article/details/7460183.shtml)

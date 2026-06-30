@@ -1,57 +1,58 @@
-# 从今年1至5月国家铁路物流数据透视中国经济活力 提质增效驶上“快车道”
+# PCB龙头扩产，存储龙头业绩爆发，科技ETF华宝（515000）逆市涨近1%！机构：科技中期行情未改
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-央视网消息：记者14日从国铁集团获悉，今年1至5月，国家铁路累计发送货物16.7亿吨，单日装车数量创历史新高。 国铁集团发布的数据显示，前五个月国家铁路累计发送货物16.7亿吨，同比增长1.8%；日均装车18.63万车，同比增长2.8%，其中5月2日装车20.24万车，创单日装车历史新高。 重点物资运输保障有力。5月份，“三夏”物资运输需求旺盛，多地铁路部门开辟农资运输绿色通道
+周一（5月18日），科技龙头板块逆市表现，代表A股科技龙头行情的中证科技龙头指数成功收涨。成份股方面，PCB、存储等细分赛道爆发，PCB龙头生益科技涨停，生益电子涨超8%，存储芯片龙头兆易创新收涨超6%创新高，半导体设备龙头盛美上海收涨5.7%。 热门ETF方面，国内首只科技龙头先锋——科技ETF华宝（515000）全天逆市飘红，场内收涨0.94%，单日成交超1.2亿元。 PC
 
 ## 正文
 
-央视网消息：记者14日从国铁集团获悉，今年1至5月，国家铁路累计发送货物16.7亿吨，单日装车数量创历史新高。
+周一（5月18日），科技龙头板块逆市表现，代表A股科技龙头行情的中证科技龙头指数成功收涨。
 
-国铁集团发布的数据显示，前五个月国家铁路累计发送货物16.7亿吨，同比增长1.8%；日均装车18.63万车，同比增长2.8%，其中5月2日装车20.24万车，创单日装车历史新高。
+成份股方面，PCB、存储等细分赛道爆发，PCB龙头生益科技涨停，生益电子涨超8%，存储芯片龙头兆易创新收涨超6%创新高，半导体设备龙头盛美上海收涨5.7%。
 
-重点物资运输保障有力。
+热门ETF方面，国内首只科技龙头先锋——科技ETF华宝（515000）全天逆市飘红，场内收涨0.94%，单日成交超1.2亿元。
 
-5月份，“三夏”物资运输需求旺盛，多地铁路部门开辟农资运输绿色通道，确保不误农时。
+PCB方面，龙头公司掀起“扩产潮”。
 
-国铁武汉局枝江车站党支部书记石玺介绍，夏种时节，车站与化肥企业建立紧密的日常沟通机制，围绕箱车资源、车辆周转、列车开行等核心环节制定细化措施，快装、快运，确保化肥及时运到田间地头。
+据上证报，仅胜宏科技、沪电股份、鹏鼎控股三家头部企业公布的投资计划总额已超过400亿元。
 
-1至5月，国家铁路发送粮食4880.6万吨，同比增长11.9%。
+进入2026年，PCB行业扩产节奏明显加快，新一轮产能扩张潮已全面铺开。
 
-同时，充分发挥全国一张网的优势，加大迎峰度夏电煤保供力度，1至5月份国家铁路发送煤炭8.7亿吨，其中电煤占比达三分之二，全国铁路直供电厂存煤均保持较高水平。
+国金证券表示，AI PCB行业在工艺升级与需求拐点双重驱动下，头部企业资本开支显著扩张，行业从周期波动转向成长性扩张。
 
-跨境班列运输稳定畅通。
+* 存储芯片方面，长鑫科技引爆存储行情。
 
 ## 相关推荐
 
-- 2026-06-30 07:47 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-30 07:46 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-30 07:47 - [郑钦文温网三连败西尼亚科娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-30 07:51 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-30 07:48 - [德国 传控](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-30 07:53 - [周冬雨多次说演不了话剧文城](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-30 08:10 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-30 07:49 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
-- 2026-06-30 07:45 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-30 08:00 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
-- 2026-06-30 07:57 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-30 08:03 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-30 07:54 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-30 08:05 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
+- 2026-06-30 08:09 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-30 08:07 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-30 08:10 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-30 07:51 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-30 07:48 - [马耳他著名拱门坍塌致一中国男子身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-30 08:17 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-30 07:57 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-30 08:07 - [巴拉圭先进球了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-30 08:17 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:01 - [亚洲球队全部出局](https://www.blog.kurohicncr.top/Article/details/4532755446.shtml)
-- 2026-06-30 07:45 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/93670.shtml)
-- 2026-06-30 07:45 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/1742802420.shtml)
-- 2026-06-30 08:07 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/55785.shtml)
-- 2026-06-30 07:50 - [DeepSeek V4正式版要来了](http://www.blog.minike.top/Article/details/98590645985.shtml)
-- 2026-06-30 07:45 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.kurohicncr.top/Article/details/393146425243.shtml)
-- 2026-06-30 08:10 - [日本博主：日本足球真的垃圾](http://www.blog.kurohicncr.top/Article/details/2067221.shtml)
-- 2026-06-30 07:51 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.minike.top/Article/details/50262541223.shtml)
-- 2026-06-30 08:02 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/956766.shtml)
-- 2026-06-30 08:07 - [DeepSeek V4正式版要来了](http://www.blog.kurohicncr.top/Article/details/000366729117.shtml)
-- 2026-06-30 07:53 - [萨内 看笑了](https://www.share.kurohicncr.top/Article/details/10969.shtml)
-- 2026-06-30 08:07 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/80615140543.shtml)
-- 2026-06-30 07:45 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/4836482.shtml)
-- 2026-06-30 07:56 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/99834.shtml)
-- 2026-06-30 07:44 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/39496610487.shtml)
+- 2026-06-30 08:00 - [赛博朋克边缘行者2预告片](http://www.share.minike.top/Article/details/240353.shtml)
+- 2026-06-30 08:02 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/226520165.shtml)
+- 2026-06-30 07:57 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/6515240.shtml)
+- 2026-06-30 08:11 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.minike.top/Article/details/752516809.shtml)
+- 2026-06-30 08:13 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/791359.shtml)
+- 2026-06-30 08:13 - [苗族银饰](https://www.blog.minike.top/Article/details/56487.shtml)
+- 2026-06-30 07:58 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/403462.shtml)
+- 2026-06-30 08:05 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/293896.shtml)
+- 2026-06-30 08:15 - [田中碧失误](http://www.blog.minike.top/Article/details/3848060108.shtml)
+- 2026-06-30 08:09 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/16928749.shtml)
+- 2026-06-30 08:10 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/61777306637.shtml)
+- 2026-06-30 08:17 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/79901339114.shtml)
+- 2026-06-30 07:51 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/342737153.shtml)
+- 2026-06-30 08:00 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/76252767.shtml)
+- 2026-06-30 07:55 - [武磊：巴西队赢的并不轻松](https://www.blog.kurohicncr.top/Article/details/51575.shtml)

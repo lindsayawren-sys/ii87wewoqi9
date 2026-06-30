@@ -1,60 +1,59 @@
-# 美国战略石油储备跌至1983年以来最低水平
+# 韩正出席2026年全球贸易投资促进峰会开幕式并致辞
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-美国战略石油储备已降至40多年来的最低水平，原因是紧急库存被释放，以缓解伊朗战争引发的供应中断。 美国能源部周一公布的数据显示，截至6月12日，美国战略石油储备为3.403亿桶，为1983年夏季以来的最低水平。该储备环比上周减少近900万桶。 美伊将于周五签署的旨在重新开放霍尔木兹海峡的协议达成之际，石油公司高管已发出警告，称全球库存正迅速消耗至临界水平。 埃克森美孚高级副总裁
+中新社北京5月18日电 5月18日，中国国家副主席韩正在北京出席2026年全球贸易投资促进峰会开幕式并致辞。 韩正表示，当前国际形势变乱交织，全球经贸秩序遭受严重冲击。习近平主席指出，面对风险和挑战，任何国家都不可能独善其身，坚持团结合作、开放包容才是人间正道。我们要坚定信念、携手前行，有效把握新机遇、应对新挑战，实现互利共赢基础上的共同发展。 韩正提出4点建议，一是共同营造开
 
 ## 正文
 
-美国战略石油储备已降至40多年来的最低水平，原因是紧急库存被释放，以缓解伊朗战争引发的供应中断。
+中新社北京5月18日电 5月18日，中国国家副主席韩正在北京出席2026年全球贸易投资促进峰会开幕式并致辞。
 
-美国能源部周一公布的数据显示，截至6月12日，美国战略石油储备为3.403亿桶，为1983年夏季以来的最低水平。
+韩正表示，当前国际形势变乱交织，全球经贸秩序遭受严重冲击。
 
-该储备环比上周减少近900万桶。
+习近平主席指出，面对风险和挑战，任何国家都不可能独善其身，坚持团结合作、开放包容才是人间正道。
 
-美伊将于周五签署的旨在重新开放霍尔木兹海峡的协议达成之际，石油公司高管已发出警告，称全球库存正迅速消耗至临界水平。
+我们要坚定信念、携手前行，有效把握新机遇、应对新挑战，实现互利共赢基础上的共同发展。
 
-埃克森美孚高级副总裁尼尔·查普曼5月28日在纽约由伯恩斯坦公司主办的一次会议上表示：“我们正逼近前所未闻的库存水平。
+韩正提出4点建议，一是共同营造开放合作的国际经济环境，坚定维护多边主义和开放合作，持续推动全球贸易投资自由化便利化。
 
-”查普曼当时警告说，随着夏季燃油需求即将达到顶峰，库存下降将推动油价飙升。
+二是共同塑造创新发展新优势，充分发挥新技术的驱动和赋能作用，让科技创新成果更好造福各国人民。
 
-即使美伊协议得到执行，库存仍将继续下降，因为霍尔木兹海峡的石油运输可能需要数周甚至数月才能恢复正常。
+三是共同提升产业链供应链韧性，加强产业协同、技术交流和标准对接。
 
-咨询公司Rapidan Energy表示：“库存仍在下降，这一趋势不可阻挡，而且已经处于历史低位。
+四是共同推动全球经济治理体系改革，积极落实全球治理倡议，坚持共商共建共享，坚定维护以世贸组织为核心、以规则为基础的多边贸易体制。
 
 ## 相关推荐
 
-- 2026-06-30 07:42 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
-- 2026-06-30 08:05 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-30 07:42 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-30 07:59 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
-- 2026-06-30 08:10 - [泰山景区回应修建刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
-- 2026-06-30 08:04 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-30 08:04 - [曝老詹对自由市场态度与以往截然不同](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-30 08:05 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-30 07:58 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
-- 2026-06-30 07:47 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
-- 2026-06-30 07:51 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
-- 2026-06-30 07:42 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
-- 2026-06-30 07:43 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-30 07:53 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-30 08:10 - [锐评T1战胜KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-30 08:06 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-30 07:54 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-30 08:08 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-30 07:49 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-30 07:55 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-30 08:06 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-30 08:12 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-30 07:48 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-30 07:57 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-30 08:15 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-30 08:13 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-30 07:52 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:03 - [孙兴慜道歉](https://www.blog.minike.top/Article/details/015359.shtml)
-- 2026-06-30 08:01 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.kurohicncr.top/Article/details/125935499.shtml)
-- 2026-06-30 07:49 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.minike.top/Article/details/21935720.shtml)
-- 2026-06-30 07:51 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/015645879572.shtml)
-- 2026-06-30 08:01 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/4540385653.shtml)
-- 2026-06-30 08:04 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/399412516296.shtml)
-- 2026-06-30 07:44 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/840647113769.shtml)
-- 2026-06-30 07:58 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/6292858.shtml)
-- 2026-06-30 08:03 - [泰山景区回应修建刀片刺绳隔离网](http://www.blog.kurohicncr.top/Article/details/522846071410.shtml)
-- 2026-06-30 07:50 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/0396280116.shtml)
-- 2026-06-30 07:43 - [逃狱兄弟](https://www.blog.minike.top/Article/details/55549.shtml)
-- 2026-06-30 08:10 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/098401315.shtml)
-- 2026-06-30 07:42 - [大蒜晒外面被路过女子连盆端走](http://www.blog.minike.top/Article/details/464619.shtml)
-- 2026-06-30 07:53 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/6075783826.shtml)
-- 2026-06-30 07:49 - [库尼亚赛后伸五指嘲讽日本](http://www.share.kurohicncr.top/Article/details/7216026178.shtml)
+- 2026-06-30 07:50 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/3267290.shtml)
+- 2026-06-30 07:50 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/290998.shtml)
+- 2026-06-30 07:56 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.share.kurohicncr.top/Article/details/786783145.shtml)
+- 2026-06-30 08:00 - [千香](http://www.share.kurohicncr.top/Article/details/4302509.shtml)
+- 2026-06-30 07:50 - [美股深夜大反弹 特斯拉飙涨8%](https://www.blog.kurohicncr.top/Article/details/31978.shtml)
+- 2026-06-30 08:13 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/745302123760.shtml)
+- 2026-06-30 08:16 - [索马里女大使：想和中国一起搞事业](http://www.share.kurohicncr.top/Article/details/953429639832.shtml)
+- 2026-06-30 07:51 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/573499470.shtml)
+- 2026-06-30 07:59 - [爆冷出局！德国点球大战不敌巴拉圭](https://www.blog.minike.top/Article/details/946221943107.shtml)
+- 2026-06-30 08:02 - [刘宇宁是去进货了吗](https://www.share.minike.top/Article/details/787489.shtml)
+- 2026-06-30 08:14 - [巴拉圭点球大战淘汰德国进16强](http://www.share.minike.top/Article/details/42345593654.shtml)
+- 2026-06-30 08:06 - [巴拉圭点球大战淘汰德国进16强](http://www.blog.kurohicncr.top/Article/details/74885180189.shtml)
+- 2026-06-30 08:17 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/04015649.shtml)
+- 2026-06-30 08:15 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/33517.shtml)
+- 2026-06-30 07:50 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/06969043795.shtml)

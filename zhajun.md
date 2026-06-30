@@ -1,61 +1,57 @@
-# 非遗“火”在当“夏”，燃动国潮消费新力量
+# “一步之遥”怎么跨？沿沪宁产业创新带“伙伴园区”的破局之道
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-原标题：【好评中国】非遗“火”在当“夏”，燃动国潮消费新力量 6月11日，2026年“非遗好物 国潮焕新”非遗消夏购物月在苏州启动。本次活动聚焦加强非遗系统性保护，坚持守正创新，展示非遗保护传承成果，在苏州平江路历史文化街区举办非遗消夏市集，以非遗美食、传统服饰、国潮手艺为主题，组织全国100余家非遗工坊及非遗传承人展示传统技艺与创意巧思相结合的非遗好物。 “十五五”规划纲要提
+“我们的测试场地最近已经改造完毕，正在等待验收，预计不久就可以正式使用了。”AutoLab创始人赵奕的语气中带着兴奋。 AutoLab扎根上海天地软件园10年，主攻智能驾驶测试，十年间公司年销售额扩大近6倍。眼下，企业面临测试场地要求高、汽车厂家技术迭代加快等困难，为了跟上技术的变化，在其他地区找了很多新测试场地都不成功。 在普陀区区域协同发展办公室的引导下，企业对接天地软件园
 
 ## 正文
 
-原标题：【好评中国】非遗“火”在当“夏”，燃动国潮消费新力量 6月11日，2026年“非遗好物 国潮焕新”非遗消夏购物月在苏州启动。
+“我们的测试场地最近已经改造完毕，正在等待验收，预计不久就可以正式使用了。
 
-本次活动聚焦加强非遗系统性保护，坚持守正创新，展示非遗保护传承成果，在苏州平江路历史文化街区举办非遗消夏市集，以非遗美食、传统服饰、国潮手艺为主题，组织全国100余家非遗工坊及非遗传承人展示传统技艺与创意巧思相结合的非遗好物。
+”AutoLab创始人赵奕的语气中带着兴奋。
 
-“十五五”规划纲要提出，培育中高端消费新增长点，推动老字号、国货潮牌做精做强。
+AutoLab扎根上海天地软件园10年，主攻智能驾驶测试，十年间公司年销售额扩大近6倍。
 
-非遗消夏购物月是2026年“文化和自然遗产日”非遗主题宣传展示活动之一，将持续至7月下旬。
+眼下，企业面临测试场地要求高、汽车厂家技术迭代加快等困难，为了跟上技术的变化，在其他地区找了很多新测试场地都不成功。
 
-其间，各地将围绕“非遗，让生活更美好！
+在普陀区区域协同发展办公室的引导下，企业对接天地软件园在南通高新区的伙伴园区，终于找到一个符合要求测试场地。
 
-”主题，因地制宜推出1200余场活动，通过举办非遗市集、开展主题展演、发布非遗特色旅游线路等，推动非遗“活”起来、“火”起来，进一步激发夏日消费活力，释放消费市场潜力。
+赵奕说：“这解决了公司发展的大问题，既符合主流车企测试场地要求，又节省近亿元基础设施投入。
 
-非遗“活”，引领新国潮。
+” 沪宁高速一路向西，上海普陀、南京、无锡、常州、苏州、南通、扬州、镇江、泰州“八市一区”串珠成链。
 
-扎根传统文化土壤，紧跟时代创新步伐，非遗活化传承掀起强劲国潮风尚，成为消费活力迸发的重要推动力。
+2025年，这条不足全国面积0.6%的创新带，贡献了约11.85%的GDP。
 
 ## 相关推荐
 
-- 2026-06-30 07:55 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-30 07:47 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
-- 2026-06-30 07:55 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-30 07:46 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-30 08:03 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-30 08:01 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-30 07:46 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
-- 2026-06-30 08:00 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
-- 2026-06-30 07:50 - [IGN评测电影版后室](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-30 07:45 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-30 08:11 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-30 07:52 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
-- 2026-06-30 07:57 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-30 08:00 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-30 07:52 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-30 08:06 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-30 08:08 - [4000美元是黄金新一轮下跌的开始吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-30 08:17 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-30 07:56 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-30 08:06 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
+- 2026-06-30 08:01 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-30 07:54 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-30 07:54 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-30 08:12 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-30 08:06 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-30 08:17 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:55 - [索马里女大使：想和中国一起搞事业](http://www.blog.kurohicncr.top/Article/details/644790398.shtml)
-- 2026-06-30 08:06 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/545029506.shtml)
-- 2026-06-30 07:53 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/40772.shtml)
-- 2026-06-30 08:10 - [德国爆冷点球大战不敌巴拉圭](http://www.blog.kurohicncr.top/Article/details/180233.shtml)
-- 2026-06-30 08:11 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/96347.shtml)
-- 2026-06-30 07:52 - [起风了](http://www.blog.kurohicncr.top/Article/details/6959073.shtml)
-- 2026-06-30 07:49 - [全球最火存储ETF纳入兆易创新](http://www.blog.minike.top/Article/details/57355.shtml)
-- 2026-06-30 08:03 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/15637708.shtml)
-- 2026-06-30 07:45 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/13902318.shtml)
-- 2026-06-30 07:45 - [警犬“多多”助民警寻回失联老人](https://www.blog.kurohicncr.top/Article/details/84935833.shtml)
-- 2026-06-30 08:08 - [“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/795316250276.shtml)
-- 2026-06-30 08:08 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/93728668643.shtml)
-- 2026-06-30 08:10 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/34643806480.shtml)
-- 2026-06-30 07:45 - [扬名立万](http://www.blog.minike.top/Article/details/659941468.shtml)
-- 2026-06-30 07:59 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/457736678868.shtml)
+- 2026-06-30 08:08 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/59269926436.shtml)
+- 2026-06-30 08:10 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.blog.minike.top/Article/details/4560213.shtml)
+- 2026-06-30 07:52 - [全新问界M9现身美国街头](https://www.share.kurohicncr.top/Article/details/357540248009.shtml)
+- 2026-06-30 08:01 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/967937.shtml)
+- 2026-06-30 07:57 - [爆冷出局！德国点球大战不敌巴拉圭](http://www.share.minike.top/Article/details/47207330.shtml)
+- 2026-06-30 07:55 - [起风了](http://www.blog.kurohicncr.top/Article/details/028099.shtml)
+- 2026-06-30 08:07 - [老外对中国cosplay竟这样评价…](http://www.blog.minike.top/Article/details/01014.shtml)
+- 2026-06-30 08:02 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/09810.shtml)
+- 2026-06-30 08:08 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/21046078.shtml)
+- 2026-06-30 08:07 - [二次元提前预演明日巴西对日本](https://www.blog.kurohicncr.top/Article/details/56242340710.shtml)
+- 2026-06-30 08:00 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/8377643406.shtml)
+- 2026-06-30 07:54 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/71358962608.shtml)
+- 2026-06-30 07:54 - [徐亮怒斥世界杯踢假球](http://www.share.kurohicncr.top/Article/details/09415168.shtml)
+- 2026-06-30 08:02 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/0282796387.shtml)
+- 2026-06-30 07:50 - [为什么会有「念旧」的心理？](http://www.share.minike.top/Article/details/65430798.shtml)

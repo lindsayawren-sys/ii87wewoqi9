@@ -1,61 +1,52 @@
-# 请准备，厄尔尼诺又要来了
+# 凯投宏观：日本本季度GDP增长料将停滞
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-克莉斯汀 6月伊始，世界气象组织(WMO)便发出预报:受热带太平洋异常温暖的海洋海水驱动，厄尔尼诺条件正在形成，并将在未来数月影响全球气温和降雨模式，增加极端天气风险。 同一天，WMO还发布了一份新的厄尔尼诺/拉尼娜通报，显示2026年6月至8月期间发生厄尔尼诺事件的可能性为80%。 据此预测，今年6月至8月期间，全球几乎所有地区气温都将普遍高于正常水平。卫星数据显示，太平洋海
+在伊朗战争前，日本经济积聚了稳健势头，但凯投宏观认为，本季度和下季度GDP增长将放缓至停滞状态。第一季度数据显示，家庭支出和企业投资均环比上升，此外出口激增带来的增长推动力超过了增幅小得多的进口增长。然而，经济学家Marcel Thieliant表示，尽管外界都在谈论日本首相高市早苗领导下的宽松财政政策，但政府消费环比放缓，这突显出去年11月宣布的补充预算并未对政府支出产生实质
 
 ## 正文
 
-克莉斯汀 6月伊始，世界气象组织(WMO)便发出预报:受热带太平洋异常温暖的海洋海水驱动，厄尔尼诺条件正在形成，并将在未来数月影响全球气温和降雨模式，增加极端天气风险。
+在伊朗战争前，日本经济积聚了稳健势头，但凯投宏观认为，本季度和下季度GDP增长将放缓至停滞状态。
 
-同一天，WMO还发布了一份新的厄尔尼诺/拉尼娜通报，显示2026年6月至8月期间发生厄尔尼诺事件的可能性为80%。
+第一季度数据显示，家庭支出和企业投资均环比上升，此外出口激增带来的增长推动力超过了增幅小得多的进口增长。
 
-据此预测，今年6月至8月期间，全球几乎所有地区气温都将普遍高于正常水平。
+然而，经济学家Marcel Thieliant表示，尽管外界都在谈论日本首相高市早苗领导下的宽松财政政策，但政府消费环比放缓，这突显出去年11月宣布的补充预算并未对政府支出产生实质性影响。
 
-卫星数据显示，太平洋海面温度已出现异常 5月时，美国航空航天局(NASA)和欧洲空间局(ESA)合作发射的 “哨兵6号”迈克尔·弗雷利希卫星公布了最新监测数据，称一股宽达数百公里的暖水流已涌入南美洲沿岸的太平洋海域。
+与此同时，消费者信心大幅下滑，而燃料价格上限只能在有限时间内保持通胀温和。
 
-这种现象被称为开尔文波。
+他补充说，即使有新的补充预算来为汽油补贴提供资金，这也充其量只能稳定消费者支出。
 
-在厄尔尼诺现象出现前几个月，太平洋上一般都会出现多个开尔文波向东移动，最终到达南美洲，温暖海水在这一区域聚集，最后便会促成厄尔尼诺现象的出现。
-
-2026年的卫星数据显示，开尔文波目前已出现多次，这预示着厄尔尼诺现象即将出现。
-
-美国国家海洋和大气管理局(NOAA)的预测称，厄尔尼诺现象于2026年5月至7月出现的概率达82%，并持续到2026-2027年北半球冬季，即2026年12月至2027年2月都仍有96%的概率。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 07:56 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
-- 2026-06-30 07:45 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-30 07:55 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-30 08:10 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-30 07:47 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
-- 2026-06-30 07:44 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
-- 2026-06-30 07:44 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-30 07:44 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
-- 2026-06-30 07:43 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
-- 2026-06-30 07:53 - [德国队连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-30 07:50 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
-- 2026-06-30 07:46 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-30 07:48 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-30 08:11 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
-- 2026-06-30 07:47 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-30 07:50 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-30 08:17 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
+- 2026-06-30 08:00 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-30 08:15 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
+- 2026-06-30 08:06 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-30 07:57 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-30 08:00 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-30 07:55 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-30 08:12 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-30 08:17 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:47 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.minike.top/Article/details/910547780730.shtml)
-- 2026-06-30 07:52 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/470019485.shtml)
-- 2026-06-30 08:04 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/98829260477.shtml)
-- 2026-06-30 07:53 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/450414.shtml)
-- 2026-06-30 08:03 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/454971120.shtml)
-- 2026-06-30 07:55 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/4421956926.shtml)
-- 2026-06-30 08:11 - [高考结束了，你会让孩子在家玩手机吗？](http://www.blog.minike.top/Article/details/9464709194.shtml)
-- 2026-06-30 07:50 - [起风了](https://www.blog.minike.top/Article/details/80843060.shtml)
-- 2026-06-30 08:10 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/657792.shtml)
-- 2026-06-30 08:05 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/88075.shtml)
-- 2026-06-30 07:52 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/12418662044.shtml)
-- 2026-06-30 07:52 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/0018573.shtml)
-- 2026-06-30 08:09 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/336223998.shtml)
-- 2026-06-30 07:47 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/6374089.shtml)
-- 2026-06-30 07:50 - [日本半场1比0领先巴西](http://www.share.kurohicncr.top/Article/details/11324732.shtml)
+- 2026-06-30 07:58 - [日本五次世界杯淘汰赛全败](https://www.blog.minike.top/Article/details/16018085.shtml)
+- 2026-06-30 08:03 - [这几秒成世界杯最值钱广告位](https://www.share.minike.top/Article/details/557578092287.shtml)
+- 2026-06-30 08:00 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/1726335912.shtml)
+- 2026-06-30 07:59 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/649437.shtml)
+- 2026-06-30 07:54 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/669430121.shtml)
+- 2026-06-30 08:16 - [王楚钦孙颖莎晋级混双八强](http://www.blog.kurohicncr.top/Article/details/180691.shtml)
+- 2026-06-30 08:13 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/79362456609.shtml)
+- 2026-06-30 07:54 - [刘必安等16人非法集资案二审宣判](https://www.blog.minike.top/Article/details/444594021.shtml)
+- 2026-06-30 07:55 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/2755331640.shtml)
+- 2026-06-30 08:07 - [女子清吧被陌生人投放伟哥](https://www.share.kurohicncr.top/Article/details/4893344.shtml)
+- 2026-06-30 08:05 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/100585490.shtml)
+- 2026-06-30 08:04 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/037973.shtml)
+- 2026-06-30 08:15 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/28732685.shtml)
+- 2026-06-30 07:52 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/804676629509.shtml)
+- 2026-06-30 08:08 - [藤森庆子赢得秘鲁总统选举](http://www.blog.minike.top/Article/details/0439412.shtml)

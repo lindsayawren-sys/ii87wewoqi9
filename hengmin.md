@@ -1,59 +1,60 @@
-# 特朗普称伊核协议即将达成，伊朗方面目前尚未确认
+# ISG启动Guidewire保险平台服务生态系统研究
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-美国总统当地时间周日下午接受《华尔街日报》采访时表示，他很快将发表声明，证实美国已与伊朗达成协议。特朗普透露，这份协议将由他本人或副总统万斯以电子方式签署，不过伊朗现阶段尚未确认接受该协议。此次采访结束数小时后，特朗普原定在白宫草坪观看终极格斗冠军赛（UFC）大型赛事。 有观点将这份协议定性为一份谅解备忘录，旨在为后续谈判铺路。但特朗普周日表示，该协议将成为结束这场持续近四个月
+研究项目启动 全球人工智能技术研究与咨询公司Information Services Group启动了一项新的研究，旨在评估帮助保险企业采用和优化Guidewire核心保险平台的服务提供商。该研究报告名为《ISG Provider Lens® Guidewire服务生态系统》，预计将于2026年10月发布。 研究重点与范围 研究将评估服务提供商在咨询、平台实施、AI工具及基于云
 
 ## 正文
 
-美国总统当地时间周日下午接受《华尔街日报》采访时表示，他很快将发表声明，证实美国已与伊朗达成协议。
+研究项目启动 全球人工智能技术研究与咨询公司Information Services Group启动了一项新的研究，旨在评估帮助保险企业采用和优化Guidewire核心保险平台的服务提供商。
 
-特朗普透露，这份协议将由他本人或副总统万斯以电子方式签署，不过伊朗现阶段尚未确认接受该协议。
+该研究报告名为《ISG Provider Lens® Guidewire服务生态系统》，预计将于2026年10月发布。
 
-此次采访结束数小时后，特朗普原定在白宫草坪观看终极格斗冠军赛（UFC）大型赛事。
+研究重点与范围 研究将评估服务提供商在咨询、平台实施、AI工具及基于云的转型服务等方面的能力。
 
-有观点将这份协议定性为一份谅解备忘录，旨在为后续谈判铺路。
+财产与意外险保险公司正寻求能管理Guidewire项目从战略、实施到持续优化全生命周期的合作伙伴。
 
-但特朗普周日表示，该协议将成为结束这场持续近四个月冲突的关键一步。
+ISG总监Iain Fisher表示，保险公司不再仅仅寻找实施合作伙伴，而是寻找能够将其运营现代化并创造可衡量业务价值的战略转型伙伴。
 
-特朗普介绍，协议内容包括伊朗承诺绝不研发核武器，以及霍尔木兹海峡立即恢复通航。
+研究团队已向40多家服务提供商发放了调查问卷。
 
-对于伊朗境内核原料的清理工作，他表示并无紧迫计划，可延后推进。
+报告将主要覆盖Guidewire服务这一象限，评估提供端到端服务（涵盖咨询、实施、集成、云启用和管理服务）的提供商。
 
-“等我们准备就绪，再着手处理核相关遗留问题，大概会在未来一两个月内，不必急于一时。
+行业背景与趋势 随着保险公司现代化核心系统并向云平台迁移，Guidewire已成为提高灵活性、加速产品发布和应对复杂业务挑战的重要工具。
 
 ## 相关推荐
 
-- 2026-06-30 08:06 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-30 07:47 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-30 08:05 - [马耳他著名拱门坍塌致一中国男子身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-30 08:06 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-30 08:04 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-30 08:02 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-30 07:46 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-30 08:10 - [亚洲球队全部出局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-30 08:05 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-30 07:43 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-30 08:01 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-30 08:10 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
-- 2026-06-30 07:47 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-30 07:54 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-30 07:56 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
+- 2026-06-30 07:53 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
+- 2026-06-30 08:06 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-30 07:54 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-30 08:12 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-30 07:50 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-30 08:09 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-30 07:51 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-30 08:05 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-30 07:57 - [巴西2比1日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-30 07:54 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-30 08:02 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-30 08:01 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:51 - [爆冷出局！德国点球大战不敌巴拉圭](https://www.blog.kurohicncr.top/Article/details/012276.shtml)
-- 2026-06-30 07:57 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/100798848.shtml)
-- 2026-06-30 07:56 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/502349903.shtml)
-- 2026-06-30 08:02 - [勇士续约波尔津吉斯](http://www.share.kurohicncr.top/Article/details/1830294.shtml)
-- 2026-06-30 08:11 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/349528600968.shtml)
-- 2026-06-30 07:54 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/541274210815.shtml)
-- 2026-06-30 07:50 - [81岁老人被男子买光菜回家车祸去世](https://www.share.kurohicncr.top/Article/details/70348.shtml)
-- 2026-06-30 08:06 - [曝灰熊将莫兰特交易至开拓者](https://www.share.kurohicncr.top/Article/details/262787635.shtml)
-- 2026-06-30 07:59 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.minike.top/Article/details/257523.shtml)
-- 2026-06-30 07:57 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/96416839730.shtml)
-- 2026-06-30 08:10 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/49837481797.shtml)
-- 2026-06-30 07:56 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/521549581.shtml)
-- 2026-06-30 07:44 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/59390919.shtml)
-- 2026-06-30 08:02 - [董卿父亲报纸上发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/58365.shtml)
-- 2026-06-30 07:53 - [巴西扳平比分](https://www.blog.kurohicncr.top/Article/details/50706.shtml)
+- 2026-06-30 08:17 - [中国新一轮出口管制直指日本命脉](https://www.share.minike.top/Article/details/71743426213.shtml)
+- 2026-06-30 07:53 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.minike.top/Article/details/2396118249.shtml)
+- 2026-06-30 08:05 - [王楚钦孙颖莎晋级混双八强](http://www.share.minike.top/Article/details/640533610230.shtml)
+- 2026-06-30 07:57 - [补时绝杀 巴西2-1淘汰日本](http://www.share.kurohicncr.top/Article/details/2292892.shtml)
+- 2026-06-30 08:11 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/6818618223.shtml)
+- 2026-06-30 08:01 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/77296.shtml)
+- 2026-06-30 07:49 - [这几秒成世界杯最值钱广告位](https://www.blog.minike.top/Article/details/38303162.shtml)
+- 2026-06-30 08:07 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/4261029636.shtml)
+- 2026-06-30 08:13 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/089587.shtml)
+- 2026-06-30 07:48 - [世界杯欧洲队7战南美仅1胜](https://www.blog.kurohicncr.top/Article/details/55076436.shtml)
+- 2026-06-30 07:59 - [韩国球迷凌晨4点接机怒骂主教练](https://www.share.minike.top/Article/details/948295637.shtml)
+- 2026-06-30 08:16 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/7614215.shtml)
+- 2026-06-30 07:58 - [德国队连续三届世界杯无缘16强](https://www.blog.kurohicncr.top/Article/details/25159597531.shtml)
+- 2026-06-30 07:52 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/862289641.shtml)
+- 2026-06-30 08:03 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/2890662.shtml)

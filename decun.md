@@ -1,50 +1,43 @@
-# 伊朗外长说“必须彻底制止”以色列对黎巴嫩的侵略
+# 君实生物：截至2025年12月31日公司持有南京英派药业股份有限公司股份
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社德黑兰6月15日电据伊朗伊斯兰共和国通讯社15日报道，伊朗外交部长阿拉格齐当天分别与土耳其、伊拉克和埃及三国外长通话，强调美国有责任执行伊美协议，并指出“必须彻底制止”以色列对黎巴嫩的侵略。 阿拉格齐在通话中与三国外长讨论了伊美谅解备忘录的进程和内容，赞赏三国在支持停火、缓和紧张局势，以及为实现地区稳
+证券日报网讯5月19日，君实生物在互动平台回答投资者提问时表示，截至2025年12月31日，公司持有南京英派药业股份有限公司股份，具体财务影响请以公司未来定期报告为准。
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
-
-新华社德黑兰6月15日电据伊朗伊斯兰共和国通讯社15日报道，伊朗外交部长阿拉格齐当天分别与土耳其、伊拉克和埃及三国外长通话，强调美国有责任执行伊美协议，并指出“必须彻底制止”以色列对黎巴嫩的侵略。
-
-阿拉格齐在通话中与三国外长讨论了伊美谅解备忘录的进程和内容，赞赏三国在支持停火、缓和紧张局势，以及为实现地区稳定与安全所作的外交努力。
-
-四国外长强调，将继续就地区局势保持密切磋商与合作，必须加强外交努力以维护地区和平与稳定。
-
-（完）责任编辑：宋雅芳
+证券日报网讯5月19日，君实生物在互动平台回答投资者提问时表示，截至2025年12月31日，公司持有南京英派药业股份有限公司股份，具体财务影响请以公司未来定期报告为准。
 
 ## 相关推荐
 
-- 2026-06-30 07:53 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-30 08:11 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-30 07:53 - [日本淘汰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-30 07:52 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-30 08:00 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-30 07:59 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-30 08:04 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-30 07:47 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
-- 2026-06-30 08:10 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-30 07:45 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-30 08:17 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
+- 2026-06-30 07:48 - [世界杯欧洲队7战南美仅1胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-30 08:07 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-30 08:07 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-30 08:09 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-30 07:50 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
+- 2026-06-30 08:10 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-30 08:08 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-30 08:12 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-30 08:06 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-30 08:16 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:48 - [我和我的家乡](http://www.share.minike.top/Article/details/560639061.shtml)
-- 2026-06-30 07:42 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/58537.shtml)
-- 2026-06-30 07:44 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/652153560.shtml)
-- 2026-06-30 07:55 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/742806291.shtml)
-- 2026-06-30 07:42 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/35617213.shtml)
-- 2026-06-30 08:08 - [审核了不止十年的低创鬼畜](https://www.share.kurohicncr.top/Article/details/328919681268.shtml)
-- 2026-06-30 07:48 - [81岁老人被男子买光菜回家车祸去世](https://www.share.kurohicncr.top/Article/details/941159861459.shtml)
-- 2026-06-30 08:07 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/173652.shtml)
-- 2026-06-30 07:54 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/18883792698.shtml)
-- 2026-06-30 07:54 - [宗元舞2.0 迟来的50万女装福利](http://www.share.minike.top/Article/details/989543766.shtml)
-- 2026-06-30 08:11 - [男子醉酒溺水获救后同行人拒协助抬人](http://www.share.minike.top/Article/details/3716262296.shtml)
-- 2026-06-30 07:43 - [德国 传控](http://www.share.kurohicncr.top/Article/details/28360816642.shtml)
-- 2026-06-30 07:48 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/568576.shtml)
-- 2026-06-30 07:43 - [豆包收费了，你还会用吗？](http://www.share.kurohicncr.top/Article/details/4564645.shtml)
-- 2026-06-30 08:02 - [为什么会有「念旧」的心理？](http://www.blog.kurohicncr.top/Article/details/11966.shtml)
+- 2026-06-30 08:09 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/423845.shtml)
+- 2026-06-30 08:09 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/289116967.shtml)
+- 2026-06-30 07:52 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/206372169291.shtml)
+- 2026-06-30 08:04 - [全球芯片巨头史诗级扩产](https://www.share.minike.top/Article/details/20352.shtml)
+- 2026-06-30 08:07 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/097476.shtml)
+- 2026-06-30 08:16 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/095451.shtml)
+- 2026-06-30 07:59 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/15071275379.shtml)
+- 2026-06-30 07:55 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/68172767507.shtml)
+- 2026-06-30 08:10 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/36480872.shtml)
+- 2026-06-30 07:50 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/65122243.shtml)
+- 2026-06-30 08:04 - [三星投资计划](http://www.blog.kurohicncr.top/Article/details/8667478959.shtml)
+- 2026-06-30 08:03 - [王濛回复黄灿灿](https://www.blog.minike.top/Article/details/090898015.shtml)
+- 2026-06-30 07:59 - [世界杯](https://www.blog.kurohicncr.top/Article/details/000008519.shtml)
+- 2026-06-30 07:58 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/440532800632.shtml)
+- 2026-06-30 08:16 - [建议不要突然完全停止喝咖啡](https://www.share.minike.top/Article/details/96020.shtml)

@@ -1,51 +1,57 @@
-# SpaceX IPO承销商行使“绿鞋”超额配售权，总融资额达857亿美元
+# 停飞一年后，幸福航空走向破产重整前的预重整
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-SpaceX首次公开募股（IPO）的承销商已正式行使了超额配售权，使本次IPO的总融资额达到857亿美元。 马斯克旗下的这家航天与人工智能公司上周四已通过首轮发行筹集了750亿美元。 这种通常被称为“绿鞋机制”（green shoe）的超额配售权，其规模超过了有记录以来几乎所有科技公司的IPO。通常情况下，当新股上市后股价上涨时，承销商就会选择行使超额配售权。责任编辑：李桐
+幸福航空的命运，很大程度上取决于未来几个月内能否成功引进战略投资者。 近日，有机票代理收到幸福航空的通知，称公司已进入预重整程序，西安中级人民法院指定幸福航空有限责任公司清算组担任幸福航空预重整临时管理人。幸福航空的债权人可进行债权申报，包括退票欠款等。 此时距离幸福航空停航已经过去一年。这一年中，公司一直在为重新复航寻找战略投资者，不过至今无明确进展。 从停飞到重整背后 20
 
 ## 正文
 
-SpaceX首次公开募股（IPO）的承销商已正式行使了超额配售权，使本次IPO的总融资额达到857亿美元。
+幸福航空的命运，很大程度上取决于未来几个月内能否成功引进战略投资者。
 
-马斯克旗下的这家航天与人工智能公司上周四已通过首轮发行筹集了750亿美元。
+近日，有机票代理收到幸福航空的通知，称公司已进入预重整程序，西安中级人民法院指定幸福航空有限责任公司清算组担任幸福航空预重整临时管理人。
 
-这种通常被称为“绿鞋机制”（green shoe）的超额配售权，其规模超过了有记录以来几乎所有科技公司的IPO。
+幸福航空的债权人可进行债权申报，包括退票欠款等。
 
-通常情况下，当新股上市后股价上涨时，承销商就会选择行使超额配售权。
+此时距离幸福航空停航已经过去一年。
 
-责任编辑：李桐
+这一年中，公司一直在为重新复航寻找战略投资者，不过至今无明确进展。
+
+从停飞到重整背后 2025年4月27日下班后，幸福航空的员工被通知公司自28日起开始停航，暂时取消三天的航班（到4月30日）。
+
+但到了三天后的“五一”假期，幸福航空也没有复航，并且一直停航至今。
+
+多位知情人士告诉记者，在公司停航期间，地方政府层面已成立专门的工作组，负责幸福航空战略投资者的引进，期间也有意向投资方主动联系，不过至今没有达成一致。
 
 ## 相关推荐
 
-- 2026-06-30 07:43 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-30 08:06 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-30 07:56 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-30 07:45 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
-- 2026-06-30 07:49 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
-- 2026-06-30 07:51 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-30 07:53 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-30 08:03 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-30 07:55 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-30 07:52 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-30 07:42 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-30 07:56 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-30 08:01 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-30 07:48 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
+- 2026-06-30 08:06 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-30 08:16 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-30 08:17 - [德国进球被吹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-30 08:12 - [男子在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-30 08:00 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-30 08:15 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-30 08:03 - [巴拉圭进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-30 08:13 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:01 - [齐思钧回复张月](http://www.share.minike.top/Article/details/09571023.shtml)
-- 2026-06-30 07:49 - [刘宇宁高情商化解谁站C位](http://www.blog.minike.top/Article/details/68696813437.shtml)
-- 2026-06-30 08:04 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/936541.shtml)
-- 2026-06-30 07:43 - [安切洛蒂 换人](https://www.share.kurohicncr.top/Article/details/066620.shtml)
-- 2026-06-30 07:58 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/59802.shtml)
-- 2026-06-30 07:53 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/618778.shtml)
-- 2026-06-30 08:02 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/29224.shtml)
-- 2026-06-30 07:52 - [库尼亚赛后伸五指嘲讽日本](https://www.share.minike.top/Article/details/14198.shtml)
-- 2026-06-30 08:06 - [这几秒成世界杯最值钱广告位](https://www.share.minike.top/Article/details/707771617858.shtml)
-- 2026-06-30 07:49 - [王濛回复黄灿灿](https://www.blog.minike.top/Article/details/6083027117.shtml)
-- 2026-06-30 07:48 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.kurohicncr.top/Article/details/0287526.shtml)
-- 2026-06-30 07:56 - [DeepSeek V4正式版要来了](https://www.blog.minike.top/Article/details/88850.shtml)
-- 2026-06-30 08:02 - [全球芯片巨头史诗级扩产](http://www.blog.minike.top/Article/details/61613341.shtml)
-- 2026-06-30 07:43 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/429650494.shtml)
-- 2026-06-30 08:04 - [网瘾賊大的阿嬷](http://www.share.kurohicncr.top/Article/details/76322478.shtml)
+- 2026-06-30 08:12 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/7768688.shtml)
+- 2026-06-30 08:03 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/195279005.shtml)
+- 2026-06-30 08:17 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/92663.shtml)
+- 2026-06-30 07:58 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/772647378.shtml)
+- 2026-06-30 08:12 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/1058100.shtml)
+- 2026-06-30 07:48 - [哈弗茨头球破门](https://www.share.kurohicncr.top/Article/details/02899.shtml)
+- 2026-06-30 07:59 - [南北多地暴雨和强对流天气持续](https://www.blog.kurohicncr.top/Article/details/1507829144.shtml)
+- 2026-06-30 08:09 - [《贺子珍》](https://www.blog.minike.top/Article/details/768577328589.shtml)
+- 2026-06-30 07:59 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/3253530252.shtml)
+- 2026-06-30 08:15 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/3581772.shtml)
+- 2026-06-30 08:05 - [孙颖莎王楚钦晋级8强](http://www.blog.minike.top/Article/details/7429944729.shtml)
+- 2026-06-30 07:55 - [孙颖莎王楚钦晋级8强](https://www.share.kurohicncr.top/Article/details/17079.shtml)
+- 2026-06-30 08:11 - [日本 高位逼抢](http://www.blog.minike.top/Article/details/4147803.shtml)
+- 2026-06-30 07:52 - [巴西2-1绝杀日本](https://www.blog.minike.top/Article/details/238918.shtml)
+- 2026-06-30 08:17 - [王楚钦孙颖莎晋级混双八强](https://www.blog.kurohicncr.top/Article/details/8975140327.shtml)

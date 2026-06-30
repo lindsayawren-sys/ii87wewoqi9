@@ -1,61 +1,59 @@
-# 探秘百洞峡
+# 特朗普称美国对台政策没变，外交部：两岸统一才是光明大道
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月15日 16:31 来源：中国新闻网 百洞峡旅游区位于黄石市阳新县洋港镇，因一条峡谷贯穿百洞而得名。这里有距今5亿年的寒武纪溶洞奇观、风景秀丽的生态峡谷、巍峨险峻的神兵崖壁、惊险刺激的体验项目、炊烟袅袅的古朴村落，是观赏洞峡景观的奇幻秘境，是考察溶洞成因的研学课堂，也是乐享峡谷休闲生活的世外桃源。百洞峡主洞“山海幻境”全长3600米，由6个大洞厅及众多
+5月18日，外交部发言人郭嘉昆主持例行记者会。有记者提问，美国总统特朗普在15日播出的媒体专访中表示，美国对台政策没有改变，他不希望有人独立，不希望有人说“美国支持我们所以我们独立”，美方无意寻求战争，希望两岸保持冷静。对此，台湾当局称“中华民国是主权独立的民主国家，将继续与美深化合作，确保台海和平稳定不受威胁破坏”。发言人对此有何评论？ “我们注意到特朗普总统的表态。”郭嘉昆
 
 ## 正文
 
-发布时间：2026年06月15日 16:31 来源：中国新闻网 百洞峡旅游区位于黄石市阳新县洋港镇，因一条峡谷贯穿百洞而得名。
+5月18日，外交部发言人郭嘉昆主持例行记者会。
 
-这里有距今5亿年的寒武纪溶洞奇观、风景秀丽的生态峡谷、巍峨险峻的神兵崖壁、惊险刺激的体验项目、炊烟袅袅的古朴村落，是观赏洞峡景观的奇幻秘境，是考察溶洞成因的研学课堂，也是乐享峡谷休闲生活的世外桃源。
+有记者提问，美国总统特朗普在15日播出的媒体专访中表示，美国对台政策没有改变，他不希望有人独立，不希望有人说“美国支持我们所以我们独立”，美方无意寻求战争，希望两岸保持冷静。
 
-百洞峡主洞“山海幻境”全长3600米，由6个大洞厅及众多小洞穴组成，常年恒温17℃，冬暖夏凉。
+对此，台湾当局称“中华民国是主权独立的民主国家，将继续与美深化合作，确保台海和平稳定不受威胁破坏”。
 
-进入洞中，石笋、石柱、石幔等钟乳石景群气势恢宏、各具形态、令人震撼，堪称“地下艺术宫殿”。
+发言人对此有何评论？
 
-在华中地区最大的洞内玻璃观景平台上俯瞰，下方的步道灯宛若银河中闪耀的群星。
+“我们注意到特朗普总统的表态。
 
-有的钟乳石通体透明，玲珑别致，如琼楼玉宇；还有的钟乳石造型各异，金光闪耀，参差交叠，如龙鳞覆盖。
+”郭嘉昆强调，台湾是中国领土不可分割的一部分，从来不是一个国家，今后也绝无可能。
 
-洞内天桥、石林、悬崖、绝壁、峰丛幽谷，仿若走进了寒武纪时代，见证地质历史的演化变迁。
+“台独”与台海和平水火不容，“倚外谋独”是死路一条，两岸统一才是光明大道。
 
-(周星亮） 责任编辑：【罗攀】
+“民进党当局应该认清大势，面对现实，悬崖勒马。
 
 ## 相关推荐
 
-- 2026-06-30 07:52 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-30 08:09 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-30 07:47 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-30 08:10 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-30 08:04 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
-- 2026-06-30 07:54 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-30 07:48 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
-- 2026-06-30 07:55 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-30 07:55 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-30 08:01 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-30 07:57 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
-- 2026-06-30 07:56 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-30 07:52 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-30 07:59 - [德国 传控](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-30 07:54 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-30 08:01 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-30 08:14 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
+- 2026-06-30 07:56 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-30 08:14 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-30 08:06 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-30 07:51 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-30 08:04 - [哈弗茨头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-30 07:56 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-30 08:08 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-30 08:04 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
+- 2026-06-30 07:59 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-30 08:11 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-30 08:16 - [郑钦文温网首轮出局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:51 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.kurohicncr.top/Article/details/85371.shtml)
-- 2026-06-30 08:11 - [德国连续三届世界杯无缘16强](http://www.share.kurohicncr.top/Article/details/1943372820.shtml)
-- 2026-06-30 07:46 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/5374935.shtml)
-- 2026-06-30 07:49 - [日本博主：日本足球真的垃圾](http://www.blog.kurohicncr.top/Article/details/289578295374.shtml)
-- 2026-06-30 07:52 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/589856756.shtml)
-- 2026-06-30 08:08 - [上市央企地产商 两年换了三任董事长](http://www.share.minike.top/Article/details/63961879077.shtml)
-- 2026-06-30 07:54 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.minike.top/Article/details/9284659.shtml)
-- 2026-06-30 07:55 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/286424391631.shtml)
-- 2026-06-30 07:49 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/93336661.shtml)
-- 2026-06-30 07:57 - [董卿父亲报纸上发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/21240178136.shtml)
-- 2026-06-30 08:07 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/6950888.shtml)
-- 2026-06-30 07:56 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/601211389419.shtml)
-- 2026-06-30 07:58 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/58795963606.shtml)
-- 2026-06-30 07:52 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/14207100.shtml)
-- 2026-06-30 07:47 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/24063.shtml)
+- 2026-06-30 07:52 - [世界杯巴拉圭点球淘汰德国](https://www.blog.kurohicncr.top/Article/details/938817.shtml)
+- 2026-06-30 07:57 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/174339889150.shtml)
+- 2026-06-30 08:06 - [赛博朋克边缘行者2预告片](http://www.share.minike.top/Article/details/5741642.shtml)
+- 2026-06-30 07:56 - [巴西半场0比1日本](http://www.share.minike.top/Article/details/68395.shtml)
+- 2026-06-30 08:06 - [周冬雨多次说演不了话剧文城](http://www.blog.minike.top/Article/details/658325.shtml)
+- 2026-06-30 08:05 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/78365129.shtml)
+- 2026-06-30 08:06 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/0607528.shtml)
+- 2026-06-30 07:48 - [问心2神一集鬼三集](https://www.share.minike.top/Article/details/4683509242.shtml)
+- 2026-06-30 08:07 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/36850297.shtml)
+- 2026-06-30 08:12 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/67064753955.shtml)
+- 2026-06-30 08:11 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/942572356.shtml)
+- 2026-06-30 08:10 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/1513349914.shtml)
+- 2026-06-30 08:09 - [这几秒成世界杯最值钱广告位](http://www.blog.minike.top/Article/details/161326504.shtml)
+- 2026-06-30 08:03 - [沙丘](http://www.blog.minike.top/Article/details/713077940.shtml)
+- 2026-06-30 07:56 - [泰山景区回应修建刀片刺绳隔离网](http://www.blog.kurohicncr.top/Article/details/53105837558.shtml)

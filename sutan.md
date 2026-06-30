@@ -1,59 +1,57 @@
-# 张果彤:黄金中线波段看涨
+# PNC银行聘请摩根大通前数字负责人Tim Ferriter，引领零售产品与AI增长战略
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-6月15日，美指上周高位震荡，100关口的争夺战目前空方获胜。从图形来看，99.80以下继续看空美指，如果能跌至99.0以下，短线顶部形态就会形成，继续抓上周一向下的行情，波段目标96.80附近。今日操作建议：99.60附近做空，止损100.00，目标先看向99，再看向98.70，成功跌破后可看向98.10和97.20．若打损，再关注是否要向上创新高。控制仓量，严格止损。 欧元
+新任高管任命 PNC银行宣布，已聘请Tim Ferriter担任其零售银行内产品、数字与增长部门主管。Ferriter将向零售银行主管Alex Overstrom汇报工作，办公地点位于特拉华州威尔明顿。 职责范围 在此新职位上，Ferriter将把零售银行的产品开发、产品管理、数字和支付团队整合为一个统一组织，专注于提供无缝的、以客户为中心的体验以加速增长。他的领导将有助于进一
 
 ## 正文
 
-6月15日，美指上周高位震荡，100关口的争夺战目前空方获胜。
+新任高管任命 PNC银行宣布，已聘请Tim Ferriter担任其零售银行内产品、数字与增长部门主管。
 
-从图形来看，99.80以下继续看空美指，如果能跌至99.0以下，短线顶部形态就会形成，继续抓上周一向下的行情，波段目标96.80附近。
+Ferriter将向零售银行主管Alex Overstrom汇报工作，办公地点位于特拉华州威尔明顿。
 
-今日操作建议：99.60附近做空，止损100.00，目标先看向99，再看向98.70，成功跌破后可看向98.10和97.20．若打损，再关注是否要向上创新高。
+职责范围 在此新职位上，Ferriter将把零售银行的产品开发、产品管理、数字和支付团队整合为一个统一组织，专注于提供无缝的、以客户为中心的体验以加速增长。
 
-控制仓量，严格止损。
+他的领导将有助于进一步推动零售业的重大投资议程，该议程重点是扩大客户获取、提供新能力以及为其产品和体验带来宾至如归的感觉。
 
-欧元如同美指一样，上周在重要波段转折点关口多空争夺，目前看多方获胜。
+职业背景 Ferriter从摩根大通加入PNC，他在摩根大通最近担任数字部门主管，负责Chase移动应用程序、在线银行平台和面向消费者的人工智能战略。
 
-从图形来看，本周在1.1540以上继续看多欧元，抓上周的向上节奏中线行情，若再跌回至1.1540下方，创新低继续大跌的概率才会加大。
+任职期间，他还领导了监督摩根大通消费者和社区银行客户获取平台的产品团队，帮助推动了数字和分支渠道的参与度和增长。
 
-本周操作建议：1.1590附近做多，止 损1.1550，目标先看向1.1650，成功站稳上方后，底部形态会出现，上方可看向1.1720和1.1810，最远可看向1.1920至1.1950区域。
+管理层评价 零售银行主管Alex Overstrom表示，Tim是一位成就卓著的领导者，在大规模构建创新、数据驱动的数字和产品体验方面有着良好的记录，他在产品、数字、人工智能和增长方面的广泛经验将有助于继续提升客户跨渠道与PNC互动的方式。
 
-控制仓量，严格止损。
+Ferriter则表示，PNC拥有清晰的战略和以客户为中心的独特文化，他很高兴能与这支才华横溢的团队合作，提供差异化的体验，促进增长并加强客户关系。
 
 ## 相关推荐
 
-- 2026-06-30 07:58 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-30 08:01 - [点球大战 残酷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
-- 2026-06-30 08:10 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-30 08:09 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
-- 2026-06-30 08:06 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-30 08:10 - [日本博主：日本足球真的垃圾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-30 08:05 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-30 07:59 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-30 07:47 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-30 08:02 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-30 08:04 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-30 08:02 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
-- 2026-06-30 07:48 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-30 07:54 - [巴拉圭进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-30 08:14 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-30 07:53 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-30 08:11 - [郑钦文温网一轮游](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-30 07:56 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-30 07:52 - [日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-30 08:10 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-30 08:05 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-30 07:52 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-30 08:11 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-30 08:15 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:02 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/72895.shtml)
-- 2026-06-30 07:50 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/79181231.shtml)
-- 2026-06-30 08:07 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.kurohicncr.top/Article/details/44913957521.shtml)
-- 2026-06-30 07:50 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.minike.top/Article/details/50259.shtml)
-- 2026-06-30 07:43 - [南北多地暴雨和强对流天气持续](http://www.blog.kurohicncr.top/Article/details/110642.shtml)
-- 2026-06-30 07:54 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/094864.shtml)
-- 2026-06-30 07:52 - [王健林甩卖超80座万达广场](https://www.share.minike.top/Article/details/807764535.shtml)
-- 2026-06-30 08:07 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/13056262619.shtml)
-- 2026-06-30 07:54 - [巴西vs日本首发名单](http://www.blog.kurohicncr.top/Article/details/938830074.shtml)
-- 2026-06-30 07:45 - [内马尔中场休息积极鼓励队友](http://www.blog.minike.top/Article/details/605314.shtml)
-- 2026-06-30 08:09 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/1828381.shtml)
-- 2026-06-30 08:06 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/707021.shtml)
-- 2026-06-30 07:59 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/7600781188.shtml)
-- 2026-06-30 07:49 - [男子醉酒溺水获救后同行人拒协助抬人](https://www.share.minike.top/Article/details/7020785405.shtml)
-- 2026-06-30 07:48 - [董卿父亲报纸上发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/76919524637.shtml)
+- 2026-06-30 07:59 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/2038478317.shtml)
+- 2026-06-30 08:13 - [青春环游记第三季](https://www.blog.minike.top/Article/details/69922257.shtml)
+- 2026-06-30 07:58 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/56583126265.shtml)
+- 2026-06-30 08:03 - [网红峡谷5人溺亡 有人提醒会下雨](https://www.share.minike.top/Article/details/14985.shtml)
+- 2026-06-30 07:55 - [F1奥地利站赛后复盘](https://www.share.kurohicncr.top/Article/details/974073560244.shtml)
+- 2026-06-30 08:03 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/327567883.shtml)
+- 2026-06-30 07:55 - [高考结束了，你会让孩子在家玩手机吗？](http://www.share.kurohicncr.top/Article/details/620967.shtml)
+- 2026-06-30 08:14 - [全球芯片巨头史诗级扩产](http://www.blog.minike.top/Article/details/948895412.shtml)
+- 2026-06-30 08:06 - [大蒜晒外面被路过女子连盆端走](http://www.share.kurohicncr.top/Article/details/96458653048.shtml)
+- 2026-06-30 07:51 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/10504293.shtml)
+- 2026-06-30 08:13 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/6472972.shtml)
+- 2026-06-30 08:03 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/9081418.shtml)
+- 2026-06-30 08:08 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/738615682462.shtml)
+- 2026-06-30 08:15 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/8863387.shtml)
+- 2026-06-30 08:10 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/82213559196.shtml)

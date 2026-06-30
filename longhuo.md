@@ -1,56 +1,61 @@
-# 中国“纯硅”成功突破！我国攻克硅基量子芯片关键材料
+# 涂志辉：一句追问，让中国医生扎根南太平洋
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-记者今天(15日)从中核集团了解到，我国科学家在稳定同位素富集领域取得关键性突破，首次成功实现丰度超过99.99%的硅-28同位素自主量产，产品关键指标达国际先进水平。标志着我国在构建自主可控、协同高效的稳定同位素产业格局方面迈出实质性步伐。硅是一种非金属元素，天然硅中有三种同位素：硅-28、硅-29和硅-30，其中硅-28占比92.2%，这种同位素可极大降低量子计算中的环境噪
+中新网北京5月19日电 题：涂志辉：一句追问，让中国医生扎根南太平洋 中新网记者 门睿 2015年，在广东工作的医生涂志辉受斐济华人社团邀请，前往当地开展义诊，正是这次为期一周的志愿活动改变了他的人生轨迹。 放弃稳定的工作，远离家人，只身前往几乎没有行业基础的陌生国家……自那时起，涂志辉离开故乡，在这个常年处在夏季的南太平洋中心岛国，诊疗、科普、教学、做志愿、参与救援，一步步将
 
 ## 正文
 
-记者今天(15日)从中核集团了解到，我国科学家在稳定同位素富集领域取得关键性突破，首次成功实现丰度超过99.99%的硅-28同位素自主量产，产品关键指标达国际先进水平。
+中新网北京5月19日电 题：涂志辉：一句追问，让中国医生扎根南太平洋 中新网记者 门睿 2015年，在广东工作的医生涂志辉受斐济华人社团邀请，前往当地开展义诊，正是这次为期一周的志愿活动改变了他的人生轨迹。
 
-标志着我国在构建自主可控、协同高效的稳定同位素产业格局方面迈出实质性步伐。
+放弃稳定的工作，远离家人，只身前往几乎没有行业基础的陌生国家……自那时起，涂志辉离开故乡，在这个常年处在夏季的南太平洋中心岛国，诊疗、科普、教学、做志愿、参与救援，一步步将中医行业带进这座热带海岛，引导其扎根生长。
 
-硅是一种非金属元素，天然硅中有三种同位素：硅-28、硅-29和硅-30，其中硅-28占比92.2%，这种同位素可极大降低量子计算中的环境噪声干扰，被誉为“世界上最纯净的硅”。
+谈及十余年来的得与失，南太平洋中医学院院长涂志辉告诉中国侨网“华人故事”栏目：“我从来没有后悔过当初的决定。
 
-而天然硅中的另一种稳定同位素——硅-29会对量子计算产生干扰。
+” 帮人亦是助己 涂志辉出生于广东一个中医世家，自小耳濡目染父亲行医，大学阶段也选择就读医学专业。
 
-因此，要把干扰降到最低，就必须将硅-28丰度从92.2%提高到99.99%以上。
+“父母从小教育我：‘施比受更有福，要乐于帮助弱势群体，做一个正直、干净的人’。
 
-中核集团核工业理化工程研究院院长姜宏民介绍，提纯硅-28，不是靠物质反应把硅-29变成硅-28，而是像筛豆子一样把三种同位素分离开——硅-28富集到一侧，硅-29和硅-30到另一侧。
+”涂志辉回忆说，言传身教下，他自大学时期开始积极参与公益志愿活动，在其中感受到一种实现自身价值的幸福，他说“帮人亦是助己”。
 
-总量不变，各组分丰度却变了。
+在取得西医全科学士、中医学硕士学位后，涂志辉进入广州一家医院，成为一名医生。
 
-据介绍，除量子计算外，超高丰度硅-28在先进制程半导体、高端导航、计量基准等前沿领域也有重要应用前景。
+工作之余，他加入广州市青年志愿者协会，担任医疗服务队队长，继续参与志愿服务。
 
 ## 相关推荐
 
-- 2026-06-30 07:49 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-30 07:42 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-30 08:06 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
-- 2026-06-30 07:43 - [老外对中国cosplay竟这样评价…](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-30 08:03 - [田中碧失误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-30 07:55 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-30 08:03 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
-- 2026-06-30 08:01 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-30 07:58 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-30 08:01 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-30 08:05 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-30 08:03 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-30 08:06 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-30 07:53 - [点球大战 残酷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
+- 2026-06-30 08:09 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-30 08:04 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-30 08:05 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-30 08:04 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-30 07:54 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-30 07:59 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-30 08:07 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-30 08:06 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-30 07:48 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-30 08:10 - [德国淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-30 08:08 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:46 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/436614.shtml)
-- 2026-06-30 07:42 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/1259597704.shtml)
-- 2026-06-30 08:04 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/95789284806.shtml)
-- 2026-06-30 08:00 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/46953451.shtml)
-- 2026-06-30 07:48 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.minike.top/Article/details/711356091.shtml)
-- 2026-06-30 07:44 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](http://www.share.minike.top/Article/details/82600508.shtml)
-- 2026-06-30 08:10 - [曝老詹对自由市场态度与以往截然不同](https://www.blog.kurohicncr.top/Article/details/64902.shtml)
-- 2026-06-30 07:52 - [藤森庆子赢得秘鲁总统选举](https://www.share.minike.top/Article/details/51594.shtml)
-- 2026-06-30 08:03 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/3198886580.shtml)
-- 2026-06-30 07:43 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.share.minike.top/Article/details/47121758404.shtml)
-- 2026-06-30 07:47 - [王濛回复黄灿灿](https://www.blog.minike.top/Article/details/50462.shtml)
-- 2026-06-30 07:47 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/307025248743.shtml)
-- 2026-06-30 08:02 - [《男人至死是傻得儿》](http://www.share.minike.top/Article/details/207587107068.shtml)
-- 2026-06-30 08:00 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.share.minike.top/Article/details/18376646284.shtml)
-- 2026-06-30 08:11 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/669123307731.shtml)
+- 2026-06-30 07:51 - [本科毕业生为何涌入专科学校](https://www.blog.minike.top/Article/details/44307665884.shtml)
+- 2026-06-30 08:11 - [大蒜晒外面被路过女子连盆端走](https://www.share.minike.top/Article/details/76972623.shtml)
+- 2026-06-30 07:50 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://www.share.minike.top/Article/details/086571194.shtml)
+- 2026-06-30 08:01 - [巴西2比1日本](http://www.share.minike.top/Article/details/971609901046.shtml)
+- 2026-06-30 07:48 - [巴拉圭先进球了](https://www.blog.minike.top/Article/details/925741.shtml)
+- 2026-06-30 07:48 - [开电动汽车真的很省钱吗？](https://www.share.minike.top/Article/details/21416581.shtml)
+- 2026-06-30 07:55 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/0998690685.shtml)
+- 2026-06-30 07:50 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/53571452.shtml)
+- 2026-06-30 08:07 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/22321.shtml)
+- 2026-06-30 08:05 - [勇士续约波尔津吉斯](http://www.share.kurohicncr.top/Article/details/23289816604.shtml)
+- 2026-06-30 08:17 - [苗族银饰](https://www.share.kurohicncr.top/Article/details/898679015.shtml)
+- 2026-06-30 08:07 - [德国队连续三届世界杯无缘16强](https://www.blog.minike.top/Article/details/765920434260.shtml)
+- 2026-06-30 08:14 - [美股](http://www.share.minike.top/Article/details/85931064381.shtml)
+- 2026-06-30 08:12 - [女子遭下药退赔偿拟追刑责](https://www.share.kurohicncr.top/Article/details/33197017987.shtml)
+- 2026-06-30 07:59 - [又一美国科技巨头转向中国大模型](https://www.blog.kurohicncr.top/Article/details/2865765.shtml)

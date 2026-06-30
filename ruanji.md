@@ -1,61 +1,60 @@
-# 《清澈的爱，只为中国——新时代卫国戍边英雄陈祥榕的故事》首发
+# 万名健身爱好者共赴室内极限运动 是花钱找虐还是社交货币
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-中新网宁德6月15日电 (记者 叶茂)《清澈的爱，只为中国——新时代卫国戍边英雄陈祥榕的故事》新书首发仪式15日在福建省宁德市屏南县举行，进一步推动全社会尤其是广大青少年铭记英雄事迹、汲取精神养分、厚植家国情怀。 “英雄从未远去，精神生生不息。”屏南县委常委、宣传部部长韦孝珠表示，作为英雄的故乡，屏南县将以此次新书发布为契机，大力弘扬英雄精神，常态化开展英烈宣讲、红色教育、致敬
+推动雪橇机，拉起划船机，扛起沙包负重前行，近万名参赛者在赛道上汗水飞溅，于全场观众的助威声中全力冲刺。上周末，2026 HYROX健身跑上海站在世博展览馆激情开赛(见右图，代杨龙 摄)，场馆的每一处角落都被滚烫的运动荷尔蒙填满。继骑行、攀岩、陆冲、匹克球之后，HYROX成为又一个现象级运动热潮。这项起源于德国的综合体能赛事，不仅以高强度、高观赏性的比拼点燃运动热情，更以强大的辐
 
 ## 正文
 
-中新网宁德6月15日电 (记者 叶茂)《清澈的爱，只为中国——新时代卫国戍边英雄陈祥榕的故事》新书首发仪式15日在福建省宁德市屏南县举行，进一步推动全社会尤其是广大青少年铭记英雄事迹、汲取精神养分、厚植家国情怀。
+推动雪橇机，拉起划船机，扛起沙包负重前行，近万名参赛者在赛道上汗水飞溅，于全场观众的助威声中全力冲刺。
 
-“英雄从未远去，精神生生不息。
+上周末，2026 HYROX健身跑上海站在世博展览馆激情开赛(见右图，代杨龙 摄)，场馆的每一处角落都被滚烫的运动荷尔蒙填满。
 
-”屏南县委常委、宣传部部长韦孝珠表示，作为英雄的故乡，屏南县将以此次新书发布为契机，大力弘扬英雄精神，常态化开展英烈宣讲、红色教育、致敬缅怀系列活动，让英雄事迹进校园、进课堂、进人心。
+继骑行、攀岩、陆冲、匹克球之后，HYROX成为又一个现象级运动热潮。
 
-2001年出生于屏南县的陈祥榕，于2019年应征入伍，戍守边疆。
+这项起源于德国的综合体能赛事，不仅以高强度、高观赏性的比拼点燃运动热情，更以强大的辐射力带动体育消费、城市文旅、品牌展示全面升温，成为上海文商旅体展融合的全新增长点。
 
-2020年6月15日，为保卫国土，陈祥榕和战友们英勇战斗，光荣牺牲，被中央军委追授一等功。
+在“找虐”中体验运动乐趣 HYROX，全称是Hybrid Fitness Race，即混合健身竞速赛。
 
-牺牲时，陈祥榕不到19周岁。
+它全程由8组“1km跑步+1项功能训练”组成，包括滑雪机、推雪橇车、拉雪橇车、波比跳远、划船机、农夫行走、负重箭步蹲和投掷药球，涵盖有氧耐力、力量和爆发力等体能维度。
 
-“清澈的爱，只为中国”，陈祥榕留下这句深情告白。
+2017年，首届HYROX比赛在德国汉堡举行，不设关门时间，不设专业门槛，面向大众开放。
 
-现场，全体人员共同观看陈祥榕烈士专题纪录片，循着影像回望英雄足迹，重温这位闽东农家少年矢志报国、戍边守疆的动人征程，共同缅怀这位以青春热血捍卫国土的年轻英雄。
+这样的基本赛制沿用至今，从健身新手到资深运动员，从单人挑战到双人、四人接力组合，所有人都能找到属于自己的挑战目标。
 
 ## 相关推荐
 
-- 2026-06-30 07:48 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-30 07:52 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-30 07:54 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
-- 2026-06-30 07:49 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
-- 2026-06-30 08:08 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-30 07:50 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-30 07:56 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-30 07:59 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-30 07:45 - [女子遭下药退赔偿拟追刑责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-30 07:55 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
-- 2026-06-30 07:55 - [德国4比5巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
-- 2026-06-30 07:49 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-30 07:49 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-30 07:51 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
-- 2026-06-30 07:59 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-30 08:07 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-30 08:08 - [点球大战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-30 07:49 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-30 08:04 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-30 07:58 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-30 08:14 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-30 07:52 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-30 07:51 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-30 07:50 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-30 07:52 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-30 08:15 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-30 08:04 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-30 08:05 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-30 08:06 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:47 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/33934806.shtml)
-- 2026-06-30 08:04 - [毒液2](https://www.share.minike.top/Article/details/6368554278.shtml)
-- 2026-06-30 07:55 - [巴拉圭进球](https://www.share.kurohicncr.top/Article/details/868981155699.shtml)
-- 2026-06-30 08:11 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/1472565.shtml)
-- 2026-06-30 07:52 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/51520096611.shtml)
-- 2026-06-30 08:05 - [急先锋](https://www.share.kurohicncr.top/Article/details/3018198618.shtml)
-- 2026-06-30 07:43 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/821434263.shtml)
-- 2026-06-30 07:47 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/51972.shtml)
-- 2026-06-30 08:00 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/2879642.shtml)
-- 2026-06-30 07:44 - [巴西vs日本](http://www.share.kurohicncr.top/Article/details/16721.shtml)
-- 2026-06-30 08:10 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.kurohicncr.top/Article/details/4103190951.shtml)
-- 2026-06-30 08:05 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/914953292454.shtml)
-- 2026-06-30 07:46 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/2901582154.shtml)
-- 2026-06-30 07:54 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/44842.shtml)
-- 2026-06-30 08:02 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.share.kurohicncr.top/Article/details/112567.shtml)
+- 2026-06-30 07:53 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/193471356424.shtml)
+- 2026-06-30 07:50 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/861068.shtml)
+- 2026-06-30 07:57 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.kurohicncr.top/Article/details/793086261.shtml)
+- 2026-06-30 08:07 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/513298.shtml)
+- 2026-06-30 07:55 - [恋与深空道歉声明](https://www.share.minike.top/Article/details/7912918122.shtml)
+- 2026-06-30 07:59 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.kurohicncr.top/Article/details/8387131607.shtml)
+- 2026-06-30 07:55 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/5727346070.shtml)
+- 2026-06-30 08:06 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/7256413.shtml)
+- 2026-06-30 08:13 - [日本半场1比0领先巴西](http://www.share.minike.top/Article/details/6065933.shtml)
+- 2026-06-30 07:52 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/233586.shtml)
+- 2026-06-30 08:06 - [日本 高位逼抢](https://www.share.kurohicncr.top/Article/details/02971952562.shtml)
+- 2026-06-30 08:00 - [田中碧失误](http://www.share.kurohicncr.top/Article/details/07590.shtml)
+- 2026-06-30 08:17 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/7285694183.shtml)
+- 2026-06-30 07:55 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.blog.minike.top/Article/details/59504.shtml)
+- 2026-06-30 07:51 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/677184902.shtml)

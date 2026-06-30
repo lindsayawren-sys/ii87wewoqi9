@@ -1,57 +1,56 @@
-# 爬土路、挖水晶……流量争夺下研学市场亟待规范
+# 不是“拉肚子”那么简单：专家解读炎症性肠病防治
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-无证经营、安全失防、生态破坏，亲子研学勿被流量裹挟 沙漠徒步、海岛生存、探洞冒险……近年来，我国未成年人研学游市场呈现爆发式增长，部分研学机构“野蛮生长”，各类刺激惊险的户外研学项目屡见不鲜，不仅存在安全隐患，还对当地生态环境造成了破坏。无证经营、安全失防、生态破坏，亲子研学市场乱象丛生，亟待规范。 研学机构爆发式增长带来安全风险 近期，个别研学机构以“自然教育”“研学团”等名
+中新网沈阳5月19日电 (王涵 禹瑞斋)5月19日是“世界炎症性肠病日”。近年来，炎症性肠病(IBD)在国内发病率持续攀升。近日，中国医科大学附属盛京医院第一消化内科主任田丰接受采访，就IBD的认知与防治进行专业解读，呼吁公众打破“拉肚子”的认知误区，做到早诊早治。田丰表示，IBD不是普通的肠胃炎，而是包括溃疡性结肠炎和克罗恩病在内的严重肠道毁损性疾病。其中，克罗恩病对青少年影
 
 ## 正文
 
-无证经营、安全失防、生态破坏，亲子研学勿被流量裹挟 沙漠徒步、海岛生存、探洞冒险……近年来，我国未成年人研学游市场呈现爆发式增长，部分研学机构“野蛮生长”，各类刺激惊险的户外研学项目屡见不鲜，不仅存在安全隐患，还对当地生态环境造成了破坏。
+中新网沈阳5月19日电 (王涵 禹瑞斋)5月19日是“世界炎症性肠病日”。
 
-无证经营、安全失防、生态破坏，亲子研学市场乱象丛生，亟待规范。
+近年来，炎症性肠病(IBD)在国内发病率持续攀升。
 
-研学机构爆发式增长带来安全风险 近期，个别研学机构以“自然教育”“研学团”等名义组团前往广东省广州市黄埔区暹岗大山“采石挖矿”，导致山体多处点位零星林地被破坏，树根裸露，地表出现孔洞。
+近日，中国医科大学附属盛京医院第一消化内科主任田丰接受采访，就IBD的认知与防治进行专业解读，呼吁公众打破“拉肚子”的认知误区，做到早诊早治。
 
-社交媒体上有大量关于“暹岗大山挖水晶”的攻略信息，如“广州亲子自然教育，广州1小时直达的山野矿坑”“广州免费亲子徒步团，冲暹岗大山，挖水晶、爬土路”等，均以野路进山为主。
+田丰表示，IBD不是普通的肠胃炎，而是包括溃疡性结肠炎和克罗恩病在内的严重肠道毁损性疾病。
 
-社交媒体上发布的图片显示，参加该徒步团的孩子，有的拿着工具敲打、挖泥土，有的全身趴在泥坑里。
+其中，克罗恩病对青少年影响尤甚，患者常面临着腹痛、腹泻、消瘦、贫血，严重的营养不良等困境，对工作和生活造成极大困扰。
 
-地质专家提醒，这类无序开挖不仅直接破坏山林原生植被，还会改变山体原有结构，大幅增加滑坡、塌方等地质灾害风险。
+针对IBD发病率攀升的原因，田丰指出，这与国人生活方式变迁密切相关。
 
-一旦发生意外，参与活动人员的自身安全也难以得到保障。
+油炸等过加工食品的普及，都与发病率呈正相关。
 
-“我们都是在微信群里报名的，这种一日团，参加的大多是小学生，且需要家人陪伴。
+此外，现代人生活“过度洁净”使儿童肠道免疫系统在发育过程中缺乏必要的病原微生物和寄生虫的刺激从而导致发育异常，是IBD的发生率明显升高的重要原因。
 
 ## 相关推荐
 
-- 2026-06-30 07:45 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
-- 2026-06-30 07:59 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-30 07:47 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
-- 2026-06-30 07:47 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-30 07:53 - [郑钦文温网一轮游](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-30 08:06 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
-- 2026-06-30 07:48 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-30 07:52 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-30 08:02 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-30 07:45 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-30 07:59 - [马耳他著名拱门坍塌致中国男子身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-30 08:00 - [莫兰特转投开拓者效力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
+- 2026-06-30 07:53 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-30 08:10 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-30 08:11 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
+- 2026-06-30 07:56 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-30 07:52 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-30 08:04 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-30 07:51 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-30 07:57 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-30 08:08 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:54 - [网瘾賊大的阿嬷](https://www.blog.kurohicncr.top/Article/details/9930447.shtml)
-- 2026-06-30 07:56 - [巴西2比1日本](https://www.blog.kurohicncr.top/Article/details/061197100.shtml)
-- 2026-06-30 07:56 - [武磊：日本队有能力跟任何强队抗衡](http://www.share.minike.top/Article/details/7446206.shtml)
-- 2026-06-30 07:55 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/542303.shtml)
-- 2026-06-30 07:47 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/17162183761.shtml)
-- 2026-06-30 08:09 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/811716748523.shtml)
-- 2026-06-30 08:03 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/10249675255.shtml)
-- 2026-06-30 07:56 - [巴拉圭率先破门](https://www.blog.minike.top/Article/details/5947620296.shtml)
-- 2026-06-30 08:05 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/62582.shtml)
-- 2026-06-30 08:04 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/71091.shtml)
-- 2026-06-30 08:03 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/459448.shtml)
-- 2026-06-30 08:04 - [曝灰熊将莫兰特交易至开拓者](http://www.blog.kurohicncr.top/Article/details/69201.shtml)
-- 2026-06-30 07:44 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/042623.shtml)
-- 2026-06-30 07:48 - [袁咏仪张智霖儿子寸头近照](http://www.share.kurohicncr.top/Article/details/79372890.shtml)
-- 2026-06-30 07:50 - [普京间接喊话特朗普有何考量](http://www.share.kurohicncr.top/Article/details/598226347124.shtml)
+- 2026-06-30 08:06 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/567725114.shtml)
+- 2026-06-30 08:14 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/68613.shtml)
+- 2026-06-30 08:15 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.kurohicncr.top/Article/details/56595.shtml)
+- 2026-06-30 08:09 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/8042039257.shtml)
+- 2026-06-30 08:00 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.kurohicncr.top/Article/details/8687407595.shtml)
+- 2026-06-30 08:00 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/95046280269.shtml)
+- 2026-06-30 08:17 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](http://www.blog.minike.top/Article/details/19674.shtml)
+- 2026-06-30 07:55 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/951994342891.shtml)
+- 2026-06-30 07:54 - [高考结束了，你会让孩子在家玩手机吗？](http://www.blog.kurohicncr.top/Article/details/94624481557.shtml)
+- 2026-06-30 08:01 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/9731022150.shtml)
+- 2026-06-30 08:03 - [泰山建135公里刀片刺绳隔离网](http://www.share.minike.top/Article/details/58532.shtml)
+- 2026-06-30 08:01 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/1009309442.shtml)
+- 2026-06-30 07:57 - [巴西替补奇兵读秒绝杀](https://www.blog.kurohicncr.top/Article/details/19554718071.shtml)
+- 2026-06-30 08:02 - [田中碧失误](https://www.blog.minike.top/Article/details/8619678.shtml)
+- 2026-06-30 07:51 - [大蒜晒外面被路过女子连盆端走](https://www.blog.kurohicncr.top/Article/details/478143.shtml)

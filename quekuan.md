@@ -1,59 +1,57 @@
-# 文远知行-W盘中涨超20% 传公司正在尝试分拆Robovan业务进行独立融资
+# 贵州“80后”辞职建傩戏博物馆 让沉睡的藏品“活”起来
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-文远知行-W（00800）盘中涨超20%，截至发稿，股价上涨13.55%，现报18.86元，成交额4036.46万港元。 据每日经济新闻报道，有消息称文远知行正在尝试分拆其Robovan（自动驾驶货运车）业务进行独立融资，该业务估值已达4亿美元（约合人民币27亿元）。据悉，文远知行于2025年2月正式发布Robovan产品，并已在广州获得道路测试牌照并开启路测。对于上述消息，记
+中新网贵州德江5月18日电 (记者 周燕玲)时下，走进贵州省铜仁市德江傩堂戏博物馆，仿佛穿越千年时光。馆内展出的300多个傩面具神态各异，有的威严、有的俏皮，最老的来自明代。展厅里还有色彩鲜艳的傩戏服装、泛黄的手抄古本以及各种道具。每逢周六午后，非遗代表性传承人便会戴上傩面、敲起锣鼓，让沉睡的藏品在唱腔与舞步中“活”过来。 “80后”冉勇是这家博物馆馆长，因为热爱傩文化，他自筹
 
 ## 正文
 
-文远知行-W（00800）盘中涨超20%，截至发稿，股价上涨13.55%，现报18.86元，成交额4036.46万港元。
+中新网贵州德江5月18日电 (记者 周燕玲)时下，走进贵州省铜仁市德江傩堂戏博物馆，仿佛穿越千年时光。
 
-据每日经济新闻报道，有消息称文远知行正在尝试分拆其Robovan（自动驾驶货运车）业务进行独立融资，该业务估值已达4亿美元（约合人民币27亿元）。
+馆内展出的300多个傩面具神态各异，有的威严、有的俏皮，最老的来自明代。
 
-据悉，文远知行于2025年2月正式发布Robovan产品，并已在广州获得道路测试牌照并开启路测。
+展厅里还有色彩鲜艳的傩戏服装、泛黄的手抄古本以及各种道具。
 
-对于上述消息，记者向文远知行方面求证，一位内部人士回应称：“暂无消息分享。
+每逢周六午后，非遗代表性传承人便会戴上傩面、敲起锣鼓，让沉睡的藏品在唱腔与舞步中“活”过来。
 
-” 值得注意的是，公司将在斯洛伐克全面部署旗下L4级自动驾驶产品矩阵。
+“80后”冉勇是这家博物馆馆长，因为热爱傩文化，他自筹资金建了这座建筑面积3000平方米的博物馆。
 
-项目先在布拉迪斯拉发启动测试，后扩展至科希策及高塔特拉山区，部分车型计划2026年内实现公开商业化运营，满足欧盟法规后推进纯无人运营。
+傩戏是中国最古老的戏种之一，在“傩戏之乡”德江，这里的傩堂戏已有数千年历史，2006年被列入首批国家级非物质文化遗产名录。
 
-责任编辑：卢昱君
+从事民俗文化研究的冉勇在工作中发现，大量傩文化老物件散落在民间，随着老艺人离世，有的被付之一炬、有的沦为灶膛柴火，“如果没人管，这是我们文化的损失。
+
+” 于是，他辞去了“公职”，走村串寨搜寻傩面具、古抄本、服饰道具等，馆内最贵的一件藏品花了6万多元，是一张桥案，绘画精美，人物故事丰富。
 
 ## 相关推荐
 
-- 2026-06-30 07:52 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-30 07:54 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-30 07:54 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-30 07:44 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
-- 2026-06-30 07:45 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
-- 2026-06-30 07:56 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
-- 2026-06-30 08:00 - [王濛回复黄灿灿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-30 08:01 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-30 07:59 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
-- 2026-06-30 07:52 - [金鹰奖视后提名预测](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-30 08:00 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-30 07:57 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-30 08:09 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-30 07:59 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-30 07:52 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-30 07:52 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-30 07:59 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-30 08:14 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-30 08:04 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-30 08:12 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-30 07:59 - [莫兰特被交易到开拓者](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
+- 2026-06-30 07:51 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-30 08:16 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-30 08:01 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-30 08:10 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-30 07:53 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:02 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/673119844.shtml)
-- 2026-06-30 07:49 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/803816219.shtml)
-- 2026-06-30 07:44 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/955617556368.shtml)
-- 2026-06-30 08:06 - [极限挑战第一季](http://www.share.minike.top/Article/details/7239566.shtml)
-- 2026-06-30 07:44 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/41544.shtml)
-- 2026-06-30 07:46 - [时光音乐会](https://www.blog.minike.top/Article/details/683144662.shtml)
-- 2026-06-30 07:49 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/0078615.shtml)
-- 2026-06-30 07:46 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.share.kurohicncr.top/Article/details/8805777898.shtml)
-- 2026-06-30 07:54 - [库尼亚赛后伸五指嘲讽日本](https://www.blog.minike.top/Article/details/5280137226.shtml)
-- 2026-06-30 07:43 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/6126384.shtml)
-- 2026-06-30 07:47 - [世界杯](http://www.blog.kurohicncr.top/Article/details/035180170.shtml)
-- 2026-06-30 08:05 - [武磊：巴西队赢的并不轻松](http://www.share.minike.top/Article/details/57622.shtml)
-- 2026-06-30 08:06 - [“柠檬茶能换怀表？”](https://www.blog.minike.top/Article/details/7607085.shtml)
-- 2026-06-30 07:47 - [点球大战 残酷](https://www.share.minike.top/Article/details/5737794.shtml)
-- 2026-06-30 07:44 - [日本半场1比0领先巴西](https://www.share.kurohicncr.top/Article/details/117759530874.shtml)
+- 2026-06-30 07:48 - [补时绝杀 巴西2-1淘汰日本](https://www.share.kurohicncr.top/Article/details/9017738074.shtml)
+- 2026-06-30 07:52 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.kurohicncr.top/Article/details/812768961.shtml)
+- 2026-06-30 08:01 - [巴拉圭点球大战淘汰德国进16强](http://www.share.minike.top/Article/details/7535311213.shtml)
+- 2026-06-30 08:05 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/8157419.shtml)
+- 2026-06-30 08:02 - [张帅时隔四年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/00045368.shtml)
+- 2026-06-30 08:01 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/50237710493.shtml)
+- 2026-06-30 08:13 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/519554728198.shtml)
+- 2026-06-30 07:48 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/86586050.shtml)
+- 2026-06-30 07:54 - [森保一致歉：世界第一目标没能实现](https://www.blog.kurohicncr.top/Article/details/621477.shtml)
+- 2026-06-30 08:06 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/4340614.shtml)
+- 2026-06-30 07:50 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/889435732.shtml)
+- 2026-06-30 07:57 - [郑钦文温网首轮出局](http://www.blog.kurohicncr.top/Article/details/29183056.shtml)
+- 2026-06-30 08:11 - [徐亮怒斥世界杯踢假球](http://www.share.minike.top/Article/details/88168382.shtml)
+- 2026-06-30 08:02 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/62290190.shtml)
+- 2026-06-30 08:11 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/2982916.shtml)

@@ -1,60 +1,52 @@
-# 抢滩万亿市场 太空竞争转向综合服务输出
+# 马斯克预计今年美国将广泛使用自动驾驶汽车
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-6月14日，“中国正在太空布下一盘大棋”的话题登上微博热搜。同时，北京、天津、上海及杭州等地近期也加速布局太空算力。据前瞻产业研究院预测，2025—2030年，中国商业航天行业将进入发展黄金期，预计2030年中国市场规模将达到8万亿元。有关分析认为，我国多地集中发力太空算力，不仅是为了破解地面算力发展遇到的现实制约，向太空拓展算力空间，更是为了抢占未来科技与产业战略制高点，天基
+埃隆·马斯克周一表示，他预计今年晚些时候，无需人类驾驶的自动驾驶汽车将在美国更加普及。 马斯克通过视频连线在特拉维夫举行的“智能出行峰会”上发言时称，得克萨斯州的三个城市已有无人驾驶汽车在没有安全监视员的情况下运行，并补充说今年这一模式将扩展至全美。 “五年后，甚至十年后……大概90%的行驶里程都将由自动驾驶汽车中的人工智能来完成，”他说，“因此，十年后，亲自驾驶汽车将成为一种
 
 ## 正文
 
-6月14日，“中国正在太空布下一盘大棋”的话题登上微博热搜。
+埃隆·马斯克周一表示，他预计今年晚些时候，无需人类驾驶的自动驾驶汽车将在美国更加普及。
 
-同时，北京、天津、上海及杭州等地近期也加速布局太空算力。
+马斯克通过视频连线在特拉维夫举行的“智能出行峰会”上发言时称，得克萨斯州的三个城市已有无人驾驶汽车在没有安全监视员的情况下运行，并补充说今年这一模式将扩展至全美。
 
-据前瞻产业研究院预测，2025—2030年，中国商业航天行业将进入发展黄金期，预计2030年中国市场规模将达到8万亿元。
+“五年后，甚至十年后……大概90%的行驶里程都将由自动驾驶汽车中的人工智能来完成，”他说，“因此，十年后，亲自驾驶汽车将成为一种相当小众的行为。
 
-有关分析认为，我国多地集中发力太空算力，不仅是为了破解地面算力发展遇到的现实制约，向太空拓展算力空间，更是为了抢占未来科技与产业战略制高点，天基算力网络关乎数字基础设施自主可控，影响未来产业发展格局。
-
-随着传统的卫星制造、火箭发射等硬件业务逐步走向成熟，增长空间趋于平稳，依托在轨资源开展的数据处理、智能计算、天地互联等新业态，连接起上下游众多产业，能够持续释放增长潜力，成为拉动市场扩容的核心动力。
-
-多地加码太空算力 北京太空智算研究院近日在北京经济技术开发区注册成立。
-
-该院将围绕星载算力芯片、星间激光通信、太空能源与散热、天地一体化网络及空间安全标准等方向开展关键共性技术攻关，搭建覆盖从技术研发、中试验证、在轨测试到成果转化的全链条服务体系，并计划于2028年前完成首发试验星研制与发射。
-
-北京市首个太空算力产业创新中心也于近日宣布落地海淀区，该中心重点布局六大核心攻关方向，涵盖太空原生算力芯片、高性能太空算力载荷、卫星平台与地面验证系统、太空专用大模型、天地一体通信测控组网、太空算力服务运营，全面贯通“芯片—硬件—平台—智能—网络—应用”全栈产业链条。
+”责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 08:10 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-30 08:09 - [日本球员说被绝杀非常不甘心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-30 07:54 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-30 08:09 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
-- 2026-06-30 08:01 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
-- 2026-06-30 07:49 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-30 07:59 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-30 08:05 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-30 07:57 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-30 08:07 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-30 08:01 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
-- 2026-06-30 07:46 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-30 08:02 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-30 08:08 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-30 07:57 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-30 08:12 - [网友写差评被店家“挂”门口避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-30 08:15 - [4000美元是黄金新一轮下跌的开始吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-30 07:49 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-30 08:06 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-30 07:53 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-30 07:59 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-30 08:07 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-30 08:03 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-30 08:08 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-30 07:59 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
+- 2026-06-30 08:01 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-30 08:14 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-30 07:58 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:57 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/37189397.shtml)
-- 2026-06-30 07:55 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/50816973656.shtml)
-- 2026-06-30 07:58 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/67677991052.shtml)
-- 2026-06-30 07:58 - [这种关系可能正在悄悄“催老”你](https://www.blog.kurohicncr.top/Article/details/8638865.shtml)
-- 2026-06-30 07:55 - [日本五次世界杯淘汰赛全败](http://www.share.kurohicncr.top/Article/details/532340799.shtml)
-- 2026-06-30 07:57 - [卡塞米罗头球破门 巴西扳平日本](https://www.share.minike.top/Article/details/119810.shtml)
-- 2026-06-30 07:50 - [免费试吃发差评被店家挂店门避雷](http://www.share.minike.top/Article/details/080127.shtml)
-- 2026-06-30 08:10 - [德国 传控](https://www.share.kurohicncr.top/Article/details/83042.shtml)
-- 2026-06-30 08:08 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/07069.shtml)
-- 2026-06-30 07:52 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.minike.top/Article/details/26715033933.shtml)
-- 2026-06-30 07:53 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/828482.shtml)
-- 2026-06-30 07:44 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.minike.top/Article/details/60067.shtml)
-- 2026-06-30 08:10 - [高质量发展看新疆](http://www.share.minike.top/Article/details/0421239.shtml)
-- 2026-06-30 07:50 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/32671161.shtml)
-- 2026-06-30 07:46 - [中国新一轮出口管制直指日本命脉](https://www.share.kurohicncr.top/Article/details/00864927768.shtml)
+- 2026-06-30 07:51 - [巴拉圭先进球了](https://www.blog.kurohicncr.top/Article/details/6752952779.shtml)
+- 2026-06-30 08:15 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/08748655933.shtml)
+- 2026-06-30 08:10 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/83723622452.shtml)
+- 2026-06-30 08:17 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/20752.shtml)
+- 2026-06-30 08:05 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/503369732039.shtml)
+- 2026-06-30 08:03 - [詹姆斯 勇士](http://www.share.kurohicncr.top/Article/details/156650.shtml)
+- 2026-06-30 08:10 - [巴西醒醒 这是淘汰赛](https://www.blog.minike.top/Article/details/234382.shtml)
+- 2026-06-30 07:55 - [一见倾心](http://www.share.kurohicncr.top/Article/details/25645104908.shtml)
+- 2026-06-30 08:09 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/45593041570.shtml)
+- 2026-06-30 08:11 - [曝灰熊将莫兰特交易至开拓者](https://www.blog.minike.top/Article/details/35348.shtml)
+- 2026-06-30 07:55 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/8490620.shtml)
+- 2026-06-30 07:55 - [全球芯片巨头史诗级扩产](http://www.share.minike.top/Article/details/9233847712.shtml)
+- 2026-06-30 08:06 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/056229.shtml)
+- 2026-06-30 08:08 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/6429242.shtml)
+- 2026-06-30 08:17 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/322174.shtml)

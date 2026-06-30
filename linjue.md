@@ -1,57 +1,56 @@
-# 天域半导体午后涨超9% 公司为国内最大自制碳化硅外延片制造商
+# 自费流感疫苗也可医保报销了
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-天域半导体（02658）盘中涨超10%，截至发稿，股价上涨9.11%，现报49.10港元，成交额887.36万港元。 进入2026年，英飞凌年内二度涨价率先打响涨价第一枪，意法半导体等国际巨头密集跟进，国产衬底与器件厂商纷纷调价，碳化硅行业开启“全面涨价”模式。产业研究机构InSemi Research高级分析师洪源证实，当前碳化硅衬底片头部厂商如天岳先进、天科合达的产能利用率
+“疫苗不报销”将成为过去式。近日，允许医保个账支付自费疫苗的全国性文件终于出炉，首个惠及的苗种是流感疫苗。 国家医保局办公室、财政部办公厅5月19日发布《关于进一步加强定点零售药店职工基本医疗保险个人账户使用监督管理的通知》，明确建立定点零售药店职工医保个人账户支付白名单制度。与此同时，此次文件首次以部委发文的形式明确“允许使用职工医保个人账户支付在定点医疗机构发生的流感疫苗费
 
 ## 正文
 
-天域半导体（02658）盘中涨超10%，截至发稿，股价上涨9.11%，现报49.10港元，成交额887.36万港元。
+“疫苗不报销”将成为过去式。
 
-进入2026年，英飞凌年内二度涨价率先打响涨价第一枪，意法半导体等国际巨头密集跟进，国产衬底与器件厂商纷纷调价，碳化硅行业开启“全面涨价”模式。
+近日，允许医保个账支付自费疫苗的全国性文件终于出炉，首个惠及的苗种是流感疫苗。
 
-产业研究机构InSemi Research高级分析师洪源证实，当前碳化硅衬底片头部厂商如天岳先进、天科合达的产能利用率均已超过90%。
+国家医保局办公室、财政部办公厅5月19日发布《关于进一步加强定点零售药店职工基本医疗保险个人账户使用监督管理的通知》，明确建立定点零售药店职工医保个人账户支付白名单制度。
 
-公开资料显示，天域半导体是中国最大、全球第三大自制碳化硅外延片制造商，今年2月，天域半导体与韩国EYEQ Lab Inc．正式签署战略合作协议，聚焦碳化硅外延片供应与应用。
+与此同时，此次文件首次以部委发文的形式明确“允许使用职工医保个人账户支付在定点医疗机构发生的流感疫苗费用”。
 
-据悉，EYEQ Lab是韩国第三代半导体SiC功率半导体领域的领军企业。
+此前，受制于上位法对医保待遇边界的约束和医疗保险的传统逻辑，成人疫苗长期由公共卫生领域的财政资金直接提供，基本医保和商业健康保险均不予承担。
 
-该公司此前获三星子公司Patron投资，三星电子也在积极拓展其在SiC功率半导体领域的业务，内部已组建新的SiC功率半导体团队。
+国家医保局曾在2020年发布的《基本医疗保险用药管理暂行办法》中提出，预防性疫苗不纳入医保支付范围。
 
-责任编辑：卢昱君
+而前述由国家医保局和财政部共同作出的破冰之举，在不少受访业界人士看来早有预兆。
+
+他们的理由至少有三：首先，部分非免疫规划疫苗纳入医保个人账户的合理性证据已较为充分，疫苗接种作为成本效益显著的预防手段，其投入远低于相关疾病的治疗开支。
 
 ## 相关推荐
 
-- 2026-06-30 07:52 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
-- 2026-06-30 07:45 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-30 07:45 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
-- 2026-06-30 07:48 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-30 08:06 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
-- 2026-06-30 08:03 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
-- 2026-06-30 07:52 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
-- 2026-06-30 07:56 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-30 08:05 - [藤森庆子赢得秘鲁总统选举](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-30 07:58 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-30 07:52 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-30 08:07 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
-- 2026-06-30 07:58 - [巴西在进攻三区完成210脚传球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
+- 2026-06-30 07:59 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-30 08:12 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-30 07:49 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-30 08:13 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
+- 2026-06-30 07:56 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-30 08:02 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-30 08:05 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-30 08:10 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-30 07:55 - [媒体：手机测评该挤挤水分了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-30 08:05 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:44 - [一生一世](https://www.share.kurohicncr.top/Article/details/619649092.shtml)
-- 2026-06-30 07:48 - [起风了](http://www.share.minike.top/Article/details/694512262.shtml)
-- 2026-06-30 07:47 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/2400175.shtml)
-- 2026-06-30 07:56 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/45523212182.shtml)
-- 2026-06-30 07:57 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/2884797.shtml)
-- 2026-06-30 08:06 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/4256437182.shtml)
-- 2026-06-30 07:49 - [巴西替补奇兵读秒绝杀](http://www.share.minike.top/Article/details/686497653297.shtml)
-- 2026-06-30 07:57 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/1550976580.shtml)
-- 2026-06-30 08:10 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://www.share.minike.top/Article/details/2154897087.shtml)
-- 2026-06-30 08:04 - [人类...完蛋了...](https://www.blog.minike.top/Article/details/7433420937.shtml)
-- 2026-06-30 08:02 - [世界杯](http://www.blog.kurohicncr.top/Article/details/1305065171.shtml)
-- 2026-06-30 07:52 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/74413012.shtml)
-- 2026-06-30 08:09 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/72904.shtml)
-- 2026-06-30 07:55 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.minike.top/Article/details/6224804.shtml)
-- 2026-06-30 07:48 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/4492322792.shtml)
+- 2026-06-30 08:04 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/5578911556.shtml)
+- 2026-06-30 08:02 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/346708.shtml)
+- 2026-06-30 07:49 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/580434009166.shtml)
+- 2026-06-30 08:03 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](http://www.blog.kurohicncr.top/Article/details/02686783976.shtml)
+- 2026-06-30 07:55 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/8941914.shtml)
+- 2026-06-30 08:04 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/71263909.shtml)
+- 2026-06-30 07:55 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/1423043784.shtml)
+- 2026-06-30 08:09 - [F1奥地利站赛后复盘](https://www.blog.kurohicncr.top/Article/details/009753.shtml)
+- 2026-06-30 07:57 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/067825813911.shtml)
+- 2026-06-30 08:17 - [“柠檬茶能换怀表？”](https://www.share.kurohicncr.top/Article/details/73800099261.shtml)
+- 2026-06-30 07:53 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/9137757.shtml)
+- 2026-06-30 07:58 - [日本16强魔咒](http://www.share.kurohicncr.top/Article/details/9797344.shtml)
+- 2026-06-30 08:05 - [巴拉圭进球](http://www.blog.kurohicncr.top/Article/details/80277011.shtml)
+- 2026-06-30 08:09 - [女子清吧被陌生人投放伟哥](https://www.share.minike.top/Article/details/56081623842.shtml)
+- 2026-06-30 08:09 - [千香](https://www.share.kurohicncr.top/Article/details/84964.shtml)

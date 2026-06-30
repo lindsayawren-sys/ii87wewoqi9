@@ -1,58 +1,60 @@
-# 海地帮派暴力今年已致至少2300人死亡
+# 注意“老来瘦” 小心肌少症
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-中新社北京6月16日电 日内瓦消息：当地时间6月15日，联合国人权事务高级专员沃尔克·图尔克透露，最新数据显示，今年以来帮派暴力已造成海地至少2300人死亡、至少1100人受伤，以及近百起绑架事件。 综合欧洲新闻网等媒体消息，沃尔克·图尔克敦促海地当局“迅速采取行动，加强司法部门打击有罪不罚现象，并追究暴力犯罪者责任。” 图尔克还表示，当前局势迫切需要多国参与的“镇压海地黑帮部
+随着年龄增长，肌肉会自然流失。专家提醒，如果家中老人出现洗脸毛巾拧不干、打不开矿泉水瓶盖等情况，要警惕或许是肌少症找上了门。 肌少症，是一种以骨骼肌质量、力量和功能的进行性和系统性丧失为特征的老年综合征。天津市天津医院康复医学科副主任医师李奇表示，肌少症常导致老年人体力下降、行动受限、跌倒风险增加、生活质量下降，甚至还会增加死亡风险。 天津中医药大学第一附属医院老年病科副主任医
 
 ## 正文
 
-中新社北京6月16日电 日内瓦消息：当地时间6月15日，联合国人权事务高级专员沃尔克·图尔克透露，最新数据显示，今年以来帮派暴力已造成海地至少2300人死亡、至少1100人受伤，以及近百起绑架事件。
+随着年龄增长，肌肉会自然流失。
 
-综合欧洲新闻网等媒体消息，沃尔克·图尔克敦促海地当局“迅速采取行动，加强司法部门打击有罪不罚现象，并追究暴力犯罪者责任。
+专家提醒，如果家中老人出现洗脸毛巾拧不干、打不开矿泉水瓶盖等情况，要警惕或许是肌少症找上了门。
 
-” 图尔克还表示，当前局势迫切需要多国参与的“镇压海地黑帮部队”出面，以帮助维持海地国内社会的正常运转，且该部队“必须按照国际人权法运作”。
+肌少症，是一种以骨骼肌质量、力量和功能的进行性和系统性丧失为特征的老年综合征。
 
-联合国安理会2025年通过第2793号决议，决定将部署在海地的多国安全支助团转化为“镇压海地黑帮部队”，并成立为该部队提供后勤支持的联合国海地支助办事处。
+天津市天津医院康复医学科副主任医师李奇表示，肌少症常导致老年人体力下降、行动受限、跌倒风险增加、生活质量下降，甚至还会增加死亡风险。
 
-近年来，海地深陷帮派暴力、政治动荡和经济危机困扰，境内流离失所者已达约150万人，其中妇女和女童占比过半，全国约半数人口面临严重的粮食不安全状况。
+天津中医药大学第一附属医院老年病科副主任医师杨玉超表示，肌少症的发生机制非常复杂，最主要的是年龄因素，年龄越大，发病率越高。
 
-5月11日，海地政府表示，由于安全局势恶化，海地无法于8月按期举行总统选举。
+此外，蛋白质和维生素D等营养素摄入不足、活动减少、慢性疾病、遗传等也是导致肌少症的危险因素。
 
-(完)
+肌少症的发生往往悄无声息，但也会留下些蛛丝马迹。
+
+杨玉超说，老年人身上有以下3种情况出现时，需要及时进行肌少症筛查：患有多种慢性疾病，如慢性心力衰竭、慢性肺病、糖尿病、慢性肾病、结缔组织病、结核菌感染及其他慢性消耗性疾病等；没有刻意减肥，6个月内体重却不知不觉地下降超过5%；出现消瘦、虚弱、四肢纤细无力、易跌倒、行走困难等现象。
 
 ## 相关推荐
 
-- 2026-06-30 08:06 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-30 08:09 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
-- 2026-06-30 08:11 - [德国爆冷点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-30 07:59 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
-- 2026-06-30 07:57 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-30 07:56 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
-- 2026-06-30 07:49 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
-- 2026-06-30 08:00 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-30 07:59 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-30 07:54 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
-- 2026-06-30 07:53 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-30 08:11 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-30 07:53 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-30 07:57 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-30 08:17 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-30 08:13 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
+- 2026-06-30 08:15 - [世界杯欧洲队7战南美仅1胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-30 07:57 - [女子遭下药退赔偿拟追刑责](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-30 08:03 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-30 08:07 - [德国罚丢3粒点球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-30 08:02 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-30 08:00 - [点球大战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-30 07:56 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-30 07:54 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-30 08:15 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-30 07:54 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-30 08:16 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
+- 2026-06-30 08:14 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:52 - [媒体：手机测评该挤挤水分了](http://www.blog.kurohicncr.top/Article/details/7636887.shtml)
-- 2026-06-30 07:48 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/549998794.shtml)
-- 2026-06-30 08:08 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/53248.shtml)
-- 2026-06-30 07:51 - [DeepSeek启动成立来最大规模招聘](https://www.blog.minike.top/Article/details/94590.shtml)
-- 2026-06-30 07:45 - [日本遭读秒绝杀 森保一：我水平不够](https://www.share.minike.top/Article/details/6411621738.shtml)
-- 2026-06-30 08:00 - [女心理师](http://www.blog.kurohicncr.top/Article/details/291825.shtml)
-- 2026-06-30 08:01 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/11067862.shtml)
-- 2026-06-30 07:51 - [【大鸣王潮1566】真拿你没办法](http://www.blog.kurohicncr.top/Article/details/351952779591.shtml)
-- 2026-06-30 07:52 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/0818040.shtml)
-- 2026-06-30 08:04 - [巴西替补奇兵读秒绝杀](http://www.blog.minike.top/Article/details/2217041203.shtml)
-- 2026-06-30 07:56 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/022541334.shtml)
-- 2026-06-30 07:44 - [曝詹姆斯即将与勇士会面](http://www.share.minike.top/Article/details/5052304.shtml)
-- 2026-06-30 07:54 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/76860555.shtml)
-- 2026-06-30 08:03 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/97199.shtml)
-- 2026-06-30 08:10 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/73793729.shtml)
+- 2026-06-30 08:05 - [日本博主：日本足球真的垃圾](http://www.share.kurohicncr.top/Article/details/001509991.shtml)
+- 2026-06-30 07:51 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/31922119040.shtml)
+- 2026-06-30 07:49 - [日本反击率先破门](https://www.share.kurohicncr.top/Article/details/540256980.shtml)
+- 2026-06-30 08:07 - [千香](http://www.blog.kurohicncr.top/Article/details/01311.shtml)
+- 2026-06-30 07:52 - [孙颖莎王楚钦晋级8强](https://www.share.minike.top/Article/details/515099716134.shtml)
+- 2026-06-30 08:11 - [IGN评测电影版后室](http://www.share.kurohicncr.top/Article/details/58210.shtml)
+- 2026-06-30 08:11 - [诺伊尔尽力了](http://www.blog.kurohicncr.top/Article/details/865562326442.shtml)
+- 2026-06-30 08:13 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/187199946.shtml)
+- 2026-06-30 07:57 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/18192180867.shtml)
+- 2026-06-30 08:01 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/331782155.shtml)
+- 2026-06-30 08:04 - [大蒜晒外面被路过女子连盆端走](https://www.blog.minike.top/Article/details/7994560431.shtml)
+- 2026-06-30 07:54 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/35763866035.shtml)
+- 2026-06-30 08:05 - [武磊：巴西队赢的并不轻松](https://www.blog.minike.top/Article/details/10649311360.shtml)
+- 2026-06-30 08:09 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://www.blog.kurohicncr.top/Article/details/85793062747.shtml)
+- 2026-06-30 07:51 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/2508569.shtml)

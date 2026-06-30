@@ -1,56 +1,58 @@
-# 跌至近1年低位后，同类规模最大金融科技ETF异动拉升，虚晃一枪还是绝地反攻？
+# 冲刺2000亿元规模，嘉兴银行直面这个问题
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-周五（6月12日），市场风格再度切换，大金融久违活跃，金融科技板块低位反弹。成份股大面积飘红，赢时胜20CM涨停，财富趋势大涨10.84%，指南针收涨10%，银之杰、同花顺、中科金财、大智慧等多股涨超5%。 热门ETF方面，前一日下探近1年新低后，同类规模最大的金融科技ETF华宝（159851）异动走高，场内收涨3.66%站上五日线，环比放量成交3.65亿元。 中长期来看，当前
+来源：银瑞社 作者：许淑敏 银登网上，嘉兴银行新发布了一则不良贷款转让信息。 这批不良贷款，涉及浙江昌丽家居有限公司等6户不良贷款转让项目，资产笔数为31笔，未偿本金总额1.75亿元，未偿利息总额1.04亿元，未偿本息总额达到2.79亿元。 该等不良贷款加权平均逾期天数2016.1天，算起来，逾期时间超过5年时间。 嘉兴银行正抓紧处置不良贷款，挽回一些损失。 从2025年财务指
 
 ## 正文
 
-周五（6月12日），市场风格再度切换，大金融久违活跃，金融科技板块低位反弹。
+来源：银瑞社 作者：许淑敏 银登网上，嘉兴银行新发布了一则不良贷款转让信息。
 
-成份股大面积飘红，赢时胜20CM涨停，财富趋势大涨10.84%，指南针收涨10%，银之杰、同花顺、中科金财、大智慧等多股涨超5%。
+这批不良贷款，涉及浙江昌丽家居有限公司等6户不良贷款转让项目，资产笔数为31笔，未偿本金总额1.75亿元，未偿利息总额1.04亿元，未偿本息总额达到2.79亿元。
 
-热门ETF方面，前一日下探近1年新低后，同类规模最大的金融科技ETF华宝（159851）异动走高，场内收涨3.66%站上五日线，环比放量成交3.65亿元。
+该等不良贷款加权平均逾期天数2016.1天，算起来，逾期时间超过5年时间。
 
-中长期来看，当前金融科技板块强催化与低估值共振。
+嘉兴银行正抓紧处置不良贷款，挽回一些损失。
 
-一方面，市场交投持续活跃，叠加AI技术赋能，为互联网券商及金融IT提供坚实的基本面支撑；另一方面，板块经历回调后估值回落至近三年历史低位，安全边际与弹性空间并存。
+从2025年财务指标来看，嘉兴银行资产质量有所下滑了。
 
-西部证券表示，金融科技板块或迎盈利兑现驱动估值修复的奇点时刻。
+截至2025年末，该行不良贷款率为1.11%，较上年度增加了0.1个百分点，拨备覆盖率348.05%，较上年末下降了92.02个百分点。
 
-* 交投方面，A股成交连续突破2.5万亿元。
+嘉兴银行控风险能力有待提高。
 
-金融科技强贝塔属性突出，高流动性下板块有望持续受益：互联网券商基本面预期有望持续改善，金融IT等作为顺周期高弹性品种，也持续受益于高流动性，C端炒股软件景气度向上，B端金融IT需求逐步释放。
+2025年，该行同业单一客户风险暴露集中度23.06%，较上年度增加了12.33个百分点。
 
 ## 相关推荐
 
-- 2026-06-30 08:05 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-30 08:02 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
-- 2026-06-30 07:44 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
-- 2026-06-30 07:57 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-30 07:52 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
-- 2026-06-30 08:06 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
-- 2026-06-30 07:43 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-30 08:10 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-30 07:51 - [德国队世界杯点球大战首败](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
-- 2026-06-30 08:05 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-30 08:01 - [德国进球被吹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-30 07:59 - [三星投资计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-30 08:15 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-30 07:49 - [森保一 保守](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-30 07:54 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-30 07:56 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-30 08:01 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-30 08:09 - [德国队连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-30 08:09 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-30 07:52 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-30 07:49 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-30 08:15 - [世界杯欧洲队7战南美仅1胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:58 - [卡塞米罗头球破门 巴西扳平日本](https://www.share.kurohicncr.top/Article/details/28419284.shtml)
-- 2026-06-30 07:52 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/19242504567.shtml)
-- 2026-06-30 07:44 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/581027.shtml)
-- 2026-06-30 07:49 - [人类...完蛋了...](http://www.blog.kurohicncr.top/Article/details/8727447.shtml)
-- 2026-06-30 08:00 - [媒体：手机测评该挤挤水分了](https://www.share.kurohicncr.top/Article/details/06613.shtml)
-- 2026-06-30 08:04 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/267800967354.shtml)
-- 2026-06-30 07:50 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/307458800933.shtml)
-- 2026-06-30 08:02 - [刘必安等16人非法集资案二审宣判](http://www.blog.kurohicncr.top/Article/details/7679301.shtml)
-- 2026-06-30 07:57 - [这种关系可能正在悄悄“催老”你](https://www.share.minike.top/Article/details/154631916.shtml)
-- 2026-06-30 07:56 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/44958143884.shtml)
-- 2026-06-30 07:46 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/0040883.shtml)
-- 2026-06-30 07:45 - [巴西醒醒 这是淘汰赛](http://www.blog.minike.top/Article/details/300707308.shtml)
-- 2026-06-30 07:58 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/23671.shtml)
-- 2026-06-30 07:43 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/178941.shtml)
-- 2026-06-30 07:46 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/098650043267.shtml)
+- 2026-06-30 07:58 - [这几秒成世界杯最值钱广告位](https://www.share.kurohicncr.top/Article/details/37855.shtml)
+- 2026-06-30 07:55 - [世界杯](https://www.share.minike.top/Article/details/70725.shtml)
+- 2026-06-30 08:00 - [网瘾賊大的阿嬷](https://www.share.kurohicncr.top/Article/details/8464040.shtml)
+- 2026-06-30 08:00 - [张雪的一句“是我们”引发岛内热议](https://www.share.kurohicncr.top/Article/details/58110499.shtml)
+- 2026-06-30 08:16 - [网红峡谷5人溺亡 有人提醒会下雨](https://www.blog.minike.top/Article/details/4010702.shtml)
+- 2026-06-30 08:07 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/73915915505.shtml)
+- 2026-06-30 08:17 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/624532961457.shtml)
+- 2026-06-30 07:51 - [内马尔中场休息积极鼓励队友](http://www.blog.kurohicncr.top/Article/details/5142872710.shtml)
+- 2026-06-30 08:15 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/106202.shtml)
+- 2026-06-30 07:50 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/37784.shtml)
+- 2026-06-30 07:54 - [这几秒成世界杯最值钱广告位](http://www.blog.kurohicncr.top/Article/details/670472600887.shtml)
+- 2026-06-30 07:48 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/40153009604.shtml)
+- 2026-06-30 08:13 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/908025842.shtml)
+- 2026-06-30 08:15 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/29900169367.shtml)
+- 2026-06-30 08:01 - [人类...完蛋了...](http://www.share.kurohicncr.top/Article/details/232227256.shtml)

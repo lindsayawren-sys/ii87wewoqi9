@@ -1,56 +1,60 @@
-# 福克斯将以220亿美元收购流媒体企业Roku
+# 李强在北京调研时强调 推动人工智能与先进制造业深度融合 加快培育塑造经济发展新动能新优势
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-在美国传媒行业加速整合的大背景下，福克斯公司敲定以220亿美元收购流媒体平台Roku，大举押注流媒体、体育直播与新闻业务的未来发展。 由默多克亿万富豪家族掌控的福克斯于周一宣布，将通过现金加福克斯股票的方式，以每股160美元的价格收购流媒体企业Roku。 并购完成后，新集团将凭借收视份额跻身全美第三大电视媒体集团。 福克斯表示，本次交易将整合自身体育、新闻、影视娱乐内容，以及R
+新华社北京5月18日电（记者邹伟）中共中央政治局常委、国务院总理李强5月18日在北京调研。他强调，要深入贯彻落实习近平总书记关于发展新质生产力、建设现代化产业体系的重要论述和指示精神，推动人工智能与先进制造业深度融合，坚持创新发展，突出应用导向，积极促进智能机器人迭代升级，大力推进人工智能全方位、深层次赋能制造业，加快培育塑造经济发展新动能新优势。 李强先后来到北京人形机器人创
 
 ## 正文
 
-在美国传媒行业加速整合的大背景下，福克斯公司敲定以220亿美元收购流媒体平台Roku，大举押注流媒体、体育直播与新闻业务的未来发展。
+新华社北京5月18日电（记者邹伟）中共中央政治局常委、国务院总理李强5月18日在北京调研。
 
-由默多克亿万富豪家族掌控的福克斯于周一宣布，将通过现金加福克斯股票的方式，以每股160美元的价格收购流媒体企业Roku。
+他强调，要深入贯彻落实习近平总书记关于发展新质生产力、建设现代化产业体系的重要论述和指示精神，推动人工智能与先进制造业深度融合，坚持创新发展，突出应用导向，积极促进智能机器人迭代升级，大力推进人工智能全方位、深层次赋能制造业，加快培育塑造经济发展新动能新优势。
 
-并购完成后，新集团将凭借收视份额跻身全美第三大电视媒体集团。
+李强先后来到北京人形机器人创新中心有限公司、小米汽车科技有限公司，听取智能机器人技术创新和产业发展介绍，察看企业研发成果和产品在不同场景下的应用展示，走进生产车间了解智能制造、质量检测等情况。
 
-福克斯表示，本次交易将整合自身体育、新闻、影视娱乐内容，以及Roku的联网电视生态——涵盖自有流媒体硬件、品牌智能电视，同时叠加其规模持续扩张的数字广告业务。
+李强指出，智能机器人综合集成大模型、高端制造、新材料等新技术，是人工智能和先进制造业融合发展的重要载体。
 
-福克斯旗下本身也拥有免费流媒体平台Tubi。
+近年来，我国智能机器人技术加速迭代升级，在经济社会各行业各领域日益得到广泛应用。
 
-福克斯称，收购后Roku仍将保持开放平台属性，用户可正常使用网飞、亚马逊Prime视频、油管等数千款应用。
+要持续强化基础研究、关键核心技术攻关和前沿技术探索，打造技术创新和产业服务平台，高水平建设数据训练场，加快整机产品、关键零部件、智能决策与控制系统等创新突破，为智能机器人产业高质量发展提供有力支撑。
 
-福克斯首席执行官拉克兰・默多克表示：“此次收购是公司发展的决定性关头，也是我们近十年来稳步推进、目标清晰战略的自然延伸。
+李强强调，科技的生命力在于应用。
 
-”责任编辑：江学思
+智能机器人产业发展空间广阔，要发挥我国市场规模超大、产业链条完整、应用场景丰富等优势，用好大规模设备更新、首台套装备等支持政策，鼓励政府部门、国有企业等开放场景，促进新技术新产品中试验证，支持智能机器人在确保安全前提下加快规模应用，在实践中不断发现问题、解决问题、改进提升。
 
 ## 相关推荐
 
-- 2026-06-30 08:08 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
-- 2026-06-30 07:53 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
-- 2026-06-30 07:44 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
-- 2026-06-30 07:42 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-30 08:04 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-30 07:58 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
-- 2026-06-30 07:50 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-30 08:07 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-30 07:53 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-30 07:54 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-30 08:12 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-30 08:06 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-30 08:08 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-30 08:04 - [郑钦文温网首轮出局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-30 08:04 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-30 08:00 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-30 08:15 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-30 08:10 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-30 08:06 - [日本队5进世界杯淘汰赛0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-30 07:57 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-30 07:57 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-30 08:02 - [齐思钧回复张月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-30 08:16 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
+- 2026-06-30 07:53 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:46 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/452730181.shtml)
-- 2026-06-30 08:03 - [武磊：巴西队赢的并不轻松](http://www.blog.kurohicncr.top/Article/details/413062881191.shtml)
-- 2026-06-30 08:00 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/03396.shtml)
-- 2026-06-30 08:05 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/93167784.shtml)
-- 2026-06-30 07:56 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.kurohicncr.top/Article/details/04247.shtml)
-- 2026-06-30 07:43 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.kurohicncr.top/Article/details/36176571886.shtml)
-- 2026-06-30 07:58 - [本届世界杯已有5名球员被控强奸](http://www.share.minike.top/Article/details/04278214996.shtml)
-- 2026-06-30 08:11 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.kurohicncr.top/Article/details/911884190440.shtml)
-- 2026-06-30 08:00 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/979569.shtml)
-- 2026-06-30 07:48 - [如果有二次元高中是什么样子的？](https://www.blog.minike.top/Article/details/837484371.shtml)
-- 2026-06-30 08:03 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/718657.shtml)
-- 2026-06-30 08:03 - [全球最火存储ETF纳入兆易创新](http://www.blog.kurohicncr.top/Article/details/4055441.shtml)
-- 2026-06-30 07:54 - [德国爆冷点球大战不敌巴拉圭](http://www.share.kurohicncr.top/Article/details/5877095320.shtml)
-- 2026-06-30 08:08 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/176607501037.shtml)
-- 2026-06-30 08:04 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.kurohicncr.top/Article/details/2753354.shtml)
+- 2026-06-30 08:07 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/8608080213.shtml)
+- 2026-06-30 07:56 - [警犬“多多”助民警寻回失联老人](http://www.blog.minike.top/Article/details/6110149437.shtml)
+- 2026-06-30 08:16 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/4635077.shtml)
+- 2026-06-30 07:51 - [豆包收费了，你还会用吗？](https://www.share.minike.top/Article/details/856588311734.shtml)
+- 2026-06-30 07:59 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.kurohicncr.top/Article/details/263258340833.shtml)
+- 2026-06-30 08:10 - [日本队5进世界杯淘汰赛0胜](http://www.share.kurohicncr.top/Article/details/487467111947.shtml)
+- 2026-06-30 08:11 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/990587685.shtml)
+- 2026-06-30 07:48 - [巴西绝杀日本](https://www.blog.kurohicncr.top/Article/details/67431995.shtml)
+- 2026-06-30 08:08 - [健全中小学教师工资长效联动机制](http://www.blog.kurohicncr.top/Article/details/975634080.shtml)
+- 2026-06-30 08:15 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/59470680.shtml)
+- 2026-06-30 08:04 - [德国巴拉圭加时](https://www.share.minike.top/Article/details/534497230.shtml)
+- 2026-06-30 08:14 - [世界杯巴拉圭点球淘汰德国](https://www.share.minike.top/Article/details/585355810957.shtml)
+- 2026-06-30 08:01 - [巴拉圭先进球了](https://www.share.minike.top/Article/details/43801.shtml)
+- 2026-06-30 08:01 - [日本球员说被绝杀非常不甘心](https://www.blog.kurohicncr.top/Article/details/37301.shtml)
+- 2026-06-30 07:57 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.kurohicncr.top/Article/details/250355962978.shtml)

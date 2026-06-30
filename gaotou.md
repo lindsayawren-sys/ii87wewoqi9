@@ -1,57 +1,48 @@
-# 雷军：找一件真正热爱的事情，坚持做下去
+# 大美边疆看我家丨云南丽江：俯瞰雪山与古城同框的绝美画卷
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-6月15，在2026世界青年发展论坛开幕式上，小米创办人，董事长兼CEO雷军向青年分享了两点心得体会，雷军表示，第一，就是找一件真正热爱的事情，坚持做下去。因为只有热爱才愿意投入，只有真正热爱才能真的长期坚持。因为真正有价值的事情往往都很不容易。把自己喜欢的事情，能够变成事业，整个过程就不会觉得苦，反而乐趣无穷。 第二，高目标牵引，敢想敢干，敢于定一个高的目标，哪怕当下看起来不
+发布时间：2026年05月19日 16:19 来源：中国新闻网 近日，云南丽江，晨曦穿过云贵高原的薄雾，丽江古城与玉龙雪山相互映衬，形成一幅绝美的画卷。万古楼的飞檐翘角间，玉龙雪山洁白巍峨，万年冰川与青瓦白墙隔空相望，古老与现代交相辉映，尽显这座城市的包容、澄澈的底色。(作者：赵凤铭） 责任编辑：【魏聪聪】
 
 ## 正文
 
-6月15，在2026世界青年发展论坛开幕式上，小米创办人，董事长兼CEO雷军向青年分享了两点心得体会，雷军表示，第一，就是找一件真正热爱的事情，坚持做下去。
+发布时间：2026年05月19日 16:19 来源：中国新闻网 近日，云南丽江，晨曦穿过云贵高原的薄雾，丽江古城与玉龙雪山相互映衬，形成一幅绝美的画卷。
 
-因为只有热爱才愿意投入，只有真正热爱才能真的长期坚持。
+万古楼的飞檐翘角间，玉龙雪山洁白巍峨，万年冰川与青瓦白墙隔空相望，古老与现代交相辉映，尽显这座城市的包容、澄澈的底色。
 
-因为真正有价值的事情往往都很不容易。
-
-把自己喜欢的事情，能够变成事业，整个过程就不会觉得苦，反而乐趣无穷。
-
-第二，高目标牵引，敢想敢干，敢于定一个高的目标，哪怕当下看起来不可能，只要把它们一步一步的拆解，一点一点地死磕，就有机会做到。
-
-以下为部分演讲实录： 第一，就是找一件真正热爱的事情，坚持做下去，这是我人生最重要的经验。
-
-因为只有热爱才愿意投入，只有真正热爱才能真的长期坚持。
-
-因为真正有价值的事情往往都很不容易。
+(作者：赵凤铭） 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-30 08:00 - [安切洛蒂 换人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-30 08:06 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-30 07:44 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-30 08:01 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
-- 2026-06-30 07:51 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-30 08:02 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-30 08:08 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-30 08:09 - [泰山景区回应修建刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
-- 2026-06-30 07:47 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-30 08:03 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-30 08:03 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
+- 2026-06-30 08:04 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-30 08:02 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-30 08:10 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-30 08:11 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
+- 2026-06-30 08:15 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
+- 2026-06-30 08:07 - [索马里女大使：想和中国一起搞事业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-30 07:59 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-30 07:49 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-30 08:01 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-30 08:05 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-30 08:01 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-30 07:58 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:44 - [速度与激情9](http://www.blog.minike.top/Article/details/772155714525.shtml)
-- 2026-06-30 07:43 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/44498.shtml)
-- 2026-06-30 08:07 - [檀健次王楚然吻戏看热了](http://www.share.kurohicncr.top/Article/details/8024825.shtml)
-- 2026-06-30 08:00 - [日本队5进世界杯淘汰赛0胜](http://www.blog.kurohicncr.top/Article/details/09587231.shtml)
-- 2026-06-30 08:11 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/375036156108.shtml)
-- 2026-06-30 07:42 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/316272524.shtml)
-- 2026-06-30 07:57 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/62772.shtml)
-- 2026-06-30 08:09 - [人类...完蛋了...](https://www.share.minike.top/Article/details/3945597265.shtml)
-- 2026-06-30 07:53 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/2978189034.shtml)
-- 2026-06-30 07:46 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/035687.shtml)
-- 2026-06-30 07:46 - [我觉得你是在无中生友](https://www.share.kurohicncr.top/Article/details/9530725.shtml)
-- 2026-06-30 07:48 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/1771198318.shtml)
-- 2026-06-30 07:53 - [郑钦文温网一轮游](https://www.blog.kurohicncr.top/Article/details/4054345.shtml)
-- 2026-06-30 07:57 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/016398585508.shtml)
-- 2026-06-30 07:47 - [斛珠夫人](http://www.share.minike.top/Article/details/40525320.shtml)
+- 2026-06-30 07:50 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/2605588163.shtml)
+- 2026-06-30 07:58 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/077015.shtml)
+- 2026-06-30 07:49 - [孙兴慜发长文致歉](https://www.share.kurohicncr.top/Article/details/435954.shtml)
+- 2026-06-30 08:01 - [曝詹姆斯即将与勇士会面](http://www.share.kurohicncr.top/Article/details/32587.shtml)
+- 2026-06-30 07:48 - [女心理师](http://www.share.minike.top/Article/details/63796384.shtml)
+- 2026-06-30 08:13 - [锐评T1战胜KC](https://www.share.minike.top/Article/details/81456060502.shtml)
+- 2026-06-30 08:05 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/2737509.shtml)
+- 2026-06-30 07:52 - [日本16强魔咒](http://www.blog.kurohicncr.top/Article/details/8870662029.shtml)
+- 2026-06-30 07:49 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://www.share.minike.top/Article/details/582291.shtml)
+- 2026-06-30 07:57 - [美人鱼](http://www.blog.minike.top/Article/details/284049808874.shtml)
+- 2026-06-30 08:15 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/29350714331.shtml)
+- 2026-06-30 08:07 - [峡谷事故团队组队时有人提醒会下雨](http://www.blog.minike.top/Article/details/8602888655.shtml)
+- 2026-06-30 07:50 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.kurohicncr.top/Article/details/36981190852.shtml)
+- 2026-06-30 08:11 - [德国巴拉圭 折磨](https://www.blog.minike.top/Article/details/534995418.shtml)
+- 2026-06-30 08:12 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/4362252.shtml)

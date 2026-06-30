@@ -1,57 +1,61 @@
-# “香港非遗月”亮点纷呈 非遗魅力浸润全城
+# 两伙盗墓贼争抢战国楚墓 连续盗挖3天被抓获
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-中新网香港6月14日电 (记者 赵静怡)“香港非遗月2026”活动展期为5月30日至6月30日，今年继续以“香港处处有非遗”为主题。本届活动目前进程过半，形式多样、亮点纷呈，点燃公众对非遗的兴趣与热情。 线下民俗活动是本届“非遗月”一大亮点。6月13日至14日，“非遗庆喜·三栋屋多元”同乐日落地香港非物质文化遗产中心。市民在13日的活动现场欣赏儿童演绎的共融粤剧、海陆丰舞麒麟，
+为争抢古墓葬控制权，两伙盗墓人员经谈判达成分赃协议。他们每天凌晨开始“工作”，连续盗挖3天后被警方抓获。此时，他们距离墓室仅一步之遥—— 两伙盗墓贼争抢战国楚墓 作案团伙分工明确，凭风水罗盘定位、金属探针探测锁定古墓方位，夜间轮番开挖盗洞；为争抢古墓葬控制权，两伙盗墓人员秘密谈判分赃，涉案人员横跨多省、层级交织。2025年11月11日，河南省潢川县法院以盗掘古墓葬罪依法判处邹某
 
 ## 正文
 
-中新网香港6月14日电 (记者 赵静怡)“香港非遗月2026”活动展期为5月30日至6月30日，今年继续以“香港处处有非遗”为主题。
+为争抢古墓葬控制权，两伙盗墓人员经谈判达成分赃协议。
 
-本届活动目前进程过半，形式多样、亮点纷呈，点燃公众对非遗的兴趣与热情。
+他们每天凌晨开始“工作”，连续盗挖3天后被警方抓获。
 
-线下民俗活动是本届“非遗月”一大亮点。
+此时，他们距离墓室仅一步之遥—— 两伙盗墓贼争抢战国楚墓 作案团伙分工明确，凭风水罗盘定位、金属探针探测锁定古墓方位，夜间轮番开挖盗洞；为争抢古墓葬控制权，两伙盗墓人员秘密谈判分赃，涉案人员横跨多省、层级交织。
 
-6月13日至14日，“非遗庆喜·三栋屋多元”同乐日落地香港非物质文化遗产中心。
+2025年11月11日，河南省潢川县法院以盗掘古墓葬罪依法判处邹某、肖某、伍某等人有期徒刑十年至五年，各并处罚金1万元至5000元，同时判令被告人共同承担古墓葬修复费用。
 
-市民在13日的活动现场欣赏儿童演绎的共融粤剧、海陆丰舞麒麟，参与花带编织和吉祥图案刺绣工作坊。
+邹某不服一审判决，提出上诉。
 
-三栋屋村村长陈锦康14日带领参观者走访客家围屋，讲解这座超200年古建筑的结构特色与故事。
+2026年3月26日，二审法院裁定驳回上诉，维持原判。
 
-香港市民谈国钧表示，香港非物质文化遗产中心是“大、中、小学生课外学习的好地方”。
+深夜盗掘土堆引发盗墓风波2024年12月的一天，无业人员邹某在豫皖两省交界处某乡镇闲逛时，一处突兀的巨型土堆引起了他的注意。
 
-本届“非遗月”活动注重融入科技元素。
+曾经多次参与盗墓的他，仅凭封土形态便断定地下大概率藏有“宝贝”。
 
 ## 相关推荐
 
-- 2026-06-30 07:48 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-30 08:01 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-30 08:01 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-30 08:04 - [德国淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-30 08:01 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
-- 2026-06-30 08:07 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-30 08:07 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-30 08:01 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-30 07:45 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-30 07:54 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-30 07:59 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
+- 2026-06-30 07:52 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-30 08:03 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-30 08:15 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-30 08:16 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-30 07:55 - [德国爆冷点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-30 08:11 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-30 08:04 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-30 08:00 - [点球大战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-30 07:50 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
+- 2026-06-30 08:04 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-30 08:02 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-30 07:59 - [日本博主：日本足球真的垃圾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-30 08:12 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-30 07:48 - [王欣瑜2-1击败科恰雷托](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-30 07:58 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:49 - [安切洛蒂 换人](http://www.blog.minike.top/Article/details/8258900474.shtml)
-- 2026-06-30 08:06 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/01310.shtml)
-- 2026-06-30 07:52 - [日本16强魔咒](https://www.blog.minike.top/Article/details/1654920.shtml)
-- 2026-06-30 08:04 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/726112.shtml)
-- 2026-06-30 08:05 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/8927612.shtml)
-- 2026-06-30 07:45 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/95940.shtml)
-- 2026-06-30 08:11 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/456085928.shtml)
-- 2026-06-30 07:49 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.kurohicncr.top/Article/details/646523.shtml)
-- 2026-06-30 08:08 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/86984.shtml)
-- 2026-06-30 08:10 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/451579350.shtml)
-- 2026-06-30 07:48 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/90144.shtml)
-- 2026-06-30 07:43 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/2727828915.shtml)
-- 2026-06-30 08:10 - [亚洲球队全部出局](http://www.share.minike.top/Article/details/7816070061.shtml)
-- 2026-06-30 07:50 - [毒液2](https://www.blog.kurohicncr.top/Article/details/863264.shtml)
-- 2026-06-30 08:08 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/943015615275.shtml)
+- 2026-06-30 07:59 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/176849.shtml)
+- 2026-06-30 08:17 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.kurohicncr.top/Article/details/78277163727.shtml)
+- 2026-06-30 08:03 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/7530731905.shtml)
+- 2026-06-30 07:52 - [德国 传控](https://www.share.minike.top/Article/details/226777420764.shtml)
+- 2026-06-30 07:48 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.kurohicncr.top/Article/details/52460.shtml)
+- 2026-06-30 07:59 - [F1奥地利站赛后复盘](https://www.blog.minike.top/Article/details/6015360980.shtml)
+- 2026-06-30 08:02 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/50541004.shtml)
+- 2026-06-30 08:16 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/48261732139.shtml)
+- 2026-06-30 08:04 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/7562804.shtml)
+- 2026-06-30 08:15 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/5824307167.shtml)
+- 2026-06-30 07:59 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/87752579.shtml)
+- 2026-06-30 08:08 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/2502645867.shtml)
+- 2026-06-30 08:06 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.kurohicncr.top/Article/details/68266.shtml)
+- 2026-06-30 07:53 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/91531.shtml)
+- 2026-06-30 08:17 - [恋与深空回应争议](http://www.share.minike.top/Article/details/4911727.shtml)

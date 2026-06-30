@@ -1,57 +1,59 @@
-# 河南“万公里”高速公路网“上新” 沿黄高速贯通在即
+# 2026年国际博物馆日中国主会场活动在呼和浩特举行
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-中新网郑州6月15日电 (记者 刘鹏)河南省交通运输厅15日消息称，15日24时起，沿黄高速公路开封兰考至新乡封丘段项目正式通车运营。这是河南省高速公路通车总里程突破10000公里后首个建成投用的重点项目，标志着沿黄高速公路河南段实现全线贯通。 沿黄高速公路兰考至封丘段是河南省高速公路网规划的重要组成部分，也是构建连霍高速公路“一轴两翼”复合通道的跨黄河项目。项目起于兰考县谷营
+中新网呼和浩特5月18日电 (记者 应妮)2026年国际博物馆日中国主会场活动开幕式18日在内蒙古博物院举行。 开幕式上，国家文物局发布2025年我国博物馆事业发展最新数据。截至2025年底，全国备案博物馆达7188家，免费开放率超91%；2025年举办陈列展览4.5万个，开展教育活动58.3万场次，接待观众15.6亿人次。现场还公布了2025年度全国博物馆十大陈列展览精品，推
 
 ## 正文
 
-中新网郑州6月15日电 (记者 刘鹏)河南省交通运输厅15日消息称，15日24时起，沿黄高速公路开封兰考至新乡封丘段项目正式通车运营。
+中新网呼和浩特5月18日电 (记者 应妮)2026年国际博物馆日中国主会场活动开幕式18日在内蒙古博物院举行。
 
-这是河南省高速公路通车总里程突破10000公里后首个建成投用的重点项目，标志着沿黄高速公路河南段实现全线贯通。
+开幕式上，国家文物局发布2025年我国博物馆事业发展最新数据。
 
-沿黄高速公路兰考至封丘段是河南省高速公路网规划的重要组成部分，也是构建连霍高速公路“一轴两翼”复合通道的跨黄河项目。
+截至2025年底，全国备案博物馆达7188家，免费开放率超91%；2025年举办陈列展览4.5万个，开展教育活动58.3万场次，接待观众15.6亿人次。
 
-项目起于兰考县谷营镇，与日兰高速公路设置枢纽立交，止于封丘县潘店镇，西接兰原高速公路新乡封丘至原阳段，与大广高速公路相交。
+现场还公布了2025年度全国博物馆十大陈列展览精品，推介“电力+文物”文物保护志愿服务队成果，启动2026年度“文明桥梁计划——文物出境展览精品”项目，举行对口帮扶中小博物馆签约仪式、“金玉华光 多彩中华”展览揭幕等活动，并宣布2027年国际博物馆日中国主会场活动举办城市为浙江省杭州市。
 
-路线全长30.263公里，其中黄河特大桥总长9.104公里，主桥采用三塔双索面钢混组合梁斜拉桥设计。
+从2009年起，国家文物局与省级人民政府联合主办国际博物馆日中国主会场活动，至今已连续成功举办18届。
 
-全线采用双向六车道高速公路标准建设，设计时速120公里每小时，配套设置东坝头服务区，以及东坝头、李庄新区、潘店东三处收费站。
+今年的中国主会场活动由国家文物局和内蒙古自治区人民政府主办，文化和旅游部副部长、国家文物局局长饶权，内蒙古自治区党委副书记、自治区人民政府主席包钢出席开幕式并致辞，国际博物馆协会主席安东尼奥·罗德里格斯作视频致辞。
 
-据项目负责人介绍，该项目建设坚持创新赋能、科技筑桥，实现了多项新工艺、新装备的突破应用。
+除开幕式外，活动还配套举办主论坛，邀请国内外文博领域专家学者进行专题分享。
 
-针对副桥国内最大规模百米钢混组合梁架设难题，项目方联合高校科研单位研发特大型架桥机，大幅提升施工效率，为项目高质量通车奠定了基础。
+主会场活动举办城市呼和浩特市也举办了一系列特色鲜明、精彩纷呈的陈列展览、学术研讨、公众互动等活动。
 
 ## 相关推荐
 
-- 2026-06-30 07:48 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-30 08:06 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-30 07:49 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-30 08:05 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-30 08:08 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-30 07:50 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
-- 2026-06-30 07:52 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-30 08:05 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-30 07:42 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
-- 2026-06-30 08:08 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
-- 2026-06-30 07:45 - [泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-30 08:11 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
+- 2026-06-30 07:51 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-30 08:02 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
+- 2026-06-30 08:12 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-30 07:51 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-30 08:00 - [郑钦文温网一轮游](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-30 08:00 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-30 08:08 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-30 07:52 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-30 08:15 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-30 07:51 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-30 08:08 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-30 08:12 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:08 - [巴西vs日本](http://www.share.kurohicncr.top/Article/details/91703.shtml)
-- 2026-06-30 07:59 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/0221586544.shtml)
-- 2026-06-30 07:46 - [巴西vs日本首发名单](http://www.share.minike.top/Article/details/7741992.shtml)
-- 2026-06-30 07:58 - [小娘惹](http://www.share.kurohicncr.top/Article/details/618445741252.shtml)
-- 2026-06-30 08:05 - [安切洛蒂 换人](http://www.share.kurohicncr.top/Article/details/190544133.shtml)
-- 2026-06-30 08:10 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/974899167.shtml)
-- 2026-06-30 08:02 - [日本反击率先破门](https://www.share.kurohicncr.top/Article/details/905664760772.shtml)
-- 2026-06-30 08:07 - [这几秒成世界杯最值钱广告位](https://www.share.kurohicncr.top/Article/details/257044.shtml)
-- 2026-06-30 07:59 - [董卿父亲在报纸上发文悼念亡妻](http://www.share.minike.top/Article/details/206651291.shtml)
-- 2026-06-30 08:10 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/6434711.shtml)
-- 2026-06-30 07:50 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/233093349552.shtml)
-- 2026-06-30 07:49 - [巴西半场0比1日本](https://www.blog.kurohicncr.top/Article/details/954417847774.shtml)
-- 2026-06-30 07:57 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/892703.shtml)
-- 2026-06-30 07:46 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/95952211746.shtml)
-- 2026-06-30 07:55 - [巴拉圭点球大战淘汰德国进16强](https://www.blog.minike.top/Article/details/885949.shtml)
+- 2026-06-30 08:06 - [天道](https://www.blog.minike.top/Article/details/153994992351.shtml)
+- 2026-06-30 08:08 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/984675950.shtml)
+- 2026-06-30 08:11 - [被巴西绝杀后 日球员田中碧跪地痛哭](http://www.blog.minike.top/Article/details/370035.shtml)
+- 2026-06-30 08:14 - [日本淘汰](http://www.share.minike.top/Article/details/5463045493.shtml)
+- 2026-06-30 08:08 - [爱很美味](https://www.share.kurohicncr.top/Article/details/1903976800.shtml)
+- 2026-06-30 08:04 - [亚洲球队全部出局](http://www.blog.minike.top/Article/details/25384.shtml)
+- 2026-06-30 08:13 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/047589.shtml)
+- 2026-06-30 08:06 - [武磊：日本队有能力跟任何强队抗衡](https://www.share.kurohicncr.top/Article/details/54738807.shtml)
+- 2026-06-30 08:13 - [逃狱兄弟](http://www.blog.minike.top/Article/details/57081223.shtml)
+- 2026-06-30 07:56 - [网红峡谷5人溺亡 有人提醒会下雨](https://www.blog.minike.top/Article/details/075498639424.shtml)
+- 2026-06-30 07:51 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/5083728579.shtml)
+- 2026-06-30 08:12 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/113723293290.shtml)
+- 2026-06-30 08:04 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/80037254492.shtml)
+- 2026-06-30 08:04 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/7831441.shtml)
+- 2026-06-30 07:56 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/815422936.shtml)

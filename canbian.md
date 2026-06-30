@@ -1,57 +1,51 @@
-# 外交部：霍尔木兹海峡安全自由通行符合各方利益
+# 比特币跌至逾两周低位 受宏观风险因素驱动
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-6月16日，外交部发言人林剑主持例行记者会。有记者就伊美达成第一阶段谅解备忘录以及霍尔木兹海峡通航问题提问。 林剑表示，中方注意到伊美双方已达成的第一阶段谅解备忘录，包含了重开海峡等内容。霍尔木兹海峡是用于国际航行的海峡，尽早恢复海峡的安全自由通行，符合各方利益。 中方愿同有关国家和国际社会就此保持沟通。中方将继续全力维护中资船舶和中国籍船员的安全。 (总台央视记者 申杨 王晨
+比特币跌至两周多以来最低水平，美国与伊朗冲突引发的宏观风险促使交易员削减仓位。 比特币价格周一盘中一度下跌2.2%，至76，551美元，为5月1日以来最低，随后收复部分跌幅。 BTC Markets分析师Rachael Lucas表示：“比特币的回调主要是宏观因素驱动的。风险偏好已经重新定价，而比特币正随之波动。”责任编辑：何云
 
 ## 正文
 
-6月16日，外交部发言人林剑主持例行记者会。
+比特币跌至两周多以来最低水平，美国与伊朗冲突引发的宏观风险促使交易员削减仓位。
 
-有记者就伊美达成第一阶段谅解备忘录以及霍尔木兹海峡通航问题提问。
+比特币价格周一盘中一度下跌2.2%，至76，551美元，为5月1日以来最低，随后收复部分跌幅。
 
-林剑表示，中方注意到伊美双方已达成的第一阶段谅解备忘录，包含了重开海峡等内容。
+BTC Markets分析师Rachael Lucas表示：“比特币的回调主要是宏观因素驱动的。
 
-霍尔木兹海峡是用于国际航行的海峡，尽早恢复海峡的安全自由通行，符合各方利益。
+风险偏好已经重新定价，而比特币正随之波动。
 
-中方愿同有关国家和国际社会就此保持沟通。
-
-中方将继续全力维护中资船舶和中国籍船员的安全。
-
-(总台央视记者 申杨 王晨)
+”责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-30 07:53 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-30 07:46 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-30 07:45 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-30 07:58 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-30 07:53 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-30 07:49 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-30 07:51 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
-- 2026-06-30 07:42 - [男子在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-30 07:57 - [中国新一轮出口管制直指日本命脉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
-- 2026-06-30 07:45 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-30 07:45 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-30 07:50 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-30 08:09 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-30 08:14 - [田中碧失误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-30 08:14 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-30 08:01 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-30 08:13 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-30 08:05 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-30 08:05 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-30 07:53 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-30 08:05 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-30 08:05 - [郑钦文温网一轮游](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-30 08:03 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-30 07:49 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:51 - [审核了不止十年的低创鬼畜](http://www.blog.kurohicncr.top/Article/details/5229448.shtml)
-- 2026-06-30 07:51 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/5426529.shtml)
-- 2026-06-30 07:56 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/20486834.shtml)
-- 2026-06-30 07:46 - [覃予萱晋级WTT美国大满贯女单32强](http://www.share.minike.top/Article/details/56498.shtml)
-- 2026-06-30 08:09 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/43789774289.shtml)
-- 2026-06-30 07:47 - [王源近几年没有路演了](https://www.share.minike.top/Article/details/89055872.shtml)
-- 2026-06-30 07:52 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.kurohicncr.top/Article/details/66173638.shtml)
-- 2026-06-30 07:56 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/88924.shtml)
-- 2026-06-30 07:53 - [老外对中国cosplay竟这样评价…](https://www.blog.minike.top/Article/details/77679796.shtml)
-- 2026-06-30 07:51 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/053445901.shtml)
-- 2026-06-30 07:53 - [二次元提前预演明日巴西对日本](http://www.blog.minike.top/Article/details/9699295049.shtml)
-- 2026-06-30 08:05 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/644214383.shtml)
-- 2026-06-30 07:54 - [媒体评泰山建135公里刀片刺绳隔离网](http://www.blog.minike.top/Article/details/124795854.shtml)
-- 2026-06-30 08:03 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/800800292951.shtml)
-- 2026-06-30 07:49 - [美股深夜大反弹 特斯拉飙涨8%](http://www.blog.minike.top/Article/details/6044953.shtml)
+- 2026-06-30 08:17 - [德国巴拉圭进入点球大战](http://www.share.kurohicncr.top/Article/details/191207155739.shtml)
+- 2026-06-30 07:52 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/931128164.shtml)
+- 2026-06-30 08:05 - [AI手机进入Agent时代](https://www.blog.kurohicncr.top/Article/details/86423741208.shtml)
+- 2026-06-30 08:01 - [女子遭下药退赔偿拟追刑责](http://www.share.kurohicncr.top/Article/details/54026409100.shtml)
+- 2026-06-30 08:02 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/48428.shtml)
+- 2026-06-30 08:15 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.share.kurohicncr.top/Article/details/143307192010.shtml)
+- 2026-06-30 08:16 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/21212472.shtml)
+- 2026-06-30 08:09 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/840234.shtml)
+- 2026-06-30 08:03 - [日本球迷被强行披上巴西国旗](http://www.share.minike.top/Article/details/03976667.shtml)
+- 2026-06-30 08:08 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/512464322553.shtml)
+- 2026-06-30 08:00 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/84979.shtml)
+- 2026-06-30 08:10 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/454368753.shtml)
+- 2026-06-30 08:17 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/0630996.shtml)
+- 2026-06-30 08:13 - [千与千寻](http://www.share.minike.top/Article/details/01471.shtml)
+- 2026-06-30 08:12 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/25621989356.shtml)

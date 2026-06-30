@@ -1,53 +1,59 @@
-# 伊朗：美方承诺解冻伊朗被冻结资产
+# 期待物业公司找回“服务”初心
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社德黑兰6月15日电伊朗外交部发言人巴加埃15日说，解冻伊朗被冻结资产，以及赔偿损失，是经济层面重要议题。美方承诺在这些方面都将采取行动。（完）责任编辑：宋雅芳
+本报记者 张守坤 前不久，河南的赵女士发现，每逢下雨自家阳台就漏水严重，墙面还出现多处裂缝，其中一侧返潮渗水情况尤为明显。她随即线下向物业公司反映问题。 第一次反馈时，物业工作人员只登记了相关情况；两天后赵女士再次询问，客服称已经上报，但维修时间未定；又过一天，赵女士直接找到物业工程部，工作人员却把维修时间推到下个月，还无法保证能彻底修好。 赵女士多次联系，希望物业公司派人先上
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+本报记者 张守坤 前不久，河南的赵女士发现，每逢下雨自家阳台就漏水严重，墙面还出现多处裂缝，其中一侧返潮渗水情况尤为明显。
 
-新华社德黑兰6月15日电伊朗外交部发言人巴加埃15日说，解冻伊朗被冻结资产，以及赔偿损失，是经济层面重要议题。
+她随即线下向物业公司反映问题。
 
-美方承诺在这些方面都将采取行动。
+第一次反馈时，物业工作人员只登记了相关情况；两天后赵女士再次询问，客服称已经上报，但维修时间未定；又过一天，赵女士直接找到物业工程部，工作人员却把维修时间推到下个月，还无法保证能彻底修好。
 
-（完）责任编辑：宋雅芳
+赵女士多次联系，希望物业公司派人先上门查看现场情况，都被对方以“上门看了也没用，要等上报公司、专人到场才行”为由搪塞推托。
+
+随后，赵女士拨打市民热线反映了情况，第二天，物业公司就派人上门查看，并给出了解决方案。
+
+“不投诉就不回复，物业公司为什么不能积极跟进呢？
+
+”赵女士对此感到十分困惑。
+
+赵女士的遭遇并非个例。
 
 ## 相关推荐
 
-- 2026-06-30 08:11 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-30 07:49 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-30 07:42 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-30 07:51 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
-- 2026-06-30 07:52 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
-- 2026-06-30 08:07 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
-- 2026-06-30 07:46 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-30 08:02 - [感动全网的699分女生想报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
-- 2026-06-30 07:59 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-30 08:06 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
-- 2026-06-30 07:50 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
-- 2026-06-30 08:08 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-30 07:58 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-30 08:11 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-30 08:11 - [田中碧失误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-30 08:16 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-30 08:04 - [郑钦文温网一轮游](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-30 08:03 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-30 08:11 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-30 07:54 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-30 08:02 - [孙颖莎王楚钦晋级8强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-30 07:55 - [莫兰特转投开拓者效力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-30 08:10 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-30 07:57 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-30 07:48 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-30 08:09 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-30 08:06 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-30 08:10 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:56 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/28387150.shtml)
-- 2026-06-30 08:03 - [千万不要随便扣肚脐](https://www.blog.minike.top/Article/details/4979405723.shtml)
-- 2026-06-30 07:50 - [苗族银饰](http://www.share.kurohicncr.top/Article/details/49868468.shtml)
-- 2026-06-30 07:49 - [巴西醒醒 这是淘汰赛](https://www.share.kurohicncr.top/Article/details/59294566100.shtml)
-- 2026-06-30 07:43 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/6903336762.shtml)
-- 2026-06-30 08:01 - [峡谷事故团队组队时有人提醒会下雨](https://www.share.minike.top/Article/details/55141946340.shtml)
-- 2026-06-30 08:10 - [郑钦文温网首轮出局](http://www.blog.kurohicncr.top/Article/details/8409851990.shtml)
-- 2026-06-30 08:01 - [第一炉香](http://www.blog.minike.top/Article/details/512994.shtml)
-- 2026-06-30 07:53 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/8841426.shtml)
-- 2026-06-30 08:03 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/744818544.shtml)
-- 2026-06-30 07:49 - [千香](http://www.share.minike.top/Article/details/66523438.shtml)
-- 2026-06-30 08:04 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/569454215367.shtml)
-- 2026-06-30 08:02 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/723692556.shtml)
-- 2026-06-30 07:53 - [德国 传控](http://www.share.kurohicncr.top/Article/details/8535474.shtml)
-- 2026-06-30 07:42 - [亚洲球队全部出局](http://www.blog.kurohicncr.top/Article/details/127694.shtml)
+- 2026-06-30 08:15 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.kurohicncr.top/Article/details/5566892.shtml)
+- 2026-06-30 08:06 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/8683711909.shtml)
+- 2026-06-30 08:17 - [《男人至死是傻得儿》](http://www.share.kurohicncr.top/Article/details/90835238977.shtml)
+- 2026-06-30 07:54 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/0895794106.shtml)
+- 2026-06-30 08:17 - [德国巴拉圭加时](http://www.share.kurohicncr.top/Article/details/830736175.shtml)
+- 2026-06-30 07:55 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.kurohicncr.top/Article/details/62551840.shtml)
+- 2026-06-30 07:56 - [好像看到了人类带孩子崩溃的样子](http://www.blog.minike.top/Article/details/80573.shtml)
+- 2026-06-30 08:06 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/4828938.shtml)
+- 2026-06-30 07:53 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/0234753.shtml)
+- 2026-06-30 07:50 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/58065.shtml)
+- 2026-06-30 08:05 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/3606967.shtml)
+- 2026-06-30 08:00 - [赛博朋克边缘行者2预告片](http://www.blog.minike.top/Article/details/265221184.shtml)
+- 2026-06-30 07:59 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/744361503186.shtml)
+- 2026-06-30 08:10 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/70131230466.shtml)
+- 2026-06-30 07:59 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/27797730.shtml)

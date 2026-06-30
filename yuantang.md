@@ -1,61 +1,57 @@
-# 国际金价，再度大涨！“牛回，速归”，怎么个事？
+# SpaceX即将成为马斯克旗下第二家上市公司 特斯拉可能遭边缘化
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-来源：期货日报 6月15日，国际金价跳空高开，再度大涨，站上4300美元/盎司。黄金市场情绪快速复苏，于是又有人喊“牛回，速归”。这到底怎么个事？ 据期货日报记者了解，从1月末突破5594.77美元/盎司的历史高点，到6月11日一度跌至4022.59美元/盎司的年内低位，国际金价步入“下半场”，显露出一定疲态。在金价回落的背景下，黄金市场正呈现出罕见的资金分化格局：一边是全球黄
+多年来，普通投资者参与埃隆·马斯克愿景的唯一途径是买入特斯拉公司股票。但这一局面即将改变，这也对特斯拉投资者构成重大风险。 随着太空探索技术公司即SpaceX启动IPO进程，市场将为投资者提供切入“马斯克经济”的新入口。华尔街专业人士认为，投资者的注意力和资金将不可避免地从特斯拉分流至向这家新上市公司。 Integrity Asset Management投资组合经理Joe G
 
 ## 正文
 
-来源：期货日报 6月15日，国际金价跳空高开，再度大涨，站上4300美元/盎司。
+多年来，普通投资者参与埃隆·马斯克愿景的唯一途径是买入特斯拉公司股票。
 
-黄金市场情绪快速复苏，于是又有人喊“牛回，速归”。
+但这一局面即将改变，这也对特斯拉投资者构成重大风险。
 
-这到底怎么个事？
+随着太空探索技术公司即SpaceX启动IPO进程，市场将为投资者提供切入“马斯克经济”的新入口。
 
-据期货日报记者了解，从1月末突破5594.77美元/盎司的历史高点，到6月11日一度跌至4022.59美元/盎司的年内低位，国际金价步入“下半场”，显露出一定疲态。
+华尔街专业人士认为，投资者的注意力和资金将不可避免地从特斯拉分流至向这家新上市公司。
 
-在金价回落的背景下，黄金市场正呈现出罕见的资金分化格局：一边是全球黄金ETF遭遇净流出，基金规模明显缩水；另一边则是全球央行逆势增持黄金，官方储备需求持续释放。
+Integrity Asset Management投资组合经理Joe Gilbert表示：“这对特斯拉绝对不是好事，我们认为马斯克的重心将更多转向SpaceX。
 
-与此同时，此前借助金价上涨热销的挂钩黄金结构性存款也开始降温。
+虽然他过去能同时兼顾多个项目，但感觉SpaceX是他倾注心血的‘宠儿’，而特斯拉可能被边缘化。
 
-短期交易资金加速撤离与长期战略资金持续流入并存，成为当前黄金市场最突出的结构性特征。
+” 从不同侧面看，特斯拉都似乎处于停滞状态甚至略有下滑：销售增长放缓、基本面承压。
 
-加速流出，黄金ETF规模缩水 世界黄金协会6月公布的报告显示，5月全球实物黄金ETF结束了此前持续净流入的态势，转为净流出约20亿美元。
+但其股价长期以来并非由财务表现驱动，而是被视为押注马斯克愿景的工具。
 
 ## 相关推荐
 
-- 2026-06-30 07:44 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
-- 2026-06-30 08:03 - [巴拉圭进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
-- 2026-06-30 07:55 - [德国罚丢3粒点球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-30 07:58 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-30 08:10 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
-- 2026-06-30 08:02 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-30 07:45 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-30 08:05 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
-- 2026-06-30 07:48 - [泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-30 08:03 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
-- 2026-06-30 07:45 - [全球芯片巨头史诗级扩产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-30 07:56 - [泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
-- 2026-06-30 07:56 - [现在叛逆期的孩子最怕的是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-30 08:06 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-30 07:50 - [张雪的一句“是我们”引发岛内热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-30 07:56 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-30 08:12 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-30 07:59 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-30 08:16 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-30 08:14 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-30 08:12 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-30 08:07 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-30 08:10 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-30 08:15 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-30 08:14 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-30 08:14 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:07 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://www.blog.minike.top/Article/details/41071689.shtml)
-- 2026-06-30 08:01 - [孙兴慜发长文致歉](http://www.blog.kurohicncr.top/Article/details/8084357096.shtml)
-- 2026-06-30 08:09 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/7431907366.shtml)
-- 2026-06-30 07:51 - [孙兴慜发长文致歉](https://www.blog.minike.top/Article/details/6202930614.shtml)
-- 2026-06-30 07:47 - [《共患难》](http://www.share.minike.top/Article/details/7362323.shtml)
-- 2026-06-30 07:47 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/920074077526.shtml)
-- 2026-06-30 08:06 - [高质量发展看新疆](https://www.blog.kurohicncr.top/Article/details/941195440.shtml)
-- 2026-06-30 07:51 - [日本球员说被绝杀非常不甘心](https://www.share.kurohicncr.top/Article/details/771466.shtml)
-- 2026-06-30 08:04 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/296871757.shtml)
-- 2026-06-30 07:47 - [王楚钦孙颖莎晋级混双八强](https://www.blog.minike.top/Article/details/41388961751.shtml)
-- 2026-06-30 08:07 - [警犬“多多”助民警寻回失联老人](http://www.share.minike.top/Article/details/34414909528.shtml)
-- 2026-06-30 07:45 - [韩国人为什么这么在乎输赢](https://www.blog.minike.top/Article/details/12211840575.shtml)
-- 2026-06-30 08:00 - [“草莓月亮”浪漫现身](https://www.share.minike.top/Article/details/83087.shtml)
-- 2026-06-30 08:04 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/2308913388.shtml)
-- 2026-06-30 07:44 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/973088660918.shtml)
+- 2026-06-30 08:04 - [马耳他著名拱门坍塌致中国男子身亡](http://www.share.minike.top/Article/details/11764.shtml)
+- 2026-06-30 08:15 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](http://www.share.minike.top/Article/details/25402995894.shtml)
+- 2026-06-30 08:16 - [周冬雨多次说演不了话剧文城](https://www.blog.kurohicncr.top/Article/details/245643.shtml)
+- 2026-06-30 07:57 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/825443861890.shtml)
+- 2026-06-30 07:52 - [又一家县级医院关停门诊输液大厅](https://www.share.minike.top/Article/details/557291.shtml)
+- 2026-06-30 08:15 - [马耳他著名拱门坍塌致一中国男子身亡](https://www.blog.minike.top/Article/details/619821661973.shtml)
+- 2026-06-30 07:51 - [巴拉圭率先破门](https://www.blog.minike.top/Article/details/94252454675.shtml)
+- 2026-06-30 07:49 - [杨紫获白玉兰视后争议不止](https://www.share.kurohicncr.top/Article/details/41042739672.shtml)
+- 2026-06-30 07:50 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.share.kurohicncr.top/Article/details/5515652975.shtml)
+- 2026-06-30 08:00 - [DeepSeek V4正式版要来了](http://www.blog.minike.top/Article/details/344906979.shtml)
+- 2026-06-30 08:08 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.minike.top/Article/details/546386073545.shtml)
+- 2026-06-30 08:05 - [巴西2比1日本](https://www.share.minike.top/Article/details/31294.shtml)
+- 2026-06-30 08:16 - [锐评T1战胜KC](https://www.blog.kurohicncr.top/Article/details/40395.shtml)
+- 2026-06-30 08:13 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/174121379800.shtml)
+- 2026-06-30 07:53 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/84009.shtml)

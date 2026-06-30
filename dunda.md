@@ -1,51 +1,56 @@
-# 英国和日本计划签署180亿英镑清洁能源投资协议
+# 三年“消失”1.2亿张 信用卡“瘦身”进行时
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-英国首相基尔·斯塔默的办公室周六在声明中表示，预计英国和日本将就一项价值180亿英镑（241亿美元）的协议达成一致，双方预计该协议将在海上风电、基础设施和金融服务领域创造新的就业机会。 该协议将包括高达90亿英镑的日本投资，用于在英国开发5.9吉瓦的漂浮式海上风电项目，最终产生足够为800万户家庭供电的清洁电力。 在法国举行的七国集团（G7）峰会之前，日本首相高市早苗周日将赴唐
+21世纪经济报道记者 冯紫彤 日前，人民银行发布《2026年第一季度支付体系运行总体情况》，信用卡总量持续下降。 数据显示，截至一季度末，全国共有信用卡和借贷合一卡6.87亿张，较2025年末再减少900万张。 值得关注的是，这已是信用卡发卡量连续第14个季度下降，与2022年第三季度8.07亿张的峰值相比，已累计缩减约1.2亿张。也就是说，三年多的时间里，平均每个季度有超过8
 
 ## 正文
 
-英国首相基尔·斯塔默的办公室周六在声明中表示，预计英国和日本将就一项价值180亿英镑（241亿美元）的协议达成一致，双方预计该协议将在海上风电、基础设施和金融服务领域创造新的就业机会。
+21世纪经济报道记者 冯紫彤 日前，人民银行发布《2026年第一季度支付体系运行总体情况》，信用卡总量持续下降。
 
-该协议将包括高达90亿英镑的日本投资，用于在英国开发5.9吉瓦的漂浮式海上风电项目，最终产生足够为800万户家庭供电的清洁电力。
+数据显示，截至一季度末，全国共有信用卡和借贷合一卡6.87亿张，较2025年末再减少900万张。
 
-在法国举行的七国集团（G7）峰会之前，日本首相高市早苗周日将赴唐宁街与斯塔默会面，两国商界领袖也将出席。
+值得关注的是，这已是信用卡发卡量连续第14个季度下降，与2022年第三季度8.07亿张的峰值相比，已累计缩减约1.2亿张。
 
-责任编辑：刘明亮
+也就是说，三年多的时间里，平均每个季度有超过800万张信用卡从市场中“消失”。
+
+发卡量连降14季，不良率分化加剧 要理解这1.2亿张卡的消失，需要回顾信用卡行业过去十年的发展轨迹。
+
+2015年前后，随着居民消费升级和银行零售转型，信用卡成为各大银行争夺的“香饽饽”。
+
+发卡量每年以两位数的速度增长，银行纷纷成立信用卡中心，铺设线下推广团队，与互联网平台、航空公司、连锁酒店等合作发行联名卡。
+
+到2022年三季度，全国信用卡总量达到8.07亿张的历史高点，几乎平均每个成年人持有0.7张信用卡。
 
 ## 相关推荐
 
-- 2026-06-30 08:06 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-30 08:10 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-30 08:10 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
-- 2026-06-30 07:45 - [网友写差评被店家“挂”门口避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-30 07:51 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-30 07:52 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-30 08:06 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-30 07:53 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-30 08:08 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
-- 2026-06-30 07:52 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-30 07:53 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-30 08:08 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-30 08:04 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-30 08:01 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-30 08:12 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-30 07:48 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-30 08:05 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-30 08:11 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-30 08:15 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-30 08:14 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-30 08:16 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-30 08:01 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-30 07:50 - [日本队5进世界杯淘汰赛0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:08 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/69420286.shtml)
-- 2026-06-30 07:55 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/2074876.shtml)
-- 2026-06-30 08:06 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/658915679.shtml)
-- 2026-06-30 07:54 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/0571424466.shtml)
-- 2026-06-30 07:47 - [曝詹姆斯即将与勇士会面](http://www.blog.kurohicncr.top/Article/details/30390824.shtml)
-- 2026-06-30 07:44 - [王楚钦说配合稍微有些陌生感](https://www.blog.minike.top/Article/details/1572564.shtml)
-- 2026-06-30 07:50 - [曝詹姆斯即将与勇士会面](https://www.blog.minike.top/Article/details/439664973967.shtml)
-- 2026-06-30 07:43 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/6986214529.shtml)
-- 2026-06-30 07:57 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/339672.shtml)
-- 2026-06-30 08:03 - [人类...完蛋了...](https://www.blog.minike.top/Article/details/23515.shtml)
-- 2026-06-30 08:05 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/05276340561.shtml)
-- 2026-06-30 08:04 - [巴西2比1日本](https://www.share.minike.top/Article/details/14533754.shtml)
-- 2026-06-30 08:01 - [失明的我带老妈去了趟“火星”](https://www.blog.kurohicncr.top/Article/details/6547270757.shtml)
-- 2026-06-30 07:42 - [德国 传控](https://www.share.minike.top/Article/details/16945002878.shtml)
-- 2026-06-30 07:48 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/42925558235.shtml)
+- 2026-06-30 08:17 - [辛纳vs凯茨玛诺维奇](http://www.blog.minike.top/Article/details/32512.shtml)
+- 2026-06-30 08:07 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.kurohicncr.top/Article/details/4846897744.shtml)
+- 2026-06-30 08:01 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/764066458.shtml)
+- 2026-06-30 07:52 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.blog.minike.top/Article/details/9132101479.shtml)
+- 2026-06-30 07:59 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/77036852712.shtml)
+- 2026-06-30 08:15 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/18884.shtml)
+- 2026-06-30 07:57 - [恋与深空制作组回应近期争议](https://www.share.kurohicncr.top/Article/details/7864360.shtml)
+- 2026-06-30 08:11 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.minike.top/Article/details/33316166765.shtml)
+- 2026-06-30 08:10 - [这种关系可能正在悄悄“催老”你](http://www.blog.minike.top/Article/details/30045692232.shtml)
+- 2026-06-30 08:02 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/835634.shtml)
+- 2026-06-30 08:16 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/801980319.shtml)
+- 2026-06-30 08:06 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/012469671.shtml)
+- 2026-06-30 07:56 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/735741300153.shtml)
+- 2026-06-30 07:49 - [巴西2比1日本](http://www.share.kurohicncr.top/Article/details/050631055216.shtml)
+- 2026-06-30 08:11 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.kurohicncr.top/Article/details/7379273.shtml)

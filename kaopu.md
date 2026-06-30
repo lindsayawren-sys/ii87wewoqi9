@@ -1,59 +1,56 @@
-# 瑞士全民公投：反对设定1000万人口上限
+# 15倍大牛股赴港IPO，创始人正忙着“爷孙恋”
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-中新社北京6月15日电 伯尔尼消息：在当地时间14日举行的瑞士全民公投中，选民们否决了一项旨在将瑞士人口上限定为1000万人的提案。 综合瑞士资讯网、路透社报道，该提案由右翼的瑞士人民党倡导，规定瑞士人口在2050年前不得超过1000万人，以应对国家基础设施日益增大的压力。如果连续两年人口超过1000万，瑞士应终止与欧盟的人员自由流动协议。 据全国公投的初步统计结果显示，近55
+来源 | 财通社 撰文 | 文希 15倍大牛股宏和科技（603256.SH），向港股迈出关键一步。 5月15日，宏和电子材料科技股份有限公司（简称“宏和科技”）向港交所主板递交上市申请，中信证券担任独家保荐人。 就在递表前几天，这家近期备受资金追捧的A股公司，再次创下上市以来股价新高。 5月11日，宏和科技盘中一度冲高至153.2元/股，最终收报149.98元/股。 若与202
 
 ## 正文
 
-中新社北京6月15日电 伯尔尼消息：在当地时间14日举行的瑞士全民公投中，选民们否决了一项旨在将瑞士人口上限定为1000万人的提案。
+来源 | 财通社 撰文 | 文希 15倍大牛股宏和科技（603256.SH），向港股迈出关键一步。
 
-综合瑞士资讯网、路透社报道，该提案由右翼的瑞士人民党倡导，规定瑞士人口在2050年前不得超过1000万人，以应对国家基础设施日益增大的压力。
+5月15日，宏和电子材料科技股份有限公司（简称“宏和科技”）向港交所主板递交上市申请，中信证券担任独家保荐人。
 
-如果连续两年人口超过1000万，瑞士应终止与欧盟的人员自由流动协议。
+就在递表前几天，这家近期备受资金追捧的A股公司，再次创下上市以来股价新高。
 
-据全国公投的初步统计结果显示，近55%的瑞士选民反对该提案，45%的选民赞成。
+5月11日，宏和科技盘中一度冲高至153.2元/股，最终收报149.98元/股。
 
-本次公投的投票参与率为58.9%，显著高于平均水平。
+若与2025年5月11日9.35元/股的近一年低点相比，公司股价一年间累计涨幅已超过15倍，妥妥的大牛股。
 
-路透社称，瑞士人口目前已超910万人，其增长速度远超周边欧盟国家。
+股价急涨之际，风险提示也随之而来。
 
-外国人占瑞士总人口的近28%。
+5月8日晚间，宏和科技公告称，公司股票连续3个交易日收盘价格涨幅偏离值累计超过20%，属于股票交易异常波动情形。
 
-瑞士联邦委员兼司法警察部长贝亚特·扬斯(Beat Jans)对公投结果表示赞赏。
+不过，高位震荡似乎已然出现。
 
 ## 相关推荐
 
-- 2026-06-30 08:01 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
-- 2026-06-30 07:45 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-30 07:54 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-30 07:44 - [高质量发展看新疆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
-- 2026-06-30 08:01 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-30 08:04 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
-- 2026-06-30 08:10 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-30 08:11 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-30 07:56 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-30 08:01 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-30 07:48 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-30 07:43 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-30 08:11 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-30 08:06 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-30 08:13 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-30 08:06 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-30 07:54 - [德国进球被吹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-30 07:54 - [泰山景区回应修建刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-30 07:59 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-30 08:01 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
+- 2026-06-30 08:11 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-30 08:04 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
+- 2026-06-30 07:56 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:02 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://www.share.kurohicncr.top/Article/details/17776041.shtml)
-- 2026-06-30 08:11 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/265564.shtml)
-- 2026-06-30 07:57 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/22552.shtml)
-- 2026-06-30 08:07 - [锐评T1战胜KC](http://www.blog.kurohicncr.top/Article/details/76392.shtml)
-- 2026-06-30 07:51 - [Melo向柳智敏张元英道歉](http://www.blog.kurohicncr.top/Article/details/439964109.shtml)
-- 2026-06-30 07:50 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/976295492201.shtml)
-- 2026-06-30 07:57 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/92332130.shtml)
-- 2026-06-30 07:51 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/733280321.shtml)
-- 2026-06-30 08:04 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/9903656842.shtml)
-- 2026-06-30 07:50 - [日本领先巴西](http://www.share.kurohicncr.top/Article/details/614871187.shtml)
-- 2026-06-30 07:42 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/4028037400.shtml)
-- 2026-06-30 08:03 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/222772329.shtml)
-- 2026-06-30 08:02 - [爆冷出局！德国点球大战不敌巴拉圭](http://www.share.kurohicncr.top/Article/details/097158975699.shtml)
-- 2026-06-30 07:48 - [王健林甩卖超80座万达广场](https://www.blog.kurohicncr.top/Article/details/00019165.shtml)
-- 2026-06-30 07:55 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/19123249046.shtml)
+- 2026-06-30 08:13 - [董卿父亲在报纸上发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/85926.shtml)
+- 2026-06-30 08:06 - [巴西vs日本](http://www.blog.minike.top/Article/details/2082230940.shtml)
+- 2026-06-30 07:58 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/524243107.shtml)
+- 2026-06-30 08:12 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/12693711.shtml)
+- 2026-06-30 07:49 - [德国淘汰](https://www.blog.minike.top/Article/details/703737474.shtml)
+- 2026-06-30 07:50 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/212460752939.shtml)
+- 2026-06-30 08:12 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/331140.shtml)
+- 2026-06-30 08:14 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/02114.shtml)
+- 2026-06-30 08:12 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.kurohicncr.top/Article/details/38585.shtml)
+- 2026-06-30 07:50 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/22234018315.shtml)
+- 2026-06-30 07:54 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/79924972148.shtml)
+- 2026-06-30 08:07 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/173672.shtml)
+- 2026-06-30 07:50 - [极限挑战第一季](https://www.blog.minike.top/Article/details/7606102846.shtml)
+- 2026-06-30 07:52 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/070245239.shtml)
+- 2026-06-30 08:17 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/8090635453.shtml)

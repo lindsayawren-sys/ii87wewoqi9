@@ -1,59 +1,57 @@
-# 各地积极调整优化住房公积金政策
+# 程樯：懂内容创作的‘正规军’将成为真人短剧市场的中坚力量
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-原标题：各地积极调整优化住房公积金政策 央视网消息(新闻联播)：今年以来，住房公积金政策迎来密集调整，各地积极拓宽公积金提取使用范围，满足多元化住房消费需求。 今年以来，全国已有超过60个城市调整优化了公积金政策，涉及贷款额度、首付比例、提取范围等方面，公积金的提取场景也正从传统的“购房、租房”拓展至自住住房装修或支付物业费、城市更新等多个民生领域。近日，沈阳出台七项住房公积金
+近日，在首届短剧产业大会分论坛“真人短剧精品化研讨会”上，北京电影学院智能影像工程学院教授程樯展示了一组来自权威机构统计的数据：中国短剧市场规模在2023年达到373.9亿元后，2024年强势突破504亿元大关，目前整体规模直指700亿元。数据的爆发式增长验证了真人短剧强劲的生命力。程樯深入剖析了真人短剧行业在政策引导与市场驱动下的变革逻辑。他指出，真人短剧正从野蛮生长的“童年
 
 ## 正文
 
-原标题：各地积极调整优化住房公积金政策 央视网消息(新闻联播)：今年以来，住房公积金政策迎来密集调整，各地积极拓宽公积金提取使用范围，满足多元化住房消费需求。
+近日，在首届短剧产业大会分论坛“真人短剧精品化研讨会”上，北京电影学院智能影像工程学院教授程樯展示了一组来自权威机构统计的数据：中国短剧市场规模在2023年达到373.9亿元后，2024年强势突破504亿元大关，目前整体规模直指700亿元。
 
-今年以来，全国已有超过60个城市调整优化了公积金政策，涉及贷款额度、首付比例、提取范围等方面，公积金的提取场景也正从传统的“购房、租房”拓展至自住住房装修或支付物业费、城市更新等多个民生领域。
+数据的爆发式增长验证了真人短剧强劲的生命力。
 
-近日，沈阳出台七项住房公积金政策，包括支持适居性改造、居家适老化改造提取住房公积金等举措。
+程樯深入剖析了真人短剧行业在政策引导与市场驱动下的变革逻辑。
 
-此外，各地还积极推进灵活就业人员参加住房公积金制度。
+他指出，真人短剧正从野蛮生长的“童年期”步入规范发展的“青年期”，精品化与系列化已成为行业不可逆转的核心趋势。
 
-宜昌、济南、柳州等地全面放开灵活就业人员缴存限制，未达法定退休年龄的灵活就业人员，包括外卖员、快递员、网约车司机、个体工商户等，都可以线上自主开户缴存。
+政策导向与市场赋能双驱短剧精品化 程樯的“成年礼”观点事实上是他基于对行业现状的洞察得出的，他认为，短剧正在告别依靠低俗、擦边、贩卖焦虑博眼球的草莽时代。
 
-今年以来，住房公积金跨区域便利化服务水平也在持续提升。
+“大浪淘沙后，真正敬畏内容、懂创作的‘正规军’将成为市场中坚力量。
 
-目前，长三角地区全域实现公积金缴存、贷款、提取一体化通办，粤港澳大湾区多个城市打通跨城公积金联办通道，西安与青海实现了公积金互认互贷，四川、重庆已累计支持跨域公积金贷款超71亿元。
+” 这标志着国家政策导向与行业发展的内生动力实现了历史性交汇，为真人短剧精品化奠定了制度基石。
 
-来源：央视网
+随着专业人才的涌入，技术与平台机制也在为行业托底。
 
 ## 相关推荐
 
-- 2026-06-30 07:47 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-30 08:04 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-30 08:04 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-30 07:46 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
-- 2026-06-30 08:01 - [德国巴拉圭进入点球大战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-30 07:49 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
-- 2026-06-30 07:54 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
-- 2026-06-30 08:10 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-30 07:50 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-30 08:10 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-30 07:45 - [泰山景区回应修建刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-30 07:44 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-30 07:58 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-30 08:16 - [德国罚丢3粒点球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-30 08:10 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-30 08:01 - [周冬雨多次说演不了话剧文城](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-30 08:04 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
+- 2026-06-30 07:49 - [田中碧失误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-30 08:10 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-30 08:01 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-30 08:06 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-30 07:58 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-30 07:58 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-30 08:00 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:42 - [世界杯](https://www.share.minike.top/Article/details/27655.shtml)
-- 2026-06-30 08:02 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/27951.shtml)
-- 2026-06-30 08:03 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/846166.shtml)
-- 2026-06-30 08:08 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.kurohicncr.top/Article/details/11197056336.shtml)
-- 2026-06-30 07:47 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/19716036.shtml)
-- 2026-06-30 08:06 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/634405887094.shtml)
-- 2026-06-30 08:07 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.minike.top/Article/details/219616226.shtml)
-- 2026-06-30 07:51 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/33265.shtml)
-- 2026-06-30 07:49 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/44946344380.shtml)
-- 2026-06-30 07:59 - [补时绝杀 巴西2-1淘汰日本](http://www.share.kurohicncr.top/Article/details/64611.shtml)
-- 2026-06-30 07:59 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/04294326.shtml)
-- 2026-06-30 07:46 - [速度与激情9](http://www.share.minike.top/Article/details/308862651.shtml)
-- 2026-06-30 07:42 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.minike.top/Article/details/433758164266.shtml)
-- 2026-06-30 07:58 - [穆祉丞年度人气艺人](http://www.share.kurohicncr.top/Article/details/33158574.shtml)
-- 2026-06-30 08:03 - [徐亮怒斥世界杯踢假球](https://www.share.minike.top/Article/details/58818137103.shtml)
+- 2026-06-30 08:02 - [时光音乐会](https://www.blog.minike.top/Article/details/9236830.shtml)
+- 2026-06-30 08:16 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/08606.shtml)
+- 2026-06-30 08:17 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/74909479499.shtml)
+- 2026-06-30 08:04 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.minike.top/Article/details/34668.shtml)
+- 2026-06-30 08:04 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.kurohicncr.top/Article/details/61163601.shtml)
+- 2026-06-30 07:59 - [又一家县级医院关停门诊输液大厅](http://www.blog.minike.top/Article/details/01404361.shtml)
+- 2026-06-30 08:11 - [高质量发展看新疆](https://www.blog.kurohicncr.top/Article/details/85284014.shtml)
+- 2026-06-30 08:04 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/584887140.shtml)
+- 2026-06-30 08:16 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/973561153564.shtml)
+- 2026-06-30 08:01 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/54037.shtml)
+- 2026-06-30 08:09 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://www.blog.minike.top/Article/details/897834962761.shtml)
+- 2026-06-30 08:18 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/684581.shtml)
+- 2026-06-30 07:52 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.blog.minike.top/Article/details/25935857.shtml)
+- 2026-06-30 08:07 - [女子遭下药退赔偿拟追刑责](https://www.blog.minike.top/Article/details/65880925.shtml)
+- 2026-06-30 08:11 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/837367991.shtml)

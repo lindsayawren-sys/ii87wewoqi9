@@ -1,56 +1,61 @@
-# 中英人民币国际使用研讨会举行
+# 长江有色：中东局势缓和多头试探性修复 19日铅价或涨跌不大
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-中新网伦敦6月16日电 (记者 欧阳开宇)中英人民币国际使用研讨会6月15日在中国银行总行举行。本次活动由中国银行与伦敦金融城联合举办，预发布《伦敦人民币业务2026年度报告》，来自中英两国政府机关、企业、金融机构等近50人参加。与会代表围绕人民币跨境使用最新进展、伦敦离岸人民币市场发展成果、人民币清算与支付基础设施建设、金融机构服务企业跨境经营实践等内容进行了深入交流。中国人
+【ccmn.cn铅期货市场】隔周伦铅收跌，开盘报1983.50美元/吨，高点报1987美元，低点报1976美元，尾盘收于1981美元，下跌3美元，跌幅为0.15%，成交量为5608手，持仓量报176718手。 长江铅业网（pb.ccmn.cn）今日现货铅价行情预估：受美联储降息预期降温、获利盘集中兑现及海外高库存压制，隔夜伦铅维持弱势震荡；嘉能可炼厂事故与秘鲁能源危机带来的供应
 
 ## 正文
 
-中新网伦敦6月16日电 (记者 欧阳开宇)中英人民币国际使用研讨会6月15日在中国银行总行举行。
+【ccmn.cn铅期货市场】隔周伦铅收跌，开盘报1983.50美元/吨，高点报1987美元，低点报1976美元，尾盘收于1981美元，下跌3美元，跌幅为0.15%，成交量为5608手，持仓量报176718手。
 
-本次活动由中国银行与伦敦金融城联合举办，预发布《伦敦人民币业务2026年度报告》，来自中英两国政府机关、企业、金融机构等近50人参加。
+长江铅业网（pb.ccmn.cn）今日现货铅价行情预估：受美联储降息预期降温、获利盘集中兑现及海外高库存压制，隔夜伦铅维持弱势震荡；嘉能可炼厂事故与秘鲁能源危机带来的供应担忧，为其提供了坚实底部支撑。
 
-与会代表围绕人民币跨境使用最新进展、伦敦离岸人民币市场发展成果、人民币清算与支付基础设施建设、金融机构服务企业跨境经营实践等内容进行了深入交流。
+与此同时，中东地缘风险缓和叠加美元走弱，国内再生铅供应突发收缩，推动沪铅走出独立上涨行情，供需基本面差异成为内外分化的核心原因。
 
-中国人民银行、跨境银行间支付清算有限责任公司、中国银行、汇丰银行等机构代表分别分享了相关成果和案例，展现人民币国际使用在促进贸易投资便利化、提升跨境金融服务效率、服务中英企业高质量发展等方面的积极作用。
+原材料与产业链现状 原材料端呈现双紧格局，全球高品位铅精矿供应持续偏紧，进口加工费长期处于历史低位区间，铅精矿进口窗口持续关闭。
 
-活动现场，伦敦金融城介绍并预发布《伦敦人民币业务2026年度报告》。
+废旧铅酸蓄电池市场回收量不及预期，持货商惜售情绪浓厚，原料价格保持坚挺，对铅价形成强有力的成本支撑。
 
-该报告由伦敦金融城和中国人民银行欧洲代表处牵头，中国银行作为伦敦人民币市场监测工作小组核心成员参与撰写。
+产业链方面，原生铅炼厂整体盈利状况尚可，受原料供应限制，本月产量出现小幅回落。
 
-报告系统梳理了伦敦离岸人民币市场的发展成果、面临挑战和未来展望。
+下游铅酸蓄电池行业仍处于传统消费淡季，生产企业开工率维持在较低水平，经销商库存消化缓慢，市场整体以刚需采购为主，大规模补库意愿不强。
 
-作为最早在英国设立机构的中资银行，中国银行深耕英国市场近百年，坚持做好两国经贸投资的金融桥梁。
+短期走势预测 今日宏观面焦点仍集中在美伊谈判进展和美联储官员讲话。
 
 ## 相关推荐
 
-- 2026-06-30 08:00 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
-- 2026-06-30 07:46 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
-- 2026-06-30 08:06 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-30 07:53 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
-- 2026-06-30 07:43 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-30 08:10 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-30 07:42 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-30 07:52 - [泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-30 07:49 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
-- 2026-06-30 07:52 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-30 08:02 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-30 07:53 - [勇士续约波尔津吉斯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-30 08:11 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-30 07:50 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-30 07:55 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-30 08:09 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-30 08:02 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-30 08:07 - [王楚钦说配合稍微有些陌生感](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-30 08:16 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-30 08:00 - [德国巴拉圭 折磨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-30 08:17 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-30 07:51 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
+- 2026-06-30 08:02 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-30 07:53 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-30 08:08 - [库尼亚赛后伸五指嘲讽日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:02 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/8001317.shtml)
-- 2026-06-30 07:44 - [补时绝杀 巴西2-1淘汰日本](https://www.share.minike.top/Article/details/802888539813.shtml)
-- 2026-06-30 08:08 - [德国 传控](http://www.share.kurohicncr.top/Article/details/72685162519.shtml)
-- 2026-06-30 08:04 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/01136.shtml)
-- 2026-06-30 08:02 - [巴西绝杀日本](http://www.blog.minike.top/Article/details/0544592696.shtml)
-- 2026-06-30 07:58 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/989016238235.shtml)
-- 2026-06-30 07:44 - [巴西足球能否再现昔日荣光](http://www.blog.minike.top/Article/details/29144.shtml)
-- 2026-06-30 07:58 - [森保一致歉：世界第一目标没能实现](https://www.share.minike.top/Article/details/281894.shtml)
-- 2026-06-30 07:45 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/135606.shtml)
-- 2026-06-30 07:44 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/09697875.shtml)
-- 2026-06-30 07:50 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/788668644103.shtml)
-- 2026-06-30 07:45 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.minike.top/Article/details/3872398217.shtml)
-- 2026-06-30 08:03 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/762466.shtml)
-- 2026-06-30 07:44 - [现在叛逆期的孩子最怕的是什么？](http://www.blog.kurohicncr.top/Article/details/085375443758.shtml)
-- 2026-06-30 07:55 - [韩国球迷凌晨4点接机怒骂主教练](https://www.blog.minike.top/Article/details/49498101743.shtml)
+- 2026-06-30 08:11 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/1648241.shtml)
+- 2026-06-30 07:48 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/4766763.shtml)
+- 2026-06-30 07:57 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/74430459306.shtml)
+- 2026-06-30 07:48 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/3477577136.shtml)
+- 2026-06-30 07:58 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/5338875.shtml)
+- 2026-06-30 07:54 - [大蒜晒外面被路过女子连盆端走](http://www.share.minike.top/Article/details/5804141.shtml)
+- 2026-06-30 08:12 - [萨内 看笑了](http://www.share.minike.top/Article/details/2867247987.shtml)
+- 2026-06-30 07:50 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/235183.shtml)
+- 2026-06-30 08:11 - [郑钦文温网一轮游](https://www.share.minike.top/Article/details/9400133886.shtml)
+- 2026-06-30 08:14 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/18656.shtml)
+- 2026-06-30 08:14 - [张雪的一句“是我们”引发岛内热议](http://www.blog.kurohicncr.top/Article/details/786793.shtml)
+- 2026-06-30 08:05 - [二次元提前预演明日巴西对日本](https://www.blog.minike.top/Article/details/5291208.shtml)
+- 2026-06-30 08:15 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/7535826698.shtml)
+- 2026-06-30 08:06 - [F1奥地利站赛后复盘](http://www.blog.minike.top/Article/details/063686026.shtml)
+- 2026-06-30 08:15 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/125327410.shtml)

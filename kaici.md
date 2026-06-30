@@ -1,54 +1,61 @@
-# 麦科奥特：公司核心产品被临床医生高度期待 不担心新药上市周期长市场被瓜分
+# 两项亚洲体操赛事6月在贵州遵义举办
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-内地创新药企麦科医药-B （2335） 于6月15日至18日招股。预期将于6月24日挂牌买卖，建银国际、招商证券国际为联席保荐人。 公司以18A章上市的创新药企麦科医药计划发行5805.4万股H股，10%在港公开发售，招股价介乎18.2元至21元，其余国际配售，集资最多12.2亿元。 公司管理层在记者会中表示，核心新药MT1013目前进入III期临床，将在2028年初实现商业化
+中新网贵州遵义5月19日电 (记者 瞿宏伦)第13届亚洲体操锦标赛、第19届亚洲青年体操锦标赛，定于2026年6月15日至29日在贵州省遵义市新蒲新区举办，整个赛期历时15天，将汇聚亚洲最顶尖的体操力量演绎力与美的交响。 记者从19日举行的第13届亚洲体操锦标赛和第19届亚洲青年体操锦标赛新闻发布会获悉上述信息。 本届赛事是亚洲最高级别的专项体操锦标赛，同时也是承担2026年世
 
 ## 正文
 
-内地创新药企麦科医药-B （2335） 于6月15日至18日招股。
+中新网贵州遵义5月19日电 (记者 瞿宏伦)第13届亚洲体操锦标赛、第19届亚洲青年体操锦标赛，定于2026年6月15日至29日在贵州省遵义市新蒲新区举办，整个赛期历时15天，将汇聚亚洲最顶尖的体操力量演绎力与美的交响。
 
-预期将于6月24日挂牌买卖，建银国际、招商证券国际为联席保荐人。
+记者从19日举行的第13届亚洲体操锦标赛和第19届亚洲青年体操锦标赛新闻发布会获悉上述信息。
 
-公司以18A章上市的创新药企麦科医药计划发行5805.4万股H股，10%在港公开发售，招股价介乎18.2元至21元，其余国际配售，集资最多12.2亿元。
+本届赛事是亚洲最高级别的专项体操锦标赛，同时也是承担2026年世界体操锦标赛、爱知·名古屋亚运会的双重资格选拔职能赛。
 
-公司管理层在记者会中表示，核心新药MT1013目前进入III期临床，将在2028年初实现商业化，不担心新药上市周期长导致市场被瓜分，目前公司核心产品被临床医生高度期待。
+亚洲各国和地区的体操健儿，将在遵义赛场上为争夺国际顶级赛事入场券展开激烈比拼。
 
-此外，公司另有六项药物在研发，包括主攻体重管理市场的减肥药XTL6001，预计本季度可完成一期临床试验。
+本届赛事完整设置男子、女子体操全部奥运正式项目：男子设团体、全能及6个单项，共8项；女子设团体、全能及4个单项，共6项。
 
-责任编辑：郝欣煜
+尤其是：亚洲青年体操锦标赛是亚洲青年最高级别赛事，是亚洲体操后备力量最重要的展示舞台和竞技平台，核心价值在于“选苗”。
+
+截至目前，已有亚洲27个国家和地区的600余名运动员、教练员、裁判员及官员完成预报名，参赛队伍覆盖东亚、东南亚、南亚、中亚、西亚五大区域。
+
+参赛国家和地区、以及人数规模已经追平了亚锦赛历史最佳纪录。
 
 ## 相关推荐
 
-- 2026-06-30 07:50 - [全新问界M9现身美国街头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-30 07:54 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
-- 2026-06-30 08:04 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-30 07:58 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
-- 2026-06-30 07:51 - [武磊：巴西队赢的并不轻松](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-30 08:10 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
-- 2026-06-30 08:00 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-30 08:09 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-30 07:54 - [女子遭下药退赔偿拟追刑责](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
-- 2026-06-30 08:04 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-30 08:03 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
-- 2026-06-30 07:49 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
+- 2026-06-30 08:01 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-30 08:16 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-30 08:17 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
+- 2026-06-30 07:55 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-30 07:51 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-30 07:48 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-30 07:48 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-30 07:54 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-30 08:09 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-30 08:01 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-30 08:02 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-30 08:08 - [Melo向柳智敏张元英道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-30 08:15 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-30 07:57 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-30 08:03 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:08 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.kurohicncr.top/Article/details/47753794.shtml)
-- 2026-06-30 08:02 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/72523037976.shtml)
-- 2026-06-30 07:50 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/97347936274.shtml)
-- 2026-06-30 07:55 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/089715904090.shtml)
-- 2026-06-30 08:11 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/5278366752.shtml)
-- 2026-06-30 08:01 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/48243.shtml)
-- 2026-06-30 08:04 - [复古未来主义沙画「夜泳」](http://www.share.kurohicncr.top/Article/details/670623732.shtml)
-- 2026-06-30 07:52 - [“柠檬茶能换怀表？”](http://www.blog.minike.top/Article/details/227089202690.shtml)
-- 2026-06-30 07:49 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/0842602.shtml)
-- 2026-06-30 08:04 - [我觉得你是在无中生友](https://www.share.kurohicncr.top/Article/details/5896973975.shtml)
-- 2026-06-30 08:05 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.kurohicncr.top/Article/details/4931450.shtml)
-- 2026-06-30 07:52 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/75721.shtml)
-- 2026-06-30 07:46 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/972685491.shtml)
-- 2026-06-30 07:48 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.minike.top/Article/details/201191.shtml)
-- 2026-06-30 07:53 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/078567271172.shtml)
+- 2026-06-30 08:16 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/7100765804.shtml)
+- 2026-06-30 07:54 - [小勒布伦WTT美国大满贯开门红](https://www.share.minike.top/Article/details/6183164.shtml)
+- 2026-06-30 08:00 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/85274984669.shtml)
+- 2026-06-30 07:50 - [德国进球被吹](http://www.share.kurohicncr.top/Article/details/6355068.shtml)
+- 2026-06-30 07:48 - [武磊：日本队有能力跟任何强队抗衡](https://www.blog.kurohicncr.top/Article/details/6589888441.shtml)
+- 2026-06-30 08:07 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/0927272324.shtml)
+- 2026-06-30 07:59 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/3122012.shtml)
+- 2026-06-30 07:56 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/82905621041.shtml)
+- 2026-06-30 07:51 - [女子清吧被陌生人投放伟哥](https://www.blog.kurohicncr.top/Article/details/108773587077.shtml)
+- 2026-06-30 08:07 - [张雪的一句“是我们”引发岛内热议](http://www.share.kurohicncr.top/Article/details/0059912.shtml)
+- 2026-06-30 08:04 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/73516.shtml)
+- 2026-06-30 08:15 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.minike.top/Article/details/01106.shtml)
+- 2026-06-30 07:53 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/58401895.shtml)
+- 2026-06-30 08:09 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.kurohicncr.top/Article/details/8674647166.shtml)
+- 2026-06-30 08:09 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/753996648.shtml)

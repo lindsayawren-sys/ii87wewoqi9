@@ -1,57 +1,56 @@
-# 股价破发，重要股东接连减持！盛泰集团回应两个关键问题
+# 山东省中华职教社：强化乡村医生培育 守护基层民众健康
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！近日，盛泰集团发布第二大股东伊藤忠卓越纤维（亚洲）有限公司（以下简称伊藤忠亚洲）的减持计划公告，该股东拟减持不超3%的公司股份。而这已经是该股东近一年的第二次减持。除了伊藤忠亚洲的减持，盛泰集团也被第三大股东雅戈尔服装控股有限公司（以下简称雅戈尔服装）多次减
+中新网济南5月19日电 (吕妍 吴曦)山东省中华职业教育社主办的2026年度“温暖工程·乡村医生免费培训”活动第一期培训班5月19日在山东济南开班。来自山东9个县(区)的94名乡村医生参加培训。 山东省中华职业教育社专职秘书长程海峰表示，随着农村民众健康需求日益增长、基层医疗卫生事业不断发展，对乡村医生的专业能力、服务水平提出了更高要求。全体参训学员要珍惜机遇、潜心研学，全面提
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网济南5月19日电 (吕妍 吴曦)山东省中华职业教育社主办的2026年度“温暖工程·乡村医生免费培训”活动第一期培训班5月19日在山东济南开班。
 
-近日，盛泰集团发布第二大股东伊藤忠卓越纤维（亚洲）有限公司（以下简称伊藤忠亚洲）的减持计划公告，该股东拟减持不超3%的公司股份。
+来自山东9个县(区)的94名乡村医生参加培训。
 
-而这已经是该股东近一年的第二次减持。
+山东省中华职业教育社专职秘书长程海峰表示，随着农村民众健康需求日益增长、基层医疗卫生事业不断发展，对乡村医生的专业能力、服务水平提出了更高要求。
 
-除了伊藤忠亚洲的减持，盛泰集团也被第三大股东雅戈尔服装控股有限公司（以下简称雅戈尔服装）多次减持。
+全体参训学员要珍惜机遇、潜心研学，全面提升专业素养，努力成长为业务精湛、本领过硬的基层医疗骨干；要学以致用、知行合一，用心守护民众健康，切实当好农村民众的健康“守门人”；要坚守初心、勇担使命，为提升农村医疗卫生服务水平、推进健康山东建设、全面实施乡村振兴战略贡献基层医疗力量。
 
-两名重要股东接连减持的背后是公司近三年持续下滑的业绩。
+本期培训班紧扣基层常见病诊疗、公共卫生服务、应急救护技能、中医药适宜技术等核心内容，采用理论授课、实操演练、案例研讨相结合的教学模式，邀请山东省内高等医学院校、三级甲等医院富有教学和临床经验的专家授课，内容务实、针对性强，帮助乡村医生补齐能力短板、更新知识体系、提升服务水平。
 
-公司2025年的营业收入较2022年下滑超四成，2025年归母净利润较2022年下滑超九成。
+培训全程免收培训费、住宿费，切实减轻基层医务人员负担，让惠民举措直达一线。
 
-而公司的股价也长期处于破发状态。
+据悉，“温暖工程·乡村医生免费培训”活动是山东省中华职业教育社充分发挥统一战线人才荟萃、智力密集、联系广泛、资源丰沛优势，结合山东实际，因地制宜、开拓创新，依托社员单位山东协和学院，联合打造的温暖工程品牌活动。
 
-对于公司的业绩情况及未来增长点，公司回复了《每日经济新闻》记者的采访。
+活动系统谋划、定位精准、受益面广，重点培训专业知识不全面、业务技能待提升的一线乡村医务人员，精准匹配基层医疗实际需求，筑牢乡村医疗卫生服务网底。
 
 ## 相关推荐
 
-- 2026-06-30 08:09 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-30 07:56 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-30 07:43 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-30 08:06 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-30 07:50 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-30 07:42 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-30 08:06 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-30 08:03 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-30 07:57 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-30 08:05 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-30 08:07 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-30 07:58 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-30 08:10 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-30 08:10 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-30 08:05 - [点球大战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
+- 2026-06-30 08:10 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-30 08:11 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-30 08:05 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-30 08:13 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-30 07:52 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-30 08:05 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:09 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/15361.shtml)
-- 2026-06-30 07:59 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://www.share.minike.top/Article/details/474890.shtml)
-- 2026-06-30 07:56 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.minike.top/Article/details/0928222.shtml)
-- 2026-06-30 08:06 - [MSI应援曲 如果季中成回忆](https://www.share.minike.top/Article/details/6585534369.shtml)
-- 2026-06-30 07:47 - [上半年全国特种设备安全形势总体平稳](https://www.blog.minike.top/Article/details/6167980.shtml)
-- 2026-06-30 08:04 - [这种关系可能正在悄悄“催老”你](https://www.blog.kurohicncr.top/Article/details/799670221.shtml)
-- 2026-06-30 07:51 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/413903939.shtml)
-- 2026-06-30 07:44 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.share.kurohicncr.top/Article/details/6213581.shtml)
-- 2026-06-30 08:10 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.blog.minike.top/Article/details/548378.shtml)
-- 2026-06-30 07:42 - [巴拉圭先进球了](http://www.share.minike.top/Article/details/2687219.shtml)
-- 2026-06-30 07:43 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/401278.shtml)
-- 2026-06-30 07:44 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/5399457630.shtml)
-- 2026-06-30 08:00 - [流金岁月](https://www.share.minike.top/Article/details/955930.shtml)
-- 2026-06-30 07:47 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/13877216764.shtml)
-- 2026-06-30 08:01 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/15512.shtml)
+- 2026-06-30 08:02 - [古代人对纳妾的态度是什么样的？](https://www.blog.minike.top/Article/details/462071224106.shtml)
+- 2026-06-30 08:09 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/548890083118.shtml)
+- 2026-06-30 07:57 - [网瘾賊大的阿嬷](https://www.blog.kurohicncr.top/Article/details/8363681.shtml)
+- 2026-06-30 07:56 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/1461111.shtml)
+- 2026-06-30 08:13 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/9957607478.shtml)
+- 2026-06-30 07:54 - [Melo向柳智敏张元英道歉](https://www.blog.minike.top/Article/details/99302.shtml)
+- 2026-06-30 08:06 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/6421741952.shtml)
+- 2026-06-30 08:16 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/13823199.shtml)
+- 2026-06-30 08:10 - [上市央企地产商 两年换了三任董事长](http://www.blog.kurohicncr.top/Article/details/434411.shtml)
+- 2026-06-30 08:13 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/700516459.shtml)
+- 2026-06-30 08:01 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.minike.top/Article/details/7977791475.shtml)
+- 2026-06-30 08:00 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/886005806.shtml)
+- 2026-06-30 08:07 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/634569213.shtml)
+- 2026-06-30 08:05 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/32776.shtml)
+- 2026-06-30 08:05 - [刘宇宁高情商化解谁站C位](https://www.share.minike.top/Article/details/567118203.shtml)

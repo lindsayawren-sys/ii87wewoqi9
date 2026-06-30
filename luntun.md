@@ -1,57 +1,56 @@
-# “各民族的传统节日都是中华民族节日”
+# 最高检联合中国残联发布残疾未成年人权益保护典型案例
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-中新社记者 邢利宇 既时时生活在自己的传统文化中，又常常身处跨文化交流里……在当今世界，这不仅是人们的日常生活图景，也是现代国家存在发展的现实处境。 节日文化兼具民族标识性和人类共享性，是我们理解观察当代世界的窗口和平台。中国各民族丰富多彩的节日活动，在促进不同地域、不同代际中国人形成中华民族共同体身份认同方面有着怎样独特的作用和意义？当年轻人通过短视频传播、国潮文创等新方式参
+中新网5月18日电 据最高检网站消息，近日，最高人民检察院联合中国残疾人联合会发布一批残疾未成年人权益保护典型案例。 7个案例分别为：立足高质效综合履职、维护残疾未成年人民事权益的李某甲交通事故赔偿支持起诉、民事执行监督案；紧盯专项资金落地、守护残疾学生教育权益的残疾未成年学生教育资助金公益诉讼案；着眼长远发展、以机制创新铺就逐梦之路的李某性侵案；发挥民事检察监督职能、维护残疾
 
 ## 正文
 
-中新社记者 邢利宇 既时时生活在自己的传统文化中，又常常身处跨文化交流里……在当今世界，这不仅是人们的日常生活图景，也是现代国家存在发展的现实处境。
+中新网5月18日电 据最高检网站消息，近日，最高人民检察院联合中国残疾人联合会发布一批残疾未成年人权益保护典型案例。
 
-节日文化兼具民族标识性和人类共享性，是我们理解观察当代世界的窗口和平台。
+7个案例分别为：立足高质效综合履职、维护残疾未成年人民事权益的李某甲交通事故赔偿支持起诉、民事执行监督案；紧盯专项资金落地、守护残疾学生教育权益的残疾未成年学生教育资助金公益诉讼案；着眼长远发展、以机制创新铺就逐梦之路的李某性侵案；发挥民事检察监督职能、维护残疾未成年人人身损害赔偿权的宋某某医疗损害责任纠纷民事检察监督抗诉案；跨越地域协同施策、多元联动救助的赵某乙被遗弃案；检察机关和残联组织全程联动、保障多残疾人家庭基本生活的赵某甲抚养费纠纷案；以及纾解因案致困残疾人家庭生活困难的孙某某诈骗再审抗诉案。
 
-中国各民族丰富多彩的节日活动，在促进不同地域、不同代际中国人形成中华民族共同体身份认同方面有着怎样独特的作用和意义？
+此次发布的典型案例涵盖刑事、民事、行政、公益诉讼“四大检察”职能，聚焦残疾未成年人在交通事故赔偿、受教育权保障、遗弃救助、医疗损害追偿等领域的现实困境和依法维权所面临的痛点难点，旨在以高质效检察履职守护这一特殊群体的合法权益，是检察机关以法治力量回应民生关切的生动缩影。
 
-当年轻人通过短视频传播、国潮文创等新方式参与到传统节日活动中时，给节日文化的传承带来哪些新意？
+这批案例有两个鲜明特点。
 
-北京师范大学人文和社会科学高等研究院教授高丙中就相关话题接受了中新社“东西问”专访。
+一是多部门协同作战，织密保护网。
 
-现将访谈实录摘要如下： 中新社记者：中国有很多民族都举行庆祝活动的春节、中秋节等，也有傣族泼水节、蒙古族那达慕等各民族各自的传统节日。
+例如，在残疾未成年学生教育资助金公益诉讼案中，检察机关与残联共同建立“教育牵头、部门协同、检察监督”的长效机制，确保资助金精准“滴灌”到最需要的孩子身上。
 
-这些丰富多彩的节日活动，在促进不同地域、不同代际中国人形成中华民族共同体身份认同方面有着怎样的作用和意义？
+二是不止于解决眼前困难，更着眼残疾未成年人的长远发展。
 
-高丙中：传统节日，是民族在长期的历史实践中形成、稳固、丰富起来的，人们不约而同在特定的时间参与到特定的仪式活动和文娱活动中来，形成心态和情绪的同频共振，获得共同的价值体验，表达对于民族、国家的文化认同。
+例如，在李某性侵案中，检察官了解到被侵害少女的特长及意愿后，联动残联为其组建“一对一成长培育专班”。
 
 ## 相关推荐
 
-- 2026-06-30 07:45 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-30 07:46 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
-- 2026-06-30 07:55 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-30 07:55 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-30 08:05 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
-- 2026-06-30 07:47 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
-- 2026-06-30 07:59 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-30 07:42 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-30 07:52 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
-- 2026-06-30 07:44 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-30 08:02 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-30 08:06 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-30 08:05 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-30 07:51 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-30 08:00 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-30 07:50 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-30 08:09 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-30 08:01 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-30 07:54 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-30 08:17 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-30 08:13 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:51 - [三星投资计划](https://www.blog.kurohicncr.top/Article/details/056182.shtml)
-- 2026-06-30 07:59 - [我觉得你是在无中生友](http://www.share.kurohicncr.top/Article/details/00534144910.shtml)
-- 2026-06-30 07:46 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.minike.top/Article/details/14033.shtml)
-- 2026-06-30 07:54 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/90782.shtml)
-- 2026-06-30 07:47 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/1673990.shtml)
-- 2026-06-30 07:48 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.blog.kurohicncr.top/Article/details/13029918.shtml)
-- 2026-06-30 07:45 - [啊啊啊](http://www.blog.minike.top/Article/details/12869821826.shtml)
-- 2026-06-30 07:58 - [德国连续三届世界杯无缘16强](http://www.share.kurohicncr.top/Article/details/8997062.shtml)
-- 2026-06-30 07:58 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/3691142444.shtml)
-- 2026-06-30 08:04 - [德国连续三届世界杯无缘16强](https://www.blog.minike.top/Article/details/5930233065.shtml)
-- 2026-06-30 07:44 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/111711.shtml)
-- 2026-06-30 07:56 - [巴西在进攻三区完成210脚传球](https://www.blog.kurohicncr.top/Article/details/945677523.shtml)
-- 2026-06-30 08:03 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/7294986.shtml)
-- 2026-06-30 08:02 - [巴拉圭点球大战淘汰德国进16强](http://www.blog.kurohicncr.top/Article/details/00073318.shtml)
-- 2026-06-30 08:06 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/135984085.shtml)
+- 2026-06-30 08:14 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/93155.shtml)
+- 2026-06-30 07:51 - [德国淘汰](http://www.share.minike.top/Article/details/83280171.shtml)
+- 2026-06-30 08:03 - [点球大战](https://www.blog.minike.top/Article/details/047166314.shtml)
+- 2026-06-30 08:02 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/89704580962.shtml)
+- 2026-06-30 08:07 - [4000美元是黄金新一轮下跌的开始吗](http://www.share.kurohicncr.top/Article/details/69552985733.shtml)
+- 2026-06-30 08:12 - [金鹰奖视后提名预测](https://www.share.minike.top/Article/details/3673368.shtml)
+- 2026-06-30 08:17 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/671828.shtml)
+- 2026-06-30 08:17 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/8860390.shtml)
+- 2026-06-30 08:14 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/98793807.shtml)
+- 2026-06-30 08:02 - [莫兰特转投开拓者效力](https://www.share.minike.top/Article/details/86698361.shtml)
+- 2026-06-30 07:53 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/3832015.shtml)
+- 2026-06-30 08:12 - [马耳他著名拱门坍塌致一中国男子身亡](http://www.blog.kurohicncr.top/Article/details/638599102.shtml)
+- 2026-06-30 08:08 - [这几秒成世界杯最值钱广告位](https://www.blog.minike.top/Article/details/05522.shtml)
+- 2026-06-30 08:05 - [德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/59344679.shtml)
+- 2026-06-30 08:16 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/3122919668.shtml)

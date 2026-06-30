@@ -1,50 +1,56 @@
-# 农业物流、全天候巡检：低空经济在云南飞出新“航线”
+# 长城基金汪立：流动性冲击或为短期扰动
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月15日 10:22 来源：中国新闻网 6月11日-16日，第10届中国—南亚博览会在云南昆明举办。在服务贸易馆低空经济展示区，多款用于农林、巡检、物流、应急等领域的无人机集中亮相，向观众展现低空经济发展的新机遇。 记者 杜潇潇 昆明报道 责任编辑：【罗攀】
+上周行情走势分化，市场主流指数涨跌互现。从申万一级行业来看，通信、电子和机械设备表现较好，有色金属、钢铁和美容护理表现相对一般。 宏观分析：中美元首会晤提振情绪 海外方面，美国劳工部12日发布的数据显示，经季节调整后，4月美国CPI环比上涨0.6%，较3月0.9%的涨幅有所回落；未经季节调整的同比涨幅大幅升至3.8%，较3月的3.3%显著扩大，创阶段性新高。核心CPI（剔除食品
 
 ## 正文
 
-发布时间：2026年06月15日 10:22 来源：中国新闻网 6月11日-16日，第10届中国—南亚博览会在云南昆明举办。
+上周行情走势分化，市场主流指数涨跌互现。
 
-在服务贸易馆低空经济展示区，多款用于农林、巡检、物流、应急等领域的无人机集中亮相，向观众展现低空经济发展的新机遇。
+从申万一级行业来看，通信、电子和机械设备表现较好，有色金属、钢铁和美容护理表现相对一般。
 
-记者 杜潇潇 昆明报道 责任编辑：【罗攀】
+宏观分析：中美元首会晤提振情绪 海外方面，美国劳工部12日发布的数据显示，经季节调整后，4月美国CPI环比上涨0.6%，较3月0.9%的涨幅有所回落；未经季节调整的同比涨幅大幅升至3.8%，较3月的3.3%显著扩大，创阶段性新高。
+
+核心CPI（剔除食品与能源）环比上涨0.4%，同比2.8%，均较前值抬升，通胀粘性凸显。
+
+整体来看，4月美国核心CPI超预期走高，主要来自居住通胀调整的一次性技术因素。
+
+剔除技术调整的杂音后，核心CPI环比温和反弹，且通胀扩散度仍在合理区间，显示油价对通胀的“二轮效应”影响尚不显著，仍待观察。
+
+国内方面，特朗普上周访华，这是中美两国元首继2025年10月釜山会晤后的再次面对面会见，也是美国总统时隔9年再次访华。
+
+会晤期间中美双方同意将“中美建设性战略稳定关系”作为两国关系的新定位，为未来3年乃至更长时间的中美关系作出战略指引。
 
 ## 相关推荐
 
-- 2026-06-30 07:44 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-30 07:54 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-30 08:06 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
-- 2026-06-30 07:47 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-30 08:08 - [全新问界M9现身美国街头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-30 07:52 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-30 08:03 - [锐评T1战胜KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
-- 2026-06-30 08:06 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-30 08:05 - [德国 传控](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
-- 2026-06-30 07:47 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-30 08:04 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-30 07:50 - [网友写差评被店家“挂”门口避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-30 08:05 - [张雪的一句“是我们”引发岛内热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-30 07:47 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-30 08:17 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-30 08:08 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-30 08:07 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-30 08:03 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-30 07:56 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
+- 2026-06-30 08:06 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-30 07:54 - [巴拉圭先进球了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-30 08:10 - [周冬雨多次说演不了话剧文城](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-30 07:59 - [泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-30 08:08 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:54 - [时光音乐会](https://www.share.minike.top/Article/details/66080137.shtml)
-- 2026-06-30 08:10 - [三星投资计划](https://www.blog.minike.top/Article/details/974025254.shtml)
-- 2026-06-30 07:57 - [沙丘](https://www.share.kurohicncr.top/Article/details/2093468.shtml)
-- 2026-06-30 08:10 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](http://www.blog.minike.top/Article/details/7018970.shtml)
-- 2026-06-30 07:54 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/31391202.shtml)
-- 2026-06-30 08:05 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/1291544413.shtml)
-- 2026-06-30 08:01 - [全球最火存储ETF纳入兆易创新](http://www.blog.minike.top/Article/details/5841247248.shtml)
-- 2026-06-30 08:08 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.blog.kurohicncr.top/Article/details/0226687.shtml)
-- 2026-06-30 08:00 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/89510448701.shtml)
-- 2026-06-30 07:53 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/347718.shtml)
-- 2026-06-30 07:50 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/268409124289.shtml)
-- 2026-06-30 08:04 - [为什么会有「念旧」的心理？](https://www.blog.kurohicncr.top/Article/details/80240183562.shtml)
-- 2026-06-30 07:52 - [美股](https://www.blog.minike.top/Article/details/24638646.shtml)
-- 2026-06-30 07:54 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/90946322835.shtml)
-- 2026-06-30 07:50 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.kurohicncr.top/Article/details/9760841189.shtml)
+- 2026-06-30 07:52 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/210858.shtml)
+- 2026-06-30 08:05 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/5606577.shtml)
+- 2026-06-30 07:48 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/9184938209.shtml)
+- 2026-06-30 08:13 - [日本半场1比0领先巴西](https://www.share.kurohicncr.top/Article/details/1787408.shtml)
+- 2026-06-30 08:14 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/10299.shtml)
+- 2026-06-30 07:54 - [武磊：巴西队赢的并不轻松](http://www.share.kurohicncr.top/Article/details/708175775.shtml)
+- 2026-06-30 08:13 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/20591.shtml)
+- 2026-06-30 08:13 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/95441142205.shtml)
+- 2026-06-30 08:15 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/3015429.shtml)
+- 2026-06-30 08:14 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/188351934.shtml)
+- 2026-06-30 08:01 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/698918436.shtml)
+- 2026-06-30 08:17 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.kurohicncr.top/Article/details/771614929914.shtml)
+- 2026-06-30 08:05 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/460717.shtml)
+- 2026-06-30 08:07 - [哈弗茨头球破门](https://www.share.kurohicncr.top/Article/details/2872661985.shtml)
+- 2026-06-30 08:07 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/582742144.shtml)

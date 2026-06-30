@@ -1,56 +1,60 @@
-# 光大期货：6月16日农产品日报
+# 欧盟将下调经济增长预期并上调通胀预测，伊朗战争引发“滞胀冲击”
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-蛋白粕： （侯雪玲，从业资格号：F3048706；交易咨询资格号：Z0013637） 周一，CBOT大豆收高，受助于技术性反弹，此前总体有利的美国作物天气以及原油价格拖累美豆创四个月新低。NOPA发布月度压榨数据，截至5月底美豆油库存降至17.35亿帮，为5个月最低水平。美豆油库存低于预期。美豆出口检验符合预期，美豆优良率略改善。机构预计美豆种植面积8530万英亩，略高于种植意
+欧盟经济事务专员表示，由于伊朗战争引发的“滞胀冲击”，欧盟将下调其经济增长预期。 欧盟经济与生产力事务专员瓦尔季斯·东布罗夫斯基斯周一在接受采访时表示，本周晚些时候发布的春季经济预测将显示经济增长数据有所下调，而通胀数据则会上升。 “我们正遭遇一场滞胀冲击，”他周一在巴黎举行的七国集团（G7）财长会议间隙表示。 近期，市场对滞胀的担忧不断加剧。中东战争的持久解决方案迟迟未能达成
 
 ## 正文
 
-蛋白粕： （侯雪玲，从业资格号：F3048706；交易咨询资格号：Z0013637） 周一，CBOT大豆收高，受助于技术性反弹，此前总体有利的美国作物天气以及原油价格拖累美豆创四个月新低。
+欧盟经济事务专员表示，由于伊朗战争引发的“滞胀冲击”，欧盟将下调其经济增长预期。
 
-NOPA发布月度压榨数据，截至5月底美豆油库存降至17.35亿帮，为5个月最低水平。
+欧盟经济与生产力事务专员瓦尔季斯·东布罗夫斯基斯周一在接受采访时表示，本周晚些时候发布的春季经济预测将显示经济增长数据有所下调，而通胀数据则会上升。
 
-美豆油库存低于预期。
+“我们正遭遇一场滞胀冲击，”他周一在巴黎举行的七国集团（G7）财长会议间隙表示。
 
-美豆出口检验符合预期，美豆优良率略改善。
+近期，市场对滞胀的担忧不断加剧。
 
-机构预计美豆种植面积8530万英亩，略高于种植意向报告的8470万英亩。
+中东战争的持久解决方案迟迟未能达成，加上至关重要的霍尔木兹海峡持续关闭，导致油价维持在每桶100美元以上。
 
-国内方面，蛋白粕偏弱震荡，资金观望情绪浓厚。
+东布罗夫斯基斯补充道，目前政策制定者的行动空间“更为有限”，几乎没有余地采取像在新冠疫情期间那样大规模的广泛财政应对措施。
 
-现货市场成交清淡，同样观望为主。
+“我们认为，我们所采取的支持措施应当是暂时性的、有针对性的，而不是那些实际上会持续推动对化石燃料需求增长的措施，”他补充说。
 
-钢联数据显示，上周大豆库存攀升，豆粕库存攀升，未执行合同下降。
+策略师们警告称，全球石油库存正在急剧下降，库存可能要到2027年12月才能恢复，欧洲甚至可能在本月底就面临潜在的实物供应短缺。
 
 ## 相关推荐
 
-- 2026-06-30 08:09 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
-- 2026-06-30 08:04 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-30 07:58 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
-- 2026-06-30 08:06 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
-- 2026-06-30 07:47 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-30 08:00 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-30 07:58 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-30 08:03 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-30 07:49 - [森保一致歉：世界第一目标没能实现](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
-- 2026-06-30 07:52 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-30 08:02 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-30 08:04 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-30 07:58 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-30 07:53 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-30 07:49 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-30 07:55 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
+- 2026-06-30 08:12 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
+- 2026-06-30 08:12 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-30 08:17 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-30 08:08 - [勇士续约波尔津吉斯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-30 07:50 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-30 08:17 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-30 08:17 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-30 07:49 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:06 - [“草莓月亮”浪漫现身](http://www.share.minike.top/Article/details/159577172.shtml)
-- 2026-06-30 08:03 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/3251770.shtml)
-- 2026-06-30 07:42 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/95313569.shtml)
-- 2026-06-30 08:04 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.minike.top/Article/details/94558.shtml)
-- 2026-06-30 07:50 - [亚洲球队全部出局](http://www.blog.minike.top/Article/details/319786020.shtml)
-- 2026-06-30 07:50 - [斗破苍穹](http://www.blog.minike.top/Article/details/94274742.shtml)
-- 2026-06-30 07:47 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/7152601667.shtml)
-- 2026-06-30 07:54 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.kurohicncr.top/Article/details/1917177592.shtml)
-- 2026-06-30 08:05 - [爱很美味](http://www.share.minike.top/Article/details/5962081.shtml)
-- 2026-06-30 07:45 - [巴西在进攻三区完成210脚传球](https://www.blog.kurohicncr.top/Article/details/116624.shtml)
-- 2026-06-30 08:00 - [詹姆斯下赛季去哪](https://www.blog.kurohicncr.top/Article/details/55023.shtml)
-- 2026-06-30 07:53 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/203337110772.shtml)
-- 2026-06-30 07:51 - [覃予萱晋级WTT美国大满贯女单32强](https://www.share.kurohicncr.top/Article/details/857253.shtml)
-- 2026-06-30 07:51 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/3564992448.shtml)
-- 2026-06-30 07:42 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/20427091.shtml)
+- 2026-06-30 07:49 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/219805578.shtml)
+- 2026-06-30 08:04 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/45798244.shtml)
+- 2026-06-30 08:05 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.minike.top/Article/details/984709032561.shtml)
+- 2026-06-30 07:50 - [萨内 看笑了](http://www.blog.minike.top/Article/details/50343.shtml)
+- 2026-06-30 08:06 - [金鹰奖视后提名预测](http://www.blog.minike.top/Article/details/571830231471.shtml)
+- 2026-06-30 08:15 - [内马尔替补](http://www.share.kurohicncr.top/Article/details/897221554.shtml)
+- 2026-06-30 08:04 - [峡谷事故团队组队时有人提醒会下雨](http://www.share.kurohicncr.top/Article/details/000996.shtml)
+- 2026-06-30 08:12 - [千香](https://www.blog.minike.top/Article/details/560015945672.shtml)
+- 2026-06-30 08:05 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/007071.shtml)
+- 2026-06-30 07:58 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/63054.shtml)
+- 2026-06-30 07:55 - [美股](https://www.share.kurohicncr.top/Article/details/533649396.shtml)
+- 2026-06-30 08:17 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/927471555876.shtml)
+- 2026-06-30 08:04 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.minike.top/Article/details/20344960566.shtml)
+- 2026-06-30 07:56 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/854400.shtml)
+- 2026-06-30 08:03 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/958655262389.shtml)

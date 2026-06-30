@@ -1,57 +1,49 @@
-# 2026年重庆市防范非法金融活动宣传月启动
+# 香港科技探索获董事会副主席王维基增持7.8万股 每股均价1.1港元
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-中新网重庆6月15日电 (张旭)6月15日，2026年重庆市防范非法金融活动宣传月启动。活动主会场设置在重庆市南岸区，各区县同步设立分会场。 启动仪式上，重庆打击非法金融活动的核心IP、“六六家族”兄妹——“小六六”与妹妹“小小六”的定妆照正式发布。下一步，重庆还将依托“六六家族”推出系列短剧和互动产品，助力民众防范非法金融活动(即“防非”)。 同步首发的还有《重庆市防非宣传素
+香港联交所最新资料显示，5月15日，董事会副主席王维基增持香港科技探索（01137）7.8万股，每股均价1.1港元，总金额为8.58万港元。增持后最新持股数目约为3.59亿股，最新持股比例为45.42%。责任编辑：卢昱君
 
 ## 正文
 
-中新网重庆6月15日电 (张旭)6月15日，2026年重庆市防范非法金融活动宣传月启动。
+香港联交所最新资料显示，5月15日，董事会副主席王维基增持香港科技探索（01137）7.8万股，每股均价1.1港元，总金额为8.58万港元。
 
-活动主会场设置在重庆市南岸区，各区县同步设立分会场。
+增持后最新持股数目约为3.59亿股，最新持股比例为45.42%。
 
-启动仪式上，重庆打击非法金融活动的核心IP、“六六家族”兄妹——“小六六”与妹妹“小小六”的定妆照正式发布。
-
-下一步，重庆还将依托“六六家族”推出系列短剧和互动产品，助力民众防范非法金融活动(即“防非”)。
-
-同步首发的还有《重庆市防非宣传素材包(2026年版)》。
-
-该素材包以“让基层一看就懂、拿来即用”为原则，融合“六六家族”视觉标识，集成文案库、短视频、互动答题等标准化工具，为全市网格员、社区志愿者、金融机构网点等“最小执行单元”提供“一站式”宣传支持。
-
-现场还通报了第六届防非短视频大赛市级优秀作品评选结果，并为获奖代表颁奖。
-
-据悉，创作者们以短视频为载体，用市民喜闻乐见的方式，普及金融安全知识、带动更多市民自觉远离非法金融，将助力营造全民防非、全民共治的浓厚氛围。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 08:01 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
-- 2026-06-30 07:53 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
-- 2026-06-30 07:54 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-30 08:00 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-30 08:08 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
-- 2026-06-30 07:50 - [德国罚丢3粒点球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
-- 2026-06-30 07:54 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-30 08:11 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-30 08:01 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
-- 2026-06-30 07:51 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-30 08:04 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-30 08:00 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-30 08:16 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-30 08:10 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
+- 2026-06-30 08:13 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
+- 2026-06-30 08:04 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-30 07:59 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-30 08:04 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-30 08:02 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-30 08:16 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-30 08:00 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-30 07:55 - [日本博主：日本足球真的垃圾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-30 08:17 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-30 08:05 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:00 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/8471397908.shtml)
-- 2026-06-30 07:46 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/271871617.shtml)
-- 2026-06-30 07:44 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/3869927822.shtml)
-- 2026-06-30 07:52 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/0564266.shtml)
-- 2026-06-30 08:06 - [国务院：稳步推进研究生考试招生改革](https://www.share.kurohicncr.top/Article/details/2817573.shtml)
-- 2026-06-30 08:04 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/1907761.shtml)
-- 2026-06-30 08:07 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/17475743792.shtml)
-- 2026-06-30 08:10 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.kurohicncr.top/Article/details/12539.shtml)
-- 2026-06-30 08:10 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/5462757394.shtml)
-- 2026-06-30 07:52 - [点球大战 残酷](https://www.share.minike.top/Article/details/126066993.shtml)
-- 2026-06-30 08:03 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/6433345.shtml)
-- 2026-06-30 07:47 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.minike.top/Article/details/03198517.shtml)
-- 2026-06-30 07:47 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/0608989.shtml)
-- 2026-06-30 08:06 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/917719.shtml)
-- 2026-06-30 07:49 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/53699.shtml)
+- 2026-06-30 08:15 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/6340088895.shtml)
+- 2026-06-30 08:07 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/3673872.shtml)
+- 2026-06-30 07:48 - [美人鱼](http://www.share.kurohicncr.top/Article/details/826567731.shtml)
+- 2026-06-30 08:00 - [苗族银饰](http://www.share.minike.top/Article/details/8348403048.shtml)
+- 2026-06-30 08:17 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/67074.shtml)
+- 2026-06-30 08:14 - [佐野海舟远射破门](https://www.share.kurohicncr.top/Article/details/248467489.shtml)
+- 2026-06-30 08:02 - [索马里女大使：想和中国一起搞事业](https://www.blog.minike.top/Article/details/11197994795.shtml)
+- 2026-06-30 08:05 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/94713.shtml)
+- 2026-06-30 08:10 - [又一家县级医院关停门诊输液大厅](http://www.share.minike.top/Article/details/19148122.shtml)
+- 2026-06-30 08:00 - [中国新一轮出口管制直指日本命脉](http://www.blog.minike.top/Article/details/928677461308.shtml)
+- 2026-06-30 08:00 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.minike.top/Article/details/8686701067.shtml)
+- 2026-06-30 07:57 - [勇士续约波尔津吉斯](https://www.share.kurohicncr.top/Article/details/341337607.shtml)
+- 2026-06-30 08:16 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/3430200.shtml)
+- 2026-06-30 07:55 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/87764194.shtml)
+- 2026-06-30 08:04 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/3795884033.shtml)

@@ -1,61 +1,59 @@
-# （文化中国行）千年丝路故城焕生机 “夜游”圈粉中外客
+# 白皮书：2025年中国卫星导航产业总体产值超6000亿元
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-中新社新疆吐鲁番6月14日电 题：千年丝路故城焕生机 “夜游”圈粉中外客 作者 苟继鹏 夜晚的交河故城，展现出与白昼截然不同的魅力。近日，在新疆吐鲁番市交河故城内，游客们循着光影，汇聚起来欣赏一场名为《交河之夜》的原声实景音乐会。 “我们从2016年起推出‘夜游交河’文旅融合项目，音乐会历经多年打磨全新升级，以故城残垣为舞台，打造沉浸式夜间实景演艺，唤醒沉睡千年的交河文明。”交
+中新社北京5月18日电 (记者 马帅莎)中国卫星导航定位协会18日在北京发布的《2026中国北斗时空产业发展白皮书》显示，2025年，中国卫星导航产业(北斗产业)总体产值达6290亿元(人民币，下同)，同比增长9.24%。白皮书指出，2025年，北斗时空产业总体产值达到13323亿元。其中，作为北斗时空产业基础的卫星导航产业(北斗产业)总体产值达6290亿元，同比增长9.24%
 
 ## 正文
 
-中新社新疆吐鲁番6月14日电 题：千年丝路故城焕生机 “夜游”圈粉中外客 作者 苟继鹏 夜晚的交河故城，展现出与白昼截然不同的魅力。
+中新社北京5月18日电 (记者 马帅莎)中国卫星导航定位协会18日在北京发布的《2026中国北斗时空产业发展白皮书》显示，2025年，中国卫星导航产业(北斗产业)总体产值达6290亿元(人民币，下同)，同比增长9.24%。
 
-近日，在新疆吐鲁番市交河故城内，游客们循着光影，汇聚起来欣赏一场名为《交河之夜》的原声实景音乐会。
+白皮书指出，2025年，北斗时空产业总体产值达到13323亿元。
 
-“我们从2016年起推出‘夜游交河’文旅融合项目，音乐会历经多年打磨全新升级，以故城残垣为舞台，打造沉浸式夜间实景演艺，唤醒沉睡千年的交河文明。
+其中，作为北斗时空产业基础的卫星导航产业(北斗产业)总体产值达6290亿元，同比增长9.24%，展现出强劲的发展韧性和巨大的增长潜力。
 
-”交河故城文物管理所所长王建东接受中新社采访时说。
+白皮书称，2025年，北斗时空产业最鲜明的特征，就是实现了从“卫星导航”到“时空服务”的跨越，呈现出“技术融合化、应用场景化、生态多元化”的发展态势，产业迭代升级速度持续加快，核心竞争力不断提升。
 
-寂静的夜空下，长笛、热瓦普与萨塔尔等乐器的声音悠扬响起，身着古代僧侣服饰的演员，以深情的散文诗朗诵拉开序幕。
+白皮书表示，2025年，北斗时空产业的应用市场呈现“专业深化、大众普及”的双轮驱动格局。
 
-意大利艺术家、策展人阿莱西亚当晚体验了“夜游交河”。
+在大众消费领域，截至2025年底，中国已有近14亿部智能手机支持北斗定位功能，约占总量的98%；支持北斗定位功能的可穿戴设备保有量超过1.6亿；超过1亿台乘用车部署了具有北斗定位导航功能的车载设备。
 
-“当夜幕降临，置身于星空之下和断壁残垣之中，这种剥离现代喧嚣的静谧感，让我感到一种前所未有的平静；同时宏大而苍凉的历史景象与夜幕下的星空相结合，营造出一种超脱现实的静谧与壮美。
+白皮书说，在海外应用市场方面，北斗系统服务及相关产品已输出到140余个国家和地区。
 
-”她说，希望更多人能够亲临此地，感受这份魅力。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 07:54 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-30 07:55 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-30 08:08 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-30 07:57 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
-- 2026-06-30 07:59 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-30 08:07 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-30 07:58 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-30 08:06 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-30 08:00 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
-- 2026-06-30 07:47 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-30 07:47 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
-- 2026-06-30 07:53 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-30 08:09 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
-- 2026-06-30 07:59 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
-- 2026-06-30 07:45 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-30 07:52 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-30 07:50 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
+- 2026-06-30 08:02 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-30 07:56 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
+- 2026-06-30 08:10 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-30 07:57 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-30 07:57 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-30 08:07 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-30 08:11 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-30 07:52 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
+- 2026-06-30 08:11 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-30 07:52 - [德国爆冷点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-30 08:01 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:54 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/252622.shtml)
-- 2026-06-30 07:44 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/0234077.shtml)
-- 2026-06-30 08:07 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/87863774123.shtml)
-- 2026-06-30 07:59 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/58496.shtml)
-- 2026-06-30 07:47 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/21826859.shtml)
-- 2026-06-30 08:05 - [IGN评测电影版后室](http://www.blog.minike.top/Article/details/2362519700.shtml)
-- 2026-06-30 08:11 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/4284884777.shtml)
-- 2026-06-30 07:43 - [勇士续约波尔津吉斯](http://www.blog.minike.top/Article/details/612889183463.shtml)
-- 2026-06-30 08:02 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/78113.shtml)
-- 2026-06-30 07:51 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/394828647204.shtml)
-- 2026-06-30 08:04 - [如果有二次元高中是什么样子的？](http://www.blog.kurohicncr.top/Article/details/655255413927.shtml)
-- 2026-06-30 07:55 - [女心理师](http://www.share.kurohicncr.top/Article/details/42657.shtml)
-- 2026-06-30 07:51 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/742511519.shtml)
-- 2026-06-30 08:09 - [“草莓月亮”浪漫现身](https://www.share.kurohicncr.top/Article/details/56052.shtml)
-- 2026-06-30 07:52 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/760617191990.shtml)
+- 2026-06-30 08:17 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/290522.shtml)
+- 2026-06-30 08:05 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/791040043.shtml)
+- 2026-06-30 07:58 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/10407398.shtml)
+- 2026-06-30 08:15 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/465644738276.shtml)
+- 2026-06-30 08:03 - [杨紫获白玉兰视后争议不止](https://www.share.minike.top/Article/details/67064189.shtml)
+- 2026-06-30 08:08 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/92040.shtml)
+- 2026-06-30 08:00 - [王楚钦孙颖莎晋级混双八强](https://www.share.kurohicncr.top/Article/details/8705698.shtml)
+- 2026-06-30 07:56 - [安切洛蒂 换人](https://www.share.kurohicncr.top/Article/details/62883.shtml)
+- 2026-06-30 07:50 - [日本 高位逼抢](https://www.blog.kurohicncr.top/Article/details/59369228120.shtml)
+- 2026-06-30 07:55 - [日本球员说被绝杀非常不甘心](https://www.blog.kurohicncr.top/Article/details/5471428362.shtml)
+- 2026-06-30 07:50 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/496572966.shtml)
+- 2026-06-30 08:04 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/11590700514.shtml)
+- 2026-06-30 08:00 - [泰山景区回应修建刀片刺绳隔离网](http://www.share.minike.top/Article/details/6511498.shtml)
+- 2026-06-30 08:03 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/27248657944.shtml)
+- 2026-06-30 08:01 - [起风了](https://www.share.minike.top/Article/details/59304605.shtml)

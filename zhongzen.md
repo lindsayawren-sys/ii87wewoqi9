@@ -1,55 +1,60 @@
-# 野村：受美伊达成协议影响 美债收益率曲线料将趋陡
+# 美国长债收益率徘徊在2023年以来最高点附近
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-野村表示，伊朗与美国达成和平协议的消息传出后，市场可能会解除对美联储加息的押注。“美国能源基本独立，所以我认为对消费者来说，汽油价格可能下降所产生的通胀影响应该会超过对经济增长的影响，”驻悉尼的策略师Andrew Ticehurst表示。“美国国债收益率可能下降，收益率曲线趋陡”，前端收益率下降。“市场此前对美国加息的预期升温，因此接下来部分预期可能会逆转”。责任编辑：王永生
+美国30年期国债收益率徘徊于近三年来的最高水平。投资者一方面担忧通胀，一方面看好美伊有望最终达成协议、结束敌对状态。 本周首个交易日走势波动，美国长债收益率在亚洲时段走高4个基点至5.16%，为2023年以来最高，但收盘时接近上周五水平。债券收益率随油价波动，在美国交易时段尾盘特朗普取消原定周二对伊朗发动袭击的计划后下滑。 这种反复波动表明，市场仍在焦急等待美伊冲突解决进展。该
 
 ## 正文
 
-野村表示，伊朗与美国达成和平协议的消息传出后，市场可能会解除对美联储加息的押注。
+美国30年期国债收益率徘徊于近三年来的最高水平。
 
-“美国能源基本独立，所以我认为对消费者来说，汽油价格可能下降所产生的通胀影响应该会超过对经济增长的影响，”驻悉尼的策略师Andrew Ticehurst表示。
+投资者一方面担忧通胀，一方面看好美伊有望最终达成协议、结束敌对状态。
 
-“美国国债收益率可能下降，收益率曲线趋陡”，前端收益率下降。
+本周首个交易日走势波动，美国长债收益率在亚洲时段走高4个基点至5.16%，为2023年以来最高，但收盘时接近上周五水平。
 
-“市场此前对美国加息的预期升温，因此接下来部分预期可能会逆转”。
+债券收益率随油价波动，在美国交易时段尾盘特朗普取消原定周二对伊朗发动袭击的计划后下滑。
 
-责任编辑：王永生
+这种反复波动表明，市场仍在焦急等待美伊冲突解决进展。
+
+该冲突已推高能源价格和政府借贷成本。
+
+在问题解决之前，长债仍尤为脆弱，因为其对通胀和财政状况更为敏感。
+
+法国巴黎银行美国利率策略主管Guneet Dhingra表示，5%以上已没有明确的锚点。
 
 ## 相关推荐
 
-- 2026-06-30 07:48 - [巴西足球能否再现昔日荣光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-30 07:56 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
-- 2026-06-30 08:03 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
-- 2026-06-30 07:57 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-30 07:58 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-30 07:43 - [德国 传控](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
-- 2026-06-30 08:06 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-30 07:53 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
-- 2026-06-30 07:53 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-30 08:07 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-30 08:00 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-30 08:10 - [德国巴拉圭进入点球大战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-30 08:00 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-30 07:46 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
-- 2026-06-30 07:48 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-30 07:50 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-30 08:17 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-30 08:14 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-30 08:05 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
+- 2026-06-30 08:04 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-30 08:07 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-30 07:52 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-30 08:12 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-30 07:51 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
+- 2026-06-30 08:12 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-30 08:13 - [锐评T1战胜KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-30 07:49 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-30 08:08 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
+- 2026-06-30 08:08 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:04 - [点球大战 残酷](https://www.share.minike.top/Article/details/464724.shtml)
-- 2026-06-30 07:46 - [穆祉丞年度人气艺人](http://www.blog.minike.top/Article/details/248581.shtml)
-- 2026-06-30 08:05 - [郑钦文温网首轮出局](http://www.share.minike.top/Article/details/777587.shtml)
-- 2026-06-30 07:48 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/27990468.shtml)
-- 2026-06-30 08:04 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/187799.shtml)
-- 2026-06-30 08:08 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/08342.shtml)
-- 2026-06-30 07:44 - [德国队连续三届世界杯无缘16强](http://www.blog.kurohicncr.top/Article/details/679145007874.shtml)
-- 2026-06-30 08:09 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/13735827.shtml)
-- 2026-06-30 07:54 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/61782436.shtml)
-- 2026-06-30 08:09 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/771078.shtml)
-- 2026-06-30 07:45 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/360164700.shtml)
-- 2026-06-30 07:46 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/9030983.shtml)
-- 2026-06-30 07:46 - [速度与激情9](http://www.share.minike.top/Article/details/696529.shtml)
-- 2026-06-30 07:59 - [佐野海舟远射破门](http://www.blog.minike.top/Article/details/428416360504.shtml)
-- 2026-06-30 08:01 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/31276.shtml)
+- 2026-06-30 08:13 - [《男人至死是傻得儿》](https://www.share.kurohicncr.top/Article/details/979791999.shtml)
+- 2026-06-30 08:17 - [日本反击率先破门](http://www.blog.kurohicncr.top/Article/details/46600769328.shtml)
+- 2026-06-30 07:58 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/8404576.shtml)
+- 2026-06-30 07:59 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/5597619048.shtml)
+- 2026-06-30 08:01 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.kurohicncr.top/Article/details/20949924.shtml)
+- 2026-06-30 08:05 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/75350477.shtml)
+- 2026-06-30 08:12 - [我觉得你是在无中生友](https://www.share.kurohicncr.top/Article/details/53993550018.shtml)
+- 2026-06-30 08:10 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/3418350.shtml)
+- 2026-06-30 07:50 - [峡谷事故团队组队时有人提醒会下雨](https://www.blog.kurohicncr.top/Article/details/358723236278.shtml)
+- 2026-06-30 07:57 - [郑钦文温网一轮游](https://www.share.kurohicncr.top/Article/details/47382150063.shtml)
+- 2026-06-30 08:04 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.kurohicncr.top/Article/details/011385181928.shtml)
+- 2026-06-30 08:10 - [日本领先巴西](http://www.blog.minike.top/Article/details/275783640.shtml)
+- 2026-06-30 08:10 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/32866748537.shtml)
+- 2026-06-30 08:01 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](http://www.share.minike.top/Article/details/922932086218.shtml)
+- 2026-06-30 07:52 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/0389177889.shtml)

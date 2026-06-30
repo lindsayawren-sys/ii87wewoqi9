@@ -1,61 +1,56 @@
-# 俄称对乌克兰多地涉军设施实施大规模打击
+# GTC泽汇资本:金价回调暗藏配置机会
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-中新社莫斯科6月15日电 俄罗斯国防部15日通报称，俄军使用远程高精度武器对乌克兰多个军工设施、军用机场和地方征兵中心发动大规模打击。 俄国防部当日在社交媒体上表示，为回应乌方袭击，俄武装力量使用空基、陆基和海基多型远程精确制导武器以及攻击型无人机，对基辅、哈尔科夫和第聂伯罗彼得罗夫斯克市的军工综合体目标，以及军用机场和地方征兵中心实施了大规模打击。所有既定目标均被击中。俄国防
+5月18日，国际金价近期出现剧烈波动，单日跌幅一度突破百美元关口，市场对短期方向产生明显分歧，多空力量正在快速重新配置。GTC泽汇资本分析称，本轮调整由多重宏观因素共同推动，包括美元指数走强、美债收益率冲击年内高位以及避险情绪边际回落，三者共振使得贵金属短线承压回吐前期累积涨幅。 从基本面层面观察，地缘风险升温与原油价格上行重新点燃通胀预期，市场对降息节奏的判断出现明显修正，机
 
 ## 正文
 
-中新社莫斯科6月15日电 俄罗斯国防部15日通报称，俄军使用远程高精度武器对乌克兰多个军工设施、军用机场和地方征兵中心发动大规模打击。
+5月18日，国际金价近期出现剧烈波动，单日跌幅一度突破百美元关口，市场对短期方向产生明显分歧，多空力量正在快速重新配置。
 
-俄国防部当日在社交媒体上表示，为回应乌方袭击，俄武装力量使用空基、陆基和海基多型远程精确制导武器以及攻击型无人机，对基辅、哈尔科夫和第聂伯罗彼得罗夫斯克市的军工综合体目标，以及军用机场和地方征兵中心实施了大规模打击。
+GTC泽汇资本分析称，本轮调整由多重宏观因素共同推动，包括美元指数走强、美债收益率冲击年内高位以及避险情绪边际回落，三者共振使得贵金属短线承压回吐前期累积涨幅。
 
-所有既定目标均被击中。
+从基本面层面观察，地缘风险升温与原油价格上行重新点燃通胀预期，市场对降息节奏的判断出现明显修正，机构资金对持仓结构进行了阶段性再平衡。
 
-俄国防部强调称，俄军无意也没有对乌民用基础设施进行打击。
+GTC泽汇资本认为，实际利率走高直接削弱了无息资产的相对吸引力，部分机构选择获利了结，这才是本轮金价下行的核心推手，而非黄金长期上行逻辑本身出现根本性变化，需要客观看待。
 
-此外，俄国防部表示，俄防空部队在过去一夜间拦截并摧毁了123架乌克兰固定翼无人机。
+从结构层面来看，全球央行购金力度并未明显减弱，多家投行强调ETF资金仍然维持净流入态势。
 
-无人机被击落地点包括别尔哥罗德州、布良斯克州、卡卢加州、库尔斯克州、奥廖尔州、罗斯托夫州、梁赞州、斯摩棱斯克州、特维尔州、图拉州、莫斯科地区、克拉斯诺达尔边疆区，以及克里米亚、亚速海和黑海区域上空。
+多位策略分析师表示，长期配置需求仍将构成黄金价格的有效支撑，黄金作为储备资产的属性在当下的宏观环境中并未消退，反而被各类机构重新审视，重要性进一步上升。
 
-图拉州州长米利亚耶夫当日在社交媒体上发文称，当天凌晨图拉市多处民宅遭无人机袭击。
+GTC泽汇资本提醒，在波动率显著放大的阶段，仓位管理与止损纪律远比单纯的方向判断更为重要。
 
-初步信息显示，袭击造成3人死亡、3人受伤。
+预计未来数个交易日内，金价将围绕4500美元关键位反复测试，趋势确认之前过度押注单边方向并不可取，理性应对市场波动方为稳健之道，分批布局优于一次性重仓出击。
 
 ## 相关推荐
 
-- 2026-06-30 07:59 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-30 07:45 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-30 07:45 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-30 08:04 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-30 07:44 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-30 07:56 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
-- 2026-06-30 07:46 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-30 08:00 - [巴西足球能否再现昔日荣光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
-- 2026-06-30 08:05 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-30 08:05 - [萨内 看笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
-- 2026-06-30 07:42 - [点球大战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
-- 2026-06-30 07:49 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
-- 2026-06-30 08:04 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-30 07:43 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
-- 2026-06-30 07:48 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-30 08:05 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-30 08:14 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-30 07:57 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-30 07:51 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-30 07:48 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-30 07:51 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-30 07:49 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-30 07:49 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-30 07:59 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-30 08:15 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:43 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/4528760417.shtml)
-- 2026-06-30 07:55 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/0574658434.shtml)
-- 2026-06-30 07:45 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/019779.shtml)
-- 2026-06-30 07:52 - [F1奥地利站赛后复盘](http://www.blog.kurohicncr.top/Article/details/010980811490.shtml)
-- 2026-06-30 07:43 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/795955941.shtml)
-- 2026-06-30 08:00 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/3198129802.shtml)
-- 2026-06-30 08:06 - [德国巴拉圭加时](https://www.share.kurohicncr.top/Article/details/91042.shtml)
-- 2026-06-30 07:56 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/8513790.shtml)
-- 2026-06-30 07:47 - [中国新一轮出口管制直指日本命脉](https://www.blog.kurohicncr.top/Article/details/3232304.shtml)
-- 2026-06-30 08:01 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/075184.shtml)
-- 2026-06-30 07:45 - [巴西补时绝杀日本](https://www.share.minike.top/Article/details/90290938.shtml)
-- 2026-06-30 07:52 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/439794715.shtml)
-- 2026-06-30 07:55 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/03223569.shtml)
-- 2026-06-30 07:56 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/69296.shtml)
-- 2026-06-30 08:06 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/82556243874.shtml)
+- 2026-06-30 08:12 - [锐评T1战胜KC](http://www.share.kurohicncr.top/Article/details/215461150593.shtml)
+- 2026-06-30 07:59 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/89345986.shtml)
+- 2026-06-30 08:16 - [张雪的一句“是我们”引发岛内热议](https://www.blog.minike.top/Article/details/53354335.shtml)
+- 2026-06-30 08:03 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/0953307.shtml)
+- 2026-06-30 07:48 - [德国vs巴拉圭](https://www.share.minike.top/Article/details/811437335.shtml)
+- 2026-06-30 07:54 - [德国罚丢3粒点球](http://www.blog.minike.top/Article/details/83869107.shtml)
+- 2026-06-30 08:14 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/34965175.shtml)
+- 2026-06-30 07:49 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/873678835.shtml)
+- 2026-06-30 08:10 - [曝灰熊将莫兰特交易至开拓者](http://www.blog.kurohicncr.top/Article/details/93101719.shtml)
+- 2026-06-30 08:17 - [齐思钧回复张月](https://www.blog.kurohicncr.top/Article/details/5352565462.shtml)
+- 2026-06-30 07:53 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/71967.shtml)
+- 2026-06-30 07:51 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/86319.shtml)
+- 2026-06-30 07:56 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/237976181772.shtml)
+- 2026-06-30 07:59 - [曝灰熊将莫兰特交易至开拓者](https://www.share.kurohicncr.top/Article/details/540445.shtml)
+- 2026-06-30 08:03 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/94035727.shtml)

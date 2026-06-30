@@ -1,60 +1,57 @@
-# 电影《爸爸》广州路演 主角刘青云坦言“表演难度极大”
+# 五道口金融学院鞠建东：技术竞合与金融新格局下，西部金融中心应锚定欧亚跨境支付与数字金融赛道
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-中新网广州6月15日电 (记者 程景伟)作为“首映在广州”品牌活动，现实亲情题材电影《爸爸》广州首映及路演活动14日举办。导演翁子光、主演刘青云分享了影片背后的创作初衷、拍摄历程以及对角色的理解与感悟。 该影片将于6月27日正式上映。影片跳出了传统犯罪片的猎奇框架，扎根市井生活底色，聚焦家庭悲剧发生后父亲阮永年(刘青云饰)如何重建生活的心路历程。正如翁子光所说：这不是一部关于“
+专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 原标题：专访清华大学五道口金融学院国际金融与经济研究中心主任鞠建东：技术竞合与金融新格局下，西部金融中心应锚定欧亚跨境支付与数字金融赛道 每经记者|刘嘉魁 每经编辑|张益铭 在全球产业链加速重构的背景下，外部技术管控措施正从半导体向生物制造、储能等新质生产力领域延伸。如何在复杂多变的国际环境中，既保障产业链安全
 
 ## 正文
 
-中新网广州6月15日电 (记者 程景伟)作为“首映在广州”品牌活动，现实亲情题材电影《爸爸》广州首映及路演活动14日举办。
+专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 原标题：专访清华大学五道口金融学院国际金融与经济研究中心主任鞠建东：技术竞合与金融新格局下，西部金融中心应锚定欧亚跨境支付与数字金融赛道 每经记者|刘嘉魁 每经编辑|张益铭 在全球产业链加速重构的背景下，外部技术管控措施正从半导体向生物制造、储能等新质生产力领域延伸。
 
-导演翁子光、主演刘青云分享了影片背后的创作初衷、拍摄历程以及对角色的理解与感悟。
+如何在复杂多变的国际环境中，既保障产业链安全，又降低制度性交易成本？
 
-该影片将于6月27日正式上映。
+在“2026清华五道口全球金融论坛”现场，清华大学五道口金融学院讲席教授、国际金融与经济研究中心主任鞠建东接受《每日经济新闻》记者专访时指出，全球技术竞争已进入“比拼发展速度与市场深度”的新阶段，单纯的管控难以阻断技术进步。
 
-影片跳出了传统犯罪片的猎奇框架，扎根市井生活底色，聚焦家庭悲剧发生后父亲阮永年(刘青云饰)如何重建生活的心路历程。
+同时，数字货币与区域金融中心建设正迎来新的窗口期，西部城市应抓住陆路开放机遇，在跨境支付与人民币国际化上实现差异化突围。
 
-正如翁子光所说：这不是一部关于“谁杀了谁”的电影，而是一部关于“留下来的人怎么活”的电影。
+技术竞合进入新阶段：市场体量成关键胜负手 “当前的国际技术互动逻辑正在演变，呈现出一种互动式调整的态势。
 
-一向擅长塑造多面银幕形象的刘青云，此次褪去以往经典角色的锋芒，化身一位平凡内敛又极致负重前行、沉默坚守的父亲。
+”针对外部环境变化，鞠建东开宗明义地指出，各方其实都希望减少不必要的管控壁垒，但在实际操作中，由于认知和节奏的差异，往往会出现策略上的动态调整。
 
-为贴合角色状态，他摒弃外放的表演方式，将表演融入生活细节：佝偻的体态、不经意间抬手揉眼的小动作、欲言又止的神态、面对家人时隐忍又温柔的眼神，每一处微表情、每一个肢体动作都精准拿捏人物心境。
+这种差异的核心在于对竞争态势的判断。
 
-刘青云坦言，“父亲”这个角色看似普通，实则表演难度极大，“这个角色没有激烈的台词和外放的情绪，所有情感都压在心底，要靠细节去传递人物的精神困境和复杂情绪。
+鞠建东分析，过去国际分工的逻辑建立在绝对技术代差之上，而如今，在许多前沿领域，竞争格局已转变为互有攻守的“速度赛”。
 
 ## 相关推荐
 
-- 2026-06-30 08:11 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-30 08:09 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
-- 2026-06-30 07:43 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-30 08:01 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
-- 2026-06-30 08:11 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-30 08:08 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
-- 2026-06-30 07:52 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
-- 2026-06-30 07:43 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-30 07:48 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-30 07:52 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
-- 2026-06-30 07:55 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-30 07:52 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-30 08:08 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
-- 2026-06-30 07:55 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-30 08:06 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-30 08:11 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-30 07:58 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-30 08:10 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-30 08:01 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-30 08:17 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-30 08:09 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-30 08:06 - [泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-30 07:48 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-30 08:04 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
+- 2026-06-30 07:57 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:06 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/43437.shtml)
-- 2026-06-30 07:59 - [莫兰特转投开拓者效力](https://www.blog.kurohicncr.top/Article/details/0940780064.shtml)
-- 2026-06-30 07:58 - [恋与深空制作组回应近期争议](https://www.blog.minike.top/Article/details/035885.shtml)
-- 2026-06-30 08:10 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/096859.shtml)
-- 2026-06-30 08:01 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/7709273373.shtml)
-- 2026-06-30 08:08 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/96971382.shtml)
-- 2026-06-30 07:42 - [王健林甩卖超80座万达广场](https://www.blog.kurohicncr.top/Article/details/1965862704.shtml)
-- 2026-06-30 08:11 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/10196098114.shtml)
-- 2026-06-30 08:08 - [老外对中国cosplay竟这样评价…](https://www.blog.minike.top/Article/details/78121.shtml)
-- 2026-06-30 07:48 - [Melo向柳智敏张元英道歉](http://www.share.kurohicncr.top/Article/details/4898993.shtml)
-- 2026-06-30 07:49 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/85641519.shtml)
-- 2026-06-30 08:02 - [高考结束了，你会让孩子在家玩手机吗？](https://www.share.minike.top/Article/details/87824.shtml)
-- 2026-06-30 07:48 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/42316958.shtml)
-- 2026-06-30 07:48 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/60015.shtml)
-- 2026-06-30 07:53 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/6025172.shtml)
+- 2026-06-30 07:49 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/62201687486.shtml)
+- 2026-06-30 08:10 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.minike.top/Article/details/2162476.shtml)
+- 2026-06-30 08:05 - [IGN评测电影版后室](http://www.share.minike.top/Article/details/7583870.shtml)
+- 2026-06-30 08:02 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/28148.shtml)
+- 2026-06-30 07:50 - [健全中小学教师工资长效联动机制](http://www.share.minike.top/Article/details/3300123.shtml)
+- 2026-06-30 07:48 - [开电动汽车真的很省钱吗？](https://www.blog.kurohicncr.top/Article/details/07935036132.shtml)
+- 2026-06-30 07:52 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/0821051.shtml)
+- 2026-06-30 08:08 - [巴西vs日本](http://www.blog.minike.top/Article/details/44068.shtml)
+- 2026-06-30 08:05 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/761584788196.shtml)
+- 2026-06-30 07:55 - [张月感谢了每一公的队友](https://www.share.minike.top/Article/details/5783123.shtml)
+- 2026-06-30 07:54 - [德国队世界杯点球大战首败](http://www.blog.minike.top/Article/details/517463176624.shtml)
+- 2026-06-30 08:10 - [郑钦文温网一轮游](http://www.share.kurohicncr.top/Article/details/39006907547.shtml)
+- 2026-06-30 08:17 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/2809415606.shtml)
+- 2026-06-30 07:57 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/10997226886.shtml)
+- 2026-06-30 07:52 - [卢卡申科发布解放军仪仗队视频](http://www.blog.minike.top/Article/details/864752.shtml)

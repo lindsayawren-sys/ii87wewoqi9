@@ -1,58 +1,58 @@
-# 深圳千分一IPO:2026Q1净利润仅增7.09%！销售费用率高于研发费用率，交易所追问是否“重营销轻研发”!
+# 电影《在伊犁》项目在乌鲁木齐启动
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-来源：凌通企业IPO 原标题：《深圳千分一IPO：AI 终端的下一代交互入口！2026Q1 净利润仅增 7.09%！销售费用率高于研发费用率，交易所追问是否“重营销轻研发”！》 深圳千分一PO价值与风险报告：AI 终端的下一代交互入口！2026Q1 净利润仅增 7.09%不符合创业板增长逻辑！销售费用率高于研发费用率，交易所追问公司是否“重营销轻研发” 75.98% 营收三年复
+中新网乌鲁木齐5月18日电 (苟继鹏)18日，电影《在伊犁》项目启动仪式在乌鲁木齐市的天山电影制片厂举办，人民艺术家王蒙与各界嘉宾、主创团队共同出席活动。 据悉，该片由新疆维吾尔自治区党委宣传部、天山电影制片厂联合策划创作，改编自人民艺术家国家荣誉称号获得者、中国当代著名作家、原文化部部长王蒙同名作品《在伊犁》，是自治区文艺精品重点工程及文艺扶持激励资金重点项目。 影片紧扣铸牢
 
 ## 正文
 
-来源：凌通企业IPO 原标题：《深圳千分一IPO：AI 终端的下一代交互入口！
+中新网乌鲁木齐5月18日电 (苟继鹏)18日，电影《在伊犁》项目启动仪式在乌鲁木齐市的天山电影制片厂举办，人民艺术家王蒙与各界嘉宾、主创团队共同出席活动。
 
-2026Q1 净利润仅增 7.09%！
+据悉，该片由新疆维吾尔自治区党委宣传部、天山电影制片厂联合策划创作，改编自人民艺术家国家荣誉称号获得者、中国当代著名作家、原文化部部长王蒙同名作品《在伊犁》，是自治区文艺精品重点工程及文艺扶持激励资金重点项目。
 
-销售费用率高于研发费用率，交易所追问是否“重营销轻研发”！
+影片紧扣铸牢中华民族共同体意识主线，以二十世纪六十年代的伊犁为背景，讲述各族群众守望相助、相知相融的温情往事，生动勾勒出各民族休戚与共、亲如一家的美好图景。
 
-》 深圳千分一PO价值与风险报告：AI 终端的下一代交互入口！
+“好电影靠的是生活，我希望这个电影里充满生活。
 
-2026Q1 净利润仅增 7.09%不符合创业板增长逻辑！
+”王蒙在启动仪式上说，新疆各族人民的生活热烈、浪漫又有活力，尤其是生活在伊犁的人们，充满乐观主义、浪漫主义和想象力。
 
-销售费用率高于研发费用率，交易所追问公司是否“重营销轻研发” 75.98% 营收三年复合增速 96.09% 归母净利复合增速 14.16% 2025 全球市占率 9.93亿 拟募集资金（元） 97.05% 智能笔及配件收入占比 +7.09% 2026Q1 净利同比 全球第2 电容笔出货排名 创业板 拟上市板块 保荐机构（主承销商） 国联民生证券承销保荐有限公司 实际控制人 / 控股股东 邓建（合计控制 37.75%）/ 深圳市千分一投资发展有限公司 Pre-IPO 投后估值 15 亿元（2025 年 6 月新增股东入股价 25.35 元/股） 受理与审核进程 2025 年 12 月申报，截至 2026 年 5 月已两轮回复深交所审核问询 数据来源 招股说明书（申报稿）、第一 / 二轮审核问询回复、QYResearch、公开报道 凌通社出品 · 全球经
+希望这部影片能展现可爱的新疆各族人民的故事。
 
-公司以承接知名品牌客户的 ODM 业务为主，合作方包括联想、华硕、惠普、OPPO、vivo、亚马逊、科大讯飞、好未来、作业帮、猿辅导等；同时经营 metapen、idrawgear、Penoval 等适配 iPad 的自有品牌，通过亚马逊销往欧美及日澳市场。
+天山电影制片厂党委书记荆鲁洲表示，全体主创将秉持工匠精神，全力打造兼具思想性、艺术性、观赏性的影视精品，以光影为媒讲好新疆故事。
 
-公司系国家级专精特新“小巨人”企业、深圳市制造业单项冠军，并设有广东省主动式电容触控笔工程技术研究中心，先后获得联想“卓越新品导入奖”、OPPO“创新质量”、vivo“最佳创新奖”及亚马逊“全球拓展之星”等客户与平台荣誉。
+据悉，影片创作团队已于2025年9月赴伊犁实地采风，剧本经多轮打磨已正式定稿，各项筹备工作正有序推进。
 
 ## 相关推荐
 
-- 2026-06-30 07:43 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-30 07:42 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-30 07:55 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
-- 2026-06-30 08:09 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-30 08:08 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
-- 2026-06-30 08:08 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
-- 2026-06-30 07:47 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
-- 2026-06-30 07:57 - [德国罚丢3粒点球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-30 07:57 - [刘宇宁高情商化解谁站C位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
-- 2026-06-30 07:52 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
-- 2026-06-30 07:51 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-30 08:05 - [网友写差评被店家“挂”门口避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
+- 2026-06-30 07:57 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-30 07:57 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-30 07:54 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-30 07:57 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-30 08:10 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-30 08:01 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-30 08:01 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-30 07:58 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-30 07:49 - [德国罚丢3粒点球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-30 07:52 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-30 08:07 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-30 07:59 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:06 - [花少8要去世界杯举办国](http://www.blog.kurohicncr.top/Article/details/94257341.shtml)
-- 2026-06-30 08:08 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/4250469119.shtml)
-- 2026-06-30 08:06 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/5367759.shtml)
-- 2026-06-30 08:00 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.minike.top/Article/details/0542437.shtml)
-- 2026-06-30 08:02 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.kurohicncr.top/Article/details/817491612.shtml)
-- 2026-06-30 07:58 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/84491.shtml)
-- 2026-06-30 08:10 - [亚洲球队全部告别世界杯](https://www.blog.minike.top/Article/details/50146.shtml)
-- 2026-06-30 08:08 - [本届世界杯已有5名球员被控强奸](http://www.blog.minike.top/Article/details/123298609517.shtml)
-- 2026-06-30 07:54 - [杨紫获白玉兰视后争议不止](https://www.share.minike.top/Article/details/31904251.shtml)
-- 2026-06-30 08:02 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.blog.minike.top/Article/details/582166.shtml)
-- 2026-06-30 07:59 - [德国巴拉圭 折磨](https://www.share.kurohicncr.top/Article/details/29441847.shtml)
-- 2026-06-30 07:53 - [曝多支争冠球队有意塞克斯顿](http://www.blog.kurohicncr.top/Article/details/503730.shtml)
-- 2026-06-30 08:05 - [男子在京东买到“同仁堂”假药](http://www.blog.minike.top/Article/details/07108670838.shtml)
-- 2026-06-30 07:52 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/918862155.shtml)
-- 2026-06-30 08:05 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.minike.top/Article/details/1573007.shtml)
+- 2026-06-30 07:51 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/8900374.shtml)
+- 2026-06-30 08:01 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/569128.shtml)
+- 2026-06-30 08:00 - [巴西把自己踢晕了](http://www.share.minike.top/Article/details/408327.shtml)
+- 2026-06-30 07:48 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/3745277132.shtml)
+- 2026-06-30 08:05 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/605674.shtml)
+- 2026-06-30 08:01 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/6735357.shtml)
+- 2026-06-30 08:06 - [日本遭读秒绝杀 森保一：我水平不够](http://www.blog.minike.top/Article/details/804478702.shtml)
+- 2026-06-30 08:08 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/9271387079.shtml)
+- 2026-06-30 07:48 - [AI手机进入Agent时代](http://www.share.kurohicncr.top/Article/details/83379034970.shtml)
+- 2026-06-30 08:05 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/631558.shtml)
+- 2026-06-30 07:55 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/16836.shtml)
+- 2026-06-30 08:15 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/89054430084.shtml)
+- 2026-06-30 07:56 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/43788.shtml)
+- 2026-06-30 07:56 - [曝老詹对自由市场态度与以往截然不同](https://www.share.kurohicncr.top/Article/details/0574779.shtml)
+- 2026-06-30 07:57 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/1231807255.shtml)

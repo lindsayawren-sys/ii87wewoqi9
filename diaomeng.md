@@ -1,61 +1,58 @@
-# 长江有色：16日碳酸锂价下跌 复产预期升温叠加补库窗口关闭
+# 量化策略火热延续！华夏旗下一只基金“一日售罄”，单日吸金超150亿元
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-长江有色金属网 期货方面： 根据广州期货交易所（广期所）碳酸锂主力合约（lc_ZL）最新行情数据显示，截至下午15：02左右，盘面抛压极为沉重，主力合约最新报价报169，980元/吨，较前一交易日结算价大幅下跌5，220元/吨，跌幅深达2.98%。回顾日内走势，该合约开盘价仅为173，800元/吨，早盘尚能维持在17.3万上方震荡，但午后出现单边下挫态势，盘中最低价一度触及16
+每经记者|任飞 每经编辑|肖芮冬 5月16日，华夏智胜全景混合基金配售比例结果公布。基金公司公告显示，该基金末日配售比例为33.25%。根据计划总募集规模50亿元上限的安排，叠加发行当天就结束募集的情形，该基金发行当天被投资人认购的总规模大约在150.37亿元。 今年以来，越来越多的基金出现提前结束募集的情况，特别是权益类基金数量较多。根据Wind数据统计，华夏、易方达、汇添富
 
 ## 正文
 
-长江有色金属网 期货方面： 根据广州期货交易所（广期所）碳酸锂主力合约（lc_ZL）最新行情数据显示，截至下午15：02左右，盘面抛压极为沉重，主力合约最新报价报169，980元/吨，较前一交易日结算价大幅下跌5，220元/吨，跌幅深达2.98%。
+每经记者|任飞 每经编辑|肖芮冬 5月16日，华夏智胜全景混合基金配售比例结果公布。
 
-回顾日内走势，该合约开盘价仅为173，800元/吨，早盘尚能维持在17.3万上方震荡，但午后出现单边下挫态势，盘中最低价一度触及168，420元/吨，直接击穿了17万整数心理关口。
+基金公司公告显示，该基金末日配售比例为33.25%。
 
-现货方面： 根据长江有色金属网2026年6月16日发布的最新现货报价，国内碳酸锂市场在经历上周的短暂反弹后，再度遭遇沉重抛压。
+根据计划总募集规模50亿元上限的安排，叠加发行当天就结束募集的情形，该基金发行当天被投资人认购的总规模大约在150.37亿元。
 
-数据显示，当日电池级碳酸锂（99.5%）均价报169，000元/吨（价格区间166，000–172，000元/吨），较前一交易日大幅下跌2，250元/吨，日跌幅约为1.31%；工业级碳酸锂（99.2%）均价报166，000元/吨（区间163，000–169，000元/吨），同样下跌2，250元/吨，日跌幅约为1.34%。
+今年以来，越来越多的基金出现提前结束募集的情况，特别是权益类基金数量较多。
 
-从供给端来看，本轮价格回调的直接诱因在于市场对供给增加的预期正在快速兑现。
+根据Wind数据统计，华夏、易方达、汇添富、景顺长城等多家公募旗下的近60只基金发行当天就结束募集。
 
-前期支撑价格反弹的核心逻辑——江西宜春云母矿的环保停产与采矿权变更——正在出现边际松动。
+上周五（5月5日），华夏基金发布一则公告，称旗下华夏智胜全景混合基金提前结束募集，发行当天募集的规模已经超过了募集总上限。
 
-据行业调研信息，宜春地区部分此前停产的矿山已进入复产前的最后审批阶段，预计在未来数周内将逐步恢复生产。
+据悉，这是一只偏股混合型基金，拟任基金经理为百亿基金经理孙蒙。
 
-与此同时，海外锂矿进口保持稳定，南美盐湖和澳洲锂辉石的到港量并未出现明显收缩，国内冶炼厂的整体开工率维持在相对高位。
+2026年一季度末统计数据显示，孙蒙在任基金数量10只，管理规模超过290亿元。
 
 ## 相关推荐
 
-- 2026-06-30 07:42 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-30 07:51 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-30 07:45 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-30 07:43 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-30 07:45 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-30 07:52 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-30 07:55 - [德国队连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
-- 2026-06-30 08:00 - [日本球员说被绝杀非常不甘心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-30 08:05 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-30 07:58 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-30 08:11 - [德国队世界杯点球大战首败](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
-- 2026-06-30 08:11 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-30 08:03 - [索马里女大使：想和中国一起搞事业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-30 08:11 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
-- 2026-06-30 07:55 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-30 07:49 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-30 08:11 - [德国 传控](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
+- 2026-06-30 08:15 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-30 08:10 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-30 08:06 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-30 07:56 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-30 08:15 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-30 08:02 - [德国连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-30 07:54 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-30 08:09 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-30 07:50 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-30 07:52 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:50 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/25778807.shtml)
-- 2026-06-30 07:59 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/03629067.shtml)
-- 2026-06-30 07:54 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/49435374008.shtml)
-- 2026-06-30 08:05 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/54010.shtml)
-- 2026-06-30 07:52 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/2299838.shtml)
-- 2026-06-30 08:05 - [关晓彤一路小跑迎接爸爸探班](https://www.share.kurohicncr.top/Article/details/556223707.shtml)
-- 2026-06-30 07:47 - [巴西绝杀](https://www.share.minike.top/Article/details/236672885876.shtml)
-- 2026-06-30 08:01 - [上半年全国特种设备安全形势总体平稳](http://www.share.kurohicncr.top/Article/details/973647267.shtml)
-- 2026-06-30 08:03 - [千与千寻](http://www.share.kurohicncr.top/Article/details/8498657.shtml)
-- 2026-06-30 07:56 - [女心理师](https://www.blog.kurohicncr.top/Article/details/3097469074.shtml)
-- 2026-06-30 08:07 - [覃予萱晋级WTT美国大满贯女单32强](http://www.share.kurohicncr.top/Article/details/7391253718.shtml)
-- 2026-06-30 07:59 - [孙颖莎王楚钦晋级8强](http://www.share.kurohicncr.top/Article/details/145050022.shtml)
-- 2026-06-30 07:52 - [逃狱兄弟](http://www.share.minike.top/Article/details/110615194.shtml)
-- 2026-06-30 08:04 - [德国罚丢3粒点球](http://www.blog.minike.top/Article/details/713874173405.shtml)
-- 2026-06-30 08:11 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/02249.shtml)
+- 2026-06-30 07:54 - [起风了](https://www.share.minike.top/Article/details/149796607128.shtml)
+- 2026-06-30 08:17 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/800445.shtml)
+- 2026-06-30 08:17 - [田中碧失误](https://www.blog.minike.top/Article/details/837843165.shtml)
+- 2026-06-30 08:16 - [索马里女大使：想和中国一起搞事业](https://www.blog.kurohicncr.top/Article/details/13978.shtml)
+- 2026-06-30 07:53 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/48559630453.shtml)
+- 2026-06-30 08:11 - [苗族银饰](https://www.share.kurohicncr.top/Article/details/2880650.shtml)
+- 2026-06-30 08:03 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/86795.shtml)
+- 2026-06-30 08:06 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/168995899591.shtml)
+- 2026-06-30 08:16 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/897752000.shtml)
+- 2026-06-30 07:58 - [孙兴慜发长文致歉](http://www.blog.minike.top/Article/details/120879647393.shtml)
+- 2026-06-30 07:51 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/9760838132.shtml)
+- 2026-06-30 08:05 - [委内瑞拉地震死亡人数升至1719人](https://www.share.kurohicncr.top/Article/details/137813667.shtml)
+- 2026-06-30 07:58 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/49025.shtml)
+- 2026-06-30 08:03 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/978978.shtml)
+- 2026-06-30 07:52 - [媒体评泰山建135公里刀片刺绳隔离网](https://www.share.kurohicncr.top/Article/details/592841.shtml)

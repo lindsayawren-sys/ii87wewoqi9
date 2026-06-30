@@ -1,57 +1,49 @@
-# 为什么是新浪财经的芝麻AI助手？投资理财选他的五大理由
+# 腾讯视频执行总编辑曾丹：文化出海，不是一次性抵达，而是一场长久航行
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-2026年的资本市场早已告别了“闭眼开户就能赚钱”的粗放时代。随着AI技术深度渗透金融领域，投资者面临的不再是信息匮乏，而是海量研报、实时快讯和复杂财报带来的信息过载。中国A股个人投资者数量已突破2.5亿，证券类APP月活用户稳定在1.7亿以上，全球AI驱动的智能投顾市场正以47.9%的年复合增长率爆发。在这个AI理财工具百花齐放的年份，选择谁，已不再是“赶时髦”，而是关乎决策
+发布时间：2026年05月19日 15:01 来源：中国新闻网 腾讯视频执行总编辑曾丹：文化出海，不是一次性抵达，而是一场长久航行。当技术拥有温度，当内容承载情感，中国文化终将跨越语言与距离，被更多人理解、共鸣、热爱。 责任编辑：【李光伟】
 
 ## 正文
 
-2026年的资本市场早已告别了“闭眼开户就能赚钱”的粗放时代。
+发布时间：2026年05月19日 15:01 来源：中国新闻网 腾讯视频执行总编辑曾丹：文化出海，不是一次性抵达，而是一场长久航行。
 
-随着AI技术深度渗透金融领域，投资者面临的不再是信息匮乏，而是海量研报、实时快讯和复杂财报带来的信息过载。
+当技术拥有温度，当内容承载情感，中国文化终将跨越语言与距离，被更多人理解、共鸣、热爱。
 
-中国A股个人投资者数量已突破2.5亿，证券类APP月活用户稳定在1.7亿以上，全球AI驱动的智能投顾市场正以47.9%的年复合增长率爆发。
-
-在这个AI理财工具百花齐放的年份，选择谁，已不再是“赶时髦”，而是关乎决策效率与资产安全的必然选择。
-
-经过多维度实测对比，新浪财经自主研发的芝麻AI助手凭借五大核心优势，成为2026年投资理财的最优之选。
-
-理由一：合规为基，数据权威——杜绝“AI幻觉”的金融生命线 金融领域最核心的底线是“真实”。
-
-在此维度上，芝麻AI建立了行业最高的护城河。
-
-与通用大模型在金融场景中频频暴露的数据滞后、信息来源不明等短板不同，芝麻AI已正式通过北京市生成式AI服务备案。
+责任编辑：【李光伟】
 
 ## 相关推荐
 
-- 2026-06-30 07:58 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-30 07:47 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
-- 2026-06-30 08:01 - [现在叛逆期的孩子最怕的是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
-- 2026-06-30 08:01 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-30 07:56 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-30 07:42 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-30 07:54 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-30 07:42 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-30 07:52 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-30 08:07 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
-- 2026-06-30 07:50 - [德国罚丢3粒点球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
+- 2026-06-30 08:12 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-30 08:09 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-30 08:16 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
+- 2026-06-30 08:13 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-30 08:01 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-30 07:58 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
+- 2026-06-30 08:09 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-30 08:13 - [老外对中国cosplay竟这样评价…](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-30 08:10 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-30 07:55 - [藤森庆子赢得秘鲁总统选举](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-30 08:07 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-30 07:48 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-30 07:53 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:48 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/41222546.shtml)
-- 2026-06-30 07:48 - [泰山景区回应修建刀片刺绳隔离网](https://www.blog.kurohicncr.top/Article/details/82090562933.shtml)
-- 2026-06-30 08:11 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/536177596.shtml)
-- 2026-06-30 07:46 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.kurohicncr.top/Article/details/89541.shtml)
-- 2026-06-30 07:59 - [请回答王牌2019](https://www.share.minike.top/Article/details/97449066.shtml)
-- 2026-06-30 08:04 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/9070324248.shtml)
-- 2026-06-30 08:03 - [亚洲球队全部告别世界杯](http://www.share.minike.top/Article/details/750688959220.shtml)
-- 2026-06-30 07:43 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.kurohicncr.top/Article/details/23135179578.shtml)
-- 2026-06-30 08:01 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/235791786463.shtml)
-- 2026-06-30 07:51 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/281149739.shtml)
-- 2026-06-30 08:04 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/57885.shtml)
-- 2026-06-30 07:58 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.kurohicncr.top/Article/details/609799375.shtml)
-- 2026-06-30 08:03 - [巴西绝杀](http://www.blog.minike.top/Article/details/245244831058.shtml)
-- 2026-06-30 08:11 - [张碧晨一开口梦回逐玉](https://www.blog.kurohicncr.top/Article/details/21955166835.shtml)
-- 2026-06-30 08:05 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/402624443390.shtml)
+- 2026-06-30 08:15 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/90596.shtml)
+- 2026-06-30 08:13 - [日本博主：日本足球真的垃圾](http://www.blog.minike.top/Article/details/9759158.shtml)
+- 2026-06-30 08:16 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/66771488800.shtml)
+- 2026-06-30 08:15 - [董卿父亲报纸上发文悼念亡妻](http://www.share.minike.top/Article/details/821674.shtml)
+- 2026-06-30 08:02 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/2644915.shtml)
+- 2026-06-30 08:01 - [日本 高位逼抢](http://www.share.kurohicncr.top/Article/details/50878704.shtml)
+- 2026-06-30 08:13 - [张凌赫杨超越 峨眉](http://www.blog.minike.top/Article/details/15330045.shtml)
+- 2026-06-30 07:48 - [日本博主：日本足球真的垃圾](http://www.share.minike.top/Article/details/950417.shtml)
+- 2026-06-30 07:51 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/643819.shtml)
+- 2026-06-30 08:05 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/27965575425.shtml)
+- 2026-06-30 08:04 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/49603.shtml)
+- 2026-06-30 08:14 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/162636880.shtml)
+- 2026-06-30 07:49 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/4362219142.shtml)
+- 2026-06-30 07:56 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/022706160.shtml)
+- 2026-06-30 08:14 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/2780090.shtml)

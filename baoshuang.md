@@ -1,58 +1,55 @@
-# 乌兹别克斯坦画家手机里的“汉语词本”
+# 川投新能源公司总经理刘亮被遣返回国
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-中新网乌鲁木齐6月14日电 (张家伟)第二届“美美与共·和美伊犁”中外知名艺术家走进伊犁文化交流活动的采风队伍里，乌兹别克斯坦画家博拉特别克·伊利亚索夫的手机备忘录有点特别，密密麻麻全是汉语词汇的发音和翻译：“漂亮”“风景”“谢谢”……他一边翻一边念，发音不算标准，但很认真。 这是博拉特别克第一次来中国。6月11日，活动在新疆伊犁启动，他跟随一众中外画家走进唐布拉草原和将军谷，
+近日，在中央反腐败协调小组国际追逃追赃工作办公室统筹协调和公安部等部门协助下，经四川省监察机关、公安机关与有关国家执法机关密切合作，外逃职务犯罪嫌疑人刘亮在境外落网并被遣返回国。 刘亮，男，1979年1月出生，川投新能源公司总经理，涉嫌严重职务违法犯罪，于2026年4月外逃，同月四川省资阳市监察机关对其立案调查。办案机关积极开展国际执法合作，于近日将其缉捕归案。 中央追逃办负责
 
 ## 正文
 
-中新网乌鲁木齐6月14日电 (张家伟)第二届“美美与共·和美伊犁”中外知名艺术家走进伊犁文化交流活动的采风队伍里，乌兹别克斯坦画家博拉特别克·伊利亚索夫的手机备忘录有点特别，密密麻麻全是汉语词汇的发音和翻译：“漂亮”“风景”“谢谢”……他一边翻一边念，发音不算标准，但很认真。
+近日，在中央反腐败协调小组国际追逃追赃工作办公室统筹协调和公安部等部门协助下，经四川省监察机关、公安机关与有关国家执法机关密切合作，外逃职务犯罪嫌疑人刘亮在境外落网并被遣返回国。
 
-这是博拉特别克第一次来中国。
+刘亮，男，1979年1月出生，川投新能源公司总经理，涉嫌严重职务违法犯罪，于2026年4月外逃，同月四川省资阳市监察机关对其立案调查。
 
-6月11日，活动在新疆伊犁启动，他跟随一众中外画家走进唐布拉草原和将军谷，开启为期数天的写生创作之旅。
+办案机关积极开展国际执法合作，于近日将其缉捕归案。
 
-博拉特别克对乌兹别克斯坦的山区很熟悉，这次来伊犁让他惊喜：“这里不一样，既可以徒步，又有植被，很适合绘画写生。
+中央追逃办负责人表示，刘亮归案是落实二十届中央纪委五次全会精神、开展“天网2026”行动的重要成果。
 
-” “我从小就对艺术着迷。
+我们将深化反腐败执法司法合作，保持追逃追赃强大攻势，加大对重点人员的追缉力度，以天罗地网断其后路、绝其幻想。
 
-”他说，家里人大多是搞法律的，爸爸希望他当律师，妈妈是会计师。
-
-爸爸当时“警告”他：“这行赚不了大钱，你选这条路会过得很苦。
-
-” 博拉特别克告诉父亲：“我不需要那么多钱。
+（总台央视记者 宋琎） 责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-30 07:49 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
-- 2026-06-30 07:49 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-30 07:57 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
-- 2026-06-30 07:56 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-30 08:11 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-30 08:07 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-30 07:55 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-30 07:53 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-30 07:53 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-30 07:53 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
-- 2026-06-30 08:11 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-30 07:51 - [全新问界M9现身美国街头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-30 07:50 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-30 08:13 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-30 08:14 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-30 08:13 - [莫兰特被交易到开拓者](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-30 08:01 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-30 08:02 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-30 07:55 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-30 08:09 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-30 07:59 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
+- 2026-06-30 07:55 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-30 07:53 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-30 08:00 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
+- 2026-06-30 08:13 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:48 - [世界杯巴拉圭点球淘汰德国](https://www.share.kurohicncr.top/Article/details/9316647.shtml)
-- 2026-06-30 08:02 - [安切洛蒂 换人](https://www.blog.minike.top/Article/details/01577337.shtml)
-- 2026-06-30 07:47 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.kurohicncr.top/Article/details/3246413962.shtml)
-- 2026-06-30 07:43 - [郑钦文温网首轮出局](https://www.blog.minike.top/Article/details/0346801.shtml)
-- 2026-06-30 08:11 - [王濛回复黄灿灿](http://www.share.kurohicncr.top/Article/details/742247.shtml)
-- 2026-06-30 07:44 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/627673922389.shtml)
-- 2026-06-30 07:51 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/260298448.shtml)
-- 2026-06-30 07:46 - [佐野海舟远射破门](http://www.blog.minike.top/Article/details/427442411861.shtml)
-- 2026-06-30 08:00 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/866835375346.shtml)
-- 2026-06-30 08:02 - [千与千寻](https://www.blog.minike.top/Article/details/55634589.shtml)
-- 2026-06-30 07:53 - [沉睡花园](https://www.share.minike.top/Article/details/77103051030.shtml)
-- 2026-06-30 07:47 - [日本遭读秒绝杀 森保一：我水平不够](http://www.share.minike.top/Article/details/6720692.shtml)
-- 2026-06-30 07:56 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/8096100.shtml)
-- 2026-06-30 08:08 - [内马尔中场休息积极鼓励队友](https://www.share.minike.top/Article/details/094572.shtml)
-- 2026-06-30 07:51 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/0414012.shtml)
+- 2026-06-30 08:04 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/847243652.shtml)
+- 2026-06-30 08:09 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.kurohicncr.top/Article/details/92216962.shtml)
+- 2026-06-30 07:58 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/147779496.shtml)
+- 2026-06-30 08:07 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.kurohicncr.top/Article/details/92985.shtml)
+- 2026-06-30 08:10 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/129877982938.shtml)
+- 2026-06-30 08:01 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.share.minike.top/Article/details/00574.shtml)
+- 2026-06-30 08:07 - [一见倾心](http://www.share.kurohicncr.top/Article/details/02452.shtml)
+- 2026-06-30 08:17 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.blog.minike.top/Article/details/826075397421.shtml)
+- 2026-06-30 08:05 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/214484.shtml)
+- 2026-06-30 08:10 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/20484288.shtml)
+- 2026-06-30 08:05 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/333201519060.shtml)
+- 2026-06-30 08:13 - [爱很美味](https://www.blog.minike.top/Article/details/628450451.shtml)
+- 2026-06-30 08:02 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.kurohicncr.top/Article/details/071353739.shtml)
+- 2026-06-30 08:04 - [房价什么时候能涨](https://www.share.minike.top/Article/details/02308.shtml)
+- 2026-06-30 08:11 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/8779838209.shtml)

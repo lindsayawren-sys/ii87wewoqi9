@@ -1,52 +1,48 @@
-# 三星集团成立能源业务特别工作组
+# *ST华微：自5月20日起撤销退市风险警示及其他风险警示
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-三星集团已组建高管特别工作组，探讨将能源领域作为未来新业务板块，并协调三星旗下各子公司间的合作事宜。韩国《每日经济新闻》援引三星一位未具名高级管理人员的话报道了这一消息。该特别工作组还计划在能源领域寻找并购目标。三星电子、三星 SDS、三星 SDI、三星物产、三星工程建设及三星重工的高管将参与该特别工作组。特别工作组正研究整个能源行业价值链，涵盖能源供需、建设项目合同、发电、电
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！人民财讯5月18日电，*ST华微（维权）（600360）5月18日公告，公司股票将于5月19日停牌一天，自5月20日起复牌并撤销退市风险警示及其他风险警示。公司股票简称由“*ST华微”变更为“华微电子”，股票代码仍为“600360”，股票价格的日涨跌幅限制由5%变为10%。责任编辑：刘万里 SF014
 
 ## 正文
 
-三星集团已组建高管特别工作组，探讨将能源领域作为未来新业务板块，并协调三星旗下各子公司间的合作事宜。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-韩国《每日经济新闻》援引三星一位未具名高级管理人员的话报道了这一消息。
+人民财讯5月18日电，*ST华微（维权）（600360）5月18日公告，公司股票将于5月19日停牌一天，自5月20日起复牌并撤销退市风险警示及其他风险警示。
 
-该特别工作组还计划在能源领域寻找并购目标。
+公司股票简称由“*ST华微”变更为“华微电子”，股票代码仍为“600360”，股票价格的日涨跌幅限制由5%变为10%。
 
-三星电子、三星 SDS、三星 SDI、三星物产、三星工程建设及三星重工的高管将参与该特别工作组。
-
-特别工作组正研究整个能源行业价值链，涵盖能源供需、建设项目合同、发电、电网、核电站及人工智能数据中心等领域。
-
-责任编辑：王永生
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-30 07:50 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
-- 2026-06-30 07:42 - [日本队5进世界杯淘汰赛0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
-- 2026-06-30 07:44 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-30 07:53 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
-- 2026-06-30 08:08 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-30 08:06 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
-- 2026-06-30 07:55 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
-- 2026-06-30 08:01 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
-- 2026-06-30 08:09 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
-- 2026-06-30 08:01 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-30 08:07 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
+- 2026-06-30 08:01 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
+- 2026-06-30 08:06 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
+- 2026-06-30 07:59 - [4000美元是黄金新一轮下跌的开始吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
+- 2026-06-30 07:59 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
+- 2026-06-30 07:57 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-30 07:58 - [日本五次世界杯淘汰赛全败](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-30 08:15 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-30 08:10 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
+- 2026-06-30 08:15 - [男子在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:59 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/496948617.shtml)
-- 2026-06-30 07:42 - [德国巴拉圭进入点球大战](https://www.share.kurohicncr.top/Article/details/51652627063.shtml)
-- 2026-06-30 07:43 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/9879922715.shtml)
-- 2026-06-30 07:57 - [萨内 看笑了](https://www.share.kurohicncr.top/Article/details/2155422.shtml)
-- 2026-06-30 07:58 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/213046471.shtml)
-- 2026-06-30 08:00 - [孙兴慜发长文致歉](http://www.share.minike.top/Article/details/56385282.shtml)
-- 2026-06-30 07:51 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/51684845.shtml)
-- 2026-06-30 08:02 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.kurohicncr.top/Article/details/070690330.shtml)
-- 2026-06-30 07:54 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/302954664053.shtml)
-- 2026-06-30 08:02 - [董卿父亲报纸上发文悼念亡妻](https://www.share.minike.top/Article/details/33798933156.shtml)
-- 2026-06-30 08:08 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.minike.top/Article/details/99575885581.shtml)
-- 2026-06-30 08:11 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/55672.shtml)
-- 2026-06-30 08:05 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/371900025.shtml)
-- 2026-06-30 08:05 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/851561.shtml)
-- 2026-06-30 08:01 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/85916473985.shtml)
+- 2026-06-30 07:54 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.kurohicncr.top/Article/details/43705217732.shtml)
+- 2026-06-30 07:50 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/74360.shtml)
+- 2026-06-30 08:10 - [爱很美味](http://www.share.kurohicncr.top/Article/details/3922667042.shtml)
+- 2026-06-30 07:57 - [德国 传控](http://www.share.kurohicncr.top/Article/details/12713304.shtml)
+- 2026-06-30 08:03 - [恋与深空制作组回应近期争议](https://www.blog.minike.top/Article/details/042666965694.shtml)
+- 2026-06-30 08:16 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/24236229.shtml)
+- 2026-06-30 07:48 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/0979433.shtml)
+- 2026-06-30 08:09 - [德国vs巴拉圭](http://www.blog.minike.top/Article/details/976666.shtml)
+- 2026-06-30 08:05 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/823352.shtml)
+- 2026-06-30 08:05 - [巴拉圭率先破门](https://www.blog.kurohicncr.top/Article/details/726090789826.shtml)
+- 2026-06-30 07:52 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.minike.top/Article/details/871031.shtml)
+- 2026-06-30 08:06 - [爱很美味](http://www.share.minike.top/Article/details/5446711754.shtml)
+- 2026-06-30 07:50 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/6490295393.shtml)
+- 2026-06-30 08:13 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/34587474.shtml)
+- 2026-06-30 07:51 - [德国4比5巴拉圭](http://www.share.minike.top/Article/details/27881.shtml)

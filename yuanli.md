@@ -1,57 +1,51 @@
-# 新疆首部“人工智能生成式+实景拍摄”微短剧在克拉玛依开拍
+# A股收评：近3000只个股飘绿，三大指数集体收跌
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-中新网新疆克拉玛依6月15日电 (袁鹏冲)新疆首部“人工智能生成式+实景拍摄”微短剧《玉见人心》，日前在克拉玛依市乌尔禾区世界魔鬼城正式开机。 该剧由克拉玛依市委宣传部打造，剧集以乌尔禾雅丹地貌和壮美戈壁为天然画卷，讲述一个生动奇幻、直抵人心的故事。 记者了解到，该剧将人工智能技术应用于剧本创作、分镜设计、画面渲染、后期制作全流程。同时，该作品通过轻量化的影视方式，全方位展示乌
+A股收评：近3000只个股飘绿，三大指数集体收跌；电信板块领涨，发电设备、煤炭、能源设备上涨；工程机械领跌，贵金属下跌 18日，A股三大指数低开，随后冲高回落集体收跌。截至收盘，沪指跌0.09%，深证成指跌0.20%，创业板指跌0.36%。全市成交额2.92万亿，近3000只个股下跌。 板块方面，电信板块大涨，软饮料、发电设备、能源设备、水务、电脑硬件、煤炭等领涨；稀土、新能源
 
 ## 正文
 
-中新网新疆克拉玛依6月15日电 (袁鹏冲)新疆首部“人工智能生成式+实景拍摄”微短剧《玉见人心》，日前在克拉玛依市乌尔禾区世界魔鬼城正式开机。
+A股收评：近3000只个股飘绿，三大指数集体收跌；电信板块领涨，发电设备、煤炭、能源设备上涨；工程机械领跌，贵金属下跌 18日，A股三大指数低开，随后冲高回落集体收跌。
 
-该剧由克拉玛依市委宣传部打造，剧集以乌尔禾雅丹地貌和壮美戈壁为天然画卷，讲述一个生动奇幻、直抵人心的故事。
+截至收盘，沪指跌0.09%，深证成指跌0.20%，创业板指跌0.36%。
 
-记者了解到，该剧将人工智能技术应用于剧本创作、分镜设计、画面渲染、后期制作全流程。
+全市成交额2.92万亿，近3000只个股下跌。
 
-同时，该作品通过轻量化的影视方式，全方位展示乌尔禾的风光之美、人文之韵。
-
-该剧实现传统文旅题材与前沿数字技术的深度融合，是深入推进文化润疆、铸牢中华民族共同体意识的生动实践。
-
-克拉玛依市委宣传部负责人表示，希望借助微短剧这一新兴载体，探索“技术+内容+平台”的融合传播路径。
-
-让微短剧《玉见人心》向世界展示一个开放自信、活力迸发、和谐美丽的克拉玛依。
-
-(完)
+板块方面，电信板块大涨，软饮料、发电设备、能源设备、水务、电脑硬件、煤炭等领涨；稀土、新能源车概念领跌，工程机械、摩托车、贵金属跌幅居前。
 
 ## 相关推荐
 
-- 2026-06-30 07:45 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-30 07:47 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-30 08:08 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
-- 2026-06-30 07:57 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-30 07:59 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-30 07:56 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
-- 2026-06-30 08:07 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-30 07:45 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
-- 2026-06-30 07:52 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
-- 2026-06-30 07:50 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-30 08:00 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-30 08:08 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-30 08:05 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-30 08:00 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-30 07:55 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-30 08:17 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-30 08:06 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-30 08:03 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-30 08:06 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
+- 2026-06-30 07:58 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-30 08:17 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-30 07:58 - [齐思钧回复张月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-30 07:50 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-30 07:51 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:48 - [杨紫被质疑未使用原名](http://www.share.kurohicncr.top/Article/details/067323.shtml)
-- 2026-06-30 07:46 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/47474.shtml)
-- 2026-06-30 07:51 - [网友写差评被店家“挂”门口避雷](http://www.blog.kurohicncr.top/Article/details/35071.shtml)
-- 2026-06-30 07:53 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/72152.shtml)
-- 2026-06-30 07:52 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/55129849.shtml)
-- 2026-06-30 07:54 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/465481.shtml)
-- 2026-06-30 07:44 - [巴西半场0比1日本](http://www.share.minike.top/Article/details/922900214.shtml)
-- 2026-06-30 08:02 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.blog.minike.top/Article/details/597368.shtml)
-- 2026-06-30 08:07 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/75731.shtml)
-- 2026-06-30 07:46 - [峡谷事故团队组队时有人提醒会下雨](https://www.share.kurohicncr.top/Article/details/662740061.shtml)
-- 2026-06-30 07:58 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/590532313917.shtml)
-- 2026-06-30 07:55 - [孙兴慜道歉](http://www.share.minike.top/Article/details/841651679337.shtml)
-- 2026-06-30 08:06 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.kurohicncr.top/Article/details/091702272197.shtml)
-- 2026-06-30 07:48 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/124721314356.shtml)
-- 2026-06-30 07:53 - [三星投资计划](https://www.blog.minike.top/Article/details/36204.shtml)
+- 2026-06-30 08:04 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/279531435555.shtml)
+- 2026-06-30 07:54 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/74847664583.shtml)
+- 2026-06-30 08:02 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/161309.shtml)
+- 2026-06-30 08:15 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/1556792.shtml)
+- 2026-06-30 08:02 - [田中碧失误](https://www.share.minike.top/Article/details/02899.shtml)
+- 2026-06-30 07:50 - [Melo向柳智敏张元英道歉](http://www.share.kurohicncr.top/Article/details/503032862656.shtml)
+- 2026-06-30 08:15 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/05577.shtml)
+- 2026-06-30 07:54 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.minike.top/Article/details/68184.shtml)
+- 2026-06-30 07:49 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/42689583101.shtml)
+- 2026-06-30 08:10 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/0837685136.shtml)
+- 2026-06-30 07:52 - [王欣瑜2-1击败科恰雷托](https://www.blog.minike.top/Article/details/710199292.shtml)
+- 2026-06-30 08:14 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/20447771774.shtml)
+- 2026-06-30 07:50 - [库尼亚赛后伸五指嘲讽日本](http://www.share.kurohicncr.top/Article/details/84717.shtml)
+- 2026-06-30 08:03 - [穆祉丞年度人气艺人](https://www.share.kurohicncr.top/Article/details/371338013242.shtml)
+- 2026-06-30 08:14 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/2781942053.shtml)

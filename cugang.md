@@ -1,58 +1,57 @@
-# 美国和伊朗达成临时和平协议 本周有望重开霍尔木兹海峡
+# 电科数字“蹭热点”被罚300万，受损投资者可索赔
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-美国和伊朗达成了一项临时和平协议，以重新开放霍尔木兹海峡，并进一步推动结束这场持续15周的战争。这场冲突不仅在中东地区造成严重混乱，也对全球经济产生了广泛冲击。 这一进展推动本周交易伊始全球股市和债券市场上涨，而此前因海峡关闭而飙升的原油和天然气价格则下跌。 美国总统唐纳德·特朗普面临燃油价格上涨带来的政治压力，高油价正冲击其本人以及共和党在11月中期选举前的支持率。他称赞这是
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！2026年5月16日，电科数字（维权）发布公告称，公司及相关当事人收到上海证监局下发的《行政处罚事先告知书》。因在投资者互动平台发布关于子公司涉及“卫星互联网”业务的不准确、不完整信息，涉嫌构成误导性陈述，公司及董秘拟被合计罚款300万元。 上海沪紫律师事务所刘鹏律师表示依据相关法律法规符合于2025年12
 
 ## 正文
 
-美国和伊朗达成了一项临时和平协议，以重新开放霍尔木兹海峡，并进一步推动结束这场持续15周的战争。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-这场冲突不仅在中东地区造成严重混乱，也对全球经济产生了广泛冲击。
+2026年5月16日，电科数字（维权）发布公告称，公司及相关当事人收到上海证监局下发的《行政处罚事先告知书》。
 
-这一进展推动本周交易伊始全球股市和债券市场上涨，而此前因海峡关闭而飙升的原油和天然气价格则下跌。
+因在投资者互动平台发布关于子公司涉及“卫星互联网”业务的不准确、不完整信息，涉嫌构成误导性陈述，公司及董秘拟被合计罚款300万元。
 
-美国总统唐纳德·特朗普面临燃油价格上涨带来的政治压力，高油价正冲击其本人以及共和党在11月中期选举前的支持率。
+上海沪紫律师事务所刘鹏律师表示依据相关法律法规符合于2025年12月17日-2026年1月12日期间买入，且在2026年1月13日之后卖出或仍持有而亏损的即可登记。
 
-他称赞这是一项“将为整个地区带来和平与安全的伟大协议”。
+根据《行政处罚事先告知书》显示，2025年12月17日至12月31日期间，电科数字在上证e互动平台及投资者关系活动记录表中多次宣称，其全资子公司柏飞电子“在卫星互联网领域主要提供星载高性能计算、AI智算及射频传输三类产品”，并“已成功构建了全国产化的解决方案”。
 
-他还曾敦促伊朗在周日公布协议，而当天恰逢他的80岁生日。
+受此消息刺激，电科数字股价连续涨停。
 
-这份协议已经由特朗普、美国副总统JD·万斯，以及伊朗议会议长卡利巴夫电子签署。
+但经监管查实，所谓的“三类核心产品”，实际仅是为客户开展特定研究提供的产品，不仅后续发展存在极大不确定性，产品收入占公司整体业务比重更是不足0.1%。
 
-全球股市走高，标普500指数创4月以来最大涨幅。
+上海证监局认定，电科数字未准确、完整披露产品开发阶段、收入占比及不确定性风险，致使投资者可能作出错误判断，构成误导性陈述。
 
 ## 相关推荐
 
-- 2026-06-30 07:44 - [郑钦文温网一轮游](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
-- 2026-06-30 07:46 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-30 08:07 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
-- 2026-06-30 07:56 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
-- 2026-06-30 07:42 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-30 07:56 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-30 08:02 - [张雪的一句“是我们”引发岛内热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
-- 2026-06-30 07:43 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-30 08:00 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
-- 2026-06-30 08:02 - [一生一世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-30 08:01 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-30 07:53 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-30 08:05 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-30 08:06 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-30 08:06 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-30 07:58 - [巴拉圭进球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-30 07:56 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
+- 2026-06-30 07:53 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-30 08:11 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-30 08:11 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-30 08:03 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-30 07:54 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-30 08:12 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:09 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/097453138018.shtml)
-- 2026-06-30 07:49 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/701304877870.shtml)
-- 2026-06-30 08:11 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/9879836.shtml)
-- 2026-06-30 07:47 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/979682793592.shtml)
-- 2026-06-30 07:49 - [张帅时隔四年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/38766799930.shtml)
-- 2026-06-30 08:06 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/258499934.shtml)
-- 2026-06-30 07:55 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/05400916557.shtml)
-- 2026-06-30 07:44 - [穆祉丞年度人气艺人](http://www.share.minike.top/Article/details/97276726268.shtml)
-- 2026-06-30 07:54 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/4182074.shtml)
-- 2026-06-30 07:46 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/081905313.shtml)
-- 2026-06-30 07:52 - [内马尔替补](https://www.share.kurohicncr.top/Article/details/9732587864.shtml)
-- 2026-06-30 07:59 - [索马里女大使：想和中国一起搞事业](https://www.blog.kurohicncr.top/Article/details/8660107304.shtml)
-- 2026-06-30 08:05 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.kurohicncr.top/Article/details/5353386.shtml)
-- 2026-06-30 08:00 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/80888.shtml)
-- 2026-06-30 07:59 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/3476597138.shtml)
+- 2026-06-30 07:55 - [森保一 保守](https://www.share.minike.top/Article/details/43961676302.shtml)
+- 2026-06-30 07:48 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/15399637889.shtml)
+- 2026-06-30 07:53 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/421266056.shtml)
+- 2026-06-30 07:55 - [沉睡花园](http://www.share.minike.top/Article/details/658090945683.shtml)
+- 2026-06-30 08:11 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/007922952.shtml)
+- 2026-06-30 07:53 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/95019211045.shtml)
+- 2026-06-30 08:08 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.minike.top/Article/details/86695.shtml)
+- 2026-06-30 07:50 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/719891713.shtml)
+- 2026-06-30 07:48 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/98247837.shtml)
+- 2026-06-30 08:11 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/335045501.shtml)
+- 2026-06-30 08:06 - [勇士续约波尔津吉斯](https://www.share.minike.top/Article/details/3391630836.shtml)
+- 2026-06-30 07:53 - [安切洛蒂 换人](https://www.share.minike.top/Article/details/394705065.shtml)
+- 2026-06-30 07:58 - [王欣瑜2-1击败科恰雷托](https://www.blog.kurohicncr.top/Article/details/88356165133.shtml)
+- 2026-06-30 07:56 - [曝灰熊将莫兰特交易至开拓者](http://www.share.minike.top/Article/details/948389072162.shtml)
+- 2026-06-30 07:55 - [泰山景区回应修建刀片刺绳隔离网](https://www.blog.minike.top/Article/details/36117.shtml)

@@ -1,58 +1,58 @@
-# 桥水精简旗舰基金扭转业绩颓势 但管理费下降前景令部分股东萌生退意
+# 雅加达发现3例汉坦病毒病例 另有6例疑似病例
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-在首席执行官Nir Bar Dea致力于重振桥水的三年中，这家对冲基金变得更加精简，业绩也较前几年有所改善。不过，一些股东削减对该公司的估值，也有一些选择撤资。 据知情人士称，尽管桥水的旗舰宏观基金在2025年收获了创纪录的表现，但该公司七家机构股东中的两家决定以低于买入价的价格将股份卖回给桥水。Teacher Retirement System of Texas作为第三家机构
+中新社雅加达5月18日电 (记者 李志全)印度尼西亚雅加达卫生局18日通报，截至目前，雅加达已发现3例汉坦病毒确诊病例，另有6例疑似病例正在接受监测。 雅加达卫生局长阿妮·鲁斯皮塔瓦蒂当天表示，该局已根据印尼卫生部发布的防范通知，提高对汉坦病毒传播的防范等级，并向全市医疗机构下发相关警戒通知。 据介绍，雅加达已指定多家地方公立医院作为“哨点医院”，加强对疑似病例的监测与筛查。同
 
 ## 正文
 
-在首席执行官Nir Bar Dea致力于重振桥水的三年中，这家对冲基金变得更加精简，业绩也较前几年有所改善。
+中新社雅加达5月18日电 (记者 李志全)印度尼西亚雅加达卫生局18日通报，截至目前，雅加达已发现3例汉坦病毒确诊病例，另有6例疑似病例正在接受监测。
 
-不过，一些股东削减对该公司的估值，也有一些选择撤资。
+雅加达卫生局长阿妮·鲁斯皮塔瓦蒂当天表示，该局已根据印尼卫生部发布的防范通知，提高对汉坦病毒传播的防范等级，并向全市医疗机构下发相关警戒通知。
 
-据知情人士称，尽管桥水的旗舰宏观基金在2025年收获了创纪录的表现，但该公司七家机构股东中的两家决定以低于买入价的价格将股份卖回给桥水。
+据介绍，雅加达已指定多家地方公立医院作为“哨点医院”，加强对疑似病例的监测与筛查。
 
-Teacher Retirement System of Texas作为第三家机构股东也在寻求出售所持股份，其去年已将持股价值削减了9%。
+同时，卫生部门还部署快速反应小组，一旦病例明显增加，将启动早期预警机制。
 
-Bar Dea的押注是，旗舰基金Pure Alpha以更小、更专注的模式将会扭转过去十年业绩落后于竞争对手的局面。
+此外，印尼卫生部门还加强雅加达苏加诺—哈达国际机场的汉坦病毒筛查，通过健康申报、体温检测及入境旅客观察等方式，防范输入风险。
 
-该基金长期以来是全球最大的对冲基金。
+阿妮表示，目前汉坦病毒传入印尼的风险总体较低，但仍呼吁民众保持警惕，注意个人卫生防护。
 
-虽然这种做法行之有效，但减少管理的资金规模也可能降低可预测的管理费，而这些管理费正是股权价值的主要驱动因素。
-
-桥水的一位代表拒绝置评。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 07:58 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
-- 2026-06-30 07:55 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-30 08:01 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-30 07:59 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-30 07:55 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-30 08:11 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
-- 2026-06-30 07:48 - [三星投资计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-30 08:12 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-30 08:02 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
-- 2026-06-30 07:59 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-30 07:51 - [日本队5进世界杯淘汰赛0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-30 08:05 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
+- 2026-06-30 07:58 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-30 08:00 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-30 08:02 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-30 08:14 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-30 07:51 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-30 08:04 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-30 07:59 - [索马里女大使：想和中国一起搞事业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-30 08:13 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-30 08:04 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
+- 2026-06-30 07:54 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-30 07:48 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
+- 2026-06-30 07:52 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-30 07:58 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-30 07:56 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:02 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/53380793899.shtml)
-- 2026-06-30 07:55 - [谢依霖说杨幂是聚会第一把张罗手](http://www.share.kurohicncr.top/Article/details/509778040.shtml)
-- 2026-06-30 07:51 - [巴西醒醒 这是淘汰赛](https://www.share.minike.top/Article/details/9678048923.shtml)
-- 2026-06-30 08:10 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/323715026.shtml)
-- 2026-06-30 07:49 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/4902166608.shtml)
-- 2026-06-30 07:45 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/67721561.shtml)
-- 2026-06-30 08:05 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/08215.shtml)
-- 2026-06-30 07:53 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.kurohicncr.top/Article/details/5213255.shtml)
-- 2026-06-30 08:08 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/490596.shtml)
-- 2026-06-30 07:43 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/041549.shtml)
-- 2026-06-30 07:42 - [沉睡花园](http://www.share.minike.top/Article/details/06862571.shtml)
-- 2026-06-30 07:43 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/02225295.shtml)
-- 2026-06-30 07:57 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/9765114398.shtml)
-- 2026-06-30 08:04 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/250172043744.shtml)
-- 2026-06-30 08:08 - [速度与激情9](http://www.blog.minike.top/Article/details/6256430890.shtml)
+- 2026-06-30 07:54 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/5910484248.shtml)
+- 2026-06-30 08:08 - [日本进球](https://www.blog.minike.top/Article/details/0221619859.shtml)
+- 2026-06-30 08:06 - [《男人至死是傻得儿》](http://www.share.kurohicncr.top/Article/details/031733672190.shtml)
+- 2026-06-30 08:16 - [巴西绝杀日本](http://www.share.minike.top/Article/details/29580147.shtml)
+- 2026-06-30 07:53 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://www.share.minike.top/Article/details/6809385204.shtml)
+- 2026-06-30 08:16 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.minike.top/Article/details/39990.shtml)
+- 2026-06-30 08:00 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/185737.shtml)
+- 2026-06-30 08:00 - [张雪的一句“是我们”引发岛内热议](https://www.share.kurohicncr.top/Article/details/57981.shtml)
+- 2026-06-30 08:14 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/361443757993.shtml)
+- 2026-06-30 08:11 - [巴西2比1日本](http://www.share.kurohicncr.top/Article/details/26604777.shtml)
+- 2026-06-30 07:54 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/2016784069.shtml)
+- 2026-06-30 07:48 - [三星投资计划](http://www.blog.kurohicncr.top/Article/details/61661077.shtml)
+- 2026-06-30 07:59 - [亚洲球队全部告别世界杯](http://www.share.minike.top/Article/details/49270519.shtml)
+- 2026-06-30 08:02 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.share.minike.top/Article/details/725182.shtml)
+- 2026-06-30 08:15 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/924397765708.shtml)

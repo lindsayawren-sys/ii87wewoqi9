@@ -1,50 +1,57 @@
-# 第十七届海峡两岸少儿美术大展厦门展开幕
+# 虚假交易平台卷走2.8亿！揭秘“明星讲师”荐股炒黄金骗局
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月14日 20:50 来源：中国新闻网 以“信”为主题的第十七届海峡两岸少儿美术大展厦门展开幕式6月14日在厦门市美术馆举行。 展览精选600组海峡两岸暨港澳、马来西亚华人地区的青少年作品展出，孩子们用自己的方式，写下一封封特别的“信”——给最爱的故土亲人、给远方素不相识的你、给未来的新世界。 厦门展展期至6月24日，本届大展还将落地台北、北京、高雄等两
+法治在线丨虚假交易平台卷走2.8亿！揭秘“明星讲师”荐股炒黄金骗局 跟着“明星讲师”炒股、炒黄金，就能安全稳健赚得高收益？看似诱人的投资承诺背后，往往隐藏着犯罪分子精心编织的诈骗陷阱。 全是包装 虚假交易平台行骗2.8亿 山东警方破获了这样一起利用虚假“交易平台”实施跨境电信网络诈骗案件，涉案金额超2.8亿元。 家住山东烟台的王先生是这起跨境电信网络诈骗案件的被害者之一。他告诉
 
 ## 正文
 
-发布时间：2026年06月14日 20:50 来源：中国新闻网 以“信”为主题的第十七届海峡两岸少儿美术大展厦门展开幕式6月14日在厦门市美术馆举行。
+法治在线丨虚假交易平台卷走2.8亿！
 
-展览精选600组海峡两岸暨港澳、马来西亚华人地区的青少年作品展出，孩子们用自己的方式，写下一封封特别的“信”——给最爱的故土亲人、给远方素不相识的你、给未来的新世界。
+揭秘“明星讲师”荐股炒黄金骗局 跟着“明星讲师”炒股、炒黄金，就能安全稳健赚得高收益？
 
-厦门展展期至6月24日，本届大展还将落地台北、北京、高雄等两岸城市举办巡展，延续这场跨越海峡的艺术之旅。
+看似诱人的投资承诺背后，往往隐藏着犯罪分子精心编织的诈骗陷阱。
 
-记者了解到，海峡两岸少儿美术大展是国台办对台重点交流项目，由两岸多家机构、单位共同发起并推动，自2009年至今已成功举办至十七届，是两岸覆盖面广、影响力大、水平高、持续时间长的少儿美术大展。
+全是包装 虚假交易平台行骗2.8亿 山东警方破获了这样一起利用虚假“交易平台”实施跨境电信网络诈骗案件，涉案金额超2.8亿元。
 
-(记者 吴晟炜) 责任编辑：【周驰】
+家住山东烟台的王先生是这起跨境电信网络诈骗案件的被害者之一。
+
+他告诉记者，2017年底的时候，有一个自称是资深股民的陌生人，添加了自己的微信，然后拉自己进入了一个炒股、荐股的粉丝群。
+
+被害人 王先生：我以前炒过股票，刚开始他们在直播间只讲一些炒股的知识、个股的分析。
+
+然后他们就不断在直播间展示他们黄金交易账户给我们看，说是今天好像就是赚了几万美金，明天又赚了几十万，又说炒黄金的各种好处。
 
 ## 相关推荐
 
-- 2026-06-30 07:46 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
-- 2026-06-30 08:11 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-30 08:10 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-30 08:03 - [孙颖莎王楚钦晋级8强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-30 07:42 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-30 07:44 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-30 07:55 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-30 08:01 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-30 07:42 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
-- 2026-06-30 08:03 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-30 07:53 - [日本博主：日本足球真的垃圾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-30 07:57 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-30 08:12 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-30 08:10 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-30 07:48 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-30 07:54 - [巴拉圭点球大战淘汰德国进16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-30 08:09 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-30 08:00 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
+- 2026-06-30 08:08 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-30 08:06 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
+- 2026-06-30 08:17 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:11 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/97879191.shtml)
-- 2026-06-30 07:45 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/005984174412.shtml)
-- 2026-06-30 07:45 - [日本 高位逼抢](https://www.share.minike.top/Article/details/48427089.shtml)
-- 2026-06-30 07:58 - [孙兴慜发长文致歉](http://www.share.minike.top/Article/details/31564998290.shtml)
-- 2026-06-30 08:03 - [巴西绝杀](http://www.share.minike.top/Article/details/797489318.shtml)
-- 2026-06-30 08:09 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/8135042.shtml)
-- 2026-06-30 07:49 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/0638672.shtml)
-- 2026-06-30 07:51 - [张帅晋级温网次轮](http://www.share.kurohicncr.top/Article/details/993897332733.shtml)
-- 2026-06-30 07:42 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/924954435.shtml)
-- 2026-06-30 07:59 - [佐野海舟远射破门](https://www.share.kurohicncr.top/Article/details/06247.shtml)
-- 2026-06-30 07:49 - [曝老詹对自由市场态度与以往截然不同](https://www.blog.kurohicncr.top/Article/details/003949.shtml)
-- 2026-06-30 08:07 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/199585.shtml)
-- 2026-06-30 07:50 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/0870658.shtml)
-- 2026-06-30 07:49 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/48652.shtml)
-- 2026-06-30 07:56 - [莫兰特转投开拓者效力](http://www.share.kurohicncr.top/Article/details/112768974.shtml)
+- 2026-06-30 07:49 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](http://www.share.minike.top/Article/details/260519943454.shtml)
+- 2026-06-30 07:49 - [德国4比5巴拉圭](http://www.share.kurohicncr.top/Article/details/55817.shtml)
+- 2026-06-30 08:13 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/21191738.shtml)
+- 2026-06-30 07:48 - [莫兰特被交易到开拓者](http://www.blog.minike.top/Article/details/57406.shtml)
+- 2026-06-30 07:53 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/340192.shtml)
+- 2026-06-30 07:58 - [为什么会有「念旧」的心理？](https://www.share.kurohicncr.top/Article/details/88619176.shtml)
+- 2026-06-30 08:07 - [佐野海舟远射破门](https://www.blog.kurohicncr.top/Article/details/81340504802.shtml)
+- 2026-06-30 08:12 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/030757897.shtml)
+- 2026-06-30 08:05 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/0627878781.shtml)
+- 2026-06-30 08:02 - [豆包收费了，你还会用吗？](https://www.blog.minike.top/Article/details/9929206950.shtml)
+- 2026-06-30 07:54 - [南北多地暴雨和强对流天气持续](https://www.blog.kurohicncr.top/Article/details/503026526.shtml)
+- 2026-06-30 08:09 - [补时绝杀 巴西2-1淘汰日本](http://www.share.minike.top/Article/details/954166721.shtml)
+- 2026-06-30 07:58 - [日本16强魔咒](https://www.blog.kurohicncr.top/Article/details/9564267.shtml)
+- 2026-06-30 07:48 - [恋与深空制作组回应近期争议](http://www.blog.minike.top/Article/details/527915.shtml)
+- 2026-06-30 08:12 - [点球大战 残酷](https://www.share.minike.top/Article/details/39514.shtml)

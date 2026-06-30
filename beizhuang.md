@@ -1,50 +1,54 @@
-# 两岸共潮生|台青天津创办养老机构 以“情感+智能”探索银发经济新蓝海
+# 花旗：铝价即将迎来50年来最大一波上涨行情
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月16日 08:46 来源：中国新闻网 “两岸心连心，共享夕阳红”，台湾创业青年井然把这样一句话挂在他创办的养老院的墙上。在天津，他用十几年的努力践行着这个美好愿景。紧随大陆银发经济发展浪潮，他借鉴台湾养老的精细化服务，自主研发养老管理平台，以科技赋能老年照护，用真心真情书写“两岸一家亲”的温暖时光。 责任编辑：【黄钰涵】
+花旗表示，在经历重大供应冲击后，铝市正面临50多年来最看涨的行情，预计短期内价格将升至每吨4，000美元，且有可能进一步大幅上涨。伊朗战争引发全球铝市场空前的危机，可能对建筑、包装、运输及绿能等众多行业造成毁灭性的连锁反应。花旗指出，主要源于中东局势动荡导致的逾300万吨供应损失，在闲置产能近乎为零且库存已处于55年低点之际，将市场推入结构性短缺状态。该行预计，即便在需求疲软的
 
 ## 正文
 
-发布时间：2026年06月16日 08:46 来源：中国新闻网 “两岸心连心，共享夕阳红”，台湾创业青年井然把这样一句话挂在他创办的养老院的墙上。
+花旗表示，在经历重大供应冲击后，铝市正面临50多年来最看涨的行情，预计短期内价格将升至每吨4，000美元，且有可能进一步大幅上涨。
 
-在天津，他用十几年的努力践行着这个美好愿景。
+伊朗战争引发全球铝市场空前的危机，可能对建筑、包装、运输及绿能等众多行业造成毁灭性的连锁反应。
 
-紧随大陆银发经济发展浪潮，他借鉴台湾养老的精细化服务，自主研发养老管理平台，以科技赋能老年照护，用真心真情书写“两岸一家亲”的温暖时光。
+花旗指出，主要源于中东局势动荡导致的逾300万吨供应损失，在闲置产能近乎为零且库存已处于55年低点之际，将市场推入结构性短缺状态。
 
-责任编辑：【黄钰涵】
+该行预计，即便在需求疲软的情况下，今年仍将出现约270万吨的缺口，这将导致未来6至12个月库存降至历史低点。
+
+花旗认为，若需求破坏程度有限，未来三个月内铝价有望稳步升至每吨4，000美元；2026年下半年均价料维持在该水平，而在2027年的乐观情景下，价格将升至每吨5，350美元。
+
+花旗分析师表示：“尽管短期波动和减仓可能对价格构成压力，但在未出现严重经济衰退的情况下，下行空间似乎越来越受限。
+
+”责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 08:11 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-30 08:03 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-30 08:03 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-30 07:47 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-30 08:00 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
-- 2026-06-30 08:07 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-30 08:00 - [王楚钦说配合稍微有些陌生感](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
-- 2026-06-30 07:54 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-30 07:54 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-30 07:44 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-30 08:01 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
-- 2026-06-30 07:42 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-30 07:59 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-30 08:15 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-30 07:59 - [巴拉圭进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-30 07:54 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-30 07:59 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-30 07:58 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-30 08:09 - [全新问界M9现身美国街头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-30 08:04 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-30 08:09 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-30 07:48 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:01 - [斗破苍穹](https://www.blog.minike.top/Article/details/327085.shtml)
-- 2026-06-30 07:48 - [张碧晨一开口梦回逐玉](https://www.blog.kurohicncr.top/Article/details/965186.shtml)
-- 2026-06-30 08:08 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/17226050.shtml)
-- 2026-06-30 08:00 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/357083.shtml)
-- 2026-06-30 07:42 - [覃予萱晋级WTT美国大满贯女单32强](https://www.share.kurohicncr.top/Article/details/2125595.shtml)
-- 2026-06-30 08:11 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.blog.kurohicncr.top/Article/details/1311693693.shtml)
-- 2026-06-30 08:00 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.minike.top/Article/details/60144462.shtml)
-- 2026-06-30 07:42 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/052362.shtml)
-- 2026-06-30 07:51 - [感动全网的699分女生想报考清华](http://www.blog.minike.top/Article/details/17177.shtml)
-- 2026-06-30 08:10 - [巴西2-1绝杀日本](https://www.share.minike.top/Article/details/766424.shtml)
-- 2026-06-30 07:53 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/69099101574.shtml)
-- 2026-06-30 07:54 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/93597453005.shtml)
-- 2026-06-30 08:03 - [王濛回复黄灿灿](http://www.share.minike.top/Article/details/1143856.shtml)
-- 2026-06-30 08:08 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/801865431.shtml)
-- 2026-06-30 07:48 - [王健林甩卖超80座万达广场](https://www.share.minike.top/Article/details/82305.shtml)
+- 2026-06-30 08:09 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/0860689.shtml)
+- 2026-06-30 07:50 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.kurohicncr.top/Article/details/16174381466.shtml)
+- 2026-06-30 08:06 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/6482646.shtml)
+- 2026-06-30 08:01 - [三星投资计划](http://www.blog.kurohicncr.top/Article/details/2478788103.shtml)
+- 2026-06-30 08:02 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/7787417.shtml)
+- 2026-06-30 08:09 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/66465120.shtml)
+- 2026-06-30 07:51 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/07175541.shtml)
+- 2026-06-30 07:54 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.kurohicncr.top/Article/details/06014598702.shtml)
+- 2026-06-30 07:53 - [美人鱼](http://www.blog.minike.top/Article/details/538511.shtml)
+- 2026-06-30 08:07 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/793451.shtml)
+- 2026-06-30 08:10 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/753155974265.shtml)
+- 2026-06-30 08:11 - [【大鸣王潮1566】真拿你没办法](https://www.share.kurohicncr.top/Article/details/80874190.shtml)
+- 2026-06-30 08:06 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/0646057.shtml)
+- 2026-06-30 08:07 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.kurohicncr.top/Article/details/4224030076.shtml)
+- 2026-06-30 08:15 - [女子遭下药退赔偿拟追刑责](http://www.blog.minike.top/Article/details/25731486826.shtml)

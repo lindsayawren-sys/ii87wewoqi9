@@ -1,55 +1,57 @@
-# 美媒：以色列“企图破坏”美伊协议
+# 第79届世界卫生大会中国代表团：中国深化卫生领域创新合作 贡献中国经验助力全球卫生治理
 
-> 更新时间：2026-06-30 08:12:02 UTC+8
+> 更新时间：2026-06-30 08:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社华盛顿6月14日电美国福克斯新闻网14日援引一名参与美国同伊朗谈判的外交官员的话说，以色列当天对黎巴嫩首都贝鲁特南郊的袭击给美伊达成协议“制造问题”，“以色列显然企图破坏（特朗普）总统的协议，并将美国重新拖入战争”。 报道还说，一名以色列高级官员否认以色列应为袭击黎巴嫩承担责任，称“黎巴嫩真主党过去3
+新华社日内瓦5月17日电(记者王露 陈俊侠)出席第79届世界卫生大会的中国代表团17日在瑞士日内瓦举办媒体吹风会。中国国家卫生健康委主任雷海潮、中国常驻联合国日内瓦办事处和瑞士其他国际组织代表贾桂德、中国国家疾病预防控制局局长沈洪兵出席吹风会并答记者问。作为中国代表团团长，雷海潮在吹风会上介绍了健康中国建设工作的进展。他表示，过去十年，中国卫生健康事业的发展和建设主要呈现出以下
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+新华社日内瓦5月17日电(记者王露 陈俊侠)出席第79届世界卫生大会的中国代表团17日在瑞士日内瓦举办媒体吹风会。
 
-新华社华盛顿6月14日电美国福克斯新闻网14日援引一名参与美国同伊朗谈判的外交官员的话说，以色列当天对黎巴嫩首都贝鲁特南郊的袭击给美伊达成协议“制造问题”，“以色列显然企图破坏（特朗普）总统的协议，并将美国重新拖入战争”。
+中国国家卫生健康委主任雷海潮、中国常驻联合国日内瓦办事处和瑞士其他国际组织代表贾桂德、中国国家疾病预防控制局局长沈洪兵出席吹风会并答记者问。
 
-报道还说，一名以色列高级官员否认以色列应为袭击黎巴嫩承担责任，称“黎巴嫩真主党过去3天一直在袭击以色列平民”。
+作为中国代表团团长，雷海潮在吹风会上介绍了健康中国建设工作的进展。
 
-特朗普13日在社交媒体发文说，美国和伊朗定于14日签署协议。
+他表示，过去十年，中国卫生健康事业的发展和建设主要呈现出以下几个方面的积极变化，包括贯彻预防为主的理念，公共卫生体系持续提升，能力水平大幅改善；医疗服务体系的能力不断增强，在服务可及性、城乡公平性、均等化与覆盖面，以及居民就医便利性等方面均有显著提升；传统医药的传承与发展也取得了新的进步。
 
-（完）责任编辑：宋雅芳
+同时，在健康中国建设过程中，全社会和全民的广泛参与得到了高度重视。
+
+雷海潮同时表示，中国愿将卫生治理的经验与技术同世界各国分享，积极推动“一带一路”卫生合作，并持续向广大发展中国家派遣常驻医疗队。
+
+目前仍有60多支中国医疗队在海外服务，在非洲、拉美等国家发挥重要作用——不仅提供医疗服务，还传授中国医务人员掌握的先进技术与管理经验，为当地培养大量适宜人才。
+
+这是中国在解决自身健康问题的同时，为国际社会作出的重要贡献。
 
 ## 相关推荐
 
-- 2026-06-30 07:51 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-30 07:57 - [日本五次世界杯淘汰赛全败](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-30 07:51 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
-- 2026-06-30 07:44 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-30 07:42 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-30 07:50 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
-- 2026-06-30 07:43 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-30 07:46 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-30 07:43 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-30 08:05 - [日本博主：日本足球真的垃圾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
-- 2026-06-30 07:52 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-30 07:44 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
-- 2026-06-30 07:49 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
-- 2026-06-30 07:52 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
-- 2026-06-30 08:04 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-30 07:56 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-30 07:53 - [郑钦文温网一轮游](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
+- 2026-06-30 08:09 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-30 08:03 - [日本博主：日本足球真的垃圾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-30 08:14 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-30 08:03 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
+- 2026-06-30 07:56 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-30 08:16 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-30 08:01 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-30 08:17 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-30 08:04 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:00 - [王楚钦孙颖莎晋级混双八强](https://www.blog.kurohicncr.top/Article/details/7812561881.shtml)
-- 2026-06-30 07:44 - [曝老詹对自由市场态度与以往截然不同](http://www.blog.kurohicncr.top/Article/details/78350888.shtml)
-- 2026-06-30 08:06 - [感动全网的699分女生想报考清华](https://www.share.kurohicncr.top/Article/details/84450.shtml)
-- 2026-06-30 07:55 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.minike.top/Article/details/191863.shtml)
-- 2026-06-30 07:54 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/98720840.shtml)
-- 2026-06-30 08:11 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/9161139474.shtml)
-- 2026-06-30 07:49 - [上半年全国特种设备安全形势总体平稳](https://www.blog.kurohicncr.top/Article/details/0313570.shtml)
-- 2026-06-30 07:52 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/551925.shtml)
-- 2026-06-30 07:59 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/66264.shtml)
-- 2026-06-30 07:49 - [千香](https://www.share.minike.top/Article/details/203869088.shtml)
-- 2026-06-30 07:50 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/942427.shtml)
-- 2026-06-30 08:06 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.kurohicncr.top/Article/details/281931881.shtml)
-- 2026-06-30 08:09 - [曝詹姆斯即将与勇士会面](http://www.blog.kurohicncr.top/Article/details/650965152556.shtml)
-- 2026-06-30 08:02 - [庆祝中国共产党成立105周年音乐会](http://www.blog.minike.top/Article/details/319260.shtml)
-- 2026-06-30 08:00 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.minike.top/Article/details/291182.shtml)
+- 2026-06-30 07:59 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/20425863832.shtml)
+- 2026-06-30 07:50 - [韩乔生吐槽世界杯扩军](http://www.blog.kurohicncr.top/Article/details/1207680.shtml)
+- 2026-06-30 07:51 - [郑钦文温网首轮出局](https://www.share.kurohicncr.top/Article/details/9255095641.shtml)
+- 2026-06-30 07:52 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.kurohicncr.top/Article/details/6241494.shtml)
+- 2026-06-30 08:06 - [这种关系可能正在悄悄“催老”你](https://www.share.minike.top/Article/details/47741748753.shtml)
+- 2026-06-30 07:50 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/906710.shtml)
+- 2026-06-30 08:14 - [青春环游记第三季](https://www.blog.minike.top/Article/details/1313528.shtml)
+- 2026-06-30 08:04 - [老外对中国cosplay竟这样评价…](https://www.share.kurohicncr.top/Article/details/6165516.shtml)
+- 2026-06-30 07:49 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/150294.shtml)
+- 2026-06-30 07:50 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/780529126.shtml)
+- 2026-06-30 08:13 - [杨紫被质疑未使用原名纯属误解](http://www.share.kurohicncr.top/Article/details/94820225.shtml)
+- 2026-06-30 07:55 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/3447792.shtml)
+- 2026-06-30 08:00 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/01819.shtml)
+- 2026-06-30 07:54 - [请回答王牌2019](http://www.blog.minike.top/Article/details/867554392489.shtml)
+- 2026-06-30 07:59 - [点球大战 残酷](https://www.share.kurohicncr.top/Article/details/1035766.shtml)
