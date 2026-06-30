@@ -1,47 +1,44 @@
-<h1>山西晋城举办戏剧展“解锁”上党梆子的“源头密码”</h1><br>
+<h1>伊朗队留下的便条里，有比胜利更深的力量</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新网晋城5月2日电 (杨佩佩 郭超凡)作为第七届太行山文化旅游节“晋城有戏·自在太行”的重要板块，孔三传诸宫调暨上党梆子戏剧展2日正在山西晋城城市体验中心展出，尽显晋城深厚的戏曲文脉底蕴。 北宋泽州艺人孔三传首创的诸宫调，是中国戏曲史上里程碑式的艺术形式，被誉为“孕育中国戏曲的摇篮”。其打破单一宫调限制，以多宫调串联叙事，不仅催生了元杂剧，也为上党梆子的孕育与发展提供深厚的艺</p><br>
+<p>当地时间6月21日，在美国洛杉矶体育场进行的2026年美加墨世界杯G组第二轮小组赛中，伊朗队以0:0战平比利时队，以两连平战绩暂列小组第二，继续保有队史首次晋级世界杯淘汰赛的主动权。 “波斯铁骑”战平“欧洲红魔” 从纸面实力看，这并不是一场势均力敌的比赛。比利时队曾获2018年世界杯季军，长期位居世界足坛强队行列，“欧洲红魔”的整体实力与大赛经验显然更被外界看好。 足球的魅力，</p><br>
 <h2>正文</h2><br>
-<p>中新网晋城5月2日电 (杨佩佩 郭超凡)作为第七届太行山文化旅游节“晋城有戏·自在太行”的重要板块，孔三传诸宫调暨上党梆子戏剧展2日正在山西晋城城市体验中心展出，尽显晋城深厚的戏曲文脉底蕴。</p><br>
-<p>北宋泽州艺人孔三传首创的诸宫调，是中国戏曲史上里程碑式的艺术形式，被誉为“孕育中国戏曲的摇篮”。</p><br>
-<p>其打破单一宫调限制，以多宫调串联叙事，不仅催生了元杂剧，也为上党梆子的孕育与发展提供深厚的艺术滋养，是戏曲文化的重要源头之一。</p><br>
-<p>走进展厅，清代上党梆子凤冠金饰璀璨，纹路间藏着百年戏台的荣光；清代上党梆子班社章形制古朴，印证着旧时戏班的传承轨迹；金盔黑乌纱形制规整，是传统武生、净角经典行头；泛黄的诸宫调手抄曲谱纹路清晰，留存着古时艺人传艺授曲的岁月印记…… 同时，上党梆子演员现场演示戏曲妆造，一招一式、一步一妆，完整呈现戏曲幕后的匠心细节。</p><br>
-<p>身着北宋服饰的NPC，与观众开展戏曲知识问答互动，答对问题即可赢取诸宫调文创礼品。</p><br>
-<p>泽州县戏剧家协会历时六年复排演绎的《西厢记诸宫调》选段婉转绵长，让观众真切感受到诸宫调悠远的艺术根脉。</p><br>
-<p>“我本身就是学音乐专业的，一直关注本土传统文艺。</p><br>
-<p>这次放假回来专门回来看一看，真热闹。</p><br>
+<p>当地时间6月21日，在美国洛杉矶体育场进行的2026年美加墨世界杯G组第二轮小组赛中，伊朗队以0:0战平比利时队，以两连平战绩暂列小组第二，继续保有队史首次晋级世界杯淘汰赛的主动权。</p><br>
+<p>“波斯铁骑”战平“欧洲红魔” 从纸面实力看，这并不是一场势均力敌的比赛。</p><br>
+<p>比利时队曾获2018年世界杯季军，长期位居世界足坛强队行列，“欧洲红魔”的整体实力与大赛经验显然更被外界看好。</p><br>
+<p>足球的魅力，恰恰在于它从不完全服从纸面逻辑。</p><br>
+<p>伊朗队用近乎顽强的防守、坚决的对抗和清晰的战术纪律，把一场原本被认为几无悬念的比赛，踢成了属于自己的尊严之战。</p><br>
+<p>比赛开局后，比利时队在控球率和射门次数上占据优势，试图用持续压迫撕开伊朗队的防线。</p><br>
+<p>但伊朗队并未慌乱，而是以低位防守稳住阵脚，再依靠快速反击寻找机会。</p><br>
+<p>第25分钟，伊朗队曾利用前场任意球破门，可惜因越位在先被判无效。</p><br>
 <h2>相关推荐</h2><br>
-<h3>内马尔替补</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md</p><br>
-<h3>日本足球是如何崛起的</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md</p><br>
-<h3>披荆斩棘的哥哥</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md</p><br>
-<h3>GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md</p><br>
-<h3>如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md</p><br>
-<h3>巴西绝杀日本：漫画般结局换了主角</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md</p><br>
-<h3>人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md</p><br>
-<h3>如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md</p><br>
-<h3>王楚钦孙颖莎晋级混双八强</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md</p><br>
-<h3>豆包收费了，你还会用吗？</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md</p><br>
-<h3>如何看待现在有学者用AI做数学科研？</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md</p><br>
-<h3>詹姆斯 勇士</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md</p><br>
-<h3>郑钦文温网三连败西尼亚科娃</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md</p><br>
-<h3>第3集丨“柠檬茶能换怀表？”</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md</p><br>
+<h3>任素汐舞台上唱《王招君》</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md</p><br>
+<h3>孙颖莎vs刘杨子</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md</p><br>
+<h3>马宁怒怼巴拉圭教练组</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md</p><br>
+<h3>爱直接对嘴喝饮料的人天塌了</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md</p><br>
+<h3>恐怖世界 第三集 埃温霍姆村</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md</p><br>
+<h3>极端热浪席卷欧洲多国，热一热百姓让领导先凉快？</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md</p><br>
+<h3>女方不认十几万彩礼最终退回20万</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md</p><br>
+<h3>《我落泪情绪零碎》</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md</p><br>
+<h3>蜘蛛侠:平行宇宙</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md</p><br>
+<h3>陈露发视频求和解遭拒</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md</p><br>
+<h3>科学备孕男女都要上心</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md</p><br>
-<h3>怕iPhone涨价的用户已紧急换新</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md</p><br>
-<h3>美媒：美军第五舰队司令部已无法使用</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md</p><br>
-<h3>世界杯名画巴拉圭钢铁防线</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md</p><br>
-<h3>韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md</p><br>
-<h3>孙兴慜发长文致歉</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md</p><br>
-<h3>斛珠夫人</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md</p><br>
-<h3>田曦薇这是日常不是广告</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md</p><br>
-<h3>捷克主帅库贝克辞职</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md</p><br>
-<h3>曝灰熊将莫兰特交易至开拓者</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md</p><br>
-<h3>扫黑风暴</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md</p><br>
-<h3>日本主帅赛后回应淘汰出局</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md</p><br>
-<h3>巴西vs日本</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md</p><br>
-<h3>毒液2</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md</p><br>
-<h3>中国对日本再出重拳</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md</p><br>
+<h3>沉睡花园</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md</p><br>
+<h3>日本主帅：未能夺冠深感抱歉</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md</p><br>
+<h3>啊啊啊</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md</p><br>
+<h3>输球后日本球迷被强行披上巴西国旗</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md</p><br>
+<h3>法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md</p><br>
+<h3>穆祉丞回应获年度人气艺人</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md</p><br>
+<h3>领克07GT搭载超跑同源MRC悬架</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md</p><br>
+<h3>王欣瑜连续4年晋级温网第二轮</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md</p><br>
+<h3>2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md</p><br>
+<h3>冲学校再转专业可行吗</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md</p><br>
+<h3>高考结束，该不该外出打工体验？</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md</p><br>
+<h3>⚡逼尔摩斯教你玩球⚡</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md</p><br>
+<h3>妻子撞死家暴丈夫案二审案情反转</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md</p><br>
+<h3>湖北云南这些涉汛信息都是假的</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md</p><br>
+<h3>曝波尔津吉斯提前续约勇士</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md</p><br>

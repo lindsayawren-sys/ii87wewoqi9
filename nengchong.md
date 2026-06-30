@@ -1,42 +1,44 @@
-<h1>古巴外长：美国对古攻击上升至危险水平</h1><br>
+<h1>何以中国·行走陵水：在分界洲岛领略热带海岛的美丽与浪漫</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>古巴外交部长罗德里格斯当地时间5月2日称，在大幅强化对古巴经济封锁后，美国总统特朗普又发出新的、明确且直接的军事侵略威胁，针对古巴的攻击上升至危险水平。 罗德里格斯在社交媒体上表示，古巴人民不会被吓倒，这已在“五一”国际劳动节大规模集会游行中有所体现。 美国白宫1日发布公告称，特朗普当天签署行政令，以“威胁美国国家安全和对外政策”为由，加大对古巴的制裁。特朗普当天又威胁称，美军</p><br>
+<p>中新网海南陵水6月23日电 题：何以中国·行走陵水：在分界洲岛领略热带海岛的美丽与浪漫 作者 张月和 “静可放空发呆、动能上天入海，各个年龄段的游客都能在分界洲岛找到为自己‘充电’的方式。”日本文华传媒株式会社记者陈颖登上海南陵水分界洲岛，对惊艳的玻璃海景观和丰富的水上项目赞不绝口。 6月22日，参与“何以中国行走陵水”陵水旅游文化国际传播活动的12国媒体人踏上分界洲岛，领略了</p><br>
 <h2>正文</h2><br>
-<p>古巴外交部长罗德里格斯当地时间5月2日称，在大幅强化对古巴经济封锁后，美国总统特朗普又发出新的、明确且直接的军事侵略威胁，针对古巴的攻击上升至危险水平。</p><br>
-<p>罗德里格斯在社交媒体上表示，古巴人民不会被吓倒，这已在“五一”国际劳动节大规模集会游行中有所体现。</p><br>
-<p>美国白宫1日发布公告称，特朗普当天签署行政令，以“威胁美国国家安全和对外政策”为由，加大对古巴的制裁。</p><br>
-<p>特朗普当天又威胁称，美军将在结束伊朗战事返回之际“接管古巴”。</p><br>
-<p>他表示，“从伊朗回来的路上，我们会(向古巴)派出一艘大型航母——也许是‘亚伯拉罕·林肯’号航母”。</p><br>
-<p>同在1日，古巴多地举行“五一”国际劳动节集会游行，大批民众走上街头，反对美国对古封锁制裁及军事威胁，表达保卫祖国立场。</p><br>
-<p>(央视新闻客户端)</p><br>
+<p>中新网海南陵水6月23日电 题：何以中国·行走陵水：在分界洲岛领略热带海岛的美丽与浪漫 作者 张月和 “静可放空发呆、动能上天入海，各个年龄段的游客都能在分界洲岛找到为自己‘充电’的方式。</p><br>
+<p>”日本文华传媒株式会社记者陈颖登上海南陵水分界洲岛，对惊艳的玻璃海景观和丰富的水上项目赞不绝口。</p><br>
+<p>6月22日，参与“何以中国行走陵水”陵水旅游文化国际传播活动的12国媒体人踏上分界洲岛，领略了北纬18度的热带海岛的美丽与浪漫。</p><br>
+<p>晴朗天空下海波荡漾，近岸的浅碧色海水清澈见底，远处的蔚蓝深海辽阔神秘，让来访的境外媒体人目不转睛、挪不动脚。</p><br>
+<p>岛屿因地处海南岛南北气候分界线，以及陵水黎族自治县和万宁市的行政分界点，故而名为分界洲岛。</p><br>
+<p>海岛的美丽，也让这里成为抚慰游人心灵的分界：与烦恼分界、与过去分界。</p><br>
+<p>天成绝美海景，让分界洲岛成为“天然的摄影棚”。</p><br>
+<p>行走岛上，能看到新人在各处拍婚纱照，留下最浪漫幸福的画面。</p><br>
 <h2>相关推荐</h2><br>
-<h3>领克07GT搭载超跑同源MRC悬架</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md</p><br>
-<h3>大蒜晒外面被路过女子连盆端走</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md</p><br>
-<h3>王源近几年没有路演了</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md</p><br>
-<h3>手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md</p><br>
-<h3>张月收到黄灿灿辣货两眼发光</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md</p><br>
-<h3>美股</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md</p><br>
-<h3>男生180+，有腹肌是什么体验？</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md</p><br>
-<h3>四川凉山落石砸毁车辆 3人遇难</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md</p><br>
-<h3>国内最大沙漠发洪水意味着什么</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md</p><br>
-<h3>男子诋毁袁隆平科研成果被刑拘</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md</p><br>
+<h3>王源近几年没有路演了</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md</p><br>
+<h3>我设置了全宇宙最安全的密码</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md</p><br>
+<h3>iPhone18e曝光</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md</p><br>
+<h3>AI手机进入Agent时代</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md</p><br>
+<h3>泰山景区回应修建刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md</p><br>
+<h3>日本球员说被绝杀非常不甘心</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md</p><br>
+<h3>法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md</p><br>
+<h3>哪部作品、哪本书、哪首歌，值得被一直传下去？</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md</p><br>
+<h3>德国北部枪击事件致5死</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md</p><br>
+<h3>日本球员说被绝杀非常不甘心</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md</p><br>
+<h3>高考结束，该不该外出打工体验？</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>第一炉香</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md</p><br>
-<h3>扬名立万</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md</p><br>
-<h3>内马尔安慰日本球员</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md</p><br>
-<h3>点球大战 残酷</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md</p><br>
-<h3>一生一世</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md</p><br>
-<h3>《恋与深空》被指触碰民族伤痛红线</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md</p><br>
-<h3>我们看到的星星是不是有些已经不存在了？</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md</p><br>
-<h3>一见倾心</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md</p><br>
-<h3>覃予萱晋级WTT美国大满贯女单32强</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md</p><br>
-<h3>消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md</p><br>
-<h3>起风了</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md</p><br>
-<h3>人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md</p><br>
-<h3>“法德大战”泡汤了</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md</p><br>
-<h3>勇敢的心第二部</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md</p><br>
-<h3>曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md</p><br>
+<h3>记者：詹姆斯并没有寻求重返热火迹象</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md</p><br>
+<h3>可以细成这样？1600万预算，颠覆我认知的改造！</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md</p><br>
+<h3>这一刀 会很帅</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md</p><br>
+<h3>女子清吧被陌生人投放伟哥</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md</p><br>
+<h3>如何改变自己太负责任的性格?</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md</p><br>
+<h3>四川凉山落石砸毁车辆 3人遇难</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md</p><br>
+<h3>板面：为什么那么多人爱吃？？！</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md</p><br>
+<h3>恋与深空道歉声明</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md</p><br>
+<h3>小嗷 恋与深空</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md</p><br>
+<h3>巴西绝杀日本</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md</p><br>
+<h3>为什么很多企业推行“扁平化管理”后，效率反而下降了？</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md</p><br>
+<h3>古代人对纳妾的态度是什么样的？</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md</p><br>
+<h3>我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md</p><br>
+<h3>李在明90度鞠躬感谢韩国两大财阀</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md</p><br>
+<h3>千万不要随便扣肚脐</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md</p><br>

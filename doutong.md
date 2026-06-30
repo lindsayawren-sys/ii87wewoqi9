@@ -1,45 +1,46 @@
-<h1>德国经济一季度环比增长0.3%</h1><br>
+<h1>脱欧十年，英国细数付出的代价</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新社柏林4月30日电 (记者 马秀秀)德国联邦统计局4月30日公布的初步数据显示，经价格、季节和工作日调整后，2026年第一季度德国国内生产总值环比增长0.3%。2025年第四季度，德国经济环比增长0.2%。 德国联邦统计局指出，私人和政府消费支出是今年第一季度经济增长的主要驱动力。此外，出口也有所增长。 德国中央合作银行经济分析师克里斯托夫·斯翁克认为，当前德国经济表现虽令</p><br>
+<p>十年前，英国选择退出这个全球最大单一市场，放弃了从中获得的丰厚收益。从那以后，英国一直在为此付出代价。 2016 年 6 月 23 日，英国脱欧公投拉开了英国与欧盟漫长 “分手” 的序幕。这场投票结果十分胶着：51.9% 的英国民众选择脱欧，48.1% 选择留欧。这一具有分水岭意义的决定引发了持续的政治动荡与经济震荡，十年后的今天，余波仍在显现。 如今执政党工党深陷领导层换届的</p><br>
 <h2>正文</h2><br>
-<p>中新社柏林4月30日电 (记者 马秀秀)德国联邦统计局4月30日公布的初步数据显示，经价格、季节和工作日调整后，2026年第一季度德国国内生产总值环比增长0.3%。</p><br>
-<p>2025年第四季度，德国经济环比增长0.2%。</p><br>
-<p>德国联邦统计局指出，私人和政府消费支出是今年第一季度经济增长的主要驱动力。</p><br>
-<p>此外，出口也有所增长。</p><br>
-<p>德国中央合作银行经济分析师克里斯托夫·斯翁克认为，当前德国经济表现虽令人欣慰，但可能难以持续。</p><br>
-<p>霍尔木兹海峡航运受阻推高通胀，并导致包括IFO商业景气指数在内的重要信心指标大幅下降。</p><br>
-<p>他指出，只有结束冲突并尽快恢复霍尔木兹海峡通航，才能避免更大损失。</p><br>
-<p>德国媒体分析指出，伊朗战事拖累全球经济，尤其对能源供应造成冲击。</p><br>
+<p>十年前，英国选择退出这个全球最大单一市场，放弃了从中获得的丰厚收益。</p><br>
+<p>从那以后，英国一直在为此付出代价。</p><br>
+<p>2016 年 6 月 23 日，英国脱欧公投拉开了英国与欧盟漫长 “分手” 的序幕。</p><br>
+<p>这场投票结果十分胶着：51.9% 的英国民众选择脱欧，48.1% 选择留欧。</p><br>
+<p>这一具有分水岭意义的决定引发了持续的政治动荡与经济震荡，十年后的今天，余波仍在显现。</p><br>
+<p>如今执政党工党深陷领导层换届的不确定性风波，这可以说是脱欧植入英国政坛核心的又一轮动荡。</p><br>
+<p>这场变局同样重创了英国经济。</p><br>
+<p>诚然，一些最坏的预判并未成真，比如经济立刻陷入衰退、房地产市场崩盘。</p><br>
 <h2>相关推荐</h2><br>
-<h3>歌剧老师锐评歌手第6期</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md</p><br>
-<h3>自然光｜papi酱&窦文涛：驴与跑步机</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md</p><br>
-<h3>存储芯片龙头提示风险</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md</p><br>
-<h3>自然光｜papi酱&窦文涛：驴与跑步机</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md</p><br>
-<h3>终于把好哥们处成了情侣!</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md</p><br>
-<h3>人民锐评网红诋毁袁隆平造谣企业家</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md</p><br>
-<h3>巴西球迷赛后给日本球迷披上巴西国旗</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md</p><br>
-<h3>开电动汽车真的很省钱吗？</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md</p><br>
-<h3>蔚来回应高压水枪洗车掉漆</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md</p><br>
-<h3>男子在非洲务工死亡 公司不认可工亡</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md</p><br>
-<h3>点球大战 残酷</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md</p><br>
-<h3>"超算小姐，这一次，我一定要带你出去..."</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md</p><br>
+<h3>美股深夜大反弹 特斯拉飙涨8%</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md</p><br>
+<h3>哈弗茨崩溃道歉：我们踢得太差了</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md</p><br>
+<h3>有人见过武则天的画像吗，非常好奇？</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md</p><br>
+<h3>曝娱乐圈大部分明星失业</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md</p><br>
+<h3>德国巴拉圭加时</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md</p><br>
+<h3>补时绝杀 巴西2-1淘汰日本</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md</p><br>
+<h3>男子诋毁袁隆平科研成果被刑拘</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md</p><br>
+<h3>三星投资计划</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md</p><br>
+<h3>《贺子珍》</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md</p><br>
+<h3>如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md</p><br>
+<h3>杨紫被质疑未使用原名纯属误解</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md</p><br>
+<h3>租房时你会更看重「住得舒服」，还是「每天通勤更方便」？</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md</p><br>
+<h3>卖菜老人获博主帮助后遇车祸去世</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md</p><br>
-<h3>急先锋</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md</p><br>
-<h3>巴西把自己踢晕了</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md</p><br>
-<h3>为什么小组赛出局会让韩国人破防</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md</p><br>
-<h3>扫黑风暴</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md</p><br>
-<h3>吴启华卖肖像权拍AI电影</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md</p><br>
-<h3>一见倾心</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md</p><br>
-<h3>这几秒成世界杯最值钱广告位</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md</p><br>
-<h3>杨紫获白玉兰视后争议不止</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md</p><br>
-<h3>一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md</p><br>
-<h3>贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md</p><br>
-<h3>又一家县级医院关停门诊输液大厅</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md</p><br>
-<h3>一切民族英雄都是中华民族的脊梁</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md</p><br>
-<h3>德国淘汰</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md</p><br>
-<h3>世界杯</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md</p><br>
+<h3>警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md</p><br>
+<h3>我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md</p><br>
+<h3>消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md</p><br>
+<h3>女儿从清华毕业 爸爸晒出17年对比照</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md</p><br>
+<h3>中国代表在联合国点名日本所犯罪行</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md</p><br>
+<h3>时光音乐会</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md</p><br>
+<h3>第一炉香</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md</p><br>
+<h3>《名肘探科比》：科比大战裂口女</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md</p><br>
+<h3>德国vs巴拉圭</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md</p><br>
+<h3>泰山建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md</p><br>
+<h3>白玉兰获奖作品《生命树》背后</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md</p><br>
+<h3>科学备孕男女都要上心</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md</p><br>
+<h3>解放军黄岩岛战备警巡 驱离菲方飞机</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md</p><br>
+<h3>韩国足球荒唐背后的财阀控局</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md</p><br>
+<h3>如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md</p><br>

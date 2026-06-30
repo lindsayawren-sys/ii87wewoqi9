@@ -1,48 +1,45 @@
-<h1>这个五一，AI把旅游玩明白了：定制行程、智能伴游，还能“一键入戏”</h1><br>
+<h1>石家庄站“端午”假期发送旅客102.81万人次</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新经纬5月3日电 (张芷菡)今年“五一”，AI成为文旅圈“显眼包”，身影遍布各个文旅场景。 从定制行程到智能导览，游客对AI伴游早已不再陌生。山东泰山文旅集团在“五一”加大登山助力机器人投放力度，助力广大游客轻松登顶；桂林理工大学打造具身智能导览车亮相桂林当地热门景区，兼具导览、代步、讲解多重功能…… 但在今年“五一”，更多旅游目的地将AI技术融入当地文旅项目，营造沉浸式体验</p><br>
+<p>中新网石家庄6月23日电 (邢璐 徐争)为期5天的2026年“端午”假期铁路运输于6月22日圆满收官。从石家庄站获悉，自6月18日至6月22日，石家庄站全站(含石家庄站、石家庄北站、石家庄东站及京广高铁涿州东至邯郸东八站)累计发送旅客102.81万人次，日均开行旅客列车645列。其中，6月22日迎来客流最高峰，单日发送旅客达22.47万人次。据介绍，今年“端午”假期该站运输客流</p><br>
 <h2>正文</h2><br>
-<p>中新经纬5月3日电 (张芷菡)今年“五一”，AI成为文旅圈“显眼包”，身影遍布各个文旅场景。</p><br>
-<p>从定制行程到智能导览，游客对AI伴游早已不再陌生。</p><br>
-<p>山东泰山文旅集团在“五一”加大登山助力机器人投放力度，助力广大游客轻松登顶；桂林理工大学打造具身智能导览车亮相桂林当地热门景区，兼具导览、代步、讲解多重功能…… 但在今年“五一”，更多旅游目的地将AI技术融入当地文旅项目，营造沉浸式体验，这让AI技术更有“文化味”。</p><br>
-<p>湖北文旅集团推出“AI入戏，乐游五一”主题活动，恩施大峡谷、神农架等44家景区将设立“AI出片提示站”。</p><br>
-<p>游客只需扫描二维码，复制提示词，用AI视频软件即可一键生成仙侠、国风、治愈等风格的专属AI大片，从“看风景的人”秒变“戏中主角”。</p><br>
-<p>AI眼镜也解锁了观演新体验。</p><br>
-<p>这个“五一”，《赳赳大秦》AI智译平台开放公众预约体验。</p><br>
-<p>外籍游客戴上AI眼镜，观演同步显示母语字幕，沉浸式读懂大秦故事。</p><br>
+<p>中新网石家庄6月23日电 (邢璐 徐争)为期5天的2026年“端午”假期铁路运输于6月22日圆满收官。</p><br>
+<p>从石家庄站获悉，自6月18日至6月22日，石家庄站全站(含石家庄站、石家庄北站、石家庄东站及京广高铁涿州东至邯郸东八站)累计发送旅客102.81万人次，日均开行旅客列车645列。</p><br>
+<p>其中，6月22日迎来客流最高峰，单日发送旅客达22.47万人次。</p><br>
+<p>据介绍，今年“端午”假期该站运输客流主要以通勤、学生、旅游、探亲流为主。</p><br>
+<p>客流方向主要集中在北京、天津、保定、邯郸、邢台、衡水、唐山、秦皇岛、太原、郑州、济南、西安、武汉、青岛、南京、上海等地。</p><br>
+<p>为应对假期大客流，石家庄站加大运力投放，全站共计加开旅客列车41对，其中高铁列车28.5对、普速列车12.5对，进一步丰富旅客出行选择。</p><br>
+<p>在便民服务方面，石家庄站针对客流高峰强化关键岗位人员保障，在进站口、出站口、站台等处增派引导力量，确保旅客安全顺畅出行。</p><br>
+<p>并联合河北医科大学第一医院，每日安排两名医护人员日间驻站值守，在车站周边配备救护车，为突发身体不适旅客提供紧急救助。</p><br>
 <h2>相关推荐</h2><br>
-<h3>杨紫被质疑未使用原名</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md</p><br>
-<h3>这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md</p><br>
-<h3>小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md</p><br>
-<h3>第一炉香</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md</p><br>
-<h3>人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md</p><br>
-<h3>女子遭下药退赔偿拟追刑责</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md</p><br>
-<h3>明星大侦探第一季</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md</p><br>
-<h3>高校青椒，非嫡系，单干还是进团队？</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md</p><br>
-<h3>斛珠夫人</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md</p><br>
-<h3>世界杯欧洲队7战南美仅1胜</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md</p><br>
-<h3>电影抓特务上映11天破亿</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md</p><br>
-<h3>德国 4-5 爆冷输球巴拉圭，队史首输世界杯点球大战，连续 3 届无缘 16 强，你认为问题出在哪？</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md</p><br>
-<h3>啥比桑吉尔夫排位练蓝防（最不抽象的一集）</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md</p><br>
-<h3>庆祝建党105周年特别节目</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md</p><br>
-<h3>女子遭家暴逃跑致丈夫身亡二审细节</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md</p><br>
+<h3>杨紫学位证上就是杨紫</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md</p><br>
+<h3>如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md</p><br>
+<h3>如何把斧兵改造成精英怪？提高攻速移速！！！</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md</p><br>
+<h3>恋与深空的0731之辩为何难以服众</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md</p><br>
+<h3>点球大战 残酷</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md</p><br>
+<h3>郑钦文温网首轮出局</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md</p><br>
+<h3>诺伊尔尽力了</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md</p><br>
+<h3>如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md</p><br>
+<h3>巴西替补奇兵读秒绝杀</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md</p><br>
+<h3>武磊：巴西队赢的并不轻松</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md</p><br>
+<h3>有哪些被认为是现代才有的东西其实古代就有了？</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md</p><br>
+<h3>索马里女大使：想和中国一起搞事业</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>《男人至死是傻得儿》</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md</p><br>
-<h3>黄健翔：说巴西差的忘了日本7-0我们</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md</p><br>
-<h3>一切民族英雄都是中华民族的脊梁</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md</p><br>
-<h3>如何评价杨紫白玉兰获奖</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md</p><br>
-<h3>全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md</p><br>
-<h3>快递到家不能这样拆</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md</p><br>
-<h3>李宏毅白月光真神回归</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md</p><br>
-<h3>亚洲球队全部出局</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md</p><br>
-<h3>武磊：日本队有能力跟任何强队抗衡</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md</p><br>
-<h3>FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md</p><br>
-<h3>爱很美味</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md</p><br>
-<h3>巴西绝杀日本</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md</p><br>
-<h3>泰山景区回应修建刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md</p><br>
-<h3>卖菜老人获博主帮助后遇车祸去世</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md</p><br>
-<h3>詹姆斯会加盟勇士吗</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md</p><br>
+<h3>啊啊啊</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md</p><br>
+<h3>李在明90度鞠躬感谢韩国两大财阀</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md</p><br>
+<h3>世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md</p><br>
+<h3>田曦薇这是日常不是广告</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md</p><br>
+<h3>花少8要去世界杯举办国</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md</p><br>
+<h3>曝娱乐圈大部分明星失业</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md</p><br>
+<h3>女子遭家暴逃跑致丈夫身亡二审细节</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md</p><br>
+<h3>卢卡申科发布解放军仪仗队视频</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md</p><br>
+<h3>老外对中国cosplay竟这样评价…</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md</p><br>
+<h3>美股收盘 热门中概股普涨</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md</p><br>
+<h3>《鸣潮》玄方主题曲 MV | 定玄</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md</p><br>
+<h3>董卿母亲癌症去世</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md</p><br>
+<h3>白玉兰获奖作品《生命树》背后</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md</p><br>
+<h3>男子中医院拔火罐致浅2度烧伤</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md</p><br>
+<h3>四川宜宾地震为何震感明显</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md</p><br>

@@ -1,42 +1,43 @@
-<h1>看图学习·追光的你丨与产业工人面对面 总书记礼赞工匠精神</h1><br>
+<h1>买券商就是买科技？顶流券商ETF华宝（512000）再涨2%，基金经理：中报落地前，持续关注券商</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>产业工人是工人阶级的主体力量。党的十八大以来，习近平总书记心系产业工人队伍建设，明确提出要大力弘扬劳模精神、劳动精神、工匠精神，勉励我国工人阶级和广大劳动群众奋进新征程、建功新时代。 “真正在添砖加瓦建设中国特色社会主义现代化强国大厦的人，他们都是值得我们尊敬的”。今天，让我们一同重温总书记的亲切话语，感受总书记对一线劳动者的尊重与关爱，向每一位劳动者致敬！ 总监制：骆红秉 总</p><br>
+<p>继昨日倍量爆发，6月23日，券商板块继续上攻，规模380亿元+的顶流券商ETF华宝（512000）场内价格再涨超2%，前一日场内大涨7.37%。长江证券两连板，中信建投涨超5%，华安证券、东北证券、广发证券等涨幅居前。 对于近日亮眼表现，券商ETF华宝（512000）基金经理丰晨成指出，券商ETF华宝（512000）昨日罕见的2倍反包节前跌幅，没有出现日内回吐的长影线，ETF交</p><br>
 <h2>正文</h2><br>
-<p>产业工人是工人阶级的主体力量。</p><br>
-<p>党的十八大以来，习近平总书记心系产业工人队伍建设，明确提出要大力弘扬劳模精神、劳动精神、工匠精神，勉励我国工人阶级和广大劳动群众奋进新征程、建功新时代。</p><br>
-<p>“真正在添砖加瓦建设中国特色社会主义现代化强国大厦的人，他们都是值得我们尊敬的”。</p><br>
-<p>今天，让我们一同重温总书记的亲切话语，感受总书记对一线劳动者的尊重与关爱，向每一位劳动者致敬！</p><br>
-<p>总监制：骆红秉 总策划：张军于锋 监制：伍刚王薇 策划：赵净关灵子 设计：刘启阳</p><br>
+<p>继昨日倍量爆发，6月23日，券商板块继续上攻，规模380亿元+的顶流券商ETF华宝（512000）场内价格再涨超2%，前一日场内大涨7.37%。</p><br>
+<p>长江证券两连板，中信建投涨超5%，华安证券、东北证券、广发证券等涨幅居前。</p><br>
+<p>对于近日亮眼表现，券商ETF华宝（512000）基金经理丰晨成指出，券商ETF华宝（512000）昨日罕见的2倍反包节前跌幅，没有出现日内回吐的长影线，ETF交易额创近期新高，头部券商引领涨停。</p><br>
+<p>科技板块没有出现暴跌，周期金融板块接棒，呈现“多点开花”。</p><br>
+<p>后续关注两市成交额维持3万亿高位的时间，尤其是在券商中报落地之前，依旧有持续估值修复潜力。</p><br>
+<p>华创证券表示，买券商就是买科技！</p><br>
+<p>具体来看：1、科创板IPO券商一律强制跟投，创业板公司（四类必须跟投，其中未盈利企业必须强制跟投，这非常AI），科技跟投业务产生大量浮盈；2、本轮牛市由AI+科技股带领，头部券商基本是科技股境内外上市的重要中介，是科技强国的服务员；3、全球科技牛市，仅A股券商表现不佳，其余美日韩均跑赢指数，部分韩国券商在指数翻倍的情况下涨了6倍；4、当前买券商就约等于买打折版科技，资金压制解除后，若科技大涨，券商跟上。</p><br>
+<p>科技大跌，券商因为此前已经超跌会少跌（历史分位数10%），FOMO科技当下最好的选择是券商！</p><br>
 <h2>相关推荐</h2><br>
-<h3>捷克主帅库贝克辞职</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md</p><br>
-<h3>疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md</p><br>
-<h3>杨某诋毁袁隆平院士科研成果被刑拘</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md</p><br>
-<h3>陈露发视频求和解遭拒</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md</p><br>
-<h3>如何看待现在有学者用AI做数学科研？</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md</p><br>
-<h3>我设置了全宇宙最安全的密码</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md</p><br>
-<h3>日耳曼拖拉机</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md</p><br>
-<h3>iPhoneUltra黑色机模</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md</p><br>
-<h3>杨紫肖战余生请多指教拍立得</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md</p><br>
-<h3>低智商犯罪三江口团建来了</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md</p><br>
-<h3>【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md</p><br>
-<h3>杨紫大银幕成绩单</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md</p><br>
+<h3>这种关系可能正在悄悄“催老”你</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md</p><br>
+<h3>你人生中最艰难的时候是怎么熬过来的？</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md</p><br>
+<h3>科学备孕男女都要上心</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md</p><br>
+<h3>网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md</p><br>
+<h3>曝娱乐圈大部分明星失业</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md</p><br>
+<h3>啥比桑吉尔夫排位练蓝防（最不抽象的一集）</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md</p><br>
+<h3>巴西醒醒 这是淘汰赛</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md</p><br>
+<h3>一生一世</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md</p><br>
+<h3>马耳他著名拱门坍塌致中国男子身亡</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md</p><br>
+<h3>不开心就去看三年前的购物订单</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>外国人第一次来中国旅游是怎样的体验？</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md</p><br>
-<h3>国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md</p><br>
-<h3>欧盟分楼层开空调惹争议</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md</p><br>
-<h3>董路：谁赢谁是“正路子”</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md</p><br>
-<h3>这一刀 会很帅</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md</p><br>
-<h3>冲学校再转专业可行吗</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md</p><br>
-<h3>曝灰熊将莫兰特交易至开拓者</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md</p><br>
-<h3>韩国球迷凌晨4点接机怒骂主教练</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md</p><br>
-<h3>承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md</p><br>
-<h3>明星大侦探第四季</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md</p><br>
-<h3>首届《哈基米歌王争霸赛》总决赛</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md</p><br>
-<h3>人可以极简主义到什么程度？</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md</p><br>
-<h3>普京为何将俄乌谈判时间表与伊朗挂钩</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md</p><br>
-<h3>日本主帅：未能夺冠深感抱歉</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md</p><br>
-<h3>巴西醒醒 这是淘汰赛</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md</p><br>
+<h3>你这一辈子有没有为进山姆拼过命？</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md</p><br>
+<h3>美团、淘宝闪购、京东外卖达成共识</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md</p><br>
+<h3>如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md</p><br>
+<h3>泰山建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md</p><br>
+<h3>哈弗茨 如此出局不可原谅</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md</p><br>
+<h3>阿根廷vs佛得角预测</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md</p><br>
+<h3>明星大侦探第一季</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md</p><br>
+<h3>世界杯小组赛出局球队身价排行</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md</p><br>
+<h3>炽夏这一幕就这样馋我</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md</p><br>
+<h3>德国北部枪击事件致5死</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md</p><br>
+<h3>如何评价杨紫白玉兰获奖</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md</p><br>
+<h3>FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md</p><br>
+<h3>世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md</p><br>
+<h3>为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md</p><br>
+<h3>杨紫肖战余生请多指教拍立得</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md</p><br>

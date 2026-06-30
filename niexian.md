@@ -1,46 +1,45 @@
-<h1>联合利华剥离食品业务期间销售额逆势增长</h1><br>
+<h1>事关广告产业高质量发展 六部门提出六大举措</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>专题：聚焦美股2026年第一季度财报 一季度基础销售额同比增长 3.8% 内容概要 联合利华一季度基础销售额同比增长 3.8%，超出分析师预期，正值公司推进史上最大规模业务资产重组。 联合利华一季度基础销售额实现增长，目前公司正开展史上最大规模业务整合重组，精简整体业务布局。 这家多芬香皂生产商一季度基础销售额同比增长 3.8%，高于公司统计的分析师预期 3.6%；其中新兴市场</p><br>
+<p>中新网6月23日电 据市场监管总局网站消息，市场监管总局、国家发展改革委、中央网信办、工业和信息化部、广电总局、国家数据局等六部门日前发布《关于大力促进新时代广告产业高质量发展的意见》。《意见》从六方面提出具体举措：一.优化产业布局 (一)调整产业空间布局。以东部地区城市群为载体，坚持创新驱动、全球链接定位，以数智创新为突破点，打造数字广告科创走廊和国际广告服务中心。立足中部地</p><br>
 <h2>正文</h2><br>
-<p>专题：聚焦美股2026年第一季度财报 一季度基础销售额同比增长 3.8% 内容概要 联合利华一季度基础销售额同比增长 3.8%，超出分析师预期，正值公司推进史上最大规模业务资产重组。</p><br>
-<p>联合利华一季度基础销售额实现增长，目前公司正开展史上最大规模业务整合重组，精简整体业务布局。</p><br>
-<p>这家多芬香皂生产商一季度基础销售额同比增长 3.8%，高于公司统计的分析师预期 3.6%；其中新兴市场业务表现领跑，基础销售额增幅达 5.7%。</p><br>
-<p>约一个月前，这家消费品巨头与调味品生产商味好美（McCormick）达成协议，将双方食品业务合并组建新公司，含债务在内估值约650 亿美元。</p><br>
-<p>本次现金加股票交易完成后，联合利华股东将持有新公司 65% 股份。</p><br>
-<p>但部分欧洲投资者对此交易反应平淡，市场对布局美国上市高杠杆食品资产存在抵触情绪。</p><br>
-<p>联合利华与味好美分拆剥离食品业务，是公司战略重大转型的一环，目的是聚焦美妆、个人护理及家居护理产品。</p><br>
-<p>自去年新任首席执行官费尔南多・费尔南德斯上任后，这家老牌企业开启全面改革：更换大批高管、削减白领岗位，推进整体业务重组。</p><br>
+<p>中新网6月23日电 据市场监管总局网站消息，市场监管总局、国家发展改革委、中央网信办、工业和信息化部、广电总局、国家数据局等六部门日前发布《关于大力促进新时代广告产业高质量发展的意见》。</p><br>
+<p>《意见》从六方面提出具体举措：一.优化产业布局 (一)调整产业空间布局。</p><br>
+<p>以东部地区城市群为载体，坚持创新驱动、全球链接定位，以数智创新为突破点，打造数字广告科创走廊和国际广告服务中心。</p><br>
+<p>立足中部地区承东启西、连南接北的区位优势，坚持要素集聚、产业协同定位，建设广告企业区域运营中心、广告数据处理中心。</p><br>
+<p>结合西部地区特色优势，鼓励搭建面向中亚、东盟的多语言广告服务平台，助力本土产品开拓市场。</p><br>
+<p>围绕东北地区支柱产业和特色产业发展需要，提升广告服务能力，打造区域广告产业发展高地。</p><br>
+<p>(二)深化区域协同合作。</p><br>
+<p>发挥京津冀、长三角、粤港澳大湾区、长江中游城市群和成渝地区双城经济圈等区域优势，支持建立区域广告产业发展联盟，健全信息互通、资源共享、园区互动、标准互认的区域广告产业协同发展合作机制。</p><br>
 <h2>相关推荐</h2><br>
-<h3>美团、淘宝闪购、京东外卖达成共识</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md</p><br>
-<h3>老外对中国cosplay竟这样评价…</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md</p><br>
-<h3>"超算小姐，这一次，我一定要带你出去..."</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md</p><br>
-<h3>如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md</p><br>
-<h3>拆解FIFA和世界杯的暗面</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md</p><br>
-<h3>如果有二次元高中是什么样子的？</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md</p><br>
-<h3>博世们还在犹豫 美的们已经卖断货</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md</p><br>
-<h3>古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md</p><br>
-<h3>王楚钦说配合稍微有些陌生感</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md</p><br>
-<h3>恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md</p><br>
-<h3>宜宾地震食客避难后折返 无人逃单</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md</p><br>
-<h3>孙颖莎vs刘杨子</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md</p><br>
-<h3>板面：为什么那么多人爱吃？？！</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md</p><br>
+<h3>如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md</p><br>
+<h3>毕业以后，你最怀念的大学记忆是什么？</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md</p><br>
+<h3>白玉兰获奖作品《生命树》背后</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md</p><br>
+<h3>日本足球是如何崛起的</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md</p><br>
+<h3>警方介入洪明甫死亡威胁</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md</p><br>
+<h3>世界杯</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md</p><br>
+<h3>重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md</p><br>
+<h3>郑钦文 四年一轮游</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md</p><br>
+<h3>德国北部枪击事件致5死</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md</p><br>
+<h3>记者：詹姆斯并没有寻求重返热火迹象</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md</p><br>
+<h3>王濛回复黄灿灿</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md</p><br>
+<h3>本届世界杯已有5名球员被控强奸</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md</p><br>
-<h3>极限挑战第一季</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md</p><br>
-<h3>人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md</p><br>
-<h3>如何看待恋与深空对 731 等三大争议的回应？能挽回口碑吗？</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md</p><br>
-<h3>董卿父亲报纸上发文悼念亡妻</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md</p><br>
-<h3>中国代表在联合国点名日本所犯罪行</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md</p><br>
-<h3>iPhoneUltra黑色机模</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md</p><br>
-<h3>papi酱已退出papitube关联公司</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md</p><br>
-<h3>本届世界杯已有5名球员被控强奸</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md</p><br>
-<h3>曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md</p><br>
-<h3>FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md</p><br>
-<h3>檀健次王楚然吻戏看热了</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md</p><br>
-<h3>恋与深空</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md</p><br>
-<h3>如何评价《龙之家族》第三季第二集？</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md</p><br>
-<h3>领克900大型SUV值得购买吗?</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md</p><br>
+<h3>当我知道豆包有后台审核人员</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md</p><br>
+<h3>要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md</p><br>
+<h3>国务院：探索延长义务教育年限</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md</p><br>
+<h3>Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md</p><br>
+<h3>名记：灰熊将莫兰特交易至开拓者</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md</p><br>
+<h3>明星大侦探第一季</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md</p><br>
+<h3>男子醉酒溺水获救后同行人拒协助抬人</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md</p><br>
+<h3>如何评价杨紫白玉兰获奖</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md</p><br>
+<h3>任素汐舞台上唱《王招君》</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md</p><br>
+<h3>《共患难》</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md</p><br>
+<h3>张碧晨一开口梦回逐玉</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md</p><br>
+<h3>明星大侦探第一季</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md</p><br>
+<h3>速度与激情9</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md</p><br>
+<h3>德国身价是巴拉圭6倍</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md</p><br>
+<h3>人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md</p><br>

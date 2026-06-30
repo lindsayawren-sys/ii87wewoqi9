@@ -1,44 +1,46 @@
-<h1>持续抓下去，不断抓出新成效——与会代表谈贯彻落实加强基础研究座谈会精神</h1><br>
+<h1>赛力斯康波：汽车产业迎来智能化下半场，行业正从“软件定义汽车”转向“AI定义汽车”</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>基础研究是整个科学体系的源头，是所有技术问题的总机关。党的十八大以来，以习近平同志为核心的党中央高度重视基础研究，通过优化科研布局、加大投入保障、创新体制机制等，推动我国基础研究水平显著提升。 当前，新一轮科技革命和产业变革加速突破，全球科技竞争更加聚焦基础前沿领域，原创性颠覆性创新的重要性日益凸显。4月30日，习近平总书记出席加强基础研究座谈会并发表重要讲话指出：“我们要抓住</p><br>
+<p>专题：2026夏季达沃斯·新浪财经之夜 6月23日，“2026夏季达沃斯新浪财经之夜”在大连重磅举行，本次活动主题为“AI时代的可持续创新与规模化路径”。 赛力斯集团董事、副总裁康波在演讲中谈到，今年是赛力斯登陆A股上市十周年。这十年间，经历过行业高光时刻，也走过亏损近百亿的至暗时刻。 他指出，AI的技术也正引领着新一轮智能化的革命，如何以AI驱动、规模化地创新，探索智能汽车的</p><br>
 <h2>正文</h2><br>
-<p>基础研究是整个科学体系的源头，是所有技术问题的总机关。</p><br>
-<p>党的十八大以来，以习近平同志为核心的党中央高度重视基础研究，通过优化科研布局、加大投入保障、创新体制机制等，推动我国基础研究水平显著提升。</p><br>
-<p>当前，新一轮科技革命和产业变革加速突破，全球科技竞争更加聚焦基础前沿领域，原创性颠覆性创新的重要性日益凸显。</p><br>
-<p>4月30日，习近平总书记出席加强基础研究座谈会并发表重要讲话指出：“我们要抓住机遇、应对挑战，切实把基础研究工作摆上重要日程，持续抓下去，不断抓出新成效。</p><br>
-<p>” 会后，部分与会代表接受了本报记者采访。</p><br>
-<p>大家表示，习近平总书记的重要讲话为加强基础研究指明了前进方向、提供了根本遵循，要深入学习领会习近平总书记重要讲话精神，增强紧迫感、责任感、使命感，以更大力度、更实举措加强基础研究。</p><br>
-<p>“总书记的重要讲话，强调了基础研究的重要性，并为进一步加强基础研究工作作出了长远布局。</p><br>
-<p>”中国科学院物理研究所所长、中国科学院院士方忠说，作为一名长期从事物质科学基础研究的科技工作者，深感责任重大。</p><br>
+<p>专题：2026夏季达沃斯·新浪财经之夜 6月23日，“2026夏季达沃斯新浪财经之夜”在大连重磅举行，本次活动主题为“AI时代的可持续创新与规模化路径”。</p><br>
+<p>赛力斯集团董事、副总裁康波在演讲中谈到，今年是赛力斯登陆A股上市十周年。</p><br>
+<p>这十年间，经历过行业高光时刻，也走过亏损近百亿的至暗时刻。</p><br>
+<p>他指出，AI的技术也正引领着新一轮智能化的革命，如何以AI驱动、规模化地创新，探索智能汽车的未来路径，也是赛力斯一直深耕的特质。</p><br>
+<p>作为深度布局AI赛道的汽车企业，康波表示，赛力斯与AI时代发展高度契合：“AITO问界是以AI开头的品牌，当下AI技术正引领新一轮智能化革命，如何以AI驱动、规模化创新，是赛力斯一直深耕的特质。</p><br>
+<p>” 在产品创新层面，赛力斯以AI打破技术边界，推动智能化从单点突破走向规模化落地。</p><br>
+<p>康波援引行业报告指出，智能驾驶与车载智能体已成为用户购车刚性需求，目前智能化已是用户选择问界的首要原因。</p><br>
+<p>“自动驾驶是汽车人对于人类在21世纪的重大贡献，自动驾驶带来舒适，更带来安全，带自动驾驶和不带自动驾驶的车辆安全系数是八倍以上。</p><br>
 <h2>相关推荐</h2><br>
-<h3>《共患难》</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md</p><br>
-<h3>一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md</p><br>
-<h3>宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md</p><br>
-<h3>起风了</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md</p><br>
-<h3>上市央企地产商 两年换了三任董事长</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md</p><br>
-<h3>周生如故</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md</p><br>
-<h3>国内最大沙漠发洪水意味着什么</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md</p><br>
-<h3>网友写差评被店家“挂”门口避雷</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md</p><br>
-<h3>「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md</p><br>
-<h3>人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md</p><br>
-<h3>巴西2-1绝杀日本</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md</p><br>
+<h3>网瘾賊大的阿嬷</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md</p><br>
+<h3>世界杯欧洲队7战南美仅1胜</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md</p><br>
+<h3>德国队世界杯点球大战首败</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md</p><br>
+<h3>存储芯片龙头提示风险</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md</p><br>
+<h3>这一刀 会很帅</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md</p><br>
+<h3>你人生中最艰难的时候是怎么熬过来的？</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md</p><br>
+<h3>陈幸同晋级WTT美国大满贯女单32强</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md</p><br>
+<h3>李在明向韩国两大财阀90度鞠躬</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md</p><br>
+<h3>青春环游记第三季</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md</p><br>
+<h3>德国爆冷点球大战不敌巴拉圭</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md</p><br>
+<h3>王菲谢霆锋十指紧扣好甜</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md</p><br>
+<h3>韩国队前主教练回国遭狂嘘</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md</p><br>
+<h3>韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>咕嘎万能小摊1：沉浸式制作惠灵顿牛排</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md</p><br>
-<h3>巴西在进攻三区完成210脚传球</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md</p><br>
-<h3>如何评价DeepSeek 提出的 DSpark 推理加速方案？</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md</p><br>
-<h3>为什么小组赛出局会让韩国人破防</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md</p><br>
-<h3>如何看待现在有学者用AI做数学科研？</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md</p><br>
-<h3>王灿兮被烫伤两年后维权成功</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md</p><br>
-<h3>豆包收费了，你还会用吗？</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md</p><br>
-<h3>点球淘汰德国 巴拉圭首都陷入疯狂</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md</p><br>
-<h3>“法德大战”泡汤了</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md</p><br>
-<h3>日本足球是如何崛起的</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md</p><br>
-<h3>外国游客开始涌入中国农村</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md</p><br>
-<h3>欧洲家电巨头为何输掉了这个夏天</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md</p><br>
-<h3>起风了</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md</p><br>
-<h3>【大鸣王潮1566】真拿你没办法</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md</p><br>
-<h3>为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md</p><br>
+<h3>高考填志愿父亲和女儿产生分歧</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md</p><br>
+<h3>德国巴拉圭 折磨</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md</p><br>
+<h3>啥比桑吉尔夫排位练蓝防（最不抽象的一集）</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md</p><br>
+<h3>巴西绝杀</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md</p><br>
+<h3>为什么小组赛出局会让韩国人破防</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md</p><br>
+<h3>女子遭下药退赔偿拟追刑责</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md</p><br>
+<h3>papi酱已退出papitube关联公司</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md</p><br>
+<h3>梅德韦杰夫：俄最严峻的是人口问题</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md</p><br>
+<h3>要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md</p><br>
+<h3>如何看待现在有学者用AI做数学科研？</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md</p><br>
+<h3>如何看待武亮说大学生生活费1500就够用这一言论？</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md</p><br>
+<h3>韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md</p><br>
+<h3>男子醉酒溺水获救后同行人拒搭手</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md</p><br>
+<h3>男子在京东买到“同仁堂”假药</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md</p><br>
+<h3>起风了</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md</p><br>

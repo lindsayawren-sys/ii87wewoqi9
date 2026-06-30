@@ -1,48 +1,43 @@
-<h1>换装纯正“中国心”的运-20B，强在何处？</h1><br>
+<h1>美联储加息近了？又一官员“放鹰”：通胀过高且朝着错误方向发展！</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>军用大型运输机是大国空军的核心装备，也是战略投送能力、远程保障能力的核心支撑。近期，运-20家族的全新改进型——运-20B运输机正式亮相，执行本年度在韩志愿军烈士遗骸迎回任务。从初代运-20到全新运-20B，大国鲲鹏完成了怎样的蜕变？换装纯正“中国心”的运-20B，到底强在何处？ 核心升级： 全系国产“中国心” 运-20B最大、最核心的升级，就是全面换装国产发动机。军事评论员傅</p><br>
+<p>财联社6月23日讯（编辑 卞纯）芝加哥联储主席奥斯坦·古尔斯比周一表示，他仍然担心通胀问题，并质疑推动物价上涨的因素是否都只是暂时性的。 他表示，在劳动力市场保持稳定的情况下，他目前专注于弄清楚过高的通胀是会持续下去，还是会随着高关税影响的消退以及中东冲突的解决而回落。 “我们一直在应对远高于目标水平、且正朝着错误方向发展的通胀问题。”古尔斯比在接受Marketplace广播节</p><br>
 <h2>正文</h2><br>
-<p>军用大型运输机是大国空军的核心装备，也是战略投送能力、远程保障能力的核心支撑。</p><br>
-<p>近期，运-20家族的全新改进型——运-20B运输机正式亮相，执行本年度在韩志愿军烈士遗骸迎回任务。</p><br>
-<p>从初代运-20到全新运-20B，大国鲲鹏完成了怎样的蜕变？</p><br>
-<p>换装纯正“中国心”的运-20B，到底强在何处？</p><br>
-<p>核心升级： 全系国产“中国心” 运-20B最大、最核心的升级，就是全面换装国产发动机。</p><br>
-<p>军事评论员傅前哨介绍，对比早期运-20、运-20A机型，运-20B的升级集中在动力系统，外观变化一目了然，辨识度极高。</p><br>
-<p>傅前哨：运-20B是我们国家目前最强、最先进的战略运输机。</p><br>
-<p>它在外观上的最大特点，是换装了4台大涵道比的国产发动机。</p><br>
+<p>财联社6月23日讯（编辑 卞纯）芝加哥联储主席奥斯坦·古尔斯比周一表示，他仍然担心通胀问题，并质疑推动物价上涨的因素是否都只是暂时性的。</p><br>
+<p>他表示，在劳动力市场保持稳定的情况下，他目前专注于弄清楚过高的通胀是会持续下去，还是会随着高关税影响的消退以及中东冲突的解决而回落。</p><br>
+<p>“我们一直在应对远高于目标水平、且正朝着错误方向发展的通胀问题。</p><br>
+<p>”古尔斯比在接受Marketplace广播节目采访时表示。</p><br>
+<p>“我脑海中一直在思考的是，有什么证据能表明通胀只是暂时的，并且我们会回到2%的轨道上，这也是我们承诺的目标。</p><br>
+<p>”他称。</p><br>
+<p>美联储官员上周维持利率不变，但会后公布的预测显示，接近半数官员预计今年至少需要加息一次。</p><br>
+<p>通胀已连续逾五年未能回到美联储2%的目标水平，并在过去几个月升温，这加剧了官员对维持当前利率水平将不足以抑制价格压力的担忧。</p><br>
 <h2>相关推荐</h2><br>
-<h3>网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md</p><br>
-<h3>你的妻子大喷菇—《植物娘大战僵尸》特别篇</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md</p><br>
-<h3>韩国球迷凌晨4点接机怒骂主教练</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md</p><br>
-<h3>金刚川</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md</p><br>
-<h3>名记：灰熊将莫兰特交易至开拓者</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md</p><br>
-<h3>莫兰特被交易到开拓者</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md</p><br>
-<h3>库尼亚赛后伸五指嘲讽日本</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md</p><br>
-<h3>德国vs巴拉圭</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md</p><br>
-<h3>杨紫获白玉兰视后为何争议难平</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md</p><br>
-<h3>诺伊尔尽力了</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md</p><br>
-<h3>“中国养猪场都用上空调了”！这是真的吗？【主播说三农】</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md</p><br>
-<h3>如何评价杨紫白玉兰获奖</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md</p><br>
-<h3>深圳交警集中曝光典型违法案例</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md</p><br>
-<h3>韩国球迷凌晨4点接机怒骂主教练</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md</p><br>
-<h3>古代时期普通老百姓能喝上酒吗？</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md</p><br>
+<h3>欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md</p><br>
+<h3>有哪些被认为是现代才有的东西其实古代就有了？</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md</p><br>
+<h3>杨紫被质疑未使用原名</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md</p><br>
+<h3>亚洲球队全部告别世界杯</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md</p><br>
+<h3>【涤墨作战7人870】望：我从地狱杀回来了！</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md</p><br>
+<h3>2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md</p><br>
+<h3>“柠檬茶能换怀表？”</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md</p><br>
+<h3>索马里女大使：想和中国一起搞事业</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md</p><br>
+<h3>恐怖世界 第三集 埃温霍姆村</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md</p><br>
+<h3>如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md</p><br>
-<h3>老人卖菜获博主帮助后遇车祸去世</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md</p><br>
-<h3>吴建豪再婚妻子身份公布</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md</p><br>
-<h3>四川凉山落石砸毁车辆 3人遇难</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md</p><br>
-<h3>男子醉酒溺水获救后同行人拒协助抬人</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md</p><br>
-<h3>恐怖世界 第三集 埃温霍姆村</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md</p><br>
-<h3>本届世界杯已有5名球员被控强奸</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md</p><br>
-<h3>疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md</p><br>
-<h3>巴西醒醒 这是淘汰赛</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md</p><br>
-<h3>毒液2</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md</p><br>
-<h3>天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md</p><br>
-<h3>男生180+，有腹肌是什么体验？</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md</p><br>
-<h3>杨紫大银幕成绩单</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md</p><br>
-<h3>小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md</p><br>
-<h3>孙颖莎vs刘杨子</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md</p><br>
+<h3>王菲谢霆锋十指紧扣好甜</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md</p><br>
+<h3>男子诋毁袁隆平科研成果被刑拘</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md</p><br>
+<h3>日本进球</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md</p><br>
+<h3>如何看待武亮说大学生生活费1500就够用这一言论？</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md</p><br>
+<h3>《赛博朋克：边缘行者 2》｜官方预告片</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md</p><br>
+<h3>男子醉酒溺水获救后同行人拒搭手</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md</p><br>
+<h3>如何看待武亮说大学生生活费1500就够用这一言论？</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md</p><br>
+<h3>世界杯欧洲队7战南美仅1胜</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md</p><br>
+<h3>如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md</p><br>
+<h3>恋与深空的0731之辩为何难以服众</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md</p><br>
+<h3>《名肘探科比》：科比大战裂口女</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md</p><br>
+<h3>韩国球迷凌晨4点接机怒骂主教练</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md</p><br>
+<h3>德国连续三届世界杯无缘16强</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md</p><br>
+<h3>网红峡谷5人溺亡 有人提醒会下雨</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md</p><br>
+<h3>如何把斧兵改造成精英怪？提高攻速移速！！！</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md</p><br>

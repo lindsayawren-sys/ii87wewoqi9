@@ -1,46 +1,48 @@
-<h1>南海伏季休渔期开始 广东2.2万艘渔船安全归港</h1><br>
+<h1>广州法国外籍人员子女学校新校址落成典礼举行</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新社广州5月1日电 (郭军 郑颖妍)5月1日12时，南海海域正式进入伏季休渔期。连日来，广东省2.2万艘渔船集中返港。 与此同时，“五一”假期水上出行客流持续攀升，琼州海峡、珠江口等水域客运船舶、商船与归港渔船形成海上“双向车流”，重点航路高度叠加。记者从广东海事局获悉，截至5月1日11时，最后一批渔船已安全抵达渔港。 此次返港高峰与假期出行高峰叠加，对水上交通组织考验巨大，</p><br>
+<p>中新网广州6月22日电 (记者 郭军)广州法国外籍人员子女学校新校址22日举行落成典礼，广东省、广州市政府代表，各国驻穗领事机构代表及中法教育界同仁共同参加本次典礼。 本次落成典礼是该校取得中国教育主管部门核发办学许可证后举办的重大活动，标志着中法教育合作迈入新发展阶段。 广州法国外籍人员子女学校始创于1997年，如今已成为华南地区唯一一所使用法国教育部统一教学大纲、提供从幼儿</p><br>
 <h2>正文</h2><br>
-<p>中新社广州5月1日电 (郭军 郑颖妍)5月1日12时，南海海域正式进入伏季休渔期。</p><br>
-<p>连日来，广东省2.2万艘渔船集中返港。</p><br>
-<p>与此同时，“五一”假期水上出行客流持续攀升，琼州海峡、珠江口等水域客运船舶、商船与归港渔船形成海上“双向车流”，重点航路高度叠加。</p><br>
-<p>记者从广东海事局获悉，截至5月1日11时，最后一批渔船已安全抵达渔港。</p><br>
-<p>此次返港高峰与假期出行高峰叠加，对水上交通组织考验巨大，广东海事部门提前启动海空联动专项保障行动。</p><br>
-<p>在海上，全省16艘40米及以上海巡船艇完成布防，东起汕头、西至琼州海峡，覆盖汕头南澳、揭阳惠来、汕尾红海湾、惠州大亚湾、珠江口、江门崖门水道、上下川岛、阳江闸坡、茂名水东等商渔船交汇密集区。</p><br>
-<p>其中，中国最大万吨级海事巡逻船“海巡09”轮于4月30日起沿珠海、江门、阳江、茂名等渔船返港密集水域一路南下巡航至琼州海峡。</p><br>
-<p>在空中，广东海事部门联合南海救助局加大直升机巡航力度，在全省沿海同步启用无人机空巡，累计执飞65架次，重点核查通航秩序、防范商渔船交会风险、清理违规碍航渔船，实现重点水域监管无盲区。</p><br>
+<p>中新网广州6月22日电 (记者 郭军)广州法国外籍人员子女学校新校址22日举行落成典礼，广东省、广州市政府代表，各国驻穗领事机构代表及中法教育界同仁共同参加本次典礼。</p><br>
+<p>本次落成典礼是该校取得中国教育主管部门核发办学许可证后举办的重大活动，标志着中法教育合作迈入新发展阶段。</p><br>
+<p>广州法国外籍人员子女学校始创于1997年，如今已成为华南地区唯一一所使用法国教育部统一教学大纲、提供从幼儿园至法国高中毕业会考的完整连贯课程的学校。</p><br>
+<p>建校近三十年来，学校持续服务华南地区法籍及其他国际家庭，并积极推动法中两国教育、文化双向交流。</p><br>
+<p>目前，该校汇聚了来自全球超25个国家和地区的学生，开设法、英、中三语教学课程，着力拓宽学生的国际视野，促进跨文化交流，培育面向未来的国际化人才。</p><br>
+<p>全新投用的龙洞校区可容纳500名学生，配备符合国际标准的现代化教学设施。</p><br>
+<p>新校区将助力学校长远发展，进一步增强学校对追求多元文化、多语种教育环境的中外家庭的吸引力。</p><br>
+<p>(完)</p><br>
 <h2>相关推荐</h2><br>
-<h3>人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md</p><br>
-<h3>我觉得你是在无中生友</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md</p><br>
-<h3>国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md</p><br>
-<h3>未来的飞机可能会用电吗？</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md</p><br>
-<h3>你对《崩坏：星穹铁道》4.4版本「鸣笛于归寂之时」前瞻特别节目有什么期待？</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md</p><br>
-<h3>网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md</p><br>
-<h3>日本队5进世界杯淘汰赛0胜</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md</p><br>
-<h3>德国身价是巴拉圭6倍</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md</p><br>
-<h3>如何看待 NBA2026 年休赛期，媒体称勇士正试图同时获得詹姆斯和浓眉？这可能实现吗？</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md</p><br>
-<h3>租房时你会更看重「住得舒服」，还是「每天通勤更方便」？</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md</p><br>
-<h3>库尼亚赛后伸五指嘲讽日本</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md</p><br>
-<h3>王源近几年没有路演了</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md</p><br>
-<h3>消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md</p><br>
+<h3>金牌调解</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md</p><br>
+<h3>左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md</p><br>
+<h3>毒液2</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md</p><br>
+<h3>德国主帅称无法理解加时进球被吹</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md</p><br>
+<h3>杨紫大银幕成绩单</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md</p><br>
+<h3>为什么香港的冲厕水是咸的？</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md</p><br>
+<h3>乔家的儿女</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md</p><br>
+<h3>国务院：鼓励行业龙头企业举办职校</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md</p><br>
+<h3>HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md</p><br>
+<h3>美股深夜大反弹 特斯拉飙涨8%</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md</p><br>
+<h3>《鸣潮》玄方主题曲 MV | 定玄</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md</p><br>
+<h3>德国进球被吹</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md</p><br>
+<h3>曝iPhone18Pro机密文件现身暗网</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md</p><br>
+<h3>酒店推行“24小时退房”引热议</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md</p><br>
+<h3>为什么纣王似乎对周文王的扩张完全无动于衷？</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md</p><br>
-<h3>人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md</p><br>
-<h3>韩国道歉完日本道歉</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md</p><br>
-<h3>宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md</p><br>
-<h3>四川凉山落石砸毁车辆 3人遇难</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md</p><br>
-<h3>世界杯名画巴拉圭钢铁防线</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md</p><br>
-<h3>上市央企地产商 两年换了三任董事长</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md</p><br>
-<h3>阿根廷vs佛得角预测</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md</p><br>
-<h3>杨紫肖战余生请多指教拍立得</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md</p><br>
-<h3>有人见过武则天的画像吗，非常好奇？</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md</p><br>
-<h3>爆冷出局！德国点球大战不敌巴拉圭</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md</p><br>
-<h3>2021湖南卫视跨年演唱会</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md</p><br>
-<h3>欧洲民众抢购空调降温</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md</p><br>
-<h3>女心理师</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md</p><br>
-<h3>德国淘汰</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md</p><br>
+<h3>汉语是世界上最言简意赅的语言吗？</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md</p><br>
+<h3>吴启华卖肖像权拍AI电影</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md</p><br>
+<h3>网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md</p><br>
+<h3>全新问界M9现身美国街头</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md</p><br>
+<h3>18岁体育生离世由爷爷奶奶抚养长大</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md</p><br>
+<h3>蜘蛛侠:英雄归来</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md</p><br>
+<h3>田曦薇这是日常不是广告</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md</p><br>
+<h3>世界杯欧洲队7战南美仅1胜</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md</p><br>
+<h3>我设置了全宇宙最安全的密码</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md</p><br>
+<h3>小嗷 恋与深空</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md</p><br>
+<h3>开电动汽车真的很省钱吗？</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md</p><br>
+<h3>国务院：探索延长义务教育年限</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md</p><br>
+<h3>急先锋</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md</p><br>
+<h3>高考结束了，你会让孩子在家玩手机吗？</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md</p><br>
+<h3>苗族银饰</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md</p><br>

@@ -1,44 +1,44 @@
-<h1>深耕主业启新程 国信证券高质量收官“十四五”</h1><br>
+<h1>南方持续较强降雨，湘黔桂等地降雨与前期落区重叠致灾风险高</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！“十四五”时期是中国资本市场深化改革、转型升级的关键五年。五年来，国信证券紧扣金融服务实体经济本源，立足一流投资银行建设目标，依托完善的战略体系赋能业务升级，持续深化改革创新、推进业务转型、夯实经营根基。财富管理、投资银行、投资交易、资产管理、国际业务等核心业务多点突破、提质增效，经营业绩实现跨越式增长，行</p><br>
+<p>2026年6月24日，中央气象台预计，我国南方地区仍将出现大范围较强降雨，并伴有短时强降水、雷暴大风等强对流天气，广西、贵州、湖南等地累计雨量大、与前期降雨落区重叠，致灾风险持续增高，需做好山洪、地质灾害、中小河流洪水等次生灾害防御工作。 与此同时，今年第7号台风“米克拉”已加强为超强台风级，逐渐向台湾岛东南洋面靠近，24日开始将转向东北方向移动，强度逐渐减弱。 澎湃新闻注意到</p><br>
 <h2>正文</h2><br>
-<p>炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！</p><br>
-<p>“十四五”时期是中国资本市场深化改革、转型升级的关键五年。</p><br>
-<p>五年来，国信证券紧扣金融服务实体经济本源，立足一流投资银行建设目标，依托完善的战略体系赋能业务升级，持续深化改革创新、推进业务转型、夯实经营根基。</p><br>
-<p>财富管理、投资银行、投资交易、资产管理、国际业务等核心业务多点突破、提质增效，经营业绩实现跨越式增长，行业地位、综合实力与服务质效持续攀升，圆满完成“十四五”各项发展目标，交出高质量发展亮眼答卷。</p><br>
-<p>聚力主业强基，高质量发展蹄疾步稳 过硬的经营实力与完善的业务体系，是券商高质量发展的核心根基。</p><br>
-<p>“十四五”期间，国信证券提出了打造“全球视野、本土优势、创新驱动、科技引领的世界一流综合型投资银行”的战略愿景，以及“坚持以客户为中心，全力实施‘一个打造、两翼驱动、六大推进、八大支撑’”的战略实施规划，搭建全流程闭环战略管理机制，通过持续激活企业内生动能，推动公司经营规模与盈利能力实现跨越式增长。</p><br>
-<p>截至“十四五”末，公司总资产达5767.7亿元、净资产1316.1亿元、净资本810.3亿元，较“十三五”末分别增长91%、63%、29%；五年累计实现营业收入1013.2亿元、利润总额477.5亿元、净利润419.2亿元，同比“十三五”分别增长50%、54%、74%，超额完成“十四五”规划核心目标，以稳健的经营实力筑牢一流投行发展底座。</p><br>
-<p>在服务实体经济方面，公司持续强化投行“直接融资服务商”功能。</p><br>
+<p>2026年6月24日，中央气象台预计，我国南方地区仍将出现大范围较强降雨，并伴有短时强降水、雷暴大风等强对流天气，广西、贵州、湖南等地累计雨量大、与前期降雨落区重叠，致灾风险持续增高，需做好山洪、地质灾害、中小河流洪水等次生灾害防御工作。</p><br>
+<p>与此同时，今年第7号台风“米克拉”已加强为超强台风级，逐渐向台湾岛东南洋面靠近，24日开始将转向东北方向移动，强度逐渐减弱。</p><br>
+<p>澎湃新闻注意到，从6月18日起，副热带高压明显北抬，暖湿气流加强北上，主雨带维持在广西北部、贵州南部至长江中下游一带，持续多日的降雨导致土壤含水量持续饱和，山洪、地质灾害、中小河流洪水等次生灾害风险显著上升。</p><br>
+<p>6月24日，贵州、广西至江南地区降雨持续，江南地区降雨较22日减弱，强降雨主要出现在云南、贵州、广西等地。</p><br>
+<p>其中，贵州中南部、广西中北部、云南东部、湖南南部、江西中部、浙江等地部分地区有大到暴雨，贵州南部、广西北部、云南东南部等地局地有大暴雨（100毫米至240毫米）；上述部分地区伴有短时强降水（最大小时降雨量30毫米至50毫米，局地可超过80毫米），局地有雷暴大风等强对流天气。</p><br>
+<p>25日至27日，南方强降雨将南压到云南、贵州、广西北部到江南中南部一带，强度也会有所减弱，以中到大雨为主，局地暴雨或大暴雨。</p><br>
+<p>气象专家提醒，南方强降雨天气持续，公众外出时需注意安全，贵州、云南西部、广西北部、福建等地累计雨量大，局地发生山洪、地质灾害风险较高，应避免前往山谷、河道等低洼地带，相关部门注意做好暴雨次生灾害防御工作。</p><br>
+<p>同时，今年第7号台风“米克拉”于22日上午加强为超强台风级，23日8时位于台湾鹅銮鼻东南方向约570公里的菲律宾东北洋面上。</p><br>
 <h2>相关推荐</h2><br>
-<h3>内马尔安慰日本球员</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md</p><br>
-<h3>⚡逼尔摩斯教你玩球⚡</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md</p><br>
-<h3>妻子撞死家暴丈夫案二审案情反转</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md</p><br>
-<h3>【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md</p><br>
-<h3>终于把好哥们处成了情侣!</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md</p><br>
-<h3>德国队连续三届世界杯无缘16强</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md</p><br>
-<h3>爱很美味</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md</p><br>
-<h3>《赛博朋克：边缘行者 2》｜官方预告片</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md</p><br>
-<h3>第3集丨“柠檬茶能换怀表？”</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md</p><br>
-<h3>世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md</p><br>
-<h3>全球芯片巨头史诗级扩产</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md</p><br>
+<h3>德国进球被吹</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md</p><br>
+<h3>HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md</p><br>
+<h3>勇敢的心第二部</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md</p><br>
+<h3>如果有二次元高中是什么样子的？</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md</p><br>
+<h3>一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md</p><br>
+<h3>韩国足球大地震要来了</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md</p><br>
+<h3>卡塞米罗头球破门</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md</p><br>
+<h3>欧洲家电巨头为何输掉了这个夏天</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md</p><br>
+<h3>女子清吧被陌生人投放伟哥</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md</p><br>
+<h3>杨紫被质疑未使用原名</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md</p><br>
+<h3>韩国足球荒唐背后的财阀控局</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>如何评价杨紫白玉兰获奖</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md</p><br>
-<h3>中国代表在联合国点名日本所犯罪行</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md</p><br>
-<h3>世界杯欧洲队7战南美仅1胜</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md</p><br>
-<h3>警方介入洪明甫死亡威胁</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md</p><br>
-<h3>本届世界杯已有5名球员被控强奸</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md</p><br>
-<h3>日本球员说被绝杀非常不甘心</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md</p><br>
-<h3>国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md</p><br>
-<h3>哈弗茨 如此出局不可原谅</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md</p><br>
-<h3>如何看待武亮说大学生生活费1500就够用这一言论？</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md</p><br>
-<h3>网友写差评被店家“挂”门口避雷</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md</p><br>
-<h3>世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md</p><br>
-<h3>领克900大型SUV值得购买吗?</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md</p><br>
-<h3>恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md</p><br>
-<h3>"超算小姐，这一次，我一定要带你出去..."</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md</p><br>
-<h3>金鹰奖视后提名预测</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md</p><br>
+<h3>找到了10年前跪舔b站的视频</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md</p><br>
+<h3>欧洲民众抢购空调降温</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md</p><br>
+<h3>输球后日本球迷被强行披上巴西国旗</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md</p><br>
+<h3>追梦拒绝2770万美元球员选项</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md</p><br>
+<h3>警方介入洪明甫死亡威胁</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md</p><br>
+<h3>男子P图现任妻子照片冒充前妻</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md</p><br>
+<h3>欧洲家电巨头为何输掉了这个夏天</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md</p><br>
+<h3>扫黑风暴</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md</p><br>
+<h3>韩国足球荒唐背后的财阀控局</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md</p><br>
+<h3>酒店推行“24小时退房”引热议</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md</p><br>
+<h3>日本五次世界杯淘汰赛全败</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md</p><br>
+<h3>日本主帅：未能夺冠深感抱歉</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md</p><br>
+<h3>花少8要去世界杯举办国</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md</p><br>
+<h3>科学备孕男女都要上心</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md</p><br>
+<h3>高校青椒，非嫡系，单干还是进团队？</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md</p><br>

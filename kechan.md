@@ -1,45 +1,45 @@
-<h1>福州推进多部门涉海信用数据协同共建 赋能海事金融新征程</h1><br>
+<h1>600540，被立案！600712，副总经理被留置</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新网福州4月30日电 (叶艺琳)第九届数字中国建设峰会举办期间，多部门涉海信用数据协同共建暨海事金融创新服务新闻发布会30日在福州召开。 福州市数据管理局副局长施文建在会上表示，针对涉海经济主体分布广、风险交织以及“轻资产、弱抵押”的融资困境，福州正以“信用+数据+金融”为核心引擎，系统推进跨部门协同治理与金融服务创新，通过多部门涉海信用数据协同机制，让信用成为海洋经济高质量</p><br>
+<p>登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月22日晚间，新赛股份（600540）公告称，公司收到证监会出具的《立案告知书》，因涉嫌信息披露违法违规，证监会决定对公司立案。 新赛股份表示，立案调查期间，公司将积极配合证监会的调查工作，并严格按照相关法律法规及监管要求及时履行信息披露义务。截至公告披露</p><br>
 <h2>正文</h2><br>
-<p>中新网福州4月30日电 (叶艺琳)第九届数字中国建设峰会举办期间，多部门涉海信用数据协同共建暨海事金融创新服务新闻发布会30日在福州召开。</p><br>
-<p>福州市数据管理局副局长施文建在会上表示，针对涉海经济主体分布广、风险交织以及“轻资产、弱抵押”的融资困境，福州正以“信用+数据+金融”为核心引擎，系统推进跨部门协同治理与金融服务创新，通过多部门涉海信用数据协同机制，让信用成为海洋经济高质量发展的“通行证”。</p><br>
-<p>着眼于“数字福州”与“海上福州”建设，福州近年来持续加码数字赋能涉海经济发展。</p><br>
-<p>福州海事局牵头搭建数据共享机制，将船舶安全检查、行政处罚、海上搜救等信用信息与渔业及金融部门互通，并重点打造“海事信用金融专区”。</p><br>
-<p>该专区通过商渔共治信息和海运海事管理信息两大模块，将涉海信用画像深度融入信贷、保险等场景，通过“海事信用+信贷”“海事信用+保险”等模式，海事信用正转化为企业的融资优势，助力航运实体经济发展。</p><br>
-<p>福州市海洋与渔业局则全面推行信用分级分类精准监管，并建立“一主体一信用档案”。</p><br>
-<p>截至2024年底，归集覆盖养殖、捕捞、加工等领域市场主体163家、自然人2000余人，形成完整的渔业信用信息数据库。</p><br>
-<p>在技术治理方面，福州通信中心发挥航海保障数据优势，已形成14类异常船舶算法模型，通过对关闭船舶自动识别系统(AIS)、篡改识别码等行为进行“数据画像”，累计提供超过600条异常行为线索，推动水上无线电管理从经验判断向数据驱动转变。</p><br>
+<p>登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！</p><br>
+<p>6月22日晚间，新赛股份（600540）公告称，公司收到证监会出具的《立案告知书》，因涉嫌信息披露违法违规，证监会决定对公司立案。</p><br>
+<p>新赛股份表示，立案调查期间，公司将积极配合证监会的调查工作，并严格按照相关法律法规及监管要求及时履行信息披露义务。</p><br>
+<p>截至公告披露日，公司生产经营活动正常，公司董事和高级管理人员目前均正常履职，上述事项不会对公司生产经营产生重大影响。</p><br>
+<p>记者注意到，4月29日，新赛股份发布《关于前期会计差错更正及定期报告更正的公告》称，基于审慎原则，决定对2023年半年度、2023年第三季度、2025年半年度、2025年第三季度财务报表的会计差错进行更正。</p><br>
+<p>本次会计差错更正事项将影响合并资产负债表、合并利润表和合并现金流量表等相关项目。</p><br>
+<p>与此同时，新赛股份曾于2024年9月因信披违规被新疆证监局出具警示函。</p><br>
+<p>据彼时公告，2024年8月1日，新赛股份披露《关于前期会计差错更正及定期报告更正的公告》，公司将2023年度第一、二季度按照总额法确认的皮棉贸易收入调整为净额法核算，在2023年第三季度冲回第一、二季度多确认的营业收入及营业成本，导致会计差错，因此对2023年第一季度报告、半年度报告和第三季度报告的营业收入、营业成本、经营活动产生的现金流量等项目进行更正。</p><br>
 <h2>相关推荐</h2><br>
-<h3>四川宜宾地震为何震感明显</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md</p><br>
-<h3>我们看到的星星是不是有些已经不存在了？</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md</p><br>
-<h3>“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md</p><br>
-<h3>如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md</p><br>
-<h3>吴建豪再婚妻子身份公布</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md</p><br>
-<h3>曝波尔津吉斯提前续约勇士</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md</p><br>
-<h3>消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md</p><br>
-<h3>男子在非洲务工死亡 公司不认可工亡</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md</p><br>
-<h3>为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md</p><br>
-<h3>美媒：美军第五舰队司令部已无法使用</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md</p><br>
-<h3>卡塞米罗头球破门</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md</p><br>
-<h3>你这一辈子有没有为进山姆拼过命？</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md</p><br>
+<h3>覃予萱晋级WTT美国大满贯女单32强</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md</p><br>
+<h3>浪姐成团夜爆笑吐槽</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md</p><br>
+<h3>恋与深空回应争议</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md</p><br>
+<h3>好像看到了人类带孩子崩溃的样子</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md</p><br>
+<h3>韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md</p><br>
+<h3>黄晓明夸昆凌引杨颖对比</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md</p><br>
+<h3>蜘蛛侠:英雄归来</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md</p><br>
+<h3>德国巴拉圭加时</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md</p><br>
+<h3>德国巴拉圭加时</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md</p><br>
+<h3>记者：詹姆斯并没有寻求重返热火迹象</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md</p><br>
+<h3>李在明90度鞠躬感谢韩国两大财阀</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md</p><br>
+<h3>女方不认十几万彩礼最终退回20万</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md</p><br>
-<h3>美股深夜大反弹 特斯拉飙涨8%</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md</p><br>
-<h3>挪威国家队紧急从本土订购大批海鲜</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md</p><br>
-<h3>日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md</p><br>
-<h3>“中国养猪场都用上空调了”！这是真的吗？【主播说三农】</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md</p><br>
-<h3>未来五年，教育强国这样建设</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md</p><br>
-<h3>蜘蛛侠:平行宇宙</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md</p><br>
-<h3>87克大金链到老庙黄金维修少了11克</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md</p><br>
-<h3>警方介入洪明甫死亡威胁</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md</p><br>
-<h3>曝老詹对自由市场态度与以往截然不同</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md</p><br>
-<h3>卖菜老人获博主帮助后遇车祸去世</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md</p><br>
-<h3>如何看待武亮说大学生生活费1500就够用这一言论？</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md</p><br>
-<h3>郑钦文温网一轮游</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md</p><br>
-<h3>李在明90度鞠躬感谢韩国两大财阀</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md</p><br>
-<h3>电影抓特务上映11天破亿</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md</p><br>
+<h3>巴拉圭进球</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md</p><br>
+<h3>森保一 可以退休了</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md</p><br>
+<h3>有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md</p><br>
+<h3>iPhone18e曝光</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md</p><br>
+<h3>董卿母亲癌症去世</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md</p><br>
+<h3>18岁体育生离世由爷爷奶奶抚养长大</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md</p><br>
+<h3>千与千寻</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md</p><br>
+<h3>董卿母亲癌症去世</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md</p><br>
+<h3>索马里女大使：想和中国一起搞事业</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md</p><br>
+<h3>本届世界杯已有5名球员被控强奸</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md</p><br>
+<h3>国内最大沙漠发洪水意味着什么</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md</p><br>
+<h3>要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md</p><br>
+<h3>找到了10年前跪舔b站的视频</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md</p><br>
+<h3>手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md</p><br>
+<h3>高考结束，该不该外出打工体验？</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md</p><br>

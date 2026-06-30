@@ -1,44 +1,44 @@
-<h1>特朗普要求ABC尽快解雇脱口秀主持人吉米·金梅尔</h1><br>
+<h1>端午节后波动加剧！基金经理最新发声：本周或是“盘整期”，三季度或有科技主升浪行情！</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>美国总统唐纳德·特朗普周四再次向ABC电视台施压，要求立即解雇深夜脱口秀主持人吉米·金梅尔，并警告此事“最好尽快解决”。 特朗普在Truth Social上发文称：“ABC假新闻网络什么时候才能解雇那个一点都不好笑的吉米·金梅尔？他无能地主持着电视上收视率最低的节目之一。人们都很愤怒。这件事最好尽快解决！” 这场风波的导火索是金梅尔在4月23日节目中的一段调侃。当时他模仿主持白</p><br>
+<p>端午假期之后，市场波动有所加大。6月23日，A股主要指数普遍回调，沪指跌1.37%，深成指跌3.17%，创业板指跌3.84%。对此，热门ETF——创业板人工智能ETF华宝（159363）基金经理曹旭辰认为，本周大概率是盘整周，前期盘整过的大票，本周或许表现尚可；前两周涨幅较快的股票或有盘整需求。前两个交易日，情绪资金入市或是超短线行情波动加剧的主要原因。总体上，科技板块问题不大</p><br>
 <h2>正文</h2><br>
-<p>美国总统唐纳德·特朗普周四再次向ABC电视台施压，要求立即解雇深夜脱口秀主持人吉米·金梅尔，并警告此事“最好尽快解决”。</p><br>
-<p>特朗普在Truth Social上发文称：“ABC假新闻网络什么时候才能解雇那个一点都不好笑的吉米·金梅尔？</p><br>
-<p>他无能地主持着电视上收视率最低的节目之一。</p><br>
-<p>人们都很愤怒。</p><br>
-<p>这件事最好尽快解决！</p><br>
-<p>” 这场风波的导火索是金梅尔在4月23日节目中的一段调侃。</p><br>
-<p>当时他模仿主持白宫记者协会晚宴，对着镜头向梅拉尼娅·特朗普说：“特朗普夫人，你散发着像一位‘准寡妇’般的光彩。</p><br>
-<p>”该节目播出两天后，白宫记者协会晚宴现场发生枪击事件，一名特勤人员受伤，特朗普夫妇等人紧急撤离。</p><br>
+<p>端午假期之后，市场波动有所加大。</p><br>
+<p>6月23日，A股主要指数普遍回调，沪指跌1.37%，深成指跌3.17%，创业板指跌3.84%。</p><br>
+<p>对此，热门ETF——创业板人工智能ETF华宝（159363）基金经理曹旭辰认为，本周大概率是盘整周，前期盘整过的大票，本周或许表现尚可；前两周涨幅较快的股票或有盘整需求。</p><br>
+<p>前两个交易日，情绪资金入市或是超短线行情波动加剧的主要原因。</p><br>
+<p>总体上，科技板块问题不大，看好7-9月份的主升浪行情。</p><br>
+<p>值得一提的是，近期，AI产业链的各大代表性指数均迎来调仓换股，这些细分指数涵盖光模块、芯片、大模型、电力能源等各个AI产业链的核心环节。</p><br>
+<p>那么，此次这些热门指数到底调入了哪些股票，又调出了哪些股票？</p><br>
+<p>换血之后的指数，又呈现出什么样的面貌呢？</p><br>
 <h2>相关推荐</h2><br>
-<h3>深圳交警集中曝光典型违法案例</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md</p><br>
-<h3>女子遭家暴逃跑致丈夫身亡二审细节</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md</p><br>
-<h3>赛博朋克边缘行者2预告片</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md</p><br>
-<h3>德国淘汰</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md</p><br>
-<h3>王楚钦孙颖莎vs皮斯特耶库库洛娃</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md</p><br>
-<h3>你的妻子大喷菇—《植物娘大战僵尸》特别篇</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md</p><br>
-<h3>张雪的一句“是我们”引发岛内热议</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md</p><br>
-<h3>巴西2-1绝杀日本</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md</p><br>
-<h3>泰山建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md</p><br>
-<h3>佐野海舟远射破门</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md</p><br>
-<h3>当我知道豆包有后台审核人员</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md</p><br>
+<h3>刘宇宁高情商化解谁站C位</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md</p><br>
+<h3>欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md</p><br>
+<h3>欧洲民众抢购空调降温</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md</p><br>
+<h3>不开心就去看三年前的购物订单</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md</p><br>
+<h3>如何看待德国队连续三届世界杯稳定 32 强？</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md</p><br>
+<h3>2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md</p><br>
+<h3>热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md</p><br>
+<h3>韩国足球大地震要来了</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md</p><br>
+<h3>7月1日起 一批新规即将落地</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md</p><br>
+<h3>发明linux、python、redis、nginx、sqlite的人算不算天才？</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md</p><br>
+<h3>2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>男子中医院拔火罐致浅2度烧伤</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md</p><br>
-<h3>点球淘汰德国 巴拉圭首都陷入疯狂</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md</p><br>
-<h3>美股</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md</p><br>
-<h3>库尼亚赛后伸五指嘲讽日本</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md</p><br>
-<h3>被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md</p><br>
-<h3>毕业以后，你最怀念的大学记忆是什么？</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md</p><br>
-<h3>热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md</p><br>
-<h3>德国淘汰</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md</p><br>
-<h3>巴西绝杀日本</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md</p><br>
-<h3>【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md</p><br>
-<h3>男子醉酒溺水获救后同行人拒协助抬人</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md</p><br>
-<h3>日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md</p><br>
-<h3>可以细成这样？1600万预算，颠覆我认知的改造！</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md</p><br>
-<h3>点球大战</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md</p><br>
-<h3>李在明90度鞠躬感谢韩国两大财阀</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md</p><br>
+<h3>时光音乐会</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md</p><br>
+<h3>宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md</p><br>
+<h3>德国队回应爆冷淘汰</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md</p><br>
+<h3>吴启华卖肖像权拍AI电影</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md</p><br>
+<h3>内马尔中场休息积极鼓励队友</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md</p><br>
+<h3>如何看待武亮说大学生生活费1500就够用这一言论？</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md</p><br>
+<h3>郑钦文温网首轮出局</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md</p><br>
+<h3>为什么香港的冲厕水是咸的？</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md</p><br>
+<h3>曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md</p><br>
+<h3>如何评价杨紫白玉兰获奖</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md</p><br>
+<h3>【涤墨作战7人870】望：我从地狱杀回来了！</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md</p><br>
+<h3>诺伊尔尽力了</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md</p><br>
+<h3>天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md</p><br>
+<h3>金刚川</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md</p><br>
+<h3>hanser X 赖美云《室内系的Track Maker》</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md</p><br>

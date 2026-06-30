@@ -1,44 +1,46 @@
-<h1>欧洲央行行长拉加德称伊朗冲突对经济活动构成压力</h1><br>
+<h1>竞相布局人工智能 全球企业“链”上中国机遇</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>欧洲央行行长克里斯蒂娜·拉加德表示，经济前景高度不确定，将取决于中东战争持续的时间以及战争对能源和其他大宗商品市场以及全球供应链的影响程度。 “调查显示经济增长放缓，自战争爆发以来，消费者和企业对未来的信心均有所下降。” “展望未来，高能源成本预计将继续对实际收入构成压力，使家庭和企业更不愿意消费和投资。”责任编辑：江学思</p><br>
+<p>在今年链博会现场，原有的“数字科技链”升级成为“数智科技链”。这一字之变，背后体现的是人工智能正在成为产业链上的主角。现场首设的人工智能专区集聚了中外AI领军企业，展示了从数据、算力到应用的全链条。全球企业在人工智能领域都有哪些最新布局？竞相布局人工智能 全球企业“链”上中国机遇 不同厂家的AI眼镜、数字底盘的智能汽车、会踢足球的人形机器人……人工智能正在从手机和电脑走向各类新</p><br>
 <h2>正文</h2><br>
-<p>欧洲央行行长克里斯蒂娜·拉加德表示，经济前景高度不确定，将取决于中东战争持续的时间以及战争对能源和其他大宗商品市场以及全球供应链的影响程度。</p><br>
-<p>“调查显示经济增长放缓，自战争爆发以来，消费者和企业对未来的信心均有所下降。</p><br>
-<p>” “展望未来，高能源成本预计将继续对实际收入构成压力，使家庭和企业更不愿意消费和投资。</p><br>
-<p>”责任编辑：江学思</p><br>
+<p>在今年链博会现场，原有的“数字科技链”升级成为“数智科技链”。</p><br>
+<p>这一字之变，背后体现的是人工智能正在成为产业链上的主角。</p><br>
+<p>现场首设的人工智能专区集聚了中外AI领军企业，展示了从数据、算力到应用的全链条。</p><br>
+<p>全球企业在人工智能领域都有哪些最新布局？</p><br>
+<p>竞相布局人工智能 全球企业“链”上中国机遇 不同厂家的AI眼镜、数字底盘的智能汽车、会踢足球的人形机器人……人工智能正在从手机和电脑走向各类新的智能终端。</p><br>
+<p>这些终端内部都需要用到专门针对AI能力设计的芯片，这也让相关企业看到全新的增长机遇。</p><br>
+<p>高通公司全球高级副总裁钱堃表示，AI智能体的赋能使得现有终端设备有一个大的升级换代周期。</p><br>
+<p>中国的产业链非常完善，通过跟中国合作伙伴不断合作，他们的产品能很快走向市场并被全球接受。</p><br>
 <h2>相关推荐</h2><br>
-<h3>孙兴慜发长文致歉</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md</p><br>
-<h3>深圳交警集中曝光典型违法案例</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md</p><br>
-<h3>李在明90度鞠躬感谢韩国两大财阀</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md</p><br>
-<h3>马航370搜寻最新消息</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md</p><br>
-<h3>沉睡花园</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md</p><br>
-<h3>蜘蛛侠:平行宇宙</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md</p><br>
-<h3>时光音乐会</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md</p><br>
-<h3>库尼亚赛后伸五指嘲讽日本</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md</p><br>
-<h3>博世们还在犹豫 美的们已经卖断货</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md</p><br>
-<h3>男子中医院拔火罐致浅2度烧伤</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md</p><br>
-<h3>森保一 可以退休了</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md</p><br>
-<h3>一生一世</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md</p><br>
-<h3>致敬！中国首批缉毒警已全体退休</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md</p><br>
-<h3>急先锋</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md</p><br>
-<h3>德国队连续三届世界杯无缘16强</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md</p><br>
+<h3>孙颖莎一锤定音的正手</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md</p><br>
+<h3>你这一辈子有没有为进山姆拼过命？</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md</p><br>
+<h3>荷兰VS摩洛哥</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md</p><br>
+<h3>中国对日本再出重拳</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md</p><br>
+<h3>你的妻子大喷菇—《植物娘大战僵尸》特别篇</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md</p><br>
+<h3>赛博朋克边缘行者2预告片</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md</p><br>
+<h3>租房时你会更看重「住得舒服」，还是「每天通勤更方便」？</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md</p><br>
+<h3>如何评价《龙之家族》第三季第二集？</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md</p><br>
+<h3>宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md</p><br>
+<h3>我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md</p><br>
+<h3>女子遭家暴逃跑致丈夫身亡二审细节</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md</p><br>
+<h3>当我知道豆包有后台审核人员</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md</p><br>
+<h3>一见倾心</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>杨紫获白玉兰视后为何争议难平</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md</p><br>
-<h3>中国对日本再出重拳</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md</p><br>
-<h3>板面：为什么那么多人爱吃？？！</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md</p><br>
-<h3>女子发现孩子非现任亲生状告前任索赔</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md</p><br>
-<h3>天道</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md</p><br>
-<h3>有哪些值得一提的生活窍门？</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md</p><br>
-<h3>披荆斩棘的哥哥</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md</p><br>
-<h3>第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md</p><br>
-<h3>日本淘汰</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md</p><br>
-<h3>张雪的一句“是我们”引发岛内热议</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md</p><br>
-<h3>梅德韦杰夫：俄最严峻的是人口问题</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md</p><br>
-<h3>流金岁月</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md</p><br>
-<h3>斗破苍穹</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md</p><br>
-<h3>爱直接对嘴喝饮料的人天塌了</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md</p><br>
-<h3>【大鸣王潮1566】真拿你没办法</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md</p><br>
+<h3>如何评价DeepSeek 提出的 DSpark 推理加速方案？</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md</p><br>
+<h3>杨紫大银幕成绩单</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md</p><br>
+<h3>德国身价是巴拉圭6倍</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md</p><br>
+<h3>如何把斧兵改造成精英怪？提高攻速移速！！！</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md</p><br>
+<h3>如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md</p><br>
+<h3>李在明向韩国两大财阀90度鞠躬</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md</p><br>
+<h3>沙丘</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md</p><br>
+<h3>田曦薇这是日常不是广告</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md</p><br>
+<h3>第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md</p><br>
+<h3>委内瑞拉地震死亡人数升至1719人</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md</p><br>
+<h3>泰山景区建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md</p><br>
+<h3>Melo向柳智敏张元英道歉</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md</p><br>
+<h3>如果有二次元高中是什么样子的？</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md</p><br>
+<h3>如何改变自己太负责任的性格?</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md</p><br>
+<h3>李宏毅白月光真神回归</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md</p><br>

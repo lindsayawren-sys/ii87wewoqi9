@@ -1,48 +1,45 @@
-<h1>“五一”期间，内蒙古达里湖迎华子鱼洄游季</h1><br>
+<h1>链博会聚焦数智赛道 四川向全球发布1548亿元产业机会清单</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新网赤峰5月1日电 (奥蓝 端木)“五一”假期，内蒙古自治区赤峰市克什克腾旗的达里湖迎来了一年一度的华子鱼洄游季。随着气温回升，数百万条华子鱼为繁衍后代，从高盐碱度的湖水中游出，沿湖畔淡水河道逆流而上，前往适合产卵的平缓水域，展开一场壮观的“生命洄游”。 达里湖是内陆湖，湖水盐碱度较高，不利于鱼卵孵化。每年4月下旬至5月上旬，华子鱼需完成约60公里的洄游旅程，抵达上游淡水河道</p><br>
+<p>中新网北京6月23日电 (单鹏 吕杨)22日至26日，第四届中国国际供应链促进博览会(以下简称链博会)在北京举行。本届链博会开幕当天，“数智四川”产业链国际合作交流会议在北京同步举行。 当前，数智赛道发展势头强劲，市场关注度持续攀升。第四届链博会将“数字科技链”升级为“数智科技链”，首次设立人工智能专区，集中展示数字科技前沿技术、新兴数字产业，以及科技赋能各行业的落地解决方案与</p><br>
 <h2>正文</h2><br>
-<p>中新网赤峰5月1日电 (奥蓝 端木)“五一”假期，内蒙古自治区赤峰市克什克腾旗的达里湖迎来了一年一度的华子鱼洄游季。</p><br>
-<p>随着气温回升，数百万条华子鱼为繁衍后代，从高盐碱度的湖水中游出，沿湖畔淡水河道逆流而上，前往适合产卵的平缓水域，展开一场壮观的“生命洄游”。</p><br>
-<p>达里湖是内陆湖，湖水盐碱度较高，不利于鱼卵孵化。</p><br>
-<p>每年4月下旬至5月上旬，华子鱼需完成约60公里的洄游旅程，抵达上游淡水河道产卵。</p><br>
-<p>河道中鱼群密集，从岸边清晰可见它们奋力逆流的景象，堪称自然界的生命奇观。</p><br>
-<p>洄游途中，华子鱼需应对湍急水流，躲避鸟类等天敌，每一步都充满考验。</p><br>
-<p>产卵数日后，成年鱼将携新生鱼苗返回达里湖。</p><br>
-<p>克什克腾旗采用“空中+地面”立体巡护模式，在重点区域布设监控、使用无人机巡查及人工步行巡护，全力守护洄游通道。</p><br>
+<p>中新网北京6月23日电 (单鹏 吕杨)22日至26日，第四届中国国际供应链促进博览会(以下简称链博会)在北京举行。</p><br>
+<p>本届链博会开幕当天，“数智四川”产业链国际合作交流会议在北京同步举行。</p><br>
+<p>当前，数智赛道发展势头强劲，市场关注度持续攀升。</p><br>
+<p>第四届链博会将“数字科技链”升级为“数智科技链”，首次设立人工智能专区，集中展示数字科技前沿技术、新兴数字产业，以及科技赋能各行业的落地解决方案与实体应用产品，助力数字经济与实体经济深度融合、协同升级。</p><br>
+<p>四川同步举办数智专场活动，精准对接全球客商核心关切，是顺应产业变革趋势、落实对外开放部署的务实举措。</p><br>
+<p>会议聚焦四川与全球智能制造、人工智能、数字科技等领域产业链企业双向赋能，通过项目发布、企业交流、圆桌对话等环节，链接国内外优质产业资源，推动产业链精准对接、实现合作共赢。</p><br>
+<p>中国贸促会副会长李庆霜在会议致辞中表示，本次会议集中展示了四川数智产业发展成果，搭建起高效的企业对接交流平台，为海内外合作伙伴挖掘商机、深化产业链协同合作创造了有利条件。</p><br>
+<p>她希望广大企业依托本次契机，加强交流互动、深化务实合作，共享四川产业发展和投资机遇。</p><br>
 <h2>相关推荐</h2><br>
-<h3>日本遭读秒绝杀 森保一：我水平不够</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md</p><br>
-<h3>贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md</p><br>
-<h3>黄晓明晒和周杰伦的合照</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md</p><br>
-<h3>高考结束，该不该外出打工体验？</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md</p><br>
-<h3>高质量发展看新疆</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md</p><br>
-<h3>免费试吃发差评被店家挂店门避雷</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md</p><br>
-<h3>莫兰特被交易到开拓者</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md</p><br>
-<h3>郑钦文 四年一轮游</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md</p><br>
-<h3>毒液2</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md</p><br>
-<h3>【涤墨作战7人870】望：我从地狱杀回来了！</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md</p><br>
-<h3>武磊：日本队有能力跟任何强队抗衡</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md</p><br>
-<h3>如何看待武亮说大学生生活费1500就够用这一言论？</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md</p><br>
-<h3>德国 4-5 爆冷输球巴拉圭，队史首输世界杯点球大战，连续 3 届无缘 16 强，你认为问题出在哪？</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md</p><br>
-<h3>世界杯</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md</p><br>
-<h3>未来五年，教育强国这样建设</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md</p><br>
+<h3>男子中医院拔火罐致浅2度烧伤</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md</p><br>
+<h3>被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md</p><br>
+<h3>巴西2-1绝杀日本</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md</p><br>
+<h3>博世们还在犹豫 美的们已经卖断货</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md</p><br>
+<h3>日本足球是如何崛起的</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md</p><br>
+<h3>四川宜宾地震为何震感明显</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md</p><br>
+<h3>美团、淘宝闪购、京东外卖达成共识</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md</p><br>
+<h3>金鹰奖视后提名预测</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md</p><br>
+<h3>全网说丑的格力玫瑰空调卖了5万台</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md</p><br>
+<h3>王健林甩卖超80座万达广场</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md</p><br>
+<h3>可以细成这样？1600万预算，颠覆我认知的改造！</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md</p><br>
+<h3>德国 4-5 爆冷输球巴拉圭，队史首输世界杯点球大战，连续 3 届无缘 16 强，你认为问题出在哪？</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>内马尔未登场 安切洛蒂赛后回应</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md</p><br>
-<h3>恋与深空道歉声明</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md</p><br>
-<h3>巴西vs日本</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md</p><br>
-<h3>记者：詹姆斯并没有寻求重返热火迹象</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md</p><br>
-<h3>网友写差评被店家“挂”门口避雷</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md</p><br>
-<h3>我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md</p><br>
-<h3>沉睡花园</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md</p><br>
-<h3>曝iPhone18Pro机密文件现身暗网</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md</p><br>
-<h3>德国爆冷点球大战不敌巴拉圭</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md</p><br>
-<h3>“法德大战”泡汤了</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md</p><br>
-<h3>恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md</p><br>
-<h3>87克大金链到老庙黄金维修少了11克</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md</p><br>
-<h3>《恋与深空》被指触碰民族伤痛红线</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md</p><br>
-<h3>巴西2-1绝杀日本</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md</p><br>
-<h3>解放军黄岩岛战备警巡 驱离菲方飞机</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md</p><br>
+<h3>疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md</p><br>
+<h3>如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md</p><br>
+<h3>巴拉圭进球</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md</p><br>
+<h3>哈弗茨 如此出局不可原谅</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md</p><br>
+<h3>德国进球被吹</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md</p><br>
+<h3>杨紫获白玉兰视后为何争议难平</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md</p><br>
+<h3>记者：詹姆斯并没有寻求重返热火迹象</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md</p><br>
+<h3>我和我的家乡</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md</p><br>
+<h3>城市规划有可能成为「屎山代码」吗？</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md</p><br>
+<h3>张月没加到的微信黄灿灿加到了</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md</p><br>
+<h3>曹雪芹为什么写贾母痛批私定终身，才子佳人小说不是婚姻自主、人文觉醒的反封建文学吗？</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md</p><br>
+<h3>斗破苍穹</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md</p><br>
+<h3>小嗷 恋与深空</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md</p><br>
+<h3>韩国道歉完日本道歉</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md</p><br>
+<h3>杨紫被质疑未使用原名</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md</p><br>

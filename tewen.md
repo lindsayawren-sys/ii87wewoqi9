@@ -1,43 +1,46 @@
-<h1>特朗普“解放日”关税风暴后，英国对美出口暴跌25%</h1><br>
+<h1>大陆机车圈粉台湾学者和媒体人</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>核心要点 官方数据显示，自唐纳德・特朗普总统的 “解放日” 关税风暴实施以来，英国对美商品出口暴跌约 25%，此后一直低迷不振。 英国国家统计局（ONS）周五表示，关税开征后，英国对美商品出口（不含贵金属）减少了 15 亿英镑，降幅达 24.7%。 该统计机构补充称，此后英国对美汽车出口也有所下降，在截至 2025 年 4 月的 12 个月里，一直低于关税实施前的水平。 尽管英</p><br>
+<p>发布时间：2026年06月23日 13:53 来源：中国新闻网 6月22日，双城新动能·2026两岸媒体川渝行活动在重庆正式启动。来自海峡两岸的专家学者、媒体记者、自媒体人等近40人，首站参访全球化摩托车研发、生产、销售企业——重庆鑫源摩托车股份有限公司，其完整的产业链布局让人眼前一亮。 此前公开报道显示，重庆拥有规模以上摩托车整车企业51家、规模以上零部件企业410余家，具备</p><br>
 <h2>正文</h2><br>
-<p>核心要点 官方数据显示，自唐纳德・特朗普总统的 “解放日” 关税风暴实施以来，英国对美商品出口暴跌约 25%，此后一直低迷不振。</p><br>
-<p>英国国家统计局（ONS）周五表示，关税开征后，英国对美商品出口（不含贵金属）减少了 15 亿英镑，降幅达 24.7%。</p><br>
-<p>该统计机构补充称，此后英国对美汽车出口也有所下降，在截至 2025 年 4 月的 12 个月里，一直低于关税实施前的水平。</p><br>
-<p>尽管英国商品出口持续低迷，但 2026 年初商品进口有所增加，导致英国连续三个月对其最大贸易伙伴美国出现贸易逆差。</p><br>
-<p>去年，在特朗普总统公布所谓 “解放日” 关税（此举彻底打乱了全球市场）后，英国成为首个与特朗普政府达成贸易协议的国家。</p><br>
-<p>协议条款包括对美国进口商品征收 10% 的统一关税。</p><br>
-<p>这一举措终结了大西洋两岸出口商享有的零关税贸易环境，并对英国出口至美国的苏格兰威士忌及其他烈酒征收了新关税。</p><br>
-<p>本周，在查尔斯三世国王和卡米拉王后进行国事访问后，特朗普宣布，为 “致敬” 国王夫妇，将取消针对苏格兰威士忌的所有关税。</p><br>
+<p>发布时间：2026年06月23日 13:53 来源：中国新闻网 6月22日，双城新动能·2026两岸媒体川渝行活动在重庆正式启动。</p><br>
+<p>来自海峡两岸的专家学者、媒体记者、自媒体人等近40人，首站参访全球化摩托车研发、生产、销售企业——重庆鑫源摩托车股份有限公司，其完整的产业链布局让人眼前一亮。</p><br>
+<p>此前公开报道显示，重庆拥有规模以上摩托车整车企业51家、规模以上零部件企业410余家，具备完备的配套体系。</p><br>
+<p>2025年重庆摩托车产量达785.7万辆，居大陆城市首位。</p><br>
+<p>台湾被称为“机车之岛”，机车是部分民众日常出行刚需，庞大车友群体对摩托车产品拥有天然认知基础。</p><br>
+<p>台湾资深媒体人、台湾大学哲学系教授苑举正体验后说，相较于距离大众日常生活较远的硬核科技，机车等贴近民生的消费品，是拉近两岸民心、打破信息壁垒最“有感”的交流载体。</p><br>
+<p>苑举正还细数大陆机车产业的三大核心竞争力：一是品质过硬，二是产业链全球领先，三是价格优势突出。</p><br>
+<p>(记者 肖江川） 责任编辑：【罗攀】</p><br>
 <h2>相关推荐</h2><br>
-<h3>古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md</p><br>
-<h3>捷克主帅库贝克辞职</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md</p><br>
-<h3>球评巴西绝杀逆转日本</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md</p><br>
-<h3>张月收到黄灿灿辣货两眼发光</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md</p><br>
-<h3>斛珠夫人</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md</p><br>
-<h3>日本淘汰</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md</p><br>
-<h3>普京为何将俄乌谈判时间表与伊朗挂钩</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md</p><br>
-<h3>孙颖莎王楚钦晋级8强</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md</p><br>
-<h3>五哈和他们的朋友</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md</p><br>
-<h3>德国淘汰</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md</p><br>
+<h3>世界杯</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md</p><br>
+<h3>这几秒成世界杯最值钱广告位</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md</p><br>
+<h3>博世们还在犹豫 美的们已经卖断货</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md</p><br>
+<h3>韩国足球荒唐背后的财阀控局</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md</p><br>
+<h3>世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md</p><br>
+<h3>明星大侦探第一季</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md</p><br>
+<h3>马宁怒怼巴拉圭教练组</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md</p><br>
+<h3>日本将帅赛后采访纷纷哽咽落泪</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md</p><br>
+<h3>莫兰特被交易到开拓者</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md</p><br>
+<h3>韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md</p><br>
+<h3>如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md</p><br>
+<h3>如何把斧兵改造成精英怪？提高攻速移速！！！</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md</p><br>
+<h3>韩国世界杯出局是主帅一个人的锅吗</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>如何看待现在有学者用AI做数学科研？</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md</p><br>
-<h3>科学备孕男女都要上心</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md</p><br>
-<h3>世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md</p><br>
-<h3>锐评：网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md</p><br>
-<h3>法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md</p><br>
-<h3>王欣瑜连续4年晋级温网第二轮</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md</p><br>
-<h3>内马尔替补</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md</p><br>
-<h3>赛博朋克边缘行者2预告片</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md</p><br>
-<h3>87克大金链到老庙黄金维修少了11克</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md</p><br>
-<h3>日本将帅赛后采访纷纷哽咽落泪</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md</p><br>
-<h3>王楚钦孙颖莎vs皮斯特耶库库洛娃</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md</p><br>
-<h3>iPhoneUltra黑色机模</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md</p><br>
-<h3>收到补税提醒尽快办理 明起有滞纳金</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md</p><br>
-<h3>FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md</p><br>
-<h3>四川凉山落石砸毁车辆 3人遇难</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md</p><br>
+<h3>可以细成这样？1600万预算，颠覆我认知的改造！</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md</p><br>
+<h3>想问一下学日语的大佬，自学日语要怎么学？</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md</p><br>
+<h3>中国新一轮出口管制直指日本命脉</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md</p><br>
+<h3>高考结束，该不该外出打工体验？</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md</p><br>
+<h3>杨紫获白玉兰视后为何争议难平</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md</p><br>
+<h3>杨某诋毁袁隆平院士科研成果被刑拘</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md</p><br>
+<h3>爱直接对嘴喝饮料的人天塌了</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md</p><br>
+<h3>FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md</p><br>
+<h3>全网说丑的玫瑰空调卖了5万台</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md</p><br>
+<h3>德国 4-5 爆冷输球巴拉圭，队史首输世界杯点球大战，连续 3 届无缘 16 强，你认为问题出在哪？</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md</p><br>
+<h3>4000美元是黄金新一轮下跌的开始吗</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md</p><br>
+<h3>自然光｜papi酱&窦文涛：驴与跑步机</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md</p><br>
+<h3>张碧晨一开口梦回逐玉</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md</p><br>
+<h3>马耳他著名拱门坍塌致中国男子身亡</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md</p><br>
+<h3>德国4比5巴拉圭</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md</p><br>

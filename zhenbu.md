@@ -1,44 +1,44 @@
-<h1>这里藏过刘邦，也藏着白居易22年的青春......</h1><br>
+<h1>重庆、杭州的这些汛情信息都是假的（2026·06·22）</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>这里，是楚汉争霸的决胜之地，金戈铁马的硝烟早已散尽，却留下“霸王别姬”的千古绝唱。这里，也是隋唐大运河的“活态”篇章，古河道里依然流淌着千年前的波光。 白居易曾在这里度过22载青春，写下“离离原上草”的传世诗句；灵璧奇石在这里静默亿万年，被誉为“天下第一石”；非遗的戏腔与唢呐声，至今回荡在街头巷尾；而一只酥烂脱骨的符离集烧鸡、一碗热气腾腾的Sa汤，足以让你记住这座城的味道。 这</p><br>
+<p>辟 谣丨关于重庆、杭州的这些汛情信息都是假的 详情：近期，我国多地进入汛期，网络上出现“洪水过境重庆主城区，菜园坝江边吊脚楼几乎被淹到房顶”“杭州疯狂倒水”等涉汛信息，引发关注和担忧。 6月19日，有网民发布视频称“这是今年入汛以来长江二号洪水，位于菜园坝火车站附近的吊脚楼，差不多淹到了房顶”。经重庆市渝中区交通运输委和菜园坝街道核实，该信息系旧闻翻炒，视频画面实为2020年涨</p><br>
 <h2>正文</h2><br>
-<p>这里，是楚汉争霸的决胜之地，金戈铁马的硝烟早已散尽，却留下“霸王别姬”的千古绝唱。</p><br>
-<p>这里，也是隋唐大运河的“活态”篇章，古河道里依然流淌着千年前的波光。</p><br>
-<p>白居易曾在这里度过22载青春，写下“离离原上草”的传世诗句；灵璧奇石在这里静默亿万年，被誉为“天下第一石”；非遗的戏腔与唢呐声，至今回荡在街头巷尾；而一只酥烂脱骨的符离集烧鸡、一碗热气腾腾的Sa汤，足以让你记住这座城的味道。</p><br>
-<p>这个地方，就是安徽宿州。</p><br>
-<p>踩在这片土地上，每一步都踩着千年的回响 漫步宿州，你脚下的每一寸土地，都可能藏着一段改写历史的传奇。</p><br>
-<p>这里的山河，是一部立体的史书，等待着你的翻阅与聆听。</p><br>
-<p>在垓下，听见历史的回响 踏上灵璧垓下这片旷野，风声里都带着苍凉。</p><br>
-<p>这里不仅是地图上的一个坐标，更是楚汉相争的终章之地。</p><br>
+<p>辟 谣丨关于重庆、杭州的这些汛情信息都是假的 详情：近期，我国多地进入汛期，网络上出现“洪水过境重庆主城区，菜园坝江边吊脚楼几乎被淹到房顶”“杭州疯狂倒水”等涉汛信息，引发关注和担忧。</p><br>
+<p>6月19日，有网民发布视频称“这是今年入汛以来长江二号洪水，位于菜园坝火车站附近的吊脚楼，差不多淹到了房顶”。</p><br>
+<p>经重庆市渝中区交通运输委和菜园坝街道核实，该信息系旧闻翻炒，视频画面实为2020年涨水情景，显示的蓝色区域系原菜园坝竹木市场，已于2020年拆除。</p><br>
+<p>2026年6月19日渝中区菜园坝水位低于警戒水位近16米，亦无明显涨水过程。</p><br>
+<p>目前，警方正对造谣者展开调查。</p><br>
+<p>6月18日，一则标注为“所有杭州人注意”的短视频声称“杭州开始疯狂倒水”，并配以夸大画面。</p><br>
+<p>经浙江省杭州市气象局核实，18日白天，全市出现分散性短时强降水，属于夏季正常对流天气。</p><br>
+<p>18日8时至21时，全市面雨量为8毫米，各区县面雨量在2-10毫米之间，降水分布不均，但强降水范围小、历时短暂，远未达到“疯狂倒水”的程度。</p><br>
 <h2>相关推荐</h2><br>
-<h3>第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md</p><br>
-<h3>内马尔未登场 安切洛蒂赛后回应</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md</p><br>
-<h3>韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md</p><br>
-<h3>这一刀 会很帅</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md</p><br>
-<h3>哪部作品、哪本书、哪首歌，值得被一直传下去？</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md</p><br>
-<h3>点球大战和诺伊尔都救不回德国队</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md</p><br>
-<h3>我觉得你是在无中生友</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md</p><br>
-<h3>王楚钦孙颖莎vs皮斯特耶库库洛娃</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md</p><br>
-<h3>为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md</p><br>
-<h3>女子清吧被陌生人投放伟哥</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md</p><br>
-<h3>男子在非洲务工死亡 公司不认可工亡</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md</p><br>
+<h3>你的妻子大喷菇—《植物娘大战僵尸》特别篇</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md</p><br>
+<h3>如何看待 NBA2026 年休赛期，媒体称勇士正试图同时获得詹姆斯和浓眉？这可能实现吗？</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md</p><br>
+<h3>明星大侦探第四季</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md</p><br>
+<h3>李宏毅白月光真神回归</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md</p><br>
+<h3>巴西醒醒 这是淘汰赛</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md</p><br>
+<h3>咕嘎万能小摊1：沉浸式制作惠灵顿牛排</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md</p><br>
+<h3>美股收盘 热门中概股普涨</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md</p><br>
+<h3>张月没加到的微信黄灿灿加到了</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md</p><br>
+<h3>李宏毅白月光真神回归</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md</p><br>
+<h3>孙颖莎一锤定音的正手</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md</p><br>
+<h3>郑钦文温网一轮游</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>有哪些被认为是现代才有的东西其实古代就有了？</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md</p><br>
-<h3>被巴西绝杀后 日球员田中碧跪地痛哭</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md</p><br>
-<h3>博世们还在犹豫 美的们已经卖断货</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md</p><br>
-<h3>世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md</p><br>
-<h3>板面：为什么那么多人爱吃？？！</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md</p><br>
-<h3>世界杯小组赛出局球队身价排行</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md</p><br>
-<h3>这种关系可能正在悄悄“催老”你</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md</p><br>
-<h3>教育部披露：高考生篡改7名同学志愿</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md</p><br>
-<h3>马航370搜寻最新消息</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md</p><br>
-<h3>覃予萱晋级WTT美国大满贯女单32强</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md</p><br>
-<h3>王曼昱被突如其来的话筒逗笑了</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md</p><br>
-<h3>我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md</p><br>
-<h3>古代人对纳妾的态度是什么样的？</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md</p><br>
-<h3>上市央企地产商 两年换了三任董事长</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md</p><br>
-<h3>宜宾地震食客避难后折返 无人逃单</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md</p><br>
+<h3>世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md</p><br>
+<h3>恋与深空回应争议</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md</p><br>
+<h3>郑钦文温网三连败西尼亚科娃</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md</p><br>
+<h3>五哈和他们的朋友</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md</p><br>
+<h3>我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md</p><br>
+<h3>莫兰特被交易到开拓者</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md</p><br>
+<h3>荀彧和曹操反目成仇的根本原因是什么？</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md</p><br>
+<h3>荷兰vs摩洛哥</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md</p><br>
+<h3>王欣瑜连续4年晋级温网第二轮</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md</p><br>
+<h3>亚洲球队全部告别世界杯</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md</p><br>
+<h3>德国淘汰</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md</p><br>
+<h3>媒体评泰山建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md</p><br>
+<h3>如何看待恋与深空对 731 等三大争议的回应？能挽回口碑吗？</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md</p><br>
+<h3>欧洲装一台空调有多难</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md</p><br>
+<h3>德国北部枪击事件致5死</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md</p><br>

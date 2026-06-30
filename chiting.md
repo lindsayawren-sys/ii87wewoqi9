@@ -1,46 +1,45 @@
-<h1>美国汽油价格创年内新高，霍尔木兹封锁与炼厂检修推高成本</h1><br>
+<h1>商务部：一视同仁支持外资企业参与消费品以旧换新等政策实施</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>美国汽油价格飙升至年内最高水平，全美平均价格首次突破每加仑4.20美元关口，主要受霍尔木兹海峡持续封锁与炼油厂季节性检修的双重影响。 据美国汽车协会最新数据，截至4月29日，全美普通无铅汽油平均价格已达到每加仑4.23美元，创下自2022年7月以来的最高纪录。在过去一周内，汽油价格累计上涨约21美分，涨幅达5%，为今年3月以来最大单周涨幅。 本轮上涨背后存在两个主要驱动因素。首</p><br>
+<p>发布时间：2026年06月22日 20:04 来源：中国新闻网 6月22日，国新办举行新闻发布会，介绍利用外资固稳促优有关政策措施。会上，商务部副部长兼国际贸易谈判副代表凌激表示，中国一视同仁支持外资企业参与消费品以旧换新、离境退税、有奖发票试点等政策实施。他举例指出，在消费品以旧换新的新销量当中，外资汽车品牌超过35%；家电的以旧换新外资品牌超过13%。中国广阔的消费市场和不</p><br>
 <h2>正文</h2><br>
-<p>美国汽油价格飙升至年内最高水平，全美平均价格首次突破每加仑4.20美元关口，主要受霍尔木兹海峡持续封锁与炼油厂季节性检修的双重影响。</p><br>
-<p>据美国汽车协会最新数据，截至4月29日，全美普通无铅汽油平均价格已达到每加仑4.23美元，创下自2022年7月以来的最高纪录。</p><br>
-<p>在过去一周内，汽油价格累计上涨约21美分，涨幅达5%，为今年3月以来最大单周涨幅。</p><br>
-<p>本轮上涨背后存在两个主要驱动因素。</p><br>
-<p>首先，霍尔木兹海峡的持续关闭仍是核心变量。</p><br>
-<p>美伊谈判陷入僵局，海峡尚未恢复通航。</p><br>
-<p>其次，炼油厂春季季节性检修正在进行，通常每年4月至5月期间，为应对夏季驾驶旺季需求，美国炼油厂停产维护以调整生产配置，导致汽油供应阶段性收紧。</p><br>
-<p>原油成本通常占汽油零售价的40%至70%。</p><br>
+<p>发布时间：2026年06月22日 20:04 来源：中国新闻网 6月22日，国新办举行新闻发布会，介绍利用外资固稳促优有关政策措施。</p><br>
+<p>会上，商务部副部长兼国际贸易谈判副代表凌激表示，中国一视同仁支持外资企业参与消费品以旧换新、离境退税、有奖发票试点等政策实施。</p><br>
+<p>他举例指出，在消费品以旧换新的新销量当中，外资汽车品牌超过35%；家电的以旧换新外资品牌超过13%。</p><br>
+<p>中国广阔的消费市场和不断增长的、成长性很好的消费市场，再加上普惠性政策红利，有效帮助了外资企业在中国拓展市场份额。</p><br>
+<p>凌激称，还将通过过境免签、离境退税、涉外支付等各种务实举措，不断优化国际化消费环境。</p><br>
+<p>(记者 刘超) 责任编辑：【罗攀】</p><br>
 <h2>相关推荐</h2><br>
-<h3>男生180+，有腹肌是什么体验？</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md</p><br>
-<h3>第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md</p><br>
-<h3>杨紫被质疑未使用原名</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md</p><br>
-<h3>国务院：探索延长义务教育年限</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md</p><br>
-<h3>好像看到了人类带孩子崩溃的样子</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md</p><br>
-<h3>黄晓明夸昆凌引杨颖对比</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md</p><br>
-<h3>HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md</p><br>
-<h3>热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md</p><br>
-<h3>第3集丨“柠檬茶能换怀表？”</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md</p><br>
-<h3>逃狱兄弟</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md</p><br>
-<h3>欧洲装一台空调有多难</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md</p><br>
-<h3>日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md</p><br>
-<h3>梅德韦杰夫列举俄罗斯面临的七大挑战</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md</p><br>
+<h3>汉语是世界上最言简意赅的语言吗？</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md</p><br>
+<h3>哪部作品、哪本书、哪首歌，值得被一直传下去？</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md</p><br>
+<h3>如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md</p><br>
+<h3>曝灰熊将莫兰特交易至开拓者</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md</p><br>
+<h3>18岁体育生离世由爷爷奶奶抚养长大</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md</p><br>
+<h3>王健林甩卖超80座万达广场</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md</p><br>
+<h3>急先锋</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md</p><br>
+<h3>解放军黄岩岛战备警巡 驱离菲方飞机</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md</p><br>
+<h3>手底下人带不动怎么办？</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md</p><br>
+<h3>檀健次王楚然吻戏看热了</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md</p><br>
+<h3>德国身价是巴拉圭6倍</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md</p><br>
+<h3>库尼亚赛后伸五指嘲讽日本</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md</p><br>
+<h3>恋与深空</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md</p><br>
+<h3>马航370搜寻最新消息</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>吴启华卖肖像权拍AI电影</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md</p><br>
-<h3>高考结束了，你会让孩子在家玩手机吗？</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md</p><br>
-<h3>一生一世</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md</p><br>
-<h3>卡塞米罗头球破门</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md</p><br>
-<h3>“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md</p><br>
-<h3>曝娱乐圈大部分明星失业</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md</p><br>
-<h3>现在叛逆期的孩子最怕的是什么？</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md</p><br>
-<h3>毕业以后，你最怀念的大学记忆是什么？</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md</p><br>
-<h3>左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md</p><br>
-<h3>男子在非洲务工死亡 公司不认可工亡</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md</p><br>
-<h3>iPhoneUltra黑色机模</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md</p><br>
-<h3>张碧晨一开口梦回逐玉</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md</p><br>
-<h3>日本将帅赛后采访纷纷哽咽落泪</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md</p><br>
-<h3>女儿从清华毕业 爸爸晒出17年对比照</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md</p><br>
-<h3>世界杯：荷兰vs摩洛哥</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md</p><br>
+<h3>董卿父亲报纸上发文悼念亡妻</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md</p><br>
+<h3>欧洲空调卖疯了 下一个爆款是储能吗</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md</p><br>
+<h3>内马尔未登场 安切洛蒂赛后回应</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md</p><br>
+<h3>世界杯欧洲队7战南美仅1胜</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md</p><br>
+<h3>苗族银饰</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md</p><br>
+<h3>日本球迷输球后集体捡垃圾</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md</p><br>
+<h3>2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md</p><br>
+<h3>美媒：美军第五舰队司令部已无法使用</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md</p><br>
+<h3>巴西2比1日本</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md</p><br>
+<h3>任素汐舞台上唱《王招君》</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md</p><br>
+<h3>青春环游记第三季</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md</p><br>
+<h3>“中国养猪场都用上空调了”！这是真的吗？【主播说三农】</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md</p><br>
+<h3>炽夏这一幕就这样馋我</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md</p><br>
+<h3>为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md</p><br>
+<h3>贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md</p><br>

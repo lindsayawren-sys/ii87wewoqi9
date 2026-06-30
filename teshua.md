@@ -1,43 +1,47 @@
-<h1>美股高开迎接财报季 苹果领涨科技股</h1><br>
+<h1>荷兰特文特大学教授Hans Hilgenkamp：AI带来的数据污染挑战需全社会共同应对</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>当地时间5月1日，华尔街股市高开，主要指数延续此前涨势。强劲的企业财报提振了市场情绪，苹果公司超预期的业绩表现领涨科技股。 道琼斯工业平均指数开盘上涨0.43%，报49865.99点；标普500指数上涨0.39%至7236.86点；纳斯达克指数上涨0.42%，报24996.12点。 苹果公司股价走高，此前该公司公布的第二财季财报显示营收和盈利均超预期。财报显示，苹果营收达111</p><br>
+<p>专题：2026第十七届夏季达沃斯论坛 6月23日消息，世界经济论坛第十七届新领军者年会（2026大连夏季达沃斯论坛）今日在大连举行。荷兰特文特大学（University of Twente）应用物理与纳米技术学科教授Hans Hilgenkamp与新浪财经展开对话，就AI能耗、数据污染、人才培养等话题发表观点。 Hilgenkamp教授首先介绍了自己的研究方向：“我的研究兴趣聚</p><br>
 <h2>正文</h2><br>
-<p>当地时间5月1日，华尔街股市高开，主要指数延续此前涨势。</p><br>
-<p>强劲的企业财报提振了市场情绪，苹果公司超预期的业绩表现领涨科技股。</p><br>
-<p>道琼斯工业平均指数开盘上涨0.43%，报49865.99点；标普500指数上涨0.39%至7236.86点；纳斯达克指数上涨0.42%，报24996.12点。</p><br>
-<p>苹果公司股价走高，此前该公司公布的第二财季财报显示营收和盈利均超预期。</p><br>
-<p>财报显示，苹果营收达1111.8亿美元，同比增长17%，高于市场预期的1096.6亿美元；每股收益2.01美元，高于分析师预期的1.94美元。</p><br>
-<p>公司同时发布了强劲的本季度营收展望，并批准了至多1000亿美元的股票回购计划。</p><br>
-<p>能源股同样受到关注。</p><br>
-<p>埃克森美孚和雪佛龙公布了第一季度财报，尽管国际油价因中东局势上涨，两大能源巨头的净利润仍出现大幅下滑。</p><br>
+<p>专题：2026第十七届夏季达沃斯论坛 6月23日消息，世界经济论坛第十七届新领军者年会（2026大连夏季达沃斯论坛）今日在大连举行。</p><br>
+<p>荷兰特文特大学（University of Twente）应用物理与纳米技术学科教授Hans Hilgenkamp与新浪财经展开对话，就AI能耗、数据污染、人才培养等话题发表观点。</p><br>
+<p>Hilgenkamp教授首先介绍了自己的研究方向：“我的研究兴趣聚焦于神经形态计算（Neuromorphic Computing）。</p><br>
+<p>人脑在处理信息时极为强大，但能耗远低于当前AI系统。</p><br>
+<p>这一研究方向有望从根本上解决AI能源消耗过大的问题，为绿色计算开辟新路径。</p><br>
+<p>” 在被问及生成式AI带来的新挑战时，Hilgenkamp教授指出，数据污染正在成为现实。</p><br>
+<p>生成式AI会产生大量不正确的内容，而这些错误数据又被用作训练新模型的素材，形成恶性循环。</p><br>
+<p>“未来我们面临的一大挑战是如何区分真实数据与错误数据，而这个问题可能本身也需要借助AI来解决。</p><br>
 <h2>相关推荐</h2><br>
-<h3>阿根廷vs佛得角预测</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md</p><br>
-<h3>消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md</p><br>
-<h3>上市央企地产商 两年换了三任董事长</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md</p><br>
-<h3>87克大金链到老庙黄金维修少了11克</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md</p><br>
-<h3>炽夏这一幕就这样馋我</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md</p><br>
-<h3>美媒：美军第五舰队司令部已无法使用</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md</p><br>
-<h3>终于把好哥们处成了情侣!</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md</p><br>
-<h3>请回答王牌2019</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md</p><br>
-<h3>如何看待武亮说大学生生活费1500就够用这一言论？</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md</p><br>
-<h3>存储芯片龙头提示风险</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md</p><br>
+<h3>金牌调解</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md</p><br>
+<h3>李在明向韩国两大财阀90度鞠躬</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md</p><br>
+<h3>人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md</p><br>
+<h3>扬名立万</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md</p><br>
+<h3>【大鸣王潮1566】真拿你没办法</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md</p><br>
+<h3>杨紫获白玉兰视后为何争议难平</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md</p><br>
+<h3>巴西绝杀日本：漫画般结局换了主角</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md</p><br>
+<h3>韩国足球大地震要来了</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md</p><br>
+<h3>冲学校再转专业可行吗</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md</p><br>
+<h3>警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md</p><br>
+<h3>未来的飞机可能会用电吗？</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md</p><br>
+<h3>重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md</p><br>
+<h3>国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md</p><br>
+<h3>一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>日本队主帅道歉</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md</p><br>
-<h3>李在明向韩国两大财阀90度鞠躬</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md</p><br>
-<h3>锐评：网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md</p><br>
-<h3>有哪些被认为是现代才有的东西其实古代就有了？</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md</p><br>
-<h3>如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md</p><br>
-<h3>收到补税提醒尽快办理 明起有滞纳金</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md</p><br>
-<h3>警方介入洪明甫死亡威胁</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md</p><br>
-<h3>陈小春人老了干什么也不心酸</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md</p><br>
-<h3>女方不认十几万彩礼最终退回20万</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md</p><br>
-<h3>张雪的一句“是我们”引发岛内热议</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md</p><br>
-<h3>老人卖菜获博主帮助后遇车祸去世</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md</p><br>
-<h3>曝娱乐圈大部分明星失业</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md</p><br>
-<h3>《贺子珍》</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md</p><br>
-<h3>恋与深空回应争议</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md</p><br>
-<h3>恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md</p><br>
+<h3>《我落泪情绪零碎》</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md</p><br>
+<h3>美媒：美军第五舰队司令部已无法使用</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md</p><br>
+<h3>高考结束了，你会让孩子在家玩手机吗？</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md</p><br>
+<h3>逃狱兄弟</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md</p><br>
+<h3>阿娇瘦了10斤</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md</p><br>
+<h3>赵今麦因“瘦而不柴”的体态出圈</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md</p><br>
+<h3>又一家县级医院关停门诊输液大厅</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md</p><br>
+<h3>当我知道豆包有后台审核人员</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md</p><br>
+<h3>巴西绝杀日本：漫画般结局换了主角</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md</p><br>
+<h3>如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md</p><br>
+<h3>如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md</p><br>
+<h3>日本主帅赛后回应淘汰出局</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md</p><br>
+<h3>18岁体育生离世由爷爷奶奶抚养长大</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md</p><br>
+<h3>乔家的儿女</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md</p><br>
+<h3>陈露发视频求和解遭拒</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md</p><br>

@@ -1,47 +1,40 @@
-<h1>太行山区县井陉：深耕民生“关键小事” 绘就幸福生活新图景</h1><br>
+<h1>英国首相热门人选伯纳姆拟解除里夫斯财政大臣职务</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新网石家庄4月30日电 题：太行山区县井陉：深耕民生“关键小事” 绘就幸福生活新图景 中新网记者 陈林 中国式现代化，民生为大。位于太行山东麓的石家庄市井陉县，近期因一系列民生实事而受到媒体关注。“33所农村小学推行免费‘校园餐’”“医疗惠民政策保障农村老人就医”等新闻频频见诸网络报端。 “惠民医疗”：保障农村老人就医需求 地处冀晋交界的井陉，因“四面高，中央下，如井”而得名</p><br>
+<p>据英国《金融时报》援引未具名人士报道，安迪·伯纳姆准备解除蕾切尔·里夫斯的财政大臣职务，但会为她提供一个内阁中的其他职位。 里夫斯试图在伯纳姆掌权的情况下保住财政大臣职位，但并未成功。责任编辑：李桐</p><br>
 <h2>正文</h2><br>
-<p>中新网石家庄4月30日电 题：太行山区县井陉：深耕民生“关键小事” 绘就幸福生活新图景 中新网记者 陈林 中国式现代化，民生为大。</p><br>
-<p>位于太行山东麓的石家庄市井陉县，近期因一系列民生实事而受到媒体关注。</p><br>
-<p>“33所农村小学推行免费‘校园餐’”“医疗惠民政策保障农村老人就医”等新闻频频见诸网络报端。</p><br>
-<p>“惠民医疗”：保障农村老人就医需求 地处冀晋交界的井陉，因“四面高，中央下，如井”而得名。</p><br>
-<p>为探索破解65岁以上农村老人“看病难、看病贵”问题，井陉县委、县政府主动聚焦农村医疗薄弱环节，于2025年12月在5个乡镇开启“惠民医疗”试点工作：即65周岁以上农村参保老人在县域内乡镇、村卫生院(室)就医时，门诊甲类药品、打针输液、检查化验等项目及住院医保报销后自费部分由财政全额兜底。</p><br>
-<p>目前，该政策已面向全县17个乡镇321个行政村全面推开。</p><br>
-<p>“从试点运行到全面推开以来，切实减轻了群众就医负担，有效缓解了因病致贫的风险。</p><br>
-<p>”井陉县卫生健康局副局长马永生说，通过加大费用补贴、优化服务供给等组合举措，让老年群体健康权益得到更坚实保障。</p><br>
+<p>据英国《金融时报》援引未具名人士报道，安迪·伯纳姆准备解除蕾切尔·里夫斯的财政大臣职务，但会为她提供一个内阁中的其他职位。</p><br>
+<p>里夫斯试图在伯纳姆掌权的情况下保住财政大臣职位，但并未成功。</p><br>
+<p>责任编辑：李桐</p><br>
 <h2>相关推荐</h2><br>
-<h3>《名肘探科比》：科比大战裂口女</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md</p><br>
-<h3>iPhone18e曝光</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md</p><br>
-<h3>现在叛逆期的孩子最怕的是什么？</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md</p><br>
-<h3>2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md</p><br>
-<h3>亚洲球队全部出局</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md</p><br>
-<h3>日本将帅赛后采访纷纷哽咽落泪</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md</p><br>
-<h3>德国 4-5 爆冷输球巴拉圭，队史首输世界杯点球大战，连续 3 届无缘 16 强，你认为问题出在哪？</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md</p><br>
-<h3>送你一朵小红花</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md</p><br>
-<h3>有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md</p><br>
-<h3>美人鱼</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md</p><br>
-<h3>德国巴拉圭加时</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md</p><br>
-<h3>这种关系可能正在悄悄“催老”你</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md</p><br>
-<h3>欧洲家电巨头为何输掉了这个夏天</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md</p><br>
-<h3>《贺子珍》</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md</p><br>
+<h3>2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md</p><br>
+<h3>日本队5进世界杯淘汰赛0胜</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md</p><br>
+<h3>【硬核拆解】汽车人到底离我们有多远？</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md</p><br>
+<h3>如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md</p><br>
+<h3>法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md</p><br>
+<h3>日本球迷被强行披上巴西国旗</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md</p><br>
+<h3>日本球员说被绝杀非常不甘心</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md</p><br>
+<h3>hanser X 赖美云《室内系的Track Maker》</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md</p><br>
+<h3>任素汐舞台上唱《王招君》</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md</p><br>
+<h3>德国 4-5 爆冷输球巴拉圭，队史首输世界杯点球大战，连续 3 届无缘 16 强，你认为问题出在哪？</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md</p><br>
+<h3>收到补税提醒尽快办理 明起有滞纳金</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md</p><br>
+<h3>四川凉山落石砸毁车辆 3人遇难</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>乔家的儿女</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md</p><br>
-<h3>如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md</p><br>
-<h3>巴西把自己踢晕了</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md</p><br>
-<h3>詹姆斯会加盟勇士吗</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md</p><br>
-<h3>内马尔中场休息积极鼓励队友</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md</p><br>
-<h3>把毒品藏在哪里，60秒内不会被发现？</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md</p><br>
-<h3>德国队世界杯点球大战首败</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md</p><br>
-<h3>日本进球</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md</p><br>
-<h3>中国新一轮出口管制直指日本命脉</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md</p><br>
-<h3>庆祝中国共产党成立105周年大会将举行</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md</p><br>
-<h3>日本主帅：未能夺冠深感抱歉</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md</p><br>
-<h3>一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md</p><br>
-<h3>勇敢的心第二部</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md</p><br>
-<h3>超神人辉夜姬 第二集</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md</p><br>
-<h3>曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md</p><br>
+<h3>恋与深空道歉声明</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md</p><br>
+<h3>人民锐评网红诋毁袁隆平造谣企业家</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md</p><br>
+<h3>沉睡花园</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md</p><br>
+<h3>网红峡谷5人溺亡 有人提醒会下雨</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md</p><br>
+<h3>要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md</p><br>
+<h3>森保一致歉：我执教能力不足</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md</p><br>
+<h3>快递到家不能这样拆</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md</p><br>
+<h3>这种关系可能正在悄悄“催老”你</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md</p><br>
+<h3>恐怖世界 第三集 埃温霍姆村</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md</p><br>
+<h3>终于把好哥们处成了情侣!</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md</p><br>
+<h3>男子诋毁袁隆平科研成果被刑拘</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md</p><br>
+<h3>起风了</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md</p><br>
+<h3>FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md</p><br>
+<h3>穆祉丞回应获年度人气艺人</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md</p><br>
+<h3>日本足球是如何崛起的</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md</p><br>

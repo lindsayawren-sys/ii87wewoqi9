@@ -1,48 +1,40 @@
-<h1>对53个非洲建交国全面实施零关税 湖南首票享惠货物通关</h1><br>
+<h1>链通全球 | 中国进出口银行应邀参加第四届中国国际供应链促进博览会</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新网长沙5月1日电 (林俊 王晖)5月1日起，中国对所有非洲建交国全面实施零关税。当天上午，湖南达言信息科技有限公司向长沙黄花机场海关申报了6000余瓶产自南非的葡萄酒，根据新生效的关税举措，该批葡萄酒可以享受到2.1万元的税款减让。这是举措生效后，湖南省首票享惠的进口非洲货物。该批货物已顺利在黄花综保区通关。 公司董事长张鑫表示，进口南非葡萄酒此前的税率是14%，零关税实施</p><br>
+<p>来源：中国进出口银行 6月22日，第四届中国国际供应链促进博览会开幕式在北京中国国际展览中心举行。中国进出口银行行长王春英应邀出席开幕式。 长期以来，中国进出口银行深耕产业链供应链建设，围绕外经贸发展和跨境投资，共建“一带一路”，国际产能和装备制造合作，科技、文化以及中小企业“走出去”和开放型经济建设等重点领域，持续创新多元化金融产品、打造一体化综合金融服务，助力深化全球产业链</p><br>
 <h2>正文</h2><br>
-<p>中新网长沙5月1日电 (林俊 王晖)5月1日起，中国对所有非洲建交国全面实施零关税。</p><br>
-<p>当天上午，湖南达言信息科技有限公司向长沙黄花机场海关申报了6000余瓶产自南非的葡萄酒，根据新生效的关税举措，该批葡萄酒可以享受到2.1万元的税款减让。</p><br>
-<p>这是举措生效后，湖南省首票享惠的进口非洲货物。</p><br>
-<p>该批货物已顺利在黄花综保区通关。</p><br>
-<p>公司董事长张鑫表示，进口南非葡萄酒此前的税率是14%，零关税实施后，公司全年成本可下降约500万元，相应的非洲进口产品零售价格也会下降，使国内消费者受益。</p><br>
-<p>目前，中国市场已成为南非甜型葡萄酒最重要的增量市场，公司将充分借助政策红利，逐步引入更多品类、价位的南非葡萄酒，满足不同消费需求。</p><br>
-<p>湖南是全国地方对非经贸合作最为活跃的省份之一，拥有中非经贸博览会和中非经贸深度合作先行区两大国家级平台。</p><br>
-<p>自2024年12月1日起，中国已给予33个建交的非洲最不发达国家100%税目产品零关税待遇。</p><br>
+<p>来源：中国进出口银行 6月22日，第四届中国国际供应链促进博览会开幕式在北京中国国际展览中心举行。</p><br>
+<p>中国进出口银行行长王春英应邀出席开幕式。</p><br>
+<p>长期以来，中国进出口银行深耕产业链供应链建设，围绕外经贸发展和跨境投资，共建“一带一路”，国际产能和装备制造合作，科技、文化以及中小企业“走出去”和开放型经济建设等重点领域，持续创新多元化金融产品、打造一体化综合金融服务，助力深化全球产业链供应链合作，为构建开放型世界经济贡献力量。</p><br>
+<p>作为全球首个以供应链为主题的国家级展会，本届链博会持续秉持“链接世界、共创未来”主题，以产业链协同为主线、以科技创新为引擎，持续搭建全球产业链供应链融通合作、互利共赢的专业化平台。</p><br>
+<p>责任编辑：秦艺</p><br>
 <h2>相关推荐</h2><br>
-<h3>全球芯片巨头史诗级扩产</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md</p><br>
-<h3>美媒：美军第五舰队司令部已无法使用</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md</p><br>
-<h3>人民锐评网红诋毁袁隆平造谣企业家</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md</p><br>
-<h3>被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md</p><br>
-<h3>⚡逼尔摩斯教你玩球⚡</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md</p><br>
-<h3>法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md</p><br>
-<h3>荷兰vs摩洛哥</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md</p><br>
-<h3>发明linux、python、redis、nginx、sqlite的人算不算天才？</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md</p><br>
-<h3>低智商犯罪三江口团建来了</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md</p><br>
-<h3>赵今麦因“瘦而不柴”的体态出圈</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md</p><br>
-<h3>日本将帅赛后采访纷纷哽咽落泪</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md</p><br>
-<h3>81岁老人被男子买光菜回家车祸去世</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md</p><br>
-<h3>【大鸣王潮1566】真拿你没办法</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md</p><br>
-<h3>德国爆冷点球大战不敌巴拉圭</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md</p><br>
-<h3>女子发现孩子非现任亲生状告前任索赔</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md</p><br>
+<h3>本届世界杯已有5名球员被控强奸</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md</p><br>
+<h3>王健林甩卖超80座万达广场</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md</p><br>
+<h3>德国巴拉圭 折磨</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md</p><br>
+<h3>金牌调解</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md</p><br>
+<h3>81岁老人被男子买光菜回家车祸去世</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md</p><br>
+<h3>有哪些值得一提的生活窍门？</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md</p><br>
+<h3>81岁老人被男子买光菜回家车祸去世</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md</p><br>
+<h3>湖北云南的这些涉汛信息都是假的</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md</p><br>
+<h3>你人生中最艰难的时候是怎么熬过来的？</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md</p><br>
+<h3>德国 传控</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>王楚钦孙颖莎vs皮斯特耶库库洛娃</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md</p><br>
-<h3>张月收到黄灿灿辣货两眼发光</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md</p><br>
-<h3>《恋与深空》被指触碰民族伤痛红线</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md</p><br>
-<h3>詹姆斯 勇士</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md</p><br>
-<h3>《贺子珍》</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md</p><br>
-<h3>古代人对纳妾的态度是什么样的？</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md</p><br>
-<h3>韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md</p><br>
-<h3>发明linux、python、redis、nginx、sqlite的人算不算天才？</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md</p><br>
-<h3>日本球迷被强行披上巴西国旗</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md</p><br>
-<h3>贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md</p><br>
-<h3>中方对白俄罗斯平民伤亡表示关切</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md</p><br>
-<h3>全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md</p><br>
-<h3>「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md</p><br>
-<h3>蜘蛛侠:英雄归来</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md</p><br>
-<h3>女子发现孩子非现任亲生状告前任索赔</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md</p><br>
+<h3>日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md</p><br>
+<h3>2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md</p><br>
+<h3>网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md</p><br>
+<h3>老两口离世前捐500万救助455个孩子</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md</p><br>
+<h3>王曼昱被突如其来的话筒逗笑了</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md</p><br>
+<h3>日本队5进世界杯淘汰赛0胜</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md</p><br>
+<h3>浪姐成团夜爆笑吐槽</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md</p><br>
+<h3>张雪的一句“是我们”引发岛内热议</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md</p><br>
+<h3>网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md</p><br>
+<h3>日本五次世界杯淘汰赛全败</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md</p><br>
+<h3>外国游客开始涌入中国农村</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md</p><br>
+<h3>为什么香港的冲厕水是咸的？</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md</p><br>
+<h3>爆冷出局！德国点球大战不敌巴拉圭</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md</p><br>
+<h3>森保一致歉：我执教能力不足</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md</p><br>
+<h3>租房时你会更看重「住得舒服」，还是「每天通勤更方便」？</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md</p><br>

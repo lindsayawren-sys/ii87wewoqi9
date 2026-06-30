@@ -1,46 +1,48 @@
-<h1>深度伪造的“虚拟”沃伦·巴菲特开启伯克希尔年度股东大会问答环节</h1><br>
+<h1>加息也不怕？美联储“新政”或难阻牛市脚步！</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>专题：巴菲特2026年股东大会重磅来袭 在伯克希尔哈撒韦年度股东大会上，股东们意外上了一堂人工智能风险课——阿贝尔在问答环节开场时，屏幕上出现了一张看似熟悉的面孔。 场馆大屏幕上播放了一段视频：巴菲特身着西装，自我介绍后向阿贝尔提问，为何投资者应长期持有伯克希尔股票。 “嗨，我叫沃伦，来自奥马哈，”视频开场说道。“格雷格，我关注这家公司已经有一阵子了，很久很久了……我的问题很简</p><br>
+<p>来源：金十数据 沃什时代的美联储可能意味着一个更高波动、但更少干预的市场环境。虽然加息可能损害美联储的短期人气，但可能在长期巩固市场的信用基石。 美联储新任主席凯文·沃什正试图打破长期以来的“前瞻指引”传统。这位由特朗普选定的掌门人主张，美联储应当减少对市场的干预性喊话，转而让金融市场定价本身成为引导经济、利率及通胀预期的“风向标”。 长期以来，华尔街已经习惯了捕捉美联储官员的</p><br>
 <h2>正文</h2><br>
-<p>专题：巴菲特2026年股东大会重磅来袭 在伯克希尔哈撒韦年度股东大会上，股东们意外上了一堂人工智能风险课——阿贝尔在问答环节开场时，屏幕上出现了一张看似熟悉的面孔。</p><br>
-<p>场馆大屏幕上播放了一段视频：巴菲特身着西装，自我介绍后向阿贝尔提问，为何投资者应长期持有伯克希尔股票。</p><br>
-<p>“嗨，我叫沃伦，来自奥马哈，”视频开场说道。</p><br>
-<p>“格雷格，我关注这家公司已经有一阵子了，很久很久了……我的问题很简单。</p><br>
-<p>我95岁了，除了时间和樱桃可乐，我别无所求。</p><br>
-<p>我想知道，只是为了能跟我的股东伙伴们有个交代——他们为什么要长期持有伯克希尔的股票？</p><br>
-<p>” 阿贝尔随后透露，这段视频并非真实，而是利用 AI 生成的所谓“深度伪造”。</p><br>
-<p>他借此机会强调了网络风险。</p><br>
+<p>来源：金十数据 沃什时代的美联储可能意味着一个更高波动、但更少干预的市场环境。</p><br>
+<p>虽然加息可能损害美联储的短期人气，但可能在长期巩固市场的信用基石。</p><br>
+<p>美联储新任主席凯文·沃什正试图打破长期以来的“前瞻指引”传统。</p><br>
+<p>这位由特朗普选定的掌门人主张，美联储应当减少对市场的干预性喊话，转而让金融市场定价本身成为引导经济、利率及通胀预期的“风向标”。</p><br>
+<p>长期以来，华尔街已经习惯了捕捉美联储官员的字里行间，但沃什认为，过度沟通反而可能扭曲市场。</p><br>
+<p>SoFi首席市场策略师Liz Thomas指出，减少美联储的引导实际上是一件好事，因为所谓的“前瞻指引”往往只是基于预测的推测，且频繁失准。</p><br>
+<p>沃什在首次新闻发布会上重申了2%的通胀目标，但其核心观点发生了根本性偏移：他建议让市场定价在信号传递中占据主导地位。</p><br>
+<p>富国银行投资研究所高级全球策略师Scott Wren对此表示认同，他认为美联储往往具有滞后性，与其让联储领导市场，不如让其跟随市场，“我们的工作不是坐在那揣摩联储的措辞，而是对经济和通胀做出独立研判。</p><br>
 <h2>相关推荐</h2><br>
-<h3>“荒唐”背后的韩国足球</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md</p><br>
-<h3>马耳他著名拱门坍塌致中国男子身亡</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md</p><br>
-<h3>德国北部枪击事件致5死</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md</p><br>
-<h3>蔚来回应高压水枪洗车掉漆</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md</p><br>
-<h3>巴西替补奇兵读秒绝杀</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md</p><br>
-<h3>GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md</p><br>
-<h3>曝老詹对自由市场态度与以往截然不同</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md</p><br>
-<h3>《共患难》</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md</p><br>
-<h3>炽夏这一幕就这样馋我</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md</p><br>
-<h3>巴西绝杀</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md</p><br>
-<h3>森保一 可以退休了</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md</p><br>
-<h3>德国淘汰</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md</p><br>
-<h3>已经看完《三国第一部：争洛阳》的人，如何评价这部电影？</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md</p><br>
+<h3>“荒唐”背后的韩国足球</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md</p><br>
+<h3>怕iPhone涨价的用户已紧急换新</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md</p><br>
+<h3>一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md</p><br>
+<h3>《贺子珍》</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md</p><br>
+<h3>国务院：稳步推进研究生考试招生改革</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md</p><br>
+<h3>蜘蛛侠:英雄归来</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md</p><br>
+<h3>有哪些值得一提的生活窍门？</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md</p><br>
+<h3>四川凉山落石砸毁车辆 3人遇难</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md</p><br>
+<h3>白玉兰获奖作品《生命树》背后</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md</p><br>
+<h3>韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md</p><br>
+<h3>如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md</p><br>
+<h3>宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md</p><br>
+<h3>《我落泪情绪零碎》</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md</p><br>
+<h3>小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md</p><br>
+<h3>美团、淘宝闪购、京东外卖达成共识</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>为什么香港的冲厕水是咸的？</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md</p><br>
-<h3>德国队世界杯点球大战首败</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md</p><br>
-<h3>有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md</p><br>
-<h3>一切民族英雄都是中华民族的脊梁</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md</p><br>
-<h3>【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md</p><br>
-<h3>iPhone18e曝光</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md</p><br>
-<h3>记者：詹姆斯并没有寻求重返热火迹象</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md</p><br>
-<h3>2021湖南卫视跨年演唱会</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md</p><br>
-<h3>阿娇瘦了10斤</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md</p><br>
-<h3>第3集丨“柠檬茶能换怀表？”</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md</p><br>
-<h3>陈露发视频求和解遭拒</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md</p><br>
-<h3>巴西2-1绝杀日本</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md</p><br>
-<h3>宜宾地震食客避难后折返 无人逃单</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md</p><br>
-<h3>你人生中最艰难的时候是怎么熬过来的？</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md</p><br>
-<h3>我们看到的星星是不是有些已经不存在了？</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md</p><br>
+<h3>千与千寻</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md</p><br>
+<h3>为什么会有「念旧」的心理？</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md</p><br>
+<h3>黄健翔：说巴西差的忘了日本7-0我们</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md</p><br>
+<h3>疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md</p><br>
+<h3>曝娱乐圈大部分明星失业</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md</p><br>
+<h3>卢卡申科发布解放军仪仗队视频</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md</p><br>
+<h3>王楚钦孙颖莎vs皮斯特耶库库洛娃</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md</p><br>
+<h3>人民锐评网红诋毁袁隆平造谣企业家</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md</p><br>
+<h3>如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md</p><br>
+<h3>斗破苍穹</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md</p><br>
+<h3>巴西替补奇兵读秒绝杀</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md</p><br>
+<h3>博世们还在犹豫 美的们已经卖断货</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md</p><br>
+<h3>又一家县级医院关停门诊输液大厅</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md</p><br>
+<h3>媒体：手机测评该挤挤水分了</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md</p><br>
+<h3>乔家的儿女</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md</p><br>

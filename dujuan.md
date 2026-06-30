@@ -1,45 +1,47 @@
-<h1>“五一”假期 游客在上海千古情景区品味海派文化</h1><br>
+<h1>深化改革激发内生动力 包神铁路赋能高质量发展</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>日均花费超千元 年轻人流行放假去酒店“运动度假”净移民近百年来首现负值，美国人为何“用脚投票”逃离美国？这里藏过刘邦，也藏着白居易22年的青春……云南边境的目瑙纵歌，何以火爆全网？上午议事、下午狂欢，篝火迎春、魔女之夜……世界各国的“劳动节”太不一样了！孩子吃饭少、长不高、脾气暴？专家：警惕这种罕见病专访台退役少校舰长吕礼诗：绝不因台当局打压而妥协沉默当中国大市场以零关税向非洲</p><br>
+<p>仲夏六月，路网横跨晋陕蒙三省区的包神铁路集团其主干线神朔铁路将迎来开通30周年。这条始建于1986年，1989年正式运营的能源大动脉，三十载风雨兼程，累计运量突破数十亿吨，是国家能源集团一体化运营链条中至关重要的核心枢纽。站在“十四五”收官、“十五五”开局的重要节点，公司深入贯彻落实党中央关于国有企业改革深化提升行动的重要部署，聚焦企业治理体系现代化、市场化经营机制、精益管理与</p><br>
 <h2>正文</h2><br>
-<p>日均花费超千元 年轻人流行放假去酒店“运动度假”净移民近百年来首现负值，美国人为何“用脚投票”逃离美国？</p><br>
-<p>这里藏过刘邦，也藏着白居易22年的青春……云南边境的目瑙纵歌，何以火爆全网？</p><br>
-<p>上午议事、下午狂欢，篝火迎春、魔女之夜……世界各国的“劳动节”太不一样了！</p><br>
-<p>孩子吃饭少、长不高、脾气暴？</p><br>
-<p>专家：警惕这种罕见病专访台退役少校舰长吕礼诗：绝不因台当局打压而妥协沉默当中国大市场以零关税向非洲53国“敞开怀抱”绍兴黄酒“春藏”热 中外家庭“封藏”人生喜事百年冰泉豆浆香飘海内外：烟火乡愁 味引八方多家景区宣布免门票，这个五一，跟着电影去旅游！</p><br>
-<p>中国文学何以打动世界读者？</p><br>
-<p>凤何以成为中华民族文化标识？</p><br>
-<p>“王的盛宴”：从“No Kings”到“TWO KINGS”“王的演讲”：满堂笑声之后，查尔斯说了大家爱听的，唯独漏了英美必须听的记者手记：亚沙会，让世界从三亚看见开放中国AI末日论：真实风险还是叙事陷阱？</p><br>
+<p>仲夏六月，路网横跨晋陕蒙三省区的包神铁路集团其主干线神朔铁路将迎来开通30周年。</p><br>
+<p>这条始建于1986年，1989年正式运营的能源大动脉，三十载风雨兼程，累计运量突破数十亿吨，是国家能源集团一体化运营链条中至关重要的核心枢纽。</p><br>
+<p>站在“十四五”收官、“十五五”开局的重要节点，公司深入贯彻落实党中央关于国有企业改革深化提升行动的重要部署，聚焦企业治理体系现代化、市场化经营机制、精益管理与降本增效、产业协同与机制创新四大维度，系统推进改革攻坚，以改革破局激活企业发展“一池春水”。</p><br>
+<p>6月8日至12日，媒体参加包神铁路集团“‘十五五’开局暨神朔铁路开通30周年”主题采风活动，先后走进包神铁路集团总部，神朔铁路公司、包神铁路公司、机务分公司总部及沿线站区，围绕运输保供、安全管控、科技创新、深化改革、党建铸魂五大方向实地调研采访，零距离感受这家能源运输骨干企业因改革而焕发的新生气象。</p><br>
+<p>完善治理机制，筑牢现代企业制度根基 包神铁路集团坚持“两个一以贯之”，把加强党的领导与完善公司治理统一起来，系统优化“三重一大”决策机制，精准厘清党委会、董事会、经理层权责边界，加大董事会对经理层授权力度，建立健全总经理向董事会报告机制。</p><br>
+<p>通过制定决策事项清单、设立战略与投资、薪酬与考核、审计与风险等董事会专门委员会，构建起“权责法定、权责透明、协调运转、有效制衡”的治理格局，改革成效连续三年在国务院国资委“双百行动”改革成效评价中获评“标杆”。</p><br>
+<p>包神铁路集团相关部门负责人介绍：“国企改革深化提升行动不是简单地做加减法，而是要解决深层次体制机制问题。</p><br>
+<p>包神铁路集团作为国家能源集团唯一入选‘双百行动’的二级企业，我们始终把完善中国特色现代企业制度作为改革的‘先手棋’——党的领导融入公司治理各环节，董事会应建尽建、外部董事占多数，经理层全面实行任期制和契约化管理。</p><br>
 <h2>相关推荐</h2><br>
-<h3>电影抓特务上映11天破亿</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md</p><br>
-<h3>庆祝建党105周年特别节目</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md</p><br>
-<h3>速度与激情9</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md</p><br>
-<h3>iPhoneUltra黑色机模</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md</p><br>
-<h3>啊啊啊</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md</p><br>
-<h3>啊啊啊</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md</p><br>
-<h3>美股</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md</p><br>
-<h3>穆祉丞回应获年度人气艺人</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md</p><br>
-<h3>郑钦文温网一轮游</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md</p><br>
-<h3>啥比桑吉尔夫排位练蓝防（最不抽象的一集）</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md</p><br>
-<h3>巴拉圭门将</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md</p><br>
-<h3>孙颖莎一锤定音的正手</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md</p><br>
+<h3>冲学校再转专业可行吗</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md</p><br>
+<h3>4000美元是黄金新一轮下跌的开始吗</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md</p><br>
+<h3>消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md</p><br>
+<h3>巴拉圭点球大战淘汰德国进16强</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md</p><br>
+<h3>国务院：稳步推进研究生考试招生改革</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md</p><br>
+<h3>国内最大沙漠发洪水意味着什么</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md</p><br>
+<h3>道友？你来真的啊？【凡人官方二创大会】</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md</p><br>
+<h3>如果有二次元高中是什么样子的？</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md</p><br>
+<h3>如何看待武亮说大学生生活费1500就够用这一言论？</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md</p><br>
+<h3>HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md</p><br>
+<h3>德国4比5巴拉圭</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md</p><br>
+<h3>啥比桑吉尔夫排位练蓝防（最不抽象的一集）</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md</p><br>
+<h3>领克900大型SUV值得购买吗?</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md</p><br>
+<h3>博世们还在犹豫 美的们已经卖断货</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>莫兰特被交易到开拓者</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md</p><br>
-<h3>男子在京东买到“同仁堂”假药</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md</p><br>
-<h3>男子造谣东鹏老板不喝自家饮料被拘</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md</p><br>
-<h3>承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md</p><br>
-<h3>庆祝中国共产党成立105周年大会将举行</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md</p><br>
-<h3>iPhone18e曝光</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md</p><br>
-<h3>欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md</p><br>
-<h3>《男人至死是傻得儿》</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md</p><br>
-<h3>德国罚丢3粒点球</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md</p><br>
-<h3>荷兰VS摩洛哥</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md</p><br>
-<h3>巴拉圭点球大战淘汰德国进16强</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md</p><br>
-<h3>韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md</p><br>
-<h3>解放军黄岩岛战备警巡 驱离菲方飞机</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md</p><br>
-<h3>极端热浪席卷欧洲多国，热一热百姓让领导先凉快？</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md</p><br>
-<h3>韩国道歉完日本道歉</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md</p><br>
+<h3>哪部作品、哪本书、哪首歌，值得被一直传下去？</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md</p><br>
+<h3>马耳他著名拱门坍塌致中国男子身亡</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md</p><br>
+<h3>我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md</p><br>
+<h3>hanser X 赖美云《室内系的Track Maker》</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md</p><br>
+<h3>日本足球是如何崛起的</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md</p><br>
+<h3>2021湖南卫视跨年演唱会</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md</p><br>
+<h3>爱很美味</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md</p><br>
+<h3>巴西足球能否再现昔日荣光</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md</p><br>
+<h3>欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md</p><br>
+<h3>怕iPhone涨价的用户已紧急换新</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md</p><br>
+<h3>第一次对自信的力量有了实感</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md</p><br>
+<h3>韩国道歉完日本道歉</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md</p><br>
+<h3>德国队回应爆冷淘汰</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md</p><br>
+<h3>现在叛逆期的孩子最怕的是什么？</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md</p><br>
+<h3>中方对白俄罗斯平民伤亡表示关切</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md</p><br>

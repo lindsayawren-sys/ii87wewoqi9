@@ -1,48 +1,43 @@
-<h1>亚马逊Audible李博隆：AI让研发成本和机会成本大大下降，越来越多科技公司开始做跨界</h1><br>
+<h1>（乡村行·看振兴）“00后”新农人玩转短视频 助大荔冬枣闯出新销路</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>专题：对话奥马哈·第十一届中美投资人酒会 由新浪财经主办的“对话奥马哈·第十一届中美投资人酒会”于当地时间5月2日在美国内布拉斯加·奥马哈市举办。 亚马逊Audible资深副总裁、全球增长负责人李博隆通过三个小故事，分享企业在运营端、品牌端应对AI变化的调整与新方向。 第一个故事围绕Audible的全球化布局展开，Audible隶属于亚马逊文化娱乐板块，与Prime video</p><br>
+<p>中新网陕西渭南6月22日电 题：“00后”新农人玩转短视频 助大荔冬枣闯出新销路 作者 杨英琦 “天还没亮透，大棚里已经听见枣子掉下来的声音……(我)好像比去年更知道着急两字怎么写了。”短视频里，“00后”女孩张娇杨记录着自己与家人在冬枣园里忙碌的身影，黄白透亮的果实从她指尖经过，再被仔细打包进快递箱。“拍摄这些视频时我从来没想过，有一天我家的冬枣能‘飞’到那么多、那么远的地方</p><br>
 <h2>正文</h2><br>
-<p>专题：对话奥马哈·第十一届中美投资人酒会 由新浪财经主办的“对话奥马哈·第十一届中美投资人酒会”于当地时间5月2日在美国内布拉斯加·奥马哈市举办。</p><br>
-<p>亚马逊Audible资深副总裁、全球增长负责人李博隆通过三个小故事，分享企业在运营端、品牌端应对AI变化的调整与新方向。</p><br>
-<p>第一个故事围绕Audible的全球化布局展开，Audible隶属于亚马逊文化娱乐板块，与Prime video、Amazon Music等同属该板块，全球化是其核心发展方向。</p><br>
-<p>他回忆道：“Audible是10年前从美国起步的品牌，我们希望能够把这个品牌做到全球各个国家。</p><br>
-<p>”最初，Audible采用传统的“高举高打、重运营”的国家经理式模式，在英、德、日等发达国家建立分部、组建团队，10年间仅开拓了11、12个市场，远未达到进入全球200多个国家和地区的目标。</p><br>
-<p>为提速全球化进程，Audible两年前开始尝试新路径：“我们的一个尝试是着重于利用手机app作为平台，利用苹果和Google的分发渠道，因为他们已经在很多很多国家和市场有自己的app store。</p><br>
-<p>我们运用这个东西，在不改变现在所有的技术平台和内容、语言的前提下，不做任何非常深度、非常重的本地化的情况下，做一些非常轻量级的营销。</p><br>
-<p>” 这一尝试取得了良好效果，李博隆分享经验：“其实在做全球化的过程中，不是说一定要一下子就可以抓住到主流的所有人群，你可以先很快地用非常轻量级的方式进入到绝大部分的市场，抓住这些头部的early adopter，让他们能够尽量地给你提供数据，用这种数据再反馈到你下一步的动作里面，你成功的概率会非常非常高。</p><br>
+<p>中新网陕西渭南6月22日电 题：“00后”新农人玩转短视频 助大荔冬枣闯出新销路 作者 杨英琦 “天还没亮透，大棚里已经听见枣子掉下来的声音……(我)好像比去年更知道着急两字怎么写了。</p><br>
+<p>”短视频里，“00后”女孩张娇杨记录着自己与家人在冬枣园里忙碌的身影，黄白透亮的果实从她指尖经过，再被仔细打包进快递箱。</p><br>
+<p>“拍摄这些视频时我从来没想过，有一天我家的冬枣能‘飞’到那么多、那么远的地方去。</p><br>
+<p>” 在陕西大荔县朝邑镇新丰村的农家小院里，张娇杨一边核对手机订单，一边向中新网记者聊起自己的返乡经历。</p><br>
+<p>2024年，辞职返乡的她开始与父母共同经营爷爷生前放不下的枣园。</p><br>
+<p>“现在人人都玩手机刷视频，我就想，把自家的冬枣也拍成短视频发到网上试试，说不定能打开一条新路。</p><br>
+<p>” 大荔地处关中平原东部最开阔地带，光热资源丰富、昼夜温差大、黄河滩涂土壤肥沃，是冬枣生长的天然优生区。</p><br>
+<p>这里出产的冬枣以皮薄肉厚、酥脆甘甜著称。</p><br>
 <h2>相关推荐</h2><br>
-<h3>啊啊啊</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md</p><br>
-<h3>《贺子珍》</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md</p><br>
-<h3>好像看到了人类带孩子崩溃的样子</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md</p><br>
-<h3>曝老詹对自由市场态度与以往截然不同</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md</p><br>
-<h3>森保一 可以退休了</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md</p><br>
-<h3>咕嘎万能小摊1：沉浸式制作惠灵顿牛排</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md</p><br>
-<h3>2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md</p><br>
-<h3>日本主帅：未能夺冠深感抱歉</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md</p><br>
-<h3>网友写差评被店家“挂”门口避雷</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md</p><br>
-<h3>有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md</p><br>
-<h3>终于把好哥们处成了情侣!</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md</p><br>
-<h3>第3集丨“柠檬茶能换怀表？”</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md</p><br>
-<h3>如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md</p><br>
-<h3>解放军黄岩岛战备警巡 驱离菲方飞机</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md</p><br>
-<h3>如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md</p><br>
+<h3>极限挑战第一季</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md</p><br>
+<h3>德国队连续三届世界杯无缘16强</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md</p><br>
+<h3>深扒韩国队淘汰背后原因</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md</p><br>
+<h3>日本队主帅道歉</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md</p><br>
+<h3>HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md</p><br>
+<h3>有什么好的高中网课推荐吗？</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md</p><br>
+<h3>欧盟分楼层开空调惹争议</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md</p><br>
+<h3>当我知道豆包有后台审核人员</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md</p><br>
+<h3>郑钦文温网首轮出局</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md</p><br>
+<h3>四川凉山落石砸毁车辆 3人遇难</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>男子中医院拔火罐致浅2度烧伤</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md</p><br>
-<h3>如何看待现在有学者用AI做数学科研？</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md</p><br>
-<h3>papi酱已退出papitube关联公司</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md</p><br>
-<h3>一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md</p><br>
-<h3>追梦拒绝2770万美元球员选项</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md</p><br>
-<h3>梅德韦杰夫列举俄罗斯面临的七大挑战</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md</p><br>
-<h3>张碧晨一开口梦回逐玉</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md</p><br>
-<h3>郑钦文温网三连败西尼亚科娃</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md</p><br>
-<h3>如何把斧兵改造成精英怪？提高攻速移速！！！</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md</p><br>
-<h3>“柠檬茶能换怀表？”</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md</p><br>
-<h3>为什么纣王似乎对周文王的扩张完全无动于衷？</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md</p><br>
-<h3>2021江苏卫视跨年演唱会</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md</p><br>
-<h3>7月1日起 一批新规即将落地</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md</p><br>
-<h3>请回答王牌2019</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md</p><br>
-<h3>收到补税提醒尽快办理 明起有滞纳金</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md</p><br>
+<h3>日耳曼拖拉机</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md</p><br>
+<h3>日本球迷被强行披上巴西国旗</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md</p><br>
+<h3>毒液2</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md</p><br>
+<h3>委内瑞拉地震死亡人数升至1719人</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md</p><br>
+<h3>《贺子珍》</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md</p><br>
+<h3>全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md</p><br>
+<h3>孙兴慜发长文致歉</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md</p><br>
+<h3>内马尔替补</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md</p><br>
+<h3>花少8要去世界杯举办国</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md</p><br>
+<h3>日本足球是如何崛起的</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md</p><br>
+<h3>超神人辉夜姬 第二集</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md</p><br>
+<h3>女子发现孩子非现任亲生状告前任索赔</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md</p><br>
+<h3>“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md</p><br>
+<h3>最高法出台涉建筑市场最新司法解释</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md</p><br>
+<h3>索马里女大使：想和中国一起搞事业</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md</p><br>

@@ -1,47 +1,44 @@
-<h1>沉浸式戏剧《长沙》首演 湖南探索“演艺+”赋能文旅融合</h1><br>
+<h1>和誉-B盘初涨逾4% 附属和誉医药与礼来深化研发合作</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新网长沙5月2日电 (记者 邓霞)5月1日，位于湖南湘江新区后湖设计创意园的“后湖·戏码头”演艺新空间启幕，其开幕作品——全景沉浸式互动街区戏剧《长沙》当晚首演。 “后湖·戏码头”项目是湖南省演艺集团旗下湖南省话剧院积极响应省市关于打造“演艺名城”、利用存量空间建设新型文化业态号召的重点示范工程。项目通过对原有闲置空间的创意改造，打造了一个集演出、体验、交流于一体的复合型演艺</p><br>
+<p>和誉-B（02256）早盘高开逾4%，截至发稿，股价上涨2.56%，现报9.23港元，成交额261.15万港元。 6月24日，和誉-B发布公告，公司的附属公司上海和誉生物医药科技有限公司（和誉医药）宣布，公司已与全球领先制药企业Eli Lilly and Company（礼来）签署战略研究合作及授权协议。根据该协议，双方将围绕多个疾病靶点开展创新药研发合作，共同推进具有全球潜力</p><br>
 <h2>正文</h2><br>
-<p>中新网长沙5月2日电 (记者 邓霞)5月1日，位于湖南湘江新区后湖设计创意园的“后湖·戏码头”演艺新空间启幕，其开幕作品——全景沉浸式互动街区戏剧《长沙》当晚首演。</p><br>
-<p>“后湖·戏码头”项目是湖南省演艺集团旗下湖南省话剧院积极响应省市关于打造“演艺名城”、利用存量空间建设新型文化业态号召的重点示范工程。</p><br>
-<p>项目通过对原有闲置空间的创意改造，打造了一个集演出、体验、交流于一体的复合型演艺新空间。</p><br>
-<p>作为空间的首发核心内容，《长沙》摒弃了传统镜框式舞台，将整个场馆构建为充满烟火气的20世纪90年代长沙老街巷，筒子楼、米粉店、小卖部、歌舞厅等场景共存在同一空间。</p><br>
-<p>观众踏入剧场即“入戏”，成为穿梭于筒子楼、小卖部间的“老街坊”，在零距离互动中亲历两代人的情感纠葛与“仰不愧天”的价值传承。</p><br>
-<p>该剧由湖南省话剧院出品，围绕司徒展鸿、叶语、刘建军三个20世纪90年代大学生，大学毕业后在长沙老街租房创业的故事展开。</p><br>
-<p>房东胡大姐霸气外露、其儿子胡闹人如其名、警察老王老实憨厚、老王的女儿小红……一张张鲜活的面孔，一件件动人的往事，带观众回味长沙城变迁中的牵挂与烟火。</p><br>
-<p>据悉，该剧5月1日至5日连续演出5天，后续将作为“后湖·戏码头”的驻场剧目每周五、六、日演出。</p><br>
+<p>和誉-B（02256）早盘高开逾4%，截至发稿，股价上涨2.56%，现报9.23港元，成交额261.15万港元。</p><br>
+<p>6月24日，和誉-B发布公告，公司的附属公司上海和誉生物医药科技有限公司（和誉医药）宣布，公司已与全球领先制药企业Eli Lilly and Company（礼来）签署战略研究合作及授权协议。</p><br>
+<p>根据该协议，双方将围绕多个疾病靶点开展创新药研发合作，共同推进具有全球潜力的新型候选药物。</p><br>
+<p>根据该协议条款，和誉医药将依托其早期药物发现平台、创新研发体系及丰富的开发经验，围绕礼来选定的疾病靶点开展新药项目的发现与早期开发活动。</p><br>
+<p>和誉医药将获得首付款，并有资格在后续达成开发、监管及商业化相关里程碑后获得进一步付款，潜在总金额达19亿美元。</p><br>
+<p>此外，和誉医药还将有权根据此次合作产生的产品年度净销售额获得阶梯式销售分成。</p><br>
+<p>责任编辑：卢昱君</p><br>
 <h2>相关推荐</h2><br>
-<h3>教育部披露：高考生篡改7名同学志愿</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md</p><br>
-<h3>为什么香港的冲厕水是咸的？</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md</p><br>
-<h3>发明linux、python、redis、nginx、sqlite的人算不算天才？</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md</p><br>
-<h3>男子P图现任妻子照片冒充前妻</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md</p><br>
-<h3>央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md</p><br>
-<h3>领克900大型SUV值得购买吗?</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md</p><br>
-<h3>全新问界M9现身美国街头</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md</p><br>
-<h3>为什么很多企业推行“扁平化管理”后，效率反而下降了？</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md</p><br>
-<h3>巴西替补奇兵读秒绝杀</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md</p><br>
-<h3>德国主帅称无法理解加时进球被吹</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md</p><br>
-<h3>如何看待 NBA2026 年休赛期，媒体称勇士正试图同时获得詹姆斯和浓眉？这可能实现吗？</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md</p><br>
-<h3>“荒唐”背后的韩国足球</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md</p><br>
-<h3>我们看到的星星是不是有些已经不存在了？</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md</p><br>
-<h3>杨紫大银幕成绩单</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md</p><br>
+<h3>被巴西绝杀后 日球员田中碧跪地痛哭</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md</p><br>
+<h3>为什么香港的冲厕水是咸的？</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md</p><br>
+<h3>领克07GT搭载超跑同源MRC悬架</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md</p><br>
+<h3>德国主帅：输球说明我们够不上顶级</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md</p><br>
+<h3>韩国球迷凌晨4点接机怒骂主教练</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md</p><br>
+<h3>啥比桑吉尔夫排位练蓝防（最不抽象的一集）</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md</p><br>
+<h3>欧洲民众抢购空调降温</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md</p><br>
+<h3>租房时你会更看重「住得舒服」，还是「每天通勤更方便」？</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md</p><br>
+<h3>人类...完蛋了...</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md</p><br>
+<h3>日本足球是如何崛起的</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md</p><br>
+<h3>木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md</p><br>
+<h3>如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>快递到家不能这样拆</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md</p><br>
-<h3>杨紫学位证上就是杨紫</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md</p><br>
-<h3>中国对日本再出重拳</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md</p><br>
-<h3>扫黑风暴</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md</p><br>
-<h3>领克07GT搭载超跑同源MRC悬架</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md</p><br>
-<h3>豆包收费了，你还会用吗？</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md</p><br>
-<h3>德国北部枪击事件致5死</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md</p><br>
-<h3>HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md</p><br>
-<h3>高考结束了，你会让孩子在家玩手机吗？</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md</p><br>
-<h3>索马里女大使：想和中国一起搞事业</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md</p><br>
-<h3>想问一下学日语的大佬，自学日语要怎么学？</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md</p><br>
-<h3>任素汐舞台上唱《王招君》</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md</p><br>
-<h3>阿根廷vs佛得角预测</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md</p><br>
-<h3>美团、淘宝闪购、京东外卖达成共识</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md</p><br>
-<h3>德国巴拉圭 折磨</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md</p><br>
+<h3>发明linux、python、redis、nginx、sqlite的人算不算天才？</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md</p><br>
+<h3>美股收盘 热门中概股普涨</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md</p><br>
+<h3>穆祉丞回应获年度人气艺人</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md</p><br>
+<h3>外国人第一次来中国旅游是怎样的体验？</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md</p><br>
+<h3>白玉兰获奖作品《生命树》背后</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md</p><br>
+<h3>租房时你会更看重「住得舒服」，还是「每天通勤更方便」？</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md</p><br>
+<h3>“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md</p><br>
+<h3>终于把好哥们处成了情侣!</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md</p><br>
+<h3>怕iPhone涨价的用户已紧急换新</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md</p><br>
+<h3>MSI应援曲 如果季中成回忆</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md</p><br>
+<h3>电影抓特务上映11天破亿</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md</p><br>
+<h3>欧洲民众抢购空调降温</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md</p><br>
+<h3>小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md</p><br>
+<h3>啊啊啊</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md</p><br>
+<h3>库尼亚赛后伸五指嘲讽日本</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md</p><br>

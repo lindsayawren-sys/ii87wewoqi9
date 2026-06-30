@@ -1,46 +1,44 @@
-<h1>全美自动驾驶出租车行业迎来爆发式增长</h1><br>
+<h1>官方报告：2025年中央决算情况总体较好，符合预算法规定</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>谷歌旗下 Waymo、特斯拉及其他五家无人驾驶出租车企业，正争相在美国数十座城市落地运营服务 内容速览 自动驾驶出租车正在美国各大城市快速扩张；摩根士丹利预估，三年内全美半数人口将可使用自动驾驶网约车服务。 历经近十年的热度炒作、行业遇冷再到再度回暖，自动驾驶出租车如今开始在美国越来越多的城市上路运营。 目前，Waymo、特斯拉、Zoox 以及一众知名度较低的无人驾驶企业，已在</p><br>
+<p>中新网北京6月23日电 (记者 谢雁冰 曾玥)《第十四届全国人民代表大会财政经济委员会关于2025年中央决算草案审查结果的报告》23日提请十四届全国人大常委会第二十三次会议审议。报告指出，2025年中央决算情况总体较好，符合预算法规定。根据报告，全国人大财政经济委员会认为，2025年，面对国内外形势深刻复杂变化，国务院及其财政等部门实施更加积极的财政政策，不断提高财政科学管理水</p><br>
 <h2>正文</h2><br>
-<p>谷歌旗下 Waymo、特斯拉及其他五家无人驾驶出租车企业，正争相在美国数十座城市落地运营服务 内容速览 自动驾驶出租车正在美国各大城市快速扩张；摩根士丹利预估，三年内全美半数人口将可使用自动驾驶网约车服务。</p><br>
-<p>历经近十年的热度炒作、行业遇冷再到再度回暖，自动驾驶出租车如今开始在美国越来越多的城市上路运营。</p><br>
-<p>目前，Waymo、特斯拉、Zoox 以及一众知名度较低的无人驾驶企业，已在加州、得克萨斯州及多个其他州的街头投入自动驾驶车辆运行。</p><br>
-<p>2010 年代行业热潮催生了数十家备受追捧的初创企业，纷纷宣称将颠覆私人购车模式。</p><br>
-<p>但自动驾驶技术研发成本高昂、复杂城区路况的自动驾驶技术难题、以及严苛的监管环境，导致大量初创公司倒闭。</p><br>
-<p>多起重大安全事故，也让无人驾驶车辆的安全性受到愈发严格的审视。</p><br>
-<p>摩根士丹利预测，未来三年内，约半数美国民众将能够使用自动驾驶出租车服务。</p><br>
-<p>机构估算，美国自动驾驶出行订单将迎来快速增长：2025 年约 1500 万单，今年将增至约 3600 万单；到 2030 年，出行规模预计将接近7.5 亿单。</p><br>
+<p>中新网北京6月23日电 (记者 谢雁冰 曾玥)《第十四届全国人民代表大会财政经济委员会关于2025年中央决算草案审查结果的报告》23日提请十四届全国人大常委会第二十三次会议审议。</p><br>
+<p>报告指出，2025年中央决算情况总体较好，符合预算法规定。</p><br>
+<p>根据报告，全国人大财政经济委员会认为，2025年，面对国内外形势深刻复杂变化，国务院及其财政等部门实施更加积极的财政政策，不断提高财政科学管理水平，推动经济向新向优发展，全年经济社会发展主要目标任务顺利完成，“十四五”圆满收官，中国式现代化迈出新的坚实步伐。</p><br>
+<p>全国人大财政经济委员会认为，2025年中央决算情况总体较好，符合预算法规定。</p><br>
+<p>建议全国人大常委会批准国务院提出的2025年中央决算草案，有关地方和部门要高度重视审计查出的问题和提出的建议，认真扎实做好整改工作。</p><br>
+<p>为进一步做好财政预算和审计监督工作，全国人大财政经济委员会提出意见建议，包括：不断加强财政科学管理，强化政府投资项目和资金管理，改进完善转移支付管理，持续加强预算绩效管理，着力加强预算、资产、债务管理统筹衔接，加强审计监督和审计查出问题整改。</p><br>
+<p>在不断加强财政科学管理方面，报告提出，依法组织收入，既要应收尽收，也要坚决防止征收“过头税费”。</p><br>
+<p>进一步规范预算执行中的调剂、上划下划等行为，加强对预算执行变动情况的跟踪分析和监管。</p><br>
 <h2>相关推荐</h2><br>
-<h3>男子在非洲务工死亡 公司不认可工亡</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md</p><br>
-<h3>这种关系可能正在悄悄“催老”你</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md</p><br>
-<h3>张雪的一句“是我们”引发岛内热议</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md</p><br>
-<h3>男子中医院拔火罐致浅2度烧伤</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md</p><br>
-<h3>怕iPhone涨价的用户已紧急换新</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md</p><br>
-<h3>张雪的一句“是我们”引发岛内热议</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md</p><br>
-<h3>德国连续三届世界杯无缘16强</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md</p><br>
-<h3>球评巴西绝杀逆转日本</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md</p><br>
-<h3>“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md</p><br>
-<h3>泰山建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md</p><br>
-<h3>亚洲球队全部告别世界杯</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md</p><br>
-<h3>恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md</p><br>
-<h3>明星大侦探第一季</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md</p><br>
+<h3>领克07GT搭载超跑同源MRC悬架</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md</p><br>
+<h3>有哪些被认为是现代才有的东西其实古代就有了？</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md</p><br>
+<h3>2021江苏卫视跨年演唱会</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md</p><br>
+<h3>如何看待德国队连续三届世界杯稳定 32 强？</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md</p><br>
+<h3>日本主帅：未能夺冠深感抱歉</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md</p><br>
+<h3>内马尔中场休息积极鼓励队友</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md</p><br>
+<h3>荀彧和曹操反目成仇的根本原因是什么？</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md</p><br>
+<h3>张雪的一句“是我们”引发岛内热议</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md</p><br>
+<h3>网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md</p><br>
+<h3>曝娱乐圈大部分明星失业</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md</p><br>
+<h3>酒店推行“24小时退房”引热议</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>日本博主：日本足球真的垃圾</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md</p><br>
-<h3>2026年WTT美国大满贯，国乒自带球桌是真实的吗？</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md</p><br>
-<h3>莫兰特被交易到开拓者</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md</p><br>
-<h3>梅德韦杰夫列举俄罗斯面临的七大挑战</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md</p><br>
-<h3>巴西绝杀</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md</p><br>
-<h3>女子用家人生日买彩票中1032万</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md</p><br>
-<h3>终于把好哥们处成了情侣!</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md</p><br>
-<h3>欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md</p><br>
-<h3>马耳他著名拱门坍塌致中国男子身亡</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md</p><br>
-<h3>"超算小姐，这一次，我一定要带你出去..."</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md</p><br>
-<h3>王楚钦孙颖莎vs皮斯特耶库库洛娃</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md</p><br>
-<h3>王楚钦孙颖莎晋级混双八强</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md</p><br>
-<h3>为什么香港的冲厕水是咸的？</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md</p><br>
-<h3>明星大侦探第四季</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md</p><br>
-<h3>你对《崩坏：星穹铁道》4.4版本「鸣笛于归寂之时」前瞻特别节目有什么期待？</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md</p><br>
+<h3>欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md</p><br>
+<h3>“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md</p><br>
+<h3>道友？你来真的啊？【凡人官方二创大会】</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md</p><br>
+<h3>世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md</p><br>
+<h3>商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md</p><br>
+<h3>德国巴拉圭加时</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md</p><br>
+<h3>蜘蛛侠:英雄归来</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md</p><br>
+<h3>网瘾賊大的阿嬷</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md</p><br>
+<h3>小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md</p><br>
+<h3>荷兰VS摩洛哥</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md</p><br>
+<h3>网瘾賊大的阿嬷</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md</p><br>
+<h3>未来五年，教育强国这样建设</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md</p><br>
+<h3>《男人至死是傻得儿》</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md</p><br>
+<h3>速度与激情9</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md</p><br>
+<h3>曝娱乐圈大部分明星失业</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md</p><br>

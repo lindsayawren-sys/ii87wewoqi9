@@ -1,48 +1,46 @@
-<h1>Spirit为停业做准备 特朗普称政府已经提出最终版救助方案</h1><br>
+<h1>软银孙正义不看好马斯克太空数据中心 称AI竞赛决胜关键在地面算力</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>美国总统唐纳德·特朗普表示，他已提出一项救助 Spirit Aviation Holdings Inc．的最终方案，但只有在对美国政府有利的情况下才会推进。这一表态令该低成本航空公司的纾困前景被蒙上阴影，其正开始为停业做准备。 此前报道，受近期燃料成本飙升冲击，Spirit一直在与美国政府就融资问题进行谈判，但这些磋商在最近几天陷入僵局。与此同时，据不愿具名的知情人士透露，Sp</p><br>
+<p>软银集团创始人孙正义表示，埃隆・马斯克主推的太空数据中心方案价值有限，人工智能赛道的竞争胜负将由地面算力决定。 周二，孙正义在软银移动业务年度股东大会上谈及，建设太空数据中心的核心优势看似是大幅削减电力成本，但电费仅占数据中心运营总成本的极小部分，芯片等硬件才是主要开支。他补充道，即便能省下电费，也要承担高昂的物资太空运输费、维护成本，还会存在通信延迟问题，得不偿失。 现场有软</p><br>
 <h2>正文</h2><br>
-<p>美国总统唐纳德·特朗普表示，他已提出一项救助 Spirit Aviation Holdings Inc．的最终方案，但只有在对美国政府有利的情况下才会推进。</p><br>
-<p>这一表态令该低成本航空公司的纾困前景被蒙上阴影，其正开始为停业做准备。</p><br>
-<p>此前报道，受近期燃料成本飙升冲击，Spirit一直在与美国政府就融资问题进行谈判，但这些磋商在最近几天陷入僵局。</p><br>
-<p>与此同时，据不愿具名的知情人士透露，Spirit Aviation的现金正在迅速耗尽。</p><br>
-<p>知情人士表示，随着流动性状况恶化、获得救助的前景趋于渺茫，Spirit正在为业务收缩做准备。</p><br>
-<p>一些知情人士称，该公司已开始通知部分债权人，如果没有政府救助，最快可能周六上午暂停运营。</p><br>
-<p>特朗普周五在白宫对记者表示：“如果可以做到，我们会这么做，但前提是这是一笔好交易。</p><br>
-<p>”他还称，政府可能在周五或周六就此事发布公告，但未提供更多细节。</p><br>
+<p>软银集团创始人孙正义表示，埃隆・马斯克主推的太空数据中心方案价值有限，人工智能赛道的竞争胜负将由地面算力决定。</p><br>
+<p>周二，孙正义在软银移动业务年度股东大会上谈及，建设太空数据中心的核心优势看似是大幅削减电力成本，但电费仅占数据中心运营总成本的极小部分，芯片等硬件才是主要开支。</p><br>
+<p>他补充道，即便能省下电费，也要承担高昂的物资太空运输费、维护成本，还会存在通信延迟问题，得不偿失。</p><br>
+<p>现场有软银股东提问，询问这家日本企业是否会效仿特斯拉CEO这套宏大构想。</p><br>
+<p>孙正义回应：“未来数年的AI角逐，远比十年后的远景布局更关键。</p><br>
+<p>”软银将专注打造规模庞大、实力雄厚的地面数据中心算力，他认为：“先发者胜。</p><br>
+<p>”责任编辑：王永生</p><br>
 <h2>相关推荐</h2><br>
-<h3>毕业以后，你最怀念的大学记忆是什么？</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md</p><br>
-<h3>吴建豪再婚妻子身份公布</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md</p><br>
-<h3>商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md</p><br>
-<h3>送你一朵小红花</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md</p><br>
-<h3>阿娇瘦了10斤</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md</p><br>
-<h3>如何评价杨紫白玉兰获奖</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md</p><br>
-<h3>你这一辈子有没有为进山姆拼过命？</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md</p><br>
-<h3>陈幸同晋级WTT美国大满贯女单32强</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md</p><br>
-<h3>这种关系可能正在悄悄“催老”你</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md</p><br>
-<h3>为什么小组赛出局会让韩国人破防</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md</p><br>
-<h3>热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md</p><br>
-<h3>啊啊啊</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md</p><br>
-<h3>曝灰熊将莫兰特交易至开拓者</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md</p><br>
-<h3>未来五年，教育强国这样建设</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md</p><br>
-<h3>日本主帅：未能夺冠深感抱歉</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md</p><br>
+<h3>如何看待现在有学者用AI做数学科研？</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md</p><br>
+<h3>2021江苏卫视跨年演唱会</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md</p><br>
+<h3>汉语是世界上最言简意赅的语言吗？</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md</p><br>
+<h3>韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md</p><br>
+<h3>有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md</p><br>
+<h3>日本球迷被强行披上巴西国旗</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md</p><br>
+<h3>领克07GT搭载超跑同源MRC悬架</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md</p><br>
+<h3>杨紫大银幕成绩单</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md</p><br>
+<h3>男生180+，有腹肌是什么体验？</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md</p><br>
+<h3>《男人至死是傻得儿》</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md</p><br>
+<h3>中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md</p><br>
+<h3>有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md</p><br>
+<h3>武磊：日本队有能力跟任何强队抗衡</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md</p><br>
+<h3>人民锐评网红诋毁袁隆平造谣企业家</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md</p><br>
-<h3>天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md</p><br>
-<h3>存储芯片龙头提示风险</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md</p><br>
-<h3>日本球迷输球后集体捡垃圾</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md</p><br>
-<h3>卡塞米罗头球破门</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md</p><br>
-<h3>陈露发视频求和解遭拒</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md</p><br>
-<h3>记者：詹姆斯并没有寻求重返热火迹象</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md</p><br>
-<h3>如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md</p><br>
-<h3>爱直接对嘴喝饮料的人天塌了</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md</p><br>
-<h3>网友写差评被店家“挂”门口避雷</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md</p><br>
-<h3>《名肘探科比》：科比大战裂口女</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md</p><br>
-<h3>GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md</p><br>
-<h3>如何看待 NBA2026 年休赛期美媒称 勇士正试图同时获得詹姆斯和浓眉？这可能实现吗？</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md</p><br>
-<h3>“法德大战”泡汤了</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md</p><br>
-<h3>“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md</p><br>
+<h3>深扒韩国队淘汰背后原因</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md</p><br>
+<h3>本届世界杯已有5名球员被控强奸</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md</p><br>
+<h3>武磊：日本队有能力跟任何强队抗衡</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md</p><br>
+<h3>解放军黄岩岛战备警巡 驱离菲方飞机</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md</p><br>
+<h3>女儿从清华毕业 爸爸晒出17年对比照</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md</p><br>
+<h3>锐评T1战胜KC</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md</p><br>
+<h3>哈弗茨崩溃道歉：我们踢得太差了</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md</p><br>
+<h3>美人鱼</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md</p><br>
+<h3>德国主帅：输球说明我们够不上顶级</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md</p><br>
+<h3>女子健身不当 居然“脑子漏水”了</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md</p><br>
+<h3>普京为何将俄乌谈判时间表与伊朗挂钩</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md</p><br>
+<h3>欧洲家电巨头为何输掉了这个夏天</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md</p><br>
+<h3>重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md</p><br>
+<h3>央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md</p><br>
+<h3>18岁体育生离世由爷爷奶奶抚养长大</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md</p><br>

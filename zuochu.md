@@ -1,48 +1,42 @@
-<h1>2026粤语经典歌曲大赛在广州塔下启动</h1><br>
+<h1>宁波方正终止筹划重大资产重组</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新网广州5月1日电 (记者 程景伟)4月30日晚，广州塔下灯火辉煌，珠江两岸流光溢彩。随着广州塔亮起“粤语经典歌曲大赛正式启动”的字样，2026粤语经典歌曲大赛正式拉开帷幕。 启动仪式上，“你的粤语歌，我的故事”主题音乐会将现场气氛推向高潮。来自粤港澳大湾区的高校学子与实力歌手同台献艺，深情演绎《光辉岁月》《上海滩》《红日》等脍炙人口的经典曲目。熟悉的旋律在夜空中回荡，不仅唤</p><br>
+<p>宁波方正（维权）（300998）披露公告称，公司终止筹划重大资产重组。公告显示，宁波方正原拟以现金方式购买福建省鹏鑫创展新能源科技有限公司（以下简称“鹏鑫创展”）持有的福建骏鹏通信科技有限公司（以下简称“骏鹏通信”）60%股权。本次交易实施前，宁波方正持有骏鹏通信40%股权，鹏鑫创展持有骏鹏通信60%股权。本次交易构成关联交易。对于终止原因，宁波方正表示，交易各方未能就本次交易</p><br>
 <h2>正文</h2><br>
-<p>中新网广州5月1日电 (记者 程景伟)4月30日晚，广州塔下灯火辉煌，珠江两岸流光溢彩。</p><br>
-<p>随着广州塔亮起“粤语经典歌曲大赛正式启动”的字样，2026粤语经典歌曲大赛正式拉开帷幕。</p><br>
-<p>启动仪式上，“你的粤语歌，我的故事”主题音乐会将现场气氛推向高潮。</p><br>
-<p>来自粤港澳大湾区的高校学子与实力歌手同台献艺，深情演绎《光辉岁月》《上海滩》《红日》等脍炙人口的经典曲目。</p><br>
-<p>熟悉的旋律在夜空中回荡，不仅唤醒现场观众的集体记忆，也展现粤语流行音乐跨越时代的艺术魅力。</p><br>
-<p>本次大赛作为2026年广东十大群众赛事之一，由广东省委教育工作领导小组、广东全民终身学习平台主办，广东省文化和旅游厅、东莞市人民政府牵头组织。</p><br>
-<p>大赛秉持“全民参与、人人受益”的理念，打破年龄与专业的界限，向全球粤语音乐爱好者开放；创新设立“经典传唱”与“原创作品”两条赛道，既致敬经典底蕴，又鼓励原创活力。</p><br>
-<p>赛事进程分海选、晋级赛和决赛三个阶段，晋级赛将于6月至7月在四个城市陆续举办，决赛暨颁奖活动将于8月在东莞市举行，届时将评选出两大赛道的金、银、铜奖，以及最佳原创作品奖、最佳唱功奖、最具人气奖等多个奖项。</p><br>
+<p>宁波方正（维权）（300998）披露公告称，公司终止筹划重大资产重组。</p><br>
+<p>公告显示，宁波方正原拟以现金方式购买福建省鹏鑫创展新能源科技有限公司（以下简称“鹏鑫创展”）持有的福建骏鹏通信科技有限公司（以下简称“骏鹏通信”）60%股权。</p><br>
+<p>本次交易实施前，宁波方正持有骏鹏通信40%股权，鹏鑫创展持有骏鹏通信60%股权。</p><br>
+<p>本次交易构成关联交易。</p><br>
+<p>对于终止原因，宁波方正表示，交易各方未能就本次交易的核心条款、交易细节达成一致，未能达成最终方案和正式协议。</p><br>
+<p>（文章来源：北京商报）</p><br>
 <h2>相关推荐</h2><br>
-<h3>为什么小组赛出局会让韩国人破防</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md</p><br>
-<h3>田曦薇这是日常不是广告</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md</p><br>
-<h3>小娘惹</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md</p><br>
-<h3>德国 4-5 爆冷输球巴拉圭，队史首输世界杯点球大战，连续 3 届无缘 16 强，你认为问题出在哪？</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md</p><br>
-<h3>极端热浪席卷欧洲多国，热一热百姓让领导先凉快？</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md</p><br>
-<h3>巴西2比1日本</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md</p><br>
-<h3>德国 传控</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md</p><br>
-<h3>速度与激情9</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md</p><br>
-<h3>蜘蛛侠:平行宇宙</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md</p><br>
-<h3>开电动汽车真的很省钱吗？</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md</p><br>
-<h3>【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md</p><br>
-<h3>马航370搜寻最新消息</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md</p><br>
-<h3>苗族银饰</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md</p><br>
-<h3>内马尔中场休息积极鼓励队友</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md</p><br>
-<h3>俄乌双方伤亡近180万人</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md</p><br>
+<h3>时光音乐会</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md</p><br>
+<h3>萨内 看笑了</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md</p><br>
+<h3>恋与深空回应敖尹来源</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md</p><br>
+<h3>补时绝杀 巴西2-1淘汰日本</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md</p><br>
+<h3>郑钦文 四年一轮游</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md</p><br>
+<h3>点球大战和诺伊尔都救不回德国队</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md</p><br>
+<h3>曝灰熊将莫兰特交易至开拓者</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md</p><br>
+<h3>蔚来回应高压水枪洗车掉漆</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md</p><br>
+<h3>俄乌双方伤亡近180万人</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md</p><br>
+<h3>扬名立万</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md</p><br>
+<h3>一切民族英雄都是中华民族的脊梁</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>小娘惹</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md</p><br>
-<h3>杨紫学位证上就是杨紫</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md</p><br>
-<h3>杨紫肖战余生请多指教拍立得</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md</p><br>
-<h3>王灿兮被烫伤两年后维权成功</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md</p><br>
-<h3>三星投资计划</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md</p><br>
-<h3>巴西醒醒 这是淘汰赛</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md</p><br>
-<h3>我和我的家乡</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md</p><br>
-<h3>梅德韦杰夫：俄最严峻的是人口问题</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md</p><br>
-<h3>女子发现孩子非现任亲生状告前任索赔</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md</p><br>
-<h3>女方不认十几万彩礼最终退回20万</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md</p><br>
-<h3>啊啊啊</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md</p><br>
-<h3>流金岁月</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md</p><br>
-<h3>黄晓明晒和周杰伦的合照</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md</p><br>
-<h3>日本队被绝杀后鞠躬致谢观众</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md</p><br>
-<h3>王楚钦孙颖莎vs皮斯特耶库库洛娃</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md</p><br>
+<h3>我把队友的7连跪剪成了艺术</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md</p><br>
+<h3>科学备孕男女都要上心</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md</p><br>
+<h3>韩国足球大地震要来了</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md</p><br>
+<h3>杨紫肖战余生请多指教拍立得</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md</p><br>
+<h3>有人见过武则天的画像吗，非常好奇？</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md</p><br>
+<h3>人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md</p><br>
+<h3>男子醉酒溺水获救后同行人拒搭手</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md</p><br>
+<h3>泰山建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md</p><br>
+<h3>收到补税提醒尽快办理 明起有滞纳金</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md</p><br>
+<h3>网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md</p><br>
+<h3>“中国养猪场都用上空调了”！这是真的吗？【主播说三农】</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md</p><br>
+<h3>杨紫被质疑未使用原名</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md</p><br>
+<h3>HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md</p><br>
+<h3>【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md</p><br>
+<h3>81岁老人被男子买光菜回家车祸去世</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md</p><br>

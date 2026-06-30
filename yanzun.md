@@ -1,43 +1,44 @@
-<h1>拉萨消防救援机动支队开展“五一”防火专项行动</h1><br>
+<h1>酒价内参6月24日价格发布：五粮液普五八代下跌2元</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新网拉萨5月3日电(夏明勇 郑龙 次仁桑珠)“五一”假期期间，拉萨市消防救援机动支队提前部署，统筹各基层大队及驻防点指战员，深入重点林区、景区等开展防火专项行动，全力保障民众生命财产与高原森林资源安全。 行动中，拉萨市消防救援机动支队坚持“预防为主”，采取“定点+流动”模式，通过发放宣传品、宣讲法规案例等形式，提升驻地民众防火意识。在各驻防点，指战员因地制宜开展特色防控：山南</p><br>
+<p>新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月24日整体大幅下挫。如果主要单品各取一瓶整体打包售卖，今日总售价为9864元，较昨日大幅下跌30元，连续三日回落并创下今年4月18日以来最低。今日除国窖1573上涨外，其余品种均回落或平盘，其中四款单品更是创下近一月最低价，低位震荡态</p><br>
 <h2>正文</h2><br>
-<p>中新网拉萨5月3日电(夏明勇 郑龙 次仁桑珠)“五一”假期期间，拉萨市消防救援机动支队提前部署，统筹各基层大队及驻防点指战员，深入重点林区、景区等开展防火专项行动，全力保障民众生命财产与高原森林资源安全。</p><br>
-<p>行动中，拉萨市消防救援机动支队坚持“预防为主”，采取“定点+流动”模式，通过发放宣传品、宣讲法规案例等形式，提升驻地民众防火意识。</p><br>
-<p>在各驻防点，指战员因地制宜开展特色防控：山南市洛扎县驻防点组织业务骨干对乡镇护林员进行装备操作培训与实战演练，提升地方扑火力量应急能力；日喀则吉隆镇驻防点利用无人机等设备，深入重点林区勘察植被、水源、道路等情况，更新火险数据；那曲市嘉黎县尼屋乡驻防点则携带专业装备开展携装巡护，清理林下可燃物，开设防火隔离带，从源头降低火灾风险。</p><br>
-<p>巡护途中，指战员面向村民、游客开展“面对面”宣教，提醒杜绝野外违规用火，推动形成群防群治格局。</p><br>
-<p>下一步，拉萨市消防救援机动支队将持续紧盯关键环节，常态化推进防灭火工作，全力守护雪域高原生态安全。</p><br>
-<p>(完)</p><br>
+<p>新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月24日整体大幅下挫。</p><br>
+<p>如果主要单品各取一瓶整体打包售卖，今日总售价为9864元，较昨日大幅下跌30元，连续三日回落并创下今年4月18日以来最低。</p><br>
+<p>今日除国窖1573上涨外，其余品种均回落或平盘，其中四款单品更是创下近一月最低价，低位震荡态势进一步加剧，终端交投情绪明显降温。</p><br>
+<p>今日11大白酒单品一涨八跌两平，输家数量占据绝对优势。</p><br>
+<p>上涨方面，国窖1573为唯一赢家，上涨5元/瓶，连续两日反弹，重新逼近890元关口。</p><br>
+<p>下跌方面，五粮液1618、古井贡古20与青花郎跌幅居前，均下跌6元/瓶，其中五粮液1618创近一月最大日跌幅，价格创近一月最低；古井贡古20回吐此前部分涨幅，同样创下近一月最低价；青花郎再度跌破700元关口。</p><br>
+<p>青花汾20与习酒君品均下跌5元/瓶；飞天茅台下跌3元/瓶；精品茅台与五粮液普五八代均下跌2元/瓶，其中前者连续三日回落并创下近一月最低价，后者已七连阴，失守800元关口后继续下探，续创今年2月2日以来最低纪录。</p><br>
+<p>洋河梦之蓝M6+与水晶剑南春价格环比保持不变，其中前者仍平近一月最高价纪录，后者仍处于近一月的次低位。</p><br>
 <h2>相关推荐</h2><br>
-<h3>【硬核拆解】汽车人到底离我们有多远？</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md</p><br>
-<h3>重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md</p><br>
-<h3>我们看到的星星是不是有些已经不存在了？</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md</p><br>
-<h3>詹姆斯会加盟勇士吗</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md</p><br>
-<h3>李在明90度鞠躬感谢韩国两大财阀</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md</p><br>
-<h3>德国队世界杯点球大战首败</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md</p><br>
-<h3>巴西vs日本</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md</p><br>
-<h3>毕业以后，你最怀念的大学记忆是什么？</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md</p><br>
-<h3>外国游客开始涌入中国农村</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md</p><br>
-<h3>人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md</p><br>
-<h3>女子遭家暴逃跑致丈夫身亡二审细节</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md</p><br>
-<h3>日本队5进世界杯淘汰赛0胜</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md</p><br>
+<h3>委内瑞拉地震死亡人数升至1719人</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md</p><br>
+<h3>日本球迷输球后集体捡垃圾</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md</p><br>
+<h3>为什么很多企业推行“扁平化管理”后，效率反而下降了？</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md</p><br>
+<h3>点球大战</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md</p><br>
+<h3>承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md</p><br>
+<h3>我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md</p><br>
+<h3>巴西绝杀日本：漫画般结局换了主角</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md</p><br>
+<h3>这种关系可能正在悄悄“催老”你</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md</p><br>
+<h3>国务院：鼓励行业龙头企业举办职校</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md</p><br>
+<h3>如何看待 NBA2026 年休赛期，媒体称勇士正试图同时获得詹姆斯和浓眉？这可能实现吗？</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md</p><br>
+<h3>我把队友的7连跪剪成了艺术</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>吴建豪再婚妻子身份公布</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md</p><br>
-<h3>日耳曼拖拉机</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md</p><br>
-<h3>勇敢的心第二部</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md</p><br>
-<h3>第一次对自信的力量有了实感</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md</p><br>
-<h3>日本球迷被强行披上巴西国旗</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md</p><br>
-<h3>FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md</p><br>
-<h3>花少8要去世界杯举办国</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md</p><br>
-<h3>欧洲民众抢购空调降温</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md</p><br>
-<h3>如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md</p><br>
-<h3>马航370搜寻最新消息</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md</p><br>
-<h3>张碧晨一开口梦回逐玉</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md</p><br>
-<h3>国务院：探索延长义务教育年限</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md</p><br>
-<h3>电子游戏中有哪些关于武器的“刻板印象”？</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md</p><br>
-<h3>你的妻子大喷菇—《植物娘大战僵尸》特别篇</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md</p><br>
-<h3>巴西把自己踢晕了</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md</p><br>
+<h3>如何看待恋与深空对 731 等三大争议的回应？能挽回口碑吗？</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md</p><br>
+<h3>庆祝建党105周年特别节目</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md</p><br>
+<h3>手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md</p><br>
+<h3>锐评：网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md</p><br>
+<h3>第一次对自信的力量有了实感</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md</p><br>
+<h3>齐思钧回复张月</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md</p><br>
+<h3>一切民族英雄都是中华民族的脊梁</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md</p><br>
+<h3>2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md</p><br>
+<h3>女儿从清华毕业 爸爸晒出17年对比照</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md</p><br>
+<h3>男子在京东买到“同仁堂”假药</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md</p><br>
+<h3>4000美元是黄金新一轮下跌的开始吗</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md</p><br>
+<h3>苗族银饰</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md</p><br>
+<h3>日本足球是如何崛起的</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md</p><br>
+<h3>王健林甩卖超80座万达广场</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md</p><br>
+<h3>四川宜宾地震为何震感明显</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md</p><br>

@@ -1,44 +1,43 @@
-<h1>河南洛阳：游人户外乐享“五一”假期</h1><br>
+<h1>“辽聊共同体”红色宣讲进基层 以抗战史铸牢共同体意识</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>爱奇艺，到底在急什么？榴莲降价背后，一条互利共赢的“甜蜜链路”这个五一，AI把旅游玩明白了为什么景区步行街里，那么多“绿色”护手霜店？从《神秘的大佛》到《去有风的地方》，每一代人的旅行，都有一部“启蒙剧”台湾青年：五四精神跨越海峡，唤醒台湾民众民族认同感部分航线票价低至一折 假期机票怎么买最划算？“拼小团”出游热度高，这份“避坑指南”请收好日均花费超千元 年轻人流行放假去酒店“</p><br>
+<p>中新网沈阳6月22日电 (王涵) 6月22日，由辽宁省委统战部、辽宁省民族和宗教事务委员会主办，沈阳市委统战部、沈阳市民族和宗教事务局、沈阳市和平区委统战部承办的“辽聊共同体”系列活动——“红色抗战热土·圆梦聚力同心”铸牢中华民族共同体意识首场专题宣讲，在沈阳和平区举行。来自和平区10个街道的120名社区代表、50名少数民族联谊会代表及市区统战、民宗干部共200余人到场。 本次</p><br>
 <h2>正文</h2><br>
-<p>爱奇艺，到底在急什么？</p><br>
-<p>榴莲降价背后，一条互利共赢的“甜蜜链路”这个五一，AI把旅游玩明白了为什么景区步行街里，那么多“绿色”护手霜店？</p><br>
-<p>从《神秘的大佛》到《去有风的地方》，每一代人的旅行，都有一部“启蒙剧”台湾青年：五四精神跨越海峡，唤醒台湾民众民族认同感部分航线票价低至一折 假期机票怎么买最划算？</p><br>
-<p>“拼小团”出游热度高，这份“避坑指南”请收好日均花费超千元 年轻人流行放假去酒店“运动度假”净移民近百年来首现负值，美国人为何“用脚投票”逃离美国？</p><br>
-<p>这里藏过刘邦，也藏着白居易22年的青春……云南边境的目瑙纵歌，何以火爆全网？</p><br>
-<p>上午议事、下午狂欢，篝火迎春、魔女之夜……世界各国的“劳动节”太不一样了！</p><br>
-<p>孩子吃饭少、长不高、脾气暴？</p><br>
-<p>专家：警惕这种罕见病专访台退役少校舰长吕礼诗：绝不因台当局打压而妥协沉默当中国大市场以零关税向非洲53国“敞开怀抱”绍兴黄酒“春藏”热 中外家庭“封藏”人生喜事百年冰泉豆浆香飘海内外：烟火乡愁 味引八方台胞组团赴湖南郴州寻味地道酱板鸭如何把动车“开”走？</p><br>
+<p>中新网沈阳6月22日电 (王涵) 6月22日，由辽宁省委统战部、辽宁省民族和宗教事务委员会主办，沈阳市委统战部、沈阳市民族和宗教事务局、沈阳市和平区委统战部承办的“辽聊共同体”系列活动——“红色抗战热土·圆梦聚力同心”铸牢中华民族共同体意识首场专题宣讲，在沈阳和平区举行。</p><br>
+<p>来自和平区10个街道的120名社区代表、50名少数民族联谊会代表及市区统战、民宗干部共200余人到场。</p><br>
+<p>本次宣讲由沈阳“九·一八”历史博物馆红色印记宣讲团担纲，依托九一八事变95周年、新中国审判日本战犯70周年重要历史节点，综合运用馆藏史料、影像资料、情景讲述与现场互动，为各族群众带来一堂沉浸式红色课堂。</p><br>
+<p>宣讲中，主讲人王浩涵以详实史料系统阐释十四年抗战作为世界反法西斯战争序幕的历史意义，解读伟大抗战精神的丰富内涵。</p><br>
+<p>宣讲员们从东北抗日义勇军揭竿而起，讲到东北抗联中各族群众并肩作战，生动讲述高鹏振组建抗日队伍、铁血少年营奋勇杀敌，以及杨靖宇、赵一曼等革命先烈舍身报国的英雄事迹。</p><br>
+<p>整场宣讲紧扣铸牢中华民族共同体意识主线，阐明抗战历史是各族人民共同的集体记忆，伟大抗战精神是全民族共有的精神财富，诠释了“国土不可分、国家不可乱、民族不可散、文明不可断”的坚定信念。</p><br>
+<p>“今天听完宣讲内心久久不能平静。</p><br>
+<p>”和平区光复里社区副书记宣丰元观后深有感触，“当年各族同胞不分你我、携手抵御外侮，用血肉之躯守护家国，这就是民族团结最鲜活的见证。</p><br>
 <h2>相关推荐</h2><br>
-<h3>毕业以后，你最怀念的大学记忆是什么？</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md</p><br>
-<h3>庆祝中国共产党成立105周年大会将举行</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md</p><br>
-<h3>点球大战</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md</p><br>
-<h3>未来的飞机可能会用电吗？</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md</p><br>
-<h3>李宏毅白月光真神回归</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md</p><br>
-<h3>国内最大沙漠发洪水意味着什么</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md</p><br>
-<h3>好像看到了人类带孩子崩溃的样子</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md</p><br>
-<h3>被巴西绝杀后 日球员田中碧跪地痛哭</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md</p><br>
-<h3>你的妻子大喷菇—《植物娘大战僵尸》特别篇</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md</p><br>
-<h3>森保一致歉：我执教能力不足</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md</p><br>
-<h3>穆祉丞回应获年度人气艺人</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md</p><br>
+<h3>日本五次世界杯淘汰赛全败</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md</p><br>
+<h3>德国4比5巴拉圭</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md</p><br>
+<h3>董卿父亲报纸上发文悼念亡妻</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md</p><br>
+<h3>媒体评泰山建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md</p><br>
+<h3>道友？你来真的啊？【凡人官方二创大会】</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md</p><br>
+<h3>孙颖莎vs刘杨子</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md</p><br>
+<h3>李宏毅白月光真神回归</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md</p><br>
+<h3>对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md</p><br>
+<h3>金刚川</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md</p><br>
+<h3>日本主帅：未能夺冠深感抱歉</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>好像看到了人类带孩子崩溃的样子</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md</p><br>
-<h3>iPhoneUltra黑色机模</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md</p><br>
-<h3>“法德大战”泡汤了</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md</p><br>
-<h3>杨紫被质疑未使用原名纯属误解</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md</p><br>
-<h3>斛珠夫人</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md</p><br>
-<h3>德国主帅：输球说明我们够不上顶级</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md</p><br>
-<h3>日本五次世界杯淘汰赛全败</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md</p><br>
-<h3>明星大侦探第四季</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md</p><br>
-<h3>杨紫获白玉兰视后为何争议难平</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md</p><br>
-<h3>王楚钦孙颖莎晋级混双八强</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md</p><br>
-<h3>王灿兮被烫伤两年后维权成功</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md</p><br>
-<h3>欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md</p><br>
-<h3>宜宾地震食客避难后折返 无人逃单</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md</p><br>
-<h3>如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md</p><br>
-<h3>手底下人带不动怎么办？</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md</p><br>
+<h3>iPhoneUltra黑色机模</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md</p><br>
+<h3>德国罚丢3粒点球</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md</p><br>
+<h3>苗族银饰</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md</p><br>
+<h3>花少8要去世界杯举办国</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md</p><br>
+<h3>周生如故</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md</p><br>
+<h3>为什么纣王似乎对周文王的扩张完全无动于衷？</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md</p><br>
+<h3>毒液2</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md</p><br>
+<h3>马耳他著名拱门坍塌致中国男子身亡</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md</p><br>
+<h3>世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md</p><br>
+<h3>如何改变自己太负责任的性格?</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md</p><br>
+<h3>男子醉酒溺水获救后同行人拒协助抬人</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md</p><br>
+<h3>阿根廷vs佛得角预测</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md</p><br>
+<h3>日本遭读秒绝杀 森保一：我水平不够</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md</p><br>
+<h3>锐评T1战胜KC</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md</p><br>
+<h3>恋与深空回应敖尹来源</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md</p><br>

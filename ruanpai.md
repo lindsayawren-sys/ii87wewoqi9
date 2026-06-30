@@ -1,46 +1,40 @@
-<h1>一季度37家上市银行净利增长 兰州、华夏、瑞丰等银行净利下滑</h1><br>
+<h1>多家银行上调贵金属产品保证金 业内人士：贵金属剧烈波动银行收紧杠杆</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>21世纪经济报道记者 叶麦穗 42家A股上市银行的一季报全部出炉。 整体来看，业绩向好，有37家银行今年一季度的归母净利润增速为正，其中有6家归母净利润增速超过两位数，增长最快的两家银行全部是“山东籍”，分别是青岛银行，今年一季度的归母净利润增速达到了21.16%；齐鲁银行母净利润增速14.01%。 两家“山东籍”银行归母净利润增速靠前 青岛银行发布的一季报显示，截至2026年</p><br>
+<p>来源：央视财经 央视财经消息，近期国际贵金属市场剧烈波动，昨天（6月22日），多家银行相继发布公告，上调代理上海黄金交易所个人贵金属交易延期合约保证金比例。 昨天，广发银行公告称，将黄金、白银延期合约保证金比例由100%上调至140%，并拟于本月底全面停办代理上金所个人贵金属交易业务；华夏银行公告称，上调该行代理的多个个人贵金属延期交易品种保证金比例；中国银行也发布公告，自6月</p><br>
 <h2>正文</h2><br>
-<p>21世纪经济报道记者 叶麦穗 42家A股上市银行的一季报全部出炉。</p><br>
-<p>整体来看，业绩向好，有37家银行今年一季度的归母净利润增速为正，其中有6家归母净利润增速超过两位数，增长最快的两家银行全部是“山东籍”，分别是青岛银行，今年一季度的归母净利润增速达到了21.16%；齐鲁银行母净利润增速14.01%。</p><br>
-<p>两家“山东籍”银行归母净利润增速靠前 青岛银行发布的一季报显示，截至2026年3月末，该行资产总额8342.03亿元，比上年末增加192.42亿元，增长2.36%；归属于母公司股东的净利润15.24亿元，同比增加2.66亿元，增长21.16%；营业收入43.42亿元，同比增加2.95亿元，增长7.30%；加权平均净资产收益率（年化）14.63%，同比提高1.40个百分点。</p><br>
-<p>截至2026年3月末，青岛银行不良贷款率0.96%，比上年末下降0.01个百分点；拨备覆盖率305.61%，比上年末提高13.31个百分点。</p><br>
-<p>核心一级资本充足率8.70%，比上年末提高0.03个百分点；资本充足率12.43%，比上年末下降0.94个百分点。</p><br>
-<p>对于业绩大增，青岛银行指出，报告期内，该行持续贯彻资本精细化管理，加快推进资本集约型发展模式，资本使用效能提升，内源性资本补充不断夯实，核心一级资本充足率较上年末上升；因40亿元二级资本债赎回，资本充足率较上年末有所下降，但各级资本充足率均符合监管要求。</p><br>
-<p>排在第二名的银行也是来自山东，根据齐鲁银行的公告，今年第一季度该行实现营业收入35.77亿元，同比增长13.02%；归属于上市公司股东的净利润15.64亿元，同比增长14.01%。</p><br>
-<p>随后常熟银行、重庆银行、宁波银行和杭州银行的归母净利润增速也都超过10%。</p><br>
+<p>来源：央视财经 央视财经消息，近期国际贵金属市场剧烈波动，昨天（6月22日），多家银行相继发布公告，上调代理上海黄金交易所个人贵金属交易延期合约保证金比例。</p><br>
+<p>昨天，广发银行公告称，将黄金、白银延期合约保证金比例由100%上调至140%，并拟于本月底全面停办代理上金所个人贵金属交易业务；华夏银行公告称，上调该行代理的多个个人贵金属延期交易品种保证金比例；中国银行也发布公告，自6月24日收盘清算时起，黄金延期合约的客户保证金比例由99.9%调整为120%，白银延期合约的客户保证金比例由99.96%调整为119.91%。</p><br>
+<p>业内人士表示：近期国际贵金属市场剧烈波动，单日振幅超百美元已成常态，高杠杆的延期合约交易在金价过山车式行情中极易触发爆仓，银行需通过上调保证金比例来降低客户杠杆率，以防市场出现“踩踏式”连环爆仓。</p><br>
+<p>责任编辑：秦艺</p><br>
 <h2>相关推荐</h2><br>
-<h3>委内瑞拉地震死亡人数升至1719人</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md</p><br>
-<h3>解放军黄岩岛战备警巡 驱离菲方飞机</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md</p><br>
-<h3>美人鱼</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md</p><br>
-<h3>papi酱已退出papitube关联公司</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md</p><br>
-<h3>冲学校再转专业可行吗</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md</p><br>
-<h3>德国罚丢3粒点球</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md</p><br>
-<h3>女子发现孩子非现任亲生状告前任索赔</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md</p><br>
-<h3>毒液2</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md</p><br>
-<h3>为什么很多企业推行“扁平化管理”后，效率反而下降了？</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md</p><br>
-<h3>如何看待恋与深空对 731 等三大争议的回应？能挽回口碑吗？</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md</p><br>
-<h3>致敬！中国首批缉毒警已全体退休</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md</p><br>
-<h3>马耳他著名拱门坍塌致中国男子身亡</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md</p><br>
-<h3>女子健身不当 居然“脑子漏水”了</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md</p><br>
+<h3>黄健翔：说巴西差的忘了日本7-0我们</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md</p><br>
+<h3>梅德韦杰夫：俄最严峻的是人口问题</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md</p><br>
+<h3>曝娱乐圈大部分明星失业</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md</p><br>
+<h3>点球大战和诺伊尔都救不回德国队</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md</p><br>
+<h3>德国队回应爆冷淘汰</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md</p><br>
+<h3>最高法出台涉建筑市场最新司法解释</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md</p><br>
+<h3>黄健翔：说巴西差的忘了日本7-0我们</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md</p><br>
+<h3>《贺子珍》</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md</p><br>
+<h3>董卿父亲报纸上发文悼念亡妻</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md</p><br>
+<h3>哈弗茨崩溃道歉：我们踢得太差了</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md</p><br>
+<h3>孙颖莎vs刘杨子</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>点球大战 残酷</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md</p><br>
-<h3>孙颖莎vs刘杨子</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md</p><br>
-<h3>库尼亚赛后伸五指嘲讽日本</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md</p><br>
-<h3>荷兰vs摩洛哥</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md</p><br>
-<h3>对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md</p><br>
-<h3>锐评T1战胜KC</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md</p><br>
-<h3>《男人至死是傻得儿》</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md</p><br>
-<h3>发明linux、python、redis、nginx、sqlite的人算不算天才？</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md</p><br>
-<h3>王欣瑜连续4年晋级温网第二轮</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md</p><br>
-<h3>解放军黄岩岛战备警巡 驱离菲方飞机</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md</p><br>
-<h3>一生一世</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md</p><br>
-<h3>日本博主：日本足球真的垃圾</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md</p><br>
-<h3>第一炉香</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md</p><br>
-<h3>低智商犯罪三江口团建来了</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md</p><br>
-<h3>日本将帅赛后采访纷纷哽咽落泪</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md</p><br>
+<h3>媒体：手机测评该挤挤水分了</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md</p><br>
+<h3>全新问界M9现身美国街头</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md</p><br>
+<h3>曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md</p><br>
+<h3>手底下人带不动怎么办？</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md</p><br>
+<h3>iPhoneUltra黑色机模</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md</p><br>
+<h3>酒店推行“24小时退房”引热议</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md</p><br>
+<h3>陈幸同晋级WTT美国大满贯女单32强</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md</p><br>
+<h3>巴拉圭进球</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md</p><br>
+<h3>网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md</p><br>
+<h3>王源近几年没有路演了</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md</p><br>
+<h3>覃予萱晋级WTT美国大满贯女单32强</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md</p><br>
+<h3>韩国球迷凌晨4点接机怒骂主教练</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md</p><br>
+<h3>《鸣潮》玄方主题曲 MV | 定玄</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md</p><br>
+<h3>全网说丑的玫瑰空调卖了5万台</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md</p><br>
+<h3>青春环游记第三季</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md</p><br>

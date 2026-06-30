@@ -1,47 +1,47 @@
-<h1>国产AI芯片龙头集体迎来业绩兑现 销售规模全线高增</h1><br>
+<h1>广西8条河流超警 多地景区闭园漓江封航</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>来源：科创板日报 《科创板日报》5月2日讯（记者 郭辉）AI大模型迭代、智算中心规模化建设与边缘智能场景全面渗透，持续推高国内AI算力市场需求，国产算力芯片企业迎来业绩兑现关键期。 截至今年4月30日，寒武纪、海光信息、摩尔线程、沐曦股份已悉数披露2026年一季度财报，壁仞科技、天数智芯两家港股上市企业暂未披露一季报数据。整体来看，行业呈现头部企业盈利稳固、二线厂商减亏甚至扭亏</p><br>
+<p>中新社南宁6月22日电 (黄艳梅 林馨 欧惠兰)广西壮族自治区水文中心22日提供的信息显示，受强降雨及上游来水影响，当天广西柳江及支流龙江、洛清江等8条河流13个站出现超警洪水。广西多地渡口停航停渡，多家景区宣布临时闭园或调整运营。 连日来，广西柳州、河池、防城港市等多地出现大到暴雨、局地大暴雨天气，柳江发生2026年第1号洪水。河池南丹县、东兰县两地突发山体滑坡，导致2人遇难</p><br>
 <h2>正文</h2><br>
-<p>来源：科创板日报 《科创板日报》5月2日讯（记者 郭辉）AI大模型迭代、智算中心规模化建设与边缘智能场景全面渗透，持续推高国内AI算力市场需求，国产算力芯片企业迎来业绩兑现关键期。</p><br>
-<p>截至今年4月30日，寒武纪、海光信息、摩尔线程、沐曦股份已悉数披露2026年一季度财报，壁仞科技、天数智芯两家港股上市企业暂未披露一季报数据。</p><br>
-<p>整体来看，行业呈现头部企业盈利稳固、二线厂商减亏甚至扭亏提速、梯队化成长格局清晰的特征。</p><br>
-<p>其中，三家企业实现盈利，寒武纪、摩尔线程营收同比增速均超150%，海光信息一季度营收突破40亿元，行业高景气度持续验证。</p><br>
-<p>国产AI算力芯片正从技术突破向规模化商业落地跨越，国产化进程持续深化。</p><br>
-<p>截至2026年4月30日收盘，国产六大AI算力芯片企业中，A股头部企业体量领先：寒武纪市值7168.48亿元、海光信息市值6885.85亿元，位居行业前两位；摩尔线程、沐曦股份紧随其后，最新市值分别为3363.99亿元、3032.88亿元；港股上市的天数智芯、壁仞科技市值相对偏小，折算人民币市值约为1037.50亿元、999.13亿元。</p><br>
-<p>海光信息、寒武纪业绩均现新突破 作为国产算力芯片双龙头，海光信息与寒武纪两家公司一季度业绩稳居第一梯队，盈利质量与经营效率同步提升。</p><br>
-<p>寒武纪一季度业绩实现跨越式增长。</p><br>
+<p>中新社南宁6月22日电 (黄艳梅 林馨 欧惠兰)广西壮族自治区水文中心22日提供的信息显示，受强降雨及上游来水影响，当天广西柳江及支流龙江、洛清江等8条河流13个站出现超警洪水。</p><br>
+<p>广西多地渡口停航停渡，多家景区宣布临时闭园或调整运营。</p><br>
+<p>连日来，广西柳州、河池、防城港市等多地出现大到暴雨、局地大暴雨天气，柳江发生2026年第1号洪水。</p><br>
+<p>河池南丹县、东兰县两地突发山体滑坡，导致2人遇难。</p><br>
+<p>受持续强降雨影响，河池市6条公交线路22日仍停运。</p><br>
+<p>截至6月22日12时，柳江柳州水文站水位85.55米，超警3.05米。</p><br>
+<p>当前，柳江水位仍处在上涨过程，柳州市区沿河低洼地带江水漫上岸边，多处临街楼栋一楼已被洪水淹没，位于柳州市滨江路的柳州市公安局水上派出所因洪水变成“水里派出所”。</p><br>
+<p>柳州多个部门及机构的工作人员在柳州红光大桥桥底转移、救援民众。</p><br>
 <h2>相关推荐</h2><br>
-<h3>巴西绝杀日本：漫画般结局换了主角</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md</p><br>
-<h3>王濛回复黄灿灿</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md</p><br>
-<h3>如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md</p><br>
-<h3>《恋与深空》被指触碰民族伤痛红线</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md</p><br>
-<h3>承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md</p><br>
-<h3>现在叛逆期的孩子最怕的是什么？</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md</p><br>
-<h3>韩国道歉完日本道歉</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md</p><br>
-<h3>点球大战 残酷</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md</p><br>
-<h3>泰山景区建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md</p><br>
-<h3>德国连续三届世界杯无缘16强</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md</p><br>
-<h3>美股深夜大反弹 特斯拉飙涨8%</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md</p><br>
-<h3>存储芯片龙头提示风险</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md</p><br>
-<h3>教育部披露：高考生篡改7名同学志愿</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md</p><br>
-<h3>啥比桑吉尔夫排位练蓝防（最不抽象的一集）</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md</p><br>
+<h3>湖北云南这些涉汛信息都是假的</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md</p><br>
+<h3>张月收到黄灿灿辣货两眼发光</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md</p><br>
+<h3>《鸣潮》玄方主题曲 MV | 定玄</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md</p><br>
+<h3>免费试吃发差评被店家挂店门避雷</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md</p><br>
+<h3>补时绝杀 巴西2-1淘汰日本</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md</p><br>
+<h3>有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md</p><br>
+<h3>女子清吧被陌生人投放伟哥</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md</p><br>
+<h3>速度与激情9</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md</p><br>
+<h3>为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md</p><br>
+<h3>沙丘</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md</p><br>
+<h3>巴西vs日本</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md</p><br>
+<h3>第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md</p><br>
+<h3>日本球迷输球后集体捡垃圾</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md</p><br>
+<h3>领克900大型SUV值得购买吗?</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>领克07GT搭载超跑同源MRC悬架</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md</p><br>
-<h3>马航370搜寻最新消息</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md</p><br>
-<h3>这一刀 会很帅</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md</p><br>
-<h3>人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md</p><br>
-<h3>日耳曼拖拉机</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md</p><br>
-<h3>中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md</p><br>
-<h3>如何评价DeepSeek 提出的 DSpark 推理加速方案？</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md</p><br>
-<h3>有哪些值得一提的生活窍门？</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md</p><br>
-<h3>日本足球是如何崛起的</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md</p><br>
-<h3>女子遭下药退赔偿拟追刑责</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md</p><br>
-<h3>董路：谁赢谁是“正路子”</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md</p><br>
-<h3>哈弗茨 如此出局不可原谅</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md</p><br>
-<h3>对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md</p><br>
-<h3>女儿从清华毕业 爸爸晒出17年对比照</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md</p><br>
-<h3>你人生中最艰难的时候是怎么熬过来的？</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md</p><br>
+<h3>女儿从清华毕业 爸爸晒出17年对比照</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md</p><br>
+<h3>孙颖莎王楚钦晋级8强</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md</p><br>
+<h3>梅德韦杰夫列举俄罗斯面临的七大挑战</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md</p><br>
+<h3>首届《哈基米歌王争霸赛》总决赛</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md</p><br>
+<h3>陈幸同晋级WTT美国大满贯女单32强</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md</p><br>
+<h3>亚洲球队全部出局</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md</p><br>
+<h3>日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md</p><br>
+<h3>德国4比5巴拉圭</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md</p><br>
+<h3>女子健身不当 居然“脑子漏水”了</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md</p><br>
+<h3>詹姆斯 勇士</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md</p><br>
+<h3>女子健身不当 居然“脑子漏水”了</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md</p><br>
+<h3>教育部披露：高考生篡改7名同学志愿</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md</p><br>
+<h3>荀彧和曹操反目成仇的根本原因是什么？</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md</p><br>
+<h3>如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md</p><br>
+<h3>日本球迷被强行披上巴西国旗</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md</p><br>

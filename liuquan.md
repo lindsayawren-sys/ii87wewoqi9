@@ -1,47 +1,47 @@
-<h1>受关税退税提振，福特上调2026年盈利预期</h1><br>
+<h1>美FDA对Regenxbio罕见病基因疗法转变立场，支持加速审批</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>福特汽车周三公布第一季度财报，受益于美国最高法院裁定部分特朗普时期关税违法所带来的13亿美元退税，公司大幅上调了2026年全年盈利指引。 财报显示，福特第一季度经调整每股盈利达66美分，远超市场预期的18美分。营收为433亿美元，同比增长6%。净利润达25亿美元，而去年同期仅为5亿美元。 福特将2026年全年调整后息税前利润指引上调至85亿至105亿美元，此前为80亿至100亿</p><br>
+<p>Regenxbio（RGNX.O）周一表示，美国食品药品监督管理局（FDA）已表示，其针对罕见病基因疗法的现有数据可支持加速审批申请，扭转了数月前拒绝批准该疗法的决定。 Regenxbio股价上涨16%。 这一决定是近期一系列监管政策逆转中的最新一例，这让人们对美国食品药品监督管理局（FDA）可能对罕见病疗法采取更灵活的监管态度抱有期待。 上周，uniQure公司表示，FDA对</p><br>
 <h2>正文</h2><br>
-<p>福特汽车周三公布第一季度财报，受益于美国最高法院裁定部分特朗普时期关税违法所带来的13亿美元退税，公司大幅上调了2026年全年盈利指引。</p><br>
-<p>财报显示，福特第一季度经调整每股盈利达66美分，远超市场预期的18美分。</p><br>
-<p>营收为433亿美元，同比增长6%。</p><br>
-<p>净利润达25亿美元，而去年同期仅为5亿美元。</p><br>
-<p>福特将2026年全年调整后息税前利润指引上调至85亿至105亿美元，此前为80亿至100亿美元。</p><br>
-<p>公司维持资本支出指引在95亿至105亿美元不变。</p><br>
-<p>然而，福特仍面临诸多挑战。</p><br>
-<p>主要铝供应商Novelis位于纽约的工厂发生火灾，导致F-150皮卡所需的铝材料供应受阻，该车型库存同比下降38%。</p><br>
+<p>Regenxbio（RGNX.O）周一表示，美国食品药品监督管理局（FDA）已表示，其针对罕见病基因疗法的现有数据可支持加速审批申请，扭转了数月前拒绝批准该疗法的决定。</p><br>
+<p>Regenxbio股价上涨16%。</p><br>
+<p>这一决定是近期一系列监管政策逆转中的最新一例，这让人们对美国食品药品监督管理局（FDA）可能对罕见病疗法采取更灵活的监管态度抱有期待。</p><br>
+<p>上周，uniQure公司表示，FDA对其亨廷顿病基因疗法改变了此前立场，此前该机构曾要求进行新的临床试验，如今则为其提交加速审批申请扫清了障碍。</p><br>
+<p>此外，Replimune公司于5月表示，在与美国监管机构达成协议后，计划第三次为其实验性皮肤癌药物申请批准。</p><br>
+<p>巴克莱分析师埃莉安娜·梅尔表示，这一转变以及FDA近期其他立场的变化都表明其灵活性有所增强，并补充道，尽管高层领导层正在变动，但该机构今后可能会“对行业更加友好”。</p><br>
+<p>此前，FDA曾以试验设计存在不确定性为由，拒绝批准Regenxbio用于治疗亨特综合征的实验性疗法Navsunli，此次FDA的最新反馈对该公司而言是一个可喜的转机。</p><br>
+<p>Regenxbio公司的Navsunli正在作为一种针对亨特综合征（即MPSII）的一次性基因疗法进行开发，该病是一种影响身体和认知发育的罕见遗传性疾病。</p><br>
 <h2>相关推荐</h2><br>
-<h3>如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md</p><br>
-<h3>外国人第一次来中国旅游是怎样的体验？</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md</p><br>
-<h3>我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md</p><br>
-<h3>2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md</p><br>
-<h3>覃予萱晋级WTT美国大满贯女单32强</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md</p><br>
-<h3>豆包收费了，你还会用吗？</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md</p><br>
-<h3>天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md</p><br>
-<h3>杨紫大银幕成绩单如何</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md</p><br>
-<h3>齐思钧回复张月</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md</p><br>
-<h3>高质量发展看新疆</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md</p><br>
-<h3>免费试吃发差评被店家挂店门避雷</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md</p><br>
-<h3>日本球迷被强行披上巴西国旗</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md</p><br>
-<h3>点球大战</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md</p><br>
-<h3>点球大战和诺伊尔都救不回德国队</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md</p><br>
+<h3>森保一致歉：我执教能力不足</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md</p><br>
+<h3>索马里女大使：想和中国一起搞事业</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md</p><br>
+<h3>沉睡花园</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md</p><br>
+<h3>梅德韦杰夫列举俄罗斯面临的七大挑战</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md</p><br>
+<h3>女子用家人生日买彩票中1032万</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md</p><br>
+<h3>【大鸣王潮1566】真拿你没办法</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md</p><br>
+<h3>世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md</p><br>
+<h3>巴拉圭进球</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md</p><br>
+<h3>森保一 可以退休了</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md</p><br>
+<h3>2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md</p><br>
+<h3>俄乌双方伤亡近180万人</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md</p><br>
+<h3>“法德大战”泡汤了</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md</p><br>
+<h3>收到补税提醒尽快办理 明起有滞纳金</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md</p><br>
+<h3>领克07GT搭载超跑同源MRC悬架</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>7月1日起 一批新规即将落地</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md</p><br>
-<h3>日本球员说被绝杀非常不甘心</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md</p><br>
-<h3>首届《哈基米歌王争霸赛》总决赛</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md</p><br>
-<h3>马耳他著名拱门坍塌致中国男子身亡</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md</p><br>
-<h3>德国爆冷点球大战不敌巴拉圭</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md</p><br>
-<h3>外国游客开始涌入中国农村</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md</p><br>
-<h3>世界杯名画巴拉圭钢铁防线</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md</p><br>
-<h3>阿娇瘦了10斤</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md</p><br>
-<h3>德国淘汰</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md</p><br>
-<h3>男生180+，有腹肌是什么体验？</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md</p><br>
-<h3>恋与深空</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md</p><br>
-<h3>为什么小组赛出局会让韩国人破防</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md</p><br>
-<h3>IGN评测电影版后室</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md</p><br>
-<h3>吴易昺不敌德约科维奇 止步温网首轮</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md</p><br>
-<h3>李在明90度鞠躬感谢韩国两大财阀</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md</p><br>
+<h3>《我落泪情绪零碎》</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md</p><br>
+<h3>蜘蛛侠:英雄归来</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md</p><br>
+<h3>巴拉圭点球大战淘汰德国进16强</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md</p><br>
+<h3>日本队5进世界杯淘汰赛0胜</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md</p><br>
+<h3>恋与深空回应敖尹来源</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md</p><br>
+<h3>中国对日本再出重拳</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md</p><br>
+<h3>哈弗茨崩溃道歉：我们踢得太差了</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md</p><br>
+<h3>日耳曼拖拉机</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md</p><br>
+<h3>如何评价《龙之家族》第三季第二集？</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md</p><br>
+<h3>莫兰特转投开拓者效力</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md</p><br>
+<h3>韩国球迷凌晨4点接机怒骂主教练</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md</p><br>
+<h3>中国对日本再出重拳</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md</p><br>
+<h3>女子遭家暴逃跑致丈夫身亡二审细节</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md</p><br>
+<h3>女子遭家暴逃跑致丈夫身亡二审细节</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md</p><br>
+<h3>马耳他著名拱门坍塌致中国男子身亡</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md</p><br>

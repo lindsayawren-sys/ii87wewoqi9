@@ -1,47 +1,44 @@
-<h1>部分航线票价低至一折 五一假期机票怎么买最划算？</h1><br>
+<h1>建设银行：完成发行300亿元无固定期限资本债券</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>五一假期，民航出行迎来高峰。这两天不少旅客发现，五一假期节中机票价格回落，部分航线出现一折票价，旅客出行如何选择才更实惠？ 记者搜索发现，从出发时间来看，节前一天(4月30日)和返程高峰(5月5日)机票价格最贵，而5月2日—3日则是明显低谷，机票均价较4月30日几乎“腰斩”，部分热门航线价格只是30日的零头。例如，北京飞丽江，4月30日裸票1500多元，5月3日降至300多元；</p><br>
+<p>6月22日金融一线消息，建设银行发布公告，经相关监管机构批准，该行近日在全国银行间债券市场发行了中国建设银行股份有限公司2026年无固定期限资本债券（第一期）（债券通），并于2026年6月18日完成发行。本期债券发行规模为人民币300亿元，前5年票面利率为1.92%，每5年调整一次，在第5年及之后的每个付息日附发行人有条件赎回权。本期债券募集的资金将依据适用法律和监管部门的批准</p><br>
 <h2>正文</h2><br>
-<p>五一假期，民航出行迎来高峰。</p><br>
-<p>这两天不少旅客发现，五一假期节中机票价格回落，部分航线出现一折票价，旅客出行如何选择才更实惠？</p><br>
-<p>记者搜索发现，从出发时间来看，节前一天(4月30日)和返程高峰(5月5日)机票价格最贵，而5月2日—3日则是明显低谷，机票均价较4月30日几乎“腰斩”，部分热门航线价格只是30日的零头。</p><br>
-<p>例如，北京飞丽江，4月30日裸票1500多元，5月3日降至300多元；上海飞大理，节前接近2000元，5月3日只要500多元。</p><br>
-<p>去哪儿大数据研究院研究员 石珂：根据旅客出行习惯，大部分旅客会选择假期首尾两天出发，节中出游由于游玩时间较短，较少数人群会选择节中出游。</p><br>
-<p>受供需关系影响，节中的机票价格也会更为优惠。</p><br>
-<p>而最便宜的是北上广深一线城市之间的航线。</p><br>
-<p>这些城市间的往返航班班次多、整体运力供给比较充足，假期里商务出行需求大幅减少，以休闲出行为主，所以票价整体保持在较低的水平。</p><br>
+<p>6月22日金融一线消息，建设银行发布公告，经相关监管机构批准，该行近日在全国银行间债券市场发行了中国建设银行股份有限公司2026年无固定期限资本债券（第一期）（债券通），并于2026年6月18日完成发行。</p><br>
+<p>本期债券发行规模为人民币300亿元，前5年票面利率为1.92%，每5年调整一次，在第5年及之后的每个付息日附发行人有条件赎回权。</p><br>
+<p>本期债券募集的资金将依据适用法律和监管部门的批准，补充该行的其他一级资本。</p><br>
+<p>责任编辑：秦艺</p><br>
 <h2>相关推荐</h2><br>
-<h3>国务院：稳步推进研究生考试招生改革</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md</p><br>
-<h3>日本球迷被强行披上巴西国旗</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md</p><br>
-<h3>亚洲球队全部告别世界杯</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md</p><br>
-<h3>美媒：美军第五舰队司令部已无法使用</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md</p><br>
-<h3>金价跳水 水贝市场显现出“两重天”</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md</p><br>
-<h3>爱直接对嘴喝饮料的人天塌了</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md</p><br>
-<h3>iPhoneUltra黑色机模</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md</p><br>
-<h3>韩国球迷凌晨4点接机怒骂主教练</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md</p><br>
-<h3>三星投资计划</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md</p><br>
-<h3>冲学校再转专业可行吗</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md</p><br>
-<h3>挪威国家队紧急从本土订购大批海鲜</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md</p><br>
-<h3>亚洲球队全部告别世界杯</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md</p><br>
-<h3>郑钦文 四年一轮游</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md</p><br>
-<h3>孙颖莎王楚钦晋级8强</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md</p><br>
+<h3>高校青椒，非嫡系，单干还是进团队？</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md</p><br>
+<h3>啊啊啊</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md</p><br>
+<h3>陈幸同晋级WTT美国大满贯女单32强</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md</p><br>
+<h3>曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md</p><br>
+<h3>女方不认十几万彩礼最终退回20万</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md</p><br>
+<h3>时光音乐会</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md</p><br>
+<h3>曹雪芹为什么写贾母痛批私定终身，才子佳人小说不是婚姻自主、人文觉醒的反封建文学吗？</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md</p><br>
+<h3>如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md</p><br>
+<h3>如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md</p><br>
+<h3>明星大侦探第四季</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md</p><br>
+<h3>武磊：巴西队赢的并不轻松</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md</p><br>
+<h3>德国主帅称无法理解加时进球被吹</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md</p><br>
+<h3>巴西绝杀日本：漫画般结局换了主角</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md</p><br>
+<h3>马耳他著名拱门坍塌致中国男子身亡</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md</p><br>
+<h3>詹姆斯 勇士</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>荷兰vs摩洛哥</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md</p><br>
-<h3>歌剧老师锐评歌手第6期</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md</p><br>
-<h3>德国4比5巴拉圭</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md</p><br>
-<h3>如何把斧兵改造成精英怪？提高攻速移速！！！</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md</p><br>
-<h3>电子游戏中有哪些关于武器的“刻板印象”？</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md</p><br>
-<h3>啊啊啊</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md</p><br>
-<h3>世界杯名画巴拉圭钢铁防线</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md</p><br>
-<h3>不开心就去看三年前的购物订单</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md</p><br>
-<h3>明星大侦探第四季</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md</p><br>
-<h3>巴西足球能否再现昔日荣光</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md</p><br>
-<h3>小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md</p><br>
-<h3>哈弗茨崩溃道歉：我们踢得太差了</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md</p><br>
-<h3>为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md</p><br>
-<h3>存储芯片龙头提示风险</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md</p><br>
-<h3>森保一致歉：我执教能力不足</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md</p><br>
+<h3>这几秒成世界杯最值钱广告位</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md</p><br>
+<h3>詹姆斯会加盟勇士吗</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md</p><br>
+<h3>如何看待 NBA2026 年休赛期美媒称 勇士正试图同时获得詹姆斯和浓眉？这可能实现吗？</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md</p><br>
+<h3>【硬核拆解】汽车人到底离我们有多远？</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md</p><br>
+<h3>荷兰VS摩洛哥</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md</p><br>
+<h3>金鹰奖视后提名预测</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md</p><br>
+<h3>巴西足球能否再现昔日荣光</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md</p><br>
+<h3>蜘蛛侠:平行宇宙</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md</p><br>
+<h3>高考结束了，你会让孩子在家玩手机吗？</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md</p><br>
+<h3>点球大战 残酷</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md</p><br>
+<h3>欧洲空调卖疯了 下一个爆款是储能吗</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md</p><br>
+<h3>湖北云南这些涉汛信息都是假的</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md</p><br>
+<h3>陈幸同晋级WTT美国大满贯女单32强</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md</p><br>
+<h3>美团、淘宝闪购、京东外卖达成共识</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md</p><br>
+<h3>德国主帅称无法理解加时进球被吹</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md</p><br>

@@ -1,46 +1,43 @@
-<h1>以媒：美国“即将决定”是否重启对伊朗军事行动</h1><br>
+<h1>2026夏季达沃斯主题展：科技艺术“搭台”追问人机边界</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>新华社耶路撒冷5月1日电（记者庞昕熠 陈君清）以色列媒体5月1日报道说，美国“可能即将决定”是否重启对伊朗的军事行动，以色列正加紧准备应对可能与伊朗“再次开战”的情况。 据以色列第12频道电视台报道，以色列官员正“严阵以待”，准备应对美伊谈判最早可能在下周初破裂的情况。报道援引以政府高级官员的消息说，美国可能加大在霍尔木兹海峡问题上对伊朗的施压力度，对伊朗的能源设施以及政府基础</p><br>
+<p>中新网大连6月23日电(杨茜茜 薛凌桥)世界经济论坛第十七届新领军者年会(夏季达沃斯论坛)23日在辽宁大连举行。记者走进主会场大连国际会议中心，浓郁的科技气息扑面而来，一场名为“科技与人类系统”的主题展览吸引着与会嘉宾的关注。本次展览集中展出当下全球范围内多项前沿科技成果，聚焦人机交互、智能感知、数字创新等热门赛道，将技术创新与人文思考巧妙融合。 作品《机器人如镜》以一台工业机</p><br>
 <h2>正文</h2><br>
-<p>新华社耶路撒冷5月1日电（记者庞昕熠 陈君清）以色列媒体5月1日报道说，美国“可能即将决定”是否重启对伊朗的军事行动，以色列正加紧准备应对可能与伊朗“再次开战”的情况。</p><br>
-<p>据以色列第12频道电视台报道，以色列官员正“严阵以待”，准备应对美伊谈判最早可能在下周初破裂的情况。</p><br>
-<p>报道援引以政府高级官员的消息说，美国可能加大在霍尔木兹海峡问题上对伊朗的施压力度，对伊朗的能源设施以及政府基础设施发动军事打击。</p><br>
-<p>报道援引两名美国高级官员的消息称，美军中央司令部司令布拉德·库珀和美军参谋长联席会议主席丹·凯恩4月30日晚向美国总统特朗普汇报了针对伊朗的“新作战计划”。</p><br>
-<p>据知情人士透露，美军中央司令部已制定一项针对伊朗的“短促而猛烈”的打击计划，目标很可能是伊朗基础设施，旨在“打破谈判僵局”。</p><br>
-<p>以色列方面近期也表示或“很快恢复”对伊朗军事行动。</p><br>
-<p>以色列国防部长卡茨4月30日称，以色列尽管支持美国同伊朗谈判，但或许“很快需要再次行动”。</p><br>
-<p>卡茨还说，以色列“随时准备在任何战线、任何地点打击敌人”。</p><br>
+<p>中新网大连6月23日电(杨茜茜 薛凌桥)世界经济论坛第十七届新领军者年会(夏季达沃斯论坛)23日在辽宁大连举行。</p><br>
+<p>记者走进主会场大连国际会议中心，浓郁的科技气息扑面而来，一场名为“科技与人类系统”的主题展览吸引着与会嘉宾的关注。</p><br>
+<p>本次展览集中展出当下全球范围内多项前沿科技成果，聚焦人机交互、智能感知、数字创新等热门赛道，将技术创新与人文思考巧妙融合。</p><br>
+<p>作品《机器人如镜》以一台工业机械臂为载体，依托深度感知技术与手势交互逻辑，可以精准捕捉人的距离远近、肢体姿态，探索以非语言行为线索构建人机交互关系。</p><br>
+<p>“作品引导观者深度思辨行为预测、个体自主，以及观察与认知之间的边界。</p><br>
+<p>”跨学科设计师与研究者马德琳·甘农说。</p><br>
+<p>不远处的《聪明的汉斯》借典故发问：如果AI能捕捉连你自己都没察觉的细微动作，你还剩多少自主权？</p><br>
+<p>系统看似“猜中”你的选择，实则靠分析无意识的小动作。</p><br>
 <h2>相关推荐</h2><br>
-<h3>女子遭下药退赔偿拟追刑责</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md</p><br>
-<h3>日本球员说被绝杀非常不甘心</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md</p><br>
-<h3>德国 4-5 爆冷输球巴拉圭，队史首输世界杯点球大战，连续 3 届无缘 16 强，你认为问题出在哪？</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md</p><br>
-<h3>德国队世界杯点球大战首败</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md</p><br>
-<h3>送你一朵小红花</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md</p><br>
-<h3>GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md</p><br>
-<h3>《我落泪情绪零碎》</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md</p><br>
-<h3>Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md</p><br>
-<h3>如何看待德国队连续三届世界杯稳定 32 强？</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md</p><br>
-<h3>中国代表在联合国点名日本所犯罪行</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md</p><br>
-<h3>董卿母亲癌症去世</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md</p><br>
-<h3>第一炉香</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md</p><br>
-<h3>2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md</p><br>
+<h3>韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md</p><br>
+<h3>欧洲家电巨头为何输掉了这个夏天</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md</p><br>
+<h3>亚洲球队全部告别世界杯</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md</p><br>
+<h3>勇敢的心第二部</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md</p><br>
+<h3>把毒品藏在哪里，60秒内不会被发现？</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md</p><br>
+<h3>德国北部枪击事件致5死</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md</p><br>
+<h3>男子诋毁袁隆平科研成果被刑拘</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md</p><br>
+<h3>贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md</p><br>
+<h3>免费试吃发差评被店家挂店门避雷</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md</p><br>
+<h3>明星大侦探第四季</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>巴西替补奇兵读秒绝杀</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md</p><br>
-<h3>领克900大型SUV值得购买吗?</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md</p><br>
-<h3>杨紫获白玉兰视后争议不止</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md</p><br>
-<h3>爱很美味</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md</p><br>
-<h3>曝波尔津吉斯提前续约勇士</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md</p><br>
-<h3>为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md</p><br>
-<h3>国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md</p><br>
-<h3>《鸣潮》玄方主题曲 MV | 定玄</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md</p><br>
-<h3>黄健翔：说巴西差的忘了日本7-0我们</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md</p><br>
-<h3>恋与深空回应敖尹来源</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md</p><br>
-<h3>德国淘汰</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md</p><br>
-<h3>我和我的家乡</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md</p><br>
-<h3>藤森庆子赢得秘鲁总统选举</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md</p><br>
-<h3>巴西绝杀</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md</p><br>
-<h3>德国 4-5 爆冷输球巴拉圭，队史首输世界杯点球大战，连续 3 届无缘 16 强，你认为问题出在哪？</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md</p><br>
+<h3>蜘蛛侠:英雄归来</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md</p><br>
+<h3>浪姐成团夜爆笑吐槽</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md</p><br>
+<h3>花少8要去世界杯举办国</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md</p><br>
+<h3>这一刀 会很帅</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md</p><br>
+<h3>领克900大型SUV值得购买吗?</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md</p><br>
+<h3>热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md</p><br>
+<h3>赵今麦因“瘦而不柴”的体态出圈</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md</p><br>
+<h3>逃狱兄弟</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md</p><br>
+<h3>【大鸣王潮1566】真拿你没办法</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md</p><br>
+<h3>巴西2-1绝杀日本</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md</p><br>
+<h3>日本主帅：未能夺冠深感抱歉</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md</p><br>
+<h3>明星大侦探第一季</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md</p><br>
+<h3>欧洲民众抢购空调降温</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md</p><br>
+<h3>汉语是世界上最言简意赅的语言吗？</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md</p><br>
+<h3>明星大侦探第四季</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md</p><br>

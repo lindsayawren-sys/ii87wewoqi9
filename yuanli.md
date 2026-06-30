@@ -1,45 +1,46 @@
-<h1>东京审判80年：正义的判决，永不遗忘！</h1><br>
+<h1>2025年以来粤港澳禁毒执法协作缴获各类毒品9.1吨</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>1946年5月3日 远东国际军事法庭正式开庭 一场对日本军国主义的“法理清算” 就此拉开序幕 从1946年5月3日 到1948年11月12日 这场被称为东京审判的国际大审判 历时近两年七个月 818次开庭 419名证人出庭 4336件证据 4.8万余页庭审记录 …… 数字背后 是一场关于侵略与反抗、罪行与正义的 终极较量 最终—— 25名日本甲级战犯被判有罪 其中，7名甲级战犯</p><br>
+<p>中新社广州6月22日电 (记者 方伟彬)据广东省公安厅22日消息，2025年以来，粤港澳海陆同步收网，成功侦破“集盛轮”等特大海上走私毒品过境案件8宗，缴获各类毒品9.1吨，摧毁东南亚经中国南海通往境外的走私通道。2025年以来，广东警方发起“断根”系列集群收网战役27波次，毒品犯罪案件侦破数、刑拘犯罪嫌疑人数、查处吸毒人员数等战果指标均位居中国内地第一。 据介绍，面对跨境空运</p><br>
 <h2>正文</h2><br>
-<p>1946年5月3日 远东国际军事法庭正式开庭 一场对日本军国主义的“法理清算” 就此拉开序幕 从1946年5月3日 到1948年11月12日 这场被称为东京审判的国际大审判 历时近两年七个月 818次开庭 419名证人出庭 4336件证据 4.8万余页庭审记录 …… 数字背后 是一场关于侵略与反抗、罪行与正义的 终极较量 最终—— 25名日本甲级战犯被判有罪 其中，7名甲级战犯被判绞刑 16人被判无期徒刑 2人被判有期徒刑 整份判决书全文60余万字 仅记录日本侵华罪行的内容 就长达250多页 宣判之日 旁听的日本人走出法庭 碰到中国检察人员 “不敢抬起头来看我们一眼” 那一刻 正义终于站到了历史台前！</p><br>
-<p>一纸投降书 一寸山河一寸血 1945年8月15日 日本宣布无条件投降！</p><br>
-<p>从“九一八”事变到卢沟桥事变 从南京大屠杀到细菌战 …… 亿万中国人都不曾忘记 那段烽火连天的岁月 东京审判 正是对这些滔天罪行的法律回应 它将日本军国主义者 一个个钉在了历史的耻辱柱上 昭示世人： 正义必将得到伸张 侵略者终将付出代价 80年前的今天 值得每个中国人铭记！</p><br>
-<p>从1946年到2026年 整整80年 一代人老去，一代人成长 法庭上的青砖已斑驳 但历史从未合上卷宗 今天，我们纪念东京审判 不仅是为了告慰那些 在抗战中牺牲的英烈和无辜同胞 更是为了警示现实—— 当军国主义余烬尚未完全熄灭 当某些政治势力 试图篡改历史、参拜战犯、否认侵略 我们必须拿出那份60余万字的判决书 让事实说话，让法律作证 以史为鉴，警钟长鸣！</p><br>
-<p>正义必胜！</p><br>
-<p>和平必胜！</p><br>
-<p>人民必胜！</p><br>
-<p>铭记历史，吾辈自强！</p><br>
+<p>中新社广州6月22日电 (记者 方伟彬)据广东省公安厅22日消息，2025年以来，粤港澳海陆同步收网，成功侦破“集盛轮”等特大海上走私毒品过境案件8宗，缴获各类毒品9.1吨，摧毁东南亚经中国南海通往境外的走私通道。</p><br>
+<p>2025年以来，广东警方发起“断根”系列集群收网战役27波次，毒品犯罪案件侦破数、刑拘犯罪嫌疑人数、查处吸毒人员数等战果指标均位居中国内地第一。</p><br>
+<p>据介绍，面对跨境空运毒品“隐蔽化、链条化”新特点，广东深化粤港禁毒执法协作，联合香港海关建立打击新模式。</p><br>
+<p>今年4月，粤港两地同步收网，在广州及香港共抓获犯罪嫌疑人6名，缴获毒品可卡因21.3公斤，摧毁一条非洲经广州中转至香港的走私通道。</p><br>
+<p>同月，广东公安机关在工作中发现一货轮形迹可疑，涉嫌从事走私毒品犯罪。</p><br>
+<p>广东警方联合边检、海警等部门实施拦截，抓获犯罪嫌疑人5名，缴获毒品大麻735公斤，打掉一个特大跨境贩毒团伙。</p><br>
+<p>此外，广东警方专项攻坚打掉涉依托咪酯等新型毒品团伙674个，延伸捣毁多个省外制毒场点。</p><br>
+<p>广东创新国际货代行业禁毒管控机制，2025年以来主动拦截拟走私出境的管制化学品13.3吨。</p><br>
 <h2>相关推荐</h2><br>
-<h3>内马尔替补</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md</p><br>
-<h3>郑钦文 四年一轮游</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md</p><br>
-<h3>iPhone18e曝光</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md</p><br>
-<h3>韩国道歉完日本道歉</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md</p><br>
-<h3>2021湖南卫视跨年演唱会</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md</p><br>
-<h3>全网说丑的格力玫瑰空调卖了5万台</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md</p><br>
-<h3>消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md</p><br>
-<h3>日本队主帅道歉</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md</p><br>
-<h3>领克900大型SUV值得购买吗?</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md</p><br>
-<h3>佐野海舟远射破门</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md</p><br>
-<h3>杨紫大银幕成绩单</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md</p><br>
-<h3>武磊：巴西队赢的并不轻松</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md</p><br>
+<h3>吴建豪再婚妻子身份公布</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md</p><br>
+<h3>苗族银饰</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md</p><br>
+<h3>荀彧和曹操反目成仇的根本原因是什么？</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md</p><br>
+<h3>日本进球</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md</p><br>
+<h3>日本队主帅道歉</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md</p><br>
+<h3>小娘惹</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md</p><br>
+<h3>古代时期普通老百姓能喝上酒吗？</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md</p><br>
+<h3>解放军黄岩岛战备警巡 驱离菲方飞机</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md</p><br>
+<h3>王菲谢霆锋十指紧扣好甜</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md</p><br>
+<h3>韩国世界杯出局是主帅一个人的锅吗</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md</p><br>
+<h3>曝娱乐圈大部分明星失业</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md</p><br>
+<h3>陈幸同晋级WTT美国大满贯女单32强</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md</p><br>
+<h3>曹雪芹为什么写贾母痛批私定终身，才子佳人小说不是婚姻自主、人文觉醒的反封建文学吗？</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md</p><br>
-<h3>吴启华卖肖像权拍AI电影</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md</p><br>
-<h3>郑钦文温网三连败西尼亚科娃</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md</p><br>
-<h3>央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md</p><br>
-<h3>解放军黄岩岛战备警巡 驱离菲方飞机</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md</p><br>
-<h3>警方介入洪明甫死亡威胁</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md</p><br>
-<h3>警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md</p><br>
-<h3>荷兰vs摩洛哥</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md</p><br>
-<h3>扫黑风暴</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md</p><br>
-<h3>4000美元是黄金新一轮下跌的开始吗</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md</p><br>
-<h3>papi酱已退出papitube关联公司</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md</p><br>
-<h3>贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md</p><br>
-<h3>董卿母亲癌症去世</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md</p><br>
-<h3>日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md</p><br>
-<h3>博世们还在犹豫 美的们已经卖断货</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md</p><br>
+<h3>曝老詹对自由市场态度与以往截然不同</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md</p><br>
+<h3>美股深夜大反弹 特斯拉飙涨8%</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md</p><br>
+<h3>如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md</p><br>
+<h3>男子诋毁袁隆平科研成果被刑拘</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md</p><br>
+<h3>第3集丨“柠檬茶能换怀表？”</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md</p><br>
+<h3>日本主帅赛后回应淘汰出局</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md</p><br>
+<h3>外国人第一次来中国旅游是怎样的体验？</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md</p><br>
+<h3>要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md</p><br>
+<h3>陈露发视频求和解遭拒</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md</p><br>
+<h3>我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md</p><br>
+<h3>球评巴西绝杀逆转日本</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md</p><br>
+<h3>世界杯：荷兰vs摩洛哥</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md</p><br>
+<h3>人类...完蛋了...</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md</p><br>
+<h3>高考结束了，你会让孩子在家玩手机吗？</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md</p><br>
+<h3>浪姐成团夜爆笑吐槽</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md</p><br>

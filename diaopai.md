@@ -1,45 +1,42 @@
-<h1>“时代先锋说·劳模说”主题大思政课品牌在京启动</h1><br>
+<h1>凯赛生物：公司将通过产品定价调整积极对冲原材料价格波动对盈利能力带来的负面影响</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新网北京4月30日电 (记者 陈杭)“时代先锋说·劳模说”主题大思政课暨“劳模工匠进校园”活动29日在北京劳动保障职业学院南校区举行，北京市委教育工委“时代先锋说·劳模说”主题大思政课品牌正式启动。这是继“冠军说”“英雄说”“工匠说”之后推出的又一重要育人品牌，旨在将劳模工匠的榜样力量深度融入学校思政工作体系。 活动由北京市委教育工委主办，北京劳动保障职业学院、北京市总工会职</p><br>
+<p>证券日报网讯 6月22日，凯赛生物在互动平台回答投资者提问时表示，公司的主要产品系列生物法长链二元酸的主要原料为烷烃，生物基戊二胺的主要原料为生物质。其中，受行业整体形势影响，烷烃价格近期有所上涨。公司将通过产品定价调整积极对冲原材料价格波动对盈利能力带来的负面影响。布局生物基复材电池壳的凯酰时代项目以及和招商创科、合肥产投等合资的复材项目目前均已进入产线调试阶段。（文章来源：</p><br>
 <h2>正文</h2><br>
-<p>中新网北京4月30日电 (记者 陈杭)“时代先锋说·劳模说”主题大思政课暨“劳模工匠进校园”活动29日在北京劳动保障职业学院南校区举行，北京市委教育工委“时代先锋说·劳模说”主题大思政课品牌正式启动。</p><br>
-<p>这是继“冠军说”“英雄说”“工匠说”之后推出的又一重要育人品牌，旨在将劳模工匠的榜样力量深度融入学校思政工作体系。</p><br>
-<p>活动由北京市委教育工委主办，北京劳动保障职业学院、北京市总工会职工大学(北京市工会干部学院)和北京市学校思想政治工作中心共同承办。</p><br>
-<p>据介绍，北京市委教育工委打造“时代先锋说”主题“大思政课”品牌，推出英雄说、劳模说、冠军说、工匠说、人才说、乡村榜样说、支援合作榜样说七大系列品牌，引导广大师生见贤思齐，增强矢志报国的责任担当。</p><br>
-<p>过去一年，北京劳动保障职业学院与北京市总工会职工大学携手共进，成功举办“劳模工匠进校园”活动，揭牌成立大思政研究中心，发布首批20门“三个精神”主题大思政课菜单，聘请多位劳模工匠担任思政导师，推动青年教师与劳模工匠结对互助，初步形成了可复制、可推广的产教融合思政育人新模式。</p><br>
-<p>“三个精神”即劳模精神、劳动精神、工匠精神。</p><br>
-<p>北京劳动保障职业学院与北京市总工会职工大学深度合作，在共建一周年之际，发布阶段性成果“劳模说”“三个精神”主题大思政课菜单和视频课程。</p><br>
-<p>课程涵盖劳模精神、劳动精神、工匠精神等核心专题，可为全市大中小学提供优质的思政课程资源。</p><br>
+<p>证券日报网讯 6月22日，凯赛生物在互动平台回答投资者提问时表示，公司的主要产品系列生物法长链二元酸的主要原料为烷烃，生物基戊二胺的主要原料为生物质。</p><br>
+<p>其中，受行业整体形势影响，烷烃价格近期有所上涨。</p><br>
+<p>公司将通过产品定价调整积极对冲原材料价格波动对盈利能力带来的负面影响。</p><br>
+<p>布局生物基复材电池壳的凯酰时代项目以及和招商创科、合肥产投等合资的复材项目目前均已进入产线调试阶段。</p><br>
+<p>（文章来源：证券日报）</p><br>
 <h2>相关推荐</h2><br>
-<h3>杨某诋毁袁隆平院士科研成果被刑拘</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md</p><br>
-<h3>韩国道歉完日本道歉</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md</p><br>
-<h3>如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md</p><br>
-<h3>国内最大沙漠发洪水意味着什么</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md</p><br>
-<h3>杨紫获白玉兰视后争议不止</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md</p><br>
-<h3>詹姆斯会加盟勇士吗</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md</p><br>
-<h3>法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md</p><br>
-<h3>大蒜晒外面被路过女子连盆端走</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md</p><br>
-<h3>赛博朋克边缘行者2预告片</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md</p><br>
-<h3>男子醉酒溺水获救后同行人拒协助抬人</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md</p><br>
-<h3>千与千寻</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md</p><br>
-<h3>诺伊尔尽力了</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md</p><br>
+<h3>日本五次世界杯淘汰赛全败</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md</p><br>
+<h3>男子在京东买到“同仁堂”假药</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md</p><br>
+<h3>内马尔中场休息积极鼓励队友</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md</p><br>
+<h3>点球大战和诺伊尔都救不回德国队</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md</p><br>
+<h3>巴拉圭门将</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md</p><br>
+<h3>男子造谣东鹏老板不喝自家饮料被拘</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md</p><br>
+<h3>明星大侦探第一季</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md</p><br>
+<h3>曝iPhone18Pro机密文件现身暗网</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md</p><br>
+<h3>流金岁月</h3><br><p>更新时间：2026-06-30 10:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md</p><br>
+<h3>日本主帅：未能夺冠深感抱歉</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md</p><br>
+<h3>森保一致歉：我执教能力不足</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md</p><br>
+<h3>中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>森保一 可以退休了</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md</p><br>
-<h3>女子清吧被陌生人投放伟哥</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md</p><br>
-<h3>《赛博朋克：边缘行者 2》｜官方预告片</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md</p><br>
-<h3>酒店推行“24小时退房”引热议</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md</p><br>
-<h3>【涤墨作战7人870】望：我从地狱杀回来了！</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md</p><br>
-<h3>张雪的一句“是我们”引发岛内热议</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md</p><br>
-<h3>急先锋</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md</p><br>
-<h3>上市央企地产商 两年换了三任董事长</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md</p><br>
-<h3>恋与深空回应争议</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md</p><br>
-<h3>乔家的儿女</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md</p><br>
-<h3>森保一致歉：世界第一目标没能实现</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md</p><br>
-<h3>巴西足球能否再现昔日荣光</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md</p><br>
-<h3>扬名立万</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md</p><br>
-<h3>美人鱼</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md</p><br>
-<h3>内马尔安慰日本球员</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md</p><br>
+<h3>泰山景区建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md</p><br>
+<h3>俄乌双方伤亡近180万人</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md</p><br>
+<h3>一切民族英雄都是中华民族的脊梁</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md</p><br>
+<h3>啥比桑吉尔夫排位练蓝防（最不抽象的一集）</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md</p><br>
+<h3>美股深夜大反弹 特斯拉飙涨8%</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md</p><br>
+<h3>《我落泪情绪零碎》</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md</p><br>
+<h3>致敬！中国首批缉毒警已全体退休</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md</p><br>
+<h3>一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md</p><br>
+<h3>欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md</p><br>
+<h3>急先锋</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md</p><br>
+<h3>恋与深空</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md</p><br>
+<h3>“黄岩岛自家院子紧张个啥”</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md</p><br>
+<h3>papi酱已退出papitube关联公司</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md</p><br>
+<h3>承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md</p><br>
+<h3>免费试吃发差评被店家挂店门避雷</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md</p><br>

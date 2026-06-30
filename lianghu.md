@@ -1,47 +1,48 @@
-<h1>“一单到底”助企出海 铁海中转多式联运监管模式在怀化落地</h1><br>
+<h1>高市早苗及其秘书涉虚假记载政治资金遭检举</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新网怀化4月30日电 (谢皙妮 冉云方 雷明雄)湖南怀化国际陆港30日透露，怀化国际陆港多式联运中心29日完成首票铁海中转多式联运监管模式报关，18标箱货值近55万元、货重500余吨的硫酸铵出口货物经怀化海关审批顺利放行，将于5月2日搭乘陆海新通道铁海联运班列，从怀化经钦州港发往印度尼西亚。 这标志着铁海中转多式联运模式在怀化正式落地。新模式落地的核心，是基于海关推行的“一单</p><br>
+<p>新华社东京6月23日电(记者李子越 梁晨)日本神户学院大学教授上脇博之22日在社交媒体披露，日本首相高市早苗及其秘书木下刚志涉嫌违反《政治资金规正法》，存在政治资金收支报告虚假记载等问题，上脇已就此向检察机关提出检举。上脇通过调查高市事务所内部账簿发现，高市阵营涉嫌将企业高层购买政治筹款派对券的资金记为个人政治捐款，从而造成政治资金收支报告虚假记载。此外，由于购券者可借“捐款”</p><br>
 <h2>正文</h2><br>
-<p>中新网怀化4月30日电 (谢皙妮 冉云方 雷明雄)湖南怀化国际陆港30日透露，怀化国际陆港多式联运中心29日完成首票铁海中转多式联运监管模式报关，18标箱货值近55万元、货重500余吨的硫酸铵出口货物经怀化海关审批顺利放行，将于5月2日搭乘陆海新通道铁海联运班列，从怀化经钦州港发往印度尼西亚。</p><br>
-<p>这标志着铁海中转多式联运模式在怀化正式落地。</p><br>
-<p>新模式落地的核心，是基于海关推行的“一单到底、无缝衔接”一体化监管，取代传统分段转关模式，通过“一次申报、一单贯通”的数据链与监管互认，从而使进出口货物得以高效流转，物流成本显著降低。</p><br>
-<p>新模式落地过程中，怀化海关在政策宣导、企业备案、疑问解答等环节实时响应企业诉求。</p><br>
-<p>怀化国际陆港以多式联运场站经营人身份，及时完成货物到场信息发送。</p><br>
-<p>陆海新通道湖南公司统筹协调通道各环节，确保该模式顺利落地。</p><br>
-<p>此次突破生动体现了“关企联动”助力本地企业出口的实效，各方以怀化国际陆港为支点，高效整合通关、物流、技术等资源，打通内陆货物经钦州港出海的报关新路径。</p><br>
-<p>未来，随着该模式常态化运行，将进一步释放陆海新通道的国际物流大通道效能与怀化国际陆港的区域通道枢纽优势，助推更多“湘品”高效便捷地走向国际市场。</p><br>
+<p>新华社东京6月23日电(记者李子越 梁晨)日本神户学院大学教授上脇博之22日在社交媒体披露，日本首相高市早苗及其秘书木下刚志涉嫌违反《政治资金规正法》，存在政治资金收支报告虚假记载等问题，上脇已就此向检察机关提出检举。</p><br>
+<p>上脇通过调查高市事务所内部账簿发现，高市阵营涉嫌将企业高层购买政治筹款派对券的资金记为个人政治捐款，从而造成政治资金收支报告虚假记载。</p><br>
+<p>此外，由于购券者可借“捐款”名义享受所得税减免，该行为还涉嫌逃税及帮助逃税。</p><br>
+<p>上脇掌握的资料显示，此类操作最早可追溯至十余年前，是长期、有组织的行为。</p><br>
+<p>他因此在检举书和情况说明中认定该行为“性质恶劣”。</p><br>
+<p>2023年底，日本自民党被曝出“黑金”丑闻，部分派阀要求所属议员按指标出售政治筹款派对券，将超额部分以“回扣”形式返还给议员，而相关资金并未登记在政治资金收支报告中，成为不受监管的秘密资金。</p><br>
+<p>高市2025年10月就任首相后，不仅任命多名涉“黑金”丑闻的政治人物担任政府要职，她本人还于同年12月因违规收受企业政治捐款遭到起诉，引发日本社会强烈不满。</p><br>
+<p>日本舆论认为，高市在“黑金”问题上态度含糊，无意从根本上改正。</p><br>
 <h2>相关推荐</h2><br>
-<h3>日本进球</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md</p><br>
-<h3>媒体评泰山建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md</p><br>
-<h3>森保一致歉：我执教能力不足</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md</p><br>
-<h3>女方不认十几万彩礼最终退回20万</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md</p><br>
-<h3>4000美元是黄金新一轮下跌的开始吗</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md</p><br>
-<h3>自然光｜papi酱&窦文涛：驴与跑步机</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md</p><br>
-<h3>巴西绝杀</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md</p><br>
-<h3>存储芯片龙头提示风险</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md</p><br>
-<h3>Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md</p><br>
-<h3>GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md</p><br>
-<h3>快递到家不能这样拆</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md</p><br>
-<h3>警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md</p><br>
-<h3>王健林甩卖超80座万达广场</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md</p><br>
-<h3>高考结束了，你会让孩子在家玩手机吗？</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md</p><br>
+<h3>普京为何将俄乌谈判时间表与伊朗挂钩</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md</p><br>
+<h3>为什么会有「念旧」的心理？</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md</p><br>
+<h3>消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md</p><br>
+<h3>板面：为什么那么多人爱吃？？！</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md</p><br>
+<h3>国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md</p><br>
+<h3>德国巴拉圭 折磨</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md</p><br>
+<h3>韩国道歉完日本道歉</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md</p><br>
+<h3>欧洲装一台空调有多难</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md</p><br>
+<h3>苗族银饰</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md</p><br>
+<h3>欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md</p><br>
+<h3>国务院：探索延长义务教育年限</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md</p><br>
+<h3>德国vs巴拉圭</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md</p><br>
+<h3>德国罚丢3粒点球</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md</p><br>
+<h3>毒液2</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md</p><br>
+<h3>板面：为什么那么多人爱吃？？！</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>"超算小姐，这一次，我一定要带你出去..."</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md</p><br>
-<h3>吴易昺不敌德约科维奇 止步温网首轮</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md</p><br>
-<h3>"超算小姐，这一次，我一定要带你出去..."</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md</p><br>
-<h3>佐野海舟远射破门</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md</p><br>
-<h3>解放军黄岩岛战备警巡 驱离菲方飞机</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md</p><br>
-<h3>第一炉香</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md</p><br>
-<h3>韩国球迷凌晨4点接机怒骂主教练</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md</p><br>
-<h3>外国人第一次来中国旅游是怎样的体验？</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md</p><br>
-<h3>巴西2-1绝杀日本</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md</p><br>
-<h3>浪姐成团夜爆笑吐槽</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md</p><br>
-<h3>2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md</p><br>
-<h3>董卿父亲报纸上发文悼念亡妻</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md</p><br>
-<h3>杨紫大银幕成绩单如何</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md</p><br>
-<h3>男子中医院拔火罐致浅2度烧伤</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md</p><br>
-<h3>欧洲家电巨头为何输掉了这个夏天</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md</p><br>
+<h3>梅德韦杰夫列举俄罗斯面临的七大挑战</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md</p><br>
+<h3>已经看完《三国第一部：争洛阳》的人，如何评价这部电影？</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md</p><br>
+<h3>深扒韩国队淘汰背后原因</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md</p><br>
+<h3>如何看待 NBA2026 年休赛期，媒体称勇士正试图同时获得詹姆斯和浓眉？这可能实现吗？</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md</p><br>
+<h3>中国代表在联合国点名日本所犯罪行</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md</p><br>
+<h3>杨紫被质疑未使用原名纯属误解</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md</p><br>
+<h3>如何看待武亮说大学生生活费1500就够用这一言论？</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md</p><br>
+<h3>iPhone18e曝光</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md</p><br>
+<h3>诺伊尔尽力了</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md</p><br>
+<h3>张月没加到的微信黄灿灿加到了</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md</p><br>
+<h3>流金岁月</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md</p><br>
+<h3>网瘾賊大的阿嬷</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md</p><br>
+<h3>免费试吃发差评被店家挂店门避雷</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md</p><br>
+<h3>檀健次王楚然吻戏看热了</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md</p><br>
+<h3>巴拉圭门将</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md</p><br>

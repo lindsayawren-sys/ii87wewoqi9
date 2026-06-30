@@ -1,47 +1,41 @@
-<h1>5月1日热门中概股普涨 贝壳涨7%，WSP控股跌3.26%</h1><br>
+<h1>中国创意控股遭梁龙飞减持800万股 每股作价0.249港元</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>5月1日热门中概股普涨，纳斯达克中国金龙指数（HXC）收高2.01%。 上涨个股（按市值从高到低）：台积电涨0.57%，阿里巴巴涨1.13%，拼多多涨2.26%，网易涨3.54%，日月光半导体涨2.65%，百度涨4.56%，京东涨2.09%，中华电信涨0.65%，携程涨2.71%，联电涨2.43%，富途控股涨0.86%，中通涨0.83%，贝壳涨7.00%，理想汽车涨0.45%，</p><br>
+<p>香港联交所最新资料显示，6月18日，梁龙飞减持中国创意控股（08368）800万股，每股作价0.249港元，总金额为199.2万港元。减持后最新持股数目为2800万股，最新持股比例为4.85%。责任编辑：卢昱君</p><br>
 <h2>正文</h2><br>
-<p>5月1日热门中概股普涨，纳斯达克中国金龙指数（HXC）收高2.01%。</p><br>
-<p>上涨个股（按市值从高到低）：台积电涨0.57%，阿里巴巴涨1.13%，拼多多涨2.26%，网易涨3.54%，日月光半导体涨2.65%，百度涨4.56%，京东涨2.09%，中华电信涨0.65%，携程涨2.71%，联电涨2.43%，富途控股涨0.86%，中通涨0.83%，贝壳涨7.00%，理想汽车涨0.45%，蔚来持平，小鹏汽车涨2.77%，腾讯音乐涨1.55%，哔哩哔哩涨2.66%，满帮涨3.97%，新东方涨2.57%，华能电力持平，万国数据涨1.78%，慧荣科技涨0.59%，唯品会涨1.77%，拓臻生物涨0.02%，亚朵集团涨1.00%，名创优品涨1.82%，金山云涨1.21%，小马智行涨3.24%，微牛涨1.04%，禾赛科技涨1.84%，欢聚涨3.09%，雾芯科技涨4.21%。</p><br>
-<p>下跌个股（按市值从高到低）：华住酒店集团跌0.42%，中国新城农村跌2.00%，BOSS直聘跌0.22%，WSP控股跌3.26%。</p><br>
-<p>美股周四收高，标普500指数与纳指均创历史新高。</p><br>
-<p>标普指数创2000年以来最大月度涨幅。</p><br>
-<p>投资者将注意力转向亚马逊、谷歌母公司Alphabet和礼来等企业巨头强劲的业绩表现，暂时搁置了对中东局势及通胀前景的担忧。</p><br>
-<p>道指涨790.33点，涨幅为1.62%，报49652.14点；纳指涨219.07点，涨幅为0.89%，报24892.31点；标普500指数涨73.06点，涨幅为1.02%，报7209.01点。</p><br>
-<p>领涨中概股列表： 领跌中概股列表： （截图来自新浪财经APP 行情-美股-中概股热门板块）下载新浪财经APP 责任编辑：张俊 SF065</p><br>
+<p>香港联交所最新资料显示，6月18日，梁龙飞减持中国创意控股（08368）800万股，每股作价0.249港元，总金额为199.2万港元。</p><br>
+<p>减持后最新持股数目为2800万股，最新持股比例为4.85%。</p><br>
+<p>责任编辑：卢昱君</p><br>
 <h2>相关推荐</h2><br>
-<h3>人民锐评：网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md</p><br>
-<h3>点球大战 残酷</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md</p><br>
-<h3>德国进球被吹</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md</p><br>
-<h3>日本球员说被绝杀非常不甘心</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md</p><br>
-<h3>世界杯欧洲队7战南美仅1胜</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md</p><br>
-<h3>陈小春人老了干什么也不心酸</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md</p><br>
-<h3>锐评T1战胜KC</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md</p><br>
-<h3>大蒜晒外面被路过女子连盆端走</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md</p><br>
-<h3>2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md</p><br>
-<h3>第3集丨“柠檬茶能换怀表？”</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md</p><br>
-<h3>2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md</p><br>
-<h3>黄晓明夸昆凌引杨颖对比</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md</p><br>
-<h3>马航370搜寻最新消息</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md</p><br>
-<h3>巴西绝杀日本</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md</p><br>
+<h3>7月1日起 一批新规即将落地</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md</p><br>
+<h3>俄乌双方伤亡近180万人</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md</p><br>
+<h3>免费试吃发差评被店家挂店门避雷</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md</p><br>
+<h3>巴西2比1日本</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md</p><br>
+<h3>如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md</p><br>
+<h3>杨紫大银幕成绩单</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md</p><br>
+<h3>如何改变自己太负责任的性格?</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md</p><br>
+<h3>巴西绝杀日本：漫画般结局换了主角</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md</p><br>
+<h3>周生如故</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md</p><br>
+<h3>马航370搜寻最新消息</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md</p><br>
+<h3>男子诋毁袁隆平科研成果被刑拘</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md</p><br>
+<h3>【Reaction】女生最少的5款游戏</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md</p><br>
+<h3>球评巴西绝杀逆转日本</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>赵今麦因“瘦而不柴”的体态出圈</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md</p><br>
-<h3>世界杯欧洲队7战南美仅1胜</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md</p><br>
-<h3>赛博朋克边缘行者2预告片</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md</p><br>
-<h3>点球大战 残酷</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md</p><br>
-<h3>德国进球被吹</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md</p><br>
-<h3>网友写差评被店家“挂”门口避雷</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md</p><br>
-<h3>【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md</p><br>
-<h3>致敬！中国首批缉毒警已全体退休</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md</p><br>
-<h3>收到补税提醒尽快办理 明起有滞纳金</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md</p><br>
-<h3>马航370搜寻最新消息</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md</p><br>
-<h3>孙颖莎王楚钦晋级8强</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md</p><br>
-<h3>有哪些被认为是现代才有的东西其实古代就有了？</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md</p><br>
-<h3>德国主帅称无法理解加时进球被吹</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md</p><br>
-<h3>如何看待 NBA2026 年休赛期美媒称 勇士正试图同时获得詹姆斯和浓眉？这可能实现吗？</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md</p><br>
-<h3>日本进球</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md</p><br>
+<h3>四川凉山落石砸毁车辆 3人遇难</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md</p><br>
+<h3>免费试吃发差评被店家挂店门避雷</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md</p><br>
+<h3>日本五次世界杯淘汰赛全败</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md</p><br>
+<h3>Melo向柳智敏张元英道歉</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md</p><br>
+<h3>已经看完《三国第一部：争洛阳》的人，如何评价这部电影？</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md</p><br>
+<h3>斗破苍穹</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md</p><br>
+<h3>巴西绝杀日本</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md</p><br>
+<h3>卖菜老人获博主帮助后遇车祸去世</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md</p><br>
+<h3>手底下人带不动怎么办？</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md</p><br>
+<h3>赵今麦因“瘦而不柴”的体态出圈</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md</p><br>
+<h3>日本队被绝杀后鞠躬致谢观众</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md</p><br>
+<h3>papi酱已退出papitube关联公司</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md</p><br>
+<h3>冲学校再转专业可行吗</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md</p><br>
+<h3>男子在京东买到“同仁堂”假药</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md</p><br>
+<h3>杨紫肖战余生请多指教拍立得</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md</p><br>

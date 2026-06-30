@@ -1,43 +1,46 @@
-<h1>中国首家“埃塞俄比亚咖啡国家推广体验中心”对外营业</h1><br>
+<h1>中央气象台：全国夏收夏种气象服务（2026年06月23日）</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新社重庆5月1日电 (记者 钟旖 肖江川)中国首家“埃塞俄比亚咖啡国家推广体验中心”(下称体验中心)1日在位于重庆市沙坪坝区的磁器口古镇对外营业。 体验中心由陆港枢纽(重庆)经贸有限公司、亚太经贸发展联盟非洲委员会重庆代表处、中非友好经贸发展基金会重庆代表处联合打造，将以权威展示、文化交流、标准赋能三重使命，让中国的咖啡爱好者领略埃塞俄比亚咖啡独特的风味和文化魅力。 埃塞俄比</p><br>
+<p>来源：中央气象台网站 6月24-25日甘肃山西等地有小到中雨需注意避雨夏播 摘要：预计6月24-25日，甘肃东部有小到中雨，夏种气象等级为次适宜到不适宜，山西中部有小雨，夏种气象等级为次适宜；26日，夏种区大部天气晴好，气象条件适宜夏种。建议甘肃、山西等地避开降雨时段，待天气转晴后及时趁墒播种，已播地区应做好查苗补苗，确保苗齐、苗匀。 一、夏收夏种进展 截至6月22日，全国冬小</p><br>
 <h2>正文</h2><br>
-<p>中新社重庆5月1日电 (记者 钟旖 肖江川)中国首家“埃塞俄比亚咖啡国家推广体验中心”(下称体验中心)1日在位于重庆市沙坪坝区的磁器口古镇对外营业。</p><br>
-<p>体验中心由陆港枢纽(重庆)经贸有限公司、亚太经贸发展联盟非洲委员会重庆代表处、中非友好经贸发展基金会重庆代表处联合打造，将以权威展示、文化交流、标准赋能三重使命，让中国的咖啡爱好者领略埃塞俄比亚咖啡独特的风味和文化魅力。</p><br>
-<p>埃塞俄比亚驻华大使塔费拉·德贝·伊马姆向体验中心发来贺信称，埃塞俄比亚拥有数千年的咖啡种植和消费传统，孕育了享誉全球的阿拉比卡精品咖啡。</p><br>
-<p>体验中心是“一带一路”倡议下埃塞俄比亚与中国深化文化交流与经济合作的重要成果，相信其运营将使更多中国朋友领略埃塞俄比亚咖啡独特的风味和文化魅力，并有力地推动优质埃塞俄比亚特色产品进入广阔的中国市场。</p><br>
-<p>同时，它也将为“重庆制造”产品进军非洲市场提供新的机遇，并深化埃塞俄比亚与中国之间的经贸交流。</p><br>
-<p>陆港枢纽(重庆)经贸有限公司副总经理樊无双介绍，在品质把控方面，体验中心严选耶加雪菲、西达摩、古吉等埃塞俄比亚核心产区的精品豆，采用出口等级最高的G1级生豆，全程以单豆制作，最大程度保留咖啡纯净丰富的本源风味。</p><br>
-<p>同时，体验中心搭建了完善的溯源体系，打造“从田野到杯盏”的沉浸式场景：一方面完整展示咖啡豆从产地种植、认证检测到质量把控、赋码溯源的全流程档案；另一方面，民众可从产地微缩景观、生豆展示、现场烘焙、传统手冲与萃取演示等环节，近距离感受埃塞俄比亚咖啡文化的独特魅力，感受多元风味碰撞的惊喜。</p><br>
-<p>(完)</p><br>
+<p>来源：中央气象台网站 6月24-25日甘肃山西等地有小到中雨需注意避雨夏播 摘要：预计6月24-25日，甘肃东部有小到中雨，夏种气象等级为次适宜到不适宜，山西中部有小雨，夏种气象等级为次适宜；26日，夏种区大部天气晴好，气象条件适宜夏种。</p><br>
+<p>建议甘肃、山西等地避开降雨时段，待天气转晴后及时趁墒播种，已播地区应做好查苗补苗，确保苗齐、苗匀。</p><br>
+<p>一、夏收夏种进展 截至6月22日，全国冬小麦大规模机收已基本结束；河南夏种已完成，山东、河北、陕西夏种过9成，安徽、江苏过8成。</p><br>
+<p>二、6月24日-6月26日夏种天气展望 预计6月24-25日，甘肃东部有小到中雨，夏种气象等级为次适宜到不适宜；山西中部有小雨，夏种气象等级为次适宜；其余夏种区以晴好天气为主，夏种气象等级为适宜（图1）。</p><br>
+<p>预计6月26日，夏种区大部天气晴好，夏种气象等级为适宜（图2）。</p><br>
+<p>三、农业生产建议 已完成夏收的地区应注意做好小麦晾晒和通风存储工作，确保颗粒归仓。</p><br>
+<p>甘肃、山西等受降雨影响的地区，需避开降雨时段，待天气转晴后及时趁墒夏播；已完成夏播地区应及时查苗补苗，确保苗齐、苗匀。</p><br>
+<p>责任编辑：李铁民</p><br>
 <h2>相关推荐</h2><br>
-<h3>全新问界M9现身美国街头</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md</p><br>
-<h3>《赛博朋克：边缘行者 2》｜官方预告片</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md</p><br>
-<h3>莫兰特转投开拓者效力</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md</p><br>
-<h3>如何改变自己太负责任的性格?</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md</p><br>
-<h3>《鸣潮》玄方主题曲 MV | 定玄</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md</p><br>
-<h3>极限挑战第一季</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md</p><br>
-<h3>贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md</p><br>
-<h3>如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md</p><br>
-<h3>女子遭下药退赔偿拟追刑责</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md</p><br>
-<h3>深扒韩国队淘汰背后原因</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md</p><br>
+<h3>你这一辈子有没有为进山姆拼过命？</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md</p><br>
+<h3>如何看待现在有学者用AI做数学科研？</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md</p><br>
+<h3>有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md</p><br>
+<h3>如何看待现在有学者用AI做数学科研？</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md</p><br>
+<h3>2026年WTT美国大满贯，国乒自带球桌是真实的吗？</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md</p><br>
+<h3>日本球迷被强行披上巴西国旗</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md</p><br>
+<h3>消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md</p><br>
+<h3>斗破苍穹</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md</p><br>
+<h3>锐评：网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md</p><br>
+<h3>专家建议志愿填报“线差法”三步走</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md</p><br>
+<h3>未来五年，教育强国这样建设</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md</p><br>
+<h3>【硬核拆解】汽车人到底离我们有多远？</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md</p><br>
+<h3>尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>第一炉香</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md</p><br>
-<h3>承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md</p><br>
-<h3>一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md</p><br>
-<h3>庆祝中国共产党成立105周年大会将举行</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md</p><br>
-<h3>超神人辉夜姬 第二集</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md</p><br>
-<h3>美股收盘 热门中概股普涨</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md</p><br>
-<h3>你的妻子大喷菇—《植物娘大战僵尸》特别篇</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md</p><br>
-<h3>欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md</p><br>
-<h3>德国连续三届世界杯无缘16强</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md</p><br>
-<h3>巴西绝杀</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md</p><br>
-<h3>浪姐成团夜爆笑吐槽</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md</p><br>
-<h3>四川宜宾地震为何震感明显</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md</p><br>
-<h3>Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md</p><br>
-<h3>网红峡谷5人溺亡 有人提醒会下雨</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md</p><br>
-<h3>汉语是世界上最言简意赅的语言吗？</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md</p><br>
+<h3>全网说丑的格力玫瑰空调卖了5万台</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md</p><br>
+<h3>如何看待 NBA2026 年休赛期，媒体称勇士正试图同时获得詹姆斯和浓眉？这可能实现吗？</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md</p><br>
+<h3>发明linux、python、redis、nginx、sqlite的人算不算天才？</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md</p><br>
+<h3>美人鱼</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md</p><br>
+<h3>左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md</p><br>
+<h3>勇敢的心第二部</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md</p><br>
+<h3>莫兰特转投开拓者效力</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md</p><br>
+<h3>解放军黄岩岛战备警巡 驱离菲方飞机</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md</p><br>
+<h3>董路：谁赢谁是“正路子”</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md</p><br>
+<h3>为什么纣王似乎对周文王的扩张完全无动于衷？</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md</p><br>
+<h3>巴拉圭进球</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md</p><br>
+<h3>蜘蛛侠:平行宇宙</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md</p><br>
+<h3>全球芯片巨头史诗级扩产</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md</p><br>
+<h3>董卿母亲癌症去世</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md</p><br>
+<h3>【涤墨作战7人870】望：我从地狱杀回来了！</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md</p><br>

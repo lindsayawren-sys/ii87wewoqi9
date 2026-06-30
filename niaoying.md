@@ -1,46 +1,44 @@
-<h1>“零关税”释放重大利好 华侨华人冀深度参与中非贸易</h1><br>
+<h1>年内17家理财公司高管密集更迭，人事调整从“补位”转向“战略布局”</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新社北京5月1日电 (记者 韩辉)自2026年5月1日起，中国对所有非洲建交国实施零关税。多位华侨华人接受中新社记者连线采访时表示，此举将扩大非洲对华出口规模、优化出口结构，助力非洲工业化进程，对非洲国家是重大利好，期待深度参与中非贸易。埃及中华总会常务副会长马广辉指出，以往中埃之间的关税优惠大多局限于零散品类，存在额度限制且政策持续性弱，企业无法据此开展长期产业规划。而此次</p><br>
+<p>转自：财联社财联社6月23日讯（编辑 王蔚）今年以来，理财公司人事调整呈密集态势。财联社据最新公开信息进行整理（或不完全），今年以来，已有至少17家理财公司出现核心管理层变动，涉及董事长、总裁、副总裁等关键岗位超40人次。观察可见，国有大行理财公司以总裁补位为核心特征，建信理财、中银理财、交银理财等机构前期空缺的总裁岗位陆续落定，且多从总行或海外机构选拔，强化集团内部人才循环。</p><br>
 <h2>正文</h2><br>
-<p>中新社北京5月1日电 (记者 韩辉)自2026年5月1日起，中国对所有非洲建交国实施零关税。</p><br>
-<p>多位华侨华人接受中新社记者连线采访时表示，此举将扩大非洲对华出口规模、优化出口结构，助力非洲工业化进程，对非洲国家是重大利好，期待深度参与中非贸易。</p><br>
-<p>埃及中华总会常务副会长马广辉指出，以往中埃之间的关税优惠大多局限于零散品类，存在额度限制且政策持续性弱，企业无法据此开展长期产业规划。</p><br>
-<p>而此次政策实现了全税目覆盖、无附加条件，为企业提供了长期发展预期。</p><br>
-<p>马广辉表示，埃及近两年大力推行出口导向型发展战略，并积极招商引资。</p><br>
-<p>此次零关税政策彻底点燃了市场活力，埃及产业界从过去紧盯欧美、中东等传统市场，转向聚焦中国市场。</p><br>
-<p>“我们期待未来，中埃合作迈向双向贸易互通、产业共建、投资互促以及供应链协同的全新阶段。</p><br>
-<p>” 博茨瓦纳共和国总统特使、亚太地区投资与经贸事务特别顾问南庚戌表示，相关举措为非洲国家打开了前所未有的市场窗口，使更多产品有机会进入中国市场。</p><br>
+<p>转自：财联社财联社6月23日讯（编辑 王蔚）今年以来，理财公司人事调整呈密集态势。</p><br>
+<p>财联社据最新公开信息进行整理（或不完全），今年以来，已有至少17家理财公司出现核心管理层变动，涉及董事长、总裁、副总裁等关键岗位超40人次。</p><br>
+<p>观察可见，国有大行理财公司以总裁补位为核心特征，建信理财、中银理财、交银理财等机构前期空缺的总裁岗位陆续落定，且多从总行或海外机构选拔，强化集团内部人才循环。</p><br>
+<p>股份行理财子则呈现董事会与高管层同步补位、跨机构流动增多的特点，招银理财、兴银理财、光大理财等聚焦专业人才引入与内部晋升，民生理财、信银理财等完成核心高管更迭。</p><br>
+<p>整体来看，理财行业高管调整已从被动补位转向主动战略布局，反映出行业在规模突破30万亿元后，围绕投研能力建设、跨境业务拓展与风险合规体系优化的深层考量。</p><br>
+<p>今年以来理财公司高管变动如下：国有大行理财公司：核心岗位集中补位，集团内部人才循环强化进入2026年，国有大行理财子公司继续成为人事调整重点区域，建信理财、中银理财、交银理财、农银理财、中邮理财等机构均有核心高管落定或调整，前期空缺的总裁岗位陆续补位。</p><br>
+<p>建信理财于1月迎来首位女总裁。</p><br>
+<p>根据国家金融监督管理总局官网，自2026年1月8日起，杨晴翔正式担任建信理财董事、总裁，其曾任建设银行总行金融市场部资深副经理，2025年已获批任副总裁。</p><br>
 <h2>相关推荐</h2><br>
-<h3>恐怖世界 第三集 埃温霍姆村</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md</p><br>
-<h3>拆解FIFA和世界杯的暗面</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md</p><br>
-<h3>急先锋</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md</p><br>
-<h3>孙兴慜发长文致歉</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md</p><br>
-<h3>庆祝建党105周年特别节目</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md</p><br>
-<h3>高质量发展看新疆</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md</p><br>
-<h3>第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md</p><br>
-<h3>披荆斩棘的哥哥</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md</p><br>
-<h3>逃狱兄弟</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md</p><br>
-<h3>武磊：日本队有能力跟任何强队抗衡</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md</p><br>
-<h3>"超算小姐，这一次，我一定要带你出去..."</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md</p><br>
-<h3>德国vs巴拉圭</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md</p><br>
-<h3>快递到家不能这样拆</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md</p><br>
+<h3>毕业以后，你最怀念的大学记忆是什么？</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md</p><br>
+<h3>小娘惹</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md</p><br>
+<h3>欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md</p><br>
+<h3>斛珠夫人</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md</p><br>
+<h3>杨紫肖战余生请多指教拍立得</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md</p><br>
+<h3>奔跑吧·黄河篇第二季</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md</p><br>
+<h3>我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md</p><br>
+<h3>巴西足球能否再现昔日荣光</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md</p><br>
+<h3>警方介入洪明甫死亡威胁</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md</p><br>
+<h3>租房时你会更看重「住得舒服」，还是「每天通勤更方便」？</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md</p><br>
+<h3>如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>国务院：稳步推进研究生考试招生改革</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md</p><br>
-<h3>曹雪芹为什么写贾母痛批私定终身，才子佳人小说不是婚姻自主、人文觉醒的反封建文学吗？</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md</p><br>
-<h3>快递到家不能这样拆</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md</p><br>
-<h3>杨紫大银幕成绩单如何</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md</p><br>
-<h3>GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md</p><br>
-<h3>蔚来回应高压水枪洗车掉漆</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md</p><br>
-<h3>库尼亚赛后伸五指嘲讽日本</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md</p><br>
-<h3>杨紫获白玉兰视后争议不止</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md</p><br>
-<h3>委内瑞拉地震死亡人数升至1719人</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md</p><br>
-<h3>亚洲球队全部出局</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md</p><br>
-<h3>“法德大战”泡汤了</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md</p><br>
-<h3>李宏毅白月光真神回归</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md</p><br>
-<h3>把毒品藏在哪里，60秒内不会被发现？</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md</p><br>
-<h3>张碧晨一开口梦回逐玉</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md</p><br>
-<h3>MSI应援曲 如果季中成回忆</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md</p><br>
+<h3>高考结束，该不该外出打工体验？</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md</p><br>
+<h3>金价跳水 水贝市场显现出“两重天”</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md</p><br>
+<h3>我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md</p><br>
+<h3>人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md</p><br>
+<h3>有人见过武则天的画像吗，非常好奇？</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md</p><br>
+<h3>现在叛逆期的孩子最怕的是什么？</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md</p><br>
+<h3>“法德大战”泡汤了</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md</p><br>
+<h3>佐野海舟远射破门</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md</p><br>
+<h3>起风了</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md</p><br>
+<h3>网友写差评被店家“挂”门口避雷</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md</p><br>
+<h3>领克07GT搭载超跑同源MRC悬架</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md</p><br>
+<h3>日本淘汰</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md</p><br>
+<h3>杨紫肖战余生请多指教拍立得</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md</p><br>
+<h3>梅德韦杰夫列举俄罗斯面临的七大挑战</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md</p><br>
+<h3>啥比桑吉尔夫排位练蓝防（最不抽象的一集）</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md</p><br>

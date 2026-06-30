@@ -1,45 +1,46 @@
-<h1>第一观察｜开局之年，总书记对加强基础研究作出战略部署</h1><br>
+<h1>疾控专家提醒：野生蘑菇勿采食 AI识别风险高</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>4月30日，习近平总书记在上海出席加强基础研究座谈会，强调要以更大力度、更实举措加强基础研究，提升我国原始创新能力，进一步打牢科技强国建设根基。 技术创新、产业创新是“从1到100”，基础研究处于科研链条起始端，则是“从0到1”的创新。正如习近平总书记所说：“基础研究是整个科学体系的源头，是所有技术问题的总机关。” 党的十八大以来，以习近平同志为核心的党中央高度重视基础研究，通</p><br>
+<p>中新网银川6月23日电 (杨迪 李亚雯)宁夏卫生健康委23日举行“时令节气与健康”(夏至)发布会，宁夏疾控中心理化学检验科博士徐飞就野生毒蘑菇中毒预防问题作出提醒。 徐飞介绍，宁夏野生毒蘑菇中毒高发期为每年8月和9月，此时气温适宜、湿度较高，雨后初晴时段林地、草地及农田边缘蘑菇大量生长，误食风险显著上升。 针对民间流传的辨别毒蘑菇的“土方法”，徐飞逐一辟谣。其一，颜色鲜艳才有毒</p><br>
 <h2>正文</h2><br>
-<p>4月30日，习近平总书记在上海出席加强基础研究座谈会，强调要以更大力度、更实举措加强基础研究，提升我国原始创新能力，进一步打牢科技强国建设根基。</p><br>
-<p>技术创新、产业创新是“从1到100”，基础研究处于科研链条起始端，则是“从0到1”的创新。</p><br>
-<p>正如习近平总书记所说：“基础研究是整个科学体系的源头，是所有技术问题的总机关。</p><br>
-<p>” 党的十八大以来，以习近平同志为核心的党中央高度重视基础研究，通过优化科研布局、加大投入保障、创新体制机制等，推动我国基础研究水平显著提升。</p><br>
-<p>2023年2月，中共中央政治局曾就加强基础研究进行集体学习。</p><br>
-<p>习近平总书记专门强调：“加强基础研究，是实现高水平科技自立自强的迫切要求，是建设世界科技强国的必由之路。</p><br>
-<p>” “十五五”时期是建设科技强国的关键时期。</p><br>
-<p>此次座谈会，习近平总书记对加强基础研究作出战略部署，源于对时与势的深刻洞察： 横向看，新一轮科技革命和产业变革深入发展，基础研究转化周期明显缩短，国际科技竞争日益向基础前沿前移。</p><br>
+<p>中新网银川6月23日电 (杨迪 李亚雯)宁夏卫生健康委23日举行“时令节气与健康”(夏至)发布会，宁夏疾控中心理化学检验科博士徐飞就野生毒蘑菇中毒预防问题作出提醒。</p><br>
+<p>徐飞介绍，宁夏野生毒蘑菇中毒高发期为每年8月和9月，此时气温适宜、湿度较高，雨后初晴时段林地、草地及农田边缘蘑菇大量生长，误食风险显著上升。</p><br>
+<p>针对民间流传的辨别毒蘑菇的“土方法”，徐飞逐一辟谣。</p><br>
+<p>其一，颜色鲜艳才有毒、灰白蘑菇无毒的观点错误，白毒伞等致命剧毒蘑菇通体洁白、样貌普通，却是中毒致死最多的品种；其二，虫蚁啃食过的蘑菇不代表无毒，蘑菇毒素主要损伤人体肝肾，对虫类毒性极低；其三，加大蒜、银器同煮验毒毫无科学依据，毒素不会与银、蒜发生变色反应；其四，焯水或长时间高温蒸煮无法去除剧毒鹅膏类蘑菇的毒素，该毒素耐高温，普通烹饪无法破坏；其五，往年吃过类似品种不代表安全，许多毒蘑菇与食用蘑菇外形极其相似，且同一品种因生长环境、阶段不同外观也会变化，即便专业人员也常需借助解剖、检测甚至基因测序才能准确鉴别，普通民众更无法凭肉眼分辨，尤其不能依赖AI软件识别，风险极高。</p><br>
+<p>徐飞强调，预防毒蘑菇中毒最根本的办法就是不采、不买、不食任何野生蘑菇，家庭用餐不采购散户售卖的野生蘑菇。</p><br>
+<p>一旦误食出现恶心、呕吐、腹泻、幻觉等症状，应立即拨打120或尽快就医，并告知医生误食情况、时间和地点，尽可能提供未食用样本或照片。</p><br>
+<p>若中毒者清醒且进食后1小时至2小时内，可用手指或筷子刺激咽喉催吐，但昏迷或抽搐者禁止催吐，以防窒息。</p><br>
+<p>(完)</p><br>
 <h2>相关推荐</h2><br>
-<h3>沙丘</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md</p><br>
-<h3>德国身价是巴拉圭6倍</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md</p><br>
-<h3>美人鱼</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md</p><br>
-<h3>第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md</p><br>
-<h3>杨紫大银幕成绩单如何</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md</p><br>
-<h3>曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md</p><br>
-<h3>中国猪圈装空调让欧洲网友破防</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md</p><br>
-<h3>杨紫大银幕成绩单如何</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md</p><br>
-<h3>国务院：稳步推进研究生考试招生改革</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md</p><br>
-<h3>古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md</p><br>
-<h3>日本队主帅道歉</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md</p><br>
-<h3>IGN评测电影版后室</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md</p><br>
+<h3>被巴西绝杀后 日球员田中碧跪地痛哭</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md</p><br>
+<h3>有哪些值得一提的生活窍门？</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md</p><br>
+<h3>我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md</p><br>
+<h3>人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md</p><br>
+<h3>韩国足球荒唐背后的财阀控局</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md</p><br>
+<h3>恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md</p><br>
+<h3>有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md</p><br>
+<h3>中国代表在联合国点名日本所犯罪行</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md</p><br>
+<h3>人民锐评网红诋毁袁隆平造谣企业家</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md</p><br>
+<h3>如何评价《龙之家族》第三季第二集？</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md</p><br>
+<h3>商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md</p><br>
+<h3>日本队主帅道歉</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md</p><br>
+<h3>锐评T1战胜KC</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>解放军黄岩岛战备警巡 驱离菲方飞机</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md</p><br>
-<h3>蜘蛛侠:平行宇宙</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md</p><br>
-<h3>国务院：鼓励行业龙头企业举办职校</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md</p><br>
-<h3>孙颖莎vs刘杨子</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md</p><br>
-<h3>世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md</p><br>
-<h3>青春环游记第三季</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md</p><br>
-<h3>杨紫肖战余生请多指教拍立得</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md</p><br>
-<h3>荷兰VS摩洛哥</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md</p><br>
-<h3>荷兰VS摩洛哥</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md</p><br>
-<h3>卢卡申科发布解放军仪仗队视频</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md</p><br>
-<h3>王菲谢霆锋十指紧扣好甜</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md</p><br>
-<h3>欧洲家电巨头为何输掉了这个夏天</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md</p><br>
-<h3>内马尔未登场 安切洛蒂赛后回应</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md</p><br>
-<h3>啊啊啊</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md</p><br>
-<h3>起风了</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md</p><br>
+<h3>巴西在进攻三区完成210脚传球</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md</p><br>
+<h3>世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md</p><br>
+<h3>宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md</p><br>
+<h3>我把队友的7连跪剪成了艺术</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md</p><br>
+<h3>王曼昱被突如其来的话筒逗笑了</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md</p><br>
+<h3>女儿从清华毕业 爸爸晒出17年对比照</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md</p><br>
+<h3>“黄岩岛自家院子紧张个啥”</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md</p><br>
+<h3>马耳他著名拱门坍塌致中国男子身亡</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md</p><br>
+<h3>曝灰熊将莫兰特交易至开拓者</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md</p><br>
+<h3>男子在京东买到“同仁堂”假药</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md</p><br>
+<h3>曝老詹对自由市场态度与以往截然不同</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md</p><br>
+<h3>城市规划有可能成为「屎山代码」吗？</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md</p><br>
+<h3>乔家的儿女</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md</p><br>
+<h3>巴西绝杀日本：漫画般结局换了主角</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md</p><br>
+<h3>德国4比5巴拉圭</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md</p><br>

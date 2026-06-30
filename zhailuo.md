@@ -1,42 +1,46 @@
-<h1>公安机关发布无人机飞行活动安全提示</h1><br>
+<h1>全球灯塔工厂新名单公布，中国占比过半</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新网4月30日电 据公安部官方微信消息，公安部30日发布无人机飞行活动安全提示。 “五一”假期期间，无人机爱好者携机出游、航拍打卡，感受假日乐趣。为守护蓝天安全、远离违规风险，公安机关提示，实名登记是前提，查清空域是关键，依规飞行是底线。 请自觉遵守无人机飞行管理相关法律法规，飞行前务必通过民用无人驾驶航空器综合管理平台(UOM平台)完成实名登记，并查询计划飞行区域的空域属性</p><br>
+<p>专题：2026第十七届夏季达沃斯论坛 世界经济论坛 世界经济论坛公布16个新工厂加入全球灯塔网络，至此该网络已汇聚全球238个一流工厂。 新晋灯塔工厂折射出工业竞争力的三大变革方向：端到端智能化、人机协同、以可持续发展赋能经营绩效。 世界经济论坛同步推出全新项目“影响力之星”（Impact Stars），表彰有望重塑行业运营模式的突破性工业创新成果。 了解2026年新领军者年会</p><br>
 <h2>正文</h2><br>
-<p>中新网4月30日电 据公安部官方微信消息，公安部30日发布无人机飞行活动安全提示。</p><br>
-<p>“五一”假期期间，无人机爱好者携机出游、航拍打卡，感受假日乐趣。</p><br>
-<p>为守护蓝天安全、远离违规风险，公安机关提示，实名登记是前提，查清空域是关键，依规飞行是底线。</p><br>
-<p>请自觉遵守无人机飞行管理相关法律法规，飞行前务必通过民用无人驾驶航空器综合管理平台(UOM平台)完成实名登记，并查询计划飞行区域的空域属性，确认无人机已完成实名登记且活动在适飞空域内。</p><br>
-<p>微型、轻型、小型无人机飞行高度不得超过真高120米，不得闯入军事禁区、机场、高铁、高速公路，及重要文物保护地等管制区域。</p><br>
-<p>未成年人体验飞行时，须有熟练掌握操作方法的成年人全程在场指导，切勿操控超过自身资质的机型。</p><br>
-<p>部分城市已出台地方性无人机管理规定，节日期间城市核心景区、大型活动场地周边通常会划为临时管制空域，出行前请查询目的地有关要求。</p><br>
+<p>专题：2026第十七届夏季达沃斯论坛 世界经济论坛 世界经济论坛公布16个新工厂加入全球灯塔网络，至此该网络已汇聚全球238个一流工厂。</p><br>
+<p>新晋灯塔工厂折射出工业竞争力的三大变革方向：端到端智能化、人机协同、以可持续发展赋能经营绩效。</p><br>
+<p>世界经济论坛同步推出全新项目“影响力之星”（Impact Stars），表彰有望重塑行业运营模式的突破性工业创新成果。</p><br>
+<p>了解2026年新领军者年会的更多信息，请访问世界经济论坛官网。</p><br>
+<p>在社交媒体上关注年会动态，欢迎使用话题标签#2026夏季达沃斯。</p><br>
+<p>详细了解全球灯塔网络，请点击阅读原文。</p><br>
+<p>世界经济论坛今日宣布，全球灯塔网络新增16家成员，目前网络已汇聚全球238座顶尖制造及供应链运营基地。</p><br>
+<p>这些灯塔工厂充分展示了企业正通过规模化应用先进技术，持续提升生产效率、供应链韧性、可持续发展能力、客户服务水平与人才发展成效。</p><br>
 <h2>相关推荐</h2><br>
-<h3>《贺子珍》</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md</p><br>
-<h3>男子醉酒溺水获救后同行人拒协助抬人</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md</p><br>
-<h3>吴易昺不敌德约科维奇 止步温网首轮</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md</p><br>
-<h3>又一家县级医院关停门诊输液大厅</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md</p><br>
-<h3>金刚川</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md</p><br>
-<h3>中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md</p><br>
-<h3>如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md</p><br>
-<h3>杨紫学位证上就是杨紫</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md</p><br>
-<h3>郑钦文 四年一轮游</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md</p><br>
-<h3>周生如故</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md</p><br>
+<h3>普京为何将俄乌谈判时间表与伊朗挂钩</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md</p><br>
+<h3>网红峡谷5人溺亡 有人提醒会下雨</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md</p><br>
+<h3>不开心就去看三年前的购物订单</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md</p><br>
+<h3>苗族银饰</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md</p><br>
+<h3>曹雪芹为什么写贾母痛批私定终身，才子佳人小说不是婚姻自主、人文觉醒的反封建文学吗？</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md</p><br>
+<h3>人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md</p><br>
+<h3>免费试吃发差评被店家挂店门避雷</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md</p><br>
+<h3>女子健身不当 居然“脑子漏水”了</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md</p><br>
+<h3>孙颖莎vs刘杨子</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md</p><br>
+<h3>哈弗茨崩溃道歉：我们踢得太差了</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md</p><br>
+<h3>荷兰VS摩洛哥</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md</p><br>
+<h3>德国连续三届世界杯无缘16强</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md</p><br>
+<h3>⚡逼尔摩斯教你玩球⚡</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>“中国养猪场都用上空调了”！这是真的吗？【主播说三农】</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md</p><br>
-<h3>未来的飞机可能会用电吗？</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md</p><br>
-<h3>天道</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md</p><br>
-<h3>美股收盘 热门中概股普涨</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md</p><br>
-<h3>男子造谣东鹏老板不喝自家饮料被拘</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md</p><br>
-<h3>德国队回应爆冷淘汰</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md</p><br>
-<h3>全网说丑的玫瑰空调卖了5万台</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md</p><br>
-<h3>亚洲球队全部出局</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md</p><br>
-<h3>女子遭下药退赔偿拟追刑责</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md</p><br>
-<h3>毕业以后，你最怀念的大学记忆是什么？</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md</p><br>
-<h3>森保一 可以退休了</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md</p><br>
-<h3>hanser X 赖美云《室内系的Track Maker》</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md</p><br>
-<h3>一见倾心</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md</p><br>
-<h3>男子在非洲务工死亡 公司不认可工亡</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md</p><br>
-<h3>木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md</p><br>
+<h3>如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md</p><br>
+<h3>曝灰熊将莫兰特交易至开拓者</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md</p><br>
+<h3>免费试吃发差评被店家挂店门避雷</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md</p><br>
+<h3>恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md</p><br>
+<h3>网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md</p><br>
+<h3>乔家的儿女</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md</p><br>
+<h3>为什么会有「念旧」的心理？</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md</p><br>
+<h3>教育部披露：高考生篡改7名同学志愿</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md</p><br>
+<h3>卢卡申科发布解放军仪仗队视频</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md</p><br>
+<h3>曝老詹对自由市场态度与以往截然不同</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md</p><br>
+<h3>森保一致歉：世界第一目标没能实现</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md</p><br>
+<h3>自然光｜papi酱&窦文涛：驴与跑步机</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md</p><br>
+<h3>恋与深空的0731之辩为何难以服众</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md</p><br>
+<h3>古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md</p><br>
+<h3>曝老詹对自由市场态度与以往截然不同</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md</p><br>

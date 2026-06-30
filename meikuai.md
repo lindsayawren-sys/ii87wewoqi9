@@ -1,44 +1,46 @@
-<h1>美国银行策略师建议做空2年期美国国债 指出美联储可能转向鹰派</h1><br>
+<h1>少了10万个零售客户，晋商银行加注消金公司</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>美国银行的利率策略师建议做空美国2年期国债，理由是“伊朗停火局势脆弱之际，油价和通胀存在上行风险”，同时美国经济活动数据仍具韧性，并且美联储有可能转向鹰派。 由Mark Cabana牵头的策略师建议在3.87%建立空头仓位，目标4.10%，止损位设在3.70%。 他们写道：“4月份的联邦公开市场委员会会议偏鹰派”，美联储的风险平衡正从劳动力下行风险转向通胀上行风险。 他们表示，</p><br>
+<p>来源：银瑞社 作者：许淑敏 晋商银行，准备注资晋商消金了。 于6月18日，该行与晋商消金订立股份认购协议，据此，同 意以7.3亿元的代价认购晋商消金5亿股新发行股份。 注资完成后，晋商消金的注册资本将由5亿元增加至10亿元。 据此，晋商银行于晋商消金的持股比例将由40%增加至70%。晋商消金将成为该行附属公司，其财务业绩将并入财务报表中。 晋商消金成立至今十年时间，是山西省内唯</p><br>
 <h2>正文</h2><br>
-<p>美国银行的利率策略师建议做空美国2年期国债，理由是“伊朗停火局势脆弱之际，油价和通胀存在上行风险”，同时美国经济活动数据仍具韧性，并且美联储有可能转向鹰派。</p><br>
-<p>由Mark Cabana牵头的策略师建议在3.87%建立空头仓位，目标4.10%，止损位设在3.70%。</p><br>
-<p>他们写道：“4月份的联邦公开市场委员会会议偏鹰派”，美联储的风险平衡正从劳动力下行风险转向通胀上行风险。</p><br>
-<p>他们表示，如果这种情况持续下去，市场可能会考虑2025年降息的逆转；市场“不会有把握地计入75个基点，但可能会计入一半（37.5个基点）”。</p><br>
-<p>责任编辑：陈钰嘉</p><br>
+<p>来源：银瑞社 作者：许淑敏 晋商银行，准备注资晋商消金了。</p><br>
+<p>于6月18日，该行与晋商消金订立股份认购协议，据此，同 意以7.3亿元的代价认购晋商消金5亿股新发行股份。</p><br>
+<p>注资完成后，晋商消金的注册资本将由5亿元增加至10亿元。</p><br>
+<p>据此，晋商银行于晋商消金的持股比例将由40%增加至70%。</p><br>
+<p>晋商消金将成为该行附属公司，其财务业绩将并入财务报表中。</p><br>
+<p>晋商消金成立至今十年时间，是山西省内唯一一家持有全国消费金融牌照的机构，如今迎来扩容发展的全新契机。</p><br>
+<p>按照协议，晋商银行应在股份认购协议签订后五日内，通过电汇向晋商消金支付代价7.3亿元。</p><br>
+<p>晋商银行将使用其内部资源结算代价。</p><br>
 <h2>相关推荐</h2><br>
-<h3>《我落泪情绪零碎》</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md</p><br>
-<h3>亚洲球队全部告别世界杯</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md</p><br>
-<h3>扬名立万</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md</p><br>
-<h3>张雪的一句“是我们”引发岛内热议</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md</p><br>
-<h3>欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md</p><br>
-<h3>【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md</p><br>
-<h3>点球大战</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md</p><br>
-<h3>女子遭家暴逃跑致丈夫身亡二审细节</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md</p><br>
-<h3>五哈和他们的朋友</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md</p><br>
-<h3>德国巴拉圭 折磨</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md</p><br>
-<h3>马航MH370传来最新消息</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md</p><br>
-<h3>人可以极简主义到什么程度？</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md</p><br>
-<h3>开电动汽车真的很省钱吗？</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md</p><br>
-<h3>一切民族英雄都是中华民族的脊梁</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md</p><br>
+<h3>2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md</p><br>
+<h3>王源近几年没有路演了</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md</p><br>
+<h3>逃狱兄弟</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md</p><br>
+<h3>荷兰vs摩洛哥</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md</p><br>
+<h3>女子清吧被陌生人投放伟哥</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md</p><br>
+<h3>马航370搜寻最新消息</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md</p><br>
+<h3>MSI应援曲 如果季中成回忆</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md</p><br>
+<h3>陈小春人老了干什么也不心酸</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md</p><br>
+<h3>逃狱兄弟</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md</p><br>
+<h3>【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md</p><br>
+<h3>有哪些被认为是现代才有的东西其实古代就有了？</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md</p><br>
+<h3>GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md</p><br>
+<h3>第一炉香</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>起风了</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md</p><br>
-<h3>如何看待 NBA2026 年休赛期美媒称 勇士正试图同时获得詹姆斯和浓眉？这可能实现吗？</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md</p><br>
-<h3>【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md</p><br>
-<h3>热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md</p><br>
-<h3>日本五次世界杯淘汰赛全败</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md</p><br>
-<h3>《男人至死是傻得儿》</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md</p><br>
-<h3>扬名立万</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md</p><br>
-<h3>快递到家不能这样拆</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md</p><br>
-<h3>博世们还在犹豫 美的们已经卖断货</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md</p><br>
-<h3>如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md</p><br>
-<h3>人类...完蛋了...</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md</p><br>
-<h3>这几秒成世界杯最值钱广告位</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md</p><br>
-<h3>免费试吃发差评被店家挂店门避雷</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md</p><br>
-<h3>中国代表在联合国点名日本所犯罪行</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md</p><br>
-<h3>记者：詹姆斯并没有寻求重返热火迹象</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md</p><br>
+<h3>被巴西绝杀后 日球员田中碧跪地痛哭</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md</p><br>
+<h3>第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md</p><br>
+<h3>德国vs巴拉圭</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md</p><br>
+<h3>急先锋</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md</p><br>
+<h3>专家建议志愿填报“线差法”三步走</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md</p><br>
+<h3>球评巴西绝杀逆转日本</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md</p><br>
+<h3>又一家县级医院关停门诊输液大厅</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md</p><br>
+<h3>有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md</p><br>
+<h3>莫兰特被交易到开拓者</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md</p><br>
+<h3>欧盟分楼层开空调惹争议</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md</p><br>
+<h3>中国猪圈装空调让欧洲网友破防</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md</p><br>
+<h3>中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md</p><br>
+<h3>男子造谣东鹏老板不喝自家饮料被拘</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md</p><br>
+<h3>iPhoneUltra黑色机模</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md</p><br>
+<h3>陈幸同晋级WTT美国大满贯女单32强</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md</p><br>

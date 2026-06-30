@@ -1,45 +1,43 @@
-<h1>棉花：美棉区干旱略有缓解，国内等待政策“落地”</h1><br>
+<h1>湾区工程广肇高速新建金马大桥合龙</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>大地期货研究院 观点小结 核心观点：中性关注涉棉综合调控措施何时出台，建议多单逢高减仓，滚动做多为主。 现货情况：中性现货棉价基差水平虽有下降，但绝对价格继续上涨。纺织企业采购相对谨慎，虽提高预期，但盘面表现仍高于预期。 进口棉纱：中性进口棉纱美金报价上涨，国内港口库存小幅下降。3月份中国进口棉纱21.2万吨。 进口棉：中性2026年关税配额89.4万吨已在2026年年初发放。</p><br>
+<p>中新社广东佛山6月22日电 (记者 蔡敏婕)广肇高速新建金马大桥22日合龙，计划2027年底全线建成通车。 广(州)肇(庆)高速公路是粤港澳大湾区辐射粤西的关键通道，承载大量跨城通勤、货运及过境车流，现行的通行能力已基本达到饱和。 2024年5月18日，广肇高速改扩建项目全面开工建设，全长51.1公里，由现状双向四车道和双向六车道扩建为双向八车道。新建金马大桥是广肇高速改扩建项</p><br>
 <h2>正文</h2><br>
-<p>大地期货研究院 观点小结 核心观点：中性关注涉棉综合调控措施何时出台，建议多单逢高减仓，滚动做多为主。</p><br>
-<p>现货情况：中性现货棉价基差水平虽有下降，但绝对价格继续上涨。</p><br>
-<p>纺织企业采购相对谨慎，虽提高预期，但盘面表现仍高于预期。</p><br>
-<p>进口棉纱：中性进口棉纱美金报价上涨，国内港口库存小幅下降。</p><br>
-<p>3月份中国进口棉纱21.2万吨。</p><br>
-<p>进口棉：中性2026年关税配额89.4万吨已在2026年年初发放。</p><br>
-<p>3月又增发30万吨加工贸易进口棉配额，凭合同申领。</p><br>
-<p>3月份，中国棉花到港量为17.58万吨。</p><br>
+<p>中新社广东佛山6月22日电 (记者 蔡敏婕)广肇高速新建金马大桥22日合龙，计划2027年底全线建成通车。</p><br>
+<p>广(州)肇(庆)高速公路是粤港澳大湾区辐射粤西的关键通道，承载大量跨城通勤、货运及过境车流，现行的通行能力已基本达到饱和。</p><br>
+<p>2024年5月18日，广肇高速改扩建项目全面开工建设，全长51.1公里，由现状双向四车道和双向六车道扩建为双向八车道。</p><br>
+<p>新建金马大桥是广肇高速改扩建项目控制性工程之一，全长1936.6米，桥面宽23.75米，主塔高132.35米，采用H形索塔，外观基本“复刻”了正在通行的旧金马大桥。</p><br>
+<p>两桥均为独塔斜拉桥。</p><br>
+<p>广肇高速改扩建项目管理处主任刁焕新介绍，新桥一改旧桥以混凝土为主的设计方案，采用“连续—斜拉钢混组合梁协作体系”结构，优化了结构受力，实现了内力和刚度的最优平衡。</p><br>
+<p>此外，项目还在技术上进行升级。</p><br>
+<p>中铁大桥局广肇高速改扩建项目1标项目部经理张加阳介绍，针对大桥斜拉梁段、连续梁段两个合龙口，项目团队“量体裁衣”——斜拉梁段通过调节斜拉索张力、施加配重等方式，连续梁段采用支点起落梁刚性旋转、临时支点升降等工艺，精准调整钢梁标高与转角，让大桥实现毫米级“握手”。</p><br>
 <h2>相关推荐</h2><br>
-<h3>普京为何将俄乌谈判时间表与伊朗挂钩</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md</p><br>
-<h3>日本主帅：未能夺冠深感抱歉</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md</p><br>
-<h3>花少8要去世界杯举办国</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md</p><br>
-<h3>2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md</p><br>
-<h3>千与千寻</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md</p><br>
-<h3>如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md</p><br>
-<h3>巴拉圭门将</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md</p><br>
-<h3>炽夏这一幕就这样馋我</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md</p><br>
-<h3>斗破苍穹</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md</p><br>
-<h3>五哈和他们的朋友</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md</p><br>
-<h3>巴拉圭点球大战淘汰德国进16强</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md</p><br>
-<h3>未来的飞机可能会用电吗？</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md</p><br>
+<h3>这几秒成世界杯最值钱广告位</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md</p><br>
+<h3>尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md</p><br>
+<h3>天道</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md</p><br>
+<h3>租房时你会更看重「住得舒服」，还是「每天通勤更方便」？</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md</p><br>
+<h3>卢卡申科发布解放军仪仗队视频</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md</p><br>
+<h3>日本淘汰</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md</p><br>
+<h3>博世们还在犹豫 美的们已经卖断货</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md</p><br>
+<h3>流金岁月</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md</p><br>
+<h3>日本博主：日本足球真的垃圾</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md</p><br>
+<h3>巴西2-1绝杀日本</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>巴西2比1日本</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md</p><br>
-<h3>德国 传控</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md</p><br>
-<h3>中国代表在联合国点名日本所犯罪行</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md</p><br>
-<h3>世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md</p><br>
-<h3>如何看待武亮说大学生生活费1500就够用这一言论？</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md</p><br>
-<h3>千万不要随便扣肚脐</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md</p><br>
-<h3>怕iPhone涨价的用户已紧急换新</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md</p><br>
-<h3>2021江苏卫视跨年演唱会</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md</p><br>
-<h3>阿根廷vs佛得角预测</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md</p><br>
-<h3>藤森庆子赢得秘鲁总统选举</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md</p><br>
-<h3>梅德韦杰夫：俄最严峻的是人口问题</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md</p><br>
-<h3>黄健翔：说巴西差的忘了日本7-0我们</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md</p><br>
-<h3>如何改变自己太负责任的性格?</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md</p><br>
-<h3>男子P图现任妻子照片冒充前妻</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md</p><br>
-<h3>《恋与深空》被指触碰民族伤痛红线</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md</p><br>
+<h3>为什么小组赛出局会让韩国人破防</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md</p><br>
+<h3>如何看待现在有学者用AI做数学科研？</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md</p><br>
+<h3>巴拉圭点球大战淘汰德国进16强</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md</p><br>
+<h3>李在明向韩国两大财阀90度鞠躬</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md</p><br>
+<h3>荀彧和曹操反目成仇的根本原因是什么？</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md</p><br>
+<h3>韩国世界杯出局是主帅一个人的锅吗</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md</p><br>
+<h3>奔跑吧·黄河篇第二季</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md</p><br>
+<h3>白玉兰获奖作品《生命树》背后</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md</p><br>
+<h3>德国队回应爆冷淘汰</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md</p><br>
+<h3>男子诋毁袁隆平科研成果被刑拘</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md</p><br>
+<h3>科学备孕男女都要上心</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md</p><br>
+<h3>日本遭读秒绝杀 森保一：我水平不够</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md</p><br>
+<h3>巴拉圭进球</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md</p><br>
+<h3>教育部披露：高考生篡改7名同学志愿</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md</p><br>
+<h3>黄晓明晒和周杰伦的合照</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md</p><br>

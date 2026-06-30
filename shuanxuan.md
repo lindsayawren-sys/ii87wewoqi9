@@ -1,43 +1,44 @@
-<h1>广东湛江至越南芽庄航线复航 边检高效保障通关顺畅</h1><br>
+<h1>美元指数创11月以来最高水平 交易员上调美联储升息押注</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新网广东湛江5月1日电 (方伟彬 陈思颖 梁程程)记者5月1日从广东湛江出入境边防检查站(下称湛江边检站)获悉，4月30日晚，一架越南越捷航空的空客A321客机从湛江吴川机场起飞，标志着湛江至越南芽庄的国际客运航线正式复航。 该航线的恢复，为粤西地区旅客前往东南亚热门旅游目的地提供了“家门口”出发的便捷选择，单程飞行时间仅约2小时。 为保障复航首班旅客高效顺畅通关，湛江边检站</p><br>
+<p>美元即期指数周二升至去年11月以来最高水平，交易员进一步强化了对美联储今年加息的预期。 美元即期指数上涨0.4%。随着美联储政策前景与全球其他主要央行日益背离，美元获得支撑。交易员目前预计，到2027年初，美国将累计加息近50个基点，相当于接近两次25个基点的加息。 瑞穗国际策略师Jordan Rochester表示：“美元还有进一步上涨空间。美元通常会在美联储加息前走强，而市</p><br>
 <h2>正文</h2><br>
-<p>中新网广东湛江5月1日电 (方伟彬 陈思颖 梁程程)记者5月1日从广东湛江出入境边防检查站(下称湛江边检站)获悉，4月30日晚，一架越南越捷航空的空客A321客机从湛江吴川机场起飞，标志着湛江至越南芽庄的国际客运航线正式复航。</p><br>
-<p>该航线的恢复，为粤西地区旅客前往东南亚热门旅游目的地提供了“家门口”出发的便捷选择，单程飞行时间仅约2小时。</p><br>
-<p>为保障复航首班旅客高效顺畅通关，湛江边检站提前启动“航班动态预警机制”，科学部署警力，开足查验通道。</p><br>
-<p>执勤现场秩序井然，中国公民专用通道确保中国旅客排队候检时间不超过30分钟，民警专业高效的查验使旅客人均通关时间仅需数秒。</p><br>
-<p>此外，边检民警还在候检大厅主动为旅客提供越南入境政策咨询与旅行温馨提示，以专业、温馨的服务迎接航线重启。</p><br>
-<p>“以前去芽庄中转很周折，现在直飞只要2小时，边检通关速度也特别快，体验非常好！</p><br>
-<p>”首航旅客对出行便利性给予了积极评价。</p><br>
-<p>据悉，首航航班上座率接近满员，显示出旺盛的市场需求。</p><br>
+<p>美元即期指数周二升至去年11月以来最高水平，交易员进一步强化了对美联储今年加息的预期。</p><br>
+<p>美元即期指数上涨0.4%。</p><br>
+<p>随着美联储政策前景与全球其他主要央行日益背离，美元获得支撑。</p><br>
+<p>交易员目前预计，到2027年初，美国将累计加息近50个基点，相当于接近两次25个基点的加息。</p><br>
+<p>瑞穗国际策略师Jordan Rochester表示：“美元还有进一步上涨空间。</p><br>
+<p>美元通常会在美联储加息前走强，而市场目前正在考虑9月启动加息周期的可能性。</p><br>
+<p>” 责任编辑：李桐</p><br>
 <h2>相关推荐</h2><br>
-<h3>日本淘汰</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md</p><br>
-<h3>啊啊啊</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md</p><br>
-<h3>如何看待武亮说大学生生活费1500就够用这一言论？</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md</p><br>
-<h3>板面：为什么那么多人爱吃？？！</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md</p><br>
-<h3>妻子撞死家暴丈夫案二审案情反转</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md</p><br>
-<h3>德国队连续三届世界杯无缘16强</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md</p><br>
-<h3>孙颖莎王楚钦晋级8强</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md</p><br>
-<h3>四川宜宾地震为何震感明显</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md</p><br>
-<h3>韩国道歉完日本道歉</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md</p><br>
-<h3>内马尔未登场 安切洛蒂赛后回应</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md</p><br>
+<h3>Melo向柳智敏张元英道歉</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md</p><br>
+<h3>大货车掉落螺丝扎进骑手护目镜</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md</p><br>
+<h3>歌剧老师锐评歌手第6期</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md</p><br>
+<h3>怕iPhone涨价的用户已紧急换新</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md</p><br>
+<h3>欧洲装一台空调有多难</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md</p><br>
+<h3>老人卖菜获博主帮助后遇车祸去世</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md</p><br>
+<h3>小嗷 恋与深空</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md</p><br>
+<h3>教育部披露：高考生篡改7名同学志愿</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md</p><br>
+<h3>青春环游记第三季</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md</p><br>
+<h3>一生一世</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md</p><br>
+<h3>【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md</p><br>
+<h3>为什么会有「念旧」的心理？</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md</p><br>
-<h3>泰山景区回应修建刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md</p><br>
-<h3>超神人辉夜姬 第二集</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md</p><br>
-<h3>恋与深空回应敖尹来源</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md</p><br>
-<h3>武磊：日本队有能力跟任何强队抗衡</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md</p><br>
-<h3>人民锐评：网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md</p><br>
-<h3>2021江苏卫视跨年演唱会</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md</p><br>
-<h3>恋与深空道歉声明</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md</p><br>
-<h3>韩国道歉完日本道歉</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md</p><br>
-<h3>明星大侦探第四季</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md</p><br>
-<h3>德国vs巴拉圭</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md</p><br>
-<h3>为什么香港的冲厕水是咸的？</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md</p><br>
-<h3>热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md</p><br>
-<h3>德国淘汰</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md</p><br>
-<h3>孙颖莎一锤定音的正手</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md</p><br>
+<h3>网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md</p><br>
+<h3>日本主帅：未能夺冠深感抱歉</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md</p><br>
+<h3>【涤墨作战7人870】望：我从地狱杀回来了！</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md</p><br>
+<h3>巴西绝杀日本</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md</p><br>
+<h3>四川宜宾地震为何震感明显</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md</p><br>
+<h3>千与千寻</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md</p><br>
+<h3>贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md</p><br>
+<h3>内马尔替补</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md</p><br>
+<h3>要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md</p><br>
+<h3>陈小春人老了干什么也不心酸</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md</p><br>
+<h3>五哈和他们的朋友</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md</p><br>
+<h3>为什么会有「念旧」的心理？</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md</p><br>
+<h3>歌剧老师锐评歌手第6期</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md</p><br>
+<h3>恋与深空道歉声明</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md</p><br>
+<h3>爆冷出局！德国点球大战不敌巴拉圭</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md</p><br>

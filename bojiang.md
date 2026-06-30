@@ -1,45 +1,45 @@
-<h1>“五一”假期首日浙江完成跨区域人员流动量2604.77万人次</h1><br>
+<h1>新疆“火洲”沙疗吸引海内外游客“迎热而来”</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新网杭州5月2日电(鲍梦妮)据浙江省交通运输厅5月2日消息，5月1日，浙江全省完成跨区域人员流动量2604.77万人次。其中营业性客运量(不含地铁、公交)423.37万人次。 具体来看，当日，浙江完成铁路客运量141.81万人次；水路客运47.23万人次；民航客运量28.67万人次。 公路方面，浙江完成公路人员流动量2387.06万人次，其中公路营业性客运量205.66万人次</p><br>
+<p>中新网乌鲁木齐6月23日电 (胡嘉琛)新疆吐鲁番市22日最高气温接近40℃，上海游客王霖菲特意来到库木塔格沙漠景区沙疗康养基地，体验沙疗。 吐鲁番市有“火洲”之称，曾出现超52℃的极端高温。近年来，当地依托光热资源探索发展康养产业，入选国家级非物质文化遗产代表性项目名录扩展项目名录的维吾尔医药(沙疗)，吸引国内外游客“迎热而来”。 据吐鲁番市维吾尔医医院沙疗中心医疗区负责人斯拉</p><br>
 <h2>正文</h2><br>
-<p>中新网杭州5月2日电(鲍梦妮)据浙江省交通运输厅5月2日消息，5月1日，浙江全省完成跨区域人员流动量2604.77万人次。</p><br>
-<p>其中营业性客运量(不含地铁、公交)423.37万人次。</p><br>
-<p>具体来看，当日，浙江完成铁路客运量141.81万人次；水路客运47.23万人次；民航客运量28.67万人次。</p><br>
-<p>公路方面，浙江完成公路人员流动量2387.06万人次，其中公路营业性客运量205.66万人次；高速公路及普通国省道非营业性小客车人员出行量2181.4万人次。</p><br>
-<p>大客流量令杭州西站创枢纽运营新峰值。</p><br>
-<p>5月1日，杭州西站共计开行列车315趟，发送旅客105138人次，创历史新高；到达旅客94363人次，累计到发总客流199501人次，刷新开站以来单日到发客流历史纪录。</p><br>
-<p>在杭州萧山国际机场，为缓解旅客“赶机焦虑”，该机场于5月1日起联合三家基地航司缩短截载时间，优化出行效率。</p><br>
-<p>如旅客无托运行李，乘坐中国国航、厦门航空杭州始发国内航班客，截载时间由原来的航班起飞前40分钟缩短至35分钟；乘坐长龙航空杭州始发国内航班，截载时间由35分钟缩短至30分钟。</p><br>
+<p>中新网乌鲁木齐6月23日电 (胡嘉琛)新疆吐鲁番市22日最高气温接近40℃，上海游客王霖菲特意来到库木塔格沙漠景区沙疗康养基地，体验沙疗。</p><br>
+<p>吐鲁番市有“火洲”之称，曾出现超52℃的极端高温。</p><br>
+<p>近年来，当地依托光热资源探索发展康养产业，入选国家级非物质文化遗产代表性项目名录扩展项目名录的维吾尔医药(沙疗)，吸引国内外游客“迎热而来”。</p><br>
+<p>据吐鲁番市维吾尔医医院沙疗中心医疗区负责人斯拉吉丁·依马尔介绍，每年6月至8月是沙疗的黄金季节。</p><br>
+<p>沙疗的原理是利用沙粒的矿物质渗透及按摩等作用实现自然理疗。</p><br>
+<p>临床实践证明，沙疗对风湿性关节炎等有效果。</p><br>
+<p>近两年，每年有近30万人次慕名到吐鲁番市体验沙疗。</p><br>
+<p>吉尔吉斯斯坦媒体人伊万·多尼斯近日随参访团来到新疆，在体验完沙疗后说，沙疗令人感到很新奇。</p><br>
 <h2>相关推荐</h2><br>
-<h3>女子清吧被陌生人投放伟哥</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md</p><br>
-<h3>周生如故</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md</p><br>
-<h3>德国 4-5 爆冷输球巴拉圭，队史首输世界杯点球大战，连续 3 届无缘 16 强，你认为问题出在哪？</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md</p><br>
-<h3>《我落泪情绪零碎》</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md</p><br>
-<h3>我把队友的7连跪剪成了艺术</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md</p><br>
-<h3>孙兴慜发长文致歉</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md</p><br>
-<h3>宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md</p><br>
-<h3>张月收到黄灿灿辣货两眼发光</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md</p><br>
-<h3>小娘惹</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md</p><br>
-<h3>大货车掉落螺丝扎进骑手护目镜</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md</p><br>
-<h3>世界杯小组赛出局球队身价排行</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md</p><br>
-<h3>你对《崩坏：星穹铁道》4.4版本「鸣笛于归寂之时」前瞻特别节目有什么期待？</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md</p><br>
+<h3>全球芯片巨头史诗级扩产</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md</p><br>
+<h3>国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md</p><br>
+<h3>斛珠夫人</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md</p><br>
+<h3>德国 4-5 爆冷输球巴拉圭，队史首输世界杯点球大战，连续 3 届无缘 16 强，你认为问题出在哪？</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md</p><br>
+<h3>德国主帅称无法理解加时进球被吹</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md</p><br>
+<h3>泰山建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md</p><br>
+<h3>女子健身不当 居然“脑子漏水”了</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md</p><br>
+<h3>商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md</p><br>
+<h3>孙颖莎王楚钦晋级8强</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md</p><br>
+<h3>巴西替补奇兵读秒绝杀</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md</p><br>
+<h3>荀彧和曹操反目成仇的根本原因是什么？</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md</p><br>
+<h3>梅德韦杰夫：俄最严峻的是人口问题</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>曝灰熊将莫兰特交易至开拓者</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md</p><br>
-<h3>哈弗茨崩溃道歉：我们踢得太差了</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md</p><br>
-<h3>明星大侦探第四季</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md</p><br>
-<h3>沙丘</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md</p><br>
-<h3>人可以极简主义到什么程度？</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md</p><br>
-<h3>泰山建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md</p><br>
-<h3>郑钦文温网首轮出局</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md</p><br>
-<h3>男子中医院拔火罐致浅2度烧伤</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md</p><br>
-<h3>小娘惹</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md</p><br>
-<h3>81岁老人被男子买光菜回家车祸去世</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md</p><br>
-<h3>为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md</p><br>
-<h3>詹姆斯 勇士</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md</p><br>
-<h3>亚洲球队全部告别世界杯</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md</p><br>
-<h3>杨某诋毁袁隆平院士科研成果被刑拘</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md</p><br>
-<h3>你对《崩坏：星穹铁道》4.4版本「鸣笛于归寂之时」前瞻特别节目有什么期待？</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md</p><br>
+<h3>收到补税提醒尽快办理 明起有滞纳金</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md</p><br>
+<h3>如何看待恋与深空对 731 等三大争议的回应？能挽回口碑吗？</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md</p><br>
+<h3>曝iPhone18Pro机密文件现身暗网</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md</p><br>
+<h3>大蒜晒外面被路过女子连盆端走</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md</p><br>
+<h3>日本五次世界杯淘汰赛全败</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md</p><br>
+<h3>领克900大型SUV值得购买吗?</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md</p><br>
+<h3>古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md</p><br>
+<h3>咕嘎万能小摊1：沉浸式制作惠灵顿牛排</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md</p><br>
+<h3>陈幸同晋级WTT美国大满贯女单32强</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md</p><br>
+<h3>一生一世</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md</p><br>
+<h3>美人鱼</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md</p><br>
+<h3>央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md</p><br>
+<h3>美媒：美军第五舰队司令部已无法使用</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md</p><br>
+<h3>巴西vs日本</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md</p><br>
+<h3>《共患难》</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md</p><br>

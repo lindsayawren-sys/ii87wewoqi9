@@ -1,43 +1,43 @@
-<h1>影石营收大增利润腰斩，285亿刘靖康豪赌未来</h1><br>
+<h1>产业链上下游紧密协同，精准对接多元需求 国产影像品牌获国际市场青睐</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：雷达Finance 雷达财经出品 文|彭程 编|孟帅 在登陆科创板即将满一周年之际，市值超770亿元的全球全景相机龙头影石创新，却接连交出两份营收与利润走势分化的成绩单。 2025年，影石创新录得营收97.41亿元，同比激增74.76%，创下历史新高，但归母净利润却同比下降6.62%至9.29亿元。</p><br>
+<p>产业链上下游紧密协同，精准对接多元需求 国产影像品牌获国际市场青睐(中国品牌圈粉海外) 日前，在广东广州举行的第十一届全国先进影像技术巡展上，猛玛、唯卓仕、七工匠、爱图仕、博冠等品牌集中亮相，广东影像企业几乎占了一半。为何影像品牌集体扎根广东？在这里，从镜头到配件，从导演车到图传设备，研发、制造、销售环环相扣，产品迭代与市场响应速度持续刷新。全链协同、全球共创、品牌出海，依托上</p><br>
 <h2>正文</h2><br>
-<p>炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！</p><br>
-<p>来源：雷达Finance 雷达财经出品 文|彭程 编|孟帅 在登陆科创板即将满一周年之际，市值超770亿元的全球全景相机龙头影石创新，却接连交出两份营收与利润走势分化的成绩单。</p><br>
-<p>2025年，影石创新录得营收97.41亿元，同比激增74.76%，创下历史新高，但归母净利润却同比下降6.62%至9.29亿元。</p><br>
-<p>今年第一季度，影石创新的业绩延续了2025年的全年走势，营收同比增长83.11%，归母净利润却同比下降52.02%。</p><br>
-<p>而公司经营活动产生的现金流量净额，也从上年同期的-3.81亿元下探至今年第一季度的-14.71亿元。</p><br>
-<p>深入剖析影石创新增收不增利的业绩不难发现，这是公司主动战略布局与外部环境变化共同作用的结果。</p><br>
-<p>一方面，公司积极加大战略研发投入，全力开拓市场，这使得研发费用、销售费用等相关支出显著增加。</p><br>
-<p>另一方面，受存储元器件价格上涨、影像行业竞争日益激烈等因素影响，公司的毛利率有所下降，进一步压缩了利润空间。</p><br>
+<p>产业链上下游紧密协同，精准对接多元需求 国产影像品牌获国际市场青睐(中国品牌圈粉海外) 日前，在广东广州举行的第十一届全国先进影像技术巡展上，猛玛、唯卓仕、七工匠、爱图仕、博冠等品牌集中亮相，广东影像企业几乎占了一半。</p><br>
+<p>为何影像品牌集体扎根广东？</p><br>
+<p>在这里，从镜头到配件，从导演车到图传设备，研发、制造、销售环环相扣，产品迭代与市场响应速度持续刷新。</p><br>
+<p>全链协同、全球共创、品牌出海，依托上下游紧密协同的影像产业链，一批自主品牌正在广东快速成长，受到国际市场青睐。</p><br>
+<p>——编 者全链协同，持续锻造“快制造”竞争力 一支镜头从设计到上市，需要多久？</p><br>
+<p>“过去，一支镜头从研发到上市需要数年时间。</p><br>
+<p>如今，随着技术、人才和供应链逐渐成熟，唯卓仕已将产品研发周期压缩到一年半左右。</p><br>
+<p>”深圳市爵影科技有限公司总经理戴锦辉说，作为爵影科技旗下的自主品牌，唯卓仕在影像领域的快速发展离不开广东产业链的支持。</p><br>
 <h2>相关推荐</h2><br>
-<h3>王源近几年没有路演了</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md</p><br>
-<h3>金刚川</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md</p><br>
-<h3>勇敢的心第二部</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md</p><br>
-<h3>马航370搜寻最新消息</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md</p><br>
-<h3>杨紫大银幕成绩单如何</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md</p><br>
-<h3>毕业以后，你最怀念的大学记忆是什么？</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md</p><br>
-<h3>人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md</p><br>
-<h3>荷兰VS摩洛哥</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md</p><br>
-<h3>男子醉酒溺水获救后同行人拒协助抬人</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md</p><br>
-<h3>全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md</p><br>
+<h3>世界杯：荷兰vs摩洛哥</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md</p><br>
+<h3>王欣瑜连续4年晋级温网第二轮</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md</p><br>
+<h3>乔家的儿女</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md</p><br>
+<h3>2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md</p><br>
+<h3>世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md</p><br>
+<h3>杨紫获白玉兰视后争议不止</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md</p><br>
+<h3>如何改变自己太负责任的性格?</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md</p><br>
+<h3>森保一致歉：世界第一目标没能实现</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md</p><br>
+<h3>德国爆冷点球大战不敌巴拉圭</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md</p><br>
+<h3>《共患难》</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>卡塞米罗头球破门</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md</p><br>
-<h3>韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md</p><br>
-<h3>哪部作品、哪本书、哪首歌，值得被一直传下去？</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md</p><br>
-<h3>湖北云南的这些涉汛信息都是假的</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md</p><br>
-<h3>大蒜晒外面被路过女子连盆端走</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md</p><br>
-<h3>【涤墨作战7人870】望：我从地狱杀回来了！</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md</p><br>
-<h3>有什么好的高中网课推荐吗？</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md</p><br>
-<h3>郑钦文 四年一轮游</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md</p><br>
-<h3>王楚钦孙颖莎晋级混双八强</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md</p><br>
-<h3>曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md</p><br>
-<h3>浪姐成团夜爆笑吐槽</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md</p><br>
-<h3>金鹰奖视后提名预测</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md</p><br>
-<h3>锐评T1战胜KC</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md</p><br>
-<h3>恋与深空道歉声明</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md</p><br>
-<h3>快递到家不能这样拆</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md</p><br>
+<h3>德国队世界杯点球大战首败</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md</p><br>
+<h3>德国队连续三届世界杯无缘16强</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md</p><br>
+<h3>租房时你会更看重「住得舒服」，还是「每天通勤更方便」？</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md</p><br>
+<h3>2021江苏卫视跨年演唱会</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md</p><br>
+<h3>男子醉酒溺水获救后同行人拒协助抬人</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md</p><br>
+<h3>吴建豪再婚妻子身份公布</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md</p><br>
+<h3>全球芯片巨头史诗级扩产</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md</p><br>
+<h3>黄晓明晒和周杰伦的合照</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md</p><br>
+<h3>五哈和他们的朋友</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md</p><br>
+<h3>捷克主帅库贝克辞职</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md</p><br>
+<h3>第一炉香</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md</p><br>
+<h3>2021江苏卫视跨年演唱会</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md</p><br>
+<h3>沙丘</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md</p><br>
+<h3>好像看到了人类带孩子崩溃的样子</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md</p><br>
+<h3>热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md</p><br>

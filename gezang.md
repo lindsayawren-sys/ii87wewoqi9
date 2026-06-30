@@ -1,44 +1,44 @@
-<h1>“五一”假期首日广深港高铁两站点旅客发送量创历史新高</h1><br>
+<h1>个人风格与时代脱节 英国首相斯塔默执政方两年就将黯然谢幕</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新社深圳5月2日电 (索有为 马鑫宇)深圳铁路部门2日发布的统计数据显示，5月1日，深圳北站、福田站单日旅客发送量均刷新纪录，创历史新高，广深港高铁跨境客流同样高企，不断攀升的旅客流量为假日经济增添新的活力。据了解，5月1日，深圳北站发送旅客40.72万人次，到发旅客73.57万人次，双双刷新2025年10月1日客流纪录；福田站发送旅客4.85万人次，刷新今年2月13日4.1</p><br>
+<p>基尔·斯塔默甚至在自己辞职这件事上，都吃了唐纳德·特朗普的亏。 近两年前斯塔默入主唐宁街时，特朗普还在为争取再次当选美国总统而拼搏。但与特朗普所塑世界格格不入的斯塔默，即将于今年夏天晚些时候卸任，成为又一名匆匆谢幕的英国首相。 直到最后一刻，斯塔默都还希望有时间来考虑清楚他的决定。但外界却不愿意等待。 “基尔·斯塔默将辞去英国首相职务，”特朗普在斯塔默于唐宁街10号楼外发表声明</p><br>
 <h2>正文</h2><br>
-<p>中新社深圳5月2日电 (索有为 马鑫宇)深圳铁路部门2日发布的统计数据显示，5月1日，深圳北站、福田站单日旅客发送量均刷新纪录，创历史新高，广深港高铁跨境客流同样高企，不断攀升的旅客流量为假日经济增添新的活力。</p><br>
-<p>据了解，5月1日，深圳北站发送旅客40.72万人次，到发旅客73.57万人次，双双刷新2025年10月1日客流纪录；福田站发送旅客4.85万人次，刷新今年2月13日4.13万人次纪录；广深港高铁跨境客流13.46万人次，比去年同期增长0.36万人次，增幅2.7%。</p><br>
-<p>为保障旅客假期出行需求，深圳铁路持续加大运能调配，5月1日，深圳北站开行旅客列车957列，加开夜间高铁150列。</p><br>
-<p>值得一提的是，去年福田站新投入使用全智能站台屏蔽门系统后，车站运输能力提升50%，今年“五一”假期运能“马力”全开，5月1日开行旅客列车219列，发送旅客比去年同期大幅增长73.1%。</p><br>
-<p>受旅客外出旅游、探亲需求拉动影响，铁路“五一”假期运输启动以来，深圳铁路客流持续保持高位运行。</p><br>
-<p>4月29日至5月1日日均客流达79.40万人次，5月1日达到最高峰112.27万人次。</p><br>
-<p>铁路部门预计5月2日深圳铁路客流仍将处于高位，达51.71万人次，其中深圳北站预计发送旅客34.41万人次。</p><br>
-<p>5月3日客流将趋于回落，深圳前往长沙、厦门、南昌、广州等方向仍有部分票额。</p><br>
+<p>基尔·斯塔默甚至在自己辞职这件事上，都吃了唐纳德·特朗普的亏。</p><br>
+<p>近两年前斯塔默入主唐宁街时，特朗普还在为争取再次当选美国总统而拼搏。</p><br>
+<p>但与特朗普所塑世界格格不入的斯塔默，即将于今年夏天晚些时候卸任，成为又一名匆匆谢幕的英国首相。</p><br>
+<p>直到最后一刻，斯塔默都还希望有时间来考虑清楚他的决定。</p><br>
+<p>但外界却不愿意等待。</p><br>
+<p>“基尔·斯塔默将辞去英国首相职务，”特朗普在斯塔默于唐宁街10号楼外发表声明的前一天发帖称。</p><br>
+<p>在英国民众厌倦了鲍里斯·约翰逊的浮夸和把戏时，斯塔默沉稳的管理主义姿态帮助当时的在野党工党获得了他们的支持。</p><br>
+<p>但是，他的这种风格与他执政的时代脱节了。</p><br>
 <h2>相关推荐</h2><br>
-<h3>对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md</p><br>
-<h3>【Reaction】女生最少的5款游戏</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md</p><br>
-<h3>古代时期普通老百姓能喝上酒吗？</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md</p><br>
-<h3>曝老詹对自由市场态度与以往截然不同</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md</p><br>
-<h3>巴西替补奇兵读秒绝杀</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md</p><br>
-<h3>郑钦文 四年一轮游</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md</p><br>
-<h3>起风了</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md</p><br>
-<h3>为什么很多企业推行“扁平化管理”后，效率反而下降了？</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md</p><br>
-<h3>萨内 看笑了</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md</p><br>
-<h3>Melo向柳智敏张元英道歉</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md</p><br>
-<h3>金牌调解</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md</p><br>
+<h3>2026年WTT美国大满贯，国乒自带球桌是真实的吗？</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md</p><br>
+<h3>金价跳水 水贝市场显现出“两重天”</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md</p><br>
+<h3>一生一世</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md</p><br>
+<h3>日耳曼拖拉机</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md</p><br>
+<h3>森保一致歉：我执教能力不足</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md</p><br>
+<h3>男子诋毁袁隆平科研成果被刑拘</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md</p><br>
+<h3>炽夏这一幕就这样馋我</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md</p><br>
+<h3>一切民族英雄都是中华民族的脊梁</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md</p><br>
+<h3>外国人第一次来中国旅游是怎样的体验？</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md</p><br>
+<h3>承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md</p><br>
+<h3>荷兰vs摩洛哥</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>四川凉山落石砸毁车辆 3人遇难</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md</p><br>
-<h3>日本主帅赛后回应淘汰出局</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md</p><br>
-<h3>【Reaction】女生最少的5款游戏</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md</p><br>
-<h3>森保一 可以退休了</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md</p><br>
-<h3>赛博朋克边缘行者2预告片</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md</p><br>
-<h3>佐野海舟远射破门</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md</p><br>
-<h3>刘宇宁高情商化解谁站C位</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md</p><br>
-<h3>高考结束了，你会让孩子在家玩手机吗？</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md</p><br>
-<h3>全网说丑的玫瑰空调卖了5万台</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md</p><br>
-<h3>孙颖莎vs刘杨子</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md</p><br>
-<h3>明星大侦探第一季</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md</p><br>
-<h3>你对《崩坏：星穹铁道》4.4版本「鸣笛于归寂之时」前瞻特别节目有什么期待？</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md</p><br>
-<h3>“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md</p><br>
-<h3>如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md</p><br>
-<h3>黄健翔：说巴西差的忘了日本7-0我们</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md</p><br>
+<h3>德国巴拉圭加时</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md</p><br>
+<h3>我设置了全宇宙最安全的密码</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md</p><br>
+<h3>杨紫被质疑未使用原名</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md</p><br>
+<h3>曝老詹对自由市场态度与以往截然不同</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md</p><br>
+<h3>男子P图现任妻子照片冒充前妻</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md</p><br>
+<h3>深圳交警集中曝光典型违法案例</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md</p><br>
+<h3>《共患难》</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md</p><br>
+<h3>杨紫学位证上就是杨紫</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md</p><br>
+<h3>《共患难》</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md</p><br>
+<h3>如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md</p><br>
+<h3>有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md</p><br>
+<h3>美股收盘 热门中概股普涨</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md</p><br>
+<h3>《赛博朋克：边缘行者 2》｜官方预告片</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md</p><br>
+<h3>领克900大型SUV值得购买吗?</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md</p><br>
+<h3>本届世界杯已有5名球员被控强奸</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md</p><br>

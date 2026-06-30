@@ -1,48 +1,47 @@
-<h1>英国央行维持利率3.75%不变</h1><br>
+<h1>美联储前主席格林斯潘去世 享年100岁</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新社伦敦4月30日电 (记者 欧阳开宇)当地时间4月30日，英国央行货币政策委员会公布利率决议，以8票赞成、1票反对的投票结果，维持基准利率3.75%不变。 此次利率决议符合市场普遍预期。决议公布后，金融市场下调对英国央行年内加息的预期。 英国央行行长贝利在当日货币政策报告新闻发布会上表示，未来数月央行在利率决策上面临艰难判断，若等待通胀压力的明确实证再采取行动，或将错失政策</p><br>
+<p>中新社华盛顿6月22日电 (记者 沙晗汀)美国联邦储备委员会前主席艾伦·格林斯潘当地时间22日在华盛顿去世，享年100岁。 格林斯潘的妻子、美国全国广播公司(NBC)记者安德烈娅·米切尔当天发表声明说，格林斯潘当天早上在位于华盛顿的家中因帕金森病并发症去世。 米切尔在声明中说，格林斯潘是“一位巨人”，“他曾协助塑造美国经济数十年，并且能承认自己的错误”。在生活中，他对棒球、网球</p><br>
 <h2>正文</h2><br>
-<p>中新社伦敦4月30日电 (记者 欧阳开宇)当地时间4月30日，英国央行货币政策委员会公布利率决议，以8票赞成、1票反对的投票结果，维持基准利率3.75%不变。</p><br>
-<p>此次利率决议符合市场普遍预期。</p><br>
-<p>决议公布后，金融市场下调对英国央行年内加息的预期。</p><br>
-<p>英国央行行长贝利在当日货币政策报告新闻发布会上表示，未来数月央行在利率决策上面临艰难判断，若等待通胀压力的明确实证再采取行动，或将错失政策调整最佳时机。</p><br>
-<p>他指出，英国央行当前处于利率“主动维持”状态，并未释放明确的加息信号，同时也不反对市场对年内至少两次加息的预期，认为市场此次对利率决议的反应较为理性。</p><br>
-<p>值得关注的是，英国央行因应中东局势设定了新的通胀情景分析，指出若国际油价受冲突影响持续高位运行，英国通胀率或在2027年初突破6%。</p><br>
-<p>英国央行表示，将密切关注中东地区局势发展，不同冲突持续时长及影响程度，将带来差异化经济后果，极端情况下央行或采取强有力的加息举措，若冲突影响有限，则无需上调利率。</p><br>
-<p>(完)</p><br>
+<p>中新社华盛顿6月22日电 (记者 沙晗汀)美国联邦储备委员会前主席艾伦·格林斯潘当地时间22日在华盛顿去世，享年100岁。</p><br>
+<p>格林斯潘的妻子、美国全国广播公司(NBC)记者安德烈娅·米切尔当天发表声明说，格林斯潘当天早上在位于华盛顿的家中因帕金森病并发症去世。</p><br>
+<p>米切尔在声明中说，格林斯潘是“一位巨人”，“他曾协助塑造美国经济数十年，并且能承认自己的错误”。</p><br>
+<p>在生活中，他对棒球、网球、高尔夫球和音乐都有着极大热情，“能成为他的伴侣是我一生中最大的快乐”。</p><br>
+<p>美联储当天发表声明说，格林斯潘在货币政策和经济思想方面的贡献，为美联储、经济学领域及整个国家留下深远影响。</p><br>
+<p>格林斯潘1926年出生于纽约市，在纽约大学先后获得经济学学士、硕士和博士学位。</p><br>
+<p>20世纪70年代，他曾在福特总统任内担任总统经济顾问。</p><br>
+<p>1987年，他被里根总统任命为美联储主席，后来在老布什、克林顿和小布什政府时期均获得连任，直至2006年卸任。</p><br>
 <h2>相关推荐</h2><br>
-<h3>日本球迷被强行披上巴西国旗</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md</p><br>
-<h3>索马里女大使：想和中国一起搞事业</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md</p><br>
-<h3>齐思钧回复张月</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md</p><br>
-<h3>手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md</p><br>
-<h3>王楚钦说配合稍微有些陌生感</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md</p><br>
-<h3>董卿父亲报纸上发文悼念亡妻</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md</p><br>
-<h3>毒液2</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md</p><br>
-<h3>梅德韦杰夫：俄最严峻的是人口问题</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md</p><br>
-<h3>德国爆冷点球大战不敌巴拉圭</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md</p><br>
-<h3>如何看待德国队连续三届世界杯稳定 32 强？</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md</p><br>
-<h3>披荆斩棘的哥哥</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md</p><br>
-<h3>“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md</p><br>
-<h3>把毒品藏在哪里，60秒内不会被发现？</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md</p><br>
-<h3>恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md</p><br>
-<h3>网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md</p><br>
+<h3>高考结束了，你会让孩子在家玩手机吗？</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md</p><br>
+<h3>有人见过武则天的画像吗，非常好奇？</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md</p><br>
+<h3>【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md</p><br>
+<h3>花少8要去世界杯举办国</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md</p><br>
+<h3>电子游戏中有哪些关于武器的“刻板印象”？</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md</p><br>
+<h3>荷兰vs摩洛哥</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md</p><br>
+<h3>又一家县级医院关停门诊输液大厅</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md</p><br>
+<h3>日本队主帅道歉</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md</p><br>
+<h3>法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md</p><br>
+<h3>存储芯片龙头提示风险</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md</p><br>
+<h3>【大鸣王潮1566】真拿你没办法</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md</p><br>
+<h3>【硬核拆解】汽车人到底离我们有多远？</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md</p><br>
+<h3>杨紫大银幕成绩单如何</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md</p><br>
+<h3>庆祝中国共产党成立105周年大会将举行</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>存储芯片龙头提示风险</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md</p><br>
-<h3>2026年WTT美国大满贯，国乒自带球桌是真实的吗？</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md</p><br>
-<h3>咕嘎万能小摊1：沉浸式制作惠灵顿牛排</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md</p><br>
-<h3>世界杯欧洲队7战南美仅1胜</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md</p><br>
-<h3>啊啊啊</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md</p><br>
-<h3>《恋与深空》被指触碰民族伤痛红线</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md</p><br>
-<h3>“法德大战”泡汤了</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md</p><br>
-<h3>刘宇宁高情商化解谁站C位</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md</p><br>
-<h3>内马尔替补</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md</p><br>
-<h3>王菲谢霆锋十指紧扣好甜</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md</p><br>
-<h3>一见倾心</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md</p><br>
-<h3>人可以极简主义到什么程度？</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md</p><br>
-<h3>《鸣潮》玄方主题曲 MV | 定玄</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md</p><br>
-<h3>扬名立万</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md</p><br>
-<h3>高考结束了，你会让孩子在家玩手机吗？</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md</p><br>
+<h3>承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md</p><br>
+<h3>网瘾賊大的阿嬷</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md</p><br>
+<h3>世界杯</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md</p><br>
+<h3>郑钦文温网一轮游</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md</p><br>
+<h3>郑钦文 四年一轮游</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md</p><br>
+<h3>终于把好哥们处成了情侣!</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md</p><br>
+<h3>武磊：巴西队赢的并不轻松</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md</p><br>
+<h3>青春环游记第三季</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md</p><br>
+<h3>Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md</p><br>
+<h3>被巴西绝杀后 日球员田中碧跪地痛哭</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md</p><br>
+<h3>城市规划有可能成为「屎山代码」吗？</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md</p><br>
+<h3>男子中医院拔火罐致浅2度烧伤</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md</p><br>
+<h3>锐评T1战胜KC</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md</p><br>
+<h3>王濛回复黄灿灿</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md</p><br>
+<h3>毕业以后，你最怀念的大学记忆是什么？</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md</p><br>

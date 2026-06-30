@@ -1,43 +1,45 @@
-<h1>所有的逻辑都在反转：原油减仓、铜银增仓，主力在藏什么药？</h1><br>
+<h1>迈普医学3.35亿并购上会在即，业绩承诺能否实现引关注</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:08:44 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>来源：汇通财经APP 汇通财经APP讯——周六（05月02日），最新披露的持仓数据显示，大宗商品与金融资产内部出现显著分歧。投机者在原油、黄金及大豆市场表现审慎，削减多头头寸；与此同时，玉米、白银及铜市场获得资金加码。美国国债市场方面，资金在不同期限品种间的调仓动向分化，长端国债压力依旧，而短端空头略有回补。外汇市场则维持欧元多头与日元大幅空头的博弈格局，显示出市场对不同经济体</p><br>
+<p>迈普医学（301033）并购广州易介医疗科技有限公司（以下简称“易介医疗”）事项即将上会。深交所官网信息显示，深交所并购重组审核委员会定于6月26日召开2026年第7次并购重组审核委员会审议会议，审议迈普医学发行股份购买资产事项。重组报告书显示，迈普医学拟通过发行股份及支付现金方式，向广州泽新医疗科技有限公司（以下简称“泽新医疗”）等10名交易对方收购易介医疗100%股权，交易</p><br>
 <h2>正文</h2><br>
-<p>来源：汇通财经APP 汇通财经APP讯——周六（05月02日），最新披露的持仓数据显示，大宗商品与金融资产内部出现显著分歧。</p><br>
-<p>投机者在原油、黄金及大豆市场表现审慎，削减多头头寸；与此同时，玉米、白银及铜市场获得资金加码。</p><br>
-<p>美国国债市场方面，资金在不同期限品种间的调仓动向分化，长端国债压力依旧，而短端空头略有回补。</p><br>
-<p>外汇市场则维持欧元多头与日元大幅空头的博弈格局，显示出市场对不同经济体政策预期的剧烈对冲。</p><br>
-<p>贵金属持仓变动 数据显示，COMEX黄金投机者在截至4月28日的一周内，将净多头头寸削减了3，924手，降至91，574手。</p><br>
-<p>这一变动逻辑表明，在经历了前期的避险情绪释放后，部分资金选择获利了结。</p><br>
-<p>相比之下，白银市场展现出更强的韧性，净多头头寸增加1，882手至10，745手。</p><br>
-<p>铜市场同样获得看涨资金青睐，净多头头寸上升1，665手，显示出工业属性驱动的买盘在支撑盘面。</p><br>
+<p>迈普医学（301033）并购广州易介医疗科技有限公司（以下简称“易介医疗”）事项即将上会。</p><br>
+<p>深交所官网信息显示，深交所并购重组审核委员会定于6月26日召开2026年第7次并购重组审核委员会审议会议，审议迈普医学发行股份购买资产事项。</p><br>
+<p>重组报告书显示，迈普医学拟通过发行股份及支付现金方式，向广州泽新医疗科技有限公司（以下简称“泽新医疗”）等10名交易对方收购易介医疗100%股权，交易价格约3.35亿元。</p><br>
+<p>不过，标的公司目前业绩持续亏损，在此背景下，业绩承诺方做出的业绩承诺合理性与可实现性难免引发市场关注。</p><br>
+<p>而在重大资产重组报告书中，也提示了标的公司业绩承诺可能无法实现的风险。</p><br>
+<p>迈普医学是一家专注于高性能植入医疗器械的科技创新型企业，是国内神经外科领域唯一同时拥有人工硬脑（脊）膜补片、颅颌面修补及固定系统、可吸收再生氧化纤维素、硬脑膜医用胶等植入医疗器械产品的企业，覆盖开颅手术所需要的关键植入医疗器械。</p><br>
+<p>财务数据显示，2025年迈普医学实现营业收入约3.69亿元，同比增长32.46%；对应实现归属净利润约1.13亿元，同比增长43.47%。</p><br>
+<p>其中，人工硬脑（脊）膜补片是公司最主要的收入来源，2025年该产品实现收入约1.56亿元，占营业收入的比重达42.36%。</p><br>
 <h2>相关推荐</h2><br>
-<h3>董路：谁赢谁是“正路子”</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md</p><br>
-<h3>欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md</p><br>
-<h3>人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md</p><br>
-<h3>急先锋</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md</p><br>
-<h3>日本队5进世界杯淘汰赛0胜</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md</p><br>
-<h3>韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md</p><br>
-<h3>沙丘</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md</p><br>
-<h3>我们看到的星星是不是有些已经不存在了？</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md</p><br>
-<h3>古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md</p><br>
-<h3>锐评：网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md</p><br>
+<h3>女儿从清华毕业 爸爸晒出17年对比照</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md</p><br>
+<h3>一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md</p><br>
+<h3>蜘蛛侠:英雄归来</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md</p><br>
+<h3>韩国足球荒唐背后的财阀控局</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md</p><br>
+<h3>孙兴慜发长文致歉</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md</p><br>
+<h3>妻子撞死家暴丈夫案二审案情反转</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md</p><br>
+<h3>欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md</p><br>
+<h3>爱直接对嘴喝饮料的人天塌了</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md</p><br>
+<h3>2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md</p><br>
+<h3>人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md</p><br>
+<h3>【Reaction】女生最少的5款游戏</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md</p><br>
+<h3>花少8要去世界杯举办国</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>人民锐评网红诋毁袁隆平造谣企业家</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md</p><br>
-<h3>内马尔中场休息积极鼓励队友</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md</p><br>
-<h3>手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md</p><br>
-<h3>田曦薇这是日常不是广告</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md</p><br>
-<h3>如何看待武亮说大学生生活费1500就够用这一言论？</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md</p><br>
-<h3>如何看待现在有学者用AI做数学科研？</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md</p><br>
-<h3>日本球员说被绝杀非常不甘心</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md</p><br>
-<h3>王楚钦孙颖莎vs皮斯特耶库库洛娃</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md</p><br>
-<h3>为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md</p><br>
-<h3>小娘惹</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md</p><br>
-<h3>蜘蛛侠:平行宇宙</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md</p><br>
-<h3>曝波尔津吉斯提前续约勇士</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md</p><br>
-<h3>金牌调解</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md</p><br>
-<h3>疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md</p><br>
-<h3>森保一 可以退休了</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md</p><br>
+<h3>发明linux、python、redis、nginx、sqlite的人算不算天才？</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md</p><br>
+<h3>大货车掉落螺丝扎进骑手护目镜</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md</p><br>
+<h3>陈幸同晋级WTT美国大满贯女单32强</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md</p><br>
+<h3>巴西替补奇兵读秒绝杀</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md</p><br>
+<h3>高考填志愿父亲和女儿产生分歧</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md</p><br>
+<h3>国内最大沙漠发洪水意味着什么</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md</p><br>
+<h3>曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md</p><br>
+<h3>锐评：网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md</p><br>
+<h3>莫兰特被交易到开拓者</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md</p><br>
+<h3>覃予萱晋级WTT美国大满贯女单32强</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md</p><br>
+<h3>爱直接对嘴喝饮料的人天塌了</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md</p><br>
+<h3>【涤墨作战7人870】望：我从地狱杀回来了！</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md</p><br>
+<h3>我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md</p><br>
+<h3>为什么会有「念旧」的心理？</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md</p><br>
+<h3>爱直接对嘴喝饮料的人天塌了</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md</p><br>
