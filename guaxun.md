@@ -1,57 +1,47 @@
-# 达美航空CEO称航司将“显著”下调增长计划，炼厂预计贡献3亿美元收益
+# 浦发银行晋中分行被罚20万元：违规发放贷款用途不真实的流动资金贷款
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2025年第四季度财报 核心要点 达美航空 CEO 埃德・巴斯蒂安表示，随着燃油成本飙升，航司将在近期 “显著下调” 运力增长计划。这一举措进一步巩固了多家航司的收缩策略 —— 受中东战争引发的航空燃油历史性涨价冲击，行业正面临严峻挑战。 该股早盘交易涨幅超 11%，延续了油价下跌后美国各大航司股价的上涨势头。 达美航空周三预测，第二季度调整后每股收益为 1.00
+5月9日金融一线消息，国家金融监督管理总局晋中监管分局行政处罚信息公开表显示，上海浦东发展银行股份有限公司晋中分行因违规发放贷款用途不真实的流动资金贷款，被罚款20万元。郭宗锋（时任上海浦东发展银行股份有限公司晋中定阳路支行行长）对于上述违法违规行为负有责任，被给予警告。 责任编辑：曹睿潼
 
 ## 正文
 
-专题：聚焦美股2025年第四季度财报 核心要点 达美航空 CEO 埃德・巴斯蒂安表示，随着燃油成本飙升，航司将在近期 “显著下调” 运力增长计划。
+5月9日金融一线消息，国家金融监督管理总局晋中监管分局行政处罚信息公开表显示，上海浦东发展银行股份有限公司晋中分行因违规发放贷款用途不真实的流动资金贷款，被罚款20万元。
 
-这一举措进一步巩固了多家航司的收缩策略 —— 受中东战争引发的航空燃油历史性涨价冲击，行业正面临严峻挑战。
+郭宗锋（时任上海浦东发展银行股份有限公司晋中定阳路支行行长）对于上述违法违规行为负有责任，被给予警告。
 
-该股早盘交易涨幅超 11%，延续了油价下跌后美国各大航司股价的上涨势头。
-
-达美航空周三预测，第二季度调整后每股收益为 1.00 至 1.50 美元，低于分析师预期的 1.41 美元；但营收同比增幅预计达 “低两位数”，高于华尔街约 10% 的预测。
-
-该公司表示，全年运力或持平。
-
-达美航空称，本季度因成本飙升，燃油支出将增加 20 亿美元。
-
-以下是基于 LSEG 市场共识数据，达美航空第一季度业绩与市场预期对比： 表格 达美航空是美国首家公布第一季度业绩的大型航司，而联合航空、达美航空等此前已在削减本季度运力。
-
-运力缩减可能推高机票价格，而机票价格本就处于上涨趋势。
+责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-30 08:18 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
-- 2026-06-30 08:09 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
-- 2026-06-30 08:16 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-30 08:18 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-30 08:08 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-30 07:55 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-30 08:04 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-30 07:55 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-30 08:00 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-30 08:23 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-30 07:59 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-30 08:30 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-30 08:06 - [库尼亚赛后伸五指嘲讽日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-30 08:20 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-30 08:04 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-30 08:15 - [日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-30 08:18 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-30 08:15 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
+- 2026-06-30 08:15 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-30 08:11 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-30 08:17 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-30 08:28 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:13 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/588459001.shtml)
-- 2026-06-30 08:23 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/49707.shtml)
-- 2026-06-30 08:15 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/582381.shtml)
-- 2026-06-30 08:07 - [日本球迷被强行披上巴西国旗](https://www.blog.kurohicncr.top/Article/details/35615963.shtml)
-- 2026-06-30 08:10 - [索马里女大使：想和中国一起搞事业](http://www.blog.minike.top/Article/details/4353960889.shtml)
-- 2026-06-30 08:03 - [博世们还在犹豫 美的们已经卖断货](http://www.share.kurohicncr.top/Article/details/63598367444.shtml)
-- 2026-06-30 08:04 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/636756721106.shtml)
-- 2026-06-30 08:16 - [马耳他著名拱门坍塌致中国男子身亡](https://www.share.kurohicncr.top/Article/details/992670.shtml)
-- 2026-06-30 08:03 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.blog.kurohicncr.top/Article/details/4731464.shtml)
-- 2026-06-30 08:22 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.share.kurohicncr.top/Article/details/191646477.shtml)
-- 2026-06-30 08:01 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.minike.top/Article/details/773676625287.shtml)
-- 2026-06-30 08:15 - [郑钦文温网三连败西尼亚科娃](https://www.share.kurohicncr.top/Article/details/39175.shtml)
-- 2026-06-30 08:06 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/731088978.shtml)
-- 2026-06-30 08:15 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.minike.top/Article/details/3026577074.shtml)
-- 2026-06-30 08:07 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/29849.shtml)
+- 2026-06-30 08:21 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/79730933790.shtml)
+- 2026-06-30 08:22 - [日本 高位逼抢](https://www.blog.kurohicncr.top/Article/details/69832643.shtml)
+- 2026-06-30 08:01 - [感动全网的699分女生想报考清华](http://www.blog.minike.top/Article/details/519715195.shtml)
+- 2026-06-30 08:21 - [巴西扳平比分](https://www.blog.kurohicncr.top/Article/details/768712810.shtml)
+- 2026-06-30 08:06 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/6356515725.shtml)
+- 2026-06-30 08:29 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/26369395.shtml)
+- 2026-06-30 08:20 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/71984.shtml)
+- 2026-06-30 08:03 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/21321.shtml)
+- 2026-06-30 08:29 - [男子醉酒溺水获救后同行人拒协助抬人](http://www.blog.kurohicncr.top/Article/details/119871792.shtml)
+- 2026-06-30 08:28 - [苗族银饰](https://www.blog.kurohicncr.top/Article/details/453948938.shtml)
+- 2026-06-30 08:02 - [爱很美味](https://www.blog.minike.top/Article/details/381924166792.shtml)
+- 2026-06-30 08:06 - [杨紫学位证上就是杨紫](http://www.share.minike.top/Article/details/69708568754.shtml)
+- 2026-06-30 08:12 - [武磊：巴西队赢的并不轻松](https://www.blog.kurohicncr.top/Article/details/0635633.shtml)
+- 2026-06-30 08:19 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/003321.shtml)
+- 2026-06-30 08:09 - [全新问界M9现身美国街头](http://www.share.minike.top/Article/details/24280633739.shtml)

@@ -1,60 +1,57 @@
-# 建设银行与蜀道集团签署战略合作协议
+# 我们能否信赖数据？——金融服务业AI数据使用的新兴政策与监管路径
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-来源：今日建行 4月3日下午，建设银行与蜀道投资集团有限责任公司（以下简称“蜀道集团”）举行战略合作协议签约仪式。建设银行行长张毅、蜀道集团董事长张胜出席并见证签约，建设银行总行公司业务部总经理尚朝辉与蜀道集团财务总监刘大远代表双方签署协议。 张毅一行参观了蜀道集团党建及企业文化展厅，详细了解了蜀道集团向综合交通服务型企业转型的思路和进展。签约座谈会上，张毅对蜀道集团聚焦交通主
+来源：IMI财经观察 导读 2026年3月26日，国际清算银行（BIS）金融稳定研究院（FSI）发布第73号政策实施洞察报告。报告聚焦金融服务领域AI数据应用监管，指出生成式AI正深度重塑金融业态，数据贯穿其全生命周期，是模型可靠性与金融安全的核心。金融机构普遍面临数据碎片化、质量不达标、隐私合规难落地、安全风险攀升及第三方依赖加剧等痛点，数据隐私、质量、安全与治理成为全球监管
 
 ## 正文
 
-来源：今日建行 4月3日下午，建设银行与蜀道投资集团有限责任公司（以下简称“蜀道集团”）举行战略合作协议签约仪式。
+来源：IMI财经观察 导读 2026年3月26日，国际清算银行（BIS）金融稳定研究院（FSI）发布第73号政策实施洞察报告。
 
-建设银行行长张毅、蜀道集团董事长张胜出席并见证签约，建设银行总行公司业务部总经理尚朝辉与蜀道集团财务总监刘大远代表双方签署协议。
+报告聚焦金融服务领域AI数据应用监管，指出生成式AI正深度重塑金融业态，数据贯穿其全生命周期，是模型可靠性与金融安全的核心。
 
-张毅一行参观了蜀道集团党建及企业文化展厅，详细了解了蜀道集团向综合交通服务型企业转型的思路和进展。
+金融机构普遍面临数据碎片化、质量不达标、隐私合规难落地、安全风险攀升及第三方依赖加剧等痛点，数据隐私、质量、安全与治理成为全球监管核心关切。
 
-签约座谈会上，张毅对蜀道集团聚焦交通主业、推动产业转型和创新发展表示高度认同，对集团长期以来对建设银行的信任表示感谢。
+国际数据保护机构与金融监管部门正协同出台跨领域指导原则，围绕合法合规、数据质控、安全防控、治理问责形成共识。
 
-张毅介绍了建设银行在基础设施领域、跨境金融、供应链金融、造价咨询、资金监管等方面的综合服务能力。
+报告建议，金融监管需推出针对性指引，强化跨部门协作，在鼓励AI创新的同时筑牢金融稳定与消费者权益保护防线。
 
-他表示，蜀道集团的战略布局与建设银行发展方向高度契合，期待双方在重点项目投融资、债券业务、跨境金融、交通全场景生态打造、金融产品创新等领域全面开展深度合作。
+一 AI重塑金融，数据治理成核心挑战 人工智能是金融行业数字化转型的核心驱动力，尤其是生成式AI （Generative AI） 的普及，为信贷承保、反欺诈、客户服务、风险管理等核心业务带来效率革新。
 
-张胜对张毅一行的来访表示欢迎，对建设银行长期以来为蜀道集团提供的全方位支持表示衷心感谢。
+AI的能力边界高度依赖数据，其模型训练、微调至落地运营的全生命周期均需要海量、多元、高质量的数据。
 
-他表示，建设银行是蜀道集团的重要金融伙伴，双方已建立高度互信、高效共赢的合作关系。
+数据直接决定AI输出的可信度，进而影响金融业务安全。
 
 ## 相关推荐
 
-- 2026-06-30 07:58 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-30 08:10 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
-- 2026-06-30 08:08 - [王楚钦说配合稍微有些陌生感](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-30 08:01 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
-- 2026-06-30 08:17 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-30 08:07 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
-- 2026-06-30 08:02 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
-- 2026-06-30 08:11 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-30 08:10 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-30 08:02 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-30 08:05 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
-- 2026-06-30 08:09 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-30 07:54 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
-- 2026-06-30 08:14 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-30 08:24 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-30 08:20 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-30 08:13 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-30 08:16 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
+- 2026-06-30 08:03 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-30 08:19 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-30 08:06 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-30 08:09 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
+- 2026-06-30 08:10 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-30 08:02 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-30 08:10 - [马耳他著名拱门坍塌致中国男子身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:14 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/861146436522.shtml)
-- 2026-06-30 08:06 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://www.share.minike.top/Article/details/947331262654.shtml)
-- 2026-06-30 08:12 - [起风了](https://www.share.kurohicncr.top/Article/details/983384.shtml)
-- 2026-06-30 08:19 - [请回答王牌2019](https://www.blog.minike.top/Article/details/28376.shtml)
-- 2026-06-30 07:54 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.minike.top/Article/details/47739484.shtml)
-- 2026-06-30 08:19 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/240574831.shtml)
-- 2026-06-30 08:16 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/157769399152.shtml)
-- 2026-06-30 08:03 - [峡谷事故团队组队时有人提醒会下雨](http://www.share.kurohicncr.top/Article/details/7937987835.shtml)
-- 2026-06-30 07:59 - [“草莓月亮”浪漫现身](http://www.blog.kurohicncr.top/Article/details/9442311762.shtml)
-- 2026-06-30 08:07 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/4331509.shtml)
-- 2026-06-30 08:16 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/752218913696.shtml)
-- 2026-06-30 08:02 - [武磊：巴西队赢的并不轻松](http://www.share.minike.top/Article/details/44398.shtml)
-- 2026-06-30 08:01 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/63929765296.shtml)
-- 2026-06-30 08:05 - [欧洲空调安装费用为何如此高昂](http://www.blog.kurohicncr.top/Article/details/1631828856.shtml)
-- 2026-06-30 08:09 - [斛珠夫人](http://www.blog.minike.top/Article/details/3611261756.shtml)
+- 2026-06-30 08:03 - [AI手机进入Agent时代](http://www.share.kurohicncr.top/Article/details/738620628.shtml)
+- 2026-06-30 08:13 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/2307090557.shtml)
+- 2026-06-30 08:03 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/59096154.shtml)
+- 2026-06-30 08:04 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/50275.shtml)
+- 2026-06-30 08:06 - [房价什么时候能涨](https://www.blog.minike.top/Article/details/247540.shtml)
+- 2026-06-30 08:19 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/72608.shtml)
+- 2026-06-30 08:05 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/8740551.shtml)
+- 2026-06-30 08:15 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/4430568357.shtml)
+- 2026-06-30 08:20 - [这种关系可能正在悄悄“催老”你](http://www.blog.minike.top/Article/details/79459.shtml)
+- 2026-06-30 08:16 - [库尼亚赛后伸五指嘲讽日本](http://www.blog.minike.top/Article/details/2991832.shtml)
+- 2026-06-30 08:06 - [女心理师](http://www.share.kurohicncr.top/Article/details/309254062495.shtml)
+- 2026-06-30 08:25 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/79261427.shtml)
+- 2026-06-30 08:16 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/877174472449.shtml)
+- 2026-06-30 08:26 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/124376488.shtml)
+- 2026-06-30 08:02 - [日本五次世界杯淘汰赛全败](https://www.share.minike.top/Article/details/757133948.shtml)

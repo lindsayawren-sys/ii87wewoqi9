@@ -1,59 +1,56 @@
-# 停火后已有两艘船只通过霍尔木兹海峡，但仍有数百艘被困
+# 美元兑日元徘徊157关口等待美国非农数据指引
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-希腊散货船 NJ Earth 号周三被追踪到通过霍尔木兹海峡。 据海运交通数据平台 MarineTraffic 最新数据，伊朗、美国与以色列宣布停火后，已有至少两艘船只安全通过霍尔木兹海峡。 不过，这与滞留在波斯湾的大量积压船只相比，只是杯水车薪。MarineTraffic 周三表示，该地区仍有数百艘船只被困，其中包括 426 艘油轮、34 艘液化石油气运输船和 19 艘液化天
+汇通财经APP讯——周五亚洲交易时段，美元兑日元（USD/JPY）整体维持横盘整理走势，汇价围绕157.00附近波动。此前日本政府疑似再次出手干预外汇市场，令日元阶段性企稳，市场对于日本官方后续行动的警惕情绪明显升温。 近期外汇市场的核心焦点，依然集中在日本汇率干预、美联储利率政策以及中东地缘风险变化等多个因素之间的博弈。此前美元兑日元一度快速升至阶段高位，主要受到美日利差持续
 
 ## 正文
 
-希腊散货船 NJ Earth 号周三被追踪到通过霍尔木兹海峡。
+汇通财经APP讯——周五亚洲交易时段，美元兑日元（USD/JPY）整体维持横盘整理走势，汇价围绕157.00附近波动。
 
-据海运交通数据平台 MarineTraffic 最新数据，伊朗、美国与以色列宣布停火后，已有至少两艘船只安全通过霍尔木兹海峡。
+此前日本政府疑似再次出手干预外汇市场，令日元阶段性企稳，市场对于日本官方后续行动的警惕情绪明显升温。
 
-不过，这与滞留在波斯湾的大量积压船只相比，只是杯水车薪。
+近期外汇市场的核心焦点，依然集中在日本汇率干预、美联储利率政策以及中东地缘风险变化等多个因素之间的博弈。
 
-MarineTraffic 周三表示，该地区仍有数百艘船只被困，其中包括 426 艘油轮、34 艘液化石油气运输船和 19 艘液化天然气运输船。
+此前美元兑日元一度快速升至阶段高位，主要受到美日利差持续扩大的推动。
 
-追踪数据显示，周三世界协调时上午 8 点 44 分，希腊籍散货船 NJ Earth 号驶过海峡。
+不过，随着日本当局疑似连续入场稳定汇率，市场短线投机资金开始有所收敛。
 
-据 MarineTraffic 信息，在此前约两小时，挂利比里亚旗的散货船 Daytona Beach 号已驶入阿曼湾。
+日本政府近期可能已动用约10万亿日元支持本币汇率。
 
-两艘船只似乎均选择了途经伊朗拉腊克岛的航线。
+日本最高外汇事务官员三村淳表示，日本政府已经准备好应对外汇市场中的投机行为，并将在必要时采取措施稳定市场。
 
-劳氏航运情报（Lloyd’s List Intelligence）此前曾报道，该岛是伊朗伊斯兰革命卫队管控海峡通行的检查站。
+不过，其并未明确确认是否已经实施汇市干预。
 
 ## 相关推荐
 
-- 2026-06-30 08:14 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-30 08:10 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-30 08:17 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-30 08:18 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-30 07:58 - [全新问界M9现身美国街头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-30 08:15 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-30 07:56 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
-- 2026-06-30 08:00 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-30 08:08 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-30 07:55 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
-- 2026-06-30 08:15 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-30 08:22 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-30 08:15 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
+- 2026-06-30 08:28 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-30 08:29 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-30 08:02 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-30 08:02 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-30 08:29 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
+- 2026-06-30 08:29 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-30 08:06 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-30 08:11 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-30 08:29 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-30 08:24 - [杨紫学位证上就是杨紫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:19 - [为什么会有「念旧」的心理？](http://www.blog.kurohicncr.top/Article/details/3014031081.shtml)
-- 2026-06-30 08:15 - [警犬“多多”助民警寻回失联老人](http://www.share.minike.top/Article/details/93038.shtml)
-- 2026-06-30 08:22 - [“草莓月亮”浪漫现身](http://www.share.kurohicncr.top/Article/details/766264211210.shtml)
-- 2026-06-30 08:12 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.blog.minike.top/Article/details/1727295052.shtml)
-- 2026-06-30 08:09 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/00359.shtml)
-- 2026-06-30 08:14 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/64422.shtml)
-- 2026-06-30 08:03 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/403804.shtml)
-- 2026-06-30 08:09 - [扫黑风暴](http://www.share.minike.top/Article/details/07227965.shtml)
-- 2026-06-30 08:06 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/05990830359.shtml)
-- 2026-06-30 08:19 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/919633222726.shtml)
-- 2026-06-30 08:12 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/617971793.shtml)
-- 2026-06-30 08:09 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/9298951382.shtml)
-- 2026-06-30 08:15 - [郑钦文温网三连败西尼亚科娃](https://www.share.minike.top/Article/details/87071029.shtml)
-- 2026-06-30 07:59 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/538538.shtml)
-- 2026-06-30 08:21 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.minike.top/Article/details/996502229.shtml)
+- 2026-06-30 08:10 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](http://www.share.minike.top/Article/details/79903.shtml)
+- 2026-06-30 08:12 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/95232512237.shtml)
+- 2026-06-30 08:22 - [孙兴慜发长文致歉](http://www.blog.kurohicncr.top/Article/details/6723867.shtml)
+- 2026-06-30 08:19 - [全新问界M9现身美国街头](http://www.blog.minike.top/Article/details/184421206.shtml)
+- 2026-06-30 08:01 - [全球最火存储ETF纳入兆易创新](http://www.blog.minike.top/Article/details/41440003247.shtml)
+- 2026-06-30 08:05 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/749013288.shtml)
+- 2026-06-30 08:08 - [王欣瑜连续4年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/7265489.shtml)
+- 2026-06-30 08:29 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/850264649.shtml)
+- 2026-06-30 08:07 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/728784910499.shtml)
+- 2026-06-30 08:22 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/65094404036.shtml)
+- 2026-06-30 08:22 - [巴西扳平比分](http://www.blog.minike.top/Article/details/979026791.shtml)
+- 2026-06-30 08:01 - [齐思钧回复张月](https://www.blog.kurohicncr.top/Article/details/0657605894.shtml)
+- 2026-06-30 08:20 - [德国队连续三届世界杯无缘16强](https://www.share.minike.top/Article/details/60947.shtml)
+- 2026-06-30 08:11 - [老外对中国cosplay竟这样评价…](https://www.share.minike.top/Article/details/63111259.shtml)
+- 2026-06-30 08:05 - [日本半场1比0领先巴西](https://www.share.minike.top/Article/details/041062117580.shtml)

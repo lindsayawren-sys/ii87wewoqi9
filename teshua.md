@@ -1,57 +1,61 @@
-# “双碳”背景下，浙江何以交出公共机构绿色转型答卷？
+# 受塔斯默拒绝辞职影响，英镑和英国国债双双上涨
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-中新网温州4月9日电(鲍梦妮)4月9日，浙江“双碳”引领公共机构全面绿色转型发展工作部署会在温州举行。会上，浙江省机关事务管理局相关负责人亮出该省“十四五”时期公共机构节能降碳答卷：2025年，浙江全省公共机构人均综合能耗量、单位建筑面积能耗量、人均用水量与2020年相比分别下降7.63%、6.68%、29.49%，降幅均大于全国平均水平。 绿色是高质量发展的底色。“十五五”规
+英国首相基尔·斯塔默表示，尽管执政党工党在地方选举中遭遇重挫，他仍拒绝辞职。受此消息影响，英镑和英国国债周五双双上涨。 截至周五，英国地方选举结果仍在陆续公布，初步计票显示斯塔默领导的工党支持率出现大幅流失。由脱欧派人士奈杰尔·法拉奇领导的英国改革党（Reform UK）目前成为最大赢家，已在英格兰地区赢得350多个地方议会席位。 投资者担忧，若斯塔默被迫下台，新任左翼工党领导
 
 ## 正文
 
-中新网温州4月9日电(鲍梦妮)4月9日，浙江“双碳”引领公共机构全面绿色转型发展工作部署会在温州举行。
+英国首相基尔·斯塔默表示，尽管执政党工党在地方选举中遭遇重挫，他仍拒绝辞职。
 
-会上，浙江省机关事务管理局相关负责人亮出该省“十四五”时期公共机构节能降碳答卷：2025年，浙江全省公共机构人均综合能耗量、单位建筑面积能耗量、人均用水量与2020年相比分别下降7.63%、6.68%、29.49%，降幅均大于全国平均水平。
+受此消息影响，英镑和英国国债周五双双上涨。
 
-绿色是高质量发展的底色。
+截至周五，英国地方选举结果仍在陆续公布，初步计票显示斯塔默领导的工党支持率出现大幅流失。
 
-“十五五”规划将绿色低碳发展升华为贯穿经济社会发展各领域、各环节的核心发展理念。
+由脱欧派人士奈杰尔·法拉奇领导的英国改革党（Reform UK）目前成为最大赢家，已在英格兰地区赢得350多个地方议会席位。
 
-而公共机构在经济社会绿色发展中发挥着示范表率作用，节能前景广阔。
+投资者担忧，若斯塔默被迫下台，新任左翼工党领导人可能会进一步扩大公共借款规模。
 
-据悉，浙江多地已先行探索公共机构的绿色节能运转模式。
+当日，英镑兑美元汇率上涨0.5%，报1.362美元；英镑兑欧元汇率上涨0.1%。
 
-以温州为例，该市率先在市行政中心落地能源托管模式，精准破解用能管理中单位分散、技术薄弱等痛点，预计合同期内节约电费约360万元，减少碳排放3000吨。
+同时，作为英国政府借贷成本核心指标的基准10年期国债收益率下跌5个基点，表现优于全球市场。
 
-温州市机关事务管理局党组书记、局长周建清介绍，目前该市纳入能源托管的公共机构300余家，累计托管项目金额8.3亿元，托管期内可节约财政资金约5000万元。
+分析人士与投资者表示，斯塔默承诺留任在一定程度上提振了市场信心，目前评估此次选举结果的全面影响尚早。
 
 ## 相关推荐
 
-- 2026-06-30 07:56 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-30 07:55 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-30 08:16 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
-- 2026-06-30 08:15 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
-- 2026-06-30 07:54 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-30 08:09 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-30 07:55 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-30 08:22 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-30 08:06 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-30 08:05 - [安切洛蒂 换人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-30 08:22 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
+- 2026-06-30 08:14 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-30 08:01 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-30 08:13 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-30 08:05 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
+- 2026-06-30 08:28 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-30 08:21 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
+- 2026-06-30 08:17 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-30 08:29 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
+- 2026-06-30 08:27 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-30 08:19 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-30 08:29 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-30 08:23 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-30 08:23 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
+- 2026-06-30 08:04 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-30 08:25 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:57 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.kurohicncr.top/Article/details/580814169.shtml)
-- 2026-06-30 08:11 - [孙兴慜道歉](http://www.share.kurohicncr.top/Article/details/66384924022.shtml)
-- 2026-06-30 08:22 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/86666095.shtml)
-- 2026-06-30 08:03 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/24161592994.shtml)
-- 2026-06-30 08:05 - [美股深夜大反弹 特斯拉飙涨8%](https://www.blog.kurohicncr.top/Article/details/1137420031.shtml)
-- 2026-06-30 07:58 - [巴西半场0比1日本](https://www.blog.kurohicncr.top/Article/details/35911820603.shtml)
-- 2026-06-30 07:55 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/57091.shtml)
-- 2026-06-30 08:21 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/228520.shtml)
-- 2026-06-30 08:02 - [田中碧失误](http://www.share.minike.top/Article/details/773790452.shtml)
-- 2026-06-30 07:56 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/3416430.shtml)
-- 2026-06-30 07:58 - [世界杯：德国vs巴拉圭](https://www.share.kurohicncr.top/Article/details/514302199.shtml)
-- 2026-06-30 08:10 - [美股深夜大反弹 特斯拉飙涨8%](https://www.share.minike.top/Article/details/535809987317.shtml)
-- 2026-06-30 08:10 - [爱很美味](https://www.blog.minike.top/Article/details/439965.shtml)
-- 2026-06-30 08:13 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.kurohicncr.top/Article/details/819780359.shtml)
-- 2026-06-30 08:19 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.blog.minike.top/Article/details/488469516.shtml)
+- 2026-06-30 08:20 - [速度与激情9](http://www.blog.minike.top/Article/details/60349.shtml)
+- 2026-06-30 08:00 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/525103.shtml)
+- 2026-06-30 08:14 - [巴西醒醒 这是淘汰赛](http://www.share.kurohicncr.top/Article/details/382199778.shtml)
+- 2026-06-30 08:19 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/63761404915.shtml)
+- 2026-06-30 08:23 - [曝詹姆斯即将与勇士会面](http://www.blog.minike.top/Article/details/62342.shtml)
+- 2026-06-30 08:08 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/657119.shtml)
+- 2026-06-30 08:25 - [日本领先巴西](http://www.blog.minike.top/Article/details/90881903.shtml)
+- 2026-06-30 08:05 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/2564408184.shtml)
+- 2026-06-30 08:15 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.kurohicncr.top/Article/details/33728770.shtml)
+- 2026-06-30 08:06 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/59704889.shtml)
+- 2026-06-30 08:09 - [卡塞米罗头球破门](http://www.share.kurohicncr.top/Article/details/47623800514.shtml)
+- 2026-06-30 08:12 - [日本反击率先破门](https://www.share.minike.top/Article/details/802508675.shtml)
+- 2026-06-30 08:01 - [曝老詹对自由市场态度与以往截然不同](http://www.blog.kurohicncr.top/Article/details/76600355.shtml)
+- 2026-06-30 08:27 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.kurohicncr.top/Article/details/868843628432.shtml)
+- 2026-06-30 08:09 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/709424587.shtml)

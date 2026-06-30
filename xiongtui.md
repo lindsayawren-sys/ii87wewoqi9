@@ -1,61 +1,46 @@
-# 兴业证券净利润市占率五年下跌1.37个百分点 市占率变化位列倒数第一
+# 昊海生物科技于5月8日斥资120.85万港元回购5.43万股
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-时间进入4月，各家券商纷纷交出2025年业绩单。 这一份份财报并不只是证券业2025年末的格局快照，更是对过去五年的阶段性总结。据SAC数据，全行业150家证券公司2025年度实现营业收入5411.71亿元，较2020年增长20.67%，全行业实现净利润2194.39亿元，较2020年增长39.30%，券商业整体取得丰硕成果。 而观察其中各家券商，则是有人欢喜有人忧。 截至4月
+昊海生物科技（06826）发布公告，于2026年5月8日，该公司斥资120.85万港元回购5.43万股。责任编辑：卢昱君
 
 ## 正文
 
-时间进入4月，各家券商纷纷交出2025年业绩单。
+昊海生物科技（06826）发布公告，于2026年5月8日，该公司斥资120.85万港元回购5.43万股。
 
-这一份份财报并不只是证券业2025年末的格局快照，更是对过去五年的阶段性总结。
-
-据SAC数据，全行业150家证券公司2025年度实现营业收入5411.71亿元，较2020年增长20.67%，全行业实现净利润2194.39亿元，较2020年增长39.30%，券商业整体取得丰硕成果。
-
-而观察其中各家券商，则是有人欢喜有人忧。
-
-截至4月3日，已有25家券商发布年报，若按照近五年净利润市占率变化情况进行排序，则正数前三名分别为国泰海通（存在合并因素）、中信证券、方正证券，倒数前三名分别为兴业证券、中金公司、中信建投。
-
-（注：由于财政部2025年7月8日发布标准仓单交易相关会计处理实施问答，该规则实施后相关业务不再确认为收入，2025年营收市占率变化存在扭曲，故在此不作为排序指标） 横向对比来看，兴业证券市占率下降1.37个百分点，位列倒数第一，市场开拓进度远弱于同业；纵向对比来看，兴业证券近五年业绩下滑严重，净利润下降39.30%，该降幅仅次于中泰证券（-49.31%），位于倒数第二。
-
-值得注意的是，兴业证券的业绩收缩既是行情冲击下的实力受损，也是区域化战略的深度聚焦。
-
-过去五年的战略明确与布局调整，让兴业证券在一定程度上摆脱了券业“看天吃饭”的魔咒，业绩稳定性有所增强，而与此同时，这些举措也在一定程度上削弱了其业绩弹性与上升空间。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 08:08 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-30 08:21 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
-- 2026-06-30 08:13 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-30 08:12 - [德国队世界杯点球大战首败](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-30 07:58 - [王楚钦孙颖莎晋级混双八强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-30 08:19 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-30 08:13 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
-- 2026-06-30 08:20 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-30 07:55 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-30 08:01 - [德国进球被吹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-30 08:06 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
-- 2026-06-30 08:21 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-30 07:58 - [森保一致歉：世界第一目标没能实现](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-30 08:03 - [亚洲球队全部出局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-30 07:58 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-30 08:21 - [IGN评测电影版后室](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-30 08:17 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-30 08:00 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-30 08:03 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-30 08:12 - [如果有二次元高中是什么样子的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-30 08:11 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-30 08:15 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-30 08:04 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-30 08:02 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-30 08:09 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-30 08:02 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-30 08:20 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:57 - [巴西2比1日本](https://www.share.kurohicncr.top/Article/details/687652.shtml)
-- 2026-06-30 08:00 - [德国淘汰](https://www.blog.minike.top/Article/details/2927643941.shtml)
-- 2026-06-30 07:57 - [流金岁月](http://www.share.minike.top/Article/details/1112358172.shtml)
-- 2026-06-30 08:01 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](http://www.blog.minike.top/Article/details/6331356.shtml)
-- 2026-06-30 08:22 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/8242789.shtml)
-- 2026-06-30 07:55 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/809141595.shtml)
-- 2026-06-30 08:24 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/23748070161.shtml)
-- 2026-06-30 08:00 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.minike.top/Article/details/4190869.shtml)
-- 2026-06-30 08:05 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/6630812.shtml)
-- 2026-06-30 08:05 - [巴拉圭率先破门](http://www.share.kurohicncr.top/Article/details/99705390.shtml)
-- 2026-06-30 08:06 - [齐思钧回复张月](http://www.blog.minike.top/Article/details/50209.shtml)
-- 2026-06-30 08:09 - [王濛回复黄灿灿](https://www.blog.kurohicncr.top/Article/details/7800780.shtml)
-- 2026-06-30 07:57 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/554911.shtml)
-- 2026-06-30 08:22 - [起风了](http://www.share.kurohicncr.top/Article/details/987048719.shtml)
-- 2026-06-30 08:04 - [萨内 看笑了](http://www.share.minike.top/Article/details/23853297.shtml)
+- 2026-06-30 08:06 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/848841991.shtml)
+- 2026-06-30 08:11 - [世界杯欧洲队7战南美仅1胜](https://www.blog.minike.top/Article/details/051557.shtml)
+- 2026-06-30 08:28 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/563519.shtml)
+- 2026-06-30 08:14 - [王濛回复黄灿灿](https://www.share.minike.top/Article/details/15401866234.shtml)
+- 2026-06-30 08:14 - [全球芯片巨头史诗级扩产](https://www.blog.kurohicncr.top/Article/details/1430229.shtml)
+- 2026-06-30 08:12 - [健全中小学教师工资长效联动机制](https://www.blog.minike.top/Article/details/67545672042.shtml)
+- 2026-06-30 08:04 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/72859487918.shtml)
+- 2026-06-30 08:03 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/25244177030.shtml)
+- 2026-06-30 08:26 - [萨内 看笑了](http://www.share.minike.top/Article/details/80525926.shtml)
+- 2026-06-30 08:18 - [古代人对纳妾的态度是什么样的？](https://www.blog.minike.top/Article/details/50278.shtml)
+- 2026-06-30 08:28 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/283285.shtml)
+- 2026-06-30 08:03 - [巴西绝杀日本：漫画般结局换了主角](https://www.share.kurohicncr.top/Article/details/28182.shtml)
+- 2026-06-30 08:24 - [吴易昺不敌德约科维奇 止步温网首轮](http://www.share.minike.top/Article/details/425651854332.shtml)
+- 2026-06-30 08:12 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/964383.shtml)
+- 2026-06-30 08:24 - [苗族银饰](https://www.blog.kurohicncr.top/Article/details/6431326.shtml)

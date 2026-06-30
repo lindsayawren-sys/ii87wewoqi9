@@ -1,59 +1,59 @@
-# 中国台北选手角逐羽毛球亚锦赛
+# 百融智能陈树军：金融领域有用智能体的标准与落地路径
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-美伊以战事真是“文明的冲突”吗？事关我国产供链安全 专家解读新规四大看点全国服务业大会提出“两业融合”，有何深意？比特币创始人真身被找到？被怀疑者回应：我不是“护肤品用得越多越安心”正确吗？专家这样说倪夏莲的乒乓人生：梦想要有的，万一成功了呢田埂上的育种人：她用15年给“中国薯都”添新成员老板劝退“别来吃”的顺德鸡煲店，逼着广东文旅去斩鸡爱炒股的“牙膏第一股”易主早期太阳系有机
+专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日在北京举行。百融智能副总裁、中国互联网协会数字金融委员会副主任陈树军出席并演讲。 以下为演讲实录： 陈树军：尊敬的各位领导、各位嘉宾、各位同仁，大家好，我今天给大家汇报的主题是：金融领域有用智能体的标准与落地路径。 我在中信银行工作了20年，在廊坊银行工作10年，这30年在银行主要从
 
 ## 正文
 
-美伊以战事真是“文明的冲突”吗？
+专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日在北京举行。
 
-事关我国产供链安全 专家解读新规四大看点全国服务业大会提出“两业融合”，有何深意？
+百融智能副总裁、中国互联网协会数字金融委员会副主任陈树军出席并演讲。
 
-比特币创始人真身被找到？
+以下为演讲实录： 陈树军：尊敬的各位领导、各位嘉宾、各位同仁，大家好，我今天给大家汇报的主题是：金融领域有用智能体的标准与落地路径。
 
-被怀疑者回应：我不是“护肤品用得越多越安心”正确吗？
+我在中信银行工作了20年，在廊坊银行工作10年，这30年在银行主要从事零售银行工作，服务老百姓，我发现银行对5%的客户提供了优质的有专业理财师、理财室、贵宾权益的服务，95%的客户几乎无人照料。
 
-专家这样说倪夏莲的乒乓人生：梦想要有的，万一成功了呢田埂上的育种人：她用15年给“中国薯都”添新成员老板劝退“别来吃”的顺德鸡煲店，逼着广东文旅去斩鸡爱炒股的“牙膏第一股”易主早期太阳系有机质“快递员”如何工作？
+2018年，我在编译《Bank 4.0》这本书的时候，产生了了用数字人为银行每一位客户都配备一名数字理财师的想法，叫一客一顾问。
 
-嫦娥五号和六号月壤研究揭秘巨星导师萧键铿离世 曾教出刘德华、梁朝伟、周星驰临时停火后全球市场反转，“TACO经济学”需谨慎伊朗导弹命中率增长8倍，美以为何防不胜防？
+我从2018年就在多个论坛上宣讲这个思路，但是我一直没有得到实现的机会，终于人工智能来了，我选择了百融智能这个平台，我觉得有机会在百融智能公司来实现当年的这个梦想，让每一个金融客户都得到专业、优质的金融服务，实现真正的金融普惠。
 
-美国民众对伊朗战争净支持率为负数，特朗普“渴望结束”一位草原守护者与虫鼠的27年“较量”推动服务业优质高效发展华文教育如何在印尼开创新局？
+我今天给大家汇报的是这六个方面： 第一方面，我们从Hermes爆火来看AI Agent的进化逻辑 整个人工智能应用分为三类：（一）基于大模型生成内容，AIGC，从chatGPT问答式开始，现在进入多模态，可以生成文字、图片、程序代码、视频短剧、音乐、PPT、报告、总结等多模态内容，以Claude、Gemini、豆包、千问等为代表，（二）基于大模型推理，以Deepseek为代表，（三）基于大模型执行，各类Agent框架、平台涌现，以Manus、Coze扣子、Dify、百融百工为代表，然后又进化出龙虾、Hermes。
 
-全国服务业大会释放服务消费强信号郑丽文对话在沪台青，在沪台青：这里发展机遇多 能够酝酿人生的厚度当“爱笛声”遇上“保安诗人” 他们把生活写满诗歌松花江畔雪映碧水，鸟舞春归多角度高燃混剪！
+AI从第一阶段规则型自动化，按指令执行，现在进入到连接型的Agent和进化型的Agent，Coze、Dify只是提供一个搭建智能体的平台，龙虾就可以直接动手执行，而Hermes是带有记忆、自主规划能力执行式AI，向个人助理领域迈进。
 
 ## 相关推荐
 
-- 2026-06-30 08:01 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
-- 2026-06-30 07:56 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-30 08:24 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-30 07:54 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-30 08:14 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-30 08:12 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-30 08:14 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
-- 2026-06-30 08:12 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-30 07:58 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-30 08:05 - [德国4比5巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-30 08:08 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-30 08:07 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-30 08:23 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-30 08:10 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-30 08:04 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-30 08:13 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
+- 2026-06-30 08:21 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-30 08:24 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-30 08:28 - [金鹰奖视后提名预测](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
+- 2026-06-30 08:14 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-30 08:01 - [张雪的一句“是我们”引发岛内热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
+- 2026-06-30 08:29 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-30 08:17 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-30 08:23 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-30 08:27 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
+- 2026-06-30 08:26 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:18 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.kurohicncr.top/Article/details/1933905368.shtml)
-- 2026-06-30 08:01 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.kurohicncr.top/Article/details/556561058.shtml)
-- 2026-06-30 07:57 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/60037.shtml)
-- 2026-06-30 07:54 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.minike.top/Article/details/4111610086.shtml)
-- 2026-06-30 08:21 - [点球大战 残酷](http://www.blog.kurohicncr.top/Article/details/567526.shtml)
-- 2026-06-30 08:02 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/4536509606.shtml)
-- 2026-06-30 08:18 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.kurohicncr.top/Article/details/9655418.shtml)
-- 2026-06-30 07:59 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/28031642911.shtml)
-- 2026-06-30 08:19 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/08102120524.shtml)
-- 2026-06-30 08:04 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/207795.shtml)
-- 2026-06-30 08:13 - [田中碧失误](http://www.blog.minike.top/Article/details/7582365637.shtml)
-- 2026-06-30 08:12 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.kurohicncr.top/Article/details/001610744.shtml)
-- 2026-06-30 08:09 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/55800749.shtml)
-- 2026-06-30 08:13 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.kurohicncr.top/Article/details/043939238969.shtml)
-- 2026-06-30 08:01 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/02799884.shtml)
+- 2026-06-30 08:21 - [中国新一轮出口管制直指日本命脉](http://www.blog.kurohicncr.top/Article/details/6422606767.shtml)
+- 2026-06-30 08:25 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/475806.shtml)
+- 2026-06-30 08:20 - [徐亮怒斥世界杯踢假球](http://www.share.kurohicncr.top/Article/details/7952475.shtml)
+- 2026-06-30 08:16 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/442750.shtml)
+- 2026-06-30 08:02 - [世界杯巴拉圭点球淘汰德国](https://www.share.kurohicncr.top/Article/details/70119181.shtml)
+- 2026-06-30 08:26 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/27948216.shtml)
+- 2026-06-30 08:22 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/6906026.shtml)
+- 2026-06-30 08:14 - [张帅晋级温网次轮](http://www.share.kurohicncr.top/Article/details/71703525.shtml)
+- 2026-06-30 08:08 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/3111397642.shtml)
+- 2026-06-30 08:26 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.kurohicncr.top/Article/details/967243549.shtml)
+- 2026-06-30 08:10 - [F1奥地利站赛后复盘](https://www.blog.kurohicncr.top/Article/details/1914387.shtml)
+- 2026-06-30 08:12 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/33321859393.shtml)
+- 2026-06-30 08:25 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/3469377452.shtml)
+- 2026-06-30 08:06 - [老外对中国cosplay竟这样评价…](http://www.share.kurohicncr.top/Article/details/21782089.shtml)
+- 2026-06-30 08:03 - [青春环游记第三季](https://www.blog.minike.top/Article/details/393868.shtml)

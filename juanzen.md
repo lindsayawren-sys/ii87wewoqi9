@@ -1,61 +1,58 @@
-# 伊朗导弹命中率增长8倍，美以为何防不胜防？
+# 市场监管总局：4792.24万户经营主体获信用修复
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-中新网4月9日电(记者 刁炜)美国智库摩根大通近日称，伊朗导弹对以色列目标的命中率显著上升，已从冲突最初两周的3%增至4月初的27%，这一说法得到了以方信源的间接印证。 外媒称，以色列虽宣布己方反导系统拦截率超过90%，却又坦言无法摧毁伊朗集束弹头的所有子弹药，也不能完全避免导弹碎片造成的附加伤害。 比如据《以色列时报》报道，当地时间3月29日，伊朗导弹碎片击中以色列南部一家化
+记者从今天(8日)的市场监管总局发布会获悉，近年来，市场监管总局大力推进高效办成信用修复“一件事”，截至今年3月底，累计为4792.24万户经营主体修复信用。 市场经济中，信用犹如真金白银，已经成为企业重要的无形资产。信用修复为失信企业提供了重塑自身信用的机会，帮助其卸下“失信包袱”、重新参与市场竞争、恢复和增加市场交易机会。 2025年3月，市场监管总局建成信用修复全国统一平
 
 ## 正文
 
-中新网4月9日电(记者 刁炜)美国智库摩根大通近日称，伊朗导弹对以色列目标的命中率显著上升，已从冲突最初两周的3%增至4月初的27%，这一说法得到了以方信源的间接印证。
+记者从今天(8日)的市场监管总局发布会获悉，近年来，市场监管总局大力推进高效办成信用修复“一件事”，截至今年3月底，累计为4792.24万户经营主体修复信用。
 
-外媒称，以色列虽宣布己方反导系统拦截率超过90%，却又坦言无法摧毁伊朗集束弹头的所有子弹药，也不能完全避免导弹碎片造成的附加伤害。
+市场经济中，信用犹如真金白银，已经成为企业重要的无形资产。
 
-比如据《以色列时报》报道，当地时间3月29日，伊朗导弹碎片击中以色列南部一家化工厂储存设施，引发大火和危险化学品泄漏。
+信用修复为失信企业提供了重塑自身信用的机会，帮助其卸下“失信包袱”、重新参与市场竞争、恢复和增加市场交易机会。
 
-值得注意的是，2025年“12日战争”结束后，《耶路撒冷邮报》曾称以方对伊朗导弹的拦截率约为80%。
+2025年3月，市场监管总局建成信用修复全国统一平台，实现了“统一入口、异地修复”，通过跨省数据传输通道，让“数据多跑路、群众少跑腿”，极大地提高了办事效率，节约了经营主体的时间和经济成本。
 
-而当时，伊朗的反击没有这次强烈持久，以色列的国土反导防空网也比现在体系更严密、弹药更充足。
+在统一平台登录界面增加信用修复指引、申请材料等下载链接，进一步方便经营主体申请信用修复。
 
-英国防务智库披露，截至3月下旬，以色列的“箭-2”“箭-3”反导拦截弹已消耗约八成，“大卫投石索”近程拦截弹则剩40%左右。
+据市场监管总局信用监管司副司长张道阳介绍，2025年市场监管总局围绕“助力重塑信用 服务高质量发展”主题，开展“信用修复服务年”活动，在部分地区开展深化信用修复试点，“掌上办”“异地办”等创新举措为经营主体高效便捷申请信用修复提供了新模式。
 
-至于新闻中曝光率很高的“铁穹”防空系统，综合各方消息来看，其每次作战少则发射2至3枚，多则发射8至20枚拦截弹，消耗速度同样十分惊人。
+下一步，市场监管总局将推动《经营主体信用修复材料格式要求》和《经营主体信用修复成效评价指南》2项国家标准尽快出台，不断升级优化市场监管信用修复全国统一平台，进一步提升办事便利化水平，高效支撑“信用修复一件事”。
 
-既然“盾”逐渐变得薄弱，那么“矛”的突防成功率随之提高，就是自然而然的事情了。
+(央视新闻客户端 总台央视记者 高杰)
 
 ## 相关推荐
 
-- 2026-06-30 08:17 - [德国队世界杯点球大战首败](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-30 07:58 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-30 07:55 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-30 08:03 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-30 07:56 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
-- 2026-06-30 08:05 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-30 08:15 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
-- 2026-06-30 08:10 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-30 08:18 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-30 08:01 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-30 08:09 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-30 08:00 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-30 07:54 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
-- 2026-06-30 07:58 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-30 07:56 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-30 08:13 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-30 08:23 - [德国4比5巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-30 08:09 - [索马里女大使：想和中国一起搞事业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-30 08:12 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
+- 2026-06-30 08:05 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
+- 2026-06-30 08:05 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-30 08:03 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
+- 2026-06-30 08:24 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
+- 2026-06-30 08:04 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-30 08:28 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-30 08:00 - [中国新一轮出口管制直指日本命脉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-30 08:28 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:07 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/79712676202.shtml)
-- 2026-06-30 08:14 - [存储芯片龙头提示风险](http://www.share.kurohicncr.top/Article/details/918274175.shtml)
-- 2026-06-30 08:00 - [恋与深空制作组回应近期争议](http://www.share.kurohicncr.top/Article/details/46028669.shtml)
-- 2026-06-30 08:20 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/6680763874.shtml)
-- 2026-06-30 08:12 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/3339236218.shtml)
-- 2026-06-30 07:57 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/760464918691.shtml)
-- 2026-06-30 08:08 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/3640079915.shtml)
-- 2026-06-30 08:15 - [德国爆冷点球大战不敌巴拉圭](https://www.blog.kurohicncr.top/Article/details/399417982.shtml)
-- 2026-06-30 07:55 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/13082513.shtml)
-- 2026-06-30 08:16 - [美股深夜大反弹 特斯拉飙涨8%](http://www.share.minike.top/Article/details/56776017399.shtml)
-- 2026-06-30 08:00 - [千与千寻](http://www.share.minike.top/Article/details/75936411.shtml)
-- 2026-06-30 08:23 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/005325.shtml)
-- 2026-06-30 08:13 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/70466.shtml)
-- 2026-06-30 08:20 - [郑钦文温网首轮出局](https://www.share.minike.top/Article/details/9135943932.shtml)
-- 2026-06-30 08:21 - [郑钦文温网首轮出局](http://www.share.minike.top/Article/details/548969964461.shtml)
+- 2026-06-30 08:09 - [王楚钦说配合稍微有些陌生感](https://www.share.kurohicncr.top/Article/details/88543305781.shtml)
+- 2026-06-30 08:21 - [警犬“多多”助民警寻回失联老人](http://www.blog.kurohicncr.top/Article/details/435147027965.shtml)
+- 2026-06-30 08:25 - [【大鸣王潮1566】真拿你没办法](https://www.share.kurohicncr.top/Article/details/95628.shtml)
+- 2026-06-30 08:20 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/9643858782.shtml)
+- 2026-06-30 08:07 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/723234.shtml)
+- 2026-06-30 08:23 - [卡塞米罗头球破门](https://www.share.kurohicncr.top/Article/details/08255.shtml)
+- 2026-06-30 08:21 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/190731.shtml)
+- 2026-06-30 08:12 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/0371720655.shtml)
+- 2026-06-30 08:27 - [点球大战](https://www.blog.minike.top/Article/details/03589331538.shtml)
+- 2026-06-30 08:28 - [锐评T1战胜KC](https://www.blog.minike.top/Article/details/761840682.shtml)
+- 2026-06-30 08:15 - [巴拉圭先进球了](https://www.blog.kurohicncr.top/Article/details/99624749.shtml)
+- 2026-06-30 08:20 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/5459097.shtml)
+- 2026-06-30 08:09 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/597062200.shtml)
+- 2026-06-30 08:28 - [网瘾賊大的阿嬷](https://www.share.kurohicncr.top/Article/details/2554839912.shtml)
+- 2026-06-30 08:27 - [詹姆斯下赛季去哪](http://www.blog.kurohicncr.top/Article/details/89329465959.shtml)

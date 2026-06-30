@@ -1,59 +1,58 @@
-# 宇树科技和阿里将有出海战略级合作：宇树机器人上手阿里电脑打字 或将落地速卖通
+# “共同迈向更具韧性和可持续的未来”——访孟加拉国总理财政与规划事务顾问提图米尔
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-快科技4月9日消息，据申妈的朋友圈今日消息，知情人士透露，宇树科技与阿里正酝酿一项重要的出海战略合作。宇树科技的最新款机器人R1 近日出现在阿里西溪园区，机器人坐在阿里园区公共区域、在一台电脑前呈打字状态，电脑屏幕上是“邀请函”三个字，并有宇树科技的工作人员随行。 消息提到，围观员工透露，工作人员在现场解释称，此次到访是为一个名为“树卖通”的新项目做准备。该项目预计将在 4 月
+“发展是解决全球性挑战的‘金钥匙’。”孟加拉国总理财政与规划事务顾问提图米尔近日在接受本报记者专访时表示，全球发展倡议旨在建立互惠的伙伴关系，为全球发展遇到的突出问题提供解决方案，“这具有重要时代价值和实践意义”。当前国际形势变乱交织，地区冲突此起彼伏，发展赤字持续扩大，气候变化、数字鸿沟、能源安全等问题不断加剧。“全球可持续发展目标整体进展缓慢。我们希望看到中国持续发挥引领作
 
 ## 正文
 
-快科技4月9日消息，据申妈的朋友圈今日消息，知情人士透露，宇树科技与阿里正酝酿一项重要的出海战略合作。
+“发展是解决全球性挑战的‘金钥匙’。
 
-宇树科技的最新款机器人R1 近日出现在阿里西溪园区，机器人坐在阿里园区公共区域、在一台电脑前呈打字状态，电脑屏幕上是“邀请函”三个字，并有宇树科技的工作人员随行。
+”孟加拉国总理财政与规划事务顾问提图米尔近日在接受本报记者专访时表示，全球发展倡议旨在建立互惠的伙伴关系，为全球发展遇到的突出问题提供解决方案，“这具有重要时代价值和实践意义”。
 
-消息提到，围观员工透露，工作人员在现场解释称，此次到访是为一个名为“树卖通”的新项目做准备。
+当前国际形势变乱交织，地区冲突此起彼伏，发展赤字持续扩大，气候变化、数字鸿沟、能源安全等问题不断加剧。
 
-该项目预计将在 4 月中旬于深圳的一场品牌大会上正式对外官宣。
+“全球可持续发展目标整体进展缓慢。
 
-对于“树卖通”项目，有接近阿里的人士分析认为，从项目名称及宇树科技的海外发展计划来看，此次合作极有可能与阿里巴巴旗下的跨境电商平台 —— 速卖通（AliExpress）相关。
+我们希望看到中国持续发挥引领作用，为推动南南合作凝聚合力。
 
-值得关注的是，宇树科技与阿里巴巴之间存在业务合作与资本投资的双重关系。
+”提图米尔表示，全球发展倡议的重要价值在当下更加凸显——发展筹资、气候变化和绿色发展、数字时代互联互通等八大重点合作领域，为各国促进包容及可持续增长提供了全面框架；倡议坚持的发展优先、以人民为中心等思想，为加快落实联合国2030年可持续发展议程发挥着重要支持作用。
 
-具体表现为，在2025年6月19日，阿里巴巴作为领投方之一参与了宇树科技的C轮融资。
+提图米尔特别指出，“日前在北京举行的全球共享发展行动论坛第三届高级别会议恰逢其时，为全球发展事业增添了动力。
 
-据悉，本轮融资始于2024年9月，由中国移动旗下基金、腾讯、锦秋基金、阿里巴巴、蚂蚁集团、吉利资本联合领投，原股东阵营亦大规模跟投。
+” 提图米尔表示，近年来，依托中国先进的基础设施建设技术与经验，两国合作的一些项目大幅提升了孟加拉国互联互通水平。
 
 ## 相关推荐
 
-- 2026-06-30 08:08 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-30 08:15 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-30 08:19 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-30 08:03 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-30 07:57 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-30 08:23 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-30 08:03 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-30 08:10 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
-- 2026-06-30 08:12 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-30 08:14 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-30 08:01 - [德国进球被吹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
-- 2026-06-30 07:54 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
-- 2026-06-30 08:20 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
+- 2026-06-30 08:27 - [马耳他著名拱门坍塌致中国男子身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-30 08:22 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-30 08:24 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
+- 2026-06-30 08:24 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-30 08:05 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-30 08:14 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-30 08:18 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
+- 2026-06-30 08:17 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-30 08:27 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-30 08:15 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-30 08:26 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-30 08:15 - [德国连续三届世界杯无缘16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:56 - [巴拉圭先进球了](https://www.share.minike.top/Article/details/95488210230.shtml)
-- 2026-06-30 08:16 - [问心2神一集鬼三集](https://www.share.kurohicncr.top/Article/details/50208104.shtml)
-- 2026-06-30 08:20 - [内马尔替补](http://www.share.minike.top/Article/details/840000276441.shtml)
-- 2026-06-30 08:19 - [美人鱼](http://www.share.minike.top/Article/details/9327556856.shtml)
-- 2026-06-30 08:23 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/6253339425.shtml)
-- 2026-06-30 08:23 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/372887369.shtml)
-- 2026-06-30 08:12 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/2056170.shtml)
-- 2026-06-30 08:03 - [韩国球迷凌晨4点接机怒骂主教练](http://www.blog.kurohicncr.top/Article/details/50695685.shtml)
-- 2026-06-30 08:07 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/07072346577.shtml)
-- 2026-06-30 08:13 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.kurohicncr.top/Article/details/937170095.shtml)
-- 2026-06-30 08:06 - [我觉得你是在无中生友](http://www.blog.kurohicncr.top/Article/details/77508428.shtml)
-- 2026-06-30 08:09 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/061904970.shtml)
-- 2026-06-30 08:09 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/4633040575.shtml)
-- 2026-06-30 08:19 - [曝老詹对自由市场态度与以往截然不同](http://www.share.kurohicncr.top/Article/details/487117080.shtml)
-- 2026-06-30 08:15 - [亚洲球队全部出局](http://www.share.minike.top/Article/details/86605.shtml)
+- 2026-06-30 08:13 - [曝詹姆斯即将与勇士会面](http://www.blog.kurohicncr.top/Article/details/59345223508.shtml)
+- 2026-06-30 08:23 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/10311.shtml)
+- 2026-06-30 08:21 - [高考结束了，你会让孩子在家玩手机吗？](https://www.blog.minike.top/Article/details/25171.shtml)
+- 2026-06-30 08:16 - [巴西绝杀](http://www.share.minike.top/Article/details/00703383.shtml)
+- 2026-06-30 08:21 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/5358541002.shtml)
+- 2026-06-30 08:12 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/32476.shtml)
+- 2026-06-30 08:27 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/631977.shtml)
+- 2026-06-30 08:03 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/9818179.shtml)
+- 2026-06-30 08:11 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.kurohicncr.top/Article/details/7232593.shtml)
+- 2026-06-30 08:03 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://www.share.minike.top/Article/details/34915519322.shtml)
+- 2026-06-30 08:28 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://www.blog.minike.top/Article/details/6317871.shtml)
+- 2026-06-30 08:13 - [郑钦文温网首轮出局](http://www.share.minike.top/Article/details/011189.shtml)
+- 2026-06-30 08:07 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.share.minike.top/Article/details/2387135.shtml)
+- 2026-06-30 08:29 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.share.kurohicncr.top/Article/details/4424788336.shtml)
+- 2026-06-30 08:27 - [4000美元是黄金新一轮下跌的开始吗](https://www.share.minike.top/Article/details/928068696.shtml)

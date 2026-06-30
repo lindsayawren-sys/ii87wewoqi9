@@ -1,57 +1,61 @@
-# PIMCO寻求转让甲骨文数据中心债务
+# 中国互联网金融协会互联网贷款自律工作委员会筹备组第一次会议在京召开
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-甲骨文再次成为市场焦点，据报太平洋投资管理公司（PIMCO）正寻求转让其密歇根大型数据中心项目相关的140亿美元债务 package 中的部分份额。 据报道，PIMCO正在试探投资者接手部分风险敞口，本质上是在该交易完成前试图削减其头寸。该融资安排属于美国银行主导的更大规模的163亿美元结构的一部分，交易预计在4月17日左右完成。在股权方面，该项目约15% 由投资者出资，其中包
+来源：中国互联网金融协会 近日，中国互联网金融协会互联网贷款自律工作委员会筹备组（简称筹备组）第一次会议在京召开。协会党委书记、秘书长马超主持会议并讲话，度小满、蚂蚁科技、腾讯、京东科技、抖音等会员单位负责互联网信贷业务的相关负责人出席会议。 会议审议通过了筹备组工作规则，明确筹备期主要工作任务是：研究提出工作委员会首届委员建议名单；制定引领行业高质量发展、树立行业良好形象的相
 
 ## 正文
 
-甲骨文再次成为市场焦点，据报太平洋投资管理公司（PIMCO）正寻求转让其密歇根大型数据中心项目相关的140亿美元债务 package 中的部分份额。
+来源：中国互联网金融协会 近日，中国互联网金融协会互联网贷款自律工作委员会筹备组（简称筹备组）第一次会议在京召开。
 
-据报道，PIMCO正在试探投资者接手部分风险敞口，本质上是在该交易完成前试图削减其头寸。
+协会党委书记、秘书长马超主持会议并讲话，度小满、蚂蚁科技、腾讯、京东科技、抖音等会员单位负责互联网信贷业务的相关负责人出席会议。
 
-该融资安排属于美国银行主导的更大规模的163亿美元结构的一部分，交易预计在4月17日左右完成。
+会议审议通过了筹备组工作规则，明确筹备期主要工作任务是：研究提出工作委员会首届委员建议名单；制定引领行业高质量发展、树立行业良好形象的相关举措，并在行业内倡导实施；代表行业及时报告有关息费压降、明示工作和营销、催收等活动面临的风险、问题、困难，提出政策建议；起草相关自律公约、规则、指引等自律规范性文件等。
 
-在股权方面，该项目约15% 由投资者出资，其中包括黑石集团的20亿美元投资，其余部分则通过长期债券筹集。
+筹备组议事采取现场会议形式，在“充分讨论、协商一致”的基础上形成决议。
 
-这些债券的收益率预计在7.5% 左右，比甲骨文现有的2040年到期债券高出约100个基点，为投资者提供了额外 incentive。
+会议审议通过了筹备组成员标准，从符合性指标、基础分指标和加减分指标等三方面构建筹备组成员综合评价遴选体系。
 
-此前该项目曾经历一些不确定性，包括Blue Owl在去年底退出股权角色，这曾一度拖慢了项目进度。
+其中，符合性指标是加入筹备组必须满足的前置条件，包括应是协会会员、主体资质完备、承诺遵守自律规则、按要求报送数据、未出现严重影响行业声誉和形象的负面事件等；基础分指标和加减分指标采用评分制，包括运营指标类、风险防控类、消费者保护类和履职情况类、行业表率类、行业影响类等。
 
-责任编辑：张俊 SF065
+有关从业机构申请加入筹备组的，应满足符合性指标要求且综合评分较高，并经协会秘书处审核后按照工作规则提请筹备组批准。
+
+会议讨论了关于“引领行业健康发展、树立行业良好形象”的系列举措。
 
 ## 相关推荐
 
-- 2026-06-30 08:19 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-30 08:05 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-30 07:55 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-30 08:07 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-30 08:10 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-30 07:55 - [库尼亚赛后伸五指嘲讽日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-30 08:22 - [泰山景区回应修建刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-30 08:17 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-30 08:00 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-30 07:57 - [世界杯欧洲队7战南美仅1胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-30 08:14 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-30 08:13 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-30 07:55 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-30 08:12 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-30 08:03 - [王濛回复黄灿灿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-30 08:29 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
+- 2026-06-30 08:17 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-30 08:05 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-30 08:02 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-30 08:26 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-30 08:07 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-30 08:12 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
+- 2026-06-30 08:13 - [王濛回复黄灿灿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-30 08:09 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-30 08:22 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-30 08:01 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-30 08:10 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-30 08:09 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:57 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/22584735.shtml)
-- 2026-06-30 08:05 - [日本 高位逼抢](https://www.blog.minike.top/Article/details/98318840767.shtml)
-- 2026-06-30 08:04 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/4581515658.shtml)
-- 2026-06-30 08:20 - [委内瑞拉地震死亡人数升至1719人](http://www.blog.minike.top/Article/details/140554665.shtml)
-- 2026-06-30 08:17 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/237954012.shtml)
-- 2026-06-30 07:54 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/97810039214.shtml)
-- 2026-06-30 07:55 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/321186578.shtml)
-- 2026-06-30 08:06 - [小娘惹](https://www.share.kurohicncr.top/Article/details/616210338.shtml)
-- 2026-06-30 08:20 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/66607515309.shtml)
-- 2026-06-30 07:59 - [沙丘](http://www.share.minike.top/Article/details/9366170441.shtml)
-- 2026-06-30 07:54 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/238911.shtml)
-- 2026-06-30 08:20 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/5522559.shtml)
-- 2026-06-30 08:12 - [我觉得你是在无中生友](http://www.share.kurohicncr.top/Article/details/63983314.shtml)
-- 2026-06-30 08:04 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/87885.shtml)
-- 2026-06-30 08:01 - [起风了](http://www.share.kurohicncr.top/Article/details/3636784010.shtml)
+- 2026-06-30 08:24 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/345992232.shtml)
+- 2026-06-30 08:04 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/3567691337.shtml)
+- 2026-06-30 08:04 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/24632736.shtml)
+- 2026-06-30 08:09 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/09466.shtml)
+- 2026-06-30 08:14 - [巴拉圭进球](http://www.blog.kurohicncr.top/Article/details/474018637878.shtml)
+- 2026-06-30 08:08 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/19353.shtml)
+- 2026-06-30 08:14 - [孙颖莎王楚钦晋级8强](http://www.blog.minike.top/Article/details/892651.shtml)
+- 2026-06-30 08:10 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/528853730408.shtml)
+- 2026-06-30 08:17 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/559785542.shtml)
+- 2026-06-30 08:25 - [花少8要去世界杯举办国](http://www.share.kurohicncr.top/Article/details/71905731879.shtml)
+- 2026-06-30 08:05 - [巴西把自己踢晕了](https://www.blog.minike.top/Article/details/817428974.shtml)
+- 2026-06-30 08:09 - [扫黑风暴](https://www.share.minike.top/Article/details/536555760433.shtml)
+- 2026-06-30 08:14 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/35627.shtml)
+- 2026-06-30 08:02 - [锐评T1战胜KC](https://www.blog.minike.top/Article/details/56171577.shtml)
+- 2026-06-30 08:21 - [花少8要去世界杯举办国](http://www.blog.minike.top/Article/details/61756.shtml)

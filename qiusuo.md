@@ -1,57 +1,57 @@
-# 《趣宿州》新书发布 “50问”铺展历史风华
+# 千寻智能孙荣毅：具身智能领域创新成果分享
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-中新网宿州4月8日电 (张俊 谢诗睿)《趣宿州》文化主题图书7日在安徽省宿州市正式对外发布。 当日，在“趣读宿州·阅见美好”主题文化沙龙上，文化学者、编委、读者作新书分享和解读。 宿州市委常委、宣传部部长怀颖表示，《趣宿州》用50个鲜活的问题，50篇温润的短文，让厚重的宿州文化变得可读、可感、可赏，也成为连接人心、凝聚乡情的纽带。 《趣宿州》主编武雷详述新书创作初心与编选历程。
+专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日-9日在北京举行。千寻智能董事兼副总裁孙荣毅出席并演讲。 以下为演讲实录： 孙荣毅：各位专家、各位同事，大家上午好，下面由我代表千寻智能分享我们在具身智能领域的创新成果。千寻智能在机器人硬件和模型领域有全栈的研发能力，我们自身还是定位一家具身智能模型公司，现在也是国内唯一的同时被小米
 
 ## 正文
 
-中新网宿州4月8日电 (张俊 谢诗睿)《趣宿州》文化主题图书7日在安徽省宿州市正式对外发布。
+专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日-9日在北京举行。
 
-当日，在“趣读宿州·阅见美好”主题文化沙龙上，文化学者、编委、读者作新书分享和解读。
+千寻智能董事兼副总裁孙荣毅出席并演讲。
 
-宿州市委常委、宣传部部长怀颖表示，《趣宿州》用50个鲜活的问题，50篇温润的短文，让厚重的宿州文化变得可读、可感、可赏，也成为连接人心、凝聚乡情的纽带。
+以下为演讲实录： 孙荣毅：各位专家、各位同事，大家上午好，下面由我代表千寻智能分享我们在具身智能领域的创新成果。
 
-《趣宿州》主编武雷详述新书创作初心与编选历程。
+千寻智能在机器人硬件和模型领域有全栈的研发能力，我们自身还是定位一家具身智能模型公司，现在也是国内唯一的同时被小米、宁德、京东同时投资的具身智能企业。
 
-据武雷介绍，书中50个问题遵循“选得准、贴得近、传得开”原则，覆盖历史溯源、地理风华、名人故事等五大板块。
+千寻智能刚刚成立2年，现在是行业里面最年轻的独角兽企业，这里大家可以看到两张图，是我们验证具身智能数据Scaling Law曲线，我们发现预训练数据每提高一个数量级，后训练的finetune对数据量需求降低大约一半。
 
-“宿州千年运河的古今交响”“为何宿州本地人自称‘Xǔ县’？
+现在我们已经积累了100万小时预训练的数据，在100万小时预训练的基础下，我们对简单任务可以实现数十条数据的采集，就可以实现99%的成功率，基本上可以达到即插即用的效果。
 
-”等问答，带领读者读懂宿州的“来处”；“宿州，安徽离海最近的城市”“长在黄河故道上的砀山”等主题，解锁宿州独特的地理格局与自然禀赋。
+针对复杂的任务，在100万小时预训练之后，我们只需要采不到30个小时的数据就能够达到70%的成功率。
 
-“该书同时聚焦白居易、苏轼等与宿州渊源深厚的历史名人，展现宿州厚重的人文底蕴；符离集烧鸡、金丝绞瓜、泗州戏等特色名片，让读者真切触摸到宿州的烟火气息与文化根魂。
+同时我们这边的合作伙伴除了刚才提到的小米、华为、宁德、京东以外还有西门子和博士。
 
 ## 相关推荐
 
-- 2026-06-30 08:00 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
-- 2026-06-30 08:23 - [德国 传控](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-30 08:18 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-30 08:10 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-30 08:01 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
-- 2026-06-30 08:12 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-30 08:11 - [索马里女大使：想和中国一起搞事业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-30 08:15 - [德国连续三届世界杯无缘16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-30 08:22 - [德国队世界杯点球大战首败](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-30 08:04 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-30 07:59 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-30 08:14 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-30 08:01 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-30 08:19 - [现在叛逆期的孩子最怕的是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-30 08:11 - [巴拉圭点球大战淘汰德国进16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-30 08:11 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-30 08:20 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-30 08:23 - [恋与深空回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-30 08:05 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
+- 2026-06-30 08:10 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-30 08:18 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-30 08:05 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:54 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/84162354.shtml)
-- 2026-06-30 08:00 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/0569679183.shtml)
-- 2026-06-30 08:14 - [森保一 保守](http://www.blog.kurohicncr.top/Article/details/73608036.shtml)
-- 2026-06-30 08:01 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/141641.shtml)
-- 2026-06-30 08:02 - [这种关系可能正在悄悄“催老”你](http://www.blog.minike.top/Article/details/8000811601.shtml)
-- 2026-06-30 08:09 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/2917698282.shtml)
-- 2026-06-30 07:58 - [巴西补时绝杀日本](http://www.share.minike.top/Article/details/179032.shtml)
-- 2026-06-30 07:59 - [巴西2比1日本](https://www.blog.minike.top/Article/details/5684706.shtml)
-- 2026-06-30 08:19 - [网瘾賊大的阿嬷](http://www.blog.minike.top/Article/details/019293945.shtml)
-- 2026-06-30 08:03 - [世界杯：德国vs巴拉圭](https://www.share.kurohicncr.top/Article/details/8514487.shtml)
-- 2026-06-30 08:00 - [森保一致歉：世界第一目标没能实现](https://www.share.kurohicncr.top/Article/details/534349215173.shtml)
-- 2026-06-30 08:20 - [本届世界杯已有5名球员被控强奸](https://www.share.minike.top/Article/details/399782754.shtml)
-- 2026-06-30 08:12 - [郑钦文温网首轮出局](https://www.share.minike.top/Article/details/7038094780.shtml)
-- 2026-06-30 08:18 - [沉睡花园](http://www.share.minike.top/Article/details/588531.shtml)
-- 2026-06-30 08:07 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/397178319.shtml)
+- 2026-06-30 08:00 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/1057995917.shtml)
+- 2026-06-30 08:12 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.kurohicncr.top/Article/details/2276607.shtml)
+- 2026-06-30 08:03 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.kurohicncr.top/Article/details/73543517.shtml)
+- 2026-06-30 08:17 - [佐野海舟远射破门](http://www.share.minike.top/Article/details/618241.shtml)
+- 2026-06-30 08:08 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/449407798.shtml)
+- 2026-06-30 08:00 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/9567073.shtml)
+- 2026-06-30 08:04 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/624469927492.shtml)
+- 2026-06-30 08:00 - [日本队主帅道歉](http://www.blog.minike.top/Article/details/566426549739.shtml)
+- 2026-06-30 08:17 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/080714343826.shtml)
+- 2026-06-30 08:05 - [复古未来主义沙画「夜泳」](http://www.blog.minike.top/Article/details/578598034308.shtml)
+- 2026-06-30 08:17 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/3243465.shtml)
+- 2026-06-30 08:29 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/736766.shtml)
+- 2026-06-30 08:13 - [沙丘](http://www.share.minike.top/Article/details/46278311222.shtml)
+- 2026-06-30 08:12 - [委内瑞拉地震死亡人数升至1719人](http://www.blog.minike.top/Article/details/85318706.shtml)
+- 2026-06-30 08:10 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/16218996219.shtml)

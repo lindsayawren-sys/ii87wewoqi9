@@ -1,56 +1,61 @@
-# 国台办：民进党当局“跪美卖台” 牺牲台湾农业未来
+# 北京-东盟科技产业推介洽谈会举办 共享合作新机遇
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-中新网4月8日电 4月8日，国务院台办举行例行新闻发布会。有记者问：近日，台农业部门称，对于台湾承诺对美国农产品不加征特别防卫措施(SSG)关税，评估对岛内产业影响有限。这引发岛内农业界广泛担忧美国农产品涌入将严重冲击岛内鸡肉、猪肉、牛肉等相关产业，更担心检验检疫不严格会造成农作物疫病。请问对此有何评论？ 国台办发言人朱凤莲表示，面对美国的经济霸凌，民进党当局一味妥协退让、讨好
+中新网北京5月9日电 (记者 吕少威)由北京市贸促会主办的第二十八届北京科博会北京-东盟科技产业推介洽谈会8日在国家会议中心二期举办。来自马来西亚、老挝、缅甸、印尼、越南驻华大使馆官员，东盟经济贸易促进会、中国-东盟产业合作发展促进会、中国东盟中心等中外商协会及企业代表，共150余人参加活动。 东盟经济贸易促进会会长波尚琅在致辞中指出，科技是驱动发展的硬实力，也是北京与东盟最具
 
 ## 正文
 
-中新网4月8日电 4月8日，国务院台办举行例行新闻发布会。
+中新网北京5月9日电 (记者 吕少威)由北京市贸促会主办的第二十八届北京科博会北京-东盟科技产业推介洽谈会8日在国家会议中心二期举办。
 
-有记者问：近日，台农业部门称，对于台湾承诺对美国农产品不加征特别防卫措施(SSG)关税，评估对岛内产业影响有限。
+来自马来西亚、老挝、缅甸、印尼、越南驻华大使馆官员，东盟经济贸易促进会、中国-东盟产业合作发展促进会、中国东盟中心等中外商协会及企业代表，共150余人参加活动。
 
-这引发岛内农业界广泛担忧美国农产品涌入将严重冲击岛内鸡肉、猪肉、牛肉等相关产业，更担心检验检疫不严格会造成农作物疫病。
+东盟经济贸易促进会会长波尚琅在致辞中指出，科技是驱动发展的硬实力，也是北京与东盟最具活力的增长极，务实合作、开放共赢是双方面向未来的共同选择。
 
-请问对此有何评论？
+参会各方要共同发挥桥梁纽带作用，助力更多企业跨越山海，共享区域一体化带来的巨大机遇。
 
-国台办发言人朱凤莲表示，面对美国的经济霸凌，民进党当局一味妥协退让、讨好献媚，任由其予取予求，把台湾变成美国农产品的倾销地，势必严重冲击台湾农产品市场，影响台湾农渔业者的收入，必然会引发岛内农业界和消费者的担忧。
+中国-东盟产业合作发展促进会常务会长廖斌在致辞中表示，希望与会嘉宾积极参与打造“北京技术+东盟应用”“北京方案+东盟场景”的协同发展模式，共同打造北京硬核科技与东盟广阔市场的互利共赢生态，深化交流，共建生态，共享商机。
 
-民进党当局“跪美卖台”毫无底线，损害的是台湾民众的利益，牺牲的是台湾农业的未来。
+在实务分享环节，中国-东盟中心贸易投资部副主任伍开河深入讲述了东盟历史沿革和区域发展现况，对未来东盟以数字经济与绿色经济转型为中心，迈向韧性、创新、活力、以人为本的东盟共同体作了展望。
 
-(中新网“燕新台”工作室)
+中关村发展集团以“使命、生态、网络、未来”为主线，系统阐述了中关村作为中国科技创新出发地、原始创新策源地和自主创新主阵地，在科技创新领域的核心功能和开放合作意向，以及与全球伙伴共创未来的愿景。
+
+在推介环节，来自越南大使馆、香港投资推广署、北京数字经济企业出海创新服务基地等机构以及泰国万浦投资(中国)、东升智联、优刻得科技、合康新能源等重点企业作了推介，与现场嘉宾从宏观层面的地区发展，到中观层面的园区孵化再到微观层面的重点企业推介，形成不同层面的交流与对话，在对地区环境和产业发展推介的基础上，为企业在出海服务和务实合作方面提供了有力支撑。
 
 ## 相关推荐
 
-- 2026-06-30 08:12 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-30 08:08 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
-- 2026-06-30 08:00 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-30 08:18 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-30 08:15 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-30 08:04 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
-- 2026-06-30 08:05 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-30 08:00 - [森保一 保守](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
-- 2026-06-30 07:58 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-30 07:57 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-30 08:01 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-30 08:04 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-30 08:21 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-30 08:19 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-30 08:22 - [张雪的一句“是我们”引发岛内热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-30 08:11 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
+- 2026-06-30 08:16 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-30 08:04 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-30 08:09 - [泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-30 08:28 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-30 08:28 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
+- 2026-06-30 08:07 - [诺伊尔尽力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-30 08:06 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-30 08:24 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-30 08:06 - [日本队主帅道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-30 08:15 - [齐思钧回复张月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-30 08:06 - [电影抓特务上映11天破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:56 - [张碧晨一开口梦回逐玉](http://www.share.kurohicncr.top/Article/details/193182204.shtml)
-- 2026-06-30 08:15 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/01227843705.shtml)
-- 2026-06-30 08:04 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/79240252522.shtml)
-- 2026-06-30 08:18 - [刘宇宁是去进货了吗](http://www.blog.kurohicncr.top/Article/details/463419.shtml)
-- 2026-06-30 08:03 - [日本领先巴西](https://www.share.kurohicncr.top/Article/details/697847069.shtml)
-- 2026-06-30 07:54 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.minike.top/Article/details/44238.shtml)
-- 2026-06-30 08:01 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/388603914341.shtml)
-- 2026-06-30 07:58 - [花少8要去世界杯举办国](https://www.share.kurohicncr.top/Article/details/14935602161.shtml)
-- 2026-06-30 07:57 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/7817916.shtml)
-- 2026-06-30 07:59 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.minike.top/Article/details/712360581632.shtml)
-- 2026-06-30 08:20 - [哈弗茨头球破门](http://www.blog.kurohicncr.top/Article/details/6174702135.shtml)
-- 2026-06-30 07:55 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/829616.shtml)
-- 2026-06-30 07:57 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/91669238750.shtml)
-- 2026-06-30 08:04 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/3749640665.shtml)
-- 2026-06-30 08:03 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/04835.shtml)
+- 2026-06-30 08:18 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.minike.top/Article/details/637872090622.shtml)
+- 2026-06-30 08:01 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/61529.shtml)
+- 2026-06-30 08:22 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/90168.shtml)
+- 2026-06-30 08:10 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.blog.kurohicncr.top/Article/details/574616229098.shtml)
+- 2026-06-30 08:05 - [田中碧失误](https://www.share.kurohicncr.top/Article/details/091782.shtml)
+- 2026-06-30 08:13 - [莫兰特转投开拓者效力](https://www.share.minike.top/Article/details/84283561.shtml)
+- 2026-06-30 08:06 - [李准基参加文彩元婚礼](https://www.blog.kurohicncr.top/Article/details/15723809251.shtml)
+- 2026-06-30 08:22 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.kurohicncr.top/Article/details/75217314.shtml)
+- 2026-06-30 08:27 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/193830309991.shtml)
+- 2026-06-30 08:14 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/22975091666.shtml)
+- 2026-06-30 08:05 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.blog.minike.top/Article/details/17389.shtml)
+- 2026-06-30 08:19 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/2695094.shtml)
+- 2026-06-30 08:00 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/76864.shtml)
+- 2026-06-30 08:19 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/339540620416.shtml)
+- 2026-06-30 08:27 - [感动全网的699分女生想报考清华](http://www.share.kurohicncr.top/Article/details/9870939.shtml)

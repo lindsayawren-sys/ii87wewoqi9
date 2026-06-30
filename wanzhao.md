@@ -1,56 +1,60 @@
-# 化工行业迎来更新机遇，当前化工板块如何布局？
+# 5月9日热门中概股涨跌不一 奇景光电涨10.98%，新东方跌4.94%
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-近日，工业和信息化部等七部门印发《加力推进石化化工行业老旧装置更新改造行动方案(2026—2029年)》，全面推进石化化工行业老旧装置改造升级，推动我国石化化工产业从“量大”向“质优”转变，行业迎来新一轮升级机遇。化工行业是典型的“大而散”行业，产业链条长、细分领域多、技术壁垒高，普通投资者做个股研究耗时耗力，而指数化投资是个不错的选择，能助力投资者高效把握化工产业行情。市场上
+5月9日热门中概股涨跌不一，纳斯达克中国金龙指数（HXC）收跌0.47%。 上涨个股（按市值从高到低）：日月光半导体涨2.65%，百度涨0.84%，联电涨1.72%，中华电信涨0.88%，贝壳涨2.47%，理想汽车涨2.27%，小鹏汽车涨0.45%，哔哩哔哩涨0.36%，万国数据涨1.44%，慧荣科技涨4.48%，名创优品涨0.79%，奇景光电涨10.98%。 下跌个股（按市值
 
 ## 正文
 
-近日，工业和信息化部等七部门印发《加力推进石化化工行业老旧装置更新改造行动方案(2026—2029年)》，全面推进石化化工行业老旧装置改造升级，推动我国石化化工产业从“量大”向“质优”转变，行业迎来新一轮升级机遇。
+5月9日热门中概股涨跌不一，纳斯达克中国金龙指数（HXC）收跌0.47%。
 
-化工行业是典型的“大而散”行业，产业链条长、细分领域多、技术壁垒高，普通投资者做个股研究耗时耗力，而指数化投资是个不错的选择，能助力投资者高效把握化工产业行情。
+上涨个股（按市值从高到低）：日月光半导体涨2.65%，百度涨0.84%，联电涨1.72%，中华电信涨0.88%，贝壳涨2.47%，理想汽车涨2.27%，小鹏汽车涨0.45%，哔哩哔哩涨0.36%，万国数据涨1.44%，慧荣科技涨4.48%，名创优品涨0.79%，奇景光电涨10.98%。
 
-市场上主流的化工行业指数有两只：中证石化产业指数与中证细分化工产业主题指数。
+下跌个股（按市值从高到低）：台积电跌0.63%，阿里巴巴跌0.67%，拼多多跌2.69%，网易跌1.02%，京东跌0.26%，携程跌1.29%，富途控股跌0.21%，中通跌1.07%，华住酒店集团跌1.51%，腾讯音乐跌0.22%，中国新城农村跌4.07%，满帮跌1.29%，新东方跌4.94%，唯品会跌0.42%，BOSS直聘跌1.54%，WSP控股跌1.43%，亚朵集团跌0.37%，金山云跌0.81%，小马智行跌3.53%，微牛跌2.50%，禾赛科技跌1.19%，欢聚跌0.20%。
 
-它们同属化工行业指数，有什么区别？
+美股周五收高，科技股领涨，标普500指数和纳斯达克综合指数再创历史新高。
 
-中证石化产业指数目前有39只成份股，中证细分化工产业主题指数有50只成份股，两只指数的成份股重合度约80%。
+三大指数本周均录得涨幅，标普与纳指均为连续第六周上涨。
 
-不过，中证石化产业指数的化工纯度更高，石油石化和基础化工行业占比93%，比细分化工产业主题指数高出11个百分点，而且其特有成份股包含中国石化、中国海油、中国石油这“三桶油”，因而对油价上涨更为敏感，加之传统高耗能化工含量更高，更能受益于行业供给端的改善，且随着老旧装置改造持续推进，化工行业供给格局有望进一步优化。
+美国4月非农就业数据好于预期。
 
-中证细分化工产业主题指数成份股中，主要多了天赐材料、龙佰集团等电池化学品公司，因而与电池材料细分赛道的景气度相关性高一些。
+美伊在霍尔木兹海峡交火后，美国总统特朗普称停火协议仍然有效。
 
-从历史表现来看，中证石化产业指数在产业周期确认反转、进入景气度右侧上行、产品价格上涨利润兑现阶段，凭借龙头公司的定价权和规模效应，往往展现出更强的行情持续性和超额收益。
+道指涨12.19点，涨幅为0.02%，报49609.16点；纳指涨440.88点，涨幅为1.71%，报26247.08点；标普500指数涨61.82点，涨幅为0.84%，报7398.93点。
 
 ## 相关推荐
 
-- 2026-06-30 08:04 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-30 08:09 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-30 08:14 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-30 08:19 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
-- 2026-06-30 08:19 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-30 08:16 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-30 08:14 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-30 08:18 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
-- 2026-06-30 08:05 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-30 08:00 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-30 08:28 - [德国队世界杯点球大战首败](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-30 08:18 - [IGN评测电影版后室](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-30 08:29 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-30 08:07 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-30 08:06 - [点球大战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-30 08:10 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
+- 2026-06-30 08:03 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-30 08:09 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-30 08:18 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-30 08:26 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
+- 2026-06-30 08:13 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-30 08:29 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-30 08:00 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-30 08:10 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:57 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/52719939753.shtml)
-- 2026-06-30 07:54 - [王楚钦说配合稍微有些陌生感](http://www.share.minike.top/Article/details/75079.shtml)
-- 2026-06-30 08:15 - [沙丘](http://www.share.kurohicncr.top/Article/details/2838768039.shtml)
-- 2026-06-30 08:17 - [三星投资计划](https://www.share.kurohicncr.top/Article/details/34725169.shtml)
-- 2026-06-30 07:54 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/28314167.shtml)
-- 2026-06-30 07:59 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.blog.kurohicncr.top/Article/details/626696.shtml)
-- 2026-06-30 08:08 - [泰山景区回应修建刀片刺绳隔离网](http://www.share.minike.top/Article/details/28371293629.shtml)
-- 2026-06-30 08:19 - [建议不要突然完全停止喝咖啡](http://www.blog.kurohicncr.top/Article/details/883423388.shtml)
-- 2026-06-30 08:23 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/69594210.shtml)
-- 2026-06-30 07:54 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/18475.shtml)
-- 2026-06-30 08:11 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/87888478.shtml)
-- 2026-06-30 08:01 - [青春环游记第三季](http://www.blog.minike.top/Article/details/9703308.shtml)
-- 2026-06-30 08:22 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/272077922.shtml)
-- 2026-06-30 08:13 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/902279895639.shtml)
-- 2026-06-30 08:01 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/169441.shtml)
+- 2026-06-30 08:10 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/16201869.shtml)
+- 2026-06-30 08:28 - [爱很美味](https://www.share.kurohicncr.top/Article/details/131860531655.shtml)
+- 2026-06-30 08:21 - [巴西2-1绝杀日本](http://www.blog.minike.top/Article/details/5643027923.shtml)
+- 2026-06-30 08:27 - [“柠檬茶能换怀表？”](http://www.blog.kurohicncr.top/Article/details/21433866.shtml)
+- 2026-06-30 08:03 - [日本球迷被强行披上巴西国旗](https://www.blog.minike.top/Article/details/2941043879.shtml)
+- 2026-06-30 08:08 - [“草莓月亮”浪漫现身](https://www.share.minike.top/Article/details/279609067394.shtml)
+- 2026-06-30 08:14 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/95967.shtml)
+- 2026-06-30 08:16 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/7093533186.shtml)
+- 2026-06-30 08:11 - [德国进球被吹](https://www.blog.kurohicncr.top/Article/details/577793.shtml)
+- 2026-06-30 08:16 - [泰山建135公里刀片刺绳隔离网](http://www.share.minike.top/Article/details/06489456876.shtml)
+- 2026-06-30 08:25 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/411365916.shtml)
+- 2026-06-30 08:19 - [孙颖莎王楚钦晋级8强](http://www.blog.kurohicncr.top/Article/details/9320992794.shtml)
+- 2026-06-30 08:24 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.minike.top/Article/details/100405908.shtml)
+- 2026-06-30 08:27 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://www.blog.minike.top/Article/details/22105156888.shtml)
+- 2026-06-30 08:06 - [德国4比5巴拉圭](http://www.share.minike.top/Article/details/5104657.shtml)

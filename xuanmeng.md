@@ -1,47 +1,45 @@
-# 中钢国际：目前在伊朗无正在执行的项目
+# 强军思想育新人丨“翀”上云霄
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-每经AI快讯，中钢国际(000928)4月8日于互动平台表示，公司过往在伊朗有工程业绩，但目前在伊朗无正在执行的项目。
+发布时间：2026年05月09日 09:43 来源：学习军团 责任编辑：【杨彦宇】
 
 ## 正文
 
-每经AI快讯，中钢国际(000928)4月8日于互动平台表示，公司过往在伊朗有工程业绩，但目前在伊朗无正在执行的项目。
+发布时间：2026年05月09日 09:43 来源：学习军团 责任编辑：【杨彦宇】
 
 ## 相关推荐
 
-- 2026-06-30 08:10 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-30 08:01 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
-- 2026-06-30 08:01 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
-- 2026-06-30 08:04 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-30 08:12 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
-- 2026-06-30 08:04 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-30 07:55 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-30 08:16 - [德国队世界杯点球大战首败](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-30 08:21 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-30 08:22 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
-- 2026-06-30 08:03 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
-- 2026-06-30 08:07 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-30 08:09 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
-- 2026-06-30 08:09 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-30 08:00 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-30 08:03 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
+- 2026-06-30 08:25 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-30 08:19 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-30 08:04 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-30 08:02 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-30 08:22 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-30 08:22 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-30 08:21 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-30 08:20 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
+- 2026-06-30 08:17 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-30 08:14 - [德国队连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-30 08:18 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-30 08:16 - [点球大战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:06 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://www.blog.minike.top/Article/details/0709554611.shtml)
-- 2026-06-30 08:07 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/579348868.shtml)
-- 2026-06-30 08:11 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/610130.shtml)
-- 2026-06-30 08:18 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/4143893822.shtml)
-- 2026-06-30 08:16 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/139546163144.shtml)
-- 2026-06-30 07:58 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/463173546.shtml)
-- 2026-06-30 08:21 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/62585.shtml)
-- 2026-06-30 08:02 - [千香](https://www.blog.kurohicncr.top/Article/details/706116760.shtml)
-- 2026-06-30 08:22 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/3668860558.shtml)
-- 2026-06-30 08:21 - [郑钦文温网三连败西尼亚科娃](http://www.share.kurohicncr.top/Article/details/98323.shtml)
-- 2026-06-30 08:12 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.minike.top/Article/details/770257.shtml)
-- 2026-06-30 08:09 - [湖南祁东原文化馆被指贱卖](http://www.blog.kurohicncr.top/Article/details/77120407.shtml)
-- 2026-06-30 07:55 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/3893719454.shtml)
-- 2026-06-30 07:54 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/364622769735.shtml)
-- 2026-06-30 08:06 - [湖南祁东原文化馆被指贱卖](https://www.share.minike.top/Article/details/38925.shtml)
+- 2026-06-30 08:12 - [日本进球](https://www.blog.kurohicncr.top/Article/details/742490854912.shtml)
+- 2026-06-30 08:21 - [美股](http://www.blog.minike.top/Article/details/2971497.shtml)
+- 2026-06-30 08:23 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/0051460914.shtml)
+- 2026-06-30 08:17 - [周生如故](http://www.share.minike.top/Article/details/336240612.shtml)
+- 2026-06-30 08:05 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/324662685.shtml)
+- 2026-06-30 08:29 - [德国队连续三届世界杯无缘16强](http://www.blog.minike.top/Article/details/3251646.shtml)
+- 2026-06-30 08:28 - [王楚钦说配合稍微有些陌生感](http://www.share.minike.top/Article/details/80723769017.shtml)
+- 2026-06-30 08:00 - [马耳他著名拱门坍塌致中国男子身亡](http://www.share.minike.top/Article/details/8076626806.shtml)
+- 2026-06-30 08:23 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/3296266666.shtml)
+- 2026-06-30 08:18 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.minike.top/Article/details/857288181813.shtml)
+- 2026-06-30 08:05 - [一见倾心](http://www.share.kurohicncr.top/Article/details/20453.shtml)
+- 2026-06-30 08:09 - [日本半场1比0领先巴西](https://www.share.kurohicncr.top/Article/details/613765281805.shtml)
+- 2026-06-30 08:29 - [泰山建135公里刀片刺绳隔离网](https://www.share.kurohicncr.top/Article/details/01944367.shtml)
+- 2026-06-30 08:26 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.minike.top/Article/details/2113435137.shtml)
+- 2026-06-30 08:29 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/5502880.shtml)

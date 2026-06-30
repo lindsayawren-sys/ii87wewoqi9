@@ -1,58 +1,57 @@
-# 恒信东方财务造假被罚，已被ST索赔拉开帷幕
+# 俄罗斯同意延长停火并换俘 乌克兰称不会袭击红场阅兵
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-一、财务造假被处罚 2026年4月3日，恒信东方发布公告，公司及相关当事人收到中国证监会北京监管局下发的《行政处罚事先告知书》。因2022年年度报告存在虚假记载、虚增营收1.82亿元，公司及四名时任高管将面临合计1250万元罚款。 因财务造假，公司股票交易将被实施其他风险警示，已于4月8日开市起复牌，股票简称变更为“ST恒信（维权）”。 针对该公司因虚假陈述导致投资者受损的索赔
+新华社莫斯科/基辅5月8日电(记者黄河 李东旭)俄罗斯总统助理乌沙科夫8日晚表示，俄方同意并支持美国总统特朗普提出的延长停火和俄乌交换被俘人员的方案。乌克兰总统泽连斯基下令，莫斯科红场9日举行的阅兵活动不会成为乌方攻击目标。乌沙科夫说，俄方同意美方将俄乌停火延长至5月11日的提议，并支持美方关于俄乌双方在11日前互换1000名被俘人员的提议。据他介绍，上述提议是俄美双方电话沟通
 
 ## 正文
 
-一、财务造假被处罚 2026年4月3日，恒信东方发布公告，公司及相关当事人收到中国证监会北京监管局下发的《行政处罚事先告知书》。
+新华社莫斯科/基辅5月8日电(记者黄河 李东旭)俄罗斯总统助理乌沙科夫8日晚表示，俄方同意并支持美国总统特朗普提出的延长停火和俄乌交换被俘人员的方案。
 
-因2022年年度报告存在虚假记载、虚增营收1.82亿元，公司及四名时任高管将面临合计1250万元罚款。
+乌克兰总统泽连斯基下令，莫斯科红场9日举行的阅兵活动不会成为乌方攻击目标。
 
-因财务造假，公司股票交易将被实施其他风险警示，已于4月8日开市起复牌，股票简称变更为“ST恒信（维权）”。
+乌沙科夫说，俄方同意美方将俄乌停火延长至5月11日的提议，并支持美方关于俄乌双方在11日前互换1000名被俘人员的提议。
 
-针对该公司因虚假陈述导致投资者受损的索赔维权窗口已经全面开启。
+据他介绍，上述提议是俄美双方电话沟通达成，“特朗普总统的上述提议特意选在卫国战争胜利81周年之际提出”。
 
-那些在特定期间买入并遭受损失的投资者，或有权要求上市公司赔偿。
+泽连斯基在社交媒体发文称，在美方斡旋的谈判框架内，俄方同意与乌方互换战俘的方案，5月9日至11日也应实现停火。
 
-上海沪紫律师事务所刘鹏律师表示依据处罚，目前索赔条件为于2023年4月28日-2024年10月24日（含当日）期间买入，并在2024年10月25日之后卖出或仍持有而亏损的即可登记维权。
+他表示，释放战俘是俄乌冲突需要解决的关键人道主义问题之一，也是决定乌方立场的重要根据。
 
-（恒信东方维权入口） 二、具体违规事实 公告显示，2022年，恒信东方与创意信息、诺比侃开展算力系统集成及技术服务业务。
+乌方正在持续努力让被囚禁的乌克兰人返回家园。
 
-经北京证监局查明，恒信东方在从事相关业务时，根本不具有对商品的控制权。
+他指示乌方团队立即为换俘做好一切必要准备。
 
 ## 相关推荐
 
-- 2026-06-30 08:21 - [锐评T1战胜KC](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-30 08:02 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-30 08:05 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-30 08:11 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
-- 2026-06-30 08:06 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
-- 2026-06-30 08:19 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
-- 2026-06-30 07:56 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-30 08:19 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-30 08:08 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-30 07:59 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-30 08:23 - [网友写差评被店家“挂”门口避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
-- 2026-06-30 08:10 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-30 08:03 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-30 08:18 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-30 08:17 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-30 08:23 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-30 08:22 - [董路：谁赢谁是“正路子”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-30 08:25 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-30 08:10 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-30 08:20 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
+- 2026-06-30 08:19 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-30 08:11 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
+- 2026-06-30 08:17 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:07 - [“草莓月亮”浪漫现身](http://www.share.kurohicncr.top/Article/details/2615762260.shtml)
-- 2026-06-30 07:55 - [泰山景区回应修建刀片刺绳隔离网](https://www.blog.minike.top/Article/details/233719752.shtml)
-- 2026-06-30 08:17 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/67603988.shtml)
-- 2026-06-30 08:04 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/47556924510.shtml)
-- 2026-06-30 08:19 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/6944959999.shtml)
-- 2026-06-30 08:19 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/27245518312.shtml)
-- 2026-06-30 08:04 - [上市央企地产商 两年换了三任董事长](http://www.share.kurohicncr.top/Article/details/0218964.shtml)
-- 2026-06-30 08:19 - [詹姆斯 勇士](http://www.share.kurohicncr.top/Article/details/433295937427.shtml)
-- 2026-06-30 08:19 - [4000美元是黄金新一轮下跌的开始吗](http://www.blog.kurohicncr.top/Article/details/644804291.shtml)
-- 2026-06-30 07:57 - [诺伊尔尽力了](https://www.blog.kurohicncr.top/Article/details/41254937690.shtml)
-- 2026-06-30 07:56 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/110550896398.shtml)
-- 2026-06-30 07:59 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/794891.shtml)
-- 2026-06-30 07:57 - [严浩翔张峻豪师兄弟同台](http://www.share.minike.top/Article/details/38633.shtml)
-- 2026-06-30 08:06 - [中国新一轮出口管制直指日本命脉](http://www.share.minike.top/Article/details/783424696243.shtml)
-- 2026-06-30 08:12 - [郑钦文温网首轮出局](http://www.blog.minike.top/Article/details/052977879.shtml)
+- 2026-06-30 08:15 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/041788210513.shtml)
+- 2026-06-30 08:18 - [时光音乐会](https://www.share.minike.top/Article/details/871731145.shtml)
+- 2026-06-30 08:03 - [日本队主帅道歉](https://www.share.minike.top/Article/details/9987266552.shtml)
+- 2026-06-30 08:20 - [周冬雨多次说演不了话剧文城](http://www.share.kurohicncr.top/Article/details/561186570.shtml)
+- 2026-06-30 08:19 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/431940.shtml)
+- 2026-06-30 08:24 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/59138366767.shtml)
+- 2026-06-30 08:00 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/6125939543.shtml)
+- 2026-06-30 08:12 - [网瘾賊大的阿嬷](https://www.share.kurohicncr.top/Article/details/915949755.shtml)
+- 2026-06-30 08:08 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/538352928.shtml)
+- 2026-06-30 08:03 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/820315931.shtml)
+- 2026-06-30 08:06 - [库尼亚赛后伸五指嘲讽日本](http://www.share.kurohicncr.top/Article/details/25921056.shtml)
+- 2026-06-30 08:09 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/682987015500.shtml)
+- 2026-06-30 08:01 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/767498.shtml)
+- 2026-06-30 08:10 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/11811885463.shtml)
+- 2026-06-30 08:19 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/409151459977.shtml)

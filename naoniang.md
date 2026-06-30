@@ -1,56 +1,55 @@
-# 震荡不明关注宽基，中证A500指数的估值与股息优势逐步凸显
+# 中国财政部下达458亿元支持各地学前教育普及普惠
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-据央视新闻报道，2026年4月9日凌晨，霍尔木兹海峡再度关闭，已有油轮被迫返航。受此影响，国际油价明显反弹，WTI原油盘中一度涨超3%。美国警告称，停火协议可能因此终止。地缘风险再度升温，市场风险偏好显著回落，A股随之震荡回调。 外部扰动频发之际，外资机构对中国资产的关注度却在上升。摩根士丹利首席近日表示，在中东冲突、能源市场剧烈波动、通胀压力重新抬头的背景下，宏观层面看好中国
+中新社北京5月8日电 (记者 赵建华)中国财政部近期下达2026年支持学前教育发展资金458亿元(人民币，下同)，比上年增加125.6亿元，增长38%，重点支持地方巩固落实好学前教育免保育教育费政策；补足普惠性资源短板，提高保教质量，巩固家庭经济困难儿童等群体资助制度。财政部8日介绍，“十四五”时期，中央财政累计安排支持学前教育发展资金1262亿元。从2025年秋季学期起，免除
 
 ## 正文
 
-据央视新闻报道，2026年4月9日凌晨，霍尔木兹海峡再度关闭，已有油轮被迫返航。
+中新社北京5月8日电 (记者 赵建华)中国财政部近期下达2026年支持学前教育发展资金458亿元(人民币，下同)，比上年增加125.6亿元，增长38%，重点支持地方巩固落实好学前教育免保育教育费政策；补足普惠性资源短板，提高保教质量，巩固家庭经济困难儿童等群体资助制度。
 
-受此影响，国际油价明显反弹，WTI原油盘中一度涨超3%。
+财政部8日介绍，“十四五”时期，中央财政累计安排支持学前教育发展资金1262亿元。
 
-美国警告称，停火协议可能因此终止。
+从2025年秋季学期起，免除公办幼儿园学前一年在园儿童保育教育费，对民办园适龄儿童给予相应减免，惠及超过1400万在园儿童，减轻家庭教育支出超过200亿元。
 
-地缘风险再度升温，市场风险偏好显著回落，A股随之震荡回调。
+财政部同日还公布，近期已下达2026年科技馆免费开放补助资金预算，支持各地免费开放科技馆运行保障，展览展品的研发、维护、更新等；下达2026年中央引导地方科技发展资金预算，支持各地自由探索类基础研究、科技创新基地建设、科技成果转移转化和区域创新体系建设等。
 
-外部扰动频发之际，外资机构对中国资产的关注度却在上升。
+其中，2026年科技馆免费开放补助资金预算8.7亿多元，已提前下达8.25亿元，本次下达4584万元；2026年中央引导地方科技发展资金预算57亿元，已提前下达42亿元，本次下达15亿元。
 
-摩根士丹利首席近日表示，在中东冲突、能源市场剧烈波动、通胀压力重新抬头的背景下，宏观层面看好中国经济的韧性与“反内卷”之后的产业重塑；策略层面，A股市场抵御外部波动的能力较强，高端制造产业链蕴含丰富机遇，有望进一步吸引外资流入 在外部扰动与内部轮动交织的背景下，具备分散布局特征、覆盖各行业优质资产的核心宽基指数，其权益底仓的配置价值有望进一步提升。
-
-均衡覆盖A股核心资产的A500ETF华泰柏瑞（563360）交投活跃，最新规模374亿元、单日成交额达70亿元、单日净流入额达1.2亿元，规模与流动性优势较突出。
-
-经过前期震荡调整，中证A500指数的估值与股息优势正逐步凸显。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 08:07 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-30 08:12 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-30 08:17 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
-- 2026-06-30 08:12 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-30 08:15 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
-- 2026-06-30 08:07 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-30 08:07 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
-- 2026-06-30 08:09 - [巴拉圭进球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-30 08:17 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-30 07:59 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-30 08:10 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-30 08:19 - [巴拉圭进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
+- 2026-06-30 08:12 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-30 08:27 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
+- 2026-06-30 08:16 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-30 08:00 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-30 08:10 - [泰山景区回应修建刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-30 08:13 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-30 08:25 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-30 08:15 - [诺伊尔尽力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-30 08:23 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-30 08:09 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-30 08:19 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:57 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/112759.shtml)
-- 2026-06-30 08:23 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/98921801615.shtml)
-- 2026-06-30 07:58 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/243618352.shtml)
-- 2026-06-30 08:10 - [巴拉圭点球大战淘汰德国进16强](http://www.blog.kurohicncr.top/Article/details/506306635838.shtml)
-- 2026-06-30 08:11 - [韩乔生吐槽世界杯扩军](https://www.blog.kurohicncr.top/Article/details/0397919.shtml)
-- 2026-06-30 08:13 - [杨紫获白玉兰视后为何争议难平](https://www.blog.kurohicncr.top/Article/details/45208.shtml)
-- 2026-06-30 08:22 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/01137961.shtml)
-- 2026-06-30 08:04 - [王濛回复黄灿灿](https://www.share.kurohicncr.top/Article/details/709223674.shtml)
-- 2026-06-30 08:07 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/0014097.shtml)
-- 2026-06-30 08:11 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/66467.shtml)
-- 2026-06-30 07:55 - [董卿父亲在报纸上发文悼念亡妻](https://www.blog.minike.top/Article/details/46408.shtml)
-- 2026-06-30 07:55 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/4447384416.shtml)
-- 2026-06-30 08:20 - [三星投资计划](http://www.blog.minike.top/Article/details/8596033.shtml)
-- 2026-06-30 08:18 - [泰山景区回应修建刀片刺绳隔离网](https://www.share.kurohicncr.top/Article/details/265629.shtml)
-- 2026-06-30 07:59 - [藤森庆子赢得秘鲁总统选举](http://www.blog.minike.top/Article/details/63838382.shtml)
+- 2026-06-30 08:26 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/641441.shtml)
+- 2026-06-30 08:14 - [任素汐舞台上唱《王招君》](http://www.share.minike.top/Article/details/41120854.shtml)
+- 2026-06-30 08:15 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/250386750640.shtml)
+- 2026-06-30 08:03 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/42281842.shtml)
+- 2026-06-30 08:27 - [现在叛逆期的孩子最怕的是什么？](http://www.blog.minike.top/Article/details/569699262781.shtml)
+- 2026-06-30 08:20 - [上市央企地产商 两年换了三任董事长](http://www.blog.minike.top/Article/details/19745880.shtml)
+- 2026-06-30 08:21 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/0323697078.shtml)
+- 2026-06-30 08:09 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/88079480721.shtml)
+- 2026-06-30 08:01 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.share.kurohicncr.top/Article/details/4332965864.shtml)
+- 2026-06-30 08:06 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/864047843.shtml)
+- 2026-06-30 08:01 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/8945304.shtml)
+- 2026-06-30 08:09 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/108246585.shtml)
+- 2026-06-30 08:12 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/5641849.shtml)
+- 2026-06-30 08:03 - [沙丘](http://www.share.kurohicncr.top/Article/details/764201913.shtml)
+- 2026-06-30 08:28 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/781632834.shtml)

@@ -1,56 +1,57 @@
-# 海峡保险董事长“降级”为总经理，十年救赎难行
+# 一季度重庆跨境人民币货物贸易结算量达850.5亿元
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-来源：燕梳师院 从筹建到开业仅用两年，海峡保险创造了财险业的“福建速度”。然而，刚成立的海峡保险的发展步伐远谈不上迅猛。如果以十年为一个周期，公司的发展依旧不温不火，九亏一盈，始终未能挣脱“规模增长、盈利低迷”的怪圈，在风雨中艰难求索。 01董事长“降级” 4月7日，国家金融监督管理总局福建监管局发布任职批复，核准施培德海峡金桥财产保险股份有限公司（下称“海峡保险”）总经理的任
+中新社重庆5月9日电 (张旭)中国人民银行重庆市分行副行长、国家外汇管理局重庆市分局副局长温江勇9日介绍，2026年一季度，重庆跨境人民币货物贸易结算量达850.5亿元，居中西部第一。 温江勇说，重庆统筹用好跨境人民币贸易投资便利化试点，推动将更多符合条件的中小微企业纳入优质企业白名单，简化名单内企业的跨境收付款流程，大幅提升跨境人民币结算效率。 重庆深化跨境贸易高水平开放试点
 
 ## 正文
 
-来源：燕梳师院 从筹建到开业仅用两年，海峡保险创造了财险业的“福建速度”。
+中新社重庆5月9日电 (张旭)中国人民银行重庆市分行副行长、国家外汇管理局重庆市分局副局长温江勇9日介绍，2026年一季度，重庆跨境人民币货物贸易结算量达850.5亿元，居中西部第一。
 
-然而，刚成立的海峡保险的发展步伐远谈不上迅猛。
+温江勇说，重庆统筹用好跨境人民币贸易投资便利化试点，推动将更多符合条件的中小微企业纳入优质企业白名单，简化名单内企业的跨境收付款流程，大幅提升跨境人民币结算效率。
 
-如果以十年为一个周期，公司的发展依旧不温不火，九亏一盈，始终未能挣脱“规模增长、盈利低迷”的怪圈，在风雨中艰难求索。
+重庆深化跨境贸易高水平开放试点，自该试点获批，至2026年3月末，累计为在渝企业提供便利化跨境贸易结算682.7亿美元。
 
-01董事长“降级” 4月7日，国家金融监督管理总局福建监管局发布任职批复，核准施培德海峡金桥财产保险股份有限公司（下称“海峡保险”）总经理的任职资格。
+同时，重庆支持中西部首批笔记本电脑代工企业参与跨国公司本外币一体化资金池试点业务，通过整合账户、简化手续等方式，帮助跨国企业高效、低成本地统筹调度其境内外资金，助力企业在复杂多变的经济环境中增强资金链韧性、提升抗风险能力。
 
-公开资料显示，施培德出生于1971年9月，本科学历，法学学士学位，会计师。
+重庆是西部陆海新通道的物流和运营组织中心。
 
-1992—2021，他在人保系统深耕近三十载，曾任人保财险厦门市分公司党委书记、总经理等职务，期间屡获厦门市杰出人才、厦门金融五一劳动奖章等荣誉。
+2026年2月，陆海新通道金融服务中心已开启实体化运营。
 
-施培德与海峡保险结缘于2021年。
+中国人民银行重庆市分行副行长侯崴也提到，重庆金融系统推出通道金融改革，该改革的核心是构建跨境金融大网络，提升银企对接效率、促进金融信息互通、优化结算融资服务，让跨境金融“服务畅、覆盖广、效率高”，为西部陆海新通道沿线企业出海提供更多融资和结算便利。
 
-彼时，他执掌帅印，任职时间从2021年6月25日至2025年12月24日。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 08:18 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-30 08:10 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-30 08:17 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-30 07:55 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-30 08:09 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-30 08:18 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-30 08:00 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-30 08:23 - [勇士续约波尔津吉斯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-30 08:07 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-30 08:00 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-30 08:24 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-30 08:11 - [中国新一轮出口管制直指日本命脉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
+- 2026-06-30 08:25 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-30 08:27 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-30 08:22 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-30 08:12 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-30 08:22 - [曝老詹对自由市场态度与以往截然不同](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-30 08:26 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-30 08:13 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-30 08:20 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-30 08:17 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:03 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/842665377.shtml)
-- 2026-06-30 08:14 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/281588783.shtml)
-- 2026-06-30 08:11 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/776789884898.shtml)
-- 2026-06-30 08:20 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/75493.shtml)
-- 2026-06-30 08:16 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/2192665389.shtml)
-- 2026-06-30 08:17 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/90526754973.shtml)
-- 2026-06-30 07:55 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.kurohicncr.top/Article/details/5746051.shtml)
-- 2026-06-30 08:19 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.kurohicncr.top/Article/details/336514101.shtml)
-- 2026-06-30 08:00 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/69594.shtml)
-- 2026-06-30 08:15 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/945548635.shtml)
-- 2026-06-30 08:10 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/09468375.shtml)
-- 2026-06-30 08:05 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/5309502.shtml)
-- 2026-06-30 08:22 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/910731730.shtml)
-- 2026-06-30 08:14 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/800733627.shtml)
-- 2026-06-30 08:06 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/034954990634.shtml)
+- 2026-06-30 08:01 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/7791228.shtml)
+- 2026-06-30 08:10 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/39152.shtml)
+- 2026-06-30 08:23 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](http://www.share.kurohicncr.top/Article/details/857394.shtml)
+- 2026-06-30 08:16 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/97854.shtml)
+- 2026-06-30 08:02 - [请回答王牌2019](http://www.share.minike.top/Article/details/49029956.shtml)
+- 2026-06-30 08:07 - [全球芯片巨头史诗级扩产](http://www.blog.minike.top/Article/details/7562829623.shtml)
+- 2026-06-30 08:12 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/649938744.shtml)
+- 2026-06-30 08:25 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/2443466912.shtml)
+- 2026-06-30 08:11 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.minike.top/Article/details/627303035.shtml)
+- 2026-06-30 08:22 - [巴西把自己踢晕了](http://www.share.minike.top/Article/details/9028370.shtml)
+- 2026-06-30 08:07 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/989193782510.shtml)
+- 2026-06-30 08:21 - [日本遭读秒绝杀 森保一：我水平不够](http://www.share.kurohicncr.top/Article/details/13120.shtml)
+- 2026-06-30 08:24 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/939259.shtml)
+- 2026-06-30 08:03 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/633537.shtml)
+- 2026-06-30 08:29 - [巴西足球能否再现昔日荣光](https://www.share.minike.top/Article/details/16823950859.shtml)

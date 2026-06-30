@@ -1,61 +1,56 @@
-# 补缴总额高达3.4亿，ST绝味为何要“自查”补税？
+# 思创医惠财务造假后更名思创智联洗白？主业仍差 苍南县国资为何3亿接盘造假亏损标的
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-业内人士推测，可能与2017年至2021年少计营业收入有关。 一次性补缴的税款和滞纳金，就吃掉了ST绝味（维权）（603517.SH）此前一整年的净利润。 ST绝味近期公告称，经自查需补缴税款及滞纳金合计约3.4亿元。这一金额已相当于该公司2022年至2024年净利润总额的40%以上。对于补缴原因，该公司证券部门接线人员回应称，此事系“自查”行为，但未披露具体细节。业内人士推测
+登录新浪财经APP 搜索【信披】查看更多考评等级 出品：新浪财经上市公司研究院 文/夏虫工作室 核心观点：思创医惠财务造假后更名思创智联是否盈利实质性困境反转？需要指出的是，公司的物联网业务仍在大幅下滑。颇为值得关注的是，魏乃绪入主上市公司前后，公司将巨额亏损的造假主体——医惠科技100%股权，以2.996亿元出售给苍南县山海数字科技有限公司，而该公司穿透后同样出现苍南县财政局
 
 ## 正文
 
-业内人士推测，可能与2017年至2021年少计营业收入有关。
+登录新浪财经APP 搜索【信披】查看更多考评等级 出品：新浪财经上市公司研究院 文/夏虫工作室 核心观点：思创医惠财务造假后更名思创智联是否盈利实质性困境反转？
 
-一次性补缴的税款和滞纳金，就吃掉了ST绝味（维权）（603517.SH）此前一整年的净利润。
+需要指出的是，公司的物联网业务仍在大幅下滑。
 
-ST绝味近期公告称，经自查需补缴税款及滞纳金合计约3.4亿元。
+颇为值得关注的是，魏乃绪入主上市公司前后，公司将巨额亏损的造假主体——医惠科技100%股权，以2.996亿元出售给苍南县山海数字科技有限公司，而该公司穿透后同样出现苍南县财政局身影。
 
-这一金额已相当于该公司2022年至2024年净利润总额的40%以上。
+至此，我们疑惑的是，为何国资接盘上市公司不良资产？
 
-对于补缴原因，该公司证券部门接线人员回应称，此事系“自查”行为，但未披露具体细节。
+此外，魏乃绪与苍南县国资旗下公司存在共同设立有限合伙企业情况。
 
-业内人士推测，这可能与公司2017年至2021年少计营业收入有关。
+这一系列交易背后是否警惕利益输送风险？
 
-不仅如此，该公司的前四大股东，目前累计欠税金额也已超过7亿元。
+思创智联今年一季报业绩暴跌。
 
-而这四家股东，均由该公司董事长戴文军控制。
+一季报显示，公司营业总收入为9105.40万元，较去年同报告期营业总收入减少3.18亿元，同比较去年同期下降77.75%；仍然持续亏损，归母净利润为-908.81万元。
 
 ## 相关推荐
 
-- 2026-06-30 08:20 - [网友写差评被店家“挂”门口避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-30 08:19 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-30 08:07 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-30 08:22 - [恋与深空道歉声明](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
-- 2026-06-30 07:55 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-30 07:59 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-30 08:08 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
-- 2026-06-30 08:02 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-30 08:06 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-30 07:55 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-30 08:08 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
-- 2026-06-30 07:59 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-30 08:01 - [日本五次世界杯淘汰赛全败](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-30 07:58 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-30 08:17 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-30 08:04 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-30 08:27 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
+- 2026-06-30 08:24 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-30 08:23 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-30 08:29 - [森保一致歉：世界第一目标没能实现](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-30 08:23 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-30 08:10 - [大蒜晒外面被路过女子连盆端走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
+- 2026-06-30 08:28 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-30 08:12 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-30 08:11 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:59 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/255908183.shtml)
-- 2026-06-30 08:20 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/914702.shtml)
-- 2026-06-30 08:08 - [德国 传控](http://www.blog.kurohicncr.top/Article/details/9074760209.shtml)
-- 2026-06-30 07:57 - [女心理师](http://www.share.kurohicncr.top/Article/details/34893248093.shtml)
-- 2026-06-30 08:00 - [一见倾心](http://www.share.minike.top/Article/details/83410.shtml)
-- 2026-06-30 07:56 - [张凌赫杨超越 峨眉](http://www.share.minike.top/Article/details/10407482.shtml)
-- 2026-06-30 07:57 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/754966239382.shtml)
-- 2026-06-30 08:13 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/97843280331.shtml)
-- 2026-06-30 07:57 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/9371778383.shtml)
-- 2026-06-30 08:22 - [美股深夜大反弹 特斯拉飙涨8%](http://www.share.kurohicncr.top/Article/details/579485.shtml)
-- 2026-06-30 08:03 - [男子在京东买到“同仁堂”假药](https://www.blog.minike.top/Article/details/7065149.shtml)
-- 2026-06-30 08:07 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/191923639970.shtml)
-- 2026-06-30 08:22 - [小勒布伦WTT美国大满贯开门红](http://www.blog.kurohicncr.top/Article/details/697030456.shtml)
-- 2026-06-30 07:54 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/435742013.shtml)
-- 2026-06-30 07:58 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/02775.shtml)
+- 2026-06-30 08:08 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/812534466278.shtml)
+- 2026-06-30 08:10 - [存储芯片龙头提示风险](https://www.blog.kurohicncr.top/Article/details/5168194797.shtml)
+- 2026-06-30 08:24 - [起风了](http://www.share.kurohicncr.top/Article/details/189924061319.shtml)
+- 2026-06-30 08:18 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/4531305426.shtml)
+- 2026-06-30 08:01 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/4531172660.shtml)
+- 2026-06-30 08:11 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/86335.shtml)
+- 2026-06-30 08:26 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://www.blog.kurohicncr.top/Article/details/93596891982.shtml)
+- 2026-06-30 08:03 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.kurohicncr.top/Article/details/306503.shtml)
+- 2026-06-30 08:28 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/3175693.shtml)
+- 2026-06-30 08:10 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/80653283.shtml)
+- 2026-06-30 08:23 - [赛博朋克边缘行者2预告片](https://www.share.kurohicncr.top/Article/details/937382.shtml)
+- 2026-06-30 08:07 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/28463.shtml)
+- 2026-06-30 08:28 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/2945700.shtml)
+- 2026-06-30 08:06 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/13685.shtml)
+- 2026-06-30 08:25 - [杨紫学位证上就是杨紫](https://www.share.kurohicncr.top/Article/details/7084665657.shtml)

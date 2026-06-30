@@ -1,57 +1,56 @@
-# 300111，“画饼式”收购处罚落地：申辩意见不予采纳，维持公司与高管合计罚款510万元
+# 徐州贾汪非法排污事件追踪：清污工作仍在继续
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！每经记者 文多 每经编辑 金冥羽，许立波 记者|文多 编辑|金冥羽 许立波 杜波校对|张锦河 4月8日盘后，向日葵（维权）（SZ300111，股价4.13元，市值53.16亿元）披露，已收到浙江证监局下发的《行政处罚决定书》及深交所的通报批评处分。公司在20
+中新网徐州5月8日电 (记者 唐娟)5月7日晚，《焦点访谈》栏目报道了江苏徐州贾汪区一条12公里的农田灌溉渠沦为污染水沟。5月8日，中新社记者赶赴贾汪区紫庄镇新屋村，现场了解到涉事羊副产品加工作坊已被查封，沟渠黑臭污水被连夜抽排转运。截至记者发稿时，现场清污工作仍在进行。 记者在现场看到，沟渠内黑臭水体已基本被抽干，沟底沉积的黑色淤泥裸露在外。现场空气中仍弥漫着刺鼻恶臭，沟渠周
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网徐州5月8日电 (记者 唐娟)5月7日晚，《焦点访谈》栏目报道了江苏徐州贾汪区一条12公里的农田灌溉渠沦为污染水沟。
 
-每经记者 文多 每经编辑 金冥羽，许立波 记者|文多 编辑|金冥羽 许立波 杜波校对|张锦河 4月8日盘后，向日葵（维权）（SZ300111，股价4.13元，市值53.16亿元）披露，已收到浙江证监局下发的《行政处罚决定书》及深交所的通报批评处分。
+5月8日，中新社记者赶赴贾汪区紫庄镇新屋村，现场了解到涉事羊副产品加工作坊已被查封，沟渠黑臭污水被连夜抽排转运。
 
-公司在2025年9月披露的一份重组预案中，声称拟收购的标的公司具备“自主生产”能力，但实际上其工厂仍在建设中，尚不具备该能力。
+截至记者发稿时，现场清污工作仍在进行。
 
-上述预案披露后，曾刺激公司股价连续3个交易日涨停。
+记者在现场看到，沟渠内黑臭水体已基本被抽干，沟底沉积的黑色淤泥裸露在外。
 
-如今，这场已于今年1月终止的重组，最终以公司及相关负责人被合计处以510万元罚款的结局尘埃落定。
+现场空气中仍弥漫着刺鼻恶臭，沟渠周边蚊蝇乱飞。
 
-向日葵遭浙江证监局与深交所双罚 2026年1月14日，向日葵收到中国证监会下发的《立案告知书》，公司被告知因涉嫌信息披露违法违规被立案调查。
+据现场工作人员介绍，目前主要工作已从污水抽运转入沟底清淤。
 
-3月2日，上市公司及相关当事人收到浙江证监局下发的《行政处罚事先告知书》。
+多台挖掘机正在对沟底淤泥进行清理作业，清出的淤泥将被统一收集并按照相关规定进行无害化处置。
 
-监管认为，向日葵在信息披露中存在误导性陈述的违法行为。
+此前，当地政府已连夜调配10辆槽罐车，累计转运受污染水体68吨至工业废水处理厂进行专业处置。
 
 ## 相关推荐
 
-- 2026-06-30 08:00 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-30 08:13 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-30 08:16 - [莫兰特转投开拓者效力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
-- 2026-06-30 08:02 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
-- 2026-06-30 08:22 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
-- 2026-06-30 08:02 - [武磊：巴西队赢的并不轻松](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-30 08:23 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-30 08:14 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-30 07:58 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-30 08:19 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-30 08:17 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-30 08:11 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-30 08:25 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-30 08:16 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-30 08:00 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-30 08:12 - [莫兰特被交易到开拓者](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
+- 2026-06-30 08:10 - [恋与深空道歉声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-30 08:18 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-30 08:16 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-30 08:23 - [亚洲球队全部出局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
+- 2026-06-30 08:12 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:57 - [建议不要突然完全停止喝咖啡](http://www.blog.kurohicncr.top/Article/details/177531.shtml)
-- 2026-06-30 08:07 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.kurohicncr.top/Article/details/82554962.shtml)
-- 2026-06-30 08:12 - [AI手机进入Agent时代](https://www.blog.kurohicncr.top/Article/details/45894127648.shtml)
-- 2026-06-30 08:02 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/41122.shtml)
-- 2026-06-30 08:02 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.kurohicncr.top/Article/details/168841.shtml)
-- 2026-06-30 08:13 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/5592817026.shtml)
-- 2026-06-30 08:15 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/58615168545.shtml)
-- 2026-06-30 07:57 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](http://www.share.minike.top/Article/details/33446.shtml)
-- 2026-06-30 08:08 - [巴西vs日本](https://www.blog.minike.top/Article/details/7687857.shtml)
-- 2026-06-30 07:56 - [日本进球](http://www.blog.minike.top/Article/details/806856465.shtml)
-- 2026-06-30 08:14 - [IGN评测电影版后室](https://www.share.minike.top/Article/details/00467.shtml)
-- 2026-06-30 08:21 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/099187.shtml)
-- 2026-06-30 08:18 - [巴西绝杀](http://www.share.minike.top/Article/details/4965209875.shtml)
-- 2026-06-30 08:14 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/539132653798.shtml)
-- 2026-06-30 07:58 - [日本 高位逼抢](https://www.share.kurohicncr.top/Article/details/259884614.shtml)
+- 2026-06-30 08:03 - [爆冷出局！德国点球大战不敌巴拉圭](https://www.share.minike.top/Article/details/13445.shtml)
+- 2026-06-30 08:15 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](http://www.share.minike.top/Article/details/591425188537.shtml)
+- 2026-06-30 08:27 - [佐野海舟远射破门](http://www.blog.kurohicncr.top/Article/details/43970806841.shtml)
+- 2026-06-30 08:14 - [巴西2-1绝杀日本](https://www.blog.minike.top/Article/details/79151169358.shtml)
+- 2026-06-30 08:28 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/8345372962.shtml)
+- 2026-06-30 08:16 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/624488365.shtml)
+- 2026-06-30 08:09 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/34864007983.shtml)
+- 2026-06-30 08:26 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://www.blog.minike.top/Article/details/70614427.shtml)
+- 2026-06-30 08:07 - [4000美元是黄金新一轮下跌的开始吗](http://www.share.minike.top/Article/details/260009.shtml)
+- 2026-06-30 08:09 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.minike.top/Article/details/386317568654.shtml)
+- 2026-06-30 08:28 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/04193378415.shtml)
+- 2026-06-30 08:07 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/0979727379.shtml)
+- 2026-06-30 08:26 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/929514815698.shtml)
+- 2026-06-30 08:15 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/488587579.shtml)
+- 2026-06-30 08:24 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/30137.shtml)

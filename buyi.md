@@ -1,57 +1,59 @@
-# 美伊停火令原油价格暴跌，但航空燃油价格仍然高企
+# 东博会赴东盟多国推介 聚焦人工智能及平陆运河
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-尽管油价回落，航空公司仍面临持续的成本压力，导致票价上涨和运力削减 航空公司高管们开始看到宏观背景出现初步转变，但这种缓解可能更多是表面现象而非根本性的。 国际航空运输协会理事长威利·沃尔什（Willie Walsh）将美国与伊朗之间为期两周的停火视为积极的一步，指出这可能使部分石油流动得以恢复。尽管如此，正常化进程似乎缓慢，仍有超过800艘船只滞留在波斯湾，航运活动尚未完全恢
+【东盟专线】东博会赴东盟多国推介 聚焦人工智能及平陆运河 中新社南宁5月10日电 (黄令妍)中国—东盟博览会(下称东博会)秘书处10日介绍，秘书处近期赴越南、印尼、泰国等地开展第23届东博会推介活动。 据悉，东博会秘书处组织15家中国企业，7日至10日在2026年印尼国际食品和饮料贸易展现场设立专题展区，集中展示中国优质展品、完备的上下游产供链，吸引众多专业买家洽谈采购。 东博
 
 ## 正文
 
-尽管油价回落，航空公司仍面临持续的成本压力，导致票价上涨和运力削减 航空公司高管们开始看到宏观背景出现初步转变，但这种缓解可能更多是表面现象而非根本性的。
+【东盟专线】东博会赴东盟多国推介 聚焦人工智能及平陆运河 中新社南宁5月10日电 (黄令妍)中国—东盟博览会(下称东博会)秘书处10日介绍，秘书处近期赴越南、印尼、泰国等地开展第23届东博会推介活动。
 
-国际航空运输协会理事长威利·沃尔什（Willie Walsh）将美国与伊朗之间为期两周的停火视为积极的一步，指出这可能使部分石油流动得以恢复。
+据悉，东博会秘书处组织15家中国企业，7日至10日在2026年印尼国际食品和饮料贸易展现场设立专题展区，集中展示中国优质展品、完备的上下游产供链，吸引众多专业买家洽谈采购。
 
-尽管如此，正常化进程似乎缓慢，仍有超过800艘船只滞留在波斯湾，航运活动尚未完全恢复。
+东博会秘书处副秘书长梁艺光在推介中介绍，将于9月17日至21日举办的第23届东博会紧扣中国—东盟自贸区3.0版，特设数字经济、绿色低碳展区，打造人工智能展区。
 
-即使在唐纳德·特朗普宣布停火后原油价格下跌了16%，航空燃油的价格传导似乎也存在延迟，这表明航空公司在短期内可能继续在高成本条件下运营。
+西部陆海新通道骨干工程平陆运河即将通航，东博会专设平陆运河展区，展示平陆运河沙盘和智慧系统，体现其在中国—东盟经贸、物流与产业协同发展方面给企业带来的红利。
 
-成本方面的压力仍然是核心问题。
+本届东博会还将搭建“购在中国”“出口中国”“投资中国”平台。
 
-Walsh表示，航空燃油价格可能会在一段时间内保持高位，随着航空公司试图抵消投入成本通胀，这可能会转化为持续上涨的机票价格。
+泰国商业部国际贸易促进厅厅长助理提拉蓬表示，泰国今年将组织超过100家企业参展第23届东博会，重点展示食品饮料、健康美容、时尚生活、家居及创意经济产品，以及泰国东北部地区二十个府的独特文化和地理标志产品，并推动泰国地理信息与空间技术发展局等高新技术机构和企业参展。
 
-与此同时，供应短缺的风险尚未完全消除，亚洲被描述为最脆弱的地区，其次是非洲和欧洲。
+泰国正大集团资深副董事长李绍祝表示，正大集团从首届东博会开始就组织企业参展参会，今年将充分借助中国—东盟国家人工智能应用合作中心、平陆运河等项目资源，在人工智能、绿色制造、文化旅游及城市更新等领域深化合作。
 
-在整个行业范围内，自冲突开始以来，航空公司仍在应对航空燃油成本翻倍有余的局面，这一动态已经在影响运营决策。
+东博会全球推介路演此前走进越南。
 
 ## 相关推荐
 
-- 2026-06-30 07:56 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-30 07:55 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
-- 2026-06-30 08:18 - [恋与深空道歉声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-30 08:01 - [世界杯欧洲队7战南美仅1胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-30 07:55 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
-- 2026-06-30 07:58 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-30 08:22 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-30 08:08 - [德国爆冷点球大战不敌巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-30 08:21 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-30 08:04 - [感动全网的699分女生想报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
-- 2026-06-30 07:58 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
+- 2026-06-30 08:00 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-30 08:17 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-30 08:02 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-30 08:13 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
+- 2026-06-30 08:23 - [穆祉丞回应获年度人气艺人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-30 08:12 - [世界杯巴拉圭点球淘汰德国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-30 08:05 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
+- 2026-06-30 08:16 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
+- 2026-06-30 08:09 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-30 08:29 - [锐评T1战胜KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-30 08:10 - [日本队5进世界杯淘汰赛0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-30 08:13 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-30 08:17 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:02 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/144873958.shtml)
-- 2026-06-30 08:08 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](http://www.share.minike.top/Article/details/11740396.shtml)
-- 2026-06-30 08:07 - [网友写差评被店家“挂”门口避雷](http://www.blog.minike.top/Article/details/298194877128.shtml)
-- 2026-06-30 08:16 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/526259137.shtml)
-- 2026-06-30 07:57 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/684506.shtml)
-- 2026-06-30 07:56 - [郑钦文温网三连败西尼亚科娃](http://www.share.minike.top/Article/details/0316347958.shtml)
-- 2026-06-30 07:54 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/5680485560.shtml)
-- 2026-06-30 08:16 - [巴西把自己踢晕了](http://www.blog.kurohicncr.top/Article/details/50524272.shtml)
-- 2026-06-30 08:03 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/819527768601.shtml)
-- 2026-06-30 08:12 - [美股深夜大反弹 特斯拉飙涨8%](https://www.share.kurohicncr.top/Article/details/50937522697.shtml)
-- 2026-06-30 08:12 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/612804653.shtml)
-- 2026-06-30 08:14 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/9604498.shtml)
-- 2026-06-30 08:01 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/4379301164.shtml)
-- 2026-06-30 08:08 - [巴西替补奇兵读秒绝杀](http://www.blog.kurohicncr.top/Article/details/693934.shtml)
-- 2026-06-30 08:13 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/904887836556.shtml)
+- 2026-06-30 08:12 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/44997078.shtml)
+- 2026-06-30 08:11 - [刘宇宁是去进货了吗](http://www.share.minike.top/Article/details/3173525016.shtml)
+- 2026-06-30 08:20 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/02101.shtml)
+- 2026-06-30 08:28 - [IGN评测电影版后室](http://www.blog.minike.top/Article/details/09578.shtml)
+- 2026-06-30 08:28 - [毒液2](http://www.share.kurohicncr.top/Article/details/12069494095.shtml)
+- 2026-06-30 08:04 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/0014952242.shtml)
+- 2026-06-30 08:01 - [我觉得你是在无中生友](https://www.blog.kurohicncr.top/Article/details/421060211123.shtml)
+- 2026-06-30 08:18 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/446014588.shtml)
+- 2026-06-30 08:11 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/831354896.shtml)
+- 2026-06-30 08:20 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/81223874.shtml)
+- 2026-06-30 08:14 - [男子醉酒溺水获救后同行人拒协助抬人](https://www.blog.kurohicncr.top/Article/details/7479974425.shtml)
+- 2026-06-30 08:00 - [日本遭读秒绝杀 森保一：我水平不够](https://www.share.kurohicncr.top/Article/details/5455312402.shtml)
+- 2026-06-30 08:02 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/8467882374.shtml)
+- 2026-06-30 08:18 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/8267888.shtml)
+- 2026-06-30 08:08 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/95287.shtml)

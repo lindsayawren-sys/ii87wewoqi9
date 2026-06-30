@@ -1,57 +1,53 @@
-# 大反攻日，超20亿“杀入”
+# 又见“村并村”！剑河富民村镇银行获批吸收合并台江富民村镇银行、丹寨富民村镇银行
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！【导读】4月8日股票ETF资金净流入超20亿元 中国基金报记者 天心 4月8日，A股市场全面爆发，三大指数集体大涨，创业板指涨近6%，两市成交额超2.4万亿元。 大反弹日，全市场股票ETF（含跨境ETF）资金净流入超23亿元。中证500指数、中证1000指数等宽基ETF，以及化工、有色金属等行业主题ETF资
+5月8日金融一线消息，国家金融监督管理总局贵州监管局发布《关于剑河富民村镇银行吸收合并台江富民村镇银行、丹寨富民村镇银行及定向募股方案的批复》，同意剑河富民村镇银行股份有限公司吸收合并台江富民村镇银行股份有限公司、丹寨富民村镇银行股份有限公司，并承接台江富民村镇银行股份有限公司、丹寨富民村镇银行股份有限公司清产核资后的资产、负债、业务和员工。 同时，批复指出，同意剑河富民村镇银
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+5月8日金融一线消息，国家金融监督管理总局贵州监管局发布《关于剑河富民村镇银行吸收合并台江富民村镇银行、丹寨富民村镇银行及定向募股方案的批复》，同意剑河富民村镇银行股份有限公司吸收合并台江富民村镇银行股份有限公司、丹寨富民村镇银行股份有限公司，并承接台江富民村镇银行股份有限公司、丹寨富民村镇银行股份有限公司清产核资后的资产、负债、业务和员工。
 
-【导读】4月8日股票ETF资金净流入超20亿元 中国基金报记者 天心 4月8日，A股市场全面爆发，三大指数集体大涨，创业板指涨近6%，两市成交额超2.4万亿元。
+同时，批复指出，同意剑河富民村镇银行定向募股方案。
 
-大反弹日，全市场股票ETF（含跨境ETF）资金净流入超23亿元。
+应严格按照有关法律法规要求办理吸收合并事宜，并督促台江富民村镇银行股份有限公司、丹寨富民村镇银行股份有限公司完成法人机构终止相关事宜。
 
-中证500指数、中证1000指数等宽基ETF，以及化工、有色金属等行业主题ETF资金净流入靠前。
-
-创业板、科创50指数、中证A500指数等宽基ETF，以及港股通互联网、中概互联网、香港证券、港股通非银、证券等行业主题ETF资金净流出较多。
-
-整体而言，股票ETF过去三个交易日均实现资金净流入，但因4月最初两个交易日“失血”较多，4月以来合计净流出仍超百亿元。
-
-股票ETF净流入超23亿元 Wind数据显示，截至4月8日，全市场1378只股票ETF总规模为3.88万亿元。
-
-4月8日，股票ETF市场虽然总份额减少92.43亿份，但按照成交均价测算，当日净流入资金23.55亿元。
+责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-30 08:21 - [郑钦文温网一轮游](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
-- 2026-06-30 08:21 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-30 08:15 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-30 08:00 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-30 07:59 - [马耳他著名拱门坍塌致一中国男子身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-30 08:07 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-30 08:17 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
-- 2026-06-30 07:58 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-30 08:16 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-30 07:56 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
-- 2026-06-30 07:55 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-30 08:28 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-30 08:11 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-30 08:29 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-30 08:04 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-30 08:20 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
+- 2026-06-30 08:23 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-30 08:10 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-30 08:27 - [日本队5进世界杯淘汰赛0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-30 08:22 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-30 08:02 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-30 08:17 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-30 08:02 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-30 08:02 - [日本球迷被强行披上巴西国旗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
+- 2026-06-30 08:11 - [德国巴拉圭加时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-30 08:23 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:18 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/7810390439.shtml)
-- 2026-06-30 08:19 - [有什么好的高中网课推荐吗？](https://www.blog.kurohicncr.top/Article/details/9882830600.shtml)
-- 2026-06-30 08:08 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.kurohicncr.top/Article/details/10724362.shtml)
-- 2026-06-30 08:13 - [泰山景区回应修建刀片刺绳隔离网](http://www.blog.minike.top/Article/details/1699668.shtml)
-- 2026-06-30 08:14 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/586517.shtml)
-- 2026-06-30 08:12 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/099030154.shtml)
-- 2026-06-30 07:57 - [德国vs巴拉圭](https://www.blog.kurohicncr.top/Article/details/77972.shtml)
-- 2026-06-30 08:22 - [泰山建135公里刀片刺绳隔离网](https://www.share.minike.top/Article/details/36789.shtml)
-- 2026-06-30 08:08 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/38742.shtml)
-- 2026-06-30 08:04 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/07384817.shtml)
-- 2026-06-30 08:05 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/417553420027.shtml)
-- 2026-06-30 07:57 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/6990323.shtml)
-- 2026-06-30 08:13 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/97046.shtml)
-- 2026-06-30 08:18 - [感动全网的699分女生想报考清华](https://www.blog.kurohicncr.top/Article/details/2449399.shtml)
-- 2026-06-30 08:23 - [德国队世界杯点球大战首败](http://www.share.minike.top/Article/details/2704525.shtml)
+- 2026-06-30 08:22 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/5124770915.shtml)
+- 2026-06-30 08:13 - [免费试吃发差评被店家挂店门避雷](https://www.blog.minike.top/Article/details/03777741363.shtml)
+- 2026-06-30 08:22 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/696118327092.shtml)
+- 2026-06-30 08:00 - [日本淘汰](https://www.blog.minike.top/Article/details/2527105190.shtml)
+- 2026-06-30 08:18 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/112771.shtml)
+- 2026-06-30 08:15 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/179053615.shtml)
+- 2026-06-30 08:12 - [天道](https://www.share.minike.top/Article/details/05190019828.shtml)
+- 2026-06-30 08:03 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/162818193.shtml)
+- 2026-06-30 08:08 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/902757.shtml)
+- 2026-06-30 08:05 - [赛博朋克边缘行者2预告片](https://www.share.kurohicncr.top/Article/details/387467631542.shtml)
+- 2026-06-30 08:21 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/9232536.shtml)
+- 2026-06-30 08:22 - [世界杯巴拉圭点球淘汰德国](https://www.blog.minike.top/Article/details/946958.shtml)
+- 2026-06-30 08:12 - [乔家的儿女](http://www.share.minike.top/Article/details/94933281331.shtml)
+- 2026-06-30 08:29 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/0531009.shtml)
+- 2026-06-30 08:09 - [失明的我带老妈去了趟“火星”](https://www.share.minike.top/Article/details/622656987.shtml)

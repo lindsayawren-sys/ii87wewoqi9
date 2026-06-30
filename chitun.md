@@ -1,58 +1,50 @@
-# 访清华大学徐明教授：以“天工数据库”更好服务绿色低碳转型
+# 协鑫新能源完成发行第一批认购股份
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-中新网北京4月8日电 题：访清华大学徐明教授：以“天工数据库”更好服务绿色低碳转型 记者 张素 中国绿色低碳转型深入推进，全球绿色贸易规则加快演进，如何推动碳足迹体系实现更高水平互联、互通、互信？2023年，由清华大学牵头开发、开放透明的碳足迹数据库“天工数据库”正式发布。 “我们希望建成一个全球通用的基础设施，先在国内落地，完善细节、持续更新，再逐步推广到其他国家和地区。”清
+协鑫新能源（00451）发布公告， 协议项下有关第一批认购股份的所有先决条件均已达成，且第一批完成已于2026年5月8日（第一批完成）落实。根据协议的条款及条件，合共9174万股第一批认购股份已由认购人按每股第一批认购股份1.05港元的认购价成功认购，占本公司经配发及发行第一批认购股份扩大后的已发行股本约5.17%。责任编辑：卢昱君
 
 ## 正文
 
-中新网北京4月8日电 题：访清华大学徐明教授：以“天工数据库”更好服务绿色低碳转型 记者 张素 中国绿色低碳转型深入推进，全球绿色贸易规则加快演进，如何推动碳足迹体系实现更高水平互联、互通、互信？
+协鑫新能源（00451）发布公告， 协议项下有关第一批认购股份的所有先决条件均已达成，且第一批完成已于2026年5月8日（第一批完成）落实。
 
-2023年，由清华大学牵头开发、开放透明的碳足迹数据库“天工数据库”正式发布。
+根据协议的条款及条件，合共9174万股第一批认购股份已由认购人按每股第一批认购股份1.05港元的认购价成功认购，占本公司经配发及发行第一批认购股份扩大后的已发行股本约5.17%。
 
-“我们希望建成一个全球通用的基础设施，先在国内落地，完善细节、持续更新，再逐步推广到其他国家和地区。
-
-”清华大学环境学院副院长、碳中和讲席教授徐明近日在北京接受采访时说。
-
-数据为基 据知，“天工数据库”由天工社区200余个行业专家联合构建，汇聚了涵盖55个行业、4000多组单元过程的70000多条公开数据。
-
-该数据库在全球范围开放，在数据、平台等多方面应用国际通行标准方法和技术，具有国际数据汇交、验证和互认的基础。
-
-实践中，不同国家、机构的数据标准不统一，甚至同一个对象的名称都不一致，导致数据无法互通。
-
-得益于“天工数据库”等中国实践，中方参与规则建设取得积极进展。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 08:09 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-30 08:15 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
-- 2026-06-30 08:05 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
-- 2026-06-30 08:16 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
-- 2026-06-30 08:13 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
-- 2026-06-30 08:22 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
-- 2026-06-30 07:55 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
-- 2026-06-30 08:14 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-30 08:14 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-30 08:05 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-30 08:02 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
-- 2026-06-30 08:02 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-30 08:26 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-30 08:16 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
+- 2026-06-30 08:02 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
+- 2026-06-30 08:25 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-30 08:07 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-30 08:27 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-30 08:05 - [王楚钦说配合稍微有些陌生感](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-30 08:20 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-30 08:09 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-30 08:11 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-30 08:05 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-30 08:11 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-30 08:27 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-30 08:24 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:57 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/82265.shtml)
-- 2026-06-30 08:03 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/1086819115.shtml)
-- 2026-06-30 08:22 - [青春环游记第三季](http://www.blog.minike.top/Article/details/08891.shtml)
-- 2026-06-30 08:21 - [大蒜晒外面被路过女子连盆端走](https://www.share.minike.top/Article/details/5111035463.shtml)
-- 2026-06-30 08:17 - [锐评T1战胜KC](http://www.share.minike.top/Article/details/748902003519.shtml)
-- 2026-06-30 08:12 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.share.minike.top/Article/details/8842486.shtml)
-- 2026-06-30 08:09 - [德国连续三届世界杯无缘16强](https://www.share.kurohicncr.top/Article/details/47190891612.shtml)
-- 2026-06-30 08:09 - [莫兰特转投开拓者效力](https://www.blog.kurohicncr.top/Article/details/8362958024.shtml)
-- 2026-06-30 08:11 - [4000美元是黄金新一轮下跌的开始吗](https://www.blog.minike.top/Article/details/1803342582.shtml)
-- 2026-06-30 07:59 - [德国4比5巴拉圭](https://www.share.minike.top/Article/details/519357393.shtml)
-- 2026-06-30 07:56 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/33264754.shtml)
-- 2026-06-30 08:20 - [韩国球迷凌晨4点接机怒骂主教练](http://www.share.minike.top/Article/details/45539446454.shtml)
-- 2026-06-30 08:02 - [被巴西绝杀后 日球员田中碧跪地痛哭](http://www.blog.kurohicncr.top/Article/details/7655651697.shtml)
-- 2026-06-30 08:04 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/925641.shtml)
-- 2026-06-30 08:01 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/54687.shtml)
+- 2026-06-30 08:28 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/139026640.shtml)
+- 2026-06-30 08:23 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/762544.shtml)
+- 2026-06-30 08:27 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://www.blog.kurohicncr.top/Article/details/22507497.shtml)
+- 2026-06-30 08:18 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.minike.top/Article/details/91251239873.shtml)
+- 2026-06-30 08:06 - [金鹰奖视后提名预测](http://www.blog.minike.top/Article/details/754404331.shtml)
+- 2026-06-30 08:16 - [内马尔替补](http://www.share.kurohicncr.top/Article/details/9498681.shtml)
+- 2026-06-30 08:25 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/22796.shtml)
+- 2026-06-30 08:24 - [曝詹姆斯即将与勇士会面](https://www.share.minike.top/Article/details/6389074833.shtml)
+- 2026-06-30 08:25 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.minike.top/Article/details/71705.shtml)
+- 2026-06-30 08:01 - [巴西2比1日本](http://www.blog.minike.top/Article/details/78843534810.shtml)
+- 2026-06-30 08:10 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/7874889.shtml)
+- 2026-06-30 08:14 - [巴西半场0比1日本](https://www.blog.kurohicncr.top/Article/details/285604356836.shtml)
+- 2026-06-30 08:19 - [“草莓月亮”浪漫现身](https://www.blog.minike.top/Article/details/1955548.shtml)
+- 2026-06-30 08:08 - [韩乔生吐槽世界杯扩军](http://www.blog.kurohicncr.top/Article/details/655545.shtml)
+- 2026-06-30 08:12 - [内马尔替补](https://www.share.kurohicncr.top/Article/details/5622062.shtml)

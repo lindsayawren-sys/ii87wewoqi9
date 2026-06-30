@@ -1,56 +1,50 @@
-# 成都Citywalk点位“上新” 外国游客“挤”进人民公园相亲角
+# 河北石家庄通报“一社区卫生服务站存有过期药品”
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月08日 19:17 来源：中国新闻网 春日午后时分，成都人民公园相亲角里人来人往，挂满征婚资料的区域内，悄然多了不少外国面孔。他们驻足停留，举起手机翻译纸张上密集的文字信息，或与同伴低声交流，分享着惊讶与感悟。这片充满中式市井烟火气的婚恋社交地，已成为外国游客在成都Citywalk的新晋热门点位。 对许多外国游客而言，这种由父母参与、以纸质简历集中展示
+中新网5月10日电 据“石家庄裕华发布”微信公众号消息，河北石家庄裕华区联合调查组发布情况通报称，近日，针对群众反映栗水清苑社区卫生服务站存有过期药品等问题，我区已成立由市场监管、卫健、公安等部门组成的联合调查组进行调查。 该社区卫生服务站为民办非企业单位，市场监管部门已对现场发现的过期药品依法查扣，卫健部门已责令该社区卫生服务站暂停执业活动。联合调查组将根据调查结果，依法依规
 
 ## 正文
 
-发布时间：2026年04月08日 19:17 来源：中国新闻网 春日午后时分，成都人民公园相亲角里人来人往，挂满征婚资料的区域内，悄然多了不少外国面孔。
+中新网5月10日电 据“石家庄裕华发布”微信公众号消息，河北石家庄裕华区联合调查组发布情况通报称，近日，针对群众反映栗水清苑社区卫生服务站存有过期药品等问题，我区已成立由市场监管、卫健、公安等部门组成的联合调查组进行调查。
 
-他们驻足停留，举起手机翻译纸张上密集的文字信息，或与同伴低声交流，分享着惊讶与感悟。
+该社区卫生服务站为民办非企业单位，市场监管部门已对现场发现的过期药品依法查扣，卫健部门已责令该社区卫生服务站暂停执业活动。
 
-这片充满中式市井烟火气的婚恋社交地，已成为外国游客在成都Citywalk的新晋热门点位。
-
-对许多外国游客而言，这种由父母参与、以纸质简历集中展示的线下相亲模式，在他们本国几乎从未见过，倍感新奇。
-
-这里也更像是了解中国婚恋文化的一扇窗口。
-
-(陈选斌 四川成都报道) 责任编辑：【于晓】
+联合调查组将根据调查结果，依法依规严肃处理。
 
 ## 相关推荐
 
-- 2026-06-30 07:59 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-30 08:04 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-30 08:04 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-30 07:55 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-30 08:09 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-30 08:02 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
-- 2026-06-30 08:12 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
-- 2026-06-30 08:22 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-30 08:08 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
-- 2026-06-30 08:00 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-30 08:02 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
-- 2026-06-30 08:19 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-30 08:02 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-30 08:02 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
+- 2026-06-30 08:27 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-30 08:19 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
+- 2026-06-30 08:06 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-30 08:10 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
+- 2026-06-30 08:11 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-30 08:21 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-30 08:24 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-30 08:16 - [网友写差评被店家“挂”门口避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-30 08:26 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-30 08:20 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-30 08:14 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-30 08:07 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-30 08:15 - [现在叛逆期的孩子最怕的是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-30 08:19 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:58 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/6729758.shtml)
-- 2026-06-30 08:16 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.minike.top/Article/details/15843.shtml)
-- 2026-06-30 08:19 - [人类...完蛋了...](http://www.share.kurohicncr.top/Article/details/06771956959.shtml)
-- 2026-06-30 08:21 - [曝灰熊将莫兰特交易至开拓者](https://www.share.kurohicncr.top/Article/details/9487582.shtml)
-- 2026-06-30 08:02 - [网友写差评被店家“挂”门口避雷](http://www.share.kurohicncr.top/Article/details/67523.shtml)
-- 2026-06-30 07:59 - [曝灰熊将莫兰特交易至开拓者](https://www.blog.kurohicncr.top/Article/details/931208435462.shtml)
-- 2026-06-30 07:58 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/718636255960.shtml)
-- 2026-06-30 07:55 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/010587618.shtml)
-- 2026-06-30 08:14 - [莫兰特转投开拓者效力](http://www.share.kurohicncr.top/Article/details/8839566055.shtml)
-- 2026-06-30 07:57 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/553674.shtml)
-- 2026-06-30 08:11 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/590375893274.shtml)
-- 2026-06-30 07:55 - [全球最火存储ETF纳入兆易创新](https://www.blog.kurohicncr.top/Article/details/2056215.shtml)
-- 2026-06-30 08:15 - [绘画区你赢了](https://www.share.minike.top/Article/details/584019845922.shtml)
-- 2026-06-30 08:12 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/76338110578.shtml)
-- 2026-06-30 08:03 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/487857.shtml)
+- 2026-06-30 08:04 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/408031118806.shtml)
+- 2026-06-30 08:26 - [第一炉香](http://www.blog.minike.top/Article/details/2814987.shtml)
+- 2026-06-30 08:26 - [日本五次世界杯淘汰赛全败](http://www.blog.minike.top/Article/details/777317506551.shtml)
+- 2026-06-30 08:22 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/8750948.shtml)
+- 2026-06-30 08:12 - [杨紫学位证上就是杨紫](http://www.share.kurohicncr.top/Article/details/82153001029.shtml)
+- 2026-06-30 08:00 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/38119.shtml)
+- 2026-06-30 08:20 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/29146945720.shtml)
+- 2026-06-30 08:29 - [这几秒成世界杯最值钱广告位](http://www.blog.kurohicncr.top/Article/details/8201693.shtml)
+- 2026-06-30 08:19 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.kurohicncr.top/Article/details/469261279.shtml)
+- 2026-06-30 08:16 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/830619.shtml)
+- 2026-06-30 08:03 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/12028842.shtml)
+- 2026-06-30 08:19 - [花少8要去世界杯举办国](http://www.blog.kurohicncr.top/Article/details/0113334.shtml)
+- 2026-06-30 08:20 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.minike.top/Article/details/74242.shtml)
+- 2026-06-30 08:23 - [大蒜晒外面被路过女子连盆端走](http://www.blog.kurohicncr.top/Article/details/6342433364.shtml)
+- 2026-06-30 08:17 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/35551230720.shtml)

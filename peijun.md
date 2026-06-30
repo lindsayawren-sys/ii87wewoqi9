@@ -1,60 +1,60 @@
-# 杨德龙：特朗普如预期宣布停战两周 大盘迎来新一轮大涨机会
+# 一纸侨批寄相思 《给阿嬷的情书》道具展再现南洋岁月
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-中东战局发生变化，亚太股市暴涨，A股和港股也应声而起。今日沪深港股市均出现暴涨，上证指数大涨2.7%，全天高开高走，收出“光头光脚”大阳线，逼近4000点整数关口；深证成指大涨4.79%，创业板指大涨5.91%，收复了多日失地；恒生指数大涨3%，恒生科技指数大涨约5%。主要市场一扫多日阴霾，出现大幅上涨。今日的上涨无疑受到中东局势出现停战利好的刺激。此前我多次强调，4月份战局将
+中新网广州5月9日电 (记者 蔡敏婕)电影中南枝的梳妆台、南枝的“谢记”无米粿摊、一封封侨批原件、木生在泰国谋生时的三轮车、“暹南电影院”海报...... 9日，在广州华侨博物馆展厅，前来观看“百年侨批光影同行——《给阿嬷的情书》电影道具专题展”的观众络绎不绝。此次专题展，以历史史料、电影道具、影视剧照为载体，沉浸式还原潮汕华侨下南洋打拼、侨批传情的往事。 据广州华侨博物馆统计
 
 ## 正文
 
-中东战局发生变化，亚太股市暴涨，A股和港股也应声而起。
+中新网广州5月9日电 (记者 蔡敏婕)电影中南枝的梳妆台、南枝的“谢记”无米粿摊、一封封侨批原件、木生在泰国谋生时的三轮车、“暹南电影院”海报...... 9日，在广州华侨博物馆展厅，前来观看“百年侨批光影同行——《给阿嬷的情书》电影道具专题展”的观众络绎不绝。
 
-今日沪深港股市均出现暴涨，上证指数大涨2.7%，全天高开高走，收出“光头光脚”大阳线，逼近4000点整数关口；深证成指大涨4.79%，创业板指大涨5.91%，收复了多日失地；恒生指数大涨3%，恒生科技指数大涨约5%。
+此次专题展，以历史史料、电影道具、影视剧照为载体，沉浸式还原潮汕华侨下南洋打拼、侨批传情的往事。
 
-主要市场一扫多日阴霾，出现大幅上涨。
+据广州华侨博物馆统计，自《给阿嬷的情书》电影上映以来，已有超过1.2万名观众到馆参观，“电影周边早在6日就被领取完。
 
-今日的上涨无疑受到中东局势出现停战利好的刺激。
+”馆方相关负责人介绍。
 
-此前我多次强调，4月份战局将明朗。
+广州华侨博物馆讲解员范颖欣介绍，本次展览深度融合珍贵历史资料、《给阿嫲的情书》原版电影道具及经典影视剧照，共展出78件套电影道具及侨批相关文物展品。
 
-特朗普在国内承受着巨大的反战压力，虽然他在口号上一直叫嚣要将伊朗打回石器时代、让伊朗文明消失，但实际上这是一种极限施压手段，目的是为谈判增加筹码。
+展览以影片故事为叙事主线，生动讲述潮汕籍华侨远赴南洋艰辛闯荡、奋力打拼，以辛劳所得补贴家用、改善家乡亲人生活的岁月往事；同时细腻刻画了角色叶淑柔留守家乡、含辛茹苦抚育子女的人生经历，勾勒出近代华侨家庭山海相隔、彼此牵挂的生活图景。
 
-但伊朗已经看透特朗普的伎俩，完全不理会其威胁。
+专题展分为暹罗、潮汕、侨批三大篇章，全方位展现跨国侨乡风情与人文底蕴。
 
-在特朗普极限施压的计谋不能得逞后，他果断选择转向，宣称将停战两周。
+暹罗篇章聚焦南洋风土人情，还原主角木生在海外艰难谋生的打拼日常，以及他与南枝在异乡旅馆的过往故事；潮汕篇章则集中陈列潮汕传统农用器具、百姓生产生活老物件，更展出“营老爷”民俗仪式所用灯笼、标旗等特色器物；侨批篇章作为整场展览核心，以电影侨批道具为核心载体，贯穿全篇叙事脉络，成为串联海外侨胞与故土亲人情感的精神纽带。
 
 ## 相关推荐
 
-- 2026-06-30 08:17 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-30 08:14 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-30 08:13 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
-- 2026-06-30 08:23 - [莫兰特转投开拓者效力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-30 08:12 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
-- 2026-06-30 08:14 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-30 08:17 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
-- 2026-06-30 08:05 - [诺伊尔尽力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-30 08:15 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
-- 2026-06-30 08:21 - [巴西足球能否再现昔日荣光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-30 08:18 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-30 08:18 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
-- 2026-06-30 08:21 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-30 08:10 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
+- 2026-06-30 08:00 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-30 08:05 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-30 08:14 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-30 08:26 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-30 08:04 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-30 08:22 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-30 08:24 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-30 08:13 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-30 08:11 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-30 08:24 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-30 08:06 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-30 08:07 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-30 08:00 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-30 08:20 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:10 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/1355257301.shtml)
-- 2026-06-30 08:09 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/574253.shtml)
-- 2026-06-30 07:54 - [世界杯巴拉圭点球淘汰德国](http://www.share.kurohicncr.top/Article/details/902427.shtml)
-- 2026-06-30 08:19 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/617721049746.shtml)
-- 2026-06-30 07:59 - [董卿父亲报纸上发文悼念亡妻](https://www.share.minike.top/Article/details/182282675.shtml)
-- 2026-06-30 08:02 - [日本16强魔咒](http://www.blog.minike.top/Article/details/95541315629.shtml)
-- 2026-06-30 07:58 - [世界杯巴拉圭点球淘汰德国](https://www.share.minike.top/Article/details/03264283.shtml)
-- 2026-06-30 08:16 - [沙丘](http://www.share.minike.top/Article/details/40814735713.shtml)
-- 2026-06-30 08:02 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/145945477.shtml)
-- 2026-06-30 08:22 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/6069314.shtml)
-- 2026-06-30 08:01 - [一生一世](http://www.share.minike.top/Article/details/76943186.shtml)
-- 2026-06-30 07:55 - [巴西半场0比1日本](https://www.blog.minike.top/Article/details/6703562.shtml)
-- 2026-06-30 07:59 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.minike.top/Article/details/164486108.shtml)
-- 2026-06-30 07:54 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/4948360.shtml)
-- 2026-06-30 08:12 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.kurohicncr.top/Article/details/137358740.shtml)
+- 2026-06-30 08:20 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/403067436362.shtml)
+- 2026-06-30 08:05 - [董卿父亲报纸上发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/9629023041.shtml)
+- 2026-06-30 08:29 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/659277121.shtml)
+- 2026-06-30 08:02 - [城市规划有可能成为「屎山代码」吗？](https://www.blog.minike.top/Article/details/2065151.shtml)
+- 2026-06-30 08:18 - [中国新一轮出口管制直指日本命脉](https://www.blog.minike.top/Article/details/1790391.shtml)
+- 2026-06-30 08:18 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/980923818047.shtml)
+- 2026-06-30 08:23 - [男子在京东买到“同仁堂”假药](http://www.blog.minike.top/Article/details/579889010080.shtml)
+- 2026-06-30 08:20 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.minike.top/Article/details/9794754.shtml)
+- 2026-06-30 08:09 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/641730.shtml)
+- 2026-06-30 08:00 - [小娘惹](http://www.share.kurohicncr.top/Article/details/50380742254.shtml)
+- 2026-06-30 08:29 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/1847421830.shtml)
+- 2026-06-30 08:18 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/219095122.shtml)
+- 2026-06-30 08:20 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/47432441123.shtml)
+- 2026-06-30 08:14 - [王源近几年没有路演了](https://www.share.kurohicncr.top/Article/details/17129990730.shtml)
+- 2026-06-30 08:15 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/81031.shtml)

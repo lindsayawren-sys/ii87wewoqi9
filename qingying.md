@@ -1,56 +1,57 @@
-# 上周外国投资净买入日股近3万亿日元，扭转连续三周抛售局面
+# Seeking Alpha量化评分揭晓：当前十大最具投资价值外资公用事业股
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-截至4月4日的一周，日本股市迎来大量外资流入，扭转了此前连续三周的抛售局面，投资者情绪在美伊达成临时停火前趋于稳定。 日本财务省周四公布的数据显示，当周外国投资者净流入日本股市2.96万亿日元（约合186.5亿美元），几乎逆转了前一周4.45万亿日元净流出的三分之二。 受美国和伊朗达成停火协议的影响，日经225指数周三上涨约5.39%。 季节性因素也促成了上周的外国资金流入。
+Seeking Alpha的量化系统每月对全球数千只股票进行评分，综合考量估值、增长、盈利能力和市场情绪等因素。对于寻求防御性配置和稳定现金流的投资者而言，公用事业板块始终是核心持仓选项。以下是目前评分最高的10只外资公用事业股票。 排名方法 Seeking Alpha的量化评分系统从五个维度对股票进行评级：估值、增长、盈利能力、每股收益修正和市场动量。每只股票获得0至5分的综
 
 ## 正文
 
-截至4月4日的一周，日本股市迎来大量外资流入，扭转了此前连续三周的抛售局面，投资者情绪在美伊达成临时停火前趋于稳定。
+Seeking Alpha的量化系统每月对全球数千只股票进行评分，综合考量估值、增长、盈利能力和市场情绪等因素。
 
-日本财务省周四公布的数据显示，当周外国投资者净流入日本股市2.96万亿日元（约合186.5亿美元），几乎逆转了前一周4.45万亿日元净流出的三分之二。
+对于寻求防御性配置和稳定现金流的投资者而言，公用事业板块始终是核心持仓选项。
 
-受美国和伊朗达成停火协议的影响，日经225指数周三上涨约5.39%。
+以下是目前评分最高的10只外资公用事业股票。
 
-季节性因素也促成了上周的外国资金流入。
+排名方法 Seeking Alpha的量化评分系统从五个维度对股票进行评级：估值、增长、盈利能力、每股收益修正和市场动量。
 
-野村证券日本首席股票策略师Tomochika Kitaoka表示，外国金融机构通常会在3月份将持有的股票从东京转移到离岸实体，此时投票权和股息分配尚未确定，然后在4月份再将股票转回东京。
+每只股票获得0至5分的综合量化评分，以及相应的量化评级（强买入、买入、持有、卖出、强卖出）。
 
-3月份，外国投资者抛售了价值近7.37万亿日元的日本股票。
+所有股票均为在美国上市交易的外国公用事业公司。
 
-上周，日本基准国债收益率飙升至近30年来的最高水平，也吸引了2.46万亿日元的外资流入日本长期债券市场。
+第1名：Companhia de Saneamento Básico do Estado de São Paulo（SBS） SABESP是巴西圣保罗州的水务和污水处理公司，是该地区的水处理和污水收集服务的主要提供商。
 
-责任编辑：于健 SF069
+该公司在该领域保持私有化状态，是拉丁美洲最大的水务公司。
 
 ## 相关推荐
 
-- 2026-06-30 08:14 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
-- 2026-06-30 08:24 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-30 08:08 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-30 08:11 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-30 08:16 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
-- 2026-06-30 07:58 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
-- 2026-06-30 08:07 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
-- 2026-06-30 08:19 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
-- 2026-06-30 08:15 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-30 07:55 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
+- 2026-06-30 08:23 - [欧洲装一台空调有多难](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-30 08:15 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-30 08:20 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-30 08:20 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
+- 2026-06-30 08:17 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-30 08:09 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-30 08:23 - [全球芯片巨头史诗级扩产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-30 08:16 - [穆祉丞回应获年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-30 08:11 - [巴西足球能否再现昔日荣光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-30 08:06 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
+- 2026-06-30 08:06 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:23 - [绘画区你赢了](https://www.share.minike.top/Article/details/1082136009.shtml)
-- 2026-06-30 08:16 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.kurohicncr.top/Article/details/967122.shtml)
-- 2026-06-30 08:03 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/62565.shtml)
-- 2026-06-30 08:21 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/10466758180.shtml)
-- 2026-06-30 07:59 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/3121614852.shtml)
-- 2026-06-30 07:55 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/373492.shtml)
-- 2026-06-30 08:05 - [男子身高一米八二仍做断骨增高](http://www.blog.minike.top/Article/details/8773316379.shtml)
-- 2026-06-30 08:05 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/4377162.shtml)
-- 2026-06-30 08:08 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/8362281123.shtml)
-- 2026-06-30 08:00 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/68235718.shtml)
-- 2026-06-30 08:08 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://www.blog.kurohicncr.top/Article/details/431678662.shtml)
-- 2026-06-30 07:54 - [亚洲球队全部出局](https://www.blog.minike.top/Article/details/19669516912.shtml)
-- 2026-06-30 07:55 - [美股](http://www.share.kurohicncr.top/Article/details/21675.shtml)
-- 2026-06-30 08:17 - [输球后日本球迷被强行披上巴西国旗](http://www.blog.minike.top/Article/details/12273336.shtml)
-- 2026-06-30 08:10 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/616147.shtml)
+- 2026-06-30 08:21 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/682196094930.shtml)
+- 2026-06-30 08:26 - [高考结束了，你会让孩子在家玩手机吗？](http://www.share.minike.top/Article/details/584214385697.shtml)
+- 2026-06-30 08:08 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.minike.top/Article/details/04872168.shtml)
+- 2026-06-30 08:00 - [日本反击率先破门](https://www.blog.kurohicncr.top/Article/details/64268.shtml)
+- 2026-06-30 08:18 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/35122123.shtml)
+- 2026-06-30 08:06 - [大蒜晒外面被路过女子连盆端走](http://www.share.minike.top/Article/details/636282177.shtml)
+- 2026-06-30 08:00 - [张月感谢了每一公的队友](https://www.share.minike.top/Article/details/0062961.shtml)
+- 2026-06-30 08:14 - [感动全网的699分女生想报考清华](http://www.blog.minike.top/Article/details/80667265197.shtml)
+- 2026-06-30 08:20 - [马耳他著名拱门坍塌致中国男子身亡](https://www.blog.minike.top/Article/details/51808.shtml)
+- 2026-06-30 08:27 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/49634.shtml)
+- 2026-06-30 08:13 - [徐亮怒斥世界杯踢假球](https://www.blog.kurohicncr.top/Article/details/527875289349.shtml)
+- 2026-06-30 08:18 - [王楚钦孙颖莎晋级混双八强](https://www.blog.minike.top/Article/details/92758436.shtml)
+- 2026-06-30 08:22 - [日本队主帅道歉](https://www.share.kurohicncr.top/Article/details/0660244.shtml)
+- 2026-06-30 08:29 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/362985166520.shtml)
+- 2026-06-30 08:04 - [王欣瑜连续4年晋级温网第二轮](http://www.share.minike.top/Article/details/819536054.shtml)

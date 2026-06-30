@@ -1,60 +1,57 @@
-# 顺丰硬核链通“江门制造”向新向远
+# 报告总结中国数智传播发展四大特点
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-为助力江门市制造业与服务业高质量协同发展，搭建政企联动、产业融合、资源共享的高效对接合作平台，4月8日，江门市制造业与服务业协同发展推进会在江门顺利举行。本次活动由江门市发展和改革局、江门市工业和信息化局、江门市投资促进局联合主办，顺丰速运有限公司承办，江门市邮政管理局、广东省现代物流研究院提供支持。市政府领导、各相关单位负责人及企业代表出席会议，共商产业发展、共推合作落地。会
+中新网北京5月10日电 (记者 李京泽)北京城市学院数智传播研究院与社会科学文献出版社9日联合发布《数智传播蓝皮书：中国数智传播发展报告(2026)》。蓝皮书总结了当前中国数智传播发展的四大特点。 蓝皮书全面概括2025年以来数智技术革命与全球秩序演变交织驱动下的传播生态重构。其指出，中国数智传播发展已从局部探索迈入全面统筹、系统推进的新阶段，呈现以下特点： 一是生成式人工智能
 
 ## 正文
 
-为助力江门市制造业与服务业高质量协同发展，搭建政企联动、产业融合、资源共享的高效对接合作平台，4月8日，江门市制造业与服务业协同发展推进会在江门顺利举行。
+中新网北京5月10日电 (记者 李京泽)北京城市学院数智传播研究院与社会科学文献出版社9日联合发布《数智传播蓝皮书：中国数智传播发展报告(2026)》。
 
-本次活动由江门市发展和改革局、江门市工业和信息化局、江门市投资促进局联合主办，顺丰速运有限公司承办，江门市邮政管理局、广东省现代物流研究院提供支持。
+蓝皮书总结了当前中国数智传播发展的四大特点。
 
-市政府领导、各相关单位负责人及企业代表出席会议，共商产业发展、共推合作落地。
+蓝皮书全面概括2025年以来数智技术革命与全球秩序演变交织驱动下的传播生态重构。
 
-会上，江门市政府副秘书长汪世雷指出，本次推进会是江门市推动制造业与服务业深度融合、加快建设万亿工业强市的重要举措。
+其指出，中国数智传播发展已从局部探索迈入全面统筹、系统推进的新阶段，呈现以下特点： 一是生成式人工智能技术在新闻传播领域的应用已从概念走向实践，智能体广泛嵌入内容生产、生活服务、社会治理及文化传播等领域，中国主流媒体的平台化转型步入系统性构建阶段，呈现技术架构、运营机制与功能定位协同演进的显著特征； 二是视听智媒加速焕新，算法透明性与用户赋权成为平台生态建设的重要方向；三是中国城市国际传播建设步入数智化、体系化、品牌化的范式转型，市县融媒体中心以智能化媒资系统建设为基础，着力破解基层数智传播资源有限的困境； 四是网络舆论生态呈现人机协同、可预见性与多元联动的显著特征，数智技术深入主流媒体系统性变革布局，成为传媒产业的变革性力量。
 
-当前江门正全力构建“13158”新型工业体系，打造珠江西岸先进制造产业集群和综合物流枢纽城市，亟需现代化、数智化、一体化的供应链体系提供有力支撑。
+蓝皮书同时指出，英国、法国、美国等主要国家纷纷加速数智传播发展，通过立法规范、技术研发与国际合作重塑全球传播能力。
 
-希望以此次活动为契机，持续深化政企协作、企业联动，推动物流、制造、商贸、跨境电商等产业高效协同，为江门产业转型升级、扩大对外开放、实现高质量发展注入强劲动能。
+蓝皮书认为，2025年以来，在数智传播加速演进的同时，一些问题不容忽视：全球数智传播竞争加剧、数据滥用、算法偏见、平台垄断等伦理风险持续加剧，严重冲击信息传播的真实性、透明度与公平性，对行业法律规制与生态治理均提出了更高要求。
 
-顺丰速运粤西区总经理王宁表示，顺丰长期深耕粤港澳大湾区，高度重视江门产业布局与发展机遇，将充分发挥全球综合物流、数智化供应链、全场景行业解决方案、全球化跨境服务四大核心优势，全面对接江门制造业升级、现代服务业融合、企业跨境出海等核心需求，以全链条、一体化、高安全的供应链服务，为江门打造万亿工业强市、建设综合物流枢纽贡献力量。
-
-现场，顺丰围绕整体供应链能力、高科技、工业设备、跨境出海等作主题分享，展示多领域定制化服务及全球化物贸一体化实力。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 08:23 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-30 08:09 - [点球大战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
-- 2026-06-30 08:14 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
-- 2026-06-30 08:17 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-30 08:03 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
-- 2026-06-30 08:21 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-30 07:58 - [存储芯片龙头提示风险](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
-- 2026-06-30 08:02 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-30 08:18 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-30 08:12 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-30 08:15 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
-- 2026-06-30 08:21 - [森保一 保守](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-30 07:59 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
-- 2026-06-30 08:21 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-30 08:17 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
+- 2026-06-30 08:29 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-30 08:18 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-30 08:12 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-30 08:06 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-30 08:28 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-30 08:16 - [田中碧失误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-30 08:09 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-30 08:17 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-30 08:06 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-30 08:02 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-30 08:11 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
+- 2026-06-30 08:12 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:55 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.kurohicncr.top/Article/details/73052067945.shtml)
-- 2026-06-30 08:00 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/66263.shtml)
-- 2026-06-30 07:54 - [日本16强魔咒](http://www.share.minike.top/Article/details/1451453919.shtml)
-- 2026-06-30 08:20 - [恋与深空道歉声明](http://www.share.minike.top/Article/details/405723074404.shtml)
-- 2026-06-30 08:09 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/79121703.shtml)
-- 2026-06-30 08:19 - [杨紫学位证上就是杨紫](https://www.share.kurohicncr.top/Article/details/7923051992.shtml)
-- 2026-06-30 08:22 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/17952.shtml)
-- 2026-06-30 08:01 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/66641.shtml)
-- 2026-06-30 08:02 - [天道](http://www.share.kurohicncr.top/Article/details/547968287545.shtml)
-- 2026-06-30 08:11 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/88212.shtml)
-- 2026-06-30 07:58 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/194179.shtml)
-- 2026-06-30 08:15 - [歌剧老师锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/673500009608.shtml)
-- 2026-06-30 07:54 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/4074292.shtml)
-- 2026-06-30 08:11 - [真实感受到千香是积压剧了](https://www.share.kurohicncr.top/Article/details/45029.shtml)
-- 2026-06-30 07:55 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/5673109.shtml)
+- 2026-06-30 08:20 - [森保一致歉：世界第一目标没能实现](https://www.blog.minike.top/Article/details/7877251912.shtml)
+- 2026-06-30 08:01 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/96015997257.shtml)
+- 2026-06-30 08:18 - [德国 传控](http://www.share.kurohicncr.top/Article/details/06269.shtml)
+- 2026-06-30 08:18 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/428680039449.shtml)
+- 2026-06-30 08:28 - [巴西在进攻三区完成210脚传球](http://www.share.kurohicncr.top/Article/details/6058053.shtml)
+- 2026-06-30 08:29 - [毒液2](http://www.blog.kurohicncr.top/Article/details/99997262.shtml)
+- 2026-06-30 08:21 - [斗破苍穹](https://www.share.minike.top/Article/details/4595359161.shtml)
+- 2026-06-30 08:17 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/18864304.shtml)
+- 2026-06-30 08:23 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/636706008547.shtml)
+- 2026-06-30 08:04 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/21080476.shtml)
+- 2026-06-30 08:27 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/10252008.shtml)
+- 2026-06-30 08:01 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/94378681097.shtml)
+- 2026-06-30 08:27 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.blog.kurohicncr.top/Article/details/772301900183.shtml)
+- 2026-06-30 08:07 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/12664508558.shtml)
+- 2026-06-30 08:29 - [花少8要去世界杯举办国](http://www.blog.minike.top/Article/details/47440985.shtml)

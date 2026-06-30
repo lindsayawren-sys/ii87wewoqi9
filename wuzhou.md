@@ -1,61 +1,60 @@
-# （经济观察）高规格部署服务业 中国挖潜百万亿市场
+# 受权发布丨中华人民共和国行政复议法实施条例
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-中新社北京4月8日电 (记者 刘文文)具备百万亿级成长潜力的中国服务业，迎来高规格部署。 全国服务业大会4月7日至8日在北京召开，会上传达了中共中央总书记、国家主席、中央军委主席习近平重要指示。 服务业是中国国民经济第一大产业。自2015年占比首次突破50%以来，服务业规模已连续11年占据中国经济“半壁江山”。服务业对经济增长贡献率也从2020年的55.1%增至2025年的61
+新华社北京5月8日电 中华人民共和国行政复议法实施条例 (2007年5月29日中华人民共和国国务院令第499号公布 2026年4月29日中华人民共和国国务院令第836号修订) 第一章 总则 第一条 根据《中华人民共和国行政复议法》(以下简称行政复议法)，制定本条例。 第二条 行政复议机关应当对行政行为的合法性、适当性进行全面审查，保护公民、法人和其他组织的合法权益，监督和保障行
 
 ## 正文
 
-中新社北京4月8日电 (记者 刘文文)具备百万亿级成长潜力的中国服务业，迎来高规格部署。
+新华社北京5月8日电 中华人民共和国行政复议法实施条例 (2007年5月29日中华人民共和国国务院令第499号公布 2026年4月29日中华人民共和国国务院令第836号修订) 第一章 总则 第一条 根据《中华人民共和国行政复议法》(以下简称行政复议法)，制定本条例。
 
-全国服务业大会4月7日至8日在北京召开，会上传达了中共中央总书记、国家主席、中央军委主席习近平重要指示。
+第二条 行政复议机关应当对行政行为的合法性、适当性进行全面审查，保护公民、法人和其他组织的合法权益，监督和保障行政机关依法行使职权，推动行政争议实质性化解，促进从源头上预防和减少行政争议。
 
-服务业是中国国民经济第一大产业。
+第三条 各级行政复议机关应当认真履行行政复议职责，领导并支持本机关行政复议机构依法办理行政复议事项，依照有关规定配备、充实、调剂专职行政复议人员，保证行政复议机构的办案能力与工作任务相适应。
 
-自2015年占比首次突破50%以来，服务业规模已连续11年占据中国经济“半壁江山”。
+第四条 行政复议机构依照行政复议法和本条例的规定，履行下列职责： (一)受理行政复议申请； (二)组织开展行政复议调解； (三)审理行政复议案件，拟定行政复议决定； (四)办理行政复议法第五十六条、第五十七条规定的附带审查事项； (五)办理行政复议法第七十二条规定的行政赔偿等事项； (六)按照职责权限，指导、监督下级行政复议机构依法履行行政复议职责； (七)按照职责权限，督促被申请人、其他有关行政机关依法履行行政复议决定书、调解书、意见书； (八)办理行政复议案件统计、行政复议决定抄告事项； (九)研究行政复议工作中发现的问题，及时向有关机关提出改进建议，重大问题及时向行政复议机关报告； (十)法律、法规规定的其他事项。
 
-服务业对经济增长贡献率也从2020年的55.1%增至2025年的61.4%。
+第五条 行政复议人员应当具备与履行行政复议职责相适应的政治、业务素质和道德品行。
 
-国家发改委预计，“十五五”时期，中国服务业规模将突破100万亿元人民币。
+第六条 行政复议机关应当加强行政复议调解工作，支持和保障行政复议机构依法开展调解工作，有关行政机关应当予以配合。
 
-国家发改委产业经济与技术经济研究所研究员洪群联接受中新社记者采访时表示，作为经济增长主动力、吸纳就业主渠道、扩大内需主引擎、创新升级主阵地、对外开放主赛道，促进服务业优质高效发展关系现代化建设全局。
+第七条 行政复议机关应当加强行政复议工作规范化建设，提升行政复议工作流程、保障等规范化水平。
 
-规模稳步扩大的中国服务业，正努力实现质效跃升。
+具体规范由国务院行政复议机构会同国务院有关部门制定。
 
 ## 相关推荐
 
-- 2026-06-30 08:05 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-30 08:09 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-30 08:16 - [森保一 保守](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
-- 2026-06-30 08:19 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-30 07:59 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-30 07:59 - [武磊：巴西队赢的并不轻松](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-30 08:12 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-30 07:58 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-30 08:19 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-30 08:17 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
-- 2026-06-30 08:09 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-30 08:01 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-30 08:06 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-30 08:08 - [马耳他著名拱门坍塌致一中国男子身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-30 08:02 - [德国巴拉圭进入点球大战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
+- 2026-06-30 08:00 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-30 08:27 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-30 08:08 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-30 08:11 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-30 08:18 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-30 08:10 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-30 08:03 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-30 08:28 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-30 08:16 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-30 08:08 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
+- 2026-06-30 08:08 - [藤森庆子赢得秘鲁总统选举](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-30 08:06 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-30 08:12 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-30 08:29 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:10 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/67301892.shtml)
-- 2026-06-30 08:03 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/129753.shtml)
-- 2026-06-30 07:54 - [“柠檬茶能换怀表？”](https://www.share.kurohicncr.top/Article/details/28144140.shtml)
-- 2026-06-30 07:55 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://www.share.minike.top/Article/details/9238126199.shtml)
-- 2026-06-30 08:21 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/89165388134.shtml)
-- 2026-06-30 08:22 - [补时绝杀 巴西2-1淘汰日本](http://www.share.kurohicncr.top/Article/details/5188800.shtml)
-- 2026-06-30 08:16 - [千香](https://www.blog.minike.top/Article/details/50509.shtml)
-- 2026-06-30 08:18 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/40173623.shtml)
-- 2026-06-30 08:11 - [沙丘](http://www.share.kurohicncr.top/Article/details/32317738796.shtml)
-- 2026-06-30 08:18 - [杨紫学位证上就是杨紫](https://www.share.minike.top/Article/details/49036121.shtml)
-- 2026-06-30 08:13 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/62489.shtml)
-- 2026-06-30 08:07 - [这几秒成世界杯最值钱广告位](http://www.blog.minike.top/Article/details/8949754067.shtml)
-- 2026-06-30 08:19 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.minike.top/Article/details/7195041.shtml)
-- 2026-06-30 07:59 - [我和我的家乡](https://www.blog.minike.top/Article/details/47855590.shtml)
-- 2026-06-30 08:21 - [安切洛蒂 换人](http://www.share.minike.top/Article/details/0288178323.shtml)
+- 2026-06-30 08:26 - [送你一朵小红花](https://www.share.minike.top/Article/details/78485786944.shtml)
+- 2026-06-30 08:22 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/7934213923.shtml)
+- 2026-06-30 08:10 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.kurohicncr.top/Article/details/679887904.shtml)
+- 2026-06-30 08:27 - [日本球员说被绝杀非常不甘心](http://www.share.minike.top/Article/details/33076637736.shtml)
+- 2026-06-30 08:20 - [武磊：巴西队赢的并不轻松](https://www.share.minike.top/Article/details/1758979.shtml)
+- 2026-06-30 08:13 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/76581053.shtml)
+- 2026-06-30 08:07 - [电影抓特务上映11天破亿](http://www.blog.minike.top/Article/details/1567398205.shtml)
+- 2026-06-30 08:14 - [孙兴慜道歉](http://www.share.kurohicncr.top/Article/details/79691516995.shtml)
+- 2026-06-30 08:11 - [巴西半场0比1日本](http://www.share.kurohicncr.top/Article/details/165346.shtml)
+- 2026-06-30 08:17 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/192213982392.shtml)
+- 2026-06-30 08:22 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/105508.shtml)
+- 2026-06-30 08:07 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/343239501651.shtml)
+- 2026-06-30 08:06 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/442986.shtml)
+- 2026-06-30 08:12 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/5565012076.shtml)
+- 2026-06-30 08:24 - [巴西补时绝杀日本](http://www.blog.kurohicncr.top/Article/details/382096.shtml)

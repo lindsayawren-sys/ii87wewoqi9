@@ -1,57 +1,59 @@
-# 赵乐际同葡萄牙议长阿吉亚尔-布兰科会谈
+# 我国营商环境持续改善
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-中新社北京4月8日电 全国人大常委会委员长赵乐际8日在北京人民大会堂同葡萄牙议长阿吉亚尔-布兰科举行会谈。 赵乐际表示，中葡是传统友好国家，也是互尊互信、合作共赢的全面战略伙伴。习近平主席同塞古罗总统、蒙特内格罗总理保持密切交往，为中葡关系发展作出战略指引。中方愿同葡方一道，以落实两国领导人重要共识为引领，赓续传统友谊，增进战略互信，深化互利合作，推动中葡全面战略伙伴关系行稳致
+央视网消息(新闻联播)：当前，我国营商环境建设取得新进展，企业进入市场的成本更少、流程更优、服务更好。 5月8日，国家发展改革委发布《中国营商环境发展报告(2026)》(以下简称《报告》)。《报告》指出，“十四五”时期，我国企业投资范围更加广阔，市场准入负面清单经过2022年、2025年两次修订，清单内的事项数量压减约14%。 市场准入壁垒得到清理整治。全国累计梳理排查文件3.
 
 ## 正文
 
-中新社北京4月8日电 全国人大常委会委员长赵乐际8日在北京人民大会堂同葡萄牙议长阿吉亚尔-布兰科举行会谈。
+央视网消息(新闻联播)：当前，我国营商环境建设取得新进展，企业进入市场的成本更少、流程更优、服务更好。
 
-赵乐际表示，中葡是传统友好国家，也是互尊互信、合作共赢的全面战略伙伴。
+5月8日，国家发展改革委发布《中国营商环境发展报告(2026)》(以下简称《报告》)。
 
-习近平主席同塞古罗总统、蒙特内格罗总理保持密切交往，为中葡关系发展作出战略指引。
+《报告》指出，“十四五”时期，我国企业投资范围更加广阔，市场准入负面清单经过2022年、2025年两次修订，清单内的事项数量压减约14%。
 
-中方愿同葡方一道，以落实两国领导人重要共识为引领，赓续传统友谊，增进战略互信，深化互利合作，推动中葡全面战略伙伴关系行稳致远。
+市场准入壁垒得到清理整治。
 
-赵乐际指出，建交以来，葡方始终恪守一个中国原则。
+全国累计梳理排查文件3.8万余件，修订或废止文件2300余件，有力保障了经营主体市场准入权利。
 
-两国通过友好协商妥善解决澳门问题，充分体现了双方的政治智慧和高度互信。
+招标投标监管体制机制更加完善。
 
-中方愿同葡方一道，坚持尊重彼此核心利益和重大关切，在平等相待、真诚对话的基础上不断凝聚和扩大共识。
+2025年，中标企业总数超68.9万家，同比增长13.0%，民营企业中标项目数量占比达76.2%，市场活力持续增强。
 
-加强发展战略对接，扩大双向投资，拓展新能源、数字经济、人工智能等领域合作。
+五项“一件事”政务服务改革全面完成 市场监管总局5月8日表示，目前，企业变更登记、开办餐饮店等五项“一件事”政务服务改革已全面完成。
 
 ## 相关推荐
 
-- 2026-06-30 08:06 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
-- 2026-06-30 08:18 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-30 08:17 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
-- 2026-06-30 08:08 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-30 08:06 - [女子遭下药退赔偿拟追刑责](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-30 08:22 - [三星投资计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
-- 2026-06-30 08:16 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
-- 2026-06-30 08:04 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-30 08:21 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-30 08:15 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-30 07:57 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-30 08:06 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-30 08:10 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
+- 2026-06-30 08:11 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-30 08:16 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-30 08:06 - [IGN评测电影版后室](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-30 08:15 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-30 08:15 - [欧洲装一台空调有多难](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-30 08:00 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-30 08:08 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-30 08:01 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-30 08:03 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-30 08:11 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-30 08:00 - [日本队5进世界杯淘汰赛0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:19 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/45232258.shtml)
-- 2026-06-30 07:57 - [覃予萱晋级WTT美国大满贯女单32强](http://www.blog.kurohicncr.top/Article/details/77766.shtml)
-- 2026-06-30 08:00 - [这几秒成世界杯最值钱广告位](http://www.blog.minike.top/Article/details/799982418417.shtml)
-- 2026-06-30 08:08 - [巴西2比1日本](https://www.share.kurohicncr.top/Article/details/420158413.shtml)
-- 2026-06-30 08:18 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/07308494.shtml)
-- 2026-06-30 08:14 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/58305050478.shtml)
-- 2026-06-30 08:07 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/06702.shtml)
-- 2026-06-30 08:16 - [武磊：日本队有能力跟任何强队抗衡](https://www.blog.kurohicncr.top/Article/details/07972648437.shtml)
-- 2026-06-30 08:13 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.minike.top/Article/details/4572707217.shtml)
-- 2026-06-30 08:01 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/474694.shtml)
-- 2026-06-30 08:21 - [孙颖莎王楚钦晋级8强](https://www.share.kurohicncr.top/Article/details/048890.shtml)
-- 2026-06-30 08:01 - [老外对中国cosplay竟这样评价…](http://www.share.minike.top/Article/details/8664242603.shtml)
-- 2026-06-30 07:59 - [南北多地暴雨和强对流天气持续](https://www.blog.kurohicncr.top/Article/details/946106.shtml)
-- 2026-06-30 08:01 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/49984714.shtml)
-- 2026-06-30 08:18 - [王楚钦说配合稍微有些陌生感](http://www.share.minike.top/Article/details/97427.shtml)
+- 2026-06-30 08:17 - [亚洲球队全部出局](http://www.share.minike.top/Article/details/843068.shtml)
+- 2026-06-30 08:15 - [锐评T1战胜KC](http://www.blog.minike.top/Article/details/95615670638.shtml)
+- 2026-06-30 08:17 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/14078.shtml)
+- 2026-06-30 08:28 - [世界杯：德国vs巴拉圭](https://www.blog.kurohicncr.top/Article/details/18798602.shtml)
+- 2026-06-30 08:04 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/0341146.shtml)
+- 2026-06-30 08:15 - [佐野海舟远射破门](https://www.blog.kurohicncr.top/Article/details/0355227.shtml)
+- 2026-06-30 08:13 - [安切洛蒂 换人](https://www.blog.kurohicncr.top/Article/details/622710283140.shtml)
+- 2026-06-30 08:20 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](http://www.share.kurohicncr.top/Article/details/009735.shtml)
+- 2026-06-30 08:25 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/745876878095.shtml)
+- 2026-06-30 08:14 - [世界杯欧洲队7战南美仅1胜](http://www.blog.kurohicncr.top/Article/details/637726964.shtml)
+- 2026-06-30 08:07 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/08947583059.shtml)
+- 2026-06-30 08:24 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.kurohicncr.top/Article/details/5211890.shtml)
+- 2026-06-30 08:06 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.minike.top/Article/details/047614928.shtml)
+- 2026-06-30 08:12 - [巴西扳平比分](http://www.blog.minike.top/Article/details/210372.shtml)
+- 2026-06-30 08:25 - [美股](https://www.share.kurohicncr.top/Article/details/7714219.shtml)

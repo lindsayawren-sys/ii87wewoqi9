@@ -1,51 +1,56 @@
-# 伊朗考虑对以色列采取威慑行动 回应其违反停火协议
+# 增加受教育年限提升人才红利——“十五五”时期经济社会发展主要指标解读⑥
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-伊朗半官方的法尔斯通讯社援引一位未具名安全消息人士报道，在以色列持续对黎巴嫩采取违反停火协议的行动后，伊朗正在考虑针对以色列的威慑行动。 报道称，德黑兰方面越来越认为，这些袭击表明，要么美国无法控制以色列总理内塔尼亚胡，要么美国已经容许以色列采取这些行动。责任编辑：江学思
+“十五五”规划纲要提出—— 到2030年，劳动年龄人口平均受教育年限增至11.7年 “十五五”规划纲要提出，到2030年，劳动年龄人口平均受教育年限增加到11.7年，这也是唯一一项约束性民生指标。从“十四五”末的11.3年到“十五五”末的11.7年，劳动年龄人口平均受教育年限增加0.4年的背后意味着什么？为此，记者采访了教育领域相关专家。 夯实人力资源基础劳动年龄人口平均受教育
 
 ## 正文
 
-伊朗半官方的法尔斯通讯社援引一位未具名安全消息人士报道，在以色列持续对黎巴嫩采取违反停火协议的行动后，伊朗正在考虑针对以色列的威慑行动。
+“十五五”规划纲要提出—— 到2030年，劳动年龄人口平均受教育年限增至11.7年 “十五五”规划纲要提出，到2030年，劳动年龄人口平均受教育年限增加到11.7年，这也是唯一一项约束性民生指标。
 
-报道称，德黑兰方面越来越认为，这些袭击表明，要么美国无法控制以色列总理内塔尼亚胡，要么美国已经容许以色列采取这些行动。
+从“十四五”末的11.3年到“十五五”末的11.7年，劳动年龄人口平均受教育年限增加0.4年的背后意味着什么？
 
-责任编辑：江学思
+为此，记者采访了教育领域相关专家。
+
+夯实人力资源基础劳动年龄人口平均受教育年限，是指劳动年龄人口人均接受学历教育(包括成人学历教育，但不包括各种非学历培训)的年数。
+
+在我国，具体指16岁至59岁人口人均接受学历教育的年数。
+
+“劳动年龄人口总量反映一个国家和地区人力资源数量的丰沛程度，人口的受教育程度则反映人力资源质量水平。
+
+”中国教育科学研究院教育统计分析研究所所长马晓强表示，根据“七普”人口数据及推算，2025年，16岁至59岁劳动年龄人口为8.51亿人，占全国人口的60.6%。
+
+2025年我国劳动年龄人口平均受教育年限达到11.3年，相当于高三年级上学期阶段。
 
 ## 相关推荐
 
-- 2026-06-30 08:06 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
-- 2026-06-30 08:02 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-30 08:00 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-30 07:57 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-30 07:56 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-30 08:14 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
-- 2026-06-30 07:56 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-30 08:14 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
-- 2026-06-30 08:11 - [三星投资计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
-- 2026-06-30 08:21 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-30 07:57 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
-- 2026-06-30 08:12 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
-- 2026-06-30 08:20 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
-- 2026-06-30 08:01 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-30 08:22 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-30 08:17 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-30 08:06 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-30 08:08 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-30 08:00 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-30 08:10 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-30 08:04 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
+- 2026-06-30 08:01 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-30 08:10 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-30 08:18 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-30 08:24 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:02 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/488837084.shtml)
-- 2026-06-30 08:22 - [德国队世界杯点球大战首败](http://www.blog.kurohicncr.top/Article/details/6663334484.shtml)
-- 2026-06-30 08:09 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/64254947.shtml)
-- 2026-06-30 08:11 - [张月感谢了每一公的队友](http://www.share.minike.top/Article/details/8609401.shtml)
-- 2026-06-30 07:54 - [巴拉圭点球大战淘汰德国进16强](https://www.blog.minike.top/Article/details/2775602326.shtml)
-- 2026-06-30 07:57 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/58555414.shtml)
-- 2026-06-30 07:55 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/076588628.shtml)
-- 2026-06-30 07:55 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/472962.shtml)
-- 2026-06-30 07:56 - [日本领先巴西](https://www.blog.minike.top/Article/details/531015869.shtml)
-- 2026-06-30 07:59 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/36379549.shtml)
-- 2026-06-30 07:56 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.kurohicncr.top/Article/details/99816362.shtml)
-- 2026-06-30 08:21 - [巴拉圭点球大战淘汰德国进16强](https://www.blog.kurohicncr.top/Article/details/18711.shtml)
-- 2026-06-30 08:12 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.minike.top/Article/details/4446437863.shtml)
-- 2026-06-30 07:56 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/3561542860.shtml)
-- 2026-06-30 08:14 - [马耳他著名拱门坍塌致中国男子身亡](http://www.blog.minike.top/Article/details/83698.shtml)
+- 2026-06-30 08:00 - [中国新一轮出口管制直指日本命脉](https://www.blog.kurohicncr.top/Article/details/327120495.shtml)
+- 2026-06-30 08:01 - [王健林甩卖超80座万达广场](https://www.blog.kurohicncr.top/Article/details/5343001.shtml)
+- 2026-06-30 08:16 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/59081.shtml)
+- 2026-06-30 08:20 - [急先锋](http://www.blog.minike.top/Article/details/9231160.shtml)
+- 2026-06-30 08:07 - [日本半场1比0领先巴西](http://www.share.kurohicncr.top/Article/details/95850119277.shtml)
+- 2026-06-30 08:15 - [卡塞米罗头球破门](https://www.blog.minike.top/Article/details/195655849.shtml)
+- 2026-06-30 08:21 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/05987.shtml)
+- 2026-06-30 08:20 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/850613.shtml)
+- 2026-06-30 08:07 - [德国巴拉圭进入点球大战](https://www.blog.minike.top/Article/details/82560629998.shtml)
+- 2026-06-30 08:08 - [点球大战](https://www.blog.kurohicncr.top/Article/details/939331908.shtml)
+- 2026-06-30 08:23 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/56429738.shtml)
+- 2026-06-30 08:23 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/67037.shtml)
+- 2026-06-30 08:29 - [绘画区你赢了](http://www.share.minike.top/Article/details/231151020609.shtml)
+- 2026-06-30 08:06 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/553222638075.shtml)
+- 2026-06-30 08:23 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/97398699.shtml)

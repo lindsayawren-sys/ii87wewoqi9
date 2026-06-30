@@ -1,60 +1,57 @@
-# 航空公司受益于油价下跌，但风险犹存
+# 【财经分析】汇源果汁陷多方角力，国中水务9.3亿元收购疑云引发争议
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-达美航空及整个航空板块可能正受益于油价下跌，但Bernstein表示，情况并非如此简单。 分析师David Vernon表示，燃油价格下跌是一个积极因素，但这不会立即体现在航空公司的盈利中。这存在滞后性，因为精炼燃油仍需通过全球供应链流动，成本才能完全正常化。在此期间，真正重要的是航空公司能否维持住它们最近刚刚推高的票价和收费。 这正是棘手之处。Vernon指出，没有一家航空公
+来源：新华财经 新华财经8月15日电（可达）北京汇源食品饮料有限公司（下称“北京汇源”）14日深夜再发公告，质疑公司大股东诸暨文盛汇自有资金投资有限公司（下称“诸暨文盛汇”）召开的临时股东大会合法性，并称公司唯一的监事试图发言被阻止。 此前8月9日，北京汇源一封《公开信》，将公司管理团队和大股东诸暨文盛汇的矛盾公开化。一度陷入债务危机的北京汇源，在2023年完成债务重整，并在2
 
 ## 正文
 
-达美航空及整个航空板块可能正受益于油价下跌，但Bernstein表示，情况并非如此简单。
+来源：新华财经 新华财经8月15日电（可达）北京汇源食品饮料有限公司（下称“北京汇源”）14日深夜再发公告，质疑公司大股东诸暨文盛汇自有资金投资有限公司（下称“诸暨文盛汇”）召开的临时股东大会合法性，并称公司唯一的监事试图发言被阻止。
 
-分析师David Vernon表示，燃油价格下跌是一个积极因素，但这不会立即体现在航空公司的盈利中。
+此前8月9日，北京汇源一封《公开信》，将公司管理团队和大股东诸暨文盛汇的矛盾公开化。
 
-这存在滞后性，因为精炼燃油仍需通过全球供应链流动，成本才能完全正常化。
+一度陷入债务危机的北京汇源，在2023年完成债务重整，并在2023年、2024年均实现盈利，在经营逐步脱困的局面下，公司如今却又陷入多方角力的资本乱局。
 
-在此期间，真正重要的是航空公司能否维持住它们最近刚刚推高的票价和收费。
+同样陷入其中的还有A股上市公司国中水务，作为诸暨文盛汇背后的资方，其前后共计斥资9.3亿元谋求控股北京汇源，却最终“为别人做了嫁衣”，期间中小股东利益是否充分得以保护？
 
-这正是棘手之处。
+汇源陷多方角力 8月14日深夜，北京汇源通过公司账号发布《关于2025年第三次临时股东会合法有效性的异议函》，称公司工会委员会对临时股东会的召集、召开程序及审议内容进行了审慎研究，认定本次会议及其将形成的决议不具备合法有效性，并呼吁公司各部门及全体职工不承认股东会的合法性，不执行股东会的决议，不承认股东会选举的董事。
 
-Vernon指出，没有一家航空公司能完全免受经济压力的影响，即使是拥有高比例高端客户群体的达美航空也不例外。
+有接近北京汇源人士向新华财经表示，诸暨文盛汇在临时股东会上提出议案罢免董事长，但会前没有通知董事会办公机构，也未通知董事长出席会议。
 
-如果商务旅行预算开始收紧，需求可能会在成本下降的同时走软。
+此前8月9日，北京汇源发布《致全体股东及转股债权人的公开信》（下称“公开信”），指其控股股东诸暨文盛汇未按重整协议履行出资义务，并谋划于8月11日召开临时股东会提案通过资本公积补亏方案推动可能存在不公平的分红事项。
 
-不过，达美航空确实有一些缓冲措施，包括其Trainer炼油厂，该厂可抵消约三分之一的燃油成本波动，此外还有维修和货运业务的支撑。
+2023年北京汇源完成债务重整，上海文盛资产管理股份有限公司（下称“文盛资产”）作为重整投资人，设立诸暨文盛汇、天津文盛汇两个投资平台持有北京汇源股权，其中诸暨文盛汇持有60%股权成为大股东，陆续向北京汇源派驻多名董事、监事。
 
 ## 相关推荐
 
-- 2026-06-30 08:17 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-30 08:06 - [媒体：手机测评该挤挤水分了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
-- 2026-06-30 08:13 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-30 08:22 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-30 08:15 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-30 08:18 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
-- 2026-06-30 07:59 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-30 08:01 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
-- 2026-06-30 08:23 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-30 08:11 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-30 08:03 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-30 08:19 - [曝老詹对自由市场态度与以往截然不同](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-30 08:19 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-30 08:23 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-30 08:27 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-30 08:16 - [日本五次世界杯淘汰赛全败](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
+- 2026-06-30 08:25 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-30 08:01 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-30 08:08 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-30 08:25 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-30 08:10 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-30 08:25 - [王楚钦孙颖莎晋级混双八强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-30 08:29 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-30 08:15 - [德国 传控](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-30 08:10 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:59 - [媒体评泰山建135公里刀片刺绳隔离网](https://www.share.minike.top/Article/details/563193272390.shtml)
-- 2026-06-30 08:12 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/83050.shtml)
-- 2026-06-30 08:05 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/8189582.shtml)
-- 2026-06-30 07:59 - [委内瑞拉地震死亡人数升至1719人](http://www.blog.minike.top/Article/details/0724788.shtml)
-- 2026-06-30 08:07 - [男子在京东买到“同仁堂”假药](https://www.share.kurohicncr.top/Article/details/9945971.shtml)
-- 2026-06-30 08:16 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/267265431.shtml)
-- 2026-06-30 08:08 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/893919.shtml)
-- 2026-06-30 08:12 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/368739551092.shtml)
-- 2026-06-30 08:14 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/895944248.shtml)
-- 2026-06-30 08:18 - [覃予萱晋级WTT美国大满贯女单32强](http://www.share.kurohicncr.top/Article/details/7432168145.shtml)
-- 2026-06-30 08:02 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/902406855128.shtml)
-- 2026-06-30 08:08 - [王源近几年没有路演了](http://www.share.minike.top/Article/details/94264.shtml)
-- 2026-06-30 08:00 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/78588292.shtml)
-- 2026-06-30 07:58 - [吴易昺不敌德约科维奇 止步温网首轮](https://www.blog.kurohicncr.top/Article/details/200045.shtml)
-- 2026-06-30 08:18 - [明星大侦探第一季](https://www.share.minike.top/Article/details/91971349060.shtml)
+- 2026-06-30 08:26 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/3272338.shtml)
+- 2026-06-30 08:17 - [电影抓特务上映11天破亿](https://www.blog.kurohicncr.top/Article/details/062119672.shtml)
+- 2026-06-30 08:07 - [日本淘汰](http://www.share.minike.top/Article/details/61602.shtml)
+- 2026-06-30 08:28 - [锐评T1战胜KC](https://www.blog.kurohicncr.top/Article/details/721259.shtml)
+- 2026-06-30 08:23 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/4267950.shtml)
+- 2026-06-30 08:22 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/125884246.shtml)
+- 2026-06-30 08:08 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/26783.shtml)
+- 2026-06-30 08:07 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/72374.shtml)
+- 2026-06-30 08:01 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/672275558940.shtml)
+- 2026-06-30 08:02 - [真实感受到千香是积压剧了](https://www.share.kurohicncr.top/Article/details/4618353.shtml)
+- 2026-06-30 08:23 - [网红峡谷5人溺亡 有人提醒会下雨](http://www.blog.kurohicncr.top/Article/details/478893103027.shtml)
+- 2026-06-30 08:06 - [中国新一轮出口管制直指日本命脉](http://www.blog.kurohicncr.top/Article/details/282152.shtml)
+- 2026-06-30 08:01 - [巴西替补奇兵读秒绝杀](http://www.blog.kurohicncr.top/Article/details/452357348858.shtml)
+- 2026-06-30 08:06 - [库尼亚赛后伸五指嘲讽日本](http://www.share.minike.top/Article/details/472257.shtml)
+- 2026-06-30 08:29 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/742546032048.shtml)

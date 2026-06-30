@@ -1,58 +1,61 @@
-# 涉案金额近10亿 内蒙古警方摧毁特大“跑分”洗钱团伙
+# 4月银行业监管罚没1.58亿元、环比增长16%，浙江罚单数量及罚没金额领跑
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-中新网通辽4月9日电(记者 张林虎)9日，记者从内蒙古自治区通辽市科左后旗公安局获悉，该局打掉一特大“跑分”洗钱团伙，抓获犯罪嫌疑人6名，该团伙自去年6月以来，累计为境外诈骗团伙洗钱近10亿元。 2026年2月，居民包某报案称遭遇投资诈骗。包某回忆，去年10月，她在网络上结识一名自称“现役军官”的男子，二人每天互道平安、嘘寒问暖，经过近4个月的网络沟通，迅速建立了“网络爱人”这
+来源：消费日报财经 进入二季度，金融监管部门对银行业的合规整顿力度继续加码。 据企业预警通最新发布的报告显示，今年4月，中国人民银行、国家金融监督管理总局、国家外汇管理局及其派出机构共对银行机构及从业人员开出罚单388张，罚没金额合计约1.58亿元，涉及受罚银行124家。 尽管罚单数量环比微降0.26%，但罚没金额环比增长16.18%，其中百万元以上大额罚单数量达47张，较上月
 
 ## 正文
 
-中新网通辽4月9日电(记者 张林虎)9日，记者从内蒙古自治区通辽市科左后旗公安局获悉，该局打掉一特大“跑分”洗钱团伙，抓获犯罪嫌疑人6名，该团伙自去年6月以来，累计为境外诈骗团伙洗钱近10亿元。
+来源：消费日报财经 进入二季度，金融监管部门对银行业的合规整顿力度继续加码。
 
-2026年2月，居民包某报案称遭遇投资诈骗。
+据企业预警通最新发布的报告显示，今年4月，中国人民银行、国家金融监督管理总局、国家外汇管理局及其派出机构共对银行机构及从业人员开出罚单388张，罚没金额合计约1.58亿元，涉及受罚银行124家。
 
-包某回忆，去年10月，她在网络上结识一名自称“现役军官”的男子，二人每天互道平安、嘘寒问暖，经过近4个月的网络沟通，迅速建立了“网络爱人”这一亲密关系。
+尽管罚单数量环比微降0.26%，但罚没金额环比增长16.18%，其中百万元以上大额罚单数量达47张，较上月增加18张，增幅超过60%。
 
-确认关系后，对方以投资理财、稳赚不赔为由，诱导其下载虚假投资平台。
+此外，个人罚单达214张，占罚单总量的55%以上，金融机构合规责任正从机构层面向管理层乃至一线人员深度穿透。
 
-起初包某试探性投资总能得到高额回报，久而久之便对其言听计从。
+浙江罚单数量及罚没金额领跑 从被罚银行类型来看，4月份呈现“农商行罚单最多、国有银行罚金最重”并存的格局。
 
-直至今年2月，包某在投入9万余元后准备提现时，却发现平台无法操作，“军官男友”也彻底失联。
+农商行以99张罚单占总量的25.52%，居所有类型银行之首，且罚单数量较上月继续增加；股份制银行和国有银行分别被开出86张和79张罚单，紧随其后。
 
-接到报案后，科左后旗公安局反诈中心民警立即对涉案资金开展研判。
+罚没金额方面，国有银行合计被罚没约3479.39万元，占当月总额的22.07%，位列各类型银行首位。
 
-经查，被骗资金被拆分后快速流向多张银行卡，这些账户短期内流水巨大，单笔流水可达数千万元，明显涉嫌洗钱犯罪。
+农商行与股份制银行罚没金额亦达3000万元以上，分别约3428.32万元、3259.34万元，排在第二、第三位。
 
 ## 相关推荐
 
-- 2026-06-30 08:19 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-30 08:02 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
-- 2026-06-30 07:54 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-30 08:23 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
-- 2026-06-30 07:57 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-30 08:22 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
-- 2026-06-30 08:22 - [巴西扳平比分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-30 07:58 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
-- 2026-06-30 08:05 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-30 08:11 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-30 08:08 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-30 08:18 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-30 08:23 - [王楚钦孙颖莎晋级混双八强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-30 08:16 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-30 08:07 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-30 08:08 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-30 08:27 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-30 08:27 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-30 08:02 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
+- 2026-06-30 08:27 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-30 08:22 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-30 08:24 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-30 08:07 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-30 08:27 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-30 08:00 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-30 08:18 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-30 08:20 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:12 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/04038833.shtml)
-- 2026-06-30 08:11 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.minike.top/Article/details/94432.shtml)
-- 2026-06-30 07:57 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/74765798.shtml)
-- 2026-06-30 07:58 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://www.share.minike.top/Article/details/57513110903.shtml)
-- 2026-06-30 08:10 - [张凌赫杨超越 峨眉](https://www.blog.minike.top/Article/details/32020234490.shtml)
-- 2026-06-30 07:55 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/755597.shtml)
-- 2026-06-30 08:12 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/494029727.shtml)
-- 2026-06-30 08:03 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/091178808452.shtml)
-- 2026-06-30 08:16 - [男子醉酒溺水获救后同行人拒协助抬人](https://www.blog.kurohicncr.top/Article/details/02731.shtml)
-- 2026-06-30 08:13 - [张雪的一句“是我们”引发岛内热议](http://www.share.minike.top/Article/details/03768.shtml)
-- 2026-06-30 08:12 - [沙丘](https://www.blog.minike.top/Article/details/44059191378.shtml)
-- 2026-06-30 08:02 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/554678.shtml)
-- 2026-06-30 08:15 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/3031875.shtml)
-- 2026-06-30 08:15 - [巴西足球能否再现昔日荣光](https://www.blog.minike.top/Article/details/606806.shtml)
-- 2026-06-30 08:12 - [4000美元是黄金新一轮下跌的开始吗](https://www.blog.minike.top/Article/details/05180776752.shtml)
+- 2026-06-30 08:29 - [孙兴慜道歉](https://www.share.kurohicncr.top/Article/details/6156073270.shtml)
+- 2026-06-30 08:07 - [董卿父亲在报纸上发文悼念亡妻](https://www.blog.minike.top/Article/details/46596.shtml)
+- 2026-06-30 08:12 - [德国爆冷点球大战不敌巴拉圭](http://www.blog.minike.top/Article/details/4140127.shtml)
+- 2026-06-30 08:18 - [送你一朵小红花](http://www.share.minike.top/Article/details/151812197.shtml)
+- 2026-06-30 08:11 - [孙颖莎王楚钦晋级8强](http://www.share.minike.top/Article/details/70219.shtml)
+- 2026-06-30 08:09 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/6425611201.shtml)
+- 2026-06-30 08:13 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/101880.shtml)
+- 2026-06-30 08:07 - [巴拉圭进球](https://www.blog.minike.top/Article/details/37648768180.shtml)
+- 2026-06-30 08:04 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/841385.shtml)
+- 2026-06-30 08:01 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/482517.shtml)
+- 2026-06-30 08:04 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/21425105.shtml)
+- 2026-06-30 08:06 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/69351344.shtml)
+- 2026-06-30 08:06 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/9686066.shtml)
+- 2026-06-30 08:27 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/66232972.shtml)
+- 2026-06-30 08:24 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/59313.shtml)

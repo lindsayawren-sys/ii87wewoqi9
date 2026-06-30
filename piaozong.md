@@ -1,61 +1,56 @@
-# 刘楚斌卸任总经理 程三平担任长江财险临时负责人
+# 乐动机器人港股上市在即：视觉感知主业遭禾赛速腾围剿 第二增长曲线割草机器人跨界To C难突围
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-4月9日金融一线消息，长江财险日前发布公告称，根据工作需要及个人意愿，经公司近期董事会会议审议通过，刘楚斌不再担任公司总经理职务。由程三平担任公司临时负责人，代行总经理职责。 公开资料显示，刘楚斌，1966年11月出生。历任平安产险广东分公司车险部总经理、平安产险江苏分公司副总经理、信达财险业务总监兼广东分公司总经理、国任保险业务总监兼国任学院院长、广州市亚美信息科技有限公司首
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经上市公司研究院 作者：喜乐 乐动机器人于2026年4月30日正式启动港股招股，基础发行约3333万股H股，发行价区间24.0-30.0港元，最终定价26.36港元，处于区间中低端，募资额约8.8亿港元，预计5月11日挂牌上市。公司以视觉感知为技术底座，构建了激光雷达、算法模组等核心部件与智能割
 
 ## 正文
 
-4月9日金融一线消息，长江财险日前发布公告称，根据工作需要及个人意愿，经公司近期董事会会议审议通过，刘楚斌不再担任公司总经理职务。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-由程三平担任公司临时负责人，代行总经理职责。
+出品：新浪财经上市公司研究院 作者：喜乐 乐动机器人于2026年4月30日正式启动港股招股，基础发行约3333万股H股，发行价区间24.0-30.0港元，最终定价26.36港元，处于区间中低端，募资额约8.8亿港元，预计5月11日挂牌上市。
 
-公开资料显示，刘楚斌，1966年11月出生。
+公司以视觉感知为技术底座，构建了激光雷达、算法模组等核心部件与智能割草机器人整机并行的业务体系，并凭借近三年收入复合增速超60%的增长表现叩开港股资本市场大门。
 
-历任平安产险广东分公司车险部总经理、平安产险江苏分公司副总经理、信达财险业务总监兼广东分公司总经理、国任保险业务总监兼国任学院院长、广州市亚美信息科技有限公司首席保险顾问等职务。
+然而，在高速增长的背后，公司在技术路线摇摆、商业模式模糊、战略选择不清晰等问题日益突出，叠加基石投资者成色偏弱、估值缺乏吸引力，此次登陆港股后，仍将面临盈利兑现与持续增长的双重考验。
 
-2021年7月26日，经湖北省委决定，同意刘楚斌为长江财产保险股份有限公司总经理人选，并由其作为公司临时负责人开始履职。
+乐动机器人的财务数据展现了其业务的爆发力。
 
-2021年9月，刘楚斌正式上任长江财险总经理。
+2023-2025年，营业总收入从2.8亿元增至7.5亿元，三年复合增速达64.4%，增长势头强劲；同期净亏损从0.7亿元收窄至0.6亿元，归母净亏损率由24.8%缩窄至8.4%，经调整净亏损率更是从20.2%缩窄至仅3.5%。
 
-程三平，男，1969年5月生，中南财经大学企业财务管理专业毕业，湖北省委党校大学学历，高级会计师。
+得益于高毛利割草机器人业务放量，整体毛利率由2024年19.5%反弹至2025年25.7%。
 
-自2021年3月起担任长江财产保险股份有限公司董事，自2021年5月起担任长江财产保险股份有限公司财务负责人。
+但公司在招股书中明确提示，2026年仍将继续录得净亏损。
 
 ## 相关推荐
 
-- 2026-06-30 08:23 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-30 08:12 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
-- 2026-06-30 08:05 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-30 08:14 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-30 07:56 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-30 08:01 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-30 08:06 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-30 08:18 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
-- 2026-06-30 08:17 - [德国淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-30 08:00 - [齐思钧回复张月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-30 07:58 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-30 07:55 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
-- 2026-06-30 08:03 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-30 08:12 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-30 07:59 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-30 08:01 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
+- 2026-06-30 08:23 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-30 08:19 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-30 08:10 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-30 08:20 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-30 08:25 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-30 08:14 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-30 08:00 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-30 08:10 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-30 08:19 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:01 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/96223751.shtml)
-- 2026-06-30 08:10 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/30438.shtml)
-- 2026-06-30 07:56 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/5054401612.shtml)
-- 2026-06-30 08:19 - [巴西补时绝杀日本](http://www.blog.minike.top/Article/details/89166786327.shtml)
-- 2026-06-30 07:59 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/14140.shtml)
-- 2026-06-30 08:12 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/7262565.shtml)
-- 2026-06-30 08:18 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/9954201630.shtml)
-- 2026-06-30 08:09 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/776223057171.shtml)
-- 2026-06-30 08:10 - [点球大战](https://www.blog.minike.top/Article/details/8878250738.shtml)
-- 2026-06-30 08:09 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/36408264.shtml)
-- 2026-06-30 08:10 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/90976395746.shtml)
-- 2026-06-30 08:03 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/479147.shtml)
-- 2026-06-30 08:14 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/2592803.shtml)
-- 2026-06-30 08:17 - [曝灰熊将莫兰特交易至开拓者](https://www.blog.kurohicncr.top/Article/details/777461298.shtml)
-- 2026-06-30 07:58 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/756944545.shtml)
+- 2026-06-30 08:23 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/7346157628.shtml)
+- 2026-06-30 08:12 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/390181810914.shtml)
+- 2026-06-30 08:02 - [藤森庆子赢得秘鲁总统选举](https://www.share.minike.top/Article/details/7885292.shtml)
+- 2026-06-30 08:27 - [德国淘汰](http://www.share.minike.top/Article/details/196205829.shtml)
+- 2026-06-30 08:04 - [日本半场1比0领先巴西](http://www.blog.kurohicncr.top/Article/details/50864.shtml)
+- 2026-06-30 08:24 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/089574.shtml)
+- 2026-06-30 08:15 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/4607632.shtml)
+- 2026-06-30 08:07 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/341341.shtml)
+- 2026-06-30 08:09 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/729738.shtml)
+- 2026-06-30 08:16 - [日本领先巴西](http://www.blog.minike.top/Article/details/8546609.shtml)
+- 2026-06-30 08:18 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/128457.shtml)
+- 2026-06-30 08:12 - [杨紫学位证上就是杨紫](http://www.share.minike.top/Article/details/3447560007.shtml)
+- 2026-06-30 08:24 - [千万不要随便扣肚脐](https://www.share.kurohicncr.top/Article/details/1433741.shtml)
+- 2026-06-30 08:20 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.kurohicncr.top/Article/details/274864463443.shtml)
+- 2026-06-30 08:22 - [扬名立万](https://www.share.kurohicncr.top/Article/details/883106.shtml)

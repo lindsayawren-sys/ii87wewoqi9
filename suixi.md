@@ -1,60 +1,57 @@
-# 第十五届中国国际园林博览会开幕在即 中外园林“美美与共”
+# 心向天山 声为人民
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-中新网温州4月8日电(周健)中国国际园林博览会是中国园林绿化行业最有代表性和最具国际影响力的综合性展会。4月8日，浙江省人民政府新闻办公室在该省温州市召开新闻发布会，宣布第十五届中国国际园林博览会(以下简称“园博会”)将于4月15日在温州正式开幕。 本届园博会以“诗画山海·共享绿色生活”为主题，围绕“百姓园博、国际园博、先锋园博、文化园博、全城园博”五大理念，构建起“1个主会场
+人物简介 海米提·买买提，新疆广播电视台记者、主持人。从业15年间，海米提·买买提用一个个鲜活的故事，记录新疆的发展变迁与民生温度；新媒体IP“海米提正能量”全网粉丝超300万，作品累计阅读量超35亿次。海米提·买买提曾获中国播音主持“金声奖”、中国新闻奖等荣誉。4月27日，他被共青团中央、全国青联授予“新时代青年先锋奖”。 “不是打穿天山容易，是天山那头有人民！”不久前，我采
 
 ## 正文
 
-中新网温州4月8日电(周健)中国国际园林博览会是中国园林绿化行业最有代表性和最具国际影响力的综合性展会。
+人物简介 海米提·买买提，新疆广播电视台记者、主持人。
 
-4月8日，浙江省人民政府新闻办公室在该省温州市召开新闻发布会，宣布第十五届中国国际园林博览会(以下简称“园博会”)将于4月15日在温州正式开幕。
+从业15年间，海米提·买买提用一个个鲜活的故事，记录新疆的发展变迁与民生温度；新媒体IP“海米提正能量”全网粉丝超300万，作品累计阅读量超35亿次。
 
-本届园博会以“诗画山海·共享绿色生活”为主题，围绕“百姓园博、国际园博、先锋园博、文化园博、全城园博”五大理念，构建起“1个主会场+13个分会场+49个博览点”以及主会场“1个主题园+34个城市展园+6个主题展区”的展园体系。
+海米提·买买提曾获中国播音主持“金声奖”、中国新闻奖等荣誉。
 
-值得一提的是，34个城市展园中包含了11个国际城市展园，IFLA(国际风景园林师联合会)首次将其主题展园落户中国并永久设立“IFLA国际合作交流中心”，搭建起高端国际交流的固定平台。
+4月27日，他被共青团中央、全国青联授予“新时代青年先锋奖”。
 
-放眼其中，乌兹别克斯坦展园以拼花马赛克外立面勾勒出中亚伊斯兰文化韵味，英国展园以六色交织的外墙瓷砖呈现英伦格调……据悉，乌兹别克斯坦、意大利、英国、法国、荷兰、泰国、加拿大等7个国家的城市展园设计方案，由海外温籍侨团、侨商代表捐赠。
+“不是打穿天山容易，是天山那头有人民！
 
-“温籍华侨积极响应、主动参与，12位侨胞受聘担任国际园博大使，有的6次打‘飞的’回国沟通设计方案，还通过‘越洋视频’实时跟进建设进度。
+”不久前，我采访了新疆导游迪丽努尔·吐尔逊江。
 
-”温州市委副书记、市长张文杰介绍道。
+她的故事让全网看见日新月异的新疆，这份“看见”，也是我不变的追求。
 
-让盛会成果惠及万千百姓，是温州园博会的出发点和落脚点。
+我从事新闻工作15年来，话筒在手中，脚步在基层，初心不曾变。
 
 ## 相关推荐
 
-- 2026-06-30 08:16 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-30 08:21 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-30 08:21 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-30 08:16 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-30 08:05 - [莫兰特转投开拓者效力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-30 08:20 - [郑钦文温网三连败西尼亚科娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-30 08:21 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-30 07:55 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-30 08:01 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
-- 2026-06-30 08:12 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
-- 2026-06-30 08:19 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-30 08:01 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-30 07:59 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-30 08:03 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-30 08:14 - [诺伊尔尽力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-30 08:13 - [世界杯巴拉圭点球淘汰德国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-30 08:14 - [男子在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-30 08:10 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-30 08:29 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-30 08:08 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-30 08:24 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-30 08:09 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-30 08:07 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-30 08:15 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
+- 2026-06-30 08:05 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:22 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.minike.top/Article/details/954202031972.shtml)
-- 2026-06-30 08:04 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/59529.shtml)
-- 2026-06-30 08:17 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/77150.shtml)
-- 2026-06-30 08:17 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/129055.shtml)
-- 2026-06-30 08:07 - [郑钦文温网首轮出局](http://www.blog.minike.top/Article/details/3327801576.shtml)
-- 2026-06-30 07:57 - [日本领先巴西](http://www.blog.kurohicncr.top/Article/details/58516.shtml)
-- 2026-06-30 08:06 - [AI手机进入Agent时代](https://www.blog.kurohicncr.top/Article/details/71927163634.shtml)
-- 2026-06-30 08:18 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/84550309504.shtml)
-- 2026-06-30 07:57 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/765447.shtml)
-- 2026-06-30 08:13 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/70722463.shtml)
-- 2026-06-30 08:19 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/7686419696.shtml)
-- 2026-06-30 08:18 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/027552.shtml)
-- 2026-06-30 07:54 - [杨紫被质疑未使用原名纯属误解](https://www.blog.minike.top/Article/details/66349634.shtml)
-- 2026-06-30 08:13 - [电影抓特务上映11天破亿](http://www.share.minike.top/Article/details/46435.shtml)
-- 2026-06-30 08:10 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/28510625.shtml)
+- 2026-06-30 08:10 - [德国4比5巴拉圭](http://www.share.minike.top/Article/details/597028.shtml)
+- 2026-06-30 08:13 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/87101206.shtml)
+- 2026-06-30 08:08 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/3495250.shtml)
+- 2026-06-30 08:22 - [小娘惹](https://www.share.kurohicncr.top/Article/details/39772382.shtml)
+- 2026-06-30 08:20 - [武磊：巴西队赢的并不轻松](https://www.blog.kurohicncr.top/Article/details/714400833723.shtml)
+- 2026-06-30 08:15 - [莫兰特转投开拓者效力](http://www.share.minike.top/Article/details/582565.shtml)
+- 2026-06-30 08:13 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/255215.shtml)
+- 2026-06-30 08:03 - [毒液2](https://www.share.minike.top/Article/details/6835268.shtml)
+- 2026-06-30 08:12 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/4567553615.shtml)
+- 2026-06-30 08:08 - [有什么好的高中网课推荐吗？](https://www.blog.minike.top/Article/details/959863052.shtml)
+- 2026-06-30 08:06 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/137269.shtml)
+- 2026-06-30 08:16 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/367909048877.shtml)
+- 2026-06-30 08:03 - [日本球迷被强行披上巴西国旗](https://www.blog.minike.top/Article/details/174687.shtml)
+- 2026-06-30 08:26 - [王欣瑜2-1击败科恰雷托](http://www.blog.kurohicncr.top/Article/details/6771816.shtml)
+- 2026-06-30 08:29 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/7960735.shtml)

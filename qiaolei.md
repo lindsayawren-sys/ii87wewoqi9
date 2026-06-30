@@ -1,48 +1,61 @@
-# 石榴数据线｜春意浓、消费热 清明假期新疆消费市场购销两旺
+# BW Offshore锁定BW Catcher FPSO长期续约
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-清明假期，商务部门重点监测的零售、餐饮企业销售额较去年同期增长3.9%。 清明假期，新疆消费市场供需两旺，以旧换新与节庆活动有效激发消费潜力，商旅文体健深度融合，推动消费提质扩容，为经济平稳向好注入强劲动力。 统筹：晁瑾 设计：祁蕾
+挪威浮式油气生产解决方案提供商BW Offshore已与Catcher油田合作伙伴达成协议，修订其BW Catcher浮式生产储卸装置的合同，将协议延长至2030年12月31日，并设有正负六个月的浮动窗口。 修订后的协议取代了此前包含单方面一年期续约选择权的结构，取而代之的是一个明确的合同终止框架。 该公司表示，修订自2026年2月1日起生效，预计将从该日期起增加BW Offs
 
 ## 正文
 
-清明假期，商务部门重点监测的零售、餐饮企业销售额较去年同期增长3.9%。
+挪威浮式油气生产解决方案提供商BW Offshore已与Catcher油田合作伙伴达成协议，修订其BW Catcher浮式生产储卸装置的合同，将协议延长至2030年12月31日，并设有正负六个月的浮动窗口。
 
-清明假期，新疆消费市场供需两旺，以旧换新与节庆活动有效激发消费潜力，商旅文体健深度融合，推动消费提质扩容，为经济平稳向好注入强劲动力。
+修订后的协议取代了此前包含单方面一年期续约选择权的结构，取而代之的是一个明确的合同终止框架。
 
-统筹：晁瑾 设计：祁蕾
+该公司表示，修订自2026年2月1日起生效，预计将从该日期起增加BW Offshore的确定运营现金流积压订单约4.9亿美元。
+
+更新后的结构还为BW Offshore提供了更清晰的合同终止日期，使公司能够积极为这艘FPSO寻找潜在的重新部署机会。
+
+BW Catcher的储油能力为65万桶，日处理能力为6万桶。
+
+该FPSO的设计寿命为20年不间断运行。
+
+BW Offshore首席执行官Marco Beenen表示，公司正在加强BW Catcher的长期商业框架，增加实质性的现金流可见性，同时提高其营销该装置以抓住未来机会的能力。
+
+Catcher FPSO是一艘高规格、适应恶劣环境的资产，使其成为极具价值的可重新部署装置。
 
 ## 相关推荐
 
-- 2026-06-30 07:54 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
-- 2026-06-30 08:03 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-30 07:55 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-30 08:22 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
-- 2026-06-30 08:18 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-30 07:59 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-30 08:00 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
-- 2026-06-30 08:04 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-30 08:02 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-30 08:03 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
-- 2026-06-30 08:09 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
-- 2026-06-30 08:02 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-30 08:02 - [点球大战 残酷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-30 08:15 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-30 08:28 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-30 08:06 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-30 08:16 - [IGN评测电影版后室](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-30 08:21 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-30 08:11 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
+- 2026-06-30 08:20 - [德国进球被吹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-30 08:01 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
+- 2026-06-30 08:01 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-30 08:17 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-30 08:16 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-30 08:08 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-30 08:25 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-30 08:18 - [大蒜晒外面被路过女子连盆端走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:10 - [徐亮怒斥世界杯踢假球](http://www.share.minike.top/Article/details/628513651.shtml)
-- 2026-06-30 08:17 - [德国巴拉圭进入点球大战](http://www.blog.kurohicncr.top/Article/details/73775622055.shtml)
-- 2026-06-30 08:17 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/59532.shtml)
-- 2026-06-30 08:21 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/54098970.shtml)
-- 2026-06-30 08:10 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/038798.shtml)
-- 2026-06-30 07:54 - [中国新一轮出口管制直指日本命脉](https://www.blog.minike.top/Article/details/73200259.shtml)
-- 2026-06-30 08:13 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/26747402691.shtml)
-- 2026-06-30 08:20 - [女子清吧被陌生人投放伟哥](https://www.blog.kurohicncr.top/Article/details/04501.shtml)
-- 2026-06-30 08:01 - [巴西醒醒 这是淘汰赛](http://www.share.kurohicncr.top/Article/details/4158565.shtml)
-- 2026-06-30 08:01 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/937301342602.shtml)
-- 2026-06-30 08:22 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/33243686.shtml)
-- 2026-06-30 08:00 - [郑钦文温网三连败西尼亚科娃](https://www.share.minike.top/Article/details/5436677.shtml)
-- 2026-06-30 08:18 - [泰山景区回应修建刀片刺绳隔离网](http://www.blog.minike.top/Article/details/251687.shtml)
-- 2026-06-30 08:20 - [周冬雨多次说演不了话剧文城](http://www.share.minike.top/Article/details/00794237.shtml)
-- 2026-06-30 08:21 - [【大鸣王潮1566】真拿你没办法](https://www.blog.kurohicncr.top/Article/details/74266464813.shtml)
+- 2026-06-30 08:05 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/44733005.shtml)
+- 2026-06-30 08:23 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/434853964.shtml)
+- 2026-06-30 08:26 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/80459683055.shtml)
+- 2026-06-30 08:00 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/704475496224.shtml)
+- 2026-06-30 08:00 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/012351068681.shtml)
+- 2026-06-30 08:13 - [杨紫获白玉兰视后争议不止](http://www.share.kurohicncr.top/Article/details/3633785695.shtml)
+- 2026-06-30 08:04 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/8378461832.shtml)
+- 2026-06-30 08:03 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/41730359.shtml)
+- 2026-06-30 08:05 - [孙兴慜道歉](http://www.share.minike.top/Article/details/70566.shtml)
+- 2026-06-30 08:14 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/50713716.shtml)
+- 2026-06-30 08:00 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/017974872675.shtml)
+- 2026-06-30 08:05 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/6974244.shtml)
+- 2026-06-30 08:02 - [莫兰特被交易到开拓者](http://www.share.minike.top/Article/details/32197563.shtml)
+- 2026-06-30 08:14 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/168769010765.shtml)
+- 2026-06-30 08:09 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/0617809801.shtml)

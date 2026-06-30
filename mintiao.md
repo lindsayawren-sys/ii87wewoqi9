@@ -1,59 +1,55 @@
-# 靠AI“洗稿”非法获利8万余元 2人因非法经营罪被刑拘
+# 可可西里藏羚羊年度迁徙季开启 同比增加近百只
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-真相来了丨靠AI“洗稿”非法获利8万余元 2人因非法经营罪被刑拘 粉碎谣言，真相来了。人工智能工具的使用，给我们的工作生活带来便利，但也被一些不法分子利用，成为造谣的工具。近日，上海警方公布了多起案例，其中之一就是一个名为医学科学院细胞中心的微信公众号，发布了一则信息，自称跟某家医院合作，可以通过干细胞来治疗肾病，一起来揭开真相。 今年3月初，上海黄浦警方接到一家三甲医院报警称
+中新社西宁5月9日电 (潘雨洁)青海省玉树藏族自治州公安局可可西里自然保护区公安局9日消息，5月7日17时，今年首批158只藏羚羊顶着风雪，于三江源国家公园可可西里管理处五道梁保护站辖区(青藏公路3001至3002公里处)向可可西里腹地迁徙，较去年相比，首批迁徙藏羚羊数量增加近百只。 每年5月，来自青海三江源、西藏羌塘、新疆阿尔金山等地的雌性藏羚羊，集结成群，向位于青海省玉树藏
 
 ## 正文
 
-真相来了丨靠AI“洗稿”非法获利8万余元 2人因非法经营罪被刑拘 粉碎谣言，真相来了。
+中新社西宁5月9日电 (潘雨洁)青海省玉树藏族自治州公安局可可西里自然保护区公安局9日消息，5月7日17时，今年首批158只藏羚羊顶着风雪，于三江源国家公园可可西里管理处五道梁保护站辖区(青藏公路3001至3002公里处)向可可西里腹地迁徙，较去年相比，首批迁徙藏羚羊数量增加近百只。
 
-人工智能工具的使用，给我们的工作生活带来便利，但也被一些不法分子利用，成为造谣的工具。
+每年5月，来自青海三江源、西藏羌塘、新疆阿尔金山等地的雌性藏羚羊，集结成群，向位于青海省玉树藏族自治州的可可西里“羚羊大产房”卓乃湖区域迁徙，7月中下旬产仔结束后再携幼仔返回原栖息地。
 
-近日，上海警方公布了多起案例，其中之一就是一个名为医学科学院细胞中心的微信公众号，发布了一则信息，自称跟某家医院合作，可以通过干细胞来治疗肾病，一起来揭开真相。
+目前栖息在可可西里地区的藏羚羊种群数量达7万多只，其迁徙之路被称为“世界最壮观的有蹄类动物大迁徙之一”。
 
-今年3月初，上海黄浦警方接到一家三甲医院报警称，一个名为医学科学院细胞中心的微信公众号，发布了包含大量不实信息的文章，对该医院声誉造成影响。
+可可西里自然保护区公安局索南达杰生态警务室负责人旦正才旦表示，藏羚羊迁徙季开启后，警方对羊群经过的青藏公路109国道沿线加大巡护频次，实行24小时不间断值守，疏通往来车辆、及时交通管制，加强藏羚羊保护知识科普，减少人类活动对迁徙的干扰。
 
-上海市公安局黄浦分局网安支队民警 郁敏皓：文章说跟某医院有合作，可以通过干细胞来治疗肾脏病，但是经医院反馈，他们在平时的临床过程当中，干细胞是不能用在肾脏病的治疗的。
-
-文章中，不仅编造医学科学院细胞中心与该医院进行合作，还声称该干细胞治疗项目源自国家级医学院，并罗列出多项联合研究疗效评估数据，还附带两名患者的康复案例。
-
-经医院核实，这些信息全部为杜撰。
-
-警方随后依法传唤了该微信公众号的工作人员陈某和蔡某。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 08:23 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-30 08:00 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
-- 2026-06-30 08:20 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
-- 2026-06-30 08:11 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-30 07:56 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-30 07:57 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-30 08:15 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-30 08:03 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
-- 2026-06-30 08:12 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-30 08:02 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-30 08:12 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-30 08:01 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-30 08:13 - [德国4比5巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-30 08:21 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-30 08:06 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-30 08:16 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-30 08:12 - [巴拉圭点球大战淘汰德国进16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-30 08:02 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-30 08:29 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-30 08:05 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-30 08:09 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-30 08:05 - [日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-30 08:26 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-30 08:05 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-30 08:10 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-30 08:25 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-30 08:22 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-30 08:12 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:12 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/4213563374.shtml)
-- 2026-06-30 07:57 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.kurohicncr.top/Article/details/1466464.shtml)
-- 2026-06-30 08:08 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/5214709264.shtml)
-- 2026-06-30 08:17 - [巴西2比1日本](http://www.share.minike.top/Article/details/605205662.shtml)
-- 2026-06-30 08:09 - [严浩翔张峻豪师兄弟同台](http://www.blog.minike.top/Article/details/108064389.shtml)
-- 2026-06-30 08:03 - [如果有二次元高中是什么样子的？](https://www.blog.kurohicncr.top/Article/details/1091188567.shtml)
-- 2026-06-30 07:56 - [刘必安等16人非法集资案二审宣判](https://www.share.kurohicncr.top/Article/details/9387988.shtml)
-- 2026-06-30 08:10 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/23604.shtml)
-- 2026-06-30 07:58 - [点球大战](https://www.share.minike.top/Article/details/301857589.shtml)
-- 2026-06-30 08:15 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/31461.shtml)
-- 2026-06-30 08:08 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/8854148388.shtml)
-- 2026-06-30 08:18 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/811500.shtml)
-- 2026-06-30 08:04 - [哈弗茨头球破门](https://www.share.minike.top/Article/details/3889868.shtml)
-- 2026-06-30 08:11 - [日本博主：日本足球真的垃圾](http://www.share.minike.top/Article/details/1487496.shtml)
-- 2026-06-30 07:57 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.kurohicncr.top/Article/details/91642554707.shtml)
+- 2026-06-30 08:27 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/231162.shtml)
+- 2026-06-30 08:29 - [世界杯巴拉圭点球淘汰德国](https://www.share.minike.top/Article/details/40443914.shtml)
+- 2026-06-30 08:04 - [刘宇宁高情商化解谁站C位](https://www.share.kurohicncr.top/Article/details/364163940.shtml)
+- 2026-06-30 08:05 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/8267713145.shtml)
+- 2026-06-30 08:07 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/57596178.shtml)
+- 2026-06-30 08:03 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/474765842.shtml)
+- 2026-06-30 08:14 - [一生一世](http://www.share.minike.top/Article/details/58140.shtml)
+- 2026-06-30 08:16 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/404834184611.shtml)
+- 2026-06-30 08:04 - [大学生遇地震裹被子从5楼冲下](https://www.blog.minike.top/Article/details/944542857.shtml)
+- 2026-06-30 08:14 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/35272922806.shtml)
+- 2026-06-30 08:14 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/437538.shtml)
+- 2026-06-30 08:09 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/808665356248.shtml)
+- 2026-06-30 08:10 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/741105.shtml)
+- 2026-06-30 08:23 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/84551826739.shtml)
+- 2026-06-30 08:18 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/99260684.shtml)

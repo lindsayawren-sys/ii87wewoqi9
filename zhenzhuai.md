@@ -1,58 +1,59 @@
-# 赣江观澜：江西南昌何以做到“吾心安处是吾乡”
+# 利润消失术！五粮液会计差错更正超100亿元！符合条件股民可预登记索赔
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-中新网南昌4月8日电 (熊锦阳)赣江两岸的骑行道上满是朝气蓬勃的身影，滕王阁的飞檐与红谷滩的高楼隔江相望，勾勒出“英雄城”历史与青春交融的独特轮廓。 作为全国首批青年发展型城市建设试点城市，江西省南昌市始终以“城市对青年更友好，青年在城市更有为”为核心理念，让无数在这里生活、奋斗的青年，真正感受到“吾心安处是吾乡”。 筑底：托举青年安居之愿 “住有所居，心有所安，是一座城市给年
+近日，宜宾五粮液（维权）股份有限公司（以下简称“五粮液”或“公司”）发布《关于前期会计差错更正的公告》，公司对2025年业务模式进行梳理，基于谨慎性原则，调整2025年部分业务收入确认相关核算。上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，于2025年4月26日-2026年4月30日期间买入且有持仓，无论在2026年5月1日及之后是否卖出的
 
 ## 正文
 
-中新网南昌4月8日电 (熊锦阳)赣江两岸的骑行道上满是朝气蓬勃的身影，滕王阁的飞檐与红谷滩的高楼隔江相望，勾勒出“英雄城”历史与青春交融的独特轮廓。
+近日，宜宾五粮液（维权）股份有限公司（以下简称“五粮液”或“公司”）发布《关于前期会计差错更正的公告》，公司对2025年业务模式进行梳理，基于谨慎性原则，调整2025年部分业务收入确认相关核算。
 
-作为全国首批青年发展型城市建设试点城市，江西省南昌市始终以“城市对青年更友好，青年在城市更有为”为核心理念，让无数在这里生活、奋斗的青年，真正感受到“吾心安处是吾乡”。
+上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，于2025年4月26日-2026年4月30日期间买入且有持仓，无论在2026年5月1日及之后是否卖出的投资者，可通过“新浪股民维权平台”自愿预登记索赔。
 
-筑底：托举青年安居之愿 “住有所居，心有所安，是一座城市给年轻人最踏实的底气。
+（赵敬国律师专栏） 回顾本案，2026年4月30日晚上，五粮液公司发布《关于前期会计差错更正的公告》，公司对 2025 年业务模式进行梳理，基于谨慎性原则，调整2025年部分业务收入确认相关核算。
 
-” 今年3月，南昌市新建区“洪漂驿站”正式上线，从赣州来南昌求职的毕业生刘畅对这里的配套设施赞不绝口。
+此次前期会计差错更正涉及 2025 年已披露的一季度、半年度、三季度合并资产负债表与合并利润表的部分项目。
 
-“免费住7天，日常消费、餐饮娱乐、生活服务等配套设施一应俱全。
+对2025年前三季度财务数据颠覆性调整：营收从609.45亿元下调至306.38亿元，归母净利润从215.11亿元砍至64.75亿元——超300亿元营收、150亿元净利一夜“消失”，令股民震惊。
 
-还有专门的就业指导服务，刚到这座城市就感受到了满满的暖意，完全没有异乡漂泊的局促感。
+信本股民索赔团队提醒，五粮液发布会计差错更正，因此受损投资者可通过“新浪股民维权平台”自愿预登记索赔。
 
-” 据了解，为了吸引大学生和技能人才来昌创业就业，南昌市相继建设了一批人才驿站(洪漂驿站)，面向来昌高校(技校)毕业生提供最长3个月的免费住宿服务。
+索赔条件： 五粮液：于2025年4月26日-2026年4月30日期间买入且有持仓，无论在2026年5月1日及之后是否卖出。
 
-这些“洪漂驿站”分布在青山湖区、东湖区、新建区等南昌市各大主城区，为众多来昌就业创业的青年提供了避风港湾。
+（具体赔付范围由法院确定）（五粮液维权入口） （本文由上海市信本律师事务所合伙人赵敬国律师供稿，不代表新浪财经的观点。
 
 ## 相关推荐
 
-- 2026-06-30 08:10 - [日本博主：日本足球真的垃圾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
-- 2026-06-30 08:11 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
-- 2026-06-30 08:21 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
-- 2026-06-30 08:08 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
-- 2026-06-30 08:07 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-30 08:22 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-30 07:59 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-30 07:54 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-30 08:21 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-30 08:15 - [孙颖莎王楚钦晋级8强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
-- 2026-06-30 08:24 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-30 08:14 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-30 08:07 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-30 08:10 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-30 08:16 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-30 08:23 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-30 08:09 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-30 08:29 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-30 08:27 - [网友写差评被店家“挂”门口避雷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-30 08:28 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-30 08:17 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-30 08:25 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-30 08:18 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-30 08:26 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-30 08:07 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:09 - [德国进球被吹](https://www.share.kurohicncr.top/Article/details/91188.shtml)
-- 2026-06-30 07:58 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/60398221677.shtml)
-- 2026-06-30 08:14 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/9486542.shtml)
-- 2026-06-30 08:10 - [巴西绝杀](https://www.blog.minike.top/Article/details/00458.shtml)
-- 2026-06-30 08:16 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.minike.top/Article/details/208121850.shtml)
-- 2026-06-30 08:14 - [恋与深空回应争议](https://www.share.minike.top/Article/details/08819542.shtml)
-- 2026-06-30 08:23 - [库尼亚赛后伸五指嘲讽日本](http://www.share.kurohicncr.top/Article/details/48365.shtml)
-- 2026-06-30 08:16 - [日本球迷被强行披上巴西国旗](https://www.blog.minike.top/Article/details/41838.shtml)
-- 2026-06-30 08:09 - [“柠檬茶能换怀表？”](http://www.share.kurohicncr.top/Article/details/261596.shtml)
-- 2026-06-30 07:58 - [老外对中国cosplay竟这样评价…](http://www.share.kurohicncr.top/Article/details/1402734343.shtml)
-- 2026-06-30 07:57 - [湖南祁东原文化馆被指贱卖](https://www.share.minike.top/Article/details/573681453622.shtml)
-- 2026-06-30 08:20 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/7748904930.shtml)
-- 2026-06-30 08:04 - [曝詹姆斯即将与勇士会面](https://www.blog.minike.top/Article/details/89598.shtml)
-- 2026-06-30 08:10 - [网瘾賊大的阿嬷](http://www.blog.minike.top/Article/details/92234.shtml)
-- 2026-06-30 08:02 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/646289.shtml)
+- 2026-06-30 08:18 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/364359.shtml)
+- 2026-06-30 08:28 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/179560389.shtml)
+- 2026-06-30 08:03 - [大学生遇地震裹被子从5楼冲下](https://www.blog.minike.top/Article/details/269688701777.shtml)
+- 2026-06-30 08:01 - [豆包收费了，你还会用吗？](https://www.blog.minike.top/Article/details/9823576.shtml)
+- 2026-06-30 08:01 - [日本球员说被绝杀非常不甘心](http://www.blog.kurohicncr.top/Article/details/002147.shtml)
+- 2026-06-30 08:22 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/1796394513.shtml)
+- 2026-06-30 08:15 - [德国巴拉圭 折磨](https://www.share.minike.top/Article/details/89359.shtml)
+- 2026-06-30 08:24 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/20453325.shtml)
+- 2026-06-30 08:20 - [世界杯巴拉圭点球淘汰德国](https://www.share.kurohicncr.top/Article/details/13142083401.shtml)
+- 2026-06-30 08:07 - [恋与深空制作组回应近期争议](http://www.blog.kurohicncr.top/Article/details/56526134.shtml)
+- 2026-06-30 08:03 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](http://www.share.kurohicncr.top/Article/details/30942.shtml)
+- 2026-06-30 08:05 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/61569866.shtml)
+- 2026-06-30 08:18 - [张雪的一句“是我们”引发岛内热议](https://www.share.minike.top/Article/details/353252998809.shtml)
+- 2026-06-30 08:23 - [德国巴拉圭 折磨](http://www.share.minike.top/Article/details/63152708.shtml)
+- 2026-06-30 08:13 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/75525225.shtml)

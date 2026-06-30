@@ -1,49 +1,57 @@
-# 中国国务院国资委成立境外国资工作局
+# 贝恩成鑫发布《未来已来，智驱新程——全球人形机器人产业趋势洞察》报告
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-中新社北京4月8日电 中国国务院国资委8日消息，国务院国资委新设境外国资工作局。 国务院国资委官网信息显示，境外国资工作局指导所监管企业国际化经营和境外资产布局优化、结构调整，承担所监管企业境外资产监督有关工作，加强境外投资经营等方面风险防范化解，承担境外突发事件和危机处理有关工作。(完)
+专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日在北京举行。贝恩公司全球合伙人大中华区高科技业务主席成鑫出席并发布报告。 以下为演讲实录： 成鑫：我围绕今天下午的主题，更多的想要从产业的角度来谈一谈他们对具身智能落地应用的一些看法。包括他们在问一些什么样的问题？包括我们在建议他们在思考什么样的维度？主要是从这个角度来跟大家做一个交
 
 ## 正文
 
-中新社北京4月8日电 中国国务院国资委8日消息，国务院国资委新设境外国资工作局。
+专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日在北京举行。
 
-国务院国资委官网信息显示，境外国资工作局指导所监管企业国际化经营和境外资产布局优化、结构调整，承担所监管企业境外资产监督有关工作，加强境外投资经营等方面风险防范化解，承担境外突发事件和危机处理有关工作。
+贝恩公司全球合伙人大中华区高科技业务主席成鑫出席并发布报告。
 
-(完)
+以下为演讲实录： 成鑫：我围绕今天下午的主题，更多的想要从产业的角度来谈一谈他们对具身智能落地应用的一些看法。
+
+包括他们在问一些什么样的问题？
+
+包括我们在建议他们在思考什么样的维度？
+
+主要是从这个角度来跟大家做一个交流。
+
+我很快来说一说，贝恩这家公司是一个全球性的公司，我们一直在关注具身智能和人形机器人的发展，过去的这1-2年的时间，我们从几个维度一直在关注这个事情。
+
+第一个维度是围绕不同的国家和区域产业的发展趋势和特点，这里面主要就是包括中国和美国以及欧洲这3个部分。
 
 ## 相关推荐
 
-- 2026-06-30 08:01 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
-- 2026-06-30 08:05 - [德国进球被吹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-30 08:23 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-30 08:03 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-30 08:16 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-30 08:23 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
-- 2026-06-30 08:18 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-30 08:12 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-30 07:57 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-30 08:14 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-30 07:58 - [日本队5进世界杯淘汰赛0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-30 08:23 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-30 07:55 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-30 08:25 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-30 08:04 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-30 08:21 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
+- 2026-06-30 08:16 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
+- 2026-06-30 08:15 - [日本博主：日本足球真的垃圾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-30 08:12 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-30 08:20 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-30 08:12 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-30 08:01 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-30 08:04 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
+- 2026-06-30 08:17 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:20 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/8834414.shtml)
-- 2026-06-30 08:08 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/13356858.shtml)
-- 2026-06-30 07:57 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/90530.shtml)
-- 2026-06-30 08:16 - [巴拉圭率先破门](http://www.share.kurohicncr.top/Article/details/7525413.shtml)
-- 2026-06-30 07:55 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/50073967.shtml)
-- 2026-06-30 08:16 - [一生一世](https://www.share.kurohicncr.top/Article/details/727856.shtml)
-- 2026-06-30 08:19 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/44101646236.shtml)
-- 2026-06-30 07:59 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/4180877.shtml)
-- 2026-06-30 08:03 - [高考填志愿父亲和女儿产生分歧](http://www.share.minike.top/Article/details/649739.shtml)
-- 2026-06-30 08:16 - [国务院：探索延长义务教育年限](http://www.blog.kurohicncr.top/Article/details/4585176153.shtml)
-- 2026-06-30 08:15 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/7557718883.shtml)
-- 2026-06-30 08:02 - [武磊：日本队有能力跟任何强队抗衡](https://www.blog.minike.top/Article/details/75776017.shtml)
-- 2026-06-30 08:22 - [王欣瑜2-1击败科恰雷托](https://www.blog.kurohicncr.top/Article/details/4200056459.shtml)
-- 2026-06-30 08:16 - [网瘾賊大的阿嬷](http://www.blog.minike.top/Article/details/7323253593.shtml)
-- 2026-06-30 08:23 - [恋与深空道歉声明](http://www.share.minike.top/Article/details/925895514047.shtml)
+- 2026-06-30 08:27 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://www.share.minike.top/Article/details/5492481.shtml)
+- 2026-06-30 08:07 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/31634.shtml)
+- 2026-06-30 08:07 - [免费试吃发差评被店家挂店门避雷](http://www.blog.kurohicncr.top/Article/details/78012503335.shtml)
+- 2026-06-30 08:10 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/2472891.shtml)
+- 2026-06-30 08:04 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.minike.top/Article/details/2954797.shtml)
+- 2026-06-30 08:26 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/89203170764.shtml)
+- 2026-06-30 08:10 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/217746859187.shtml)
+- 2026-06-30 08:01 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/4691048084.shtml)
+- 2026-06-30 08:02 - [巴拉圭进球](http://www.share.minike.top/Article/details/652914010.shtml)
+- 2026-06-30 08:24 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/02941389.shtml)
+- 2026-06-30 08:20 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/141553849393.shtml)
+- 2026-06-30 08:21 - [王健林甩卖超80座万达广场](http://www.blog.minike.top/Article/details/823881.shtml)
+- 2026-06-30 08:00 - [卢卡申科发布解放军仪仗队视频](http://www.blog.kurohicncr.top/Article/details/899567.shtml)
+- 2026-06-30 08:29 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/295321060.shtml)
+- 2026-06-30 08:14 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/844704564033.shtml)

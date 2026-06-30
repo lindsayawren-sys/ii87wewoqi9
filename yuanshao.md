@@ -1,54 +1,60 @@
-# 埃斯顿盘中涨近12% 今起正式进入港股通标的
+# 科蓝软件（300663）遭证监会立案调查，受损股民可索赔
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-埃斯顿（02715）盘中涨近12%，截至发稿，股价上涨7.08%，现报12.70港元，成交额2680.73万港元。 上交所、深交所发布公告称，因埃斯顿在香港市场价格稳定期结束且相应A股上市满10个交易日，根据有关规定，港股通标的证券名单发生调整并自2026年4月8日起生效，调入埃斯顿。 东吴证券指，截至2025年，公司连续8年位列国产机器人市场第一。根据MIR睿工业最新数据统计
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年4月30日晚间，科蓝软件（维权）发布公告称，公司于近日收到中国证券监督管理委员会《立案告知书》（编号：证监立案字0142026022号），因涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，中国证监会决定对公司进行立案调查。 2026年5月6日（节后首个交易日），受立案调查消息冲
 
 ## 正文
 
-埃斯顿（02715）盘中涨近12%，截至发稿，股价上涨7.08%，现报12.70港元，成交额2680.73万港元。
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年4月30日晚间，科蓝软件（维权）发布公告称，公司于近日收到中国证券监督管理委员会《立案告知书》（编号：证监立案字0142026022号），因涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，中国证监会决定对公司进行立案调查。
 
-上交所、深交所发布公告称，因埃斯顿在香港市场价格稳定期结束且相应A股上市满10个交易日，根据有关规定，港股通标的证券名单发生调整并自2026年4月8日起生效，调入埃斯顿。
+2026年5月6日（节后首个交易日），受立案调查消息冲击，科蓝软件开盘即封“一字”跌停板，当日跌幅达19.97%，大量投资者遭受损失。
 
-东吴证券指，截至2025年，公司连续8年位列国产机器人市场第一。
+上海百悦律师事务所牛彬律师表示，科蓝软件遭证监会立案，投资者或可索赔。
 
-根据MIR睿工业最新数据统计，2025年公司工业机器人在中国出货量首次超越外资品牌，成为位列中国工业机器人市场首位的国产机器人品牌，市场份额进一步提升，并在汽车、电子、锂电等应用领域实现快速增长。
+暂定：于2021年4月27日至2026年4月30日期间买入科蓝软件，且在2026年5月1日之后卖出或继续持有该股票的亏损投资者符合索赔条件。
 
-责任编辑：卢昱君
+（科蓝软件维权入口） 索赔材料 一、买卖科蓝软件（300663）股票的对账单原件 （1）对账单原件需要加盖证券公司营业部印章； （2）对账单从第一次买入科蓝软件（300663）股票开始打到打印日当天，所有该股票的交易记录，目前仍持有该股票的投资者还须显示剩余持股总数。
+
+二、投资者身份证正反面复印件； 三、证券公司营业部出具的证券账户查询单。
+
+牛彬律师声明（牛彬律师专栏） 上述预登记条件仅供参考，不涉及任何投资决策和证券买卖建议。
+
+索赔条件将根据证监会调查结论进一步调整，最终以法院认定为准。
 
 ## 相关推荐
 
-- 2026-06-30 08:20 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-30 08:22 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-30 08:07 - [日本五次世界杯淘汰赛全败](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
-- 2026-06-30 08:11 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-30 08:22 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-30 08:19 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
-- 2026-06-30 08:17 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
-- 2026-06-30 08:11 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-30 07:58 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-30 07:59 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-30 08:09 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-30 08:19 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
-- 2026-06-30 08:23 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-30 08:07 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-30 08:09 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
+- 2026-06-30 08:08 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-30 08:09 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
+- 2026-06-30 08:24 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-30 08:25 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-30 08:10 - [点球大战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-30 08:05 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-30 08:20 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-30 08:22 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-30 08:11 - [点球大战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-30 08:16 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
+- 2026-06-30 08:05 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-30 08:08 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-30 08:28 - [巴西绝杀日本：漫画般结局换了主角](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:20 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/83808.shtml)
-- 2026-06-30 08:06 - [田中碧失误](https://www.share.kurohicncr.top/Article/details/6929320219.shtml)
-- 2026-06-30 07:56 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/172808703490.shtml)
-- 2026-06-30 08:19 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/67290722629.shtml)
-- 2026-06-30 08:00 - [巴西醒醒 这是淘汰赛](http://www.blog.minike.top/Article/details/761705434615.shtml)
-- 2026-06-30 08:06 - [千香](http://www.blog.kurohicncr.top/Article/details/6408543807.shtml)
-- 2026-06-30 08:15 - [老外对中国cosplay竟这样评价…](http://www.blog.kurohicncr.top/Article/details/462852529.shtml)
-- 2026-06-30 08:13 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/0203922.shtml)
-- 2026-06-30 08:10 - [杨紫被质疑未使用原名纯属误解](http://www.blog.kurohicncr.top/Article/details/3288821398.shtml)
-- 2026-06-30 08:07 - [网瘾賊大的阿嬷](https://www.blog.minike.top/Article/details/77934759391.shtml)
-- 2026-06-30 08:13 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/882951.shtml)
-- 2026-06-30 08:11 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/0997105.shtml)
-- 2026-06-30 07:56 - [委内瑞拉地震死亡人数升至1719人](https://www.blog.kurohicncr.top/Article/details/11638636.shtml)
-- 2026-06-30 08:11 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/64936032.shtml)
-- 2026-06-30 07:56 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/84791.shtml)
+- 2026-06-30 08:09 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://www.blog.minike.top/Article/details/453635.shtml)
+- 2026-06-30 08:17 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/40980176.shtml)
+- 2026-06-30 08:27 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/28995587867.shtml)
+- 2026-06-30 08:29 - [Melo向柳智敏张元英道歉](http://www.blog.minike.top/Article/details/111006429.shtml)
+- 2026-06-30 08:10 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/11769.shtml)
+- 2026-06-30 08:20 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/09425571.shtml)
+- 2026-06-30 08:18 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/699016865.shtml)
+- 2026-06-30 08:27 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/37323522273.shtml)
+- 2026-06-30 08:18 - [IGN评测电影版后室](https://www.blog.minike.top/Article/details/2914061361.shtml)
+- 2026-06-30 08:09 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/989858528.shtml)
+- 2026-06-30 08:12 - [日本领先巴西](https://www.blog.kurohicncr.top/Article/details/877639763.shtml)
+- 2026-06-30 08:03 - [巴西绝杀](https://www.share.kurohicncr.top/Article/details/914248650.shtml)
+- 2026-06-30 08:17 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/690734071.shtml)
+- 2026-06-30 08:25 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/7911360937.shtml)
+- 2026-06-30 08:25 - [有酒店推行24小时退房制](http://www.share.kurohicncr.top/Article/details/3870921916.shtml)

@@ -1,46 +1,60 @@
-# 视频|李大霄：停火协议达成 全球暴力反弹
+# 国防部：“航母五件套”是人民海军加速转型建设重要成果
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！责任编辑：石秀珍 SF183
+5月9日下午，国防部新闻局副局长、国防部新闻发言人蒋斌大校就近期涉军问题发布消息。 记者：据报道，随着多型新式战机列装，人民海军成功配齐隐身舰载战斗机、多用途弹射舰载战斗机、固定翼舰载预警机、固定翼电子战机和反潜直升机等“航母五件套”。请问对此有何评论？ 蒋斌：感谢大家对中国海军发展建设的关注。关于媒体所说的“航母五件套”，这是形成航母编队体系作战能力的重要一环，也是人民海军加
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+5月9日下午，国防部新闻局副局长、国防部新闻发言人蒋斌大校就近期涉军问题发布消息。
 
-责任编辑：石秀珍 SF183
+记者：据报道，随着多型新式战机列装，人民海军成功配齐隐身舰载战斗机、多用途弹射舰载战斗机、固定翼舰载预警机、固定翼电子战机和反潜直升机等“航母五件套”。
+
+请问对此有何评论？
+
+蒋斌：感谢大家对中国海军发展建设的关注。
+
+关于媒体所说的“航母五件套”，这是形成航母编队体系作战能力的重要一环，也是人民海军加速转型建设的重要成果。
+
+建设一支强大的人民海军，寄托着中华民族向海图强的世代夙愿，是实现中华民族伟大复兴的重要保障。
+
+进入新时代，在党中央、中央军委和习主席坚强领导下，人民海军现代化建设步伐愈发坚实有力，从空中到水下，从近海到远洋，各型武器平台种类、功能不断完善，实现跨越式发展、创新性突破，为捍卫国家主权、安全、发展利益提供更强有力的保障。
+
+中国海军始终秉持海洋命运共同体理念，无论是亚丁湾护航、国际人道主义救援，还是医院船执行“和谐使命”任务，实践证明，一支强大的中国海军始终是世界的和平之锚、合作之桥。
 
 ## 相关推荐
 
-- 2026-06-30 08:06 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-30 08:09 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-30 08:07 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-30 07:55 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-30 08:12 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-30 08:01 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-30 08:21 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-30 08:09 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-30 08:23 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-30 08:12 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-30 07:57 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
-- 2026-06-30 07:56 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-30 08:29 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-30 08:18 - [日本五次世界杯淘汰赛全败](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-30 08:07 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-30 08:23 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-30 08:01 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-30 08:17 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-30 08:06 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-30 08:27 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-30 08:28 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
+- 2026-06-30 08:19 - [勇士续约波尔津吉斯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-30 08:06 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-30 08:17 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-30 08:06 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-30 08:04 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:08 - [德国巴拉圭加时](http://www.share.kurohicncr.top/Article/details/26025096764.shtml)
-- 2026-06-30 08:02 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/1997476.shtml)
-- 2026-06-30 08:04 - [国务院：探索延长义务教育年限](https://www.share.minike.top/Article/details/098253764223.shtml)
-- 2026-06-30 08:08 - [刘必安等16人非法集资案二审宣判](https://www.blog.kurohicncr.top/Article/details/7177049.shtml)
-- 2026-06-30 08:03 - [明星大侦探第四季](http://www.share.minike.top/Article/details/17513209.shtml)
-- 2026-06-30 08:14 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/630596077.shtml)
-- 2026-06-30 08:20 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/65436.shtml)
-- 2026-06-30 08:00 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/81643426.shtml)
-- 2026-06-30 08:12 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/3077642.shtml)
-- 2026-06-30 07:54 - [现在叛逆期的孩子最怕的是什么？](http://www.share.kurohicncr.top/Article/details/633879355623.shtml)
-- 2026-06-30 08:03 - [问心2神一集鬼三集](https://www.share.kurohicncr.top/Article/details/506522.shtml)
-- 2026-06-30 08:22 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/79547980.shtml)
-- 2026-06-30 07:55 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/2573068652.shtml)
-- 2026-06-30 08:05 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/78901.shtml)
-- 2026-06-30 08:08 - [恋与深空道歉声明](https://www.share.minike.top/Article/details/09449490078.shtml)
+- 2026-06-30 08:20 - [巴西足球能否再现昔日荣光](https://www.blog.minike.top/Article/details/72609.shtml)
+- 2026-06-30 08:16 - [急先锋](http://www.blog.kurohicncr.top/Article/details/5441734547.shtml)
+- 2026-06-30 08:27 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.minike.top/Article/details/559299.shtml)
+- 2026-06-30 08:04 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/616482098.shtml)
+- 2026-06-30 08:09 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/37712883.shtml)
+- 2026-06-30 08:19 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/54914172.shtml)
+- 2026-06-30 08:24 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/9485516.shtml)
+- 2026-06-30 08:00 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/037906054203.shtml)
+- 2026-06-30 08:09 - [泰山景区回应修建刀片刺绳隔离网](https://www.blog.minike.top/Article/details/92146194247.shtml)
+- 2026-06-30 08:02 - [日本淘汰](https://www.blog.kurohicncr.top/Article/details/483854122618.shtml)
+- 2026-06-30 08:04 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/324464182334.shtml)
+- 2026-06-30 08:16 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.minike.top/Article/details/2130831501.shtml)
+- 2026-06-30 08:24 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/691553.shtml)
+- 2026-06-30 08:16 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/118247715808.shtml)
+- 2026-06-30 08:26 - [巴西扳平比分](https://www.share.kurohicncr.top/Article/details/09909877790.shtml)

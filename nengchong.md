@@ -1,57 +1,60 @@
-# 地缘脉冲触发超跌修复，金银短线强势反弹
+# 北京人形机器人唐剑：全面提升机器人的泛化能力
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-21世纪经济报道记者 冯紫彤 4月8日，在国际地缘政治局势催化下，贵金属价格重拾涨势。 截至4月8日下午3时，Wind数据显示，伦敦现货黄金报每盎司4809.8美元，日内上涨2.31%；纽约期金（COMEX黄金）报4861.0美元/盎司，大涨3.76%，盘中最高上探至4888美元/盎司；上海黄金交易所AU9999报价1058.5元/克，日内涨30元、涨幅近3%。 白银表现更为抢
+专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日在北京举行。北京人形机器人创新中心有限公司CTO唐剑出席并演讲。 以下为演讲实录： 唐剑：今天非常荣幸代表北京人形机器人创新中心和大家分享一下我们在开源开放方面的工作。 基本上我的所有分享都是以莫拉维克悖论为开端，这是一个广泛认知的悖论，所谓悖论就是反常识，莫拉维克悖论原话我放在上面
 
 ## 正文
 
-21世纪经济报道记者 冯紫彤 4月8日，在国际地缘政治局势催化下，贵金属价格重拾涨势。
+专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日在北京举行。
 
-截至4月8日下午3时，Wind数据显示，伦敦现货黄金报每盎司4809.8美元，日内上涨2.31%；纽约期金（COMEX黄金）报4861.0美元/盎司，大涨3.76%，盘中最高上探至4888美元/盎司；上海黄金交易所AU9999报价1058.5元/克，日内涨30元、涨幅近3%。
+北京人形机器人创新中心有限公司CTO唐剑出席并演讲。
 
-白银表现更为抢眼，伦敦现货白银报每盎司76.9美元，日内涨幅超5%；纽约期银（COMEX 白银）报77.74美元/盎司，单日大涨7.98%。
+以下为演讲实录： 唐剑：今天非常荣幸代表北京人形机器人创新中心和大家分享一下我们在开源开放方面的工作。
 
-“前几天还在担心金价会继续回调，没想到一天就涨回来了。
+基本上我的所有分享都是以莫拉维克悖论为开端，这是一个广泛认知的悖论，所谓悖论就是反常识，莫拉维克悖论原话我放在上面，最简单的解读，人和机器是反着的，很多任务人觉得比较简单，但是机器觉得很复杂，反之亦然，这就是为什么机器已经把很复杂的任务，像下围棋给攻破了，但是一些简单的像2、3岁孩童能够做的开门、关门，一些简单的家务工作现在目前机器人还无法做。
 
-”一位个人投资者告诉记者，他在4月7日以每克1030元左右的价格补仓了10克积存金，不到24小时浮盈已超3%。
+最核心的痛点问题就是，我这边有三页，总而言之就是泛化能力，现在整个具身智能行业解决最核心的问题就是全面提升机器人以及这些具身智能设备的泛化能力，之前机器人在上世纪50年代就已经出现了，当然形态各方面还在演进，即便到目前为止，还是存在场景演化能力差、任务泛化能力差，以及本体泛化能力差，这些痛点问题。
 
-短期来看，美伊停火消息是金价反弹的直接催化剂。
+总而言之，基本上我们要解决在某一个场景下的一个任务，我们需要专门的某种机器人的本体，针对这个本体专门写一个程序，这个程序只能控制机器人在特定的场景下完成特定的任务。
 
-长期而言，地缘风险常态化、美元信用受损、全球央行购金潮等多重因素持续为金价提供支撑。
+现在大家说具身智能或者人形机器人特别火，主要大家在解决的问题就是通用性的问题，和AI是一样的，AI大家说目标就是AGI，这个G就是general的意思，整个具身智能也是为了全面提升机器人的泛化能力。
 
-最新数据显示，中国人民银行已连续第十七个月增持黄金，3月加量买入创近十三个月新高。
+我们创新中心基本上从创立之初，就定下了2个目标、2个任务或者2个产品也好，因为我们自己定位是一个平台型的生态公司，我们主要是希望服务整个具身智能应用以及人形机器人行业的这些开发者，帮助他们开发出能够赋能千行百业进入千家百户的机器人产品，所以我们公司的两个主要产品一个是具身天工，这是一个通用形态的人形机器人，还有慧思开物，我们基本上一直做这两件事情，不断迭代升级，下面跟大家分享一下最新的进展，特别是我们在开源开放方面的一些工作。
 
 ## 相关推荐
 
-- 2026-06-30 08:20 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-30 08:10 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-30 08:13 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-30 08:23 - [萨内 看笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-30 08:04 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
-- 2026-06-30 07:54 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
-- 2026-06-30 08:11 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-30 08:22 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-30 07:59 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-30 08:22 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-30 08:15 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-30 08:07 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-30 08:00 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-30 08:06 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
+- 2026-06-30 08:16 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-30 08:27 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-30 08:24 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-30 08:20 - [男子在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-30 08:07 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-30 08:24 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-30 08:16 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-30 08:10 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-30 08:27 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-30 08:17 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-30 08:19 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:06 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/1242489774.shtml)
-- 2026-06-30 07:59 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.share.kurohicncr.top/Article/details/53536.shtml)
-- 2026-06-30 07:57 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/34228.shtml)
-- 2026-06-30 07:56 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](http://www.blog.minike.top/Article/details/182481878870.shtml)
-- 2026-06-30 07:57 - [点球大战 残酷](https://www.blog.minike.top/Article/details/825846956918.shtml)
-- 2026-06-30 08:22 - [吴易昺不敌德约科维奇 止步温网首轮](http://www.blog.kurohicncr.top/Article/details/96943635.shtml)
-- 2026-06-30 08:15 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/2324928912.shtml)
-- 2026-06-30 08:02 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.kurohicncr.top/Article/details/33975133.shtml)
-- 2026-06-30 07:57 - [巴西把自己踢晕了](http://www.share.minike.top/Article/details/7036762.shtml)
-- 2026-06-30 08:21 - [日本球迷被强行披上巴西国旗](https://www.share.minike.top/Article/details/3761918022.shtml)
-- 2026-06-30 08:10 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/957385.shtml)
-- 2026-06-30 08:18 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/547190156.shtml)
-- 2026-06-30 07:56 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/28064675.shtml)
-- 2026-06-30 08:09 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/3515739.shtml)
-- 2026-06-30 08:15 - [德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/94441333.shtml)
+- 2026-06-30 08:02 - [卡塞米罗头球破门](http://www.share.minike.top/Article/details/225707327.shtml)
+- 2026-06-30 08:09 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/14706917.shtml)
+- 2026-06-30 08:24 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](https://www.share.kurohicncr.top/Article/details/17742163547.shtml)
+- 2026-06-30 08:16 - [《共患难》](http://www.blog.minike.top/Article/details/0341812.shtml)
+- 2026-06-30 08:04 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.kurohicncr.top/Article/details/7287402795.shtml)
+- 2026-06-30 08:18 - [周生如故](https://www.blog.minike.top/Article/details/17551564.shtml)
+- 2026-06-30 08:28 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/884316.shtml)
+- 2026-06-30 08:14 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.kurohicncr.top/Article/details/31072780404.shtml)
+- 2026-06-30 08:28 - [孙兴慜道歉](https://www.blog.kurohicncr.top/Article/details/4025251890.shtml)
+- 2026-06-30 08:19 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/2104311.shtml)
+- 2026-06-30 08:03 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/107116162.shtml)
+- 2026-06-30 08:09 - [DeepSeek V4正式版要来了](http://www.blog.minike.top/Article/details/31368685238.shtml)
+- 2026-06-30 08:04 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/851266533099.shtml)
+- 2026-06-30 08:04 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/9546045553.shtml)
+- 2026-06-30 08:28 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/78022799609.shtml)

@@ -1,54 +1,56 @@
-# 美国副总统万斯周三承认，此次停火仍是“脆弱的休战”
+# 港股本周收盘站稳26000点 腾讯、阿里、京东季度业绩成市场焦点
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-美国副总统 JD・万斯周三承认，此次停火仍是 “脆弱的休战”。 万斯在布达佩斯发表讲话时，对伊朗官员宣称取得胜利的说法提出异议，称部分言论 “在协议性质上基本是在撒谎”。 美伊双方预计很快将启动谈判，以争取延长停火期限。 万斯还透露，特朗普总统前一晚曾对他表示：“伊朗人谈判比打仗更在行。”责任编辑：郭明煜
+中新社香港5月8日电 (记者 戴小橦)港股市场近日企稳回升，香港恒生指数8日收报26393.71点，站稳26000点关口；恒生科技指数当天收于5102.79点。 回顾全周，香港恒生指数累计上涨2.39%，恒生科技指数累计涨幅达4.75%，大型科技股成为拉动大盘上行的重要动力。 下周港股科技板块将迎来密集业绩披露期，腾讯控股、阿里巴巴、京东集团等头部平台企业陆续公布季度业绩，市场
 
 ## 正文
 
-美国副总统 JD・万斯周三承认，此次停火仍是 “脆弱的休战”。
+中新社香港5月8日电 (记者 戴小橦)港股市场近日企稳回升，香港恒生指数8日收报26393.71点，站稳26000点关口；恒生科技指数当天收于5102.79点。
 
-万斯在布达佩斯发表讲话时，对伊朗官员宣称取得胜利的说法提出异议，称部分言论 “在协议性质上基本是在撒谎”。
+回顾全周，香港恒生指数累计上涨2.39%，恒生科技指数累计涨幅达4.75%，大型科技股成为拉动大盘上行的重要动力。
 
-美伊双方预计很快将启动谈判，以争取延长停火期限。
+下周港股科技板块将迎来密集业绩披露期，腾讯控股、阿里巴巴、京东集团等头部平台企业陆续公布季度业绩，市场预判三家企业盈利表现将明显分化。
 
-万斯还透露，特朗普总统前一晚曾对他表示：“伊朗人谈判比打仗更在行。
+高歌证券金融首席分析师聂振邦表示，港股进入大型科技股业绩披露窗口期，有望持续吸引增量资金布局。
 
-”责任编辑：郭明煜
+他认为，若香港恒生指数能够连续两日收市站稳在26500点上方，本月大盘有望进一步挑战27000点整数关口。
+
+奕丰环球市场(iFAST Global Markets)投资总监温钢城表示，市场普遍预期腾讯控股、阿里巴巴、京东集团三家科技企业仍将持续加大人工智能领域投资，后续将重点观察各家核心业务增长韧性，以及管理层对公司未来发展前景的战略解读。
+
+展望港股后市，渣打银行认为，行情走势或将主要受中东局势牵动，整体呈现“先跌后升”格局。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 08:19 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
-- 2026-06-30 08:02 - [《共患难》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-30 07:54 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
-- 2026-06-30 07:58 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
-- 2026-06-30 07:57 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-30 08:12 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
-- 2026-06-30 08:12 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-30 08:16 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-30 08:16 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-30 08:01 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-30 08:01 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-30 08:18 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
-- 2026-06-30 07:57 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-30 08:03 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
+- 2026-06-30 08:12 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
+- 2026-06-30 08:20 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-30 08:24 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-30 08:12 - [索马里女大使：想和中国一起搞事业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-30 08:29 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-30 08:24 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
+- 2026-06-30 08:04 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-30 08:28 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
+- 2026-06-30 08:21 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-30 08:15 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:56 - [勇士续约波尔津吉斯](https://www.blog.kurohicncr.top/Article/details/3898554651.shtml)
-- 2026-06-30 08:14 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/694529594582.shtml)
-- 2026-06-30 08:21 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/26967.shtml)
-- 2026-06-30 07:55 - [女子健身不当 居然“脑子漏水”了](http://www.share.kurohicncr.top/Article/details/67735400.shtml)
-- 2026-06-30 08:18 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/1719882.shtml)
-- 2026-06-30 08:11 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/082865727396.shtml)
-- 2026-06-30 08:07 - [王灿兮被烫伤两年后维权成功](http://www.blog.minike.top/Article/details/6386499.shtml)
-- 2026-06-30 08:11 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/13858360.shtml)
-- 2026-06-30 08:22 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/6362934.shtml)
-- 2026-06-30 08:19 - [“草莓月亮”浪漫现身](http://www.blog.kurohicncr.top/Article/details/025495033.shtml)
-- 2026-06-30 08:20 - [巴西绝杀日本：漫画般结局换了主角](https://www.blog.kurohicncr.top/Article/details/13765.shtml)
-- 2026-06-30 08:11 - [花少8要去世界杯举办国](https://www.share.kurohicncr.top/Article/details/7476455.shtml)
-- 2026-06-30 08:21 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/572368501.shtml)
-- 2026-06-30 08:10 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.kurohicncr.top/Article/details/68598.shtml)
-- 2026-06-30 08:07 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/1267710303.shtml)
+- 2026-06-30 08:15 - [德国 传控](https://www.blog.kurohicncr.top/Article/details/626494775.shtml)
+- 2026-06-30 08:20 - [曝灰熊将莫兰特交易至开拓者](http://www.share.kurohicncr.top/Article/details/65929.shtml)
+- 2026-06-30 08:14 - [Melo向柳智敏张元英道歉](https://www.share.minike.top/Article/details/311154803961.shtml)
+- 2026-06-30 08:11 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/208392623537.shtml)
+- 2026-06-30 08:15 - [日本五次世界杯淘汰赛全败](https://www.share.minike.top/Article/details/1622923570.shtml)
+- 2026-06-30 08:04 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/43521.shtml)
+- 2026-06-30 08:27 - [毒液2](http://www.share.minike.top/Article/details/4260449.shtml)
+- 2026-06-30 08:28 - [日本遭读秒绝杀 森保一：我水平不够](http://www.share.minike.top/Article/details/46294516.shtml)
+- 2026-06-30 08:07 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/39297.shtml)
+- 2026-06-30 08:08 - [时光音乐会](https://www.share.minike.top/Article/details/272655.shtml)
+- 2026-06-30 08:03 - [恋与深空道歉声明](http://www.share.kurohicncr.top/Article/details/75469.shtml)
+- 2026-06-30 08:04 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.kurohicncr.top/Article/details/61239020.shtml)
+- 2026-06-30 08:24 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/10462321.shtml)
+- 2026-06-30 08:28 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.kurohicncr.top/Article/details/0895324.shtml)
+- 2026-06-30 08:22 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/20878523.shtml)

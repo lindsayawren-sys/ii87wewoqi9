@@ -1,61 +1,59 @@
-# 花旗集团表示，人工智能有助于加快账户开设与系统升级速度
+# 韩国检方破获10人股票操纵团伙，非法获利至少14亿韩元
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-美国花旗集团首席技术官蒂姆・瑞安表示，该行正运用人工智能加快账户开设流程并推进老旧软件系统淘汰，以此提升运营效率。 美国各大银行正积极拥抱人工智能这一继互联网之后全球经济最大的技术变革，借此提高生产力，部分情况下还会削减岗位。 瑞安在接受采访时表示：“我们仍有遗留系统，但在完成一系列技术投资后，目前的状况已有大幅改善。人工智能助力实现遗留系统数据迁移、代码自动化，并能更全面、更
+韩国检方周五宣布对一个由10名成员组成的股票操纵团伙展开大规模打击，该团伙据称由一名自称电影演员的男子和一名证券公司高管领导。 首尔南部地方检察厅表示，已逮捕并起诉了三名团伙头目，指控其违反《资本市场法》，并对六名同伙进行了简易起诉，未予拘留。另外一名嫌疑人仍在逃。 他们被控于2024年12月至2025年4月期间，通过借用他人名义开设账户，操纵一家韩国创业板（KOSDAQ）上市
 
 ## 正文
 
-美国花旗集团首席技术官蒂姆・瑞安表示，该行正运用人工智能加快账户开设流程并推进老旧软件系统淘汰，以此提升运营效率。
+韩国检方周五宣布对一个由10名成员组成的股票操纵团伙展开大规模打击，该团伙据称由一名自称电影演员的男子和一名证券公司高管领导。
 
-美国各大银行正积极拥抱人工智能这一继互联网之后全球经济最大的技术变革，借此提高生产力，部分情况下还会削减岗位。
+首尔南部地方检察厅表示，已逮捕并起诉了三名团伙头目，指控其违反《资本市场法》，并对六名同伙进行了简易起诉，未予拘留。
 
-瑞安在接受采访时表示：“我们仍有遗留系统，但在完成一系列技术投资后，目前的状况已有大幅改善。
+另外一名嫌疑人仍在逃。
 
-人工智能助力实现遗留系统数据迁移、代码自动化，并能更全面、更快速地开展测试工作。
+他们被控于2024年12月至2025年4月期间，通过借用他人名义开设账户，操纵一家韩国创业板（KOSDAQ）上市公司的股价，非法获利至少14亿韩元（约合96万美元）。
 
-” 他补充道，人工智能还被用于加快客户开户流程。
+检方称，在此期间，他们交易的股票价值超过289亿韩元。
 
-其服务部门在美国地区的文件审核系统已通过AI实现效率提升，账户开立前的文件审核时长从原本的一小时压缩至15分钟。
+主要作案者包括一名自称是2009年电影《作战》主角之一的企业掠夺专家、一家证券公司的高管、一位据称是网红丈夫的富豪以及一名前足球运动员。
 
-花旗减少对外部承包商的依赖 瑞安在不到两年前从普华永道加盟花旗，目前正着手重组技术部门，尽可能转向以内部员工为主，减少对外部承包商的依赖。
+据报道，他们为实施该计划分配了具体角色，包括筹集资金、开设空壳账户和获取一次性手机，然后通过散布虚假利好消息操纵股价。
 
-瑞安一年前曾告知员工，该行计划大幅降低对信息技术外包承包商的依赖，并招聘数千名信息技术正式员工。
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-30 08:22 - [德国队连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-30 07:54 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
-- 2026-06-30 08:00 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
-- 2026-06-30 08:20 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-30 08:16 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
-- 2026-06-30 08:01 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-30 08:20 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
-- 2026-06-30 08:05 - [日本球员说被绝杀非常不甘心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-30 08:11 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-30 08:17 - [巴西绝杀日本：漫画般结局换了主角](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
-- 2026-06-30 07:56 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-30 08:09 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-30 08:06 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
-- 2026-06-30 07:56 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-30 08:21 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-30 08:08 - [巴拉圭进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-30 08:08 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-30 08:22 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-30 08:15 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
+- 2026-06-30 08:03 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-30 08:09 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-30 08:28 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-30 08:19 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-30 08:02 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-30 08:28 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-30 08:26 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
+- 2026-06-30 08:03 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-30 08:28 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:58 - [巴西半场0比1日本](https://www.blog.minike.top/Article/details/680827.shtml)
-- 2026-06-30 08:06 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.kurohicncr.top/Article/details/085697997378.shtml)
-- 2026-06-30 08:01 - [这种关系可能正在悄悄“催老”你](https://www.share.minike.top/Article/details/52914.shtml)
-- 2026-06-30 07:57 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/8815640966.shtml)
-- 2026-06-30 08:16 - [这几秒成世界杯最值钱广告位](https://www.blog.minike.top/Article/details/404747392.shtml)
-- 2026-06-30 08:16 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/3532639309.shtml)
-- 2026-06-30 08:00 - [天道](http://www.share.minike.top/Article/details/6476519.shtml)
-- 2026-06-30 08:03 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/718473619.shtml)
-- 2026-06-30 07:59 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/243103713.shtml)
-- 2026-06-30 08:09 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/763712.shtml)
-- 2026-06-30 08:19 - [诺伊尔尽力了](https://www.blog.kurohicncr.top/Article/details/030844.shtml)
-- 2026-06-30 07:55 - [曝老詹对自由市场态度与以往截然不同](http://www.blog.minike.top/Article/details/583297551362.shtml)
-- 2026-06-30 08:10 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/5617965406.shtml)
-- 2026-06-30 08:23 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/123510159086.shtml)
-- 2026-06-30 08:06 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/545318253079.shtml)
+- 2026-06-30 08:14 - [如果有二次元高中是什么样子的？](http://www.share.minike.top/Article/details/747375.shtml)
+- 2026-06-30 08:17 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/381918354.shtml)
+- 2026-06-30 08:23 - [日本五次世界杯淘汰赛全败](http://www.share.minike.top/Article/details/18224236940.shtml)
+- 2026-06-30 08:27 - [女心理师](https://www.share.kurohicncr.top/Article/details/581125.shtml)
+- 2026-06-30 08:19 - [欧洲装一台空调有多难](https://www.share.kurohicncr.top/Article/details/95685.shtml)
+- 2026-06-30 08:24 - [苗族银饰](https://www.blog.minike.top/Article/details/26028402754.shtml)
+- 2026-06-30 08:03 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/89791136.shtml)
+- 2026-06-30 08:23 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/3157509155.shtml)
+- 2026-06-30 08:09 - [董卿父亲在报纸上发文悼念亡妻](http://www.blog.minike.top/Article/details/4768928.shtml)
+- 2026-06-30 08:29 - [莫兰特被交易到开拓者](http://www.share.minike.top/Article/details/27216593.shtml)
+- 2026-06-30 08:10 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/08262296105.shtml)
+- 2026-06-30 08:05 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/66228.shtml)
+- 2026-06-30 08:28 - [感动全网的699分女生想报考清华](https://www.blog.kurohicncr.top/Article/details/89053624.shtml)
+- 2026-06-30 08:17 - [张碧晨一开口梦回逐玉](http://www.share.minike.top/Article/details/30103064260.shtml)
+- 2026-06-30 08:15 - [巴拉圭点球大战淘汰德国进16强](https://www.blog.kurohicncr.top/Article/details/84215773603.shtml)

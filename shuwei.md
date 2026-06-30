@@ -1,55 +1,58 @@
-# 福建：发力鲍鱼精深加工 做强“一粒鲍”全产业链
+# 广西“最美科技特派员”代表分享一线故事 扎根乡土助振兴
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月09日 19:46 来源：中国新闻网 眼下，在福建省连江县，村民们在海上养殖的5亿多粒春鲍大量上市，当地积极扶持相关水产企业，大力开展鲍鱼精深加工，拓宽鲍鱼销售渠道，着力构建鲍鱼全产业链。 在过去，连江鲍鱼产业存在重养殖、轻加工的现象，价格易受市场波动影响。为切实增加鲍鱼附加值，做大做强鲍鱼产业，提升鲍鱼市场竞争力，近年来，当地积极扶持县内水产企业开展
+中新网南宁5月9日电(记者 杨陈)田埂作讲台、地头是实验室，良种播撒八桂田野，技术走进千家万户。5月9日，广西“最美科技特派员”代表记者见面会在南宁举行，来自蚕桑、中药材、水生蔬菜、经济作物、畜牧兽医领域的5位基层科技工作者，分享扎根一线、助农兴产的生动实践，展现广西科技特派员队伍下沉服务、以技兴农的坚实步伐。 科技特派员制度是推动科技下乡、人才下沉、助力乡村全面振兴的重要举措
 
 ## 正文
 
-发布时间：2026年04月09日 19:46 来源：中国新闻网 眼下，在福建省连江县，村民们在海上养殖的5亿多粒春鲍大量上市，当地积极扶持相关水产企业，大力开展鲍鱼精深加工，拓宽鲍鱼销售渠道，着力构建鲍鱼全产业链。
+中新网南宁5月9日电(记者 杨陈)田埂作讲台、地头是实验室，良种播撒八桂田野，技术走进千家万户。
 
-在过去，连江鲍鱼产业存在重养殖、轻加工的现象，价格易受市场波动影响。
+5月9日，广西“最美科技特派员”代表记者见面会在南宁举行，来自蚕桑、中药材、水生蔬菜、经济作物、畜牧兽医领域的5位基层科技工作者，分享扎根一线、助农兴产的生动实践，展现广西科技特派员队伍下沉服务、以技兴农的坚实步伐。
 
-为切实增加鲍鱼附加值，做大做强鲍鱼产业，提升鲍鱼市场竞争力，近年来，当地积极扶持县内水产企业开展鲍鱼精深加工。
+科技特派员制度是推动科技下乡、人才下沉、助力乡村全面振兴的重要举措。
 
-目前连江县设有27条鲍鱼加工生产线，2025年加工量约1.86万吨，产值约23.4亿元，加工品种有干鲍、速冻鲍、鲍鱼罐头、鲍鱼菜肴预制品、休闲即食等5大类，已形成集育苗—养殖—加工—销售—品牌—餐桌的“一粒鲍”完整产业链，全产业链产值近百亿元，从业者达到数万人。
+经过多年发展，广西构建起覆盖广泛、特色鲜明、务实高效的科技服务体系，创新推行“一县一团+产业组队”模式。
 
-(吴晟炜 吴其法 福建福州报道） 责任编辑：【于晓】
+2025年，广西选派科技特派员4000多名，组建100个县域服务团，实现县乡村及粮食、水果、桑蚕、油茶等主导产业服务全覆盖。
+
+全年累计开展实地服务12.99万天次，培训农民54.83万人次，服务2.88万个种养基地，攻克产业技术难题129项，有效带动农民节本增收、产业提质增效。
+
+石漠化地区曾被认为难以发展高效种养业。
+
+广西蚕业技术推广站农业技术推广研究员罗坚12年扎根石漠化片区，带领团队创新蚕业生态高效技术体系，推广耐贫瘠桑树良种与配套技术，建立19个示范基地，培训农户3162名。
 
 ## 相关推荐
 
-- 2026-06-30 08:03 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-30 08:09 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
-- 2026-06-30 07:59 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-30 08:12 - [感动全网的699分女生想报考清华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-30 08:09 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
-- 2026-06-30 08:12 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
-- 2026-06-30 08:05 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-30 08:13 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-30 08:13 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-30 08:23 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-30 07:54 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
-- 2026-06-30 08:17 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-30 07:59 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-30 08:15 - [现在叛逆期的孩子最怕的是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-30 08:11 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-30 08:16 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-30 08:25 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-30 08:03 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-30 08:00 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-30 08:29 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-30 08:10 - [王濛回复黄灿灿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-30 08:21 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-30 08:10 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-30 08:02 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-30 08:29 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-30 08:21 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-30 08:06 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:01 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/365717273151.shtml)
-- 2026-06-30 08:03 - [明星大侦探第四季](http://www.share.minike.top/Article/details/464170.shtml)
-- 2026-06-30 08:01 - [吴易昺不敌德约科维奇 止步温网首轮](https://www.share.kurohicncr.top/Article/details/118067153.shtml)
-- 2026-06-30 08:11 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://www.blog.minike.top/Article/details/4716714076.shtml)
-- 2026-06-30 07:58 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/63027817357.shtml)
-- 2026-06-30 08:16 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/3597315.shtml)
-- 2026-06-30 07:55 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/2531608.shtml)
-- 2026-06-30 08:19 - [南北多地暴雨和强对流天气持续](https://www.share.kurohicncr.top/Article/details/0776850670.shtml)
-- 2026-06-30 08:19 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/81992.shtml)
-- 2026-06-30 08:00 - [王濛回复黄灿灿](http://www.share.kurohicncr.top/Article/details/401219.shtml)
-- 2026-06-30 08:11 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/707636760374.shtml)
-- 2026-06-30 08:12 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/6194785420.shtml)
-- 2026-06-30 07:54 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/54172824.shtml)
-- 2026-06-30 08:03 - [金牌调解](http://www.share.kurohicncr.top/Article/details/1058459690.shtml)
-- 2026-06-30 08:07 - [全球芯片巨头史诗级扩产](http://www.share.minike.top/Article/details/251957409.shtml)
+- 2026-06-30 08:16 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/08111359.shtml)
+- 2026-06-30 08:28 - [高考结束了，你会让孩子在家玩手机吗？](http://www.share.kurohicncr.top/Article/details/791080645.shtml)
+- 2026-06-30 08:10 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/6138886.shtml)
+- 2026-06-30 08:21 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/626813592243.shtml)
+- 2026-06-30 08:02 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/949796202381.shtml)
+- 2026-06-30 08:04 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/960583236.shtml)
+- 2026-06-30 08:08 - [董卿父亲在报纸上发文悼念亡妻](https://www.blog.minike.top/Article/details/0242270.shtml)
+- 2026-06-30 08:08 - [啊啊啊](http://www.blog.minike.top/Article/details/82237.shtml)
+- 2026-06-30 08:17 - [免费试吃发差评被店家挂店门避雷](http://www.share.minike.top/Article/details/6404463846.shtml)
+- 2026-06-30 08:01 - [上市央企地产商 两年换了三任董事长](https://www.blog.minike.top/Article/details/35141.shtml)
+- 2026-06-30 08:16 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/17857169.shtml)
+- 2026-06-30 08:22 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/804882166702.shtml)
+- 2026-06-30 08:25 - [健全中小学教师工资长效联动机制](https://www.blog.kurohicncr.top/Article/details/97824246377.shtml)
+- 2026-06-30 08:17 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/55671216464.shtml)
+- 2026-06-30 08:22 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/90357698836.shtml)

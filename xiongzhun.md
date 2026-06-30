@@ -1,61 +1,59 @@
-# 重庆启动2026“百万人才兴重庆”引才活动
+# 美食文旅节目《三餐四季》北京篇在千年京韵中寻四季食光
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-中新网重庆4月8日电 (记者 钟旖)2026“百万人才兴重庆”系列引才活动7日在重庆正式启动。 作为已持续八年的城市引才品牌，活动锚定现代化新重庆建设目标，将以更系统的活动矩阵、更精准的岗位对接和更优化的服务生态，向全球优秀奋斗者发出诚挚的“重庆邀请函”，全面开启新一年的招才引智征程。 数据显示，2025年，重庆市人才“磁吸力”强劲。从区域看，两江新区、渝中区位居区县引才前列。
+中新网北京5月9日电 大型美食文旅节目《三餐四季》9日晚走进北京，主持人撒贝宁、王嘉宁携手寻味团来到东城与通州，深入北京中轴线与运河码头，开启一场古韵与烟火交织的寻味之旅。 东城豆汁店里，灰绿色的浆水在锅里咕嘟冒泡，一股独特的酸香直蹿鼻腔。寻味团学着老街坊的样子，手托碗底，沿着碗沿转着圈“吸溜”。第一口酸中带馊，几秒后喉间泛起一丝回甘。再咬一口炸得透亮的焦圈，酥脆与绵滑在口中交
 
 ## 正文
 
-中新网重庆4月8日电 (记者 钟旖)2026“百万人才兴重庆”系列引才活动7日在重庆正式启动。
+中新网北京5月9日电 大型美食文旅节目《三餐四季》9日晚走进北京，主持人撒贝宁、王嘉宁携手寻味团来到东城与通州，深入北京中轴线与运河码头，开启一场古韵与烟火交织的寻味之旅。
 
-作为已持续八年的城市引才品牌，活动锚定现代化新重庆建设目标，将以更系统的活动矩阵、更精准的岗位对接和更优化的服务生态，向全球优秀奋斗者发出诚挚的“重庆邀请函”，全面开启新一年的招才引智征程。
+东城豆汁店里，灰绿色的浆水在锅里咕嘟冒泡，一股独特的酸香直蹿鼻腔。
 
-数据显示，2025年，重庆市人才“磁吸力”强劲。
+寻味团学着老街坊的样子，手托碗底，沿着碗沿转着圈“吸溜”。
 
-从区域看，两江新区、渝中区位居区县引才前列。
+第一口酸中带馊，几秒后喉间泛起一丝回甘。
 
-其中，两江新区引才数量突破3.1万人。
+再咬一口炸得透亮的焦圈，酥脆与绵滑在口中交织，这就是老北京讲究的“干稀搭配”。
 
-从企业看，赛力斯汽车有限公司、云界未来科技(重庆)有限公司、重庆长安汽车股份有限公司等智能网联新能源汽车、新一代信息技术领域企业表现突出。
+这碗看似朴素的豆汁，是绿豆发酵沉淀、物尽其用的民间智慧。
 
-从机构看，金凤实验室、重庆新型储能材料与装备研究院等高水平科研平台表现抢眼，彰显了重庆在科技创新前沿对高端人才的强大吸引力。
+隆福寺的三餐四季厨房里，金生隆爆肚第四代传人冯梦涛正守着一锅沸水，等待一场“秒级”的盛宴。
 
-亮眼数据的背后，是“百万人才兴重庆”品牌多年来的持续深耕。
+老北京爆肚，吃的就是一个“脆”字。
 
 ## 相关推荐
 
-- 2026-06-30 08:13 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-30 07:59 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
-- 2026-06-30 07:59 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
-- 2026-06-30 08:14 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-30 08:11 - [日本球员说被绝杀非常不甘心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
-- 2026-06-30 08:15 - [媒体：手机测评该挤挤水分了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-30 08:00 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-30 08:20 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-30 08:06 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-30 07:59 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
-- 2026-06-30 07:54 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-30 08:21 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
-- 2026-06-30 07:56 - [孙颖莎王楚钦晋级8强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-30 08:15 - [武磊：巴西队赢的并不轻松](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-30 08:21 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-30 08:25 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-30 08:19 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-30 08:13 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-30 08:07 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-30 08:04 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-30 08:15 - [哈弗茨头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-30 08:16 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
+- 2026-06-30 08:11 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-30 08:05 - [4000美元是黄金新一轮下跌的开始吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
+- 2026-06-30 08:27 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-30 08:27 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-30 08:03 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-30 08:11 - [世界杯欧洲队7战南美仅1胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:04 - [点球大战 残酷](https://www.share.minike.top/Article/details/57472.shtml)
-- 2026-06-30 08:17 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/33353547.shtml)
-- 2026-06-30 08:20 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/2569131.shtml)
-- 2026-06-30 08:20 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/28333.shtml)
-- 2026-06-30 08:06 - [警犬“多多”助民警寻回失联老人](http://www.share.kurohicncr.top/Article/details/4901240.shtml)
-- 2026-06-30 08:04 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/3293196.shtml)
-- 2026-06-30 08:12 - [巴西把自己踢晕了](http://www.share.kurohicncr.top/Article/details/411210121.shtml)
-- 2026-06-30 07:55 - [日本淘汰](http://www.share.kurohicncr.top/Article/details/35132620935.shtml)
-- 2026-06-30 08:16 - [藤森庆子赢得秘鲁总统选举](http://www.share.kurohicncr.top/Article/details/1761287.shtml)
-- 2026-06-30 08:17 - [泰山建135公里刀片刺绳隔离网](http://www.blog.kurohicncr.top/Article/details/4824277517.shtml)
-- 2026-06-30 08:14 - [亚洲球队全部出局](https://www.share.minike.top/Article/details/105379562255.shtml)
-- 2026-06-30 08:23 - [吴易昺不敌德约科维奇 止步温网首轮](http://www.blog.kurohicncr.top/Article/details/1010887.shtml)
-- 2026-06-30 08:10 - [日本 高位逼抢](http://www.blog.minike.top/Article/details/9787293.shtml)
-- 2026-06-30 08:20 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.share.kurohicncr.top/Article/details/468217827085.shtml)
-- 2026-06-30 08:19 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/7514226.shtml)
+- 2026-06-30 08:26 - [男子醉酒溺水获救后同行人拒协助抬人](https://www.blog.kurohicncr.top/Article/details/3470495580.shtml)
+- 2026-06-30 08:26 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/1144550.shtml)
+- 2026-06-30 08:12 - [老外对中国cosplay竟这样评价…](https://www.share.minike.top/Article/details/46129110.shtml)
+- 2026-06-30 08:23 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.kurohicncr.top/Article/details/07248456772.shtml)
+- 2026-06-30 08:19 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/87476105079.shtml)
+- 2026-06-30 08:26 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/2291508.shtml)
+- 2026-06-30 08:09 - [巴西足球能否再现昔日荣光](https://www.share.kurohicncr.top/Article/details/6292519701.shtml)
+- 2026-06-30 08:25 - [曝詹姆斯即将与勇士会面](http://www.share.kurohicncr.top/Article/details/160950.shtml)
+- 2026-06-30 08:24 - [诺伊尔尽力了](https://www.share.minike.top/Article/details/99416.shtml)
+- 2026-06-30 08:28 - [中国新一轮出口管制直指日本命脉](https://www.share.minike.top/Article/details/5813409.shtml)
+- 2026-06-30 08:21 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.minike.top/Article/details/685059896108.shtml)
+- 2026-06-30 08:00 - [流金岁月](https://www.blog.minike.top/Article/details/83304663.shtml)
+- 2026-06-30 08:13 - [日本队主帅道歉](http://www.blog.minike.top/Article/details/53217106691.shtml)
+- 2026-06-30 08:22 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](https://www.blog.kurohicncr.top/Article/details/9773912616.shtml)
+- 2026-06-30 08:05 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/422920769.shtml)

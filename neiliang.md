@@ -1,48 +1,58 @@
-# 特朗普称伊朗将不会进行铀浓缩活动
+# Microchip财报超预期并给出乐观指引，周五盘前股价上涨3%
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-新华社华盛顿4月8日电 美国总统特朗普8日在社交媒体发文说，美国将与伊朗密切合作，美提出的包含“15点计划”的停战方案中的许多内容已经形成一致。伊朗将不会进行铀浓缩活动，美国将与伊朗合作，挖掘并清除所有深埋的核“尘埃”，美国正在并将与伊朗讨论关税减免与制裁解除事宜。
+Microchip Technology周五盘前股价上涨约3%，此前这家芯片制造商公布的第四财季盈利和营收双双超出华尔街预期，并对当前季度给出了强于预期的业绩指引。 财报显示，截至3月31日的第四财季，Microchip营收为15.4亿美元，同比下降约22%，但高于FactSet调查分析师预期的14亿美元。调整后每股收益为0.48美元，同样高于市场预期的0.30美元。 公司表示
 
 ## 正文
 
-新华社华盛顿4月8日电 美国总统特朗普8日在社交媒体发文说，美国将与伊朗密切合作，美提出的包含“15点计划”的停战方案中的许多内容已经形成一致。
+Microchip Technology周五盘前股价上涨约3%，此前这家芯片制造商公布的第四财季盈利和营收双双超出华尔街预期，并对当前季度给出了强于预期的业绩指引。
 
-伊朗将不会进行铀浓缩活动，美国将与伊朗合作，挖掘并清除所有深埋的核“尘埃”，美国正在并将与伊朗讨论关税减免与制裁解除事宜。
+财报显示，截至3月31日的第四财季，Microchip营收为15.4亿美元，同比下降约22%，但高于FactSet调查分析师预期的14亿美元。
+
+调整后每股收益为0.48美元，同样高于市场预期的0.30美元。
+
+公司表示，尽管终端市场需求仍存在不确定性，但客户库存调整已进入尾声，订单趋势正在改善。
+
+更令市场鼓舞的是，公司预计第一财季营收在14.4亿至14.7亿美元之间，中位值为14.55亿美元，远超FactSet分析师预期的13.4亿美元。
+
+Microchip的强劲财报和乐观指引与经济疲弱信号形成鲜明对比。
+
+分析人士指出，Microchip约60%的收入来自工业和汽车领域，其业绩回暖可能预示着更广泛的芯片行业正在触底反弹。
+
+该股在过去12个月中累计下跌约38%，落后于费城半导体指数的表现。
 
 ## 相关推荐
 
-- 2026-06-30 08:13 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-30 08:05 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-30 08:21 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-30 08:19 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
-- 2026-06-30 08:13 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
-- 2026-06-30 08:00 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-30 08:22 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-30 08:20 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-30 07:58 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-30 08:08 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-30 08:03 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
-- 2026-06-30 08:11 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-30 08:01 - [德国队连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
-- 2026-06-30 08:08 - [张雪的一句“是我们”引发岛内热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-30 08:17 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
+- 2026-06-30 08:14 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-30 08:20 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-30 08:21 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-30 08:25 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-30 08:07 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-30 08:29 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-30 08:17 - [巴拉圭点球大战淘汰德国进16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-30 08:15 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-30 08:28 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-30 08:17 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-30 08:02 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:02 - [巴拉圭进球](https://www.share.minike.top/Article/details/68961716149.shtml)
-- 2026-06-30 08:08 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/33483738.shtml)
-- 2026-06-30 08:08 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/18699085009.shtml)
-- 2026-06-30 07:55 - [湖南祁东原文化馆被指贱卖](https://www.share.minike.top/Article/details/4048186318.shtml)
-- 2026-06-30 07:54 - [全新问界M9现身美国街头](https://www.share.minike.top/Article/details/2385427.shtml)
-- 2026-06-30 08:12 - [流金岁月](https://www.share.kurohicncr.top/Article/details/75833.shtml)
-- 2026-06-30 08:17 - [女子遭下药退赔偿拟追刑责](https://www.share.minike.top/Article/details/732292228900.shtml)
-- 2026-06-30 08:12 - [诺伊尔尽力了](https://www.share.minike.top/Article/details/726876021.shtml)
-- 2026-06-30 08:14 - [日本五次世界杯淘汰赛全败](http://www.blog.minike.top/Article/details/5117041.shtml)
-- 2026-06-30 07:56 - [MSI应援曲 如果季中成回忆](https://www.share.minike.top/Article/details/857111.shtml)
-- 2026-06-30 07:56 - [锐评T1战胜KC](https://www.blog.kurohicncr.top/Article/details/80733.shtml)
-- 2026-06-30 08:14 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/68237396844.shtml)
-- 2026-06-30 08:07 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/42570.shtml)
-- 2026-06-30 08:20 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/175755.shtml)
-- 2026-06-30 08:05 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/495368573008.shtml)
+- 2026-06-30 08:21 - [世界杯“美洲德比”7月1日开打](https://www.share.kurohicncr.top/Article/details/818337891176.shtml)
+- 2026-06-30 08:08 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.minike.top/Article/details/5985834152.shtml)
+- 2026-06-30 08:01 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/2785058.shtml)
+- 2026-06-30 08:06 - [本届世界杯已有5名球员被控强奸](https://www.share.kurohicncr.top/Article/details/81475.shtml)
+- 2026-06-30 08:16 - [德国进球被吹](https://www.blog.kurohicncr.top/Article/details/166110198.shtml)
+- 2026-06-30 08:23 - [日本淘汰](http://www.blog.minike.top/Article/details/0344300847.shtml)
+- 2026-06-30 08:10 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/75930.shtml)
+- 2026-06-30 08:20 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/642408585146.shtml)
+- 2026-06-30 08:24 - [孙颖莎王楚钦晋级8强](https://www.share.kurohicncr.top/Article/details/63828.shtml)
+- 2026-06-30 08:28 - [张月感谢了每一公的队友](http://www.share.minike.top/Article/details/87679237384.shtml)
+- 2026-06-30 08:23 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/121210836.shtml)
+- 2026-06-30 08:27 - [诺伊尔尽力了](https://www.blog.kurohicncr.top/Article/details/70351.shtml)
+- 2026-06-30 08:27 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.kurohicncr.top/Article/details/175013.shtml)
+- 2026-06-30 08:00 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/43477028331.shtml)
+- 2026-06-30 08:03 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/96930689090.shtml)

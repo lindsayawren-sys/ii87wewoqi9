@@ -1,57 +1,55 @@
-# 巴克莱策略师：美国大型科技企业盈利将保持韧性
+# 丰田第四财季营业利润暴跌49%，预计本财年营业利润下降20%
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-巴克莱策略师表示，尽管受伊朗相关局势波动影响，美国财报季来临前的盈利预期仍保持稳定，其中大型科技股表现尤为坚挺。 由维努・克里希纳牵头的团队写道，标普500成分股的每股收益预期已稳定半年之久，并未受近期伊朗冲突引发的市场波动干扰。 他们认为，资本开支超级周期仍是市场主线，在人工智能普及与云服务需求持续旺盛的背景下，大型科技板块将继续保持资本开支领先地位。 此外，策略师指出，在近
+丰田汽车公司周五公布，受美国关税影响，截至3月底的第四财季营业利润同比下降49%，至5694亿日元，远低于分析师预期的8132.8亿日元。 当季营收为12.6万亿日元，与预期基本一致。 丰田汽车预测，受中东冲突带来的成本和供应不确定性影响，本财年利润将下降20%，尽管其混合动力车型的强劲需求推动了销量增长。 这家全球销量最高的汽车制造商预计，截至2027年3月的财年，其营业利润
 
 ## 正文
 
-巴克莱策略师表示，尽管受伊朗相关局势波动影响，美国财报季来临前的盈利预期仍保持稳定，其中大型科技股表现尤为坚挺。
+丰田汽车公司周五公布，受美国关税影响，截至3月底的第四财季营业利润同比下降49%，至5694亿日元，远低于分析师预期的8132.8亿日元。
 
-由维努・克里希纳牵头的团队写道，标普500成分股的每股收益预期已稳定半年之久，并未受近期伊朗冲突引发的市场波动干扰。
+当季营收为12.6万亿日元，与预期基本一致。
 
-他们认为，资本开支超级周期仍是市场主线，在人工智能普及与云服务需求持续旺盛的背景下，大型科技板块将继续保持资本开支领先地位。
+丰田汽车预测，受中东冲突带来的成本和供应不确定性影响，本财年利润将下降20%，尽管其混合动力车型的强劲需求推动了销量增长。
 
-此外，策略师指出，在近期板块估值重估后，大型科技股已显现吸引力，市场预期其利润率将显著扩张、盈利强劲增长，形成利好支撑。
+这家全球销量最高的汽车制造商预计，截至2027年3月的财年，其营业利润为3.0万亿日元（约合190亿美元），低于上一财年的3.77万亿日元。
 
-板块层面，公用事业板块利润率有望改善，而医疗保健与通信板块盈利预计持平或收缩。
-
-股指内部广度亦趋于稳定：自伊朗冲突爆发以来，约40%的标普500成分股表现优于大盘指数，高于上一季度的35%；不过这一水平仍远低于历史常态。
-
-责任编辑：刘明亮
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-30 08:12 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-30 08:20 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-30 08:18 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-30 08:12 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-30 08:20 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-30 08:15 - [索马里女大使：想和中国一起搞事业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-30 08:01 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
-- 2026-06-30 08:19 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-30 08:11 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-30 08:15 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-30 08:02 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-30 08:00 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-30 07:58 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-30 08:25 - [巴西补时绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-30 08:26 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-30 08:12 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
+- 2026-06-30 08:03 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-30 08:04 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
+- 2026-06-30 08:16 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-30 08:23 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-30 08:10 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-30 08:11 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
+- 2026-06-30 08:22 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-30 08:00 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-30 08:20 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-30 08:07 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-30 08:19 - [张月收到黄灿灿辣货两眼发光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-30 08:08 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:19 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/9398299.shtml)
-- 2026-06-30 07:58 - [IGN评测电影版后室](https://www.share.kurohicncr.top/Article/details/727017477480.shtml)
-- 2026-06-30 08:19 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/0095998.shtml)
-- 2026-06-30 07:57 - [韩乔生吐槽世界杯扩军](https://www.share.minike.top/Article/details/919845695934.shtml)
-- 2026-06-30 08:21 - [上市央企地产商 两年换了三任董事长](https://www.share.minike.top/Article/details/531199503265.shtml)
-- 2026-06-30 08:17 - [内马尔替补](http://www.share.minike.top/Article/details/872875.shtml)
-- 2026-06-30 08:14 - [巴西醒醒 这是淘汰赛](http://www.share.kurohicncr.top/Article/details/32945.shtml)
-- 2026-06-30 08:22 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/22169801978.shtml)
-- 2026-06-30 08:12 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/330163.shtml)
-- 2026-06-30 07:57 - [DeepSeek V4正式版要来了](http://www.share.minike.top/Article/details/32500503.shtml)
-- 2026-06-30 07:54 - [赛博朋克边缘行者2预告片](http://www.blog.minike.top/Article/details/273875.shtml)
-- 2026-06-30 08:14 - [刘宇宁高情商化解谁站C位](http://www.blog.kurohicncr.top/Article/details/223862982922.shtml)
-- 2026-06-30 08:04 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/2899170.shtml)
-- 2026-06-30 08:00 - [三星投资计划](https://www.share.kurohicncr.top/Article/details/45551893368.shtml)
-- 2026-06-30 08:12 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/184604466789.shtml)
+- 2026-06-30 08:29 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/07770784461.shtml)
+- 2026-06-30 08:24 - [峡谷事故团队组队时有人提醒会下雨](https://www.blog.minike.top/Article/details/51017.shtml)
+- 2026-06-30 08:00 - [人类...完蛋了...](http://www.blog.minike.top/Article/details/684451.shtml)
+- 2026-06-30 08:28 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/358337606441.shtml)
+- 2026-06-30 08:19 - [杨紫获白玉兰视后争议不止](https://www.blog.kurohicncr.top/Article/details/99536526.shtml)
+- 2026-06-30 08:21 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/1912665327.shtml)
+- 2026-06-30 08:19 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.blog.minike.top/Article/details/97096666509.shtml)
+- 2026-06-30 08:26 - [建议不要突然完全停止喝咖啡](http://www.share.kurohicncr.top/Article/details/178682181093.shtml)
+- 2026-06-30 08:13 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/54814874529.shtml)
+- 2026-06-30 08:11 - [爱很美味](http://www.share.minike.top/Article/details/23447291.shtml)
+- 2026-06-30 08:13 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.kurohicncr.top/Article/details/17401.shtml)
+- 2026-06-30 08:14 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.minike.top/Article/details/125126111598.shtml)
+- 2026-06-30 08:26 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/458045877.shtml)
+- 2026-06-30 08:18 - [美股深夜大反弹 特斯拉飙涨8%](http://www.share.minike.top/Article/details/432194125.shtml)
+- 2026-06-30 08:26 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://www.blog.kurohicncr.top/Article/details/54171492.shtml)

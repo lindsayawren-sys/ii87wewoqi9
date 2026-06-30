@@ -1,52 +1,56 @@
-# 郑丽文：只要坚持“九二共识”、反对“台独”，两岸就可交流对话，反之台海就会陷入动荡不安
+# 高速隧道内一家三口缺氧昏迷 这份行车安全提示请收好
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月08日 10:18 来源：中国新闻网 应中共中央和习近平总书记邀请，中国国民党主席郑丽文4月7日率国民党访问团经上海抵达南京，开始大陆参访行程。郑丽文抵达南京后表示，感谢习近平总书记，感谢大陆方面热情接待。此访是为了维护台海和平，增进人民福祉，意义重大。中国国民党将坚持“九二共识”、反对“台独”，继续发挥推动两岸关系和平发展的重要作用。(记者 路梅制作
+天气渐热，很多朋友在开车时会打开空调，近日，在广连高速新田隧道出现惊险一幕，一家三口在应急车道停车怠速开空调，结果一氧化碳中毒陷入昏迷，所幸高速路政人员及时发现险情、快速施救，挽救了三人的生命。事发当天，广连高速指挥中心工作人员在视频巡查时，发现一辆私家车长时间停靠在清远新田隧道的应急车道上，状态异常。 中交广连高速公路投资发展有限公司指挥中心指挥调度员 薛俊舷：广播喊话车主没
 
 ## 正文
 
-发布时间：2026年04月08日 10:18 来源：中国新闻网 应中共中央和习近平总书记邀请，中国国民党主席郑丽文4月7日率国民党访问团经上海抵达南京，开始大陆参访行程。
+天气渐热，很多朋友在开车时会打开空调，近日，在广连高速新田隧道出现惊险一幕，一家三口在应急车道停车怠速开空调，结果一氧化碳中毒陷入昏迷，所幸高速路政人员及时发现险情、快速施救，挽救了三人的生命。
 
-郑丽文抵达南京后表示，感谢习近平总书记，感谢大陆方面热情接待。
+事发当天，广连高速指挥中心工作人员在视频巡查时，发现一辆私家车长时间停靠在清远新田隧道的应急车道上，状态异常。
 
-此访是为了维护台海和平，增进人民福祉，意义重大。
+中交广连高速公路投资发展有限公司指挥中心指挥调度员 薛俊舷：广播喊话车主没有反应，我们又通过外线打电话给车主，车主也没有接听，我们就通知路面巡逻组过去查看一下情况。
 
-中国国民党将坚持“九二共识”、反对“台独”，继续发挥推动两岸关系和平发展的重要作用。
+路政人员接到指令后快速抵达现场，发现车内一家三口已陷入深度昏迷，孩童口鼻有呕吐物堵塞。
 
-(记者 路梅制作 王宁） 责任编辑：【李季】
+路政人员一边进行初步处置，一边上报指挥中心，启动一路多方联动机制，紧急联系交警、120急救力量赶往现场。
+
+中交广连高速公路投资发展有限公司路产管理部路政员 罗德华：清理小朋友口中的异物，让他保持气道通畅，避免窒息。
+
+同时第一时间打开车窗、后备箱等通风防止窒息，为后续救护员争取时间。
+
+约二十分钟后，120救护车抵达现场，路政人员协助医护人员将一家三口转移送医，目前三人身体已无大碍。
 
 ## 相关推荐
 
-- 2026-06-30 08:15 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-30 08:23 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-30 08:03 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-30 08:05 - [老外对中国cosplay竟这样评价…](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-30 07:58 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-30 07:55 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-30 08:10 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-30 07:57 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-30 08:09 - [大蒜晒外面被路过女子连盆端走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-30 08:20 - [郑钦文温网一轮游](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-30 08:09 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-30 08:22 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-30 08:07 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-30 08:03 - [全球芯片巨头史诗级扩产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-30 08:22 - [泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
+- 2026-06-30 08:10 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-30 08:29 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-30 08:03 - [男子在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-30 08:23 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
+- 2026-06-30 08:24 - [王楚钦说配合稍微有些陌生感](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
+- 2026-06-30 08:17 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-30 08:12 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:02 - [莫兰特被交易到开拓者](http://www.blog.minike.top/Article/details/11728527.shtml)
-- 2026-06-30 07:58 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.kurohicncr.top/Article/details/95246906.shtml)
-- 2026-06-30 08:15 - [建议不要突然完全停止喝咖啡](https://www.share.minike.top/Article/details/461779.shtml)
-- 2026-06-30 08:15 - [德国淘汰](http://www.share.kurohicncr.top/Article/details/6253763544.shtml)
-- 2026-06-30 08:15 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/52107201.shtml)
-- 2026-06-30 07:56 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/71360478477.shtml)
-- 2026-06-30 08:19 - [刘必安等16人非法集资案二审宣判](http://www.blog.kurohicncr.top/Article/details/64324716640.shtml)
-- 2026-06-30 08:07 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/754666099677.shtml)
-- 2026-06-30 08:02 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/72846523.shtml)
-- 2026-06-30 08:23 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.kurohicncr.top/Article/details/48935276.shtml)
-- 2026-06-30 08:19 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/37469117.shtml)
-- 2026-06-30 07:58 - [这种关系可能正在悄悄“催老”你](https://www.share.kurohicncr.top/Article/details/39289.shtml)
-- 2026-06-30 07:57 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/9246079316.shtml)
-- 2026-06-30 08:10 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/6066072246.shtml)
-- 2026-06-30 07:57 - [世界杯欧洲队7战南美仅1胜](http://www.blog.minike.top/Article/details/9456444439.shtml)
+- 2026-06-30 08:19 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/773154.shtml)
+- 2026-06-30 08:18 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.minike.top/Article/details/200250.shtml)
+- 2026-06-30 08:09 - [内马尔替补](https://www.share.kurohicncr.top/Article/details/5885721.shtml)
+- 2026-06-30 08:15 - [点球大战 残酷](https://www.share.kurohicncr.top/Article/details/83630.shtml)
+- 2026-06-30 08:00 - [委内瑞拉地震死亡人数升至1719人](https://www.share.kurohicncr.top/Article/details/29709.shtml)
+- 2026-06-30 08:19 - [德国淘汰](https://www.blog.kurohicncr.top/Article/details/6425342055.shtml)
+- 2026-06-30 08:19 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/96840.shtml)
+- 2026-06-30 08:24 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/16450703.shtml)
+- 2026-06-30 08:28 - [恋与深空道歉声明](http://www.blog.minike.top/Article/details/79520423.shtml)
+- 2026-06-30 08:15 - [日本进球](https://www.blog.kurohicncr.top/Article/details/66233748.shtml)
+- 2026-06-30 08:11 - [巴西替补奇兵读秒绝杀](http://www.blog.minike.top/Article/details/93528.shtml)
+- 2026-06-30 08:04 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/6594058.shtml)
+- 2026-06-30 08:26 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/01985607.shtml)
+- 2026-06-30 08:13 - [警犬“多多”助民警寻回失联老人](http://www.share.minike.top/Article/details/902765333.shtml)
+- 2026-06-30 08:02 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/98099120.shtml)

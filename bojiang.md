@@ -1,59 +1,59 @@
-# 特朗普认为是中国促使伊朗同意停火？中方回应
+# 应李书福邀请，董明珠正式出任“极氪品质体验官”
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-中新网北京4月8日电(记者 郭超凯)中国外交部发言人毛宁4月8日主持例行记者会。 有记者提问：美国总统特朗普表示他认为是中国促使伊朗同意停火，发言人能否证实？如中方参与其中，能否提供更多细节？ 毛宁：伊朗战事爆发以来，中方一直积极致力于促和止战。王毅外长同相关国家外长先后26次通话。中国政府中东问题特使赴海湾和中东地区穿梭访问。中国和巴基斯坦还共同提出了关于恢复海湾和中东地区和
+近日，吉利控股集团董事长李书福一行到访并参观珠海格力电器总部。活动现场，李书福邀请董明珠正式出任“极氪品质体验官”，并颁发聘书。 吉利表示，作为极氪009光辉车主，董明珠多次公开为极氪品质点赞，并高度认可焕新极氪009全栈900V高压架构的强劲动力。 今年3月，董明珠正式成为极氪009光辉车主，李书福亲自为其交车，双方围绕中国高端制造展开热烈探讨。期间，董明珠特意邀请李书福访问
 
 ## 正文
 
-中新网北京4月8日电(记者 郭超凯)中国外交部发言人毛宁4月8日主持例行记者会。
+近日，吉利控股集团董事长李书福一行到访并参观珠海格力电器总部。
 
-有记者提问：美国总统特朗普表示他认为是中国促使伊朗同意停火，发言人能否证实？
+活动现场，李书福邀请董明珠正式出任“极氪品质体验官”，并颁发聘书。
 
-如中方参与其中，能否提供更多细节？
+吉利表示，作为极氪009光辉车主，董明珠多次公开为极氪品质点赞，并高度认可焕新极氪009全栈900V高压架构的强劲动力。
 
-毛宁：伊朗战事爆发以来，中方一直积极致力于促和止战。
+今年3月，董明珠正式成为极氪009光辉车主，李书福亲自为其交车，双方围绕中国高端制造展开热烈探讨。
 
-王毅外长同相关国家外长先后26次通话。
+期间，董明珠特意邀请李书福访问珠海格力总部。
 
-中国政府中东问题特使赴海湾和中东地区穿梭访问。
+此次到访，李书福一行参观了格力科技生态展厅，董明珠分享企业发展历程。
 
-中国和巴基斯坦还共同提出了关于恢复海湾和中东地区和平稳定的五点倡议。
+在对话中，李书福表示：“品牌源自于品质，品牌源自于人品，我们一定要尊重人。
 
-作为负责任大国，中国将继续发挥建设性作用，为恢复海湾和中东地区和平安全作出贡献。
+一个企业发展，要对内部员工尊重，对同行尊重，对行业自律尊重，以及对合规、法律等各方面尊重，最重要的是，我们要对用户尊重，对市场要尊重。
 
 ## 相关推荐
 
-- 2026-06-30 08:10 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-30 08:17 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
-- 2026-06-30 08:00 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
-- 2026-06-30 08:09 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-30 08:08 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-30 08:22 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-30 08:05 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
-- 2026-06-30 08:17 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-30 08:20 - [德国队连续三届世界杯无缘16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-30 08:09 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-30 08:17 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
-- 2026-06-30 08:18 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-30 07:55 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-30 08:04 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-30 08:29 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-30 08:19 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-30 08:15 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-30 08:14 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-30 08:00 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-30 08:22 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
+- 2026-06-30 08:20 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-30 08:26 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-30 08:27 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-30 08:17 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
+- 2026-06-30 08:26 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-30 08:21 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:18 - [我觉得你是在无中生友](https://www.share.kurohicncr.top/Article/details/155180146.shtml)
-- 2026-06-30 08:07 - [马耳他著名拱门坍塌致中国男子身亡](http://www.share.minike.top/Article/details/7893300550.shtml)
-- 2026-06-30 08:15 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.blog.minike.top/Article/details/40704105680.shtml)
-- 2026-06-30 08:04 - [美股深夜大反弹 特斯拉飙涨8%](https://www.blog.kurohicncr.top/Article/details/796323.shtml)
-- 2026-06-30 08:03 - [DeepSeek启动成立来最大规模招聘](https://www.blog.minike.top/Article/details/43580.shtml)
-- 2026-06-30 08:11 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/90119.shtml)
-- 2026-06-30 08:20 - [DeepSeek V4正式版要来了](http://www.share.minike.top/Article/details/01503.shtml)
-- 2026-06-30 08:21 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/667458.shtml)
-- 2026-06-30 08:12 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/211836392.shtml)
-- 2026-06-30 08:01 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/7040464413.shtml)
-- 2026-06-30 08:07 - [爆冷出局！德国点球大战不敌巴拉圭](http://www.blog.minike.top/Article/details/240769439.shtml)
-- 2026-06-30 08:09 - [德国淘汰](http://www.share.minike.top/Article/details/68269747035.shtml)
-- 2026-06-30 08:10 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/57245.shtml)
-- 2026-06-30 07:56 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/547459949735.shtml)
-- 2026-06-30 08:06 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/321731.shtml)
+- 2026-06-30 08:05 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/70655.shtml)
+- 2026-06-30 08:27 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/519380.shtml)
+- 2026-06-30 08:18 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/5268445088.shtml)
+- 2026-06-30 08:17 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/04588.shtml)
+- 2026-06-30 08:18 - [曝灰熊将莫兰特交易至开拓者](https://www.share.minike.top/Article/details/036720361414.shtml)
+- 2026-06-30 08:21 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](http://www.blog.kurohicncr.top/Article/details/71287.shtml)
+- 2026-06-30 08:14 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/2552796121.shtml)
+- 2026-06-30 08:29 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](http://www.blog.minike.top/Article/details/292434176.shtml)
+- 2026-06-30 08:08 - [郑钦文温网一轮游](http://www.share.minike.top/Article/details/4827795.shtml)
+- 2026-06-30 08:29 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/52747.shtml)
+- 2026-06-30 08:22 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/534707639.shtml)
+- 2026-06-30 08:19 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/851380568884.shtml)
+- 2026-06-30 08:01 - [张帅时隔四年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/2115114517.shtml)
+- 2026-06-30 08:00 - [这几秒成世界杯最值钱广告位](https://www.share.minike.top/Article/details/51768533941.shtml)
+- 2026-06-30 08:20 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/592512241.shtml)

@@ -1,60 +1,57 @@
-# 达美航空CEO：公司将大幅削减运力增长计划，旗下炼油厂预计带来3亿美元收益
+# 北京银行居首，5家银行资产规模突破3万亿元
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-达美航空CEO埃德·巴斯蒂安表示，受燃油价格暴涨影响，公司短期内将大幅缩减运力增长计划。受中东战争引发的航空燃油历史性涨价冲击，多家航司已纷纷收缩运力，达美此举进一步确认了这一趋势。 受油价下跌提振，美国航司股价集体走高，达美航空早盘涨幅超8%，竞争对手股价也大幅上涨。 达美周三预测，第二季度调整后每股收益为1至1.5美元，高于分析师预期的1.41美元；营收同比将实现低两位数百
+来源：金融时报 A股17家上市城商行2025年年报已全部出炉。据《金融时报》记者统计，截至2025年末，17家上市城商行总资产合计约31.3万亿元，其中，北京银行以4.94万亿元资产规模位居榜首，江苏银行紧随其后达4.93万亿元，宁波银行、上海银行、南京银行均突破3万亿元。 从营业收入和净利润看，多数上市城商行营收、净利润等指标实现增长。年报显示，2025年，17家银行合计实现
 
 ## 正文
 
-达美航空CEO埃德·巴斯蒂安表示，受燃油价格暴涨影响，公司短期内将大幅缩减运力增长计划。
+来源：金融时报 A股17家上市城商行2025年年报已全部出炉。
 
-受中东战争引发的航空燃油历史性涨价冲击，多家航司已纷纷收缩运力，达美此举进一步确认了这一趋势。
+据《金融时报》记者统计，截至2025年末，17家上市城商行总资产合计约31.3万亿元，其中，北京银行以4.94万亿元资产规模位居榜首，江苏银行紧随其后达4.93万亿元，宁波银行、上海银行、南京银行均突破3万亿元。
 
-受油价下跌提振，美国航司股价集体走高，达美航空早盘涨幅超8%，竞争对手股价也大幅上涨。
+从营业收入和净利润看，多数上市城商行营收、净利润等指标实现增长。
 
-达美周三预测，第二季度调整后每股收益为1至1.5美元，高于分析师预期的1.41美元；营收同比将实现低两位数百分比增长，超过华尔街约10%的预期。
+年报显示，2025年，17家银行合计实现营业收入约5308亿元，归母净利润合计约2035亿元。
 
-达美还表示，全年运力预计将持平。
+江苏银行以879.42亿元营业收入、345.01亿元净利润双双领跑，北京银行、宁波银行、上海银行、南京银行净利润均超200亿元。
 
-达美称，受燃油成本飙升影响，本季度燃油支出将增加20亿美元。
+资产规模梯队分化明显 从资产规模维度观察，国内城商行已形成层次清晰的三级梯队格局。
 
-达美是首家公布一季度财报的美国大型航司，此前美联航、达美等已开始缩减本季度运力。
+第一梯队为资产规模3万亿元以上的银行，包括北京银行、江苏银行、宁波银行、上海银行、南京银行5家机构。
 
-运力缩减往往意味着机票价格上涨，而当前票价本就处于上升通道。
+这5家银行资产合计约19.8万亿元，占17家城商行总量的63%。
 
 ## 相关推荐
 
-- 2026-06-30 08:16 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-30 07:57 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-30 08:23 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
-- 2026-06-30 08:23 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-30 08:23 - [曝老詹对自由市场态度与以往截然不同](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
-- 2026-06-30 07:56 - [感动全网的699分女生想报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-30 07:56 - [4000美元是黄金新一轮下跌的开始吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-30 08:19 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
-- 2026-06-30 07:55 - [德国连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-30 07:55 - [马耳他著名拱门坍塌致一中国男子身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-30 08:23 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
-- 2026-06-30 08:21 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-30 08:23 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-30 08:16 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-30 08:18 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-30 08:03 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-30 08:27 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-30 08:21 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-30 08:22 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-30 08:24 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-30 08:00 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
+- 2026-06-30 08:17 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-30 08:04 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
+- 2026-06-30 08:10 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-30 08:13 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:21 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/8734978483.shtml)
-- 2026-06-30 08:13 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/8494921.shtml)
-- 2026-06-30 08:19 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.kurohicncr.top/Article/details/59964231604.shtml)
-- 2026-06-30 08:22 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/74333558166.shtml)
-- 2026-06-30 08:15 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/0964248.shtml)
-- 2026-06-30 08:06 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/158192854.shtml)
-- 2026-06-30 08:22 - [郑钦文温网三连败西尼亚科娃](https://www.share.minike.top/Article/details/53627.shtml)
-- 2026-06-30 08:06 - [安切洛蒂 换人](https://www.share.minike.top/Article/details/91323287320.shtml)
-- 2026-06-30 08:07 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/41778663.shtml)
-- 2026-06-30 08:12 - [高考填志愿父亲和女儿产生分歧](http://www.share.minike.top/Article/details/2607945758.shtml)
-- 2026-06-30 08:15 - [恋与深空制作组回应近期争议](http://www.blog.minike.top/Article/details/8412476008.shtml)
-- 2026-06-30 08:01 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/125420614746.shtml)
-- 2026-06-30 08:21 - [三星投资计划](http://www.share.minike.top/Article/details/211067.shtml)
-- 2026-06-30 07:58 - [日本博主：日本足球真的垃圾](http://www.blog.minike.top/Article/details/846447455257.shtml)
-- 2026-06-30 08:22 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/64880270514.shtml)
+- 2026-06-30 08:11 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/734354137.shtml)
+- 2026-06-30 08:13 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/978924031369.shtml)
+- 2026-06-30 08:19 - [齐思钧回复张月](http://www.share.kurohicncr.top/Article/details/754399257.shtml)
+- 2026-06-30 08:21 - [杨紫获白玉兰视后争议不止](http://www.blog.kurohicncr.top/Article/details/71628373.shtml)
+- 2026-06-30 08:06 - [德国连续三届世界杯无缘16强](https://www.blog.kurohicncr.top/Article/details/47278886541.shtml)
+- 2026-06-30 08:28 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/330130.shtml)
+- 2026-06-30 08:22 - [巴西在进攻三区完成210脚传球](http://www.share.minike.top/Article/details/134592.shtml)
+- 2026-06-30 08:06 - [索马里女大使：想和中国一起搞事业](https://www.blog.kurohicncr.top/Article/details/10417.shtml)
+- 2026-06-30 08:23 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/714675187057.shtml)
+- 2026-06-30 08:24 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.kurohicncr.top/Article/details/14270650975.shtml)
+- 2026-06-30 08:01 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/42108.shtml)
+- 2026-06-30 08:27 - [内马尔中场休息积极鼓励队友](https://www.share.kurohicncr.top/Article/details/95042.shtml)
+- 2026-06-30 08:27 - [媒体评泰山建135公里刀片刺绳隔离网](https://www.share.kurohicncr.top/Article/details/6342107.shtml)
+- 2026-06-30 08:00 - [峡谷事故团队组队时有人提醒会下雨](https://www.share.kurohicncr.top/Article/details/48147741603.shtml)
+- 2026-06-30 08:12 - [郑钦文温网首轮出局](https://www.share.kurohicncr.top/Article/details/670043879.shtml)

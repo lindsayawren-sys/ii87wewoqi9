@@ -1,56 +1,58 @@
-# 早盘：美股维持涨势 美伊停火协议令原油价格暴跌
+# 4月理财规模收益双回升，华夏理财一款权益类理财产品月赚近30%｜理财月报
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-北京时间4月8日晚，美股维持涨势。原油期货价格暴跌。美伊达成两周停火协议提振了风险偏好，交易员争相买入股票。 道指涨1316.64点，涨幅为2.83%，报47901.10点；纳指涨624.57点，涨幅为2.84%，报22642.42点；标普500指数涨156.36点，涨幅为2.36%，报6773.21点。 美国总统特朗普7日宣布，同意暂停对伊朗的轰炸和袭击两周，前提是伊朗同意“
+界面新闻记者 | 冯丽君 在经历3月理财存续规模与产品收益“双降”后，4月理财市场规模收益双回升。 根据普益标准最新数据，2026年3月，在存续产品总量上升的情况下，理财存续规模环比下降2.69%。4月则扭转下降态势，全市场理财规模约31.63万亿元，相比3月增长2.36%；存续产品数量为48495款，相比3月增加1154款。 净值表现方面，根据普益标准数据，4月全市场今年以来
 
 ## 正文
 
-北京时间4月8日晚，美股维持涨势。
+界面新闻记者 | 冯丽君 在经历3月理财存续规模与产品收益“双降”后，4月理财市场规模收益双回升。
 
-原油期货价格暴跌。
+根据普益标准最新数据，2026年3月，在存续产品总量上升的情况下，理财存续规模环比下降2.69%。
 
-美伊达成两周停火协议提振了风险偏好，交易员争相买入股票。
+4月则扭转下降态势，全市场理财规模约31.63万亿元，相比3月增长2.36%；存续产品数量为48495款，相比3月增加1154款。
 
-道指涨1316.64点，涨幅为2.83%，报47901.10点；纳指涨624.57点，涨幅为2.84%，报22642.42点；标普500指数涨156.36点，涨幅为2.36%，报6773.21点。
+净值表现方面，根据普益标准数据，4月全市场今年以来平均年化收益率环比上升37.72BP，其中仅现金管理类理财产品该收益率延续下降态势，下降1.02BP。
 
-美国总统特朗普7日宣布，同意暂停对伊朗的轰炸和袭击两周，前提是伊朗同意“全面、立即且安全地”开放霍尔木兹海峡。
+事实上，现金管理类理财产品今年以来平均年化收益率持续下滑，多位业内专业人士告诉界面新闻，“现金管理类产品收益率持续承压，短期内难以出现趋势性反转。
 
-他同时表示，“这将是一次双向停火。
+” 4月，固定收益类理财产品今年以来平均年化收益率环比上升31.43BP，其中纯固收类环比上升6．03BP，固收+类环比上升37.47BP。
 
-” 美东时间4月7日晚6时30分许，特朗普通过社交媒体宣布了上述消息。
+混合类和权益类理财产品今年以来平均年化收益率增幅则更为显著，分别环比上升278.2BP、1687.25BP。
 
-此时，距离他设定的空袭伊朗桥梁和发电厂的“最后期限”（即美东时间周二晚上8点）只剩不到两小时。
+商品及金融衍生品类理财产品今年以来平均年化收益率4月环比上升1827.38BP。
 
 ## 相关推荐
 
-- 2026-06-30 08:07 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
-- 2026-06-30 08:23 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-30 07:57 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-30 08:23 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-30 08:19 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-30 08:23 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-30 08:15 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-30 08:20 - [马耳他著名拱门坍塌致中国男子身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-30 08:10 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
-- 2026-06-30 08:13 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-30 08:29 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-30 08:13 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-30 08:29 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-30 08:15 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-30 08:16 - [泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-30 08:21 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-30 08:26 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-30 08:17 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
+- 2026-06-30 08:00 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-30 08:18 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-30 08:08 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-30 08:19 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:07 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/398003490.shtml)
-- 2026-06-30 07:54 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/66409961659.shtml)
-- 2026-06-30 08:00 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/0873272471.shtml)
-- 2026-06-30 08:12 - [千香](https://www.blog.minike.top/Article/details/71529818406.shtml)
-- 2026-06-30 08:11 - [巴拉圭点球大战淘汰德国进16强](https://www.blog.kurohicncr.top/Article/details/57757784.shtml)
-- 2026-06-30 08:07 - [日本遭读秒绝杀 森保一：我水平不够](https://www.blog.kurohicncr.top/Article/details/376721356412.shtml)
-- 2026-06-30 08:13 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/363569.shtml)
-- 2026-06-30 08:16 - [王濛回复黄灿灿](https://www.blog.minike.top/Article/details/17057.shtml)
-- 2026-06-30 07:56 - [刘宇宁高情商化解谁站C位](https://www.share.kurohicncr.top/Article/details/675380926.shtml)
-- 2026-06-30 07:58 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/325956.shtml)
-- 2026-06-30 08:12 - [我觉得你是在无中生友](https://www.share.kurohicncr.top/Article/details/470915045.shtml)
-- 2026-06-30 08:15 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/696860745247.shtml)
-- 2026-06-30 08:09 - [莫兰特转投开拓者效力](http://www.share.minike.top/Article/details/537527.shtml)
-- 2026-06-30 08:06 - [高质量发展看新疆](https://www.blog.minike.top/Article/details/615809.shtml)
-- 2026-06-30 08:12 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/997636221018.shtml)
+- 2026-06-30 08:24 - [美人鱼](https://www.share.minike.top/Article/details/893403500743.shtml)
+- 2026-06-30 08:13 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/417310.shtml)
+- 2026-06-30 08:08 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.kurohicncr.top/Article/details/39977545412.shtml)
+- 2026-06-30 08:13 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/9698486.shtml)
+- 2026-06-30 08:19 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/543482917.shtml)
+- 2026-06-30 08:03 - [恋与深空回应争议](https://www.share.minike.top/Article/details/625122450746.shtml)
+- 2026-06-30 08:24 - [流金岁月](https://www.share.kurohicncr.top/Article/details/054293212530.shtml)
+- 2026-06-30 08:16 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://www.blog.kurohicncr.top/Article/details/9191358.shtml)
+- 2026-06-30 08:16 - [被巴西绝杀后 日球员田中碧跪地痛哭](http://www.blog.kurohicncr.top/Article/details/255153013.shtml)
+- 2026-06-30 08:15 - [巴西绝杀日本：漫画般结局换了主角](http://www.blog.minike.top/Article/details/32009.shtml)
+- 2026-06-30 08:24 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/36412793248.shtml)
+- 2026-06-30 08:15 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/583670.shtml)
+- 2026-06-30 08:28 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/72280694.shtml)
+- 2026-06-30 08:17 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/65046453942.shtml)
+- 2026-06-30 08:05 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/3451442553.shtml)

@@ -1,59 +1,57 @@
-# 视频 | 今世缘承认:不愿意向渠道压货，但不压货不现实
+# 8400万新就业形态劳动者的期盼渐成现实（总书记的关切·落地的回响）
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：李抱九 近日，今世缘发布投资者来访接待记录表。当中提到，跟往年比，现在的渠道库存整体是处于一个比较健康、稳定的状态。我们其实一直比较注意节奏，不太主张给渠道硬压货。但市场环境摆在这儿，一点压力不给也不现实。 目前经销商都在正常周转，库存压力可控。另一方面，节后这段时间，经销商打款的积极性还可以，预收款
+8400万新就业形态劳动者的期盼渐成现实（总书记的关切·落地的回响） 本报记者 孙 振 李建广《人民日报》（2026年05月10日 第 01 版） “一个时期有一个时期的问题，一个群体有一个群体的困难，我们要重视起来，不断解决。” ——2020年9月，习近平总书记在湖南考察并主持召开基层代表座谈会时强调 往返山西、陕西两省，跑了两趟货运长途，行程1700多公里……山西临汾货运司
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+8400万新就业形态劳动者的期盼渐成现实（总书记的关切·落地的回响） 本报记者 孙 振 李建广《人民日报》（2026年05月10日 第 01 版） “一个时期有一个时期的问题，一个群体有一个群体的困难，我们要重视起来，不断解决。
 
-来源：李抱九 近日，今世缘发布投资者来访接待记录表。
+” ——2020年9月，习近平总书记在湖南考察并主持召开基层代表座谈会时强调 往返山西、陕西两省，跑了两趟货运长途，行程1700多公里……山西临汾货运司机王勇平的“五一”假期很充实，“一路畅行，卡点少了，休息也好了，跟前些年不一样了。
 
-当中提到，跟往年比，现在的渠道库存整体是处于一个比较健康、稳定的状态。
+” 8400万新就业形态劳动者，习近平总书记的深情牵挂。
 
-我们其实一直比较注意节奏，不太主张给渠道硬压货。
+那是一次次深入：在北京前门，与“快递小哥”唠家常；在陕西柞水，为乡村电商鼓干劲；在湖南长沙，向货运司机代表问民生…… 那是一声声嘱托：“一个时期有一个时期的问题，一个群体有一个群体的困难，我们要重视起来，不断解决”“在管理服务上要跟上，填补好这个空白”……今年春节前夕，习近平总书记在北京看望慰问基层干部群众时，叮嘱“各级党委和政府一定要关心他们，为他们的生活、工作、学习提供好服务”。
 
-但市场环境摆在这儿，一点压力不给也不现实。
+殷殷嘱托，落地有声。
 
-目前经销商都在正常周转，库存压力可控。
+2020年9月，习近平总书记在湖南考察并主持召开基层代表座谈会。
 
-另一方面，节后这段时间，经销商打款的积极性还可以，预收款的整体情况比我们预期的要好。
+面对面，货运司机龙兵向总书记反映行业痛点。
 
-责任编辑：宋雅芳
+很快，痛点成为改革靶点：不到2个月，4部门开展道路限高限宽设施和检查卡点专项整治；几年来，全国建起2000多个“司机之家”，提供洗衣、淋浴等服务。
 
 ## 相关推荐
 
-- 2026-06-30 08:21 - [德国淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
-- 2026-06-30 08:10 - [德国巴拉圭进入点球大战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-30 08:09 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-30 08:22 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-30 08:09 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
-- 2026-06-30 08:23 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
-- 2026-06-30 08:11 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
-- 2026-06-30 08:17 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
-- 2026-06-30 08:11 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-30 08:15 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-30 08:04 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-30 08:02 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
-- 2026-06-30 08:05 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-30 08:15 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
+- 2026-06-30 08:03 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-30 08:10 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-30 08:13 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-30 08:22 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-30 08:03 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-30 08:04 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-30 08:16 - [郑钦文温网一轮游](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-30 08:15 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-30 08:16 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-30 08:17 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:08 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.kurohicncr.top/Article/details/1089411.shtml)
-- 2026-06-30 08:21 - [哈弗茨头球破门](http://www.share.kurohicncr.top/Article/details/42463.shtml)
-- 2026-06-30 07:59 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/524299.shtml)
-- 2026-06-30 08:05 - [千香](http://www.share.minike.top/Article/details/771688226.shtml)
-- 2026-06-30 07:55 - [张月感谢了每一公的队友](https://www.blog.kurohicncr.top/Article/details/3677814.shtml)
-- 2026-06-30 08:05 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/153304821742.shtml)
-- 2026-06-30 08:23 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/7608631095.shtml)
-- 2026-06-30 08:18 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/0005992960.shtml)
-- 2026-06-30 07:56 - [覃予萱晋级WTT美国大满贯女单32强](https://www.blog.kurohicncr.top/Article/details/92364499.shtml)
-- 2026-06-30 08:13 - [孙兴慜发长文致歉](https://www.blog.minike.top/Article/details/54605.shtml)
-- 2026-06-30 08:16 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/749211123.shtml)
-- 2026-06-30 08:12 - [如果有二次元高中是什么样子的？](https://www.blog.kurohicncr.top/Article/details/2746269.shtml)
-- 2026-06-30 07:58 - [日本博主：日本足球真的垃圾](http://www.blog.minike.top/Article/details/09008.shtml)
-- 2026-06-30 08:00 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/7976655991.shtml)
-- 2026-06-30 08:12 - [巴西替补奇兵读秒绝杀](https://www.blog.kurohicncr.top/Article/details/560130729480.shtml)
+- 2026-06-30 08:11 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/01384.shtml)
+- 2026-06-30 08:19 - [如何改变自己太负责任的性格?](https://www.blog.kurohicncr.top/Article/details/534739341.shtml)
+- 2026-06-30 08:11 - [日本球迷被强行披上巴西国旗](https://www.share.kurohicncr.top/Article/details/168907.shtml)
+- 2026-06-30 08:04 - [一生一世](http://www.blog.kurohicncr.top/Article/details/091755924773.shtml)
+- 2026-06-30 08:08 - [“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/2770282.shtml)
+- 2026-06-30 08:11 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/67536231.shtml)
+- 2026-06-30 08:01 - [金刚川](http://www.blog.minike.top/Article/details/42478.shtml)
+- 2026-06-30 08:00 - [藤森庆子赢得秘鲁总统选举](https://www.share.kurohicncr.top/Article/details/490293.shtml)
+- 2026-06-30 08:01 - [MSI应援曲 如果季中成回忆](http://www.blog.kurohicncr.top/Article/details/6644140230.shtml)
+- 2026-06-30 08:16 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/18144347.shtml)
+- 2026-06-30 08:29 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/02813.shtml)
+- 2026-06-30 08:27 - [日本队主帅道歉](https://www.blog.minike.top/Article/details/14463.shtml)
+- 2026-06-30 08:29 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/249387.shtml)
+- 2026-06-30 08:30 - [王楚钦孙颖莎晋级混双八强](https://www.blog.minike.top/Article/details/313680744.shtml)
+- 2026-06-30 08:22 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/5145057087.shtml)

@@ -1,52 +1,61 @@
-# 台青陶艺家瓷都“驻场”：以瓷为媒 交流创新
+# 建起“石榴籽小银行” 把民族团结“存”进日常
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月09日 17:10 来源：中国新闻网 来自台湾台南的青年陶艺家苏萱瑄，2024年通过学校交流参加陶溪川文创街区的春秋大集，彼时她惊讶于这里的国际范与热闹氛围。2025年底，她申请驻场再次成为陶溪川文创街区里众多“候鸟”艺术家中的一员。 苏萱瑄高中时便与陶土结缘，作品常以生物、植物的触角形态探讨生命力与生存渴望。在她看来，驻场期间最大的感悟与收获是与来自
+在内蒙古各地中小学推进铸牢中华民族共同体意识教育的背景下，舍伯吐镇第一小学这家乡镇校园里的“小银行”，以孩子们听得懂、看得见、摸得着的方式，让民族团结的种子在日常点滴中悄然生根。 在内蒙古自治区通辽市科左中旗舍伯吐镇第一小学的校园里，有一家特殊的“银行”。这里不办存取款业务，“办理”的是孩子们的好习惯、好品德和各民族学生之间的团结情谊。 这家名为“石榴籽小银行”的校园德育平台，
 
 ## 正文
 
-发布时间：2026年04月09日 17:10 来源：中国新闻网 来自台湾台南的青年陶艺家苏萱瑄，2024年通过学校交流参加陶溪川文创街区的春秋大集，彼时她惊讶于这里的国际范与热闹氛围。
+在内蒙古各地中小学推进铸牢中华民族共同体意识教育的背景下，舍伯吐镇第一小学这家乡镇校园里的“小银行”，以孩子们听得懂、看得见、摸得着的方式，让民族团结的种子在日常点滴中悄然生根。
 
-2025年底，她申请驻场再次成为陶溪川文创街区里众多“候鸟”艺术家中的一员。
+在内蒙古自治区通辽市科左中旗舍伯吐镇第一小学的校园里，有一家特殊的“银行”。
 
-苏萱瑄高中时便与陶土结缘，作品常以生物、植物的触角形态探讨生命力与生存渴望。
+这里不办存取款业务，“办理”的是孩子们的好习惯、好品德和各民族学生之间的团结情谊。
 
-在她看来，驻场期间最大的感悟与收获是与来自不同国家和文化背景的艺术家一同交流，保持开放心态、大胆创新，才能让艺术创作迎来更多可能。
+这家名为“石榴籽小银行”的校园德育平台，自开业以来成为全校师生每天的“牵挂”。
 
-(记者 姜涛 李韵涵） 责任编辑：【于晓】
+橙、绿、青、蓝、黄、紫、红七色行为卡，分别对应逐梦、好学、美德、探索、阳光、阅美、活力七个维度。
+
+学生在课堂发言、互助同学、参与劳动、传承民族文化、遵守校园规则等方面有优秀表现，老师当场发卡，存入学生人手一本的《石榴籽成长存折》。
+
+看见即奖励 “石榴籽小银行”构建了“一卡一折、三阶晋级”的完整体系。
+
+集齐5张基础卡可兑换“逐梦娃”或“好学娃”徽章，集齐5张特色卡可兑换“美德娃”“探索娃”“阳光娃”“阅美娃”或“活力娃”徽章，同时获得相应的“红领巾奖章”认证。
 
 ## 相关推荐
 
-- 2026-06-30 08:00 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-30 08:20 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-30 08:05 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-30 08:08 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-30 08:14 - [感动全网的699分女生想报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-30 08:04 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
-- 2026-06-30 08:04 - [萨内 看笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
-- 2026-06-30 07:56 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
-- 2026-06-30 07:55 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-30 08:13 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-30 08:20 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-30 08:11 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-30 08:14 - [媒体：手机测评该挤挤水分了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-30 08:10 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-30 08:07 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-30 08:15 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-30 08:23 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-30 08:29 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-30 08:17 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
+- 2026-06-30 08:09 - [世界杯欧洲队7战南美仅1胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-30 08:25 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-30 08:22 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-30 08:02 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-30 08:28 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-30 08:12 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-30 08:20 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-30 08:25 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:04 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/63686497.shtml)
-- 2026-06-30 08:16 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/76824.shtml)
-- 2026-06-30 08:19 - [巴西补时绝杀日本](http://www.share.kurohicncr.top/Article/details/2528351.shtml)
-- 2026-06-30 08:17 - [内马尔中场休息积极鼓励队友](https://www.share.minike.top/Article/details/0486056816.shtml)
-- 2026-06-30 08:00 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/4949931229.shtml)
-- 2026-06-30 07:58 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/773128.shtml)
-- 2026-06-30 08:22 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/8177150.shtml)
-- 2026-06-30 08:09 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.minike.top/Article/details/012888660849.shtml)
-- 2026-06-30 08:04 - [点球大战](http://www.share.minike.top/Article/details/019323690.shtml)
-- 2026-06-30 08:00 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/26551038.shtml)
-- 2026-06-30 08:23 - [武磊：巴西队赢的并不轻松](http://www.share.kurohicncr.top/Article/details/0762545.shtml)
-- 2026-06-30 08:00 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/92801961554.shtml)
-- 2026-06-30 07:55 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/49219618559.shtml)
-- 2026-06-30 07:54 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/347953.shtml)
-- 2026-06-30 08:10 - [张雪的一句“是我们”引发岛内热议](https://www.share.minike.top/Article/details/072721.shtml)
+- 2026-06-30 08:01 - [“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/4865225.shtml)
+- 2026-06-30 08:26 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/593082267265.shtml)
+- 2026-06-30 08:15 - [豆包收费了，你还会用吗？](http://www.blog.minike.top/Article/details/085521593324.shtml)
+- 2026-06-30 08:23 - [媒体：手机测评该挤挤水分了](https://www.share.kurohicncr.top/Article/details/88742651719.shtml)
+- 2026-06-30 08:28 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/51907976.shtml)
+- 2026-06-30 08:07 - [巴西2比1日本](https://www.share.minike.top/Article/details/56400.shtml)
+- 2026-06-30 08:04 - [德国巴拉圭加时](http://www.share.kurohicncr.top/Article/details/0479162220.shtml)
+- 2026-06-30 08:18 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/59984479.shtml)
+- 2026-06-30 08:26 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/94084573954.shtml)
+- 2026-06-30 08:03 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/54966470690.shtml)
+- 2026-06-30 08:14 - [周生如故](https://www.share.minike.top/Article/details/805217.shtml)
+- 2026-06-30 08:00 - [全球最火存储ETF纳入兆易创新](https://www.blog.kurohicncr.top/Article/details/01992948.shtml)
+- 2026-06-30 08:29 - [曝老詹对自由市场态度与以往截然不同](http://www.blog.kurohicncr.top/Article/details/823006728218.shtml)
+- 2026-06-30 08:23 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/847467.shtml)
+- 2026-06-30 08:01 - [警犬“多多”助民警寻回失联老人](https://www.blog.minike.top/Article/details/24366909.shtml)

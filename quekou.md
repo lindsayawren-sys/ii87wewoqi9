@@ -1,58 +1,57 @@
-# RYOEX:美国油市库存波动带来短期价格压力
+# 兴化股份（002109）遭证监会立案调查，受损股民可索赔
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-4月9日，近期，美国原油库存出现上升趋势，总量略高于长期平均水平。RYOEX认为，这显示市场供应在短期内偏宽松，对原油价格形成一定压力，同时也反映出市场对能源供需的敏感反应。投资者在进行操作时，需要关注库存变化带来的短期波动风险。 原油价格随库存数据波动明显。布伦特原油和WTI原油在近期交易中出现回调，反映出市场对供应前景和运输通道变化的高度关注。RYOEX表示，短期油价承压是
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年4月29日晚间，陕西兴化化学股份有限公司（股票代码：002109，简称：兴化股份）发布公告，公司于当日收到中国证监会下发的《立案告知书》（编号：证监立案字0092026002号），因公司涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，中国证监会决定对公司立案调查。 同日“三连击
 
 ## 正文
 
-4月9日，近期，美国原油库存出现上升趋势，总量略高于长期平均水平。
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年4月29日晚间，陕西兴化化学股份有限公司（股票代码：002109，简称：兴化股份）发布公告，公司于当日收到中国证监会下发的《立案告知书》（编号：证监立案字0092026002号），因公司涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，中国证监会决定对公司立案调查。
 
-RYOEX认为，这显示市场供应在短期内偏宽松，对原油价格形成一定压力，同时也反映出市场对能源供需的敏感反应。
+同日“三连击”：立案+会计差错更正+ST戴帽 初步索赔范围：实施日2025年4月24日至揭露日2026年4月29日之间买入股票，且在揭露日2026年4月29日收盘时仍持有，于2026年4月30日及之后卖出或继续持有而亏损的投资者。
 
-投资者在进行操作时，需要关注库存变化带来的短期波动风险。
+（最终以法院判决为准）（兴化股份维权入口） 索赔材料 一、买卖兴化股份（002109）股票的对账单原件 （1）对账单原件需要加盖证券公司营业部印章； （2）对账单从第一次买入兴化股份（002109）股票开始打到打印日当天，所有该股票的交易记录，目前仍持有该股票的投资者还须显示剩余持股总数。
 
-原油价格随库存数据波动明显。
+二、投资者身份证正反面复印件； 三、证券公司营业部出具的证券账户查询单。
 
-布伦特原油和WTI原油在近期交易中出现回调，反映出市场对供应前景和运输通道变化的高度关注。
+牛彬律师声明（牛彬律师专栏） 上述预登记条件仅供参考，不涉及任何投资决策和证券买卖建议。
 
-RYOEX表示，短期油价承压是市场正常反应，但长期仍需结合全球能源需求和供应链情况进行判断。
+索赔条件将根据证监会调查结论进一步调整，最终以法院认定为准。
 
-成品油库存也呈现一定波动，汽油和中馏分油的库存水平略有变化，日产量保持相对稳定。
+（本文由上海百悦律师事务所牛彬律师供稿，不代表新浪财经立场。
 
-RYOEX认为，这表明供应链在局部存在紧张情况，但整体市场供需仍然以原油库存为核心参考，投资者不必对成品油库存的短期变化过度担忧。
+牛彬律师，已执业25年。
 
 ## 相关推荐
 
-- 2026-06-30 08:19 - [日本球员说被绝杀非常不甘心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-30 08:13 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-30 08:07 - [全新问界M9现身美国街头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-30 08:14 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-30 08:09 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
-- 2026-06-30 08:04 - [网瘾賊大的阿嬷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-30 07:54 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
-- 2026-06-30 08:13 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-30 08:13 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
-- 2026-06-30 07:54 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-30 08:23 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-30 08:19 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-30 08:28 - [田中碧失误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-30 08:22 - [电影抓特务上映11天破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-30 08:07 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
+- 2026-06-30 08:09 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-30 08:02 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-30 08:12 - [巴西足球能否再现昔日荣光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
+- 2026-06-30 08:03 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-30 08:06 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-30 08:23 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-30 08:23 - [德国爆冷点球大战不敌巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
+- 2026-06-30 08:24 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:55 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/7577074.shtml)
-- 2026-06-30 08:09 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/549731647035.shtml)
-- 2026-06-30 07:57 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/260191402291.shtml)
-- 2026-06-30 08:13 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/82323258572.shtml)
-- 2026-06-30 07:54 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/25522540.shtml)
-- 2026-06-30 08:18 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/88017009.shtml)
-- 2026-06-30 08:20 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.minike.top/Article/details/03558.shtml)
-- 2026-06-30 08:18 - [赛博朋克边缘行者2预告片](http://www.share.kurohicncr.top/Article/details/319016.shtml)
-- 2026-06-30 08:07 - [女子遭下药退赔偿拟追刑责](http://www.share.kurohicncr.top/Article/details/7479702.shtml)
-- 2026-06-30 07:59 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/8227093.shtml)
-- 2026-06-30 07:54 - [我觉得你是在无中生友](https://www.share.kurohicncr.top/Article/details/8212941076.shtml)
-- 2026-06-30 08:08 - [巴西绝杀日本：漫画般结局换了主角](https://www.blog.minike.top/Article/details/665909671.shtml)
-- 2026-06-30 08:10 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/50916524.shtml)
-- 2026-06-30 08:13 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.share.minike.top/Article/details/75624861.shtml)
-- 2026-06-30 08:23 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/98780999461.shtml)
+- 2026-06-30 08:06 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/6964135152.shtml)
+- 2026-06-30 08:22 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/215002795.shtml)
+- 2026-06-30 08:24 - [日本半场1比0领先巴西](http://www.share.minike.top/Article/details/57643619.shtml)
+- 2026-06-30 08:26 - [上市央企地产商 两年换了三任董事长](http://www.blog.minike.top/Article/details/964740530806.shtml)
+- 2026-06-30 08:25 - [巴拉圭先进球了](https://www.share.minike.top/Article/details/58444.shtml)
+- 2026-06-30 08:10 - [千与千寻](https://www.blog.minike.top/Article/details/30734002355.shtml)
+- 2026-06-30 08:27 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/086385.shtml)
+- 2026-06-30 08:02 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/10633766084.shtml)
+- 2026-06-30 08:15 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/85094050670.shtml)
+- 2026-06-30 08:04 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/31881299.shtml)
+- 2026-06-30 08:11 - [好像看到了人类带孩子崩溃的样子](http://www.share.minike.top/Article/details/462705267.shtml)
+- 2026-06-30 08:16 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/29859763.shtml)
+- 2026-06-30 08:08 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/2576256.shtml)
+- 2026-06-30 08:20 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/387498857.shtml)
+- 2026-06-30 08:11 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/96282551.shtml)

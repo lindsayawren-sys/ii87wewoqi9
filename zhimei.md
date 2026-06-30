@@ -1,59 +1,54 @@
-# 停火两周！黄金、美股大反弹，谈判仍充满变数
+# 对话魏建军：汽车不是快消品，要以互惠互利促进国车出海
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-撰文：嘉盛集团资深分析师Jerry Chen 美国和伊朗的停火曙光极大刺激了市场的风险偏好。 特朗普在其设定的最后期限（北京时间周三早上8点）前不到两个小时宣布与伊朗达成为期两周的停火协议，前提条件是重新开放霍尔木兹海峡。 伊朗外长表示若美国停止攻击，伊朗也将停止反击，并将在未来两周内保持海峡的安全通航。双方预计于本周五在巴基斯坦首都伊斯兰堡展开谈判。这是开战至今第一个真正意义
+新浪科技讯 5月10日下午消息，在2026长城汽车智慧工厂半程马拉松活动期间，长城汽车董事长魏建军与新浪科技等媒体对话。 谈及出海话题，魏建军表示，汽车不是快消品，生命周期比较长，价值量比较大，是每个家庭买房之后的第二大开支，保值率、使用费用都很敏感。中国车企要高质量走出去，给海外消费者带来长期可信赖的消费，如果质量、售后不能保证，甚至企业都不能保证长期存在，会让海外用户对中国
 
 ## 正文
 
-撰文：嘉盛集团资深分析师Jerry Chen 美国和伊朗的停火曙光极大刺激了市场的风险偏好。
+新浪科技讯 5月10日下午消息，在2026长城汽车智慧工厂半程马拉松活动期间，长城汽车董事长魏建军与新浪科技等媒体对话。
 
-特朗普在其设定的最后期限（北京时间周三早上8点）前不到两个小时宣布与伊朗达成为期两周的停火协议，前提条件是重新开放霍尔木兹海峡。
+谈及出海话题，魏建军表示，汽车不是快消品，生命周期比较长，价值量比较大，是每个家庭买房之后的第二大开支，保值率、使用费用都很敏感。
 
-伊朗外长表示若美国停止攻击，伊朗也将停止反击，并将在未来两周内保持海峡的安全通航。
+中国车企要高质量走出去，给海外消费者带来长期可信赖的消费，如果质量、售后不能保证，甚至企业都不能保证长期存在，会让海外用户对中国企业产生不信任。
 
-双方预计于本周五在巴基斯坦首都伊斯兰堡展开谈判。
+“企业出海，要带来税收、就业，尊重他国的法律、文化，只有这样才能持久的互惠互利的发展。
 
-这是开战至今第一个真正意义上的转折点。
-
-回想去年4月2日特朗普宣布“对等关税”，4月9日宣布延期90天，几周后中美达成关税停战，自此之后关税政策的实际作用以及对市场的冲击逐渐减弱。
-
-在一年之后的几乎相同时间，特朗普再次TACO，地缘局势能否就此降温？
-
-虽然特朗普表示伊朗的“10点提案”是谈判的“可行基础”，但霍尔木兹海峡的过境条款，战后中东秩序、以及美国对伊制裁等复杂议题让谈判前景充满变数。
+”责任编辑：石秀珍 SF183
 
 ## 相关推荐
 
-- 2026-06-30 08:05 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
-- 2026-06-30 08:10 - [巴拉圭率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-30 08:12 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-30 08:08 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-30 08:23 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-30 08:08 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-30 08:01 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-30 08:22 - [感动全网的699分女生想报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
-- 2026-06-30 08:14 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
-- 2026-06-30 08:07 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-30 08:15 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-30 08:08 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-30 07:55 - [德国巴拉圭 折磨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-30 08:22 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
+- 2026-06-30 08:08 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-30 08:20 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-30 08:24 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-30 08:06 - [德国队连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-30 08:09 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-30 08:02 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-30 08:20 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-30 08:11 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-30 08:19 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-30 08:12 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-30 08:05 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-30 08:29 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-30 08:00 - [巴西足球能否再现昔日荣光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:20 - [点球大战 残酷](https://www.blog.kurohicncr.top/Article/details/63701370592.shtml)
-- 2026-06-30 08:15 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/08743205107.shtml)
-- 2026-06-30 08:08 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/7887548378.shtml)
-- 2026-06-30 08:14 - [湖南祁东原文化馆被指贱卖](https://www.share.kurohicncr.top/Article/details/180018569246.shtml)
-- 2026-06-30 08:19 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/1418463.shtml)
-- 2026-06-30 08:01 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.minike.top/Article/details/66584629.shtml)
-- 2026-06-30 08:18 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/6515260.shtml)
-- 2026-06-30 08:08 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/16873531.shtml)
-- 2026-06-30 07:57 - [毒液2](https://www.blog.minike.top/Article/details/8295547716.shtml)
-- 2026-06-30 08:10 - [森保一致歉：世界第一目标没能实现](http://www.blog.kurohicncr.top/Article/details/475791764.shtml)
-- 2026-06-30 07:55 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/59133.shtml)
-- 2026-06-30 08:10 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/89776261329.shtml)
-- 2026-06-30 07:57 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/11951495.shtml)
-- 2026-06-30 08:15 - [巴西替补奇兵读秒绝杀](http://www.blog.kurohicncr.top/Article/details/06728103614.shtml)
-- 2026-06-30 08:20 - [美股深夜大反弹 特斯拉飙涨8%](https://www.share.minike.top/Article/details/0107178.shtml)
+- 2026-06-30 08:16 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/16368131.shtml)
+- 2026-06-30 08:24 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/331847480733.shtml)
+- 2026-06-30 08:03 - [逃狱兄弟](http://www.blog.minike.top/Article/details/132627705179.shtml)
+- 2026-06-30 08:17 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/429899.shtml)
+- 2026-06-30 08:13 - [又一家县级医院关停门诊输液大厅](http://www.blog.minike.top/Article/details/12616939.shtml)
+- 2026-06-30 08:12 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/6394477534.shtml)
+- 2026-06-30 08:20 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.kurohicncr.top/Article/details/76658895.shtml)
+- 2026-06-30 08:02 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/176799002686.shtml)
+- 2026-06-30 08:17 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/309296934050.shtml)
+- 2026-06-30 08:19 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/7914812507.shtml)
+- 2026-06-30 08:09 - [高质量发展看新疆](https://www.share.minike.top/Article/details/849160676.shtml)
+- 2026-06-30 08:29 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/94824298.shtml)
+- 2026-06-30 08:18 - [詹姆斯下赛季去哪](http://www.blog.kurohicncr.top/Article/details/893546503163.shtml)
+- 2026-06-30 08:28 - [又一家县级医院关停门诊输液大厅](http://www.share.minike.top/Article/details/918564582963.shtml)
+- 2026-06-30 08:00 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/6926172081.shtml)

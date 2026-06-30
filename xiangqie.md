@@ -1,55 +1,59 @@
-# 大雾黄色预警：京津冀等9省市部分地区有大雾 局地有浓雾
+# ATFX:4月非农报告 凯撒医疗因素消退后预期悲观
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-中国天气网讯 中央气象台4月9日18时继续发布大雾黄色预警： 预计，4月9日夜间至10日上午，渤海、渤海海峡、黄海北部和西部海域、东海西北部海域、长江口附近海域将有能见度不足1公里的大雾。此外，河北中南部、北京南部、天津西部、河南东北部、山东西部和北部、江苏北部、安徽中南部、湖北东部、湖南东北部等地的部分地区有大雾天气，局地有能见度不足500米的浓雾。 防御指南： 1、由于陆地
+专题：ATFX外汇专栏投稿 5月8日，ATFX：北京时间今日20点30分，美国劳工统计局将公布4月份非农就业报告，其中最受关注的数据包括失业率和新增非农就业人口。 ▲ATFX图 市场预期认为，美国4月份的失业率将保持4.3%不变，新增非农就业人口将从3月份的17.8万人骤降至6.2万人。原因是3月份的就业高增长并非长期因素驱动，而是美国的凯撒医疗集团大面积复工导致的短期数据异动
 
 ## 正文
 
-中国天气网讯 中央气象台4月9日18时继续发布大雾黄色预警： 预计，4月9日夜间至10日上午，渤海、渤海海峡、黄海北部和西部海域、东海西北部海域、长江口附近海域将有能见度不足1公里的大雾。
+专题：ATFX外汇专栏投稿 5月8日，ATFX：北京时间今日20点30分，美国劳工统计局将公布4月份非农就业报告，其中最受关注的数据包括失业率和新增非农就业人口。
 
-此外，河北中南部、北京南部、天津西部、河南东北部、山东西部和北部、江苏北部、安徽中南部、湖北东部、湖南东北部等地的部分地区有大雾天气，局地有能见度不足500米的浓雾。
+▲ATFX图 市场预期认为，美国4月份的失业率将保持4.3%不变，新增非农就业人口将从3月份的17.8万人骤降至6.2万人。
 
-防御指南： 1、由于陆地能见度较低，驾驶人员应控制速度，确保安全。
+原因是3月份的就业高增长并非长期因素驱动，而是美国的凯撒医疗集团大面积复工导致的短期数据异动。
 
-2、机场、高速公路、轮渡码头采取措施，保障交通安全。
+新增非农就业人口是短期敏感指标，失业率是长期的稳定指标。
 
-3、航行、作业的船舶应加强瞭望，控制航速，保持航行安全距离，谨慎驾驶，确保航行安全。
+即便新增非农就业人口数据大降，只要失业率数据保持不变甚至出现下降，那么美国的就业市场就整体保持稳定。
+
+今年一季度，美国平均新增非农就业人口为6.8万人，而失业率一直保持4.3%不变，意味着只要保持该水平的就业人口，美国的失业率就能够实现“动态的盈亏平衡”。
+
+目前市场预期的6.2万人，处于平衡点6.8万人的附近，所以大概率失业率也将保持不变。
+
+▲ATFX图 排除三月份的异常数据波动，2月份的新增非农就业人口为负的13.3万人，表现异常糟糕，意味着美国的劳动力市场依旧处于相对疲软的状态。
 
 ## 相关推荐
 
-- 2026-06-30 07:56 - [森保一致歉：世界第一目标没能实现](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-30 08:02 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-30 08:14 - [二次元提前预演明日巴西对日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-30 08:01 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
-- 2026-06-30 08:20 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-30 08:17 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-30 08:12 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-30 08:07 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
-- 2026-06-30 08:11 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-30 07:56 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
-- 2026-06-30 07:58 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-30 08:13 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-30 07:59 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-30 07:54 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
-- 2026-06-30 08:19 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-30 08:21 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
+- 2026-06-30 08:16 - [德国 传控](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-30 08:28 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-30 08:05 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-30 08:10 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-30 08:03 - [世界杯欧洲队7战南美仅1胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
+- 2026-06-30 08:26 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-30 08:00 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-30 08:16 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-30 08:00 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-30 08:11 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-30 08:28 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-30 08:09 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:03 - [斛珠夫人](http://www.blog.minike.top/Article/details/722239073127.shtml)
-- 2026-06-30 08:23 - [点球大战 残酷](https://www.share.kurohicncr.top/Article/details/406173563.shtml)
-- 2026-06-30 08:00 - [佐野海舟远射破门](http://www.blog.minike.top/Article/details/48589194.shtml)
-- 2026-06-30 07:56 - [峡谷事故团队组队时有人提醒会下雨](https://www.share.kurohicncr.top/Article/details/65926514729.shtml)
-- 2026-06-30 07:55 - [巴拉圭先进球了](http://www.blog.minike.top/Article/details/109687868.shtml)
-- 2026-06-30 07:57 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.kurohicncr.top/Article/details/359180.shtml)
-- 2026-06-30 07:57 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/2027821752.shtml)
-- 2026-06-30 08:17 - [千与千寻](http://www.share.kurohicncr.top/Article/details/9110955796.shtml)
-- 2026-06-30 08:08 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/025277718977.shtml)
-- 2026-06-30 08:17 - [问心2神一集鬼三集](https://www.share.kurohicncr.top/Article/details/359481045600.shtml)
-- 2026-06-30 07:55 - [森保一致歉：世界第一目标没能实现](https://www.blog.minike.top/Article/details/90000825.shtml)
-- 2026-06-30 08:19 - [世界杯：德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/282508440422.shtml)
-- 2026-06-30 08:04 - [曝詹姆斯即将与勇士会面](http://www.share.kurohicncr.top/Article/details/90775324.shtml)
-- 2026-06-30 08:14 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/685185748122.shtml)
-- 2026-06-30 08:16 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/298844.shtml)
+- 2026-06-30 08:18 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/049943.shtml)
+- 2026-06-30 08:07 - [美股深夜大反弹 特斯拉飙涨8%](http://www.blog.kurohicncr.top/Article/details/37729.shtml)
+- 2026-06-30 08:15 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/386131.shtml)
+- 2026-06-30 08:12 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/3145209170.shtml)
+- 2026-06-30 08:24 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/0317421.shtml)
+- 2026-06-30 08:01 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/6620440324.shtml)
+- 2026-06-30 08:04 - [周冬雨多次说演不了话剧文城](https://www.blog.kurohicncr.top/Article/details/39808.shtml)
+- 2026-06-30 08:12 - [4000美元是黄金新一轮下跌的开始吗](https://www.blog.kurohicncr.top/Article/details/4218410733.shtml)
+- 2026-06-30 08:14 - [“柠檬茶能换怀表？”](http://www.blog.kurohicncr.top/Article/details/30367.shtml)
+- 2026-06-30 08:11 - [委内瑞拉地震死亡人数升至1719人](http://www.blog.kurohicncr.top/Article/details/05013716.shtml)
+- 2026-06-30 08:03 - [爆冷出局！德国点球大战不敌巴拉圭](http://www.blog.kurohicncr.top/Article/details/400282281.shtml)
+- 2026-06-30 08:02 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/03418903.shtml)
+- 2026-06-30 08:07 - [王楚钦说配合稍微有些陌生感](http://www.blog.minike.top/Article/details/137300.shtml)
+- 2026-06-30 08:10 - [孙兴慜发长文致歉](http://www.blog.kurohicncr.top/Article/details/175250.shtml)
+- 2026-06-30 08:28 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/684079348.shtml)

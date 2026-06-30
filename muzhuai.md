@@ -1,59 +1,59 @@
-# 中资券商国际化提速 有员工最高年薪超1500万
+# 芯片股迎来2000年以来最佳六周行情
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！中证协最新数据显示，截至2025年末，34家内地券商共设立36家境外子公司，境外子公司总资产达1.94万亿港元（约合1.78万亿元人民币），同比增长31.95%；全年实现营业收入452.33亿港元（约合414.41亿元人民币），同比增长6.15%。在服务企业赴港上市方面，中资券商已占据绝对主导地位。境外子公
+费城半导体指数自3月底以来累计上涨约32%，创下2000年以来最佳六周表现。本轮上涨由存储芯片价格飙升、人工智能需求持续爆发以及板块轮动资金流入共同驱动。 存储芯片领涨 自2月底伊朗战争爆发以来，DRAM和NAND闪存芯片现货价格分别上涨约25%和18%，直接推动美光和闪迪股价在六周内分别上涨约45%和60%。存储芯片行业经历了长达两年的去库存周期，供给端产能受限，而AI服务器
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+费城半导体指数自3月底以来累计上涨约32%，创下2000年以来最佳六周表现。
 
-中证协最新数据显示，截至2025年末，34家内地券商共设立36家境外子公司，境外子公司总资产达1.94万亿港元（约合1.78万亿元人民币），同比增长31.95%；全年实现营业收入452.33亿港元（约合414.41亿元人民币），同比增长6.15%。
+本轮上涨由存储芯片价格飙升、人工智能需求持续爆发以及板块轮动资金流入共同驱动。
 
-在服务企业赴港上市方面，中资券商已占据绝对主导地位。
+存储芯片领涨 自2月底伊朗战争爆发以来，DRAM和NAND闪存芯片现货价格分别上涨约25%和18%，直接推动美光和闪迪股价在六周内分别上涨约45%和60%。
 
-境外子公司全年共服务113家企业登陆香港市场，融资金额超2800亿港元，市占率超过90%，较2024年显著提升。
+存储芯片行业经历了长达两年的去库存周期，供给端产能受限，而AI服务器对高带宽内存的需求正在消耗大量产能，导致供需缺口扩大，涨价周期比预期更为猛烈。
 
-从头部机构表现看，中信证券国际2025年实现营业收入约230亿元人民币，同比增长48%，占据行业境外总营收的半壁江山，净利润达62.88亿元。
+AI需求仍是核心叙事 英伟达六周内上涨约35%。
 
-中金国际同期营收133.62亿元，净利润占集团合并口径比例达45.63%，国际化业务的“利润压舱石”效应显著。
+公司将于本月下旬公布财报，市场预期数据中心营收将再创新高。
 
-华泰国际实现营收92.91亿港元（约合人民币85亿元），净利润占集团比例17.61%。
+博通上涨约28%，AMD上涨约25%。
 
-中信建投国际营收14.92亿元，净利润8.91亿元，同比增速分别超100%和150%，增长势头强劲。
+尽管AI相关芯片表现强劲，但模拟芯片和汽车芯片表现相对落后，德州仪器和恩智浦同期仅上涨约10%至12%，显示工业端需求复苏仍不均衡。
 
 ## 相关推荐
 
-- 2026-06-30 08:17 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-30 08:03 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-30 08:15 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-30 08:02 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-30 07:54 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-30 08:00 - [点球大战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-30 08:22 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-30 08:13 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-30 08:12 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-30 08:18 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
-- 2026-06-30 07:55 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-30 08:23 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
-- 2026-06-30 07:56 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-30 08:26 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
+- 2026-06-30 08:14 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-30 08:18 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-30 08:12 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-30 08:16 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-30 08:23 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-30 08:04 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-30 08:14 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-30 08:19 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-30 08:21 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-30 08:02 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
+- 2026-06-30 08:13 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-30 08:20 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:00 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/839320549339.shtml)
-- 2026-06-30 08:23 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/1125132255.shtml)
-- 2026-06-30 08:09 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/19408203408.shtml)
-- 2026-06-30 08:01 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/60015.shtml)
-- 2026-06-30 07:54 - [王楚钦孙颖莎晋级混双八强](http://www.blog.kurohicncr.top/Article/details/646302830.shtml)
-- 2026-06-30 08:08 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/3039452.shtml)
-- 2026-06-30 07:57 - [曝詹姆斯即将与勇士会面](https://www.blog.kurohicncr.top/Article/details/914003219.shtml)
-- 2026-06-30 08:06 - [王源近几年没有路演了](http://www.share.kurohicncr.top/Article/details/7297974439.shtml)
-- 2026-06-30 08:15 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/120875980094.shtml)
-- 2026-06-30 07:54 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/3728143364.shtml)
-- 2026-06-30 08:10 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/2152633.shtml)
-- 2026-06-30 08:15 - [千香](http://www.share.kurohicncr.top/Article/details/7739746.shtml)
-- 2026-06-30 07:59 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/04508585.shtml)
-- 2026-06-30 08:10 - [日本球员说被绝杀非常不甘心](http://www.share.kurohicncr.top/Article/details/155735195.shtml)
-- 2026-06-30 08:01 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/45313594.shtml)
+- 2026-06-30 08:23 - [苗族银饰](http://www.blog.minike.top/Article/details/3372255188.shtml)
+- 2026-06-30 08:21 - [巴西绝杀日本：漫画般结局换了主角](http://www.share.kurohicncr.top/Article/details/838649169.shtml)
+- 2026-06-30 08:28 - [德国爆冷点球大战不敌巴拉圭](http://www.share.kurohicncr.top/Article/details/589608976386.shtml)
+- 2026-06-30 08:18 - [莫兰特被交易到开拓者](https://www.blog.kurohicncr.top/Article/details/279839.shtml)
+- 2026-06-30 08:25 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/38855167570.shtml)
+- 2026-06-30 08:27 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/59064.shtml)
+- 2026-06-30 08:21 - [巴拉圭进球](https://www.share.kurohicncr.top/Article/details/490199.shtml)
+- 2026-06-30 08:03 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/11457245072.shtml)
+- 2026-06-30 08:16 - [萨内 看笑了](http://www.share.kurohicncr.top/Article/details/921628.shtml)
+- 2026-06-30 08:01 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/42309103.shtml)
+- 2026-06-30 08:12 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/261254933.shtml)
+- 2026-06-30 08:14 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/1654448989.shtml)
+- 2026-06-30 08:09 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.kurohicncr.top/Article/details/3774577.shtml)
+- 2026-06-30 08:06 - [马耳他著名拱门坍塌致一中国男子身亡](http://www.share.kurohicncr.top/Article/details/3422441655.shtml)
+- 2026-06-30 08:05 - [网红峡谷5人溺亡 有人提醒会下雨](https://www.share.kurohicncr.top/Article/details/789668.shtml)

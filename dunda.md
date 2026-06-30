@@ -1,50 +1,56 @@
-# 美国议员敦促SEC调查伊朗冲突期间的“可疑”交易
+# 银行自营基金配置“刹车”！2025年行业缩水万亿，股份行城商行领跌
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-美国众议员Ritchie Torres周三表示，在特朗普上个月暂缓对伊朗的军事打击的前一刻，石油和股票期货市场出现了异常交易活动，顶层监管机构应该启动调查。 向美国证券交易委员会（SEC）、商品期货交易委员会（CFTC）的负责人发函之后，Torres接受采访称：“从速度、规模和结构来看，相关交易值得怀疑。”他还称：“事实是如此明显，SEC和CFTC都忽视不起。” 这位民主党人呼
+财联社5月9日讯（编辑 王蔚）2025年，商业银行自营投资基金经历了显著的结构性调整。整体来看，银行系资金正在加速从公募基金撤退：据机构研究统计，2025年全年银行自营减配公募基金约4600亿元至7.35万亿元。 分类型来看，6家国有行基金持仓整体仍在扩张，2025年末合计持仓约1.80万亿元，较2024年的1.62万亿元净增1748亿元；股份行基金投资则表现分化，12家股份行
 
 ## 正文
 
-美国众议员Ritchie Torres周三表示，在特朗普上个月暂缓对伊朗的军事打击的前一刻，石油和股票期货市场出现了异常交易活动，顶层监管机构应该启动调查。
+财联社5月9日讯（编辑 王蔚）2025年，商业银行自营投资基金经历了显著的结构性调整。
 
-向美国证券交易委员会（SEC）、商品期货交易委员会（CFTC）的负责人发函之后，Torres接受采访称：“从速度、规模和结构来看，相关交易值得怀疑。
+整体来看，银行系资金正在加速从公募基金撤退：据机构研究统计，2025年全年银行自营减配公募基金约4600亿元至7.35万亿元。
 
-”他还称：“事实是如此明显，SEC和CFTC都忽视不起。
+分类型来看，6家国有行基金持仓整体仍在扩张，2025年末合计持仓约1.80万亿元，较2024年的1.62万亿元净增1748亿元；股份行基金投资则表现分化，12家股份行2025年末合计持仓约3.28万亿元，较2024年的3.15万亿元净增约1300亿元，但增量资金仅来自浦发银行和兴业银行，其余10家股份行合计净减3241亿；城商行基金投资整体呈收缩态势，但单家银行收缩规模较小。
 
-” 这位民主党人呼吁两家监管机构，正式调查特朗普3月23日在社交媒体上发帖前几分钟内的石油、能源和股票期货市场交易，获取交易相关账户的交易记录。
+银行自营减配公募基金约4600亿元至7.35万亿元 2025年，商业银行自营投资基金经历了显著的结构性调整。
 
-责任编辑：于健 SF069
+整体来看，银行系资金正在加速从公募基金撤退：据中金公司在其研报中披露 ，2025年全年银行自营减配公募基金约4600亿元至7.35万亿元。
+
+分银行类型看，国有大行的基金持仓整体仍在扩张。
+
+六大行2025年末合计持仓约1.80万亿元，较2024年的1.62万亿元净增1748亿元。
+
+建设银行、工商银行、中国银行、农业银行均实现正增长，只有邮储银行和交通银行出现下降。
 
 ## 相关推荐
 
-- 2026-06-30 08:17 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
-- 2026-06-30 08:09 - [德国巴拉圭加时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
-- 2026-06-30 08:03 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-30 08:19 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
-- 2026-06-30 07:56 - [全球芯片巨头史诗级扩产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-30 08:15 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-30 08:17 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-30 08:02 - [世界杯欧洲队7战南美仅1胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-30 08:19 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-30 08:19 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-30 08:26 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-30 08:07 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-30 08:08 - [媒体：手机测评该挤挤水分了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-30 08:19 - [泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
+- 2026-06-30 08:16 - [曝老詹对自由市场态度与以往截然不同](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-30 08:18 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-30 08:22 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-30 08:04 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-30 08:00 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-30 08:10 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:02 - [电影抓特务上映11天破亿](http://www.blog.kurohicncr.top/Article/details/62559.shtml)
-- 2026-06-30 08:23 - [德国进球被吹](https://www.blog.minike.top/Article/details/30447.shtml)
-- 2026-06-30 08:02 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/404204813.shtml)
-- 2026-06-30 08:16 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/23838386492.shtml)
-- 2026-06-30 08:03 - [老外对中国cosplay竟这样评价…](http://www.share.minike.top/Article/details/029034414.shtml)
-- 2026-06-30 08:05 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/607680.shtml)
-- 2026-06-30 08:17 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/0361700.shtml)
-- 2026-06-30 08:06 - [郑钦文温网首轮出局](https://www.blog.minike.top/Article/details/78338.shtml)
-- 2026-06-30 08:12 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/8544422.shtml)
-- 2026-06-30 08:21 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.minike.top/Article/details/937550104937.shtml)
-- 2026-06-30 08:22 - [女子健身不当 居然“脑子漏水”了](http://www.blog.minike.top/Article/details/5897503792.shtml)
-- 2026-06-30 08:07 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/213724861.shtml)
-- 2026-06-30 08:02 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/83356.shtml)
-- 2026-06-30 08:12 - [为什么会有「念旧」的心理？](http://www.blog.minike.top/Article/details/699217862.shtml)
-- 2026-06-30 08:13 - [建议不要突然完全停止喝咖啡](https://www.share.minike.top/Article/details/783736.shtml)
+- 2026-06-30 08:14 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/640555.shtml)
+- 2026-06-30 08:12 - [输球后日本球迷被强行披上巴西国旗](https://www.share.kurohicncr.top/Article/details/6047111390.shtml)
+- 2026-06-30 08:04 - [勇敢的心第二部](https://www.share.minike.top/Article/details/9624994.shtml)
+- 2026-06-30 08:25 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/5538489337.shtml)
+- 2026-06-30 08:16 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/8939300.shtml)
+- 2026-06-30 08:07 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.minike.top/Article/details/0451028.shtml)
+- 2026-06-30 08:27 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/666550937.shtml)
+- 2026-06-30 08:13 - [巴西绝杀日本](http://www.share.kurohicncr.top/Article/details/81064403470.shtml)
+- 2026-06-30 08:03 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/5360445.shtml)
+- 2026-06-30 08:04 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/5548334.shtml)
+- 2026-06-30 08:14 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/198405.shtml)
+- 2026-06-30 08:02 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.minike.top/Article/details/0729563898.shtml)
+- 2026-06-30 08:13 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/40171712960.shtml)
+- 2026-06-30 08:04 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.minike.top/Article/details/7968739.shtml)
+- 2026-06-30 08:21 - [逃狱兄弟](https://www.blog.minike.top/Article/details/34872.shtml)

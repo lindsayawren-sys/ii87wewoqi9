@@ -1,53 +1,56 @@
-# 何立峰会见美国桥水投资公司创始人达利欧
+# 2025年我国自行车全行业总产量超1.1亿辆
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-新华社北京4月9日电 中共中央政治局委员、中央财办主任何立峰9日在京会见美国桥水投资公司创始人达利欧。 何立峰表示，今年以来，中国经济开局良好。“十五五”时期，中国将持续扩大高水平对外开放，欢迎各国投资者来华投资兴业，共享高质量发展机遇。健康稳定的中美经贸关系符合两国根本利益，希望美国工商界继续发挥积极作用，做中美经贸关系的维护者和推动者。 达利欧表示，中国经济在当前国际环境下
+新华社上海5月8日电(记者叶昊鸣)2025年，我国自行车全行业总产量为11080万辆，同比增长11.3%，全年生产实现平稳增长。 这是记者8日从2026中国国际自行车展览会上了解到的消息。本届展览会在上海举办，紧扣全球自行车产业绿色、智能、高端发展趋势，集中展现我国自行车新产品和产业发展新趋势。 中国自行车协会副理事长兼秘书长郭文玉介绍，2025年，我国自行车全行业规模以上企业
 
 ## 正文
 
-新华社北京4月9日电 中共中央政治局委员、中央财办主任何立峰9日在京会见美国桥水投资公司创始人达利欧。
+新华社上海5月8日电(记者叶昊鸣)2025年，我国自行车全行业总产量为11080万辆，同比增长11.3%，全年生产实现平稳增长。
 
-何立峰表示，今年以来，中国经济开局良好。
+这是记者8日从2026中国国际自行车展览会上了解到的消息。
 
-“十五五”时期，中国将持续扩大高水平对外开放，欢迎各国投资者来华投资兴业，共享高质量发展机遇。
+本届展览会在上海举办，紧扣全球自行车产业绿色、智能、高端发展趋势，集中展现我国自行车新产品和产业发展新趋势。
 
-健康稳定的中美经贸关系符合两国根本利益，希望美国工商界继续发挥积极作用，做中美经贸关系的维护者和推动者。
+中国自行车协会副理事长兼秘书长郭文玉介绍，2025年，我国自行车全行业规模以上企业实现营业收入同比增长9%，利润实现大幅提升。
 
-达利欧表示，中国经济在当前国际环境下展现出的较强韧性和稳定性令人印象深刻，看好中国经济发展前景。
+出口方面，2025年，我国自行车出口4893.9万辆，同比增长2.4%，行业出口保持平稳增长；自行车零部件出口额36.32亿美元，同比增长10.6%，零部件出口表现突出。
+
+“自行车场景消费拓展新边界，多元场景激活细分需求。
+
+”郭文玉说，2025年，我国举办自行车赛事101场，较2024年增长23%，参与竞赛人数突破百万人；我国业余骑行俱乐部数量突破8万家，骑行装备市场快速扩容。
+
+全国共享单车日均骑行量达1.2亿次，作为城市交通的补充，更好满足城市通勤、短途出行等需求。
 
 ## 相关推荐
 
-- 2026-06-30 08:16 - [巴拉圭进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-30 08:11 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-30 08:01 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-30 08:18 - [郑钦文温网首轮出局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
-- 2026-06-30 07:59 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-30 07:56 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
-- 2026-06-30 07:59 - [金鹰奖视后提名预测](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-30 08:01 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
-- 2026-06-30 08:14 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-30 08:09 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-30 08:02 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-30 08:02 - [巴西绝杀日本：漫画般结局换了主角](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-30 08:08 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-30 08:12 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-30 08:11 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-30 08:03 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-30 08:04 - [女子遭下药退赔偿拟追刑责](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-30 08:00 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-30 08:06 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-30 08:24 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-30 08:04 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-30 08:12 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-30 08:19 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:10 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/3444818.shtml)
-- 2026-06-30 08:12 - [曝詹姆斯即将与勇士会面](https://www.share.kurohicncr.top/Article/details/26688004.shtml)
-- 2026-06-30 08:20 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/683185194.shtml)
-- 2026-06-30 08:01 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/7398895057.shtml)
-- 2026-06-30 07:59 - [森保一致歉：世界第一目标没能实现](https://www.share.minike.top/Article/details/9780067365.shtml)
-- 2026-06-30 08:01 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/050562.shtml)
-- 2026-06-30 08:01 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/58294.shtml)
-- 2026-06-30 08:19 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.blog.kurohicncr.top/Article/details/65155.shtml)
-- 2026-06-30 08:03 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/378484382.shtml)
-- 2026-06-30 08:12 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/54337.shtml)
-- 2026-06-30 08:10 - [IGN评测电影版后室](https://www.blog.kurohicncr.top/Article/details/76051.shtml)
-- 2026-06-30 08:08 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/6524505.shtml)
-- 2026-06-30 08:05 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/73794.shtml)
-- 2026-06-30 07:58 - [索马里女大使：想和中国一起搞事业](https://www.blog.minike.top/Article/details/8571480.shtml)
-- 2026-06-30 07:58 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/677087789.shtml)
+- 2026-06-30 08:15 - [逃狱兄弟](https://www.blog.minike.top/Article/details/85531451.shtml)
+- 2026-06-30 08:17 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.kurohicncr.top/Article/details/49028132.shtml)
+- 2026-06-30 08:20 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/46545.shtml)
+- 2026-06-30 08:04 - [网红峡谷5人溺亡 有人提醒会下雨](http://www.blog.kurohicncr.top/Article/details/49738200877.shtml)
+- 2026-06-30 08:12 - [卢卡申科发布解放军仪仗队视频](https://www.blog.kurohicncr.top/Article/details/66816.shtml)
+- 2026-06-30 08:00 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/9645900577.shtml)
+- 2026-06-30 08:17 - [周冬雨多次说演不了话剧文城](http://www.blog.minike.top/Article/details/39166865312.shtml)
+- 2026-06-30 08:24 - [爱很美味](https://www.share.kurohicncr.top/Article/details/1693385.shtml)
+- 2026-06-30 08:04 - [亚洲球队全部告别世界杯](http://www.share.minike.top/Article/details/7227336.shtml)
+- 2026-06-30 08:19 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/709822724851.shtml)
+- 2026-06-30 08:26 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.minike.top/Article/details/8804857.shtml)
+- 2026-06-30 08:01 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/6761106.shtml)
+- 2026-06-30 08:27 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/5163855.shtml)
+- 2026-06-30 08:08 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/08381803268.shtml)
+- 2026-06-30 08:08 - [日本球员说被绝杀非常不甘心](https://www.blog.kurohicncr.top/Article/details/221732.shtml)

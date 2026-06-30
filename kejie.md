@@ -1,57 +1,56 @@
-# 味好美这笔650亿美元交易为何有望真正成功
+# 木头姐：未来6至9个月通胀数据大概率会低于市场预期
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-大型食品企业并购往往事与愿违，但味好美与联合利华的联姻或许会成为例外 味好美高管表示，通过与联合利华合并，公司每年将实现 6 亿美元的成本节约。 大型食品企业并购在纸面上往往听起来十分美好，实际落地却常常惨不忍睹。 这类交易通常会让合并后的公司陷入管理复杂化、品牌增长停滞以及巨额债务压身的困境。因此，当联合利华上周宣布将其食品业务与味好美合并、打造一家市值 650 亿美元的行业
+方舟投资（ARKInvest）创始人、首席执行官兼首席投资官凯西·伍德（CathieWood）发文称，当前市场数据中一个值得关注的信号是：尽管过去三个月油价大幅上涨，收益率曲线仍持续趋平。从历史规律来看，在传统经济周期中，若美联储对能源冲击采取货币化宽松举措，收益率曲线理应陡峭化，而非趋平。而本轮能源冲击并未得到美联储的货币化宽松支持。 方舟投资认为，债券市场或许已开始提前定价
 
 ## 正文
 
-大型食品企业并购往往事与愿违，但味好美与联合利华的联姻或许会成为例外 味好美高管表示，通过与联合利华合并，公司每年将实现 6 亿美元的成本节约。
+方舟投资（ARKInvest）创始人、首席执行官兼首席投资官凯西·伍德（CathieWood）发文称，当前市场数据中一个值得关注的信号是：尽管过去三个月油价大幅上涨，收益率曲线仍持续趋平。
 
-大型食品企业并购在纸面上往往听起来十分美好，实际落地却常常惨不忍睹。
+从历史规律来看，在传统经济周期中，若美联储对能源冲击采取货币化宽松举措，收益率曲线理应陡峭化，而非趋平。
 
-这类交易通常会让合并后的公司陷入管理复杂化、品牌增长停滞以及巨额债务压身的困境。
+而本轮能源冲击并未得到美联储的货币化宽松支持。
 
-因此，当联合利华上周宣布将其食品业务与味好美合并、打造一家市值 650 亿美元的行业巨头时，两家公司的股价均遭到投资者抛售。
+方舟投资认为，债券市场或许已开始提前定价一股影响更为深远的力量：人工智能以及技术赋能下全社会生产率提升所带来的通缩效应。
 
-尽管如此，这笔交易仍有可能成为行业惯例中的例外。
+训练人工智能模型的成本正大幅下降，模型推理成本的降幅更为迅猛。
 
-交易结构恰恰揭示了其中缘由：本次并购采用 反向莫里斯信托（Reverse Morris Trust） 模式，允许企业剥离业务部门，同时避免产生高额税单。
+与此同时，官方经济数据表象之下，生产率增速似在持续加快，单位劳动力成本也维持在极低水平。
 
-具体而言，联合利华的食品业务将先分拆给其现有股东，再与味好美完成合并。
+当前市场主流论调大多聚焦关税、财政赤字以及通胀结构性走高。
 
-这种方式避免了直接出售非核心业务可能产生的大额应税收益，新成立的公司将由味好美管理团队掌舵。
+但深层市场信号愈发表明，由科技创新驱动的去通胀力量正在积蓄势能。
 
 ## 相关推荐
 
-- 2026-06-30 08:07 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-30 08:09 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
-- 2026-06-30 08:14 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-30 07:54 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
-- 2026-06-30 08:14 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-30 08:13 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-30 08:23 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-30 08:20 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-30 07:56 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-30 08:11 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
-- 2026-06-30 07:54 - [德国进球被吹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-30 08:21 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-30 08:17 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-30 08:16 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-30 08:21 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-30 08:26 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-30 08:19 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-30 08:24 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-30 08:05 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-30 08:05 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-30 08:17 - [点球大战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:14 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/843229.shtml)
-- 2026-06-30 08:19 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/01437.shtml)
-- 2026-06-30 08:17 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/3512172.shtml)
-- 2026-06-30 08:07 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/03435847.shtml)
-- 2026-06-30 08:07 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/99867.shtml)
-- 2026-06-30 08:16 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/98986.shtml)
-- 2026-06-30 08:10 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.kurohicncr.top/Article/details/710056066.shtml)
-- 2026-06-30 08:15 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/43185401334.shtml)
-- 2026-06-30 08:21 - [董卿父亲在报纸上发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/050874221.shtml)
-- 2026-06-30 08:23 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://www.share.minike.top/Article/details/7362088576.shtml)
-- 2026-06-30 08:22 - [巴拉圭率先破门](https://www.share.minike.top/Article/details/528183975208.shtml)
-- 2026-06-30 08:03 - [千与千寻](http://www.share.minike.top/Article/details/076047.shtml)
-- 2026-06-30 08:07 - [中国新一轮出口管制直指日本命脉](http://www.blog.minike.top/Article/details/68713.shtml)
-- 2026-06-30 08:06 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/38457187419.shtml)
-- 2026-06-30 07:55 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/36154924.shtml)
+- 2026-06-30 08:15 - [王濛回复黄灿灿](http://www.share.minike.top/Article/details/732826026883.shtml)
+- 2026-06-30 08:09 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/65394.shtml)
+- 2026-06-30 08:13 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/843590693.shtml)
+- 2026-06-30 08:12 - [《男人至死是傻得儿》](https://www.share.kurohicncr.top/Article/details/34185.shtml)
+- 2026-06-30 08:09 - [老外对中国cosplay竟这样评价…](https://www.share.kurohicncr.top/Article/details/41561.shtml)
+- 2026-06-30 08:04 - [81岁老人被男子买光菜回家车祸去世](https://www.share.kurohicncr.top/Article/details/01085692972.shtml)
+- 2026-06-30 08:11 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.kurohicncr.top/Article/details/3685225.shtml)
+- 2026-06-30 08:07 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/15200824519.shtml)
+- 2026-06-30 08:12 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/01994.shtml)
+- 2026-06-30 08:07 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/43242.shtml)
+- 2026-06-30 08:01 - [感动全网的699分女生想报考清华](http://www.share.minike.top/Article/details/886472.shtml)
+- 2026-06-30 08:04 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/122743.shtml)
+- 2026-06-30 08:22 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/928159252131.shtml)
+- 2026-06-30 08:15 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/87735484.shtml)
+- 2026-06-30 08:18 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/6557505.shtml)

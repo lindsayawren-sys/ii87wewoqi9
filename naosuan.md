@@ -1,50 +1,47 @@
-# 通胀压力持续 美国2月消费者支出几无增长
+# 普京谈与泽连斯基会面：不主动 不拒绝
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-在通胀持续且因伊朗战争可能进一步加剧的背景下，美国2月消费者支出几乎没有增长。 美国经济分析局周四公布的数据显示，经通胀调整后消费者支出环比增长0.1%。 剔除食品和能源价格后的所谓核心个人消费支出价格指数较1月上涨0.4%。与上年同期相比上涨3%。责任编辑：江学思
+新华社莫斯科5月9日电(记者黄河)俄罗斯总统普京9日对媒体表示，他既不会主动提出、也不会拒绝与乌克兰总统泽连斯基会面。 普京表示，他不仅愿意在俄首都莫斯科，也愿意在第三国与泽连斯基会面，但他同时强调，会面只可能在双方准备签署协议的阶段实现。 普京还表示，美国真诚地寻求解决乌克兰问题的办法，“但这主要还是俄罗斯和乌克兰之间的问题”。
 
 ## 正文
 
-在通胀持续且因伊朗战争可能进一步加剧的背景下，美国2月消费者支出几乎没有增长。
+新华社莫斯科5月9日电(记者黄河)俄罗斯总统普京9日对媒体表示，他既不会主动提出、也不会拒绝与乌克兰总统泽连斯基会面。
 
-美国经济分析局周四公布的数据显示，经通胀调整后消费者支出环比增长0.1%。
+普京表示，他不仅愿意在俄首都莫斯科，也愿意在第三国与泽连斯基会面，但他同时强调，会面只可能在双方准备签署协议的阶段实现。
 
-剔除食品和能源价格后的所谓核心个人消费支出价格指数较1月上涨0.4%。
-
-与上年同期相比上涨3%。
-
-责任编辑：江学思
+普京还表示，美国真诚地寻求解决乌克兰问题的办法，“但这主要还是俄罗斯和乌克兰之间的问题”。
 
 ## 相关推荐
 
-- 2026-06-30 08:04 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
-- 2026-06-30 08:11 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-30 08:17 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
-- 2026-06-30 08:13 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
-- 2026-06-30 08:02 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-30 07:57 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-30 08:18 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
-- 2026-06-30 08:19 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-30 07:56 - [泰山景区回应修建刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-30 07:59 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
+- 2026-06-30 08:20 - [泰山景区回应修建刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-30 08:11 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-30 08:29 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-30 08:04 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
+- 2026-06-30 08:20 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-30 08:08 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-30 08:15 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-30 08:17 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
+- 2026-06-30 08:26 - [莫兰特被交易到开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-30 08:28 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-30 08:11 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:56 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/71818678.shtml)
-- 2026-06-30 08:04 - [韩国球迷凌晨4点接机怒骂主教练](https://www.share.minike.top/Article/details/614663776576.shtml)
-- 2026-06-30 08:20 - [巴西醒醒 这是淘汰赛](https://www.blog.minike.top/Article/details/766581038201.shtml)
-- 2026-06-30 08:12 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/03087932279.shtml)
-- 2026-06-30 08:09 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/1327848.shtml)
-- 2026-06-30 08:12 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/575711106951.shtml)
-- 2026-06-30 08:05 - [女子遭下药退赔偿拟追刑责](http://www.blog.kurohicncr.top/Article/details/271704019418.shtml)
-- 2026-06-30 08:00 - [又一家县级医院关停门诊输液大厅](http://www.blog.kurohicncr.top/Article/details/5941974.shtml)
-- 2026-06-30 08:05 - [花少8要去世界杯举办国](https://www.share.minike.top/Article/details/316811503533.shtml)
-- 2026-06-30 07:55 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/051805054963.shtml)
-- 2026-06-30 08:13 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.minike.top/Article/details/638014.shtml)
-- 2026-06-30 07:59 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/96725739.shtml)
-- 2026-06-30 07:56 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.minike.top/Article/details/63253772994.shtml)
-- 2026-06-30 08:12 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/250672.shtml)
-- 2026-06-30 08:16 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/03469781.shtml)
+- 2026-06-30 08:21 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/103823656.shtml)
+- 2026-06-30 08:21 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/985963783839.shtml)
+- 2026-06-30 08:00 - [天道](https://www.share.kurohicncr.top/Article/details/817048507.shtml)
+- 2026-06-30 08:24 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/74503.shtml)
+- 2026-06-30 08:04 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.kurohicncr.top/Article/details/65103576529.shtml)
+- 2026-06-30 08:16 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/947410.shtml)
+- 2026-06-30 08:25 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.share.minike.top/Article/details/59766.shtml)
+- 2026-06-30 08:28 - [曝老詹对自由市场态度与以往截然不同](http://www.blog.minike.top/Article/details/632942517.shtml)
+- 2026-06-30 08:27 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.minike.top/Article/details/95569315.shtml)
+- 2026-06-30 08:26 - [郑钦文温网一轮游](https://www.share.kurohicncr.top/Article/details/132121562557.shtml)
+- 2026-06-30 08:12 - [女心理师](https://www.share.minike.top/Article/details/91669905.shtml)
+- 2026-06-30 08:22 - [詹姆斯下赛季去哪](https://www.share.minike.top/Article/details/89085004.shtml)
+- 2026-06-30 08:13 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/125764640215.shtml)
+- 2026-06-30 08:21 - [巴西绝杀](http://www.blog.minike.top/Article/details/3196122.shtml)
+- 2026-06-30 08:26 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/1295537565.shtml)

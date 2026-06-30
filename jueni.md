@@ -1,60 +1,61 @@
-# 今年东博会首场进东盟专题展亮相越南
+# 工信部启动人工智能科技伦理审查与服务先导计划
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-南宁晚报讯(记者赵金玲 通讯员陈芳)4月8日，第35届越南国际贸易博览会启幕，中国—东盟博览会秘书处(以下简称东博会秘书处)组织近30家企业以专题展区形式亮相。专题展展期持续至11日，以“借船出海”模式助力企业融入越南市场，充分释放东博会品牌溢出效应。开幕仪式结束后，中越嘉宾共同参观专题展区，与参展中国企业深入交流。越南工贸部贸易促进局将与东博会秘书处在展期共同举办推介会、做好
+中新网5月9日电 据“工信微报”微信公众号消息，近日，工业和信息化部印发通知，正式启动人工智能科技伦理审查与服务先导计划(以下简称先导计划)，依托国家人工智能产业创新应用先导区所在省份，率先探索人工智能科技伦理审查与服务的落地路径，健全多方参与、协同高效的治理机制，支撑人工智能负责任创新和产业高质量发展。当前，随着人工智能技术快速迭代，算法歧视、情感依赖等科技伦理风险日益凸显。
 
 ## 正文
 
-南宁晚报讯(记者赵金玲 通讯员陈芳)4月8日，第35届越南国际贸易博览会启幕，中国—东盟博览会秘书处(以下简称东博会秘书处)组织近30家企业以专题展区形式亮相。
+中新网5月9日电 据“工信微报”微信公众号消息，近日，工业和信息化部印发通知，正式启动人工智能科技伦理审查与服务先导计划(以下简称先导计划)，依托国家人工智能产业创新应用先导区所在省份，率先探索人工智能科技伦理审查与服务的落地路径，健全多方参与、协同高效的治理机制，支撑人工智能负责任创新和产业高质量发展。
 
-专题展展期持续至11日，以“借船出海”模式助力企业融入越南市场，充分释放东博会品牌溢出效应。
+当前，随着人工智能技术快速迭代，算法歧视、情感依赖等科技伦理风险日益凸显。
 
-开幕仪式结束后，中越嘉宾共同参观专题展区，与参展中国企业深入交流。
+如何建立人工智能科技伦理审查与服务机制，有效防范科技伦理风险，成为亟须解决的问题。
 
-越南工贸部贸易促进局将与东博会秘书处在展期共同举办推介会、做好贸易配对活动，推动东博会“金字招牌”在越南落地生根。
+前期，工业和信息化部等十部门联合印发了《人工智能科技伦理审查与服务办法(试行)》(以下简称《办法》)，立足人工智能技术特征与伦理原则，对人工智能科技伦理审查与服务的适用范围、服务促进、实施主体、工作程序、监督管理等作出规定。
 
-本次专题展是今年东博会首场进东盟专题展，展区汇聚了广西大生新能源科技有限公司、梧州茶厂、南方黑芝麻集团股份有限公司等近30家中国优质企业。
+在此基础上，工业和信息化部组织实施人工智能科技伦理审查与服务先导计划，推动《办法》在部分城市率先落地。
 
-展品精准对接越南及其他东盟国家市场需求，涵盖食品与饮料、日用品与消费品、特色农产品与手工艺品、建材与工业材料、汽车与机械、智能设备与科技、文化产业等领域。
+本次先导计划，进一步明确了地方政府部门和各类创新主体推进人工智能科技伦理审查与服务落地实施的具体操作路径，通过设置一系列重点任务，着力推动在实践中探索经验、完善制度，健全人工智能科技伦理审查与服务机制，稳步推进具有中国特色的人工智能科技伦理治理走深走实。
 
-专题展为采购商与参展企业搭建了高效对接平台，将展会“流量”真正转化为经贸合作的“留量”与“增量”，持续为中国—东盟自贸区3.0版建设注入澎湃动能。
+通知明确，国家人工智能产业创新应用先导区所在省份的省级工业和信息化主管部门组织各先导区城市及有意愿的其他城市参与先导计划。
 
-此外，展会还专门设置东博会秘书处展位，重点推介将于9月17日至21日在南宁举办的第23届东博会。
+各城市聚焦人工智能基础底座以及制造、教育、科技、文化、医疗、金融、农业、旅游、消费等垂直应用领域，开展人工智能科技伦理审查和专家复核工作。
 
 ## 相关推荐
 
-- 2026-06-30 07:59 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-30 07:59 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-30 07:58 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
-- 2026-06-30 07:56 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-30 08:18 - [德国进球被吹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-30 07:58 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-30 07:56 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-30 08:14 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-30 08:22 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-30 08:22 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-30 08:08 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-30 08:20 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-30 08:11 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-30 08:21 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-30 08:07 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-30 08:01 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-30 08:05 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-30 08:28 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-30 08:15 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-30 08:01 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-30 08:15 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-30 08:29 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-30 08:12 - [巴西补时绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-30 08:27 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-30 08:22 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-30 08:09 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-30 08:11 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-30 08:12 - [世界杯欧洲队7战南美仅1胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-30 08:00 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:58 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/658653.shtml)
-- 2026-06-30 08:08 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.minike.top/Article/details/31365.shtml)
-- 2026-06-30 07:55 - [德国巴拉圭进入点球大战](http://www.blog.minike.top/Article/details/456849.shtml)
-- 2026-06-30 08:16 - [存储芯片龙头提示风险](https://www.blog.kurohicncr.top/Article/details/744441.shtml)
-- 2026-06-30 08:22 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/596596379606.shtml)
-- 2026-06-30 07:57 - [上市央企地产商 两年换了三任董事长](http://www.blog.minike.top/Article/details/1867950.shtml)
-- 2026-06-30 08:11 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/2455315.shtml)
-- 2026-06-30 08:00 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/178610461.shtml)
-- 2026-06-30 08:15 - [媒体：手机测评该挤挤水分了](https://www.blog.kurohicncr.top/Article/details/90169.shtml)
-- 2026-06-30 08:16 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/436823463975.shtml)
-- 2026-06-30 07:55 - [覃予萱晋级WTT美国大满贯女单32强](http://www.share.kurohicncr.top/Article/details/02388.shtml)
-- 2026-06-30 08:20 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/0026620.shtml)
-- 2026-06-30 08:11 - [张雪的一句“是我们”引发岛内热议](http://www.blog.kurohicncr.top/Article/details/98544986582.shtml)
-- 2026-06-30 07:57 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/92848785.shtml)
-- 2026-06-30 08:10 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.kurohicncr.top/Article/details/651648507241.shtml)
+- 2026-06-30 08:19 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/66958.shtml)
+- 2026-06-30 08:14 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/57504698.shtml)
+- 2026-06-30 08:02 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/53443874157.shtml)
+- 2026-06-30 08:25 - [起风了](https://www.share.minike.top/Article/details/9657996043.shtml)
+- 2026-06-30 08:27 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](http://www.share.minike.top/Article/details/5705613.shtml)
+- 2026-06-30 08:12 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/41042017.shtml)
+- 2026-06-30 08:21 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.kurohicncr.top/Article/details/06948790.shtml)
+- 2026-06-30 08:28 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/92872.shtml)
+- 2026-06-30 08:18 - [齐思钧回复张月](http://www.share.kurohicncr.top/Article/details/6167179.shtml)
+- 2026-06-30 08:03 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.minike.top/Article/details/022409821328.shtml)
+- 2026-06-30 08:13 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/6937927.shtml)
+- 2026-06-30 08:28 - [莫兰特转投开拓者效力](http://www.blog.kurohicncr.top/Article/details/470551.shtml)
+- 2026-06-30 08:19 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/1102870117.shtml)
+- 2026-06-30 08:19 - [斛珠夫人](https://www.blog.minike.top/Article/details/25207782033.shtml)
+- 2026-06-30 08:05 - [点球大战](https://www.share.kurohicncr.top/Article/details/1728250830.shtml)

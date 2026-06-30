@@ -1,56 +1,59 @@
-# 营收净利规模增长，增速放缓，1900亿巨头顺丰变“慢”了？
+# 俄罗斯举行卫国战争胜利阅兵,俄乌达成短期停火及换俘协议
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：尺度商业 文 | 杨万里 编辑 | 刘振涛 千亿市值物流巨头顺丰控股（以下简称“顺丰”）交出了一份创纪录的成绩单。 近日，顺丰发布了2025年年报，全年顺丰的营收规模突破3000亿元关口，净利规模突破110亿元关口，同比增长9.3%。受到财报业绩增长影响，财报披露次日（3月31日），顺丰A股股价上涨3
+俄罗斯9日在莫斯科红场举行阅兵式，纪念苏联卫国战争胜利81周年。在俄乌冲突持续四年有余的背景下，此次阅兵及配套外交斡旋引发各界高度关注。 在红场举行的阅兵活动中，俄军方阵接受了检阅，战斗机编队飞越克里姆林宫上空。俄罗斯总统向无名烈士墓献花并发表讲话，重申了对2700万苏联二战遇难者的缅怀及维护国家战略安全的决心。克里姆林宫总统助理尤里·乌沙科夫在受访时指出，除地面重型装备展示环
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+俄罗斯9日在莫斯科红场举行阅兵式，纪念苏联卫国战争胜利81周年。
 
-来源：尺度商业 文 | 杨万里 编辑 | 刘振涛 千亿市值物流巨头顺丰控股（以下简称“顺丰”）交出了一份创纪录的成绩单。
+在俄乌冲突持续四年有余的背景下，此次阅兵及配套外交斡旋引发各界高度关注。
 
-近日，顺丰发布了2025年年报，全年顺丰的营收规模突破3000亿元关口，净利规模突破110亿元关口，同比增长9.3%。
+在红场举行的阅兵活动中，俄军方阵接受了检阅，战斗机编队飞越克里姆林宫上空。
 
-受到财报业绩增长影响，财报披露次日（3月31日），顺丰A股股价上涨3.48%，港股股价上涨5.76%。
+俄罗斯总统向无名烈士墓献花并发表讲话，重申了对2700万苏联二战遇难者的缅怀及维护国家战略安全的决心。
 
-近年来，物流行业竞争比较激烈，普遍陷入价格战的泥潭，顺丰交出的这份成绩单，似乎意味着物流龙头的王者归来。
+克里姆林宫总统助理尤里·乌沙科夫在受访时指出，除地面重型装备展示环节有所调整外，今年阅兵的各项传统流程均照常进行。
 
-然而，越是行业龙头，聚焦点越多。
+与此同时，俄乌局势出现缓和信号。
 
-如果将目光从顺丰亮眼的业绩移开，深入观察财报中细节部分，虽然顺丰2025年业绩规模取得进展，但营收净利增速均降至个位数。
+美国总统特朗普宣布，经斡旋，俄乌双方同意从本周六至下周一实施为期三天的临时停火，并达成了交换1000名战俘的协议。
 
-同时，顺丰的盈利质量下滑，比如扣非净利润增速低于净利增速，且毛利率再次下滑。
+特朗普表示，希望此次停火能为大幅延长停火期限并最终结束冲突创造条件。
 
 ## 相关推荐
 
-- 2026-06-30 08:19 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-30 08:15 - [网瘾賊大的阿嬷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-30 07:57 - [郑钦文温网一轮游](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
-- 2026-06-30 08:02 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
-- 2026-06-30 07:55 - [日本球员说被绝杀非常不甘心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-30 07:59 - [王楚钦孙颖莎晋级混双八强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-30 08:00 - [世界杯欧洲队7战南美仅1胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-30 07:54 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
-- 2026-06-30 08:10 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
-- 2026-06-30 08:06 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-30 08:21 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
+- 2026-06-30 08:24 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-30 08:27 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-30 08:01 - [哈弗茨头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-30 08:05 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-30 08:21 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
+- 2026-06-30 08:10 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-30 08:14 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-30 08:27 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-30 08:08 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-30 08:03 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-30 08:28 - [巴西足球能否再现昔日荣光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-30 08:24 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:02 - [毒液2](http://www.share.minike.top/Article/details/162055779302.shtml)
-- 2026-06-30 07:57 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/4743646.shtml)
-- 2026-06-30 08:00 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/22682.shtml)
-- 2026-06-30 08:14 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/247750954754.shtml)
-- 2026-06-30 08:19 - [韩国球迷凌晨4点接机怒骂主教练](http://www.blog.minike.top/Article/details/16528794.shtml)
-- 2026-06-30 08:17 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.kurohicncr.top/Article/details/7379042963.shtml)
-- 2026-06-30 08:23 - [曝灰熊将莫兰特交易至开拓者](http://www.share.kurohicncr.top/Article/details/34215660648.shtml)
-- 2026-06-30 08:08 - [森保一 保守](https://www.blog.kurohicncr.top/Article/details/4178308.shtml)
-- 2026-06-30 07:56 - [诺伊尔尽力了](https://www.share.kurohicncr.top/Article/details/205055999.shtml)
-- 2026-06-30 08:23 - [流金岁月](http://www.share.minike.top/Article/details/5235500572.shtml)
-- 2026-06-30 08:14 - [时光音乐会](http://www.share.minike.top/Article/details/097496008.shtml)
-- 2026-06-30 08:15 - [明星大侦探第一季](http://www.share.minike.top/Article/details/91346114.shtml)
-- 2026-06-30 08:00 - [日本半场1比0领先巴西](https://www.blog.minike.top/Article/details/70815821496.shtml)
-- 2026-06-30 07:59 - [勇士续约波尔津吉斯](http://www.blog.kurohicncr.top/Article/details/513820634532.shtml)
-- 2026-06-30 08:19 - [曝詹姆斯即将与勇士会面](http://www.blog.minike.top/Article/details/2849209.shtml)
+- 2026-06-30 08:08 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/1786824325.shtml)
+- 2026-06-30 08:12 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/0531396.shtml)
+- 2026-06-30 08:24 - [覃予萱晋级WTT美国大满贯女单32强](https://www.share.minike.top/Article/details/84624375.shtml)
+- 2026-06-30 08:29 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/7062041297.shtml)
+- 2026-06-30 08:11 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/478107300.shtml)
+- 2026-06-30 08:17 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/650321358.shtml)
+- 2026-06-30 08:19 - [“柠檬茶能换怀表？”](http://www.blog.kurohicncr.top/Article/details/847121.shtml)
+- 2026-06-30 08:15 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.kurohicncr.top/Article/details/213762929.shtml)
+- 2026-06-30 08:06 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.kurohicncr.top/Article/details/556897404.shtml)
+- 2026-06-30 08:00 - [男子在京东买到“同仁堂”假药](http://www.share.minike.top/Article/details/711350.shtml)
+- 2026-06-30 08:11 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/4360164.shtml)
+- 2026-06-30 08:09 - [巴西替补奇兵读秒绝杀](http://www.blog.minike.top/Article/details/444000001.shtml)
+- 2026-06-30 08:01 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/79679048.shtml)
+- 2026-06-30 08:10 - [郑钦文温网一轮游](http://www.share.kurohicncr.top/Article/details/67516.shtml)
+- 2026-06-30 08:27 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/39306.shtml)

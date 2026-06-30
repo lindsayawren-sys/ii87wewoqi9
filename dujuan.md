@@ -1,59 +1,61 @@
-# 以色列袭击黎巴嫩 霍尔木兹海峡再次关闭
+# Brand Finance 2026中国品牌价值500强发布：国家电网位居第二，创历史新高
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-中新社北京4月9日电 综合消息：综合伊朗法尔斯通讯社、卡塔尔半岛电视台报道，在以色列8日袭击黎巴嫩后，霍尔木兹海峡于同日再次关闭。 在美伊宣布达成为期两周的停火协议数小时后，以军对黎巴嫩进行毁灭性轰炸，造成至少254人死亡、1165人受伤。伊朗伊斯兰革命卫队警告称，如果以色列不停止对黎巴嫩的袭击，伊朗将予以回应。 伊朗外交部长阿拉格齐8日在社交媒体发帖称，停火条款清晰明确，美国
+新浪财经讯，总部位于英国伦敦的品牌估值机构品牌金融集团9日发布《Brand Finance 2026中国品牌价值500强》报告，报告显示，2026年中国500强品牌的总品牌价值突破2.1万亿美元，品牌价值总额较上年增长7.6%，其中排名前10的品牌价值占比高达36%。 报告显示，抖音以1535.4 亿美元的品牌价值，连续第三年居中国品牌价值榜首，跃居全球第六，同比增长 45.1
 
 ## 正文
 
-中新社北京4月9日电 综合消息：综合伊朗法尔斯通讯社、卡塔尔半岛电视台报道，在以色列8日袭击黎巴嫩后，霍尔木兹海峡于同日再次关闭。
+新浪财经讯，总部位于英国伦敦的品牌估值机构品牌金融集团9日发布《Brand Finance 2026中国品牌价值500强》报告，报告显示，2026年中国500强品牌的总品牌价值突破2.1万亿美元，品牌价值总额较上年增长7.6%，其中排名前10的品牌价值占比高达36%。
 
-在美伊宣布达成为期两周的停火协议数小时后，以军对黎巴嫩进行毁灭性轰炸，造成至少254人死亡、1165人受伤。
+报告显示，抖音以1535.4 亿美元的品牌价值，连续第三年居中国品牌价值榜首，跃居全球第六，同比增长 45.1%，在全球社交与数字商业领域持续赶超欧美传统巨头。
 
-伊朗伊斯兰革命卫队警告称，如果以色列不停止对黎巴嫩的袭击，伊朗将予以回应。
+国家电网以突破1000以美元品牌价值稳居中国第二，全球第十，创历史新高。
 
-伊朗外交部长阿拉格齐8日在社交媒体发帖称，停火条款清晰明确，美国必须作出选择，要么停火，要么继续通过以色列发动战争，不可能两者兼得。
+之后是金融领域工行、建行、中行、农行。
 
-伊朗伊斯兰议会议长卡利巴夫8日表示，伊朗10项停火条款的3个关键条款遭到违反，包括未在黎巴嫩停火、以色列无人机入侵伊朗领空以及拒绝给予伊朗铀浓缩权利，在这种情况下双边停火或谈判是不合理的。
+四大行同时集体入围全球前二十强，显示全球金融话语权稳步提升。
 
-美国有线电视新闻网称，8日一整天，美国、以色列和调解方巴基斯坦就黎巴嫩是否被纳入临时停火协议发表了不同言论。
+新能源领域，比亚迪、宁德时代等品牌加速海外布局，在欧洲、东南亚市场份额持续扩大，成为“中国制造”向“中国创造”转型的典型代表。
 
-巴方认为黎巴嫩也包括在内，但美以方面则表示并非如此。
+同时，近年来，随着中国品牌在产业变革中展现出的强劲韧性与创新活力，本年度共有29个汽车品牌入选中国品牌价值500强，累计品牌价值546亿美元，占榜单总价值的 3%，实现了10%的同比增长。
 
-目前、卡塔尔、埃及、土耳其等国对以军袭击黎巴嫩表示谴责。
+在头部阵营中，比亚迪以173亿美元的品牌价值继续稳居首位，同比增长23%；吉利汽车以45亿美元的品牌价值位列第二，同比增长 26%；问界以34亿美元的品牌价值位列第三，并凭借 78分的品牌强度成为年度最强中国汽车品牌。
 
 ## 相关推荐
 
-- 2026-06-30 08:19 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-30 08:13 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-30 07:57 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-30 08:02 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-30 07:58 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-30 08:22 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-30 08:11 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-30 08:15 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-30 08:11 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-30 08:16 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
-- 2026-06-30 07:55 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-30 08:09 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-30 07:58 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-30 08:10 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
+- 2026-06-30 08:29 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-30 08:07 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-30 08:28 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
+- 2026-06-30 08:23 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
+- 2026-06-30 08:24 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-30 08:07 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-30 08:21 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-30 08:28 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-30 08:02 - [女子遭下药退赔偿拟追刑责](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-30 08:03 - [德国淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-30 08:14 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-30 08:04 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-30 08:06 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-30 08:11 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:09 - [我和我的家乡](https://www.share.minike.top/Article/details/223453.shtml)
-- 2026-06-30 08:02 - [世界杯欧洲队7战南美仅1胜](http://www.share.kurohicncr.top/Article/details/4810638573.shtml)
-- 2026-06-30 08:21 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/90051.shtml)
-- 2026-06-30 08:18 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/109366198.shtml)
-- 2026-06-30 08:05 - [天道](https://www.share.minike.top/Article/details/504219526.shtml)
-- 2026-06-30 08:14 - [一生一世](https://www.blog.kurohicncr.top/Article/details/84437852.shtml)
-- 2026-06-30 08:16 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/96878474260.shtml)
-- 2026-06-30 08:01 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.kurohicncr.top/Article/details/08918.shtml)
-- 2026-06-30 08:15 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/75701.shtml)
-- 2026-06-30 07:56 - [巴西醒醒 这是淘汰赛](http://www.share.minike.top/Article/details/495662522.shtml)
-- 2026-06-30 08:06 - [锐评T1战胜KC](http://www.blog.kurohicncr.top/Article/details/1699277813.shtml)
-- 2026-06-30 07:55 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.minike.top/Article/details/38914639.shtml)
-- 2026-06-30 08:21 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/650920347.shtml)
-- 2026-06-30 07:57 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](http://www.blog.kurohicncr.top/Article/details/851495851253.shtml)
-- 2026-06-30 08:18 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/18235.shtml)
+- 2026-06-30 08:25 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/429244279.shtml)
+- 2026-06-30 08:20 - [湖南祁东原文化馆被指贱卖](http://www.share.kurohicncr.top/Article/details/1077636.shtml)
+- 2026-06-30 08:16 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/65840553267.shtml)
+- 2026-06-30 08:16 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/7730183277.shtml)
+- 2026-06-30 08:01 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/04434445385.shtml)
+- 2026-06-30 08:18 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/1975326.shtml)
+- 2026-06-30 08:18 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/20076827.shtml)
+- 2026-06-30 08:29 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/280066702.shtml)
+- 2026-06-30 08:08 - [人类...完蛋了...](https://www.blog.kurohicncr.top/Article/details/73094.shtml)
+- 2026-06-30 08:03 - [藤森庆子赢得秘鲁总统选举](https://www.blog.minike.top/Article/details/84450806.shtml)
+- 2026-06-30 08:15 - [电影抓特务上映11天破亿](http://www.share.kurohicncr.top/Article/details/426110.shtml)
+- 2026-06-30 08:18 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/59445.shtml)
+- 2026-06-30 08:01 - [“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/954804374.shtml)
+- 2026-06-30 08:21 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/50245.shtml)
+- 2026-06-30 08:06 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.minike.top/Article/details/74137.shtml)

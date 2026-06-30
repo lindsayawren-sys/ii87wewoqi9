@@ -1,61 +1,56 @@
-# 东西问｜当250年历史的国家威胁毁掉5000年文明
+# 杭州一街道被奢侈品牌圣罗兰“拉黑”？多方回应 | 贵圈
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-中新网北京4月8日电 题：当250年历史的国家威胁毁掉5000年文明 记者 贺劭清 一觉醒来，美以伊三方均同意临时停火两周。 尽管中东迎来了短暂的和平，但美国总统特朗普在社交媒体对伊朗发出的“文明消亡”威胁仍让人心有余悸——“整个文明将消亡，且将永无复返之日”。 这不是特朗普第一次威胁伊朗。 此前他还说要把伊朗“炸回石器时代”“如果他们不服软，他们将一无所有”“伊朗人民想听到炸
+5月10日，有消息称，奢侈品牌圣罗兰（Saint Laurent）多款产品将杭州市萧山区盈丰街道纳入“拒售”范围。 有媒体实测发现，该品牌淘宝官方旗舰店中的多款产品，盈丰街道范围内的20个不同地址，从居民小区到街道办事处，无一例外均无法下单；而仅将地址改为杭州其他区域，订单随即恢复正常。 今日，《贵圈》栏目先后将收货地址设置为萧山区盈丰街道范围内的杭州丽晶国际公寓、华润置地亚奥
 
 ## 正文
 
-中新网北京4月8日电 题：当250年历史的国家威胁毁掉5000年文明 记者 贺劭清 一觉醒来，美以伊三方均同意临时停火两周。
+5月10日，有消息称，奢侈品牌圣罗兰（Saint Laurent）多款产品将杭州市萧山区盈丰街道纳入“拒售”范围。
 
-尽管中东迎来了短暂的和平，但美国总统特朗普在社交媒体对伊朗发出的“文明消亡”威胁仍让人心有余悸——“整个文明将消亡，且将永无复返之日”。
+有媒体实测发现，该品牌淘宝官方旗舰店中的多款产品，盈丰街道范围内的20个不同地址，从居民小区到街道办事处，无一例外均无法下单；而仅将地址改为杭州其他区域，订单随即恢复正常。
 
-这不是特朗普第一次威胁伊朗。
+今日，《贵圈》栏目先后将收货地址设置为萧山区盈丰街道范围内的杭州丽晶国际公寓、华润置地亚奥城、新世界·丽晶国际中心等地，则显示可以进行正常支付购买。
 
-此前他还说要把伊朗“炸回石器时代”“如果他们不服软，他们将一无所有”“伊朗人民想听到炸弹的声音”“伊朗民众‘请求’他继续轰炸他们居住的地方，因为他们愿意‘为了自由’承受这样的苦难”…… 今年是美国建国250周年。
+对此，《贵圈》栏目以消费者身份向圣罗兰（Saint Laurent）客服进行求证，对方回应表示，“不同账户的购物环境信息（包括但不限于网络环境、历史行为或者地址等）会导致暂时无法购买。
 
-而伊朗是波斯文明的继承者。
+” 对此情况，淘宝官方客服回应称，“无法下单可能有多种原因造成，包括：1、可将淘宝App升级至最新版本再做排查；2、订单中包含当前地区暂不支持销售的商品；3、部分海外商品当前处于管控状态，暂时无法下单；4、当前下单的商品优惠信息有变动，无法根据现有优惠下单；5、店铺因某些原因限制消费者购买。
 
-在这片土地上，人们曾见证居鲁士大帝建立人类历史上第一个横跨亚欧非的帝国，有约5000年的文明。
-
-当250年历史的国家威胁毁掉5000年的文明，并蓄意攻击平民和民用基础设施，引发国际社会强烈谴责。
-
-联合国人权高专：令人发指 联合国人权事务高级专员图尔克7日说，威胁消灭“整个文明”的言论“令人发指”。
+”责任编辑：石秀珍 SF183
 
 ## 相关推荐
 
-- 2026-06-30 08:22 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-30 08:02 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
-- 2026-06-30 08:05 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-30 08:15 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
-- 2026-06-30 08:17 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
-- 2026-06-30 08:23 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-30 08:01 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-30 08:05 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-30 08:04 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-30 08:12 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
-- 2026-06-30 08:06 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-30 08:20 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-30 08:20 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-30 08:17 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
-- 2026-06-30 08:11 - [巴西足球能否再现昔日荣光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-30 08:28 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-30 08:29 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-30 08:11 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-30 08:21 - [巴拉圭先进球了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-30 08:16 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-30 08:16 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-30 08:28 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-30 08:24 - [诺伊尔尽力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-30 08:22 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
+- 2026-06-30 08:07 - [德国爆冷点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-30 08:21 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-30 08:28 - [世界杯巴拉圭点球淘汰德国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-30 08:12 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-30 08:02 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:05 - [男子中医院拔火罐致浅2度烧伤](https://www.share.minike.top/Article/details/3601018.shtml)
-- 2026-06-30 07:56 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/593121310504.shtml)
-- 2026-06-30 08:19 - [千香](http://www.share.minike.top/Article/details/93564.shtml)
-- 2026-06-30 08:17 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/81362561.shtml)
-- 2026-06-30 08:08 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/0292243753.shtml)
-- 2026-06-30 07:55 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/464208460144.shtml)
-- 2026-06-30 08:18 - [补时绝杀 巴西2-1淘汰日本](https://www.share.minike.top/Article/details/69104.shtml)
-- 2026-06-30 08:11 - [“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/248195871673.shtml)
-- 2026-06-30 08:13 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/699432059.shtml)
-- 2026-06-30 08:17 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/86850845.shtml)
-- 2026-06-30 08:23 - [巴西补时绝杀日本](https://www.blog.kurohicncr.top/Article/details/6102987827.shtml)
-- 2026-06-30 08:18 - [DeepSeek V4正式版要来了](http://www.blog.minike.top/Article/details/104181.shtml)
-- 2026-06-30 08:16 - [一生一世](http://www.share.kurohicncr.top/Article/details/93836239698.shtml)
-- 2026-06-30 08:20 - [本科毕业生为何涌入专科学校](https://www.blog.minike.top/Article/details/17949151021.shtml)
-- 2026-06-30 08:23 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/21898416744.shtml)
+- 2026-06-30 08:03 - [感动全网的699分女生想报考清华](http://www.blog.minike.top/Article/details/938698.shtml)
+- 2026-06-30 08:06 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/382747843.shtml)
+- 2026-06-30 08:06 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/4698901817.shtml)
+- 2026-06-30 08:10 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/1431946789.shtml)
+- 2026-06-30 08:16 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.kurohicncr.top/Article/details/158814.shtml)
+- 2026-06-30 08:26 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/5996550.shtml)
+- 2026-06-30 08:18 - [张月收到黄灿灿辣货两眼发光](http://www.share.minike.top/Article/details/07790082.shtml)
+- 2026-06-30 08:07 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://www.blog.kurohicncr.top/Article/details/13979092229.shtml)
+- 2026-06-30 08:17 - [德国4比5巴拉圭](https://www.blog.kurohicncr.top/Article/details/05088844.shtml)
+- 2026-06-30 08:29 - [速度与激情9](https://www.blog.minike.top/Article/details/6073296.shtml)
+- 2026-06-30 08:21 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/15862210543.shtml)
+- 2026-06-30 08:14 - [爆冷出局！德国点球大战不敌巴拉圭](http://www.blog.kurohicncr.top/Article/details/227794.shtml)
+- 2026-06-30 08:06 - [德国爆冷点球大战不敌巴拉圭](http://www.blog.minike.top/Article/details/56729829.shtml)
+- 2026-06-30 08:15 - [德国罚丢3粒点球](https://www.blog.kurohicncr.top/Article/details/60277052.shtml)
+- 2026-06-30 08:16 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/68540920141.shtml)

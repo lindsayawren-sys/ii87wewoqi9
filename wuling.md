@@ -1,56 +1,58 @@
-# 霍尔木兹海峡目前仍处于封锁状态，数百艘船只亟待撤离
+# 美军称向两艘“违反封锁”的伊朗油轮开火
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-在美国与伊朗于夜间宣布停火后，霍尔木兹海峡周三整体上仍基本处于封锁状态，船东们正试图确认能否安全通过这一关键水道。 彭博社汇总的船舶追踪数据显示，自周二上午以来，仅有 7 艘船只驶离该区域，3 艘船只驶入。而去年和平时期，每日通行量约为 135 艘。目前有超过 800 艘货轮被困在波斯湾内，多数正等待驶离。 尽管船东与保险机构纷纷对停火表示欢迎，但同时也警告称，仍需更多细节才能
+新华社华盛顿5月8日电(记者黄强 徐剑梅)美军中央司令部8日发布消息说，美军当天在阿曼湾向两艘“违反美国封锁令”的伊朗油轮发射精确制导弹药，使其丧失航行能力。在美军发布消息5小时前，新华社记者获得这两艘油轮遭袭并请求援助的无线电录音。消息说，美军当天针对两艘悬挂伊朗国旗的空载油轮“SEA STAR III”号和“SEVDA”号实施了封锁措施，这两艘油轮当时正试图驶入阿曼湾一个伊
 
 ## 正文
 
-在美国与伊朗于夜间宣布停火后，霍尔木兹海峡周三整体上仍基本处于封锁状态，船东们正试图确认能否安全通过这一关键水道。
+新华社华盛顿5月8日电(记者黄强 徐剑梅)美军中央司令部8日发布消息说，美军当天在阿曼湾向两艘“违反美国封锁令”的伊朗油轮发射精确制导弹药，使其丧失航行能力。
 
-彭博社汇总的船舶追踪数据显示，自周二上午以来，仅有 7 艘船只驶离该区域，3 艘船只驶入。
+在美军发布消息5小时前，新华社记者获得这两艘油轮遭袭并请求援助的无线电录音。
 
-而去年和平时期，每日通行量约为 135 艘。
+消息说，美军当天针对两艘悬挂伊朗国旗的空载油轮“SEA STAR III”号和“SEVDA”号实施了封锁措施，这两艘油轮当时正试图驶入阿曼湾一个伊朗港口。
 
-目前有超过 800 艘货轮被困在波斯湾内，多数正等待驶离。
+一架隶属于“布什”号航空母舰的美国海军F/A-18“超级大黄蜂”战斗机向这两艘油轮的烟囱发射了精确制导弹药，使其丧失航行能力。
 
-尽管船东与保险机构纷纷对停火表示欢迎，但同时也警告称，仍需更多细节才能判断通行是否安全。
+消息说，美军战斗机6日在阿曼湾对另一艘悬挂伊朗国旗的油轮开火，击毁了这艘空载油轮的舵机。
 
-伊朗方面表示，停火的前提是其武装部队对这条全球最重要石油通道的航行进行统筹协调。
+目前，上述3艘油轮均已停止向伊朗方向航行。
 
-德黑兰方面还已对部分航运公司收取最高每趟 200 万美元的通行费。
+消息说，美国自4月13日起对往来伊朗港口的船只实施封锁以来，已有超过50艘船只被强制改变航向。
 
-劳合社市场协会海事与航空主管尼尔・罗伯茨表示：“时间会证明这只是暂时停火还是真正和平，但眼下，波斯湾的贸易往来绝无可能立刻恢复。
+在美军发布消息5小时前，霍尔木兹海峡附近被困船只海员向新华社记者提供的两段无线电录音显示，两艘油轮当天遭遇袭击并请求援助。
 
 ## 相关推荐
 
-- 2026-06-30 07:56 - [金鹰奖视后提名预测](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-30 08:10 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-30 07:55 - [德国队连续三届世界杯无缘16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-30 08:16 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
-- 2026-06-30 08:10 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-30 08:01 - [杨紫学位证上就是杨紫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-30 08:06 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-30 08:11 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-30 08:01 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-30 07:58 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
+- 2026-06-30 08:05 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-30 08:14 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-30 08:11 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-30 08:27 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-30 08:13 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
+- 2026-06-30 08:11 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-30 08:12 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-30 08:27 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-30 08:14 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-30 08:26 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-30 08:07 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-30 08:14 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:08 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/250551.shtml)
-- 2026-06-30 08:08 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/1672272005.shtml)
-- 2026-06-30 08:06 - [DeepSeek V4正式版要来了](https://www.blog.minike.top/Article/details/08222622129.shtml)
-- 2026-06-30 07:59 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/22545064.shtml)
-- 2026-06-30 08:20 - [刘必安等16人非法集资案二审宣判](http://www.share.minike.top/Article/details/366644737.shtml)
-- 2026-06-30 08:01 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/303219791985.shtml)
-- 2026-06-30 08:16 - [卡塞米罗头球破门 巴西扳平日本](http://www.blog.kurohicncr.top/Article/details/75852.shtml)
-- 2026-06-30 08:11 - [世界杯](https://www.blog.kurohicncr.top/Article/details/240196.shtml)
-- 2026-06-30 08:21 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/039592640125.shtml)
-- 2026-06-30 07:59 - [《共患难》](https://www.share.kurohicncr.top/Article/details/901035922.shtml)
-- 2026-06-30 08:03 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/95779211226.shtml)
-- 2026-06-30 08:18 - [德国淘汰](https://www.blog.kurohicncr.top/Article/details/9079900202.shtml)
-- 2026-06-30 08:06 - [《贺子珍》](https://www.blog.minike.top/Article/details/022438791046.shtml)
-- 2026-06-30 07:54 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/753949.shtml)
-- 2026-06-30 07:56 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/516869.shtml)
+- 2026-06-30 08:14 - [巴西把自己踢晕了](https://www.share.kurohicncr.top/Article/details/995229908.shtml)
+- 2026-06-30 08:04 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/63960792.shtml)
+- 2026-06-30 08:17 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/66530492.shtml)
+- 2026-06-30 08:06 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](http://www.share.kurohicncr.top/Article/details/0679683.shtml)
+- 2026-06-30 08:06 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/067173.shtml)
+- 2026-06-30 08:22 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](http://www.share.minike.top/Article/details/2955556297.shtml)
+- 2026-06-30 08:19 - [库尼亚赛后伸五指嘲讽日本](https://www.blog.kurohicncr.top/Article/details/752314.shtml)
+- 2026-06-30 08:16 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/38790843.shtml)
+- 2026-06-30 08:08 - [日本五次世界杯淘汰赛全败](https://www.blog.kurohicncr.top/Article/details/1568077.shtml)
+- 2026-06-30 08:22 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/2080942970.shtml)
+- 2026-06-30 08:18 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/13542.shtml)
+- 2026-06-30 08:28 - [点球大战 残酷](http://www.blog.kurohicncr.top/Article/details/705644.shtml)
+- 2026-06-30 08:02 - [一见倾心](http://www.share.kurohicncr.top/Article/details/242738704923.shtml)
+- 2026-06-30 08:02 - [女心理师](http://www.share.minike.top/Article/details/11584549055.shtml)
+- 2026-06-30 08:17 - [金刚川](https://www.blog.minike.top/Article/details/81216896.shtml)

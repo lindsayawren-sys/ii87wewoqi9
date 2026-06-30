@@ -1,53 +1,52 @@
-# 国家体育总局游泳中心就全红婵等跳水运动员遭受网暴一事发布声明
+# 中国人民银行行长潘功胜会见法国总统外事顾问博纳
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-近日，网络上出现针对全红婵等跳水运动员的网络暴力、恶意攻击及不实信息，我中心对此高度重视，已第一时间与广东省体育局相关部门联合开展核查处置工作。目前，广东省体育局二沙体育训练中心已向警方报案，我们坚决支持通过法律手段维护运动员合法权益，坚决抵制畸形“饭圈”文化侵蚀，不管涉及任何人，一经查实都将严肃处理，绝不姑息。游泳中心一贯坚决反对一切形式的网络霸凌与造谣抹黑行为，强烈谴责任何
+2026年5月7日，中国人民银行行长潘功胜会见了法国总统外事顾问博纳。双方就中国和全球经济金融形势、中法两国在多双边机制下经济金融领域的合作开展了务实沟通与交流。中国人民银行副行长宣昌能参加会见。 责任编辑：曹睿潼
 
 ## 正文
 
-近日，网络上出现针对全红婵等跳水运动员的网络暴力、恶意攻击及不实信息，我中心对此高度重视，已第一时间与广东省体育局相关部门联合开展核查处置工作。
+2026年5月7日，中国人民银行行长潘功胜会见了法国总统外事顾问博纳。
 
-目前，广东省体育局二沙体育训练中心已向警方报案，我们坚决支持通过法律手段维护运动员合法权益，坚决抵制畸形“饭圈”文化侵蚀，不管涉及任何人，一经查实都将严肃处理，绝不姑息。
+双方就中国和全球经济金融形势、中法两国在多双边机制下经济金融领域的合作开展了务实沟通与交流。
 
-游泳中心一贯坚决反对一切形式的网络霸凌与造谣抹黑行为，强烈谴责任何损害运动员身心健康、损毁国家队形象的恶劣行径。
+中国人民银行副行长宣昌能参加会见。
 
-我们将进一步加强国家队建设与运动员权益保障，完善运动员身心关怀保障体系，全力维护健康清朗的体育舆论环境，守护中国体育健儿的良好风貌，凝聚支持中国体育事业健康发展的正能量。
-
-特此声明。
-
-国家体育总局游泳运动管理中心 2026年4月8日
+责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-30 08:01 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-30 08:00 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
-- 2026-06-30 08:15 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-30 07:57 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
-- 2026-06-30 08:08 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-30 07:56 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-30 08:04 - [德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-30 08:21 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-30 08:09 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
-- 2026-06-30 08:10 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-30 08:09 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-30 08:07 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-30 08:24 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-30 08:03 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
+- 2026-06-30 08:10 - [点球大战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-30 08:22 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-30 08:17 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-30 08:22 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-30 08:18 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-30 08:12 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-30 08:14 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-30 08:07 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-30 08:10 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-30 08:15 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-30 08:14 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:55 - [爆冷出局！德国点球大战不敌巴拉圭](https://www.blog.kurohicncr.top/Article/details/22975097.shtml)
-- 2026-06-30 08:01 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/500239.shtml)
-- 2026-06-30 08:16 - [巴西把自己踢晕了](http://www.share.kurohicncr.top/Article/details/6518090506.shtml)
-- 2026-06-30 07:57 - [郑钦文温网首轮出局](https://www.share.kurohicncr.top/Article/details/57568472.shtml)
-- 2026-06-30 07:54 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/649130.shtml)
-- 2026-06-30 08:03 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/62452685.shtml)
-- 2026-06-30 08:05 - [郑钦文温网三连败西尼亚科娃](https://www.share.minike.top/Article/details/6899925.shtml)
-- 2026-06-30 08:18 - [起风了](https://www.share.kurohicncr.top/Article/details/032120787676.shtml)
-- 2026-06-30 07:58 - [德国淘汰](https://www.share.minike.top/Article/details/98667.shtml)
-- 2026-06-30 08:14 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/1664784.shtml)
-- 2026-06-30 08:05 - [关晓彤一路小跑迎接爸爸探班](https://www.share.kurohicncr.top/Article/details/772022802608.shtml)
-- 2026-06-30 07:55 - [武磊：日本队有能力跟任何强队抗衡](http://www.blog.minike.top/Article/details/5489194.shtml)
-- 2026-06-30 08:08 - [王灿兮被烫伤两年后维权成功](https://www.blog.kurohicncr.top/Article/details/41163811784.shtml)
-- 2026-06-30 08:14 - [曝灰熊将莫兰特交易至开拓者](https://www.blog.minike.top/Article/details/3843731.shtml)
-- 2026-06-30 08:14 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/99356239.shtml)
+- 2026-06-30 08:15 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](http://www.blog.minike.top/Article/details/27228086308.shtml)
+- 2026-06-30 08:25 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/411847309795.shtml)
+- 2026-06-30 08:25 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/97595251045.shtml)
+- 2026-06-30 08:10 - [德国连续三届世界杯无缘16强](http://www.blog.kurohicncr.top/Article/details/822786197410.shtml)
+- 2026-06-30 08:10 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.blog.minike.top/Article/details/41794610.shtml)
+- 2026-06-30 08:15 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.kurohicncr.top/Article/details/690533.shtml)
+- 2026-06-30 08:26 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.kurohicncr.top/Article/details/820585524.shtml)
+- 2026-06-30 08:11 - [DeepSeek V4正式版要来了](https://www.share.minike.top/Article/details/660383949884.shtml)
+- 2026-06-30 08:09 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/61156108634.shtml)
+- 2026-06-30 08:15 - [巴西vs日本](http://www.blog.minike.top/Article/details/46548554011.shtml)
+- 2026-06-30 08:17 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/90702770.shtml)
+- 2026-06-30 08:15 - [董路：谁赢谁是“正路子”](https://www.share.minike.top/Article/details/86669.shtml)
+- 2026-06-30 08:17 - [谢依霖说杨幂是聚会第一把张罗手](http://www.share.kurohicncr.top/Article/details/21605330.shtml)
+- 2026-06-30 08:11 - [湖南祁东原文化馆被指贱卖](https://www.blog.minike.top/Article/details/75512.shtml)
+- 2026-06-30 08:13 - [张雪的一句“是我们”引发岛内热议](https://www.blog.kurohicncr.top/Article/details/978502439095.shtml)

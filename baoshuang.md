@@ -1,57 +1,50 @@
-# 全线大涨！美伊谈判在即，以色列暂停打击
+# 中泰将举行“突击-2026”陆军联训
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社消息，伊朗媒体8日报道说，伊朗伊斯兰议会议长卡利巴夫将率领伊朗代表团在巴基斯坦伊斯兰堡与美国举行谈判，美方由副总统万斯率团参加。巴基斯坦总理夏巴兹8日在社交媒体上说，他邀请伊美双方代表团10日在伊斯兰堡进一步谈判，以达成解决所有争端的最终协议。 此外，以色列国防军8日宣布已暂停对伊朗的打击，但仍处于高
+中新社北京5月9日电 (记者 李纯)中国国防部新闻发言人蒋斌9日就近期涉军问题发布消息时说，5月中下旬，中泰“突击-2026”陆军联合训练将在泰国举行。 蒋斌表示，此次联训以山地丛林联合反恐为课题，双方混合编组进行战场救护、无人装备操作、实弹射击等课目训练。这是两国陆军第八次举行该系列联训，旨在不断深化双方友谊合作，提升联合反恐行动能力。(完)
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社北京5月9日电 (记者 李纯)中国国防部新闻发言人蒋斌9日就近期涉军问题发布消息时说，5月中下旬，中泰“突击-2026”陆军联合训练将在泰国举行。
 
-新华社消息，伊朗媒体8日报道说，伊朗伊斯兰议会议长卡利巴夫将率领伊朗代表团在巴基斯坦伊斯兰堡与美国举行谈判，美方由副总统万斯率团参加。
+蒋斌表示，此次联训以山地丛林联合反恐为课题，双方混合编组进行战场救护、无人装备操作、实弹射击等课目训练。
 
-巴基斯坦总理夏巴兹8日在社交媒体上说，他邀请伊美双方代表团10日在伊斯兰堡进一步谈判，以达成解决所有争端的最终协议。
+这是两国陆军第八次举行该系列联训，旨在不断深化双方友谊合作，提升联合反恐行动能力。
 
-此外，以色列国防军8日宣布已暂停对伊朗的打击，但仍处于高度战备状态。
-
-受中东地缘冲突缓和影响，全球金融市场风险偏好显著回升，美股股指期货涨幅扩大。
-
-新浪财经数据显示，截至北京时间16：38，标普500指数期货上涨2.5%，纳斯达克100指数期货上涨3.26%，道琼斯指数期货上涨2.28%。
-
-伊朗官员：若美不接受十点计划 最高领袖将不会批准停火协议 央视新闻客户端消息，当地时间4月8日，伊朗伊斯兰议会副议长阿里·尼克扎德表示，若美方不接受伊朗提出的10项停战条款，伊朗最高领袖将不会批准在停火协议上签字。
-
-尼克扎德还称，霍尔木兹海峡将不会恢复到原来的状态。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 08:06 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-30 08:23 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
-- 2026-06-30 08:19 - [莫兰特被交易到开拓者](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-30 08:21 - [巴拉圭率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-30 08:02 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
-- 2026-06-30 08:05 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
-- 2026-06-30 08:08 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
-- 2026-06-30 08:06 - [哈弗茨头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
-- 2026-06-30 08:00 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-30 08:11 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-30 08:17 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-30 08:02 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
+- 2026-06-30 08:06 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-30 08:09 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-30 08:28 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-30 08:24 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-30 08:09 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-30 08:28 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-30 08:04 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-30 08:00 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-30 08:21 - [萨内 看笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-30 08:16 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-30 08:20 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:08 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/15405256802.shtml)
-- 2026-06-30 08:04 - [补时绝杀 巴西2-1淘汰日本](https://www.share.minike.top/Article/details/2259803.shtml)
-- 2026-06-30 08:14 - [金鹰奖视后提名预测](http://www.share.kurohicncr.top/Article/details/719494977349.shtml)
-- 2026-06-30 08:13 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/86998369762.shtml)
-- 2026-06-30 08:11 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/843517360241.shtml)
-- 2026-06-30 07:57 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/482978.shtml)
-- 2026-06-30 08:19 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/45384339.shtml)
-- 2026-06-30 07:56 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](http://www.blog.kurohicncr.top/Article/details/373744.shtml)
-- 2026-06-30 08:05 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/638917110675.shtml)
-- 2026-06-30 08:17 - [失明的我带老妈去了趟“火星”](https://www.blog.minike.top/Article/details/052345841393.shtml)
-- 2026-06-30 08:10 - [韩乔生吐槽世界杯扩军](http://www.blog.kurohicncr.top/Article/details/217694520.shtml)
-- 2026-06-30 08:17 - [韩国球迷凌晨4点接机怒骂主教练](https://www.share.kurohicncr.top/Article/details/544845377857.shtml)
-- 2026-06-30 08:12 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/99506451.shtml)
-- 2026-06-30 08:05 - [马耳他著名拱门坍塌致中国男子身亡](http://www.share.minike.top/Article/details/81603390.shtml)
-- 2026-06-30 08:12 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/0792559.shtml)
+- 2026-06-30 08:29 - [巴西半场0比1日本](https://www.blog.kurohicncr.top/Article/details/026123.shtml)
+- 2026-06-30 08:03 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/51196419267.shtml)
+- 2026-06-30 08:20 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/496713015444.shtml)
+- 2026-06-30 08:27 - [日本队主帅道歉](http://www.blog.minike.top/Article/details/46333.shtml)
+- 2026-06-30 08:28 - [周冬雨多次说演不了话剧文城](http://www.blog.kurohicncr.top/Article/details/63977411761.shtml)
+- 2026-06-30 08:11 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/59397.shtml)
+- 2026-06-30 08:06 - [藤森庆子赢得秘鲁总统选举](https://www.share.minike.top/Article/details/15098662.shtml)
+- 2026-06-30 08:18 - [扫黑风暴](https://www.blog.minike.top/Article/details/73068258564.shtml)
+- 2026-06-30 08:24 - [泰山建135公里刀片刺绳隔离网](http://www.share.minike.top/Article/details/65650.shtml)
+- 2026-06-30 08:04 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/24189226964.shtml)
+- 2026-06-30 08:25 - [周冬雨多次说演不了话剧文城](https://www.share.minike.top/Article/details/1730561024.shtml)
+- 2026-06-30 08:04 - [内马尔中场休息积极鼓励队友](https://www.share.kurohicncr.top/Article/details/738028011633.shtml)
+- 2026-06-30 08:06 - [张帅时隔四年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/141544112.shtml)
+- 2026-06-30 08:05 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/638920966.shtml)
+- 2026-06-30 08:06 - [德国连续三届世界杯无缘16强](http://www.share.minike.top/Article/details/674399508.shtml)

@@ -1,59 +1,58 @@
-# （经济观察）厦门临空经济片区以创新和服务推动科技成果转化
+# 中国首个现代冰川主题科普馆在祁连山腹地开馆
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-中新社厦门4月9日电 (林永传 李思源)福建厦门临空经济片区(以下简称片区)打出“创新+服务”组合拳，推动科技成果快速转化。 位于翔安区的厦门临空经济片区，面积98.6平方公里，地处厦(门)泉(州)金(门)中心地带，怀抱厦门翔安国际机场、空港综合保税区、厦门科学城莲河片区、福建省级海洋高新技术产业园区等区域。 片区内科技企业“鹭岛氢能”自主研发的全球首条吉瓦级卷对卷双面直涂膜电
+中新社青海祁连5月8日电 (李隽)祁连山国家公园(候选区)八一冰川科普馆(下称科普馆)8日在祁连山腹地的青海省海北藏族自治州祁连县野牛沟乡揭牌开放。该馆是中国首个以现代冰川为主题的专业科普场馆。 祁连山是中国西部重要的生态安全屏障和水源涵养区。1958年8月1日，中国第一支高山冰雪利用考察队首次发现并考察了八一冰川，开启了为期半个多世纪的科学研究。八一冰川是祁连山内陆河黑河源头
 
 ## 正文
 
-中新社厦门4月9日电 (林永传 李思源)福建厦门临空经济片区(以下简称片区)打出“创新+服务”组合拳，推动科技成果快速转化。
+中新社青海祁连5月8日电 (李隽)祁连山国家公园(候选区)八一冰川科普馆(下称科普馆)8日在祁连山腹地的青海省海北藏族自治州祁连县野牛沟乡揭牌开放。
 
-位于翔安区的厦门临空经济片区，面积98.6平方公里，地处厦(门)泉(州)金(门)中心地带，怀抱厦门翔安国际机场、空港综合保税区、厦门科学城莲河片区、福建省级海洋高新技术产业园区等区域。
+该馆是中国首个以现代冰川为主题的专业科普场馆。
 
-片区内科技企业“鹭岛氢能”自主研发的全球首条吉瓦级卷对卷双面直涂膜电极生产线已投产，攻克了氢能行业“双面涂布不同步”的长期技术难题，标志着中国PEM电解水制氢装备跻身国际领先行列。
+祁连山是中国西部重要的生态安全屏障和水源涵养区。
 
-厦门大学化学化工学院教授、鹭岛氢能董事长陶华冰表示，这得益于片区创新模式的支撑以及为科技企业技术迭代升级提供的人才、应用场景等服务。
+1958年8月1日，中国第一支高山冰雪利用考察队首次发现并考察了八一冰川，开启了为期半个多世纪的科学研究。
 
-作为厦门“跨岛发展”核心区域和综合改革试点“试验田”，该片区被赋予综合改革试点承载区、环厦门湾科创原创区、两岸融合发展先行区和新发展格局节点城市门户的功能定位。
+八一冰川是祁连山内陆河黑河源头，是中国西部重要冰源水库与全球气候变化敏感生态指示器。
 
-据片区指挥部办公室副主任王月芳介绍，该片区摆脱了传统开发区“卖地—盖房—招商”的路径依赖，率先推出混合产业用地成片综合开发模式。
+科普馆基于八一冰川原生特质，整合多年来冰川监测、科研考察成果结晶，通过实物陈列、影像记录、互动体验等多种展陈形式，深度还原祁连山冰川的演化历程，反映冰川监测保护工作的艰辛历程，直观呈现高海拔冰川生态风貌。
 
-将厂房、研发、住房混合布局，成片出让并同步建设，实现了规划与招商同步推进，建成时产业同步落地。
+科普馆建筑面积2997平方米，运用微缩实景、多媒体交互、沉浸式体验等技术，为科研成果展示交流提供载体，也为民众打开了认识冰川生态、树立环保意识的窗口。
 
-目前，片区已出让16宗产业用地，总面积超250万平方米。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 07:59 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-30 08:06 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-30 08:07 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-30 08:19 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-30 08:15 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-30 08:01 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-30 08:16 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
-- 2026-06-30 08:11 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-30 07:54 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
-- 2026-06-30 08:05 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
-- 2026-06-30 08:01 - [马耳他著名拱门坍塌致中国男子身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-30 08:07 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-30 08:13 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
+- 2026-06-30 08:21 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-30 08:15 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-30 08:15 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-30 08:05 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-30 08:00 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
+- 2026-06-30 08:10 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-30 08:12 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-30 08:04 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-30 08:10 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-30 08:07 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
+- 2026-06-30 08:28 - [德国4比5巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-30 08:00 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:18 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.kurohicncr.top/Article/details/0892797.shtml)
-- 2026-06-30 08:08 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/153757455.shtml)
-- 2026-06-30 08:04 - [金鹰奖视后提名预测](http://www.blog.minike.top/Article/details/229272013056.shtml)
-- 2026-06-30 08:18 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.minike.top/Article/details/644966.shtml)
-- 2026-06-30 08:05 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/38703471.shtml)
-- 2026-06-30 08:07 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/266752935.shtml)
-- 2026-06-30 07:56 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/341258.shtml)
-- 2026-06-30 08:21 - [第一炉香](http://www.blog.minike.top/Article/details/34682580433.shtml)
-- 2026-06-30 08:12 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/8396585.shtml)
-- 2026-06-30 08:03 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/25302632163.shtml)
-- 2026-06-30 07:56 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/93913.shtml)
-- 2026-06-30 07:58 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/4826531.shtml)
-- 2026-06-30 08:07 - [男子醉酒溺水获救后同行人拒协助抬人](http://www.share.minike.top/Article/details/5730078296.shtml)
-- 2026-06-30 08:15 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/153436150629.shtml)
-- 2026-06-30 08:13 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/05353.shtml)
+- 2026-06-30 08:27 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/792081784.shtml)
+- 2026-06-30 08:09 - [网友写差评被店家“挂”门口避雷](http://www.share.minike.top/Article/details/9187170.shtml)
+- 2026-06-30 08:00 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/53205.shtml)
+- 2026-06-30 08:29 - [董路：谁赢谁是“正路子”](https://www.blog.minike.top/Article/details/735597675054.shtml)
+- 2026-06-30 08:22 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/7347609411.shtml)
+- 2026-06-30 08:19 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/5860240.shtml)
+- 2026-06-30 08:20 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/85248.shtml)
+- 2026-06-30 08:15 - [德国进球被吹](https://www.share.minike.top/Article/details/13041513442.shtml)
+- 2026-06-30 08:20 - [小勒布伦WTT美国大满贯开门红](http://www.blog.kurohicncr.top/Article/details/865599.shtml)
+- 2026-06-30 08:02 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/8096521950.shtml)
+- 2026-06-30 08:29 - [恋与深空制作组回应近期争议](http://www.share.minike.top/Article/details/992358665622.shtml)
+- 2026-06-30 08:13 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/5213866.shtml)
+- 2026-06-30 08:23 - [巴西把自己踢晕了](https://www.blog.kurohicncr.top/Article/details/95494899733.shtml)
+- 2026-06-30 08:02 - [巴西2-1绝杀日本](https://www.share.kurohicncr.top/Article/details/1272035611.shtml)
+- 2026-06-30 08:24 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/198015418417.shtml)

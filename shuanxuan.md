@@ -1,59 +1,58 @@
-# 豪买两年半后，邓晓峰罕见减持京东方A
+# 元道通信、ST清越索赔：收到行政处罚事先告知书 投资者可参与索赔
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！在重金买入两年半之后，邓晓峰减仓面板股。 面板龙头京东方A最新披露的2025年报以及回购公告显示，今年一季度，高毅资产首席投资官邓晓峰管理的两只产品合计减持该公司2900万股。这是上述两只产品自2023年三季度首次在京东方A股东名单中现身以来，罕见地减持如此多的股份。 一季度减持2900万股 根据面板龙头公
+登录新浪财经APP 搜索【信披】查看更多考评等级 公开资料显示，2026年5月8日晚间，元道通信（维权）、ST清越（维权）分别发布关于收到《行政处罚事先告知书》的公告和关于收到中国证监会《行政处罚事先告知书》的公告。两家上市公司此前分别于：2025年7月11日和2025年10月31日公告遭证监会立案。 根据证监会下达的行政处罚事先告知书显示，元道通信涉及的违规包括：一、元道通信
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+登录新浪财经APP 搜索【信披】查看更多考评等级 公开资料显示，2026年5月8日晚间，元道通信（维权）、ST清越（维权）分别发布关于收到《行政处罚事先告知书》的公告和关于收到中国证监会《行政处罚事先告知书》的公告。
 
-在重金买入两年半之后，邓晓峰减仓面板股。
+两家上市公司此前分别于：2025年7月11日和2025年10月31日公告遭证监会立案。
 
-面板龙头京东方A最新披露的2025年报以及回购公告显示，今年一季度，高毅资产首席投资官邓晓峰管理的两只产品合计减持该公司2900万股。
+根据证监会下达的行政处罚事先告知书显示，元道通信涉及的违规包括：一、元道通信公告的证券发行文件编造重大虚假内容。
 
-这是上述两只产品自2023年三季度首次在京东方A股东名单中现身以来，罕见地减持如此多的股份。
+经查，2019 年至 2021 年，元道通信通过虚构工作量确认单等方式虚增营业收入 65，902，640.59 元、160，688，291.80 元、263，632，076.14 元，分别占《招股说明书》（申报稿、上会稿、注册稿）披露的 2019 年度至2021 年度营业收入的 8.75%、13.12%、16.23%。
 
-一季度减持2900万股 根据面板龙头公司京东方A2025年年报和回购公告，截至今年3月底，邓晓峰管理的高毅晓峰2号致信基金持有该公司3.37亿股，他管理的另一只产品高毅晓峰鸿远集合资金信托计划持有3.07亿股。
+元道通信在公告的证券发行文件中编造重大虚假内容；二、元道通信 2022 年年度报告信息披露存在虚假记载。
 
-同2025年底相比，分别减少1500万股和1400万股。
+经查，2022 年元道通信通过虚构工作量确认单等方式虚增营业收入166，218，396.33 元，占 2022 年年度报告披露营业收入的7.87%。
 
-根据京东方A定期报告，2023年三季度，邓晓峰管理的上述两只产品首次在该公司前十大股东名单中现身，截至2023年三季度末，高毅晓峰2号致信基金、高毅晓峰鸿远集合资金信托计划分别持有3.5亿股、3.3亿股，持仓市值分别为13.51亿元和12.74亿元。
+ST清越涉及的违规主要包括：一、清越科技公告的证券发行文件编造重大虚假内容。
 
-从季度持仓变动情况看，邓晓峰重金买入两年多来，尽管偶有小幅减持，但始终是重仓持有。
+经查，2021 年，清越科技通过故意少计存货跌价准备、虚假销售芯片等方式虚增利润总额 10，654，935.32 元，占《招股说明书》上会稿、注册稿披露的2021年度利润总额的 21.72%。
 
 ## 相关推荐
 
-- 2026-06-30 08:18 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-30 08:00 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
-- 2026-06-30 08:08 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
-- 2026-06-30 08:15 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
-- 2026-06-30 08:18 - [张月收到黄灿灿辣货两眼发光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-30 07:58 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-30 08:08 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-30 08:12 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-30 08:17 - [日本博主：日本足球真的垃圾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
-- 2026-06-30 08:16 - [日本球迷被强行披上巴西国旗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-30 07:59 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-30 08:13 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
-- 2026-06-30 08:11 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-30 08:13 - [全新问界M9现身美国街头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-30 08:12 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-30 08:01 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-30 08:12 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-30 08:14 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-30 08:27 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-30 08:13 - [F1奥地利站赛后复盘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-30 08:06 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-30 08:21 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-30 08:19 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-30 08:27 - [郑钦文温网一轮游](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-30 08:11 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:17 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/55389147991.shtml)
-- 2026-06-30 08:10 - [美股](http://www.blog.minike.top/Article/details/6840343.shtml)
-- 2026-06-30 07:57 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/123996.shtml)
-- 2026-06-30 08:22 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/78538.shtml)
-- 2026-06-30 08:23 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/62176673929.shtml)
-- 2026-06-30 07:55 - [日本 高位逼抢](http://www.blog.kurohicncr.top/Article/details/63074125.shtml)
-- 2026-06-30 08:02 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/907266.shtml)
-- 2026-06-30 08:15 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/2469957.shtml)
-- 2026-06-30 07:55 - [金刚川](http://www.share.minike.top/Article/details/000648.shtml)
-- 2026-06-30 08:08 - [王濛回复黄灿灿](http://www.blog.minike.top/Article/details/455791407317.shtml)
-- 2026-06-30 08:23 - [杨紫学位证上就是杨紫](https://www.blog.minike.top/Article/details/5577092.shtml)
-- 2026-06-30 08:16 - [董卿父亲在报纸上发文悼念亡妻](https://www.blog.minike.top/Article/details/893442226765.shtml)
-- 2026-06-30 08:01 - [天道](https://www.blog.kurohicncr.top/Article/details/55958.shtml)
-- 2026-06-30 08:16 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/54054381784.shtml)
-- 2026-06-30 08:07 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/757826279.shtml)
+- 2026-06-30 08:06 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/438357448942.shtml)
+- 2026-06-30 08:07 - [逃狱兄弟](http://www.share.minike.top/Article/details/6795602279.shtml)
+- 2026-06-30 08:19 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/135620235.shtml)
+- 2026-06-30 08:09 - [恋与深空制作组回应近期争议](https://www.share.kurohicncr.top/Article/details/12006681.shtml)
+- 2026-06-30 08:16 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/37586405.shtml)
+- 2026-06-30 08:21 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/27784.shtml)
+- 2026-06-30 08:19 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.kurohicncr.top/Article/details/4813361.shtml)
+- 2026-06-30 08:05 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/83343.shtml)
+- 2026-06-30 08:19 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/527561146715.shtml)
+- 2026-06-30 08:08 - [檀健次王楚然吻戏看热了](http://www.share.kurohicncr.top/Article/details/38236737.shtml)
+- 2026-06-30 08:02 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.minike.top/Article/details/367342.shtml)
+- 2026-06-30 08:13 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.minike.top/Article/details/8239898158.shtml)
+- 2026-06-30 08:25 - [曝灰熊将莫兰特交易至开拓者](https://www.blog.minike.top/Article/details/77369049.shtml)
+- 2026-06-30 08:11 - [泰山建135公里刀片刺绳隔离网](https://www.blog.minike.top/Article/details/6667015005.shtml)
+- 2026-06-30 08:24 - [金刚川](http://www.share.minike.top/Article/details/23577479514.shtml)

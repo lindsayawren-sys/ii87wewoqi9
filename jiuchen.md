@@ -1,52 +1,59 @@
-# 国资委公布4户中央企业外部董事职务变动
+# 亏了！酒鬼
 
-> 更新时间：2026-06-30 08:24:02 UTC+8
+> 更新时间：2026-06-30 08:30:02 UTC+8
 
 ## 摘要
 
-中新网4月9日电 据国资委网站消息，国资委9日公布4户中央企业外部董事职务变动。 中国航天科工集团有限公司 经研究，聘任曹光祥为中国航天科工集团有限公司外部董事。 中国海洋石油集团有限公司经研究，聘任李永林、范夏夏为中国海洋石油集团有限公司外部董事，郭建新、邵开文、江正洪不再担任中国海洋石油集团有限公司外部董事职务。 中国大唐集团有限公司 经研究，聘任黄永达、陈建华、江正洪为中
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：国际金融报 净利润亏损后，酒鬼酒的高管开始打“退堂鼓”。 5月7日盘后，酒鬼酒披露公告称，董事会收到胡晓熹的书面辞职报告，因工作调整原因，其申请辞去公司副总经理职务，辞职后将不在公司担任任何职务。 公开信息显示，胡晓熹生于1979年4月，山东济
 
 ## 正文
 
-中新网4月9日电 据国资委网站消息，国资委9日公布4户中央企业外部董事职务变动。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-中国航天科工集团有限公司 经研究，聘任曹光祥为中国航天科工集团有限公司外部董事。
+来源：国际金融报 净利润亏损后，酒鬼酒的高管开始打“退堂鼓”。
 
-中国海洋石油集团有限公司经研究，聘任李永林、范夏夏为中国海洋石油集团有限公司外部董事，郭建新、邵开文、江正洪不再担任中国海洋石油集团有限公司外部董事职务。
+5月7日盘后，酒鬼酒披露公告称，董事会收到胡晓熹的书面辞职报告，因工作调整原因，其申请辞去公司副总经理职务，辞职后将不在公司担任任何职务。
 
-中国大唐集团有限公司 经研究，聘任黄永达、陈建华、江正洪为中国大唐集团有限公司外部董事，王守东不再担任中国大唐集团有限公司外部董事职务。
+公开信息显示，胡晓熹生于1979年4月，山东济南人。
 
-中国电信集团有限公司 经研究，聘任刘冬为中国电信集团有限公司外部董事，段洪义不再担任中国电信集团有限公司外部董事职务。
+2005年7月，其加入中粮，先后在中国土产畜产进出口总公司、集团办公室、中国食品有限公司工作，曾任中国食品有限公司办公室负责人、西北大区总经理；中粮酒业西北大区总经理、督察部总经理。
+
+2021年11月，胡晓熹进入酒鬼酒，担任副总经理，后又任党委副书记、纪委书记，至今已有将近5年时间。
+
+据悉，胡晓熹原定任期截至2027年2月22日，此番相当于提前近一年离任。
+
+截至目前，其尚持有酒鬼酒2800股股票，这些股票将按照相关规定管理。
 
 ## 相关推荐
 
-- 2026-06-30 08:17 - [感动全网的699分女生想报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-30 08:02 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-30 08:00 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-30 07:54 - [孙颖莎王楚钦晋级8强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
-- 2026-06-30 08:13 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-30 07:57 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-30 08:19 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
-- 2026-06-30 07:58 - [三星投资计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-30 08:00 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-30 08:08 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-30 08:06 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
-- 2026-06-30 08:14 - [田中碧失误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-30 08:13 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
+- 2026-06-30 08:14 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-30 08:17 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
+- 2026-06-30 08:10 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-30 08:26 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-30 08:20 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-30 08:22 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-30 08:00 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
+- 2026-06-30 08:05 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
+- 2026-06-30 08:16 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
+- 2026-06-30 08:17 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
+- 2026-06-30 08:23 - [萨内 看笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
+- 2026-06-30 08:26 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:14 - [巴拉圭进球](https://www.blog.kurohicncr.top/Article/details/994584539747.shtml)
-- 2026-06-30 08:01 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/61768937.shtml)
-- 2026-06-30 08:17 - [库尼亚赛后伸五指嘲讽日本](https://www.share.minike.top/Article/details/861544.shtml)
-- 2026-06-30 08:03 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/8884866796.shtml)
-- 2026-06-30 08:03 - [卢卡申科发布解放军仪仗队视频](http://www.blog.minike.top/Article/details/87846.shtml)
-- 2026-06-30 08:15 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/503502.shtml)
-- 2026-06-30 08:00 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/2938546.shtml)
-- 2026-06-30 08:10 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/298708.shtml)
-- 2026-06-30 08:17 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/119311173.shtml)
-- 2026-06-30 08:07 - [这种关系可能正在悄悄“催老”你](http://www.blog.minike.top/Article/details/524030834.shtml)
-- 2026-06-30 08:14 - [齐思钧回复张月](http://www.share.minike.top/Article/details/685328080.shtml)
-- 2026-06-30 07:54 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/9600435157.shtml)
-- 2026-06-30 08:23 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/6127909.shtml)
-- 2026-06-30 08:12 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/247610308.shtml)
-- 2026-06-30 08:23 - [苗族银饰](http://www.blog.kurohicncr.top/Article/details/85855334.shtml)
+- 2026-06-30 08:28 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/96630311245.shtml)
+- 2026-06-30 08:01 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/54143215487.shtml)
+- 2026-06-30 08:16 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.kurohicncr.top/Article/details/695997121972.shtml)
+- 2026-06-30 08:13 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/9237843729.shtml)
+- 2026-06-30 08:12 - [徐亮怒斥世界杯踢假球](https://www.blog.minike.top/Article/details/4521849.shtml)
+- 2026-06-30 08:23 - [为什么会有「念旧」的心理？](http://www.blog.kurohicncr.top/Article/details/619764.shtml)
+- 2026-06-30 08:06 - [AI手机进入Agent时代](http://www.blog.minike.top/Article/details/468663643.shtml)
+- 2026-06-30 08:02 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.kurohicncr.top/Article/details/63419519.shtml)
+- 2026-06-30 08:19 - [覃予萱晋级WTT美国大满贯女单32强](https://www.share.kurohicncr.top/Article/details/1312355146.shtml)
+- 2026-06-30 08:28 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/5486707.shtml)
+- 2026-06-30 08:17 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/8523599545.shtml)
+- 2026-06-30 08:14 - [巴西2-1绝杀日本](https://www.blog.minike.top/Article/details/2511469006.shtml)
+- 2026-06-30 08:20 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/25463.shtml)
+- 2026-06-30 08:24 - [刘宇宁是去进货了吗](https://www.share.kurohicncr.top/Article/details/66498.shtml)
+- 2026-06-30 08:28 - [《贺子珍》](https://www.share.minike.top/Article/details/05928043.shtml)
