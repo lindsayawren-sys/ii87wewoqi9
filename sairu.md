@@ -1,43 +1,43 @@
-<h1>湖北省去年破获毒品犯罪案件2130起</h1><br>
+<h1>华泰期货：受到供给侧扰动影响，近日碳酸锂连续上涨</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:18:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新网武汉6月23日电 (记者 武一力)记者从湖北省政府新闻办23日召开的新闻发布会获悉，2025年，湖北省破获毒品犯罪案件2130起、抓获重大逃犯28人；共缴获毒品239.4千克，其中来源境外占比达88%。 据介绍，湖北省构建起科学化、人性化吸毒人员管控帮扶体系，有效降低复吸率，化解涉毒风险。湖北省禁毒办会同相关部门更新完善在册吸毒人员“一人一档”，推动纳入各级公安基础管控中</p><br>
+<p>来源：华泰期货 作者： 新能源及有色组 昨日碳酸锂盘面增仓上行，主力合约2609增仓27138手，涨幅2.6%，收盘上涨至180200元/吨，目前总合约持仓量43.59万手，碳酸锂盘面价格连续上涨。 现货：根据SMM数据，电池级碳酸锂报170000-175000元/吨，较前一交易日变化3000元/吨，工业级碳酸锂报价165000-170000元/吨，较前一交易日变化2000元/</p><br>
 <h2>正文</h2><br>
-<p>中新网武汉6月23日电 (记者 武一力)记者从湖北省政府新闻办23日召开的新闻发布会获悉，2025年，湖北省破获毒品犯罪案件2130起、抓获重大逃犯28人；共缴获毒品239.4千克，其中来源境外占比达88%。</p><br>
-<p>据介绍，湖北省构建起科学化、人性化吸毒人员管控帮扶体系，有效降低复吸率，化解涉毒风险。</p><br>
-<p>湖北省禁毒办会同相关部门更新完善在册吸毒人员“一人一档”，推动纳入各级公安基础管控中心分类动态管控，全面摸清戒毒康复人员救治需求，落实临时救助、低保、医保政策；依托社区戒毒康复工作指导站，组织全省戒毒康复人员职业技能培训，解决吸毒人员实际困难，2025年以来累计帮扶救助1.7万人次。</p><br>
-<p>在溯源监管方面，湖北省市场监管局、省公安厅、省应急厅、省药监局等部门对全省6000余家易制毒化学品企业和1500余家麻精药品医疗机构实施“一企一档一专班”管理服务，加强互联网化工网站巡查、重点企业管控教育，严防重点物品流入非法渠道。</p><br>
-<p>为防范青少年药物滥用，湖北多部门联合开展未成年人涉毒问题专项治理，成功打造“一堂禁毒课”“禁毒宣传教育进校园”等特色宣传品牌，有效提升青少年识毒、防毒、拒毒意识和能力。</p><br>
-<p>2025年，湖北省新发现35岁以下人群吸毒人数同比下降38%。</p><br>
-<p>下一步，湖北将持续推进清剿毒品集中攻坚行动，严打中转集散、外流贩毒等突出毒品问题，同时健全完善毒品治理体系，巩固提升毒品治理成效。</p><br>
-<p>(完)</p><br>
+<p>来源：华泰期货 作者： 新能源及有色组 昨日碳酸锂盘面增仓上行，主力合约2609增仓27138手，涨幅2.6%，收盘上涨至180200元/吨，目前总合约持仓量43.59万手，碳酸锂盘面价格连续上涨。</p><br>
+<p>现货：根据SMM数据，电池级碳酸锂报170000-175000元/吨，较前一交易日变化3000元/吨，工业级碳酸锂报价165000-170000元/吨，较前一交易日变化2000元/吨。</p><br>
+<p>6%锂精矿价格2490美元/吨，较前一日变化65美元/吨。</p><br>
+<p>库存：根据SMM最新统计数据，现货库存为102814吨，环比+1012吨。</p><br>
+<p>其中冶炼厂库存为18806吨，环比+163吨；下游库存为45649吨，环比-320吨；其他库存为38360吨，环比+1170吨。</p><br>
+<p>近期盘面价格连续上涨，主要受到供给侧扰动影响：宜春四矿或将于五月换证停产，引发市场情绪，但考虑到锂矿企业在停产前已经提前加速原矿开采，停产在2个月以上或将影响宜春供应，叠加津巴布韦锂矿断档，考虑到两个月海运周期，如果五一后津巴布韦未恢复发运，7月或将出现较供给缺口。</p><br>
+<p>此外，澳洲维瓦能源炼油厂发生爆炸引发市场对澳矿供给担忧，供给端维持偏紧格局。</p><br>
+<p>目前碳酸锂库存仍位于低位，供给端扰动频繁，近期震荡走强，随着市场多空分歧加剧，未来持续关注供给变动、下游备货节奏、以及大宗商品市场氛围，短期建议区间操作为主。</p><br>
 <h2>相关推荐</h2><br>
-<h3>郑钦文温网首轮出局</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md</p><br>
-<h3>美媒：美军第五舰队司令部已无法使用</h3><br><p>更新时间：2026-06-30 09:45<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md</p><br>
-<h3>未来的飞机可能会用电吗？</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md</p><br>
-<h3>德国主帅称无法理解加时进球被吹</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md</p><br>
-<h3>王菲谢霆锋十指紧扣好甜</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md</p><br>
-<h3>网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md</p><br>
-<h3>怕iPhone涨价的用户已紧急换新</h3><br><p>更新时间：2026-06-30 09:44<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md</p><br>
-<h3>女子用家人生日买彩票中1032万</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md</p><br>
-<h3>李在明向韩国两大财阀90度鞠躬</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md</p><br>
-<h3>森保一致歉：我执教能力不足</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md</p><br>
+<h3>德国北部枪击事件致5死</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md</p><br>
+<h3>流金岁月</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md</p><br>
+<h3>高校青椒，非嫡系，单干还是进团队？</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md</p><br>
+<h3>如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md</p><br>
+<h3>蜘蛛侠:平行宇宙</h3><br><p>更新时间：2026-06-30 10:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md</p><br>
+<h3>国内最大沙漠发洪水意味着什么</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md</p><br>
+<h3>韩国队前主教练回国遭狂嘘</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md</p><br>
+<h3>点球大战和诺伊尔都救不回德国队</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md</p><br>
+<h3>曝娱乐圈大部分明星失业</h3><br><p>更新时间：2026-06-30 10:14<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md</p><br>
+<h3>库尼亚赛后伸五指嘲讽日本</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>日本球迷输球后集体捡垃圾</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md</p><br>
-<h3>有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md</p><br>
-<h3>高考结束，该不该外出打工体验？</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md</p><br>
-<h3>租房时你会更看重「住得舒服」，还是「每天通勤更方便」？</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md</p><br>
-<h3>解放军黄岩岛战备警巡 驱离菲方飞机</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md</p><br>
-<h3>世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md</p><br>
-<h3>德国 传控</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md</p><br>
-<h3>开电动汽车真的很省钱吗？</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md</p><br>
-<h3>重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md</p><br>
-<h3>扬名立万</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md</p><br>
-<h3>金价跳水 水贝市场显现出“两重天”</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md</p><br>
-<h3>金刚川</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md</p><br>
-<h3>张碧晨一开口梦回逐玉</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md</p><br>
-<h3>森保一 可以退休了</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md</p><br>
-<h3>欧洲空调卖疯了 下一个爆款是储能吗</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md</p><br>
+<h3>詹姆斯 勇士</h3><br><p>更新时间：2026-06-30 10:13<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md</p><br>
+<h3>张月没加到的微信黄灿灿加到了</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md</p><br>
+<h3>iPhone18e曝光</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md</p><br>
+<h3>郑钦文温网一轮游</h3><br><p>更新时间：2026-06-30 10:17<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md</p><br>
+<h3>“黄岩岛自家院子紧张个啥”</h3><br><p>更新时间：2026-06-30 10:13<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md</p><br>
+<h3>papi酱已退出papitube关联公司</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md</p><br>
+<h3>庆祝建党105周年特别节目</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md</p><br>
+<h3>美媒：美军第五舰队司令部已无法使用</h3><br><p>更新时间：2026-06-30 10:15<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md</p><br>
+<h3>2021湖南卫视跨年演唱会</h3><br><p>更新时间：2026-06-30 10:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md</p><br>
+<h3>日本队5进世界杯淘汰赛0胜</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md</p><br>
+<h3>莫兰特转投开拓者效力</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md</p><br>
+<h3>庆祝建党105周年特别节目</h3><br><p>更新时间：2026-06-30 10:13<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md</p><br>
+<h3>巴西球迷赛后给日本球迷披上巴西国旗</h3><br><p>更新时间：2026-06-30 10:14<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md</p><br>
+<h3>女子清吧被陌生人投放伟哥</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md</p><br>
+<h3>恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md</p><br>

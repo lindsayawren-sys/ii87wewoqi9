@@ -1,44 +1,44 @@
-<h1>长江有色: 中东出货量增加及国内库存高压 23日铝价或下跌</h1><br>
+<h1>中国美术学院考级考点落户拉萨 填补西藏规范化美术认证空白</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:12:02 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:18:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>长江有色金属网 长江铝价alu.ccmn.cn短评：美指上涨及海峡通航乐观预期缓解供应中断忧虑，隔夜伦铝收跌1.1%；市场预期中东铝出货量将进一步增加，国内铝库存高位施压，今现铝或下跌。 【铝期货市场】：美指上涨及海峡通航乐观预期缓解供应中断忧虑，隔夜伦铝震荡下挫，最新收盘报价3360美元/吨，收跌38美元，跌幅1.10%，成交量21795手增加11851手，持仓量613311</p><br>
+<p>中新网拉萨4月20日电(贡确)20日，中国美术学院社会美术水平考级中心挂牌仪式暨专题讲座在西藏唐卡艺术博物馆举行，中国美术学院社会美术水平考级拉萨考点正式落户西藏丹巴绕旦唐卡艺术职业技能培训学校。此次合作标志着国家级艺术水平评价体系与西藏非遗传承实现系统性对接，填补了西藏规范化美术等级认证的空白。 活动由中国美术学院社会美术水平考级中心、西藏文化旅游创意园区管理委员会主办，西藏</p><br>
 <h2>正文</h2><br>
-<p>长江有色金属网 长江铝价alu.ccmn.cn短评：美指上涨及海峡通航乐观预期缓解供应中断忧虑，隔夜伦铝收跌1.1%；市场预期中东铝出货量将进一步增加，国内铝库存高位施压，今现铝或下跌。</p><br>
-<p>【铝期货市场】：美指上涨及海峡通航乐观预期缓解供应中断忧虑，隔夜伦铝震荡下挫，最新收盘报价3360美元/吨，收跌38美元，跌幅1.10%，成交量21795手增加11851手，持仓量613311手减少2783手。</p><br>
-<p>晚间沪铝高开走跌；主力月2608合约最新收盘价报24010元/吨，跌55元，跌幅0.23%。</p><br>
-<p>伦敦金属交易所（LME）6月20日伦铝最新库存量报313800吨，较上个交易日下降1500吨，跌幅0.48%。</p><br>
-<p>长江铝业网讯：6月22日现货铝价，长江现货A00铝锭价报23870元/吨，持平；广东现货A00铝锭价报23820元/吨，持平。</p><br>
-<p>宏观层面，美伊首轮高层会谈取得“大量进展”——万斯证实奠定良好基础，双方建沟通机制确保商船安全、开通冲突处理渠道，伊朗获60天制裁豁免（可出口原油及石化产品获收入）→油价重挫逾3%至74.14美元/桶附近，通胀担忧进一步缓解。</p><br>
-<p>美股道指+0.29%（医疗/工业），纳指-1.32%（Alphabet/Meta/微软AI支出质疑拖累）。</p><br>
-<p>国内方面，1-5月全国一般公共预算收入100，465亿元（+4%），税收收入82，617亿元（+4.4%），增值税连续四月提速至+6.2%，财政收支紧平衡改善、收入质量提升。</p><br>
+<p>中新网拉萨4月20日电(贡确)20日，中国美术学院社会美术水平考级中心挂牌仪式暨专题讲座在西藏唐卡艺术博物馆举行，中国美术学院社会美术水平考级拉萨考点正式落户西藏丹巴绕旦唐卡艺术职业技能培训学校。</p><br>
+<p>此次合作标志着国家级艺术水平评价体系与西藏非遗传承实现系统性对接，填补了西藏规范化美术等级认证的空白。</p><br>
+<p>活动由中国美术学院社会美术水平考级中心、西藏文化旅游创意园区管理委员会主办，西藏丹巴绕旦唐卡艺术职业技能培训学校承办。</p><br>
+<p>据了解，中国美术学院作为国内顶尖艺术学府，其社会美术考级体系规范权威、专业严谨，是社会美育与艺术人才评价的重要平台。</p><br>
+<p>西藏丹巴绕旦唐卡艺术职业技能培训学校由国家级非物质文化遗产(勉唐派)代表性传承人丹巴绕旦教授创办，深耕唐卡艺术教育四十余年，已成长为西藏极具影响力的非遗传承教育机构，先后获授“西藏老字号”“拉萨老字号”称号，为当地培养了大批唐卡艺术人才。</p><br>
+<p>西藏丹巴绕旦唐卡艺术职业技能培训学校校长旦增平措表示，此次挂牌不仅是对学校办学成果的认可，更是为西藏唐卡学子打开通往全国性专业认证与交流的大门。</p><br>
+<p>学校将以考促教，引入中国美术学院考评体系与教学理念，优化课程设置，推动勉唐派教学向科学、规范方向提升；以证促学，让学生获得国家认可证书，为其升学和职业发展提供支撑，搭建从技艺传承到学历认证的贯通路径；同时深化产学研融合，在唐卡数字化保护、创新转化等领域开展务实合作。</p><br>
+<p>西藏自治区美术家协会副主席、副秘书长次旦久美表示，西藏美术是中华优秀传统文化的重要组成部分。</p><br>
 <h2>相关推荐</h2><br>
-<h3>世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md</p><br>
-<h3>日本博主：日本足球真的垃圾</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md</p><br>
-<h3>被巴西绝杀后 日球员田中碧跪地痛哭</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md</p><br>
-<h3>泰山建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md</p><br>
-<h3>汉语是世界上最言简意赅的语言吗？</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md</p><br>
-<h3>金刚川</h3><br><p>更新时间：2026-06-30 09:46<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md</p><br>
-<h3>网瘾賊大的阿嬷</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md</p><br>
-<h3>7月1日起 一批新规即将落地</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md</p><br>
-<h3>曹雪芹为什么写贾母痛批私定终身，才子佳人小说不是婚姻自主、人文觉醒的反封建文学吗？</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md</p><br>
-<h3>如何评价《龙之家族》第三季第二集？</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md</p><br>
-<h3>梅德韦杰夫列举俄罗斯面临的七大挑战</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md</p><br>
+<h3>男生180+，有腹肌是什么体验？</h3><br><p>更新时间：2026-06-30 09:54<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md</p><br>
+<h3>男子造谣东鹏老板不喝自家饮料被拘</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md</p><br>
+<h3>天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md</p><br>
+<h3>人类...完蛋了...</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md</p><br>
+<h3>警方介入洪明甫死亡威胁</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md</p><br>
+<h3>德国 传控</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md</p><br>
+<h3>内马尔替补</h3><br><p>更新时间：2026-06-30 10:14<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md</p><br>
+<h3>扬名立万</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md</p><br>
+<h3>韩国足球荒唐背后的财阀控局</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md</p><br>
+<h3>董卿母亲癌症去世</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md</p><br>
+<h3>如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>外国游客开始涌入中国农村</h3><br><p>更新时间：2026-06-30 09:55<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md</p><br>
-<h3>日耳曼拖拉机</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md</p><br>
-<h3>首届《哈基米歌王争霸赛》总决赛</h3><br><p>更新时间：2026-06-30 09:57<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md</p><br>
-<h3>极限挑战第一季</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md</p><br>
-<h3>索马里女大使：想和中国一起搞事业</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md</p><br>
-<h3>Melo向柳智敏张元英道歉</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md</p><br>
-<h3>一见倾心</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md</p><br>
-<h3>【大鸣王潮1566】真拿你没办法</h3><br><p>更新时间：2026-06-30 09:58<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md</p><br>
-<h3>李宏毅白月光真神回归</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md</p><br>
-<h3>日本球员说被绝杀非常不甘心</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md</p><br>
-<h3>人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？</h3><br><p>更新时间：2026-06-30 09:53<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md</p><br>
-<h3>我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md</p><br>
-<h3>锐评T1战胜KC</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md</p><br>
-<h3>送你一朵小红花</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md</p><br>
-<h3>人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md</p><br>
+<h3>韩国道歉完日本道歉</h3><br><p>更新时间：2026-06-30 10:15<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md</p><br>
+<h3>欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md</p><br>
+<h3>梅德韦杰夫列举俄罗斯面临的七大挑战</h3><br><p>更新时间：2026-06-30 10:13<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md</p><br>
+<h3>酒店推行“24小时退房”引热议</h3><br><p>更新时间：2026-06-30 10:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md</p><br>
+<h3>商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？</h3><br><p>更新时间：2026-06-30 10:13<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md</p><br>
+<h3>《共患难》</h3><br><p>更新时间：2026-06-30 10:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md</p><br>
+<h3>恋与深空道歉声明</h3><br><p>更新时间：2026-06-30 09:56<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md</p><br>
+<h3>杨紫被质疑未使用原名纯属误解</h3><br><p>更新时间：2026-06-30 10:15<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md</p><br>
+<h3>你对《崩坏：星穹铁道》4.4版本「鸣笛于归寂之时」前瞻特别节目有什么期待？</h3><br><p>更新时间：2026-06-30 09:48<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md</p><br>
+<h3>曝波尔津吉斯提前续约勇士</h3><br><p>更新时间：2026-06-30 10:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md</p><br>
+<h3>电影抓特务上映11天破亿</h3><br><p>更新时间：2026-06-30 09:49<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md</p><br>
+<h3>王濛回复黄灿灿</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md</p><br>
+<h3>第3集丨“柠檬茶能换怀表？”</h3><br><p>更新时间：2026-06-30 09:59<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md</p><br>
+<h3>道友？你来真的啊？【凡人官方二创大会】</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md</p><br>
+<h3>庆祝中国共产党成立105周年大会将举行</h3><br><p>更新时间：2026-06-30 09:52<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md</p><br>
