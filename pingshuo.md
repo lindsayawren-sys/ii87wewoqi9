@@ -1,60 +1,56 @@
-# 比特币交易活动增至2024年以来最高水平
+# 人民币升破6.76，创三年新高
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-CryptoQuant的分析师在一份报告中表示，比特币交易频率处于2024年以来的最高水平。尽管对冲基金资金继续逃离比特币，但交易频率依然上升。 CryptoQuant表示：“自2026年3月下旬以来，这种高于趋势的态势一直持续，与持续的价格疲软形成分化。“但平均交易规模远小于往年的典型水平。 该公司表示：“低于0.01比特币的微型交易目前占每日总交易量的80%，高于2023年
+记者丨叶麦穗 编辑丨方海平 曾芳 人民币汇率近期又悄悄走强，离岸人民币汇率今日（截至北京时间15点，下同）上涨近60个基点，最高触及6.75572，连续击穿多个重要关口；在岸人民币同期走强，今日兑美元汇率最高达到6.7581。 在岸、离岸双双进入6.7区间，创下2023年2月以来最强水平，为三年新高。根据国家外汇管理局最新公布的数据，2026年6月15日，人民币兑美元中间价报6
 
 ## 正文
 
-CryptoQuant的分析师在一份报告中表示，比特币交易频率处于2024年以来的最高水平。
+记者丨叶麦穗 编辑丨方海平 曾芳 人民币汇率近期又悄悄走强，离岸人民币汇率今日（截至北京时间15点，下同）上涨近60个基点，最高触及6.75572，连续击穿多个重要关口；在岸人民币同期走强，今日兑美元汇率最高达到6.7581。
 
-尽管对冲基金资金继续逃离比特币，但交易频率依然上升。
+在岸、离岸双双进入6.7区间，创下2023年2月以来最强水平，为三年新高。
 
-CryptoQuant表示：“自2026年3月下旬以来，这种高于趋势的态势一直持续，与持续的价格疲软形成分化。
+根据国家外汇管理局最新公布的数据，2026年6月15日，人民币兑美元中间价报6.8088，上调21点。
 
-“但平均交易规模远小于往年的典型水平。
+两大原因促使汇率走强 “近几个交易日人民币兑美元走强，背后主要有两个原因：一是受美伊谈判取得进展、市场避险需求回落带动，美元走低。
 
-该公司表示：“低于0.01比特币的微型交易目前占每日总交易量的80%，高于2023年不到50%的比例。
+这会直接推高人民币对美元汇价。
 
-低于0.001比特币和低于0.01比特币的交易群体在2026年均出现猛增，接近2024年的前期峰值。
+二是5月我国出口增速高位上行，市场结汇需求增加，为人民币带来了内在升值动能。
 
-“ 比特币上涨2.5%，至65363美元。
+可以看到，近期不但人民币对美元在升值，而且代表人民币整体汇率水平的CFETS等人民币兑一篮子货币汇率指数也在走高。
 
-责任编辑：李桐
+” 东方金诚首席宏观分析师王青接受记者采访时表示。
 
 ## 相关推荐
 
-- 2026-06-30 07:41 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
-- 2026-06-30 07:36 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-30 07:57 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-30 08:02 - [巴西在进攻三区完成210脚传球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
-- 2026-06-30 07:47 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-30 07:46 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
-- 2026-06-30 07:36 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
-- 2026-06-30 08:02 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-30 07:59 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-30 08:05 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-30 07:46 - [巴拉圭点球大战淘汰德国进16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
-- 2026-06-30 07:50 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
-- 2026-06-30 07:39 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
-- 2026-06-30 07:51 - [三星投资计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-30 07:55 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
+- 2026-06-30 08:03 - [金鹰奖视后提名预测](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-30 07:43 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-30 07:52 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-30 07:52 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-30 07:52 - [勇士续约波尔津吉斯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-30 07:51 - [索马里女大使：想和中国一起搞事业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-30 08:10 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
+- 2026-06-30 08:01 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-30 07:56 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:54 - [日本淘汰](https://www.blog.minike.top/Article/details/18107899.shtml)
-- 2026-06-30 08:03 - [逃狱兄弟](http://www.share.minike.top/Article/details/548586055427.shtml)
-- 2026-06-30 08:00 - [勇士续约波尔津吉斯](https://www.blog.kurohicncr.top/Article/details/31605068063.shtml)
-- 2026-06-30 08:01 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/749306.shtml)
-- 2026-06-30 08:00 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/9251735.shtml)
-- 2026-06-30 07:49 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.blog.kurohicncr.top/Article/details/828649.shtml)
-- 2026-06-30 07:37 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/787023.shtml)
-- 2026-06-30 07:44 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/5688699.shtml)
-- 2026-06-30 07:53 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/01407.shtml)
-- 2026-06-30 07:54 - [杨紫被质疑未使用原名纯属误解](http://www.blog.kurohicncr.top/Article/details/22868097081.shtml)
-- 2026-06-30 07:49 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.kurohicncr.top/Article/details/920676383.shtml)
-- 2026-06-30 08:02 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.minike.top/Article/details/10285.shtml)
-- 2026-06-30 07:58 - [这种关系可能正在悄悄“催老”你](https://www.share.minike.top/Article/details/683333767.shtml)
-- 2026-06-30 07:53 - [委内瑞拉地震死亡人数升至1719人](http://www.blog.minike.top/Article/details/479793524.shtml)
-- 2026-06-30 07:52 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/5950829552.shtml)
+- 2026-06-30 07:58 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.minike.top/Article/details/6316725582.shtml)
+- 2026-06-30 07:54 - [日本半场1比0领先巴西](https://www.blog.minike.top/Article/details/3255349189.shtml)
+- 2026-06-30 07:59 - [德国4比5巴拉圭](https://www.blog.minike.top/Article/details/293388.shtml)
+- 2026-06-30 07:42 - [女子遭下药退赔偿拟追刑责](https://www.share.minike.top/Article/details/90138387.shtml)
+- 2026-06-30 07:48 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/592633312415.shtml)
+- 2026-06-30 08:09 - [男子醉酒溺水获救后同行人拒协助抬人](http://www.share.minike.top/Article/details/3076680887.shtml)
+- 2026-06-30 08:09 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/43971611410.shtml)
+- 2026-06-30 07:51 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/778348.shtml)
+- 2026-06-30 07:46 - [建议不要突然完全停止喝咖啡](http://www.blog.minike.top/Article/details/720862355.shtml)
+- 2026-06-30 08:10 - [泰山建135公里刀片刺绳隔离网](https://www.blog.kurohicncr.top/Article/details/69379160.shtml)
+- 2026-06-30 07:55 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/7072428513.shtml)
+- 2026-06-30 07:59 - [藤森庆子赢得秘鲁总统选举](https://www.share.minike.top/Article/details/7550530608.shtml)
+- 2026-06-30 08:07 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/2399005282.shtml)
+- 2026-06-30 08:02 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/626573.shtml)
+- 2026-06-30 07:47 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/31173.shtml)

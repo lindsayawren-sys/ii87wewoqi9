@@ -1,50 +1,54 @@
-# 2025年五个自治区地区生产总值达8.66万亿元
+# 麦科奥特：公司核心产品被临床医生高度期待 不担心新药上市周期长市场被瓜分
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-国务院新闻办公室6月24日举行新闻发布会，介绍《中华人民共和国民族团结进步促进法》和我国民族工作有关情况。 记者从新闻发布会上了解到，2012年到2025年，内蒙古、广西、西藏、宁夏、新疆五个自治区地区生产总值由3.25万亿元增长至8.66万亿元，各族人民共同迈上中国式现代化建设新征程。 记者：唐健辉、范思翔 海报制作：苗夏阳、唐健辉 新华社国内部出品
+内地创新药企麦科医药-B （2335） 于6月15日至18日招股。预期将于6月24日挂牌买卖，建银国际、招商证券国际为联席保荐人。 公司以18A章上市的创新药企麦科医药计划发行5805.4万股H股，10%在港公开发售，招股价介乎18.2元至21元，其余国际配售，集资最多12.2亿元。 公司管理层在记者会中表示，核心新药MT1013目前进入III期临床，将在2028年初实现商业化
 
 ## 正文
 
-国务院新闻办公室6月24日举行新闻发布会，介绍《中华人民共和国民族团结进步促进法》和我国民族工作有关情况。
+内地创新药企麦科医药-B （2335） 于6月15日至18日招股。
 
-记者从新闻发布会上了解到，2012年到2025年，内蒙古、广西、西藏、宁夏、新疆五个自治区地区生产总值由3.25万亿元增长至8.66万亿元，各族人民共同迈上中国式现代化建设新征程。
+预期将于6月24日挂牌买卖，建银国际、招商证券国际为联席保荐人。
 
-记者：唐健辉、范思翔 海报制作：苗夏阳、唐健辉 新华社国内部出品
+公司以18A章上市的创新药企麦科医药计划发行5805.4万股H股，10%在港公开发售，招股价介乎18.2元至21元，其余国际配售，集资最多12.2亿元。
+
+公司管理层在记者会中表示，核心新药MT1013目前进入III期临床，将在2028年初实现商业化，不担心新药上市周期长导致市场被瓜分，目前公司核心产品被临床医生高度期待。
+
+此外，公司另有六项药物在研发，包括主攻体重管理市场的减肥药XTL6001，预计本季度可完成一期临床试验。
+
+责任编辑：郝欣煜
 
 ## 相关推荐
 
-- 2026-06-30 07:46 - [点球大战 残酷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-30 07:51 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-30 08:02 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-30 07:41 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-30 07:47 - [曝老詹对自由市场态度与以往截然不同](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-30 07:51 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
-- 2026-06-30 07:47 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-30 07:41 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
-- 2026-06-30 07:55 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-30 07:59 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-30 07:56 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
-- 2026-06-30 07:46 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-30 07:57 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
-- 2026-06-30 07:37 - [莫兰特转投开拓者效力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-30 07:50 - [全新问界M9现身美国街头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-30 07:54 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-30 08:04 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-30 07:58 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-30 07:51 - [武磊：巴西队赢的并不轻松](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-30 08:10 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
+- 2026-06-30 08:00 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
+- 2026-06-30 08:09 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-30 07:54 - [女子遭下药退赔偿拟追刑责](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-30 08:04 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-30 08:03 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-30 07:49 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:54 - [沙丘](https://www.blog.minike.top/Article/details/78531136.shtml)
-- 2026-06-30 07:47 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.kurohicncr.top/Article/details/772092557.shtml)
-- 2026-06-30 07:38 - [IGN评测电影版后室](https://www.blog.minike.top/Article/details/287727834398.shtml)
-- 2026-06-30 07:43 - [郑钦文温网首轮出局](http://www.share.kurohicncr.top/Article/details/3407909091.shtml)
-- 2026-06-30 07:59 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/22865.shtml)
-- 2026-06-30 07:54 - [巴拉圭先进球了](http://www.blog.kurohicncr.top/Article/details/7646288.shtml)
-- 2026-06-30 07:50 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/446181690.shtml)
-- 2026-06-30 07:50 - [田中碧失误](http://www.blog.kurohicncr.top/Article/details/8010837.shtml)
-- 2026-06-30 07:44 - [三星投资计划](http://www.blog.minike.top/Article/details/3417981.shtml)
-- 2026-06-30 07:49 - [辛纳vs凯茨玛诺维奇](http://www.blog.kurohicncr.top/Article/details/366098171.shtml)
-- 2026-06-30 07:38 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/20549850.shtml)
-- 2026-06-30 07:48 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/66020230.shtml)
-- 2026-06-30 07:46 - [曝灰熊将莫兰特交易至开拓者](https://www.blog.kurohicncr.top/Article/details/2992402.shtml)
-- 2026-06-30 08:05 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/00851144.shtml)
-- 2026-06-30 07:53 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/07996.shtml)
+- 2026-06-30 08:08 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.kurohicncr.top/Article/details/47753794.shtml)
+- 2026-06-30 08:02 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/72523037976.shtml)
+- 2026-06-30 07:50 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/97347936274.shtml)
+- 2026-06-30 07:55 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/089715904090.shtml)
+- 2026-06-30 08:11 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/5278366752.shtml)
+- 2026-06-30 08:01 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/48243.shtml)
+- 2026-06-30 08:04 - [复古未来主义沙画「夜泳」](http://www.share.kurohicncr.top/Article/details/670623732.shtml)
+- 2026-06-30 07:52 - [“柠檬茶能换怀表？”](http://www.blog.minike.top/Article/details/227089202690.shtml)
+- 2026-06-30 07:49 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/0842602.shtml)
+- 2026-06-30 08:04 - [我觉得你是在无中生友](https://www.share.kurohicncr.top/Article/details/5896973975.shtml)
+- 2026-06-30 08:05 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.kurohicncr.top/Article/details/4931450.shtml)
+- 2026-06-30 07:52 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/75721.shtml)
+- 2026-06-30 07:46 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/972685491.shtml)
+- 2026-06-30 07:48 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.minike.top/Article/details/201191.shtml)
+- 2026-06-30 07:53 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/078567271172.shtml)

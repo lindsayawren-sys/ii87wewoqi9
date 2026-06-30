@@ -1,56 +1,59 @@
-# ATFX:英国首相斯塔默宣布辞职 英镑短暂走高
+# 港浸大发现中药提取物 可抑制埃博拉、禽流感等病毒
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-专题：ATFX外汇专栏投稿 6月23日，北京时间16：30，英国首相斯塔默发表讲话，重要内容有：新的领导人将于9月底前到位；将继续留任至选举结束，并确保有序交接。斯塔默的讲话，证实了市场此前关于他即将辞职的传闻。 ▲ATFX图 斯塔默讲话之前，GBPUSD报价1.3193，讲话期间，市价快速冲高至1.3210，涨幅17基点，意味着市场资金将斯塔默的离职看作对英镑利多的消息。截至
+中新网香港6月15日电 香港浸会大学(简称“港浸大”)15日公布，该校中医药学院研究团队成功从爵床属中药植物中提取出抗病毒活性成分，该成分可有效抑制多种引起人畜共患疾病的病毒，包括禽流感病毒、新型冠状病毒和埃博拉病毒。 研究团队介绍，爵床属中药植物中的抗病毒活性成分为一种木脂素类化合物。这类物质已被确认具有广泛的生物活性，能通过抑制胞内体(细胞内分选细胞器)的酸化过程，阻断病毒
 
 ## 正文
 
-专题：ATFX外汇专栏投稿 6月23日，北京时间16：30，英国首相斯塔默发表讲话，重要内容有：新的领导人将于9月底前到位；将继续留任至选举结束，并确保有序交接。
+中新网香港6月15日电 香港浸会大学(简称“港浸大”)15日公布，该校中医药学院研究团队成功从爵床属中药植物中提取出抗病毒活性成分，该成分可有效抑制多种引起人畜共患疾病的病毒，包括禽流感病毒、新型冠状病毒和埃博拉病毒。
 
-斯塔默的讲话，证实了市场此前关于他即将辞职的传闻。
+研究团队介绍，爵床属中药植物中的抗病毒活性成分为一种木脂素类化合物。
 
-▲ATFX图 斯塔默讲话之前，GBPUSD报价1.3193，讲话期间，市价快速冲高至1.3210，涨幅17基点，意味着市场资金将斯塔默的离职看作对英镑利多的消息。
+这类物质已被确认具有广泛的生物活性，能通过抑制胞内体(细胞内分选细胞器)的酸化过程，阻断病毒入侵宿主细胞，从而阻碍病毒在细胞内复制。
 
-截至北京时间17：20，英镑汇率日内最高触及1.3226，目前处于短期升势。
+团队表示，这一抗病毒机制，让单一化合物能够对抗多种病毒，即使病毒突变出现抗药性，亦不会对其效力产生较大影响。
 
-美国总统特朗普提前预告了斯塔默离职的消息，并表示斯塔默在能源政策方面表现的非常糟糕。
+这令爵床属中药植物的提取物能够针对多种病毒发挥抗病毒效力，包括禽流感病毒、埃博拉病毒，以及登革热、日本脑炎(又称“流行性乙型脑炎”)和寨卡等蚊媒传播病毒。
 
-斯塔默政策性的支持绿色能源和碳中和，限制化石能源，这在特朗普看来可能导致了高油价和高电价。
+研究团队负责人、港浸大中医药学院副院长张宏杰表示，这一发现使得以传统中草药为基础，开发高效、安全及可负担的抗病毒治疗方案成为可能。
 
-特朗普在评论斯塔默后还呼吁：开放北海油田。
+团队的目标是开拓以中药为基础的饲料添加剂和抗病毒兽药的新市场，以提升动物健康，并为未来开发用于治疗人类病毒性疾病的药物奠定基础。
 
-斯塔默2024年7月赢得大选，成为英国首相，距今约两年时间。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 07:55 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-30 07:49 - [巴西vs日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-30 07:46 - [王楚钦孙颖莎晋级混双八强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
-- 2026-06-30 07:52 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-30 07:59 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
-- 2026-06-30 07:56 - [IGN评测电影版后室](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
-- 2026-06-30 08:03 - [大蒜晒外面被路过女子连盆端走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-30 08:01 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
-- 2026-06-30 07:42 - [亚洲球队全部出局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-30 08:03 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-30 08:08 - [安切洛蒂 换人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-30 07:44 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-30 07:44 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-30 08:03 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-30 08:08 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-30 07:45 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-30 08:01 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-30 08:06 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-30 07:44 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-30 07:56 - [巴西足球能否再现昔日荣光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-30 07:44 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-30 07:53 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
+- 2026-06-30 08:00 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:05 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/71821.shtml)
-- 2026-06-30 07:43 - [巴拉圭先进球了](http://www.share.kurohicncr.top/Article/details/07053.shtml)
-- 2026-06-30 08:03 - [内马尔中场休息积极鼓励队友](http://www.blog.kurohicncr.top/Article/details/880062.shtml)
-- 2026-06-30 07:54 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/445516918881.shtml)
-- 2026-06-30 07:56 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/00175055806.shtml)
-- 2026-06-30 07:50 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/59772514954.shtml)
-- 2026-06-30 07:50 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/22787.shtml)
-- 2026-06-30 07:39 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/10457469253.shtml)
-- 2026-06-30 07:57 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/120999360.shtml)
-- 2026-06-30 08:05 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/228550634504.shtml)
-- 2026-06-30 07:57 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/28018942.shtml)
-- 2026-06-30 07:40 - [孙兴慜道歉](https://www.share.minike.top/Article/details/2982502.shtml)
-- 2026-06-30 07:50 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/87777.shtml)
-- 2026-06-30 08:00 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/572574.shtml)
-- 2026-06-30 07:55 - [开电动汽车真的很省钱吗？](http://www.blog.kurohicncr.top/Article/details/5302639649.shtml)
+- 2026-06-30 08:00 - [时光音乐会](http://www.share.minike.top/Article/details/032230.shtml)
+- 2026-06-30 07:51 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.minike.top/Article/details/59315445.shtml)
+- 2026-06-30 08:08 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/6840564335.shtml)
+- 2026-06-30 08:05 - [武磊：巴西队赢的并不轻松](https://www.blog.kurohicncr.top/Article/details/97716880583.shtml)
+- 2026-06-30 08:07 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/804064431.shtml)
+- 2026-06-30 07:49 - [杨紫获白玉兰视后争议不止](http://www.share.minike.top/Article/details/608764988.shtml)
+- 2026-06-30 07:52 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.minike.top/Article/details/9281931.shtml)
+- 2026-06-30 07:54 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/0929632.shtml)
+- 2026-06-30 07:44 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/0237453581.shtml)
+- 2026-06-30 08:04 - [庆祝中国共产党成立105周年音乐会](http://www.share.kurohicncr.top/Article/details/11575441.shtml)
+- 2026-06-30 07:57 - [又一美国科技巨头转向中国大模型](http://www.share.minike.top/Article/details/2321252.shtml)
+- 2026-06-30 07:56 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/38407118068.shtml)
+- 2026-06-30 07:50 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/80926291.shtml)
+- 2026-06-30 07:49 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/99694446.shtml)
+- 2026-06-30 08:02 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/576382.shtml)

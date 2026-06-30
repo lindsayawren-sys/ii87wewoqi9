@@ -1,59 +1,56 @@
-# 特朗普儿童储蓄账户注册量已超600万个
+# 广东将防汛Ⅳ级应急响应提升至Ⅲ级
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-核心要点 美国财政部最新数据显示，已有超过 600 万名儿童完成特朗普账户注册。 美国财政部 6 月中旬最新统计数据显示，已有超过 600 万名美国儿童开通特朗普儿童储蓄账户。 该账户将于 7 月 4 日正式上线，目前越来越多家长及监护人通过两种方式为孩子开户：一是在申报 2025 年个税时填写国税局 4547 号表格，二是登录特朗普账户官方网站办理。不过，依旧有数百万符合条件
+中新网广州6月14日电 (记者 王坚)广东省防汛防旱防风总指挥部于14日19时将防汛Ⅳ级应急响应提升至Ⅲ级。 据气象水文监测，14日8时到17时，全省平均雨量17.7毫米，有20个镇街录得超过250毫米的特大暴雨，有62个镇街录得100至250毫米的大暴雨，有189个镇街录得50至100毫米的暴雨。各市雨量最大的镇街有：汕尾陆丰市华侨管理区435.4毫米、揭阳惠来县东港镇409
 
 ## 正文
 
-核心要点 美国财政部最新数据显示，已有超过 600 万名儿童完成特朗普账户注册。
+中新网广州6月14日电 (记者 王坚)广东省防汛防旱防风总指挥部于14日19时将防汛Ⅳ级应急响应提升至Ⅲ级。
 
-美国财政部 6 月中旬最新统计数据显示，已有超过 600 万名美国儿童开通特朗普儿童储蓄账户。
+据气象水文监测，14日8时到17时，全省平均雨量17.7毫米，有20个镇街录得超过250毫米的特大暴雨，有62个镇街录得100至250毫米的大暴雨，有189个镇街录得50至100毫米的暴雨。
 
-该账户将于 7 月 4 日正式上线，目前越来越多家长及监护人通过两种方式为孩子开户：一是在申报 2025 年个税时填写国税局 4547 号表格，二是登录特朗普账户官方网站办理。
+各市雨量最大的镇街有：汕尾陆丰市华侨管理区435.4毫米、揭阳惠来县东港镇409毫米、汕头潮南区雷岭镇303.3毫米。
 
-不过，依旧有数百万符合条件的儿童尚未注册。
+广东省应急管理厅介绍，根据气象、水文部门监测预报，未来几天全省强降雨过程仍将持续。
 
-美国人口普查局数据显示，2024 年美国四分之一的家庭家中至少有一名 18 岁以下未成年人，全美当年 18 岁以下儿童总数约 7310 万，意味着还有数百万孩子可以申请开通这款延税型投资储蓄账户。
+目前全省土壤含水量高度饱和，江河底水高，发生山洪、地质灾害、城乡内涝风险高，安全风险进一步加大。
 
-最新公开数据显示，在已开通特朗普账户的儿童中，约 140 万人有资格领取财政部发放的 1000 美元初始启动资金。
+鉴于目前防汛形势，根据《广东省防汛防旱防风防冻应急预案》和广东省防总有关规定，广东省防汛防旱防风总指挥部已于14日19时将防汛Ⅳ级应急响应提升至Ⅲ级。
 
-结合美国疾控中心年度新生儿统计数据来看，当前申领人数依旧远低于可参与本次试点补贴的新生儿总人数。
+请各地各部门高度重视，按照职责分工和预案规定，结合本地实际认真研判灾害风险，及时提升应急响应等级，加强江河洪水、山洪、地质灾害和城乡内涝防御工作，坚决果断提前彻底转移危险区域群众，全力确保人民群众生命财产安全，最大程度减少灾害损失。
 
-华盛顿智库城市研究所高级政策研究员玛德琳・布朗表示：“目前仅 39% 符合申领条件的儿童完成注册，超过一半具备资格的孩子还没有登记申领这 1000 美元补贴。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 07:55 - [萨内 看笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-30 07:45 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
-- 2026-06-30 07:57 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-30 07:48 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
-- 2026-06-30 07:44 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-30 07:59 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-30 08:05 - [点球大战 残酷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-30 07:49 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-30 07:40 - [锐评T1战胜KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-30 08:05 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
-- 2026-06-30 07:40 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
-- 2026-06-30 07:47 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-30 07:51 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
+- 2026-06-30 07:52 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-30 08:08 - [感动全网的699分女生想报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-30 07:49 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
+- 2026-06-30 08:10 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-30 07:57 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-30 08:02 - [大蒜晒外面被路过女子连盆端走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-30 07:46 - [锐评T1战胜KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-30 07:46 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-30 08:09 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-30 08:04 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:47 - [佐野海舟远射破门](http://www.share.kurohicncr.top/Article/details/431135555558.shtml)
-- 2026-06-30 07:40 - [我和我的家乡](https://www.share.minike.top/Article/details/255943065.shtml)
-- 2026-06-30 07:37 - [森保一 保守](http://www.share.minike.top/Article/details/794506567709.shtml)
-- 2026-06-30 07:55 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/8586429745.shtml)
-- 2026-06-30 07:55 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/383290875344.shtml)
-- 2026-06-30 07:36 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/50462.shtml)
-- 2026-06-30 07:49 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/027276264164.shtml)
-- 2026-06-30 07:55 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.kurohicncr.top/Article/details/144456.shtml)
-- 2026-06-30 07:44 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.minike.top/Article/details/259728.shtml)
-- 2026-06-30 07:50 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/034185.shtml)
-- 2026-06-30 07:42 - [德国连续三届世界杯无缘16强](https://www.share.minike.top/Article/details/01151730.shtml)
-- 2026-06-30 08:05 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/31964189086.shtml)
-- 2026-06-30 07:45 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/391284.shtml)
-- 2026-06-30 07:41 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/901342.shtml)
-- 2026-06-30 07:48 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.kurohicncr.top/Article/details/438307558.shtml)
+- 2026-06-30 08:05 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/684599.shtml)
+- 2026-06-30 07:52 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/533237.shtml)
+- 2026-06-30 08:07 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/82661313.shtml)
+- 2026-06-30 07:49 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/37272017900.shtml)
+- 2026-06-30 07:47 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/7616546.shtml)
+- 2026-06-30 08:07 - [郑钦文温网一轮游](https://www.share.kurohicncr.top/Article/details/433341.shtml)
+- 2026-06-30 07:43 - [感动全网的699分女生想报考清华](http://www.share.minike.top/Article/details/93461.shtml)
+- 2026-06-30 08:05 - [庆祝中国共产党成立105周年音乐会](https://www.share.kurohicncr.top/Article/details/42102576.shtml)
+- 2026-06-30 07:50 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/81962247.shtml)
+- 2026-06-30 08:08 - [流金岁月](https://www.blog.minike.top/Article/details/683521.shtml)
+- 2026-06-30 07:46 - [本科毕业生为何涌入专科学校](http://www.blog.kurohicncr.top/Article/details/14177131.shtml)
+- 2026-06-30 07:55 - [巴西半场0比1日本](https://www.blog.minike.top/Article/details/53820846101.shtml)
+- 2026-06-30 07:49 - [人类...完蛋了...](https://www.blog.minike.top/Article/details/90340.shtml)
+- 2026-06-30 07:58 - [日本进球](https://www.share.kurohicncr.top/Article/details/0761011.shtml)
+- 2026-06-30 08:08 - [德国4比5巴拉圭](http://www.blog.kurohicncr.top/Article/details/788933.shtml)

@@ -1,59 +1,52 @@
-# “熔金择粹——深圳水贝黄金珠宝艺术展”在北京开幕
+# 美国5月工业产值环比增长0.1% 不及预期
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-中新网北京6月23日电 (陈昊星)6月23日，“熔金择粹——深圳水贝黄金珠宝艺术展”在中国工艺美术馆(中国非物质文化遗产馆)正式开幕。本次展览由深圳市委宣传部、中国工艺美术馆(中国非物质文化遗产馆)指导，深圳市文化广电旅游体育局、深圳市罗湖区人民政府主办，深圳博物馆、深圳市罗湖区商务局、深圳市罗湖区文化广电旅游体育局承办。中国工艺美术馆(中国非物质文化遗产馆)党委书记王晨阳，深
+美联储数据显示，5月工业产值环比增长0.1%，低于0.3%的预期中值。 50位经济学家的预测区间为-0.1%至+0.5%。 4月工业产值增长0.9%。 产能利用率从4月的76.1%升至76.2%，该数据与初值一致，未作修正。 5月制造业产值持平，4月为增长0.7%。责任编辑：江学思
 
 ## 正文
 
-中新网北京6月23日电 (陈昊星)6月23日，“熔金择粹——深圳水贝黄金珠宝艺术展”在中国工艺美术馆(中国非物质文化遗产馆)正式开幕。
+美联储数据显示，5月工业产值环比增长0.1%，低于0.3%的预期中值。
 
-本次展览由深圳市委宣传部、中国工艺美术馆(中国非物质文化遗产馆)指导，深圳市文化广电旅游体育局、深圳市罗湖区人民政府主办，深圳博物馆、深圳市罗湖区商务局、深圳市罗湖区文化广电旅游体育局承办。
+50位经济学家的预测区间为-0.1%至+0.5%。
 
-中国工艺美术馆(中国非物质文化遗产馆)党委书记王晨阳，深圳市委宣传部常务副部长曾相莱等嘉宾出席。
+4月工业产值增长0.9%。
 
-该展览是中国工艺美术馆建馆以来首次以地方黄金珠宝产业为主题的大型专题展览。
+产能利用率从4月的76.1%升至76.2%，该数据与初值一致，未作修正。
 
-展览以“国民珠宝”为核心叙事，展出近500件黄金珠宝艺术品，集聚77家珠宝行业龙头企业和独立设计师品牌，分为“藏礼于器”“宝涵雅志”“华光万家”“数智焕珍”四大板块。
+5月制造业产值持平，4月为增长0.7%。
 
-当代金雕艺术开拓者吴卿最新作品《梅花(摆件)》、西普尼“非遗十二时辰”系列腕表等艺术品首次亮相在公众面前。
-
-展览将持续至8月30日，面向社会公众免费开放。
-
-深圳市文化广电旅游体育局党组成员、副局长施文丽在致辞中指出，本次展览兼具多重深意：一是传承非遗文脉，近500件展品集中展示花丝镶嵌、锤揲錾刻等传统技艺传承，让观众读懂千年匠心背后的坚守；二是彰显科创成果，集聚77家行业龙头企业和独立设计师品牌，全方位展现深圳“文化+科技+产业”深度融合、非遗活态转化的实践成效；三是讲好产业故事，以“熔金择粹”萃取深圳市罗湖区水贝片区四十载发展精华，讲述从加工工厂迈向文化高地的时代故事。
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-30 07:58 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-30 07:56 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-30 07:51 - [媒体：手机测评该挤挤水分了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-30 07:44 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-30 08:00 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-30 07:57 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-30 07:56 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
-- 2026-06-30 07:48 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-30 07:43 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-30 07:57 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-30 07:41 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-30 08:02 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-30 07:50 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-30 08:01 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
+- 2026-06-30 07:51 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-30 07:46 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-30 08:06 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
+- 2026-06-30 08:02 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-30 08:08 - [巴拉圭率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-30 08:08 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
+- 2026-06-30 08:00 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-30 07:47 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-30 07:54 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:42 - [速度与激情9](https://www.share.minike.top/Article/details/383196668.shtml)
-- 2026-06-30 07:51 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/5438808.shtml)
-- 2026-06-30 07:59 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/2763750.shtml)
-- 2026-06-30 07:40 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.kurohicncr.top/Article/details/47485.shtml)
-- 2026-06-30 07:57 - [亚洲球队全部告别世界杯](https://www.share.minike.top/Article/details/861101112.shtml)
-- 2026-06-30 07:50 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/97281920.shtml)
-- 2026-06-30 07:50 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/39379615.shtml)
-- 2026-06-30 07:56 - [美股深夜大反弹 特斯拉飙涨8%](https://www.blog.kurohicncr.top/Article/details/7164735337.shtml)
-- 2026-06-30 07:48 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/0132359.shtml)
-- 2026-06-30 07:42 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/8410546202.shtml)
-- 2026-06-30 07:51 - [一见倾心](http://www.share.minike.top/Article/details/233309338524.shtml)
-- 2026-06-30 07:59 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/25755809.shtml)
-- 2026-06-30 07:43 - [巴西2-1绝杀日本](http://www.share.kurohicncr.top/Article/details/786455138.shtml)
-- 2026-06-30 08:05 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/7853631.shtml)
-- 2026-06-30 07:44 - [王源近几年没有路演了](https://www.share.minike.top/Article/details/8582031.shtml)
+- 2026-06-30 08:01 - [高质量发展看新疆](http://www.blog.minike.top/Article/details/059976576.shtml)
+- 2026-06-30 08:07 - [内马尔替补](http://www.blog.kurohicncr.top/Article/details/940694306.shtml)
+- 2026-06-30 07:44 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/720651295641.shtml)
+- 2026-06-30 07:43 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/93638545.shtml)
+- 2026-06-30 07:44 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/8077607.shtml)
+- 2026-06-30 07:58 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/5923018894.shtml)
+- 2026-06-30 08:05 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/3907171.shtml)
+- 2026-06-30 07:53 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/828382.shtml)
+- 2026-06-30 08:07 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/0714166057.shtml)
+- 2026-06-30 07:44 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/421256384.shtml)
+- 2026-06-30 07:56 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/40769475.shtml)
+- 2026-06-30 08:00 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/2146453588.shtml)
+- 2026-06-30 08:07 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/09598321.shtml)
+- 2026-06-30 07:56 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/08545.shtml)
+- 2026-06-30 07:53 - [莫兰特转投开拓者效力](http://www.share.kurohicncr.top/Article/details/913803.shtml)

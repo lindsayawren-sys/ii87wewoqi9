@@ -1,57 +1,61 @@
-# 关于邀请参加2026中国—印尼绿色和创新合作展览会的函
+# 俄称对乌克兰多地涉军设施实施大规模打击
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-各区贸促会，各行业委员会，各有关企业： 经国务院批准，中国贸促会将于2026年9月3日至5日在印度尼西亚雅加达举办2026年中国—印尼绿色和创新合作展览会(以下简称印尼展)。经公开招标，中国国际贸易促进委员会商业行业委员会为本届展会承办单位，将在中国贸促会的指导下展开筹备工作。 本届印尼展将在印尼雅加达展览中心(JIExpo)举办，展览面积约1500平方米，展出内容包括人工智能
+中新社莫斯科6月15日电 俄罗斯国防部15日通报称，俄军使用远程高精度武器对乌克兰多个军工设施、军用机场和地方征兵中心发动大规模打击。 俄国防部当日在社交媒体上表示，为回应乌方袭击，俄武装力量使用空基、陆基和海基多型远程精确制导武器以及攻击型无人机，对基辅、哈尔科夫和第聂伯罗彼得罗夫斯克市的军工综合体目标，以及军用机场和地方征兵中心实施了大规模打击。所有既定目标均被击中。俄国防
 
 ## 正文
 
-各区贸促会，各行业委员会，各有关企业： 经国务院批准，中国贸促会将于2026年9月3日至5日在印度尼西亚雅加达举办2026年中国—印尼绿色和创新合作展览会(以下简称印尼展)。
+中新社莫斯科6月15日电 俄罗斯国防部15日通报称，俄军使用远程高精度武器对乌克兰多个军工设施、军用机场和地方征兵中心发动大规模打击。
 
-经公开招标，中国国际贸易促进委员会商业行业委员会为本届展会承办单位，将在中国贸促会的指导下展开筹备工作。
+俄国防部当日在社交媒体上表示，为回应乌方袭击，俄武装力量使用空基、陆基和海基多型远程精确制导武器以及攻击型无人机，对基辅、哈尔科夫和第聂伯罗彼得罗夫斯克市的军工综合体目标，以及军用机场和地方征兵中心实施了大规模打击。
 
-本届印尼展将在印尼雅加达展览中心(JIExpo)举办，展览面积约1500平方米，展出内容包括人工智能、智慧物流、信息通信、新能源汽车与配件、新能源产品、防灾减灾技术、安全应急产品、医疗用品、家电及电子产品、日用消费品等。
+所有既定目标均被击中。
 
-展会期间还将举办经贸合作论坛及企业对接洽谈会等配套活动。
+俄国防部强调称，俄军无意也没有对乌民用基础设施进行打击。
 
-展会还将设立机遇中国展示区，打造国家级对外展示窗口，集中展现我国高水平对外开放建设成效，宣介国内优良营商环境，持续加深双方经贸联系，助力构建中印尼经贸合作新格局。
+此外，俄国防部表示，俄防空部队在过去一夜间拦截并摧毁了123架乌克兰固定翼无人机。
 
-为降低企业参展成本，中国贸促会将免收参展企业标准展位费及1立方米展品去程运费(每9平方米标准展位)。
+无人机被击落地点包括别尔哥罗德州、布良斯克州、卡卢加州、库尔斯克州、奥廖尔州、罗斯托夫州、梁赞州、斯摩棱斯克州、特维尔州、图拉州、莫斯科地区、克拉斯诺达尔边疆区，以及克里米亚、亚速海和黑海区域上空。
 
-此次组展，由中国贸促会商业行业委员会负责审核选取参展企业，分配展览位置，统筹展务工作。
+图拉州州长米利亚耶夫当日在社交媒体上发文称，当天凌晨图拉市多处民宅遭无人机袭击。
 
-为帮助广州企业依托中国贸促会境外经贸展览会平台开拓东南亚市场，邀请广州企业报名参展，共享发展机遇。
+初步信息显示，袭击造成3人死亡、3人受伤。
 
 ## 相关推荐
 
-- 2026-06-30 07:36 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
-- 2026-06-30 08:02 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-30 07:47 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-30 08:03 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-30 07:44 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
-- 2026-06-30 07:45 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-30 08:01 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-30 07:57 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-30 07:58 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-30 07:51 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-30 07:58 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-30 07:59 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-30 07:45 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-30 07:45 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-30 08:04 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-30 07:44 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
+- 2026-06-30 07:56 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
+- 2026-06-30 07:46 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-30 08:00 - [巴西足球能否再现昔日荣光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-30 08:05 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-30 08:05 - [萨内 看笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-30 07:42 - [点球大战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
+- 2026-06-30 07:49 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-30 08:04 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-30 07:43 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-30 07:48 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:50 - [恋与深空道歉声明](http://www.share.kurohicncr.top/Article/details/232286.shtml)
-- 2026-06-30 07:50 - [张碧晨一开口梦回逐玉](https://www.share.kurohicncr.top/Article/details/200543238.shtml)
-- 2026-06-30 07:45 - [日本队5进世界杯淘汰赛0胜](http://www.blog.minike.top/Article/details/784136.shtml)
-- 2026-06-30 08:05 - [本届世界杯已有5名球员被控强奸](http://www.share.minike.top/Article/details/333009.shtml)
-- 2026-06-30 08:04 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/99953107755.shtml)
-- 2026-06-30 07:52 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/2659848917.shtml)
-- 2026-06-30 07:48 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.minike.top/Article/details/8552225.shtml)
-- 2026-06-30 07:42 - [武磊：巴西队赢的并不轻松](http://www.share.kurohicncr.top/Article/details/99381.shtml)
-- 2026-06-30 07:55 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.kurohicncr.top/Article/details/678800.shtml)
-- 2026-06-30 08:01 - [德国队连续三届世界杯无缘16强](http://www.blog.minike.top/Article/details/813493.shtml)
-- 2026-06-30 07:37 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.kurohicncr.top/Article/details/13208852.shtml)
-- 2026-06-30 07:58 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/98712.shtml)
-- 2026-06-30 07:52 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/05547.shtml)
-- 2026-06-30 07:54 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/441485962216.shtml)
-- 2026-06-30 07:51 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/5297176802.shtml)
+- 2026-06-30 07:43 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/4528760417.shtml)
+- 2026-06-30 07:55 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/0574658434.shtml)
+- 2026-06-30 07:45 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/019779.shtml)
+- 2026-06-30 07:52 - [F1奥地利站赛后复盘](http://www.blog.kurohicncr.top/Article/details/010980811490.shtml)
+- 2026-06-30 07:43 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/795955941.shtml)
+- 2026-06-30 08:00 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/3198129802.shtml)
+- 2026-06-30 08:06 - [德国巴拉圭加时](https://www.share.kurohicncr.top/Article/details/91042.shtml)
+- 2026-06-30 07:56 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/8513790.shtml)
+- 2026-06-30 07:47 - [中国新一轮出口管制直指日本命脉](https://www.blog.kurohicncr.top/Article/details/3232304.shtml)
+- 2026-06-30 08:01 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/075184.shtml)
+- 2026-06-30 07:45 - [巴西补时绝杀日本](https://www.share.minike.top/Article/details/90290938.shtml)
+- 2026-06-30 07:52 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/439794715.shtml)
+- 2026-06-30 07:55 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/03223569.shtml)
+- 2026-06-30 07:56 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/69296.shtml)
+- 2026-06-30 08:06 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/82556243874.shtml)

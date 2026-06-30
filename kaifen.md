@@ -1,50 +1,59 @@
-# 伊朗称并未计划允许国际原子能机构检查受损核设施
+# 公安部网安局公布10起网络谣言违法犯罪典型案例
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-伊朗外交部发言人Esmail Baghaei在每周例行新闻发布会上表示，伊朗并未计划让国际原子能机构检查在美国和以色列军事袭击中受损的核设施，且目前尚无此类检查的相关规程。 Baghaei表示，作为不扩散核武器条约（NPT）的缔约国，伊朗将继续遵循正常程序，但没有详细说明。责任编辑：刘明亮
+新华社北京6月15日电(记者李明辉)公安部网安局6月15日公布10起打击整治网络谣言违法犯罪典型案例。 这10起典型案例反映出一些不法分子随意编造、传播涉人身伤亡、不实政策、食品安全等虚假信息，严重扰乱社会秩序，触碰法律红线。 在张某虚构事实案中，网络博主张某为博取关注，吸粉引流，发布山东某高中校门口发生车祸等不实信息，引发大量网民议论。经查，网传信息均为虚构，属地公安机关已对
 
 ## 正文
 
-伊朗外交部发言人Esmail Baghaei在每周例行新闻发布会上表示，伊朗并未计划让国际原子能机构检查在美国和以色列军事袭击中受损的核设施，且目前尚无此类检查的相关规程。
+新华社北京6月15日电(记者李明辉)公安部网安局6月15日公布10起打击整治网络谣言违法犯罪典型案例。
 
-Baghaei表示，作为不扩散核武器条约（NPT）的缔约国，伊朗将继续遵循正常程序，但没有详细说明。
+这10起典型案例反映出一些不法分子随意编造、传播涉人身伤亡、不实政策、食品安全等虚假信息，严重扰乱社会秩序，触碰法律红线。
 
-责任编辑：刘明亮
+在张某虚构事实案中，网络博主张某为博取关注，吸粉引流，发布山东某高中校门口发生车祸等不实信息，引发大量网民议论。
+
+经查，网传信息均为虚构，属地公安机关已对张某作出行政处罚。
+
+在付某、邓某某、黄某某等6人虚构事实案中，6人为安徽宿州当地驾校培训行业从业人员，为博取流量关注、诱导学员报名，散布所谓“驾考解读”视频，引发“安徽宿州2026年驾考新增项目”等谣言扩散，干扰驾校正常经营和考试安排，损害了交管部门的公信力，浪费了社会公共资源。
+
+对这类散布网络谣言违法犯罪行为，全国公安网安部门将持续加大打击整治力度，全力维护清朗网络空间与社会秩序。
+
+网警提示，广大网民要恪守网络言行底线，坚持不信谣、不传谣、不造谣，切勿为博取流量虚构事实，共同维护清朗有序的网络环境。
 
 ## 相关推荐
 
-- 2026-06-30 08:01 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-30 07:53 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-30 07:46 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
-- 2026-06-30 07:57 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-30 07:44 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-30 07:37 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
-- 2026-06-30 08:02 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
-- 2026-06-30 07:39 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-30 08:01 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
-- 2026-06-30 07:57 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
-- 2026-06-30 07:39 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-30 07:42 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
-- 2026-06-30 07:59 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-30 07:48 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-30 07:57 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-30 08:11 - [庆祝中国共产党成立105周年音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
+- 2026-06-30 08:03 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-30 08:10 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-30 07:56 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-30 07:52 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-30 07:52 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-30 07:49 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
+- 2026-06-30 07:46 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-30 08:05 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-30 07:52 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-30 07:50 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-30 07:50 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-30 07:44 - [孙兴慜道歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-30 07:51 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:00 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.minike.top/Article/details/070213982724.shtml)
-- 2026-06-30 07:46 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/2180606256.shtml)
-- 2026-06-30 07:37 - [爱很美味](https://www.share.minike.top/Article/details/1720650021.shtml)
-- 2026-06-30 07:53 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.minike.top/Article/details/9893374223.shtml)
-- 2026-06-30 07:46 - [武磊：巴西队赢的并不轻松](http://www.blog.kurohicncr.top/Article/details/602756461206.shtml)
-- 2026-06-30 08:04 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.minike.top/Article/details/9153365896.shtml)
-- 2026-06-30 07:55 - [世界杯](https://www.blog.minike.top/Article/details/01731857.shtml)
-- 2026-06-30 07:59 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/39191.shtml)
-- 2026-06-30 08:03 - [孙兴慜发长文致歉](http://www.share.minike.top/Article/details/24992.shtml)
-- 2026-06-30 07:39 - [父母催婚话术是如何做到全国统一的](https://www.share.minike.top/Article/details/0130390188.shtml)
-- 2026-06-30 08:04 - [世界杯：德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/242593609630.shtml)
-- 2026-06-30 08:03 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/887750241849.shtml)
-- 2026-06-30 07:54 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/226601657738.shtml)
-- 2026-06-30 07:53 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/26386076901.shtml)
-- 2026-06-30 07:40 - [王欣瑜2-1击败科恰雷托](https://www.blog.kurohicncr.top/Article/details/3897332637.shtml)
+- 2026-06-30 07:56 - [张雪的一句“是我们”引发岛内热议](https://www.share.kurohicncr.top/Article/details/1468144.shtml)
+- 2026-06-30 08:00 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.kurohicncr.top/Article/details/58674700.shtml)
+- 2026-06-30 08:04 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/99452.shtml)
+- 2026-06-30 08:03 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/433501.shtml)
+- 2026-06-30 07:46 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/57043182.shtml)
+- 2026-06-30 07:58 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/02356006642.shtml)
+- 2026-06-30 07:50 - [王源近几年没有路演了](http://www.blog.kurohicncr.top/Article/details/83887.shtml)
+- 2026-06-30 07:55 - [绘画区你赢了](http://www.blog.minike.top/Article/details/395929823543.shtml)
+- 2026-06-30 07:57 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/207524.shtml)
+- 2026-06-30 07:49 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/2076633.shtml)
+- 2026-06-30 07:59 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/540718363690.shtml)
+- 2026-06-30 08:04 - [巴西绝杀日本](https://www.share.minike.top/Article/details/46702582329.shtml)
+- 2026-06-30 08:10 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.kurohicncr.top/Article/details/1103515.shtml)
+- 2026-06-30 07:50 - [现在叛逆期的孩子最怕的是什么？](http://www.share.minike.top/Article/details/50778.shtml)
+- 2026-06-30 07:42 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/6838185.shtml)

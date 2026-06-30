@@ -1,61 +1,58 @@
-# 白宫将召集武器制造商开会 在库存承压之际推动加大弹药生产
+# 战争停火之际伊朗队飞抵美国 将迎世界杯首战
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-白宫本周将召集防务承包商开会，推动加大弹药生产；与伊朗近四个月的战争后，库存正承受压力。 美国总统特朗普确认了这次会议。白宫一名官员此前表示，会议将于周三举行。 “我们确实在大力推动武器生产，一些汽车公司如果有多余产能，正在达成协议来制造导弹，特别是爱国者，”特朗普周一在白宫对记者表示，“我们已经有不少，但希望确保始终拥有大量库存。” 一位知情人士透露，RTX Corp．预计将
+出征本届世界杯的伊朗国家足球队周日首次抵达美国，降落在洛杉矶国际机场，并在当天召开新闻发布会，同一天美伊两国宣布达成和平协议。 伊朗队从墨西哥蒂华纳短途飞抵美国。球队早些时候离开驻地，当地球迷在热烈氛围中为其送行。伊朗队周一将在洛杉矶体育场迎来对阵新西兰的首场比赛。 “能代表伟大、自豪且强大的伊朗出战，我感到非常高兴，”伊朗队主帅加莱诺埃（Amir Ghalenoei）在球场新
 
 ## 正文
 
-白宫本周将召集防务承包商开会，推动加大弹药生产；与伊朗近四个月的战争后，库存正承受压力。
+出征本届世界杯的伊朗国家足球队周日首次抵达美国，降落在洛杉矶国际机场，并在当天召开新闻发布会，同一天美伊两国宣布达成和平协议。
 
-美国总统特朗普确认了这次会议。
+伊朗队从墨西哥蒂华纳短途飞抵美国。
 
-白宫一名官员此前表示，会议将于周三举行。
+球队早些时候离开驻地，当地球迷在热烈氛围中为其送行。
 
-“我们确实在大力推动武器生产，一些汽车公司如果有多余产能，正在达成协议来制造导弹，特别是爱国者，”特朗普周一在白宫对记者表示，“我们已经有不少，但希望确保始终拥有大量库存。
+伊朗队周一将在洛杉矶体育场迎来对阵新西兰的首场比赛。
 
-” 一位知情人士透露，RTX Corp．预计将参加讨论。
+“能代表伟大、自豪且强大的伊朗出战，我感到非常高兴，”伊朗队主帅加莱诺埃（Amir Ghalenoei）在球场新闻发布会上通过翻译表示。
 
-通用汽车已与RTX和其他防务承包商洽谈，探讨如何帮助这些武器制造商提高产量，潜在合作的工作内容可能类似通用汽车与洛克希德·马丁协议下的安排。
+“我希望足球能带来欢乐与享受，并拉近不同国家和文化之间的距离。
 
-“我知道通用汽车对制造武器非常兴奋，”特朗普周一表示，“他们现在有一些工厂将进行转产，我们会制造武器，包括爱国者，包括战斧，还有很多其他东西。
+” 伊朗队与新西兰队的G组比赛，将在美伊战争及双方新宣布的和平协议背景下进行，为这场较量增添了紧张氛围。
 
-” 白宫发言人Anna Kelly在声明中表示，特朗普已敦促防务承包商“持续生产更多美国制造武器”。
+这两支国家队从未在世界杯上交手。
 
 ## 相关推荐
 
-- 2026-06-30 07:44 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-30 07:51 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-30 07:54 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-30 08:03 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-30 07:38 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-30 07:55 - [亚洲球队全部出局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
-- 2026-06-30 07:43 - [王濛回复黄灿灿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-30 07:45 - [森保一 保守](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-30 07:49 - [德国淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
-- 2026-06-30 07:47 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
-- 2026-06-30 07:53 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
-- 2026-06-30 07:44 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-30 07:40 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-30 08:00 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
-- 2026-06-30 07:43 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-30 08:06 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-30 08:10 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-30 08:07 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-30 08:11 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-30 07:47 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-30 08:11 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
+- 2026-06-30 08:00 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-30 08:08 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-30 07:50 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-30 07:58 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-30 07:59 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-30 08:06 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:57 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.kurohicncr.top/Article/details/90250128.shtml)
-- 2026-06-30 08:04 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.blog.minike.top/Article/details/3780629.shtml)
-- 2026-06-30 07:46 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/316061.shtml)
-- 2026-06-30 07:54 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/34303183.shtml)
-- 2026-06-30 07:51 - [德国进球被吹](http://www.blog.minike.top/Article/details/73568.shtml)
-- 2026-06-30 07:55 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.minike.top/Article/details/092889887.shtml)
-- 2026-06-30 08:04 - [莫兰特转投开拓者效力](http://www.share.kurohicncr.top/Article/details/10033.shtml)
-- 2026-06-30 07:58 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/62808728255.shtml)
-- 2026-06-30 07:49 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/207998443.shtml)
-- 2026-06-30 07:50 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/477734.shtml)
-- 2026-06-30 08:03 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/5527054.shtml)
-- 2026-06-30 07:54 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.minike.top/Article/details/418600145.shtml)
-- 2026-06-30 07:46 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/925721.shtml)
-- 2026-06-30 08:00 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/2121519.shtml)
-- 2026-06-30 07:51 - [巴西半场0比1日本](https://www.share.kurohicncr.top/Article/details/451250984962.shtml)
+- 2026-06-30 08:04 - [武磊：巴西队赢的并不轻松](https://www.share.minike.top/Article/details/71690.shtml)
+- 2026-06-30 08:06 - [泰山景区回应修建刀片刺绳隔离网](https://www.blog.kurohicncr.top/Article/details/8267982.shtml)
+- 2026-06-30 07:47 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/2166147.shtml)
+- 2026-06-30 07:49 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/5394804.shtml)
+- 2026-06-30 07:52 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/84150820.shtml)
+- 2026-06-30 07:55 - [开电动汽车真的很省钱吗？](http://www.blog.kurohicncr.top/Article/details/8420325.shtml)
+- 2026-06-30 07:56 - [董卿父亲在报纸上发文悼念亡妻](https://www.blog.minike.top/Article/details/3204425.shtml)
+- 2026-06-30 08:01 - [【大鸣王潮1566】真拿你没办法](http://www.share.minike.top/Article/details/715447.shtml)
+- 2026-06-30 07:47 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/91217104.shtml)
+- 2026-06-30 07:45 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/054315.shtml)
+- 2026-06-30 08:00 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/7673989.shtml)
+- 2026-06-30 07:45 - [内马尔替补](http://www.share.minike.top/Article/details/12197412.shtml)
+- 2026-06-30 08:08 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/55233.shtml)
+- 2026-06-30 07:53 - [恋与深空制作组回应近期争议](https://www.share.minike.top/Article/details/28867570.shtml)
+- 2026-06-30 08:09 - [一见倾心](http://www.share.minike.top/Article/details/922618.shtml)

@@ -1,59 +1,61 @@
-# 9天股价翻倍！A股市场，又一只牛股登场！
+# 非遗“火”在当“夏”，燃动国潮消费新力量
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 热点情报 A股融资余额再创历史新高 数据显示，截至6月21日，A股融资余额最新为2.944万亿元，再度刷新历史新高。值得注意的是，过去一周四个交易日里，融资资金均呈现净买入态势，单日净流入均在120亿元以上，合计达915亿元。 分行业看，最近五日里，半导体、通信设备两大板块获融资净买入额逾百亿元，分别为280.36亿元、137.
+原标题：【好评中国】非遗“火”在当“夏”，燃动国潮消费新力量 6月11日，2026年“非遗好物 国潮焕新”非遗消夏购物月在苏州启动。本次活动聚焦加强非遗系统性保护，坚持守正创新，展示非遗保护传承成果，在苏州平江路历史文化街区举办非遗消夏市集，以非遗美食、传统服饰、国潮手艺为主题，组织全国100余家非遗工坊及非遗传承人展示传统技艺与创意巧思相结合的非遗好物。 “十五五”规划纲要提
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 热点情报 A股融资余额再创历史新高 数据显示，截至6月21日，A股融资余额最新为2.944万亿元，再度刷新历史新高。
+原标题：【好评中国】非遗“火”在当“夏”，燃动国潮消费新力量 6月11日，2026年“非遗好物 国潮焕新”非遗消夏购物月在苏州启动。
 
-值得注意的是，过去一周四个交易日里，融资资金均呈现净买入态势，单日净流入均在120亿元以上，合计达915亿元。
+本次活动聚焦加强非遗系统性保护，坚持守正创新，展示非遗保护传承成果，在苏州平江路历史文化街区举办非遗消夏市集，以非遗美食、传统服饰、国潮手艺为主题，组织全国100余家非遗工坊及非遗传承人展示传统技艺与创意巧思相结合的非遗好物。
 
-分行业看，最近五日里，半导体、通信设备两大板块获融资净买入额逾百亿元，分别为280.36亿元、137.34亿元；电子元件、电池、工业金属等板块紧随其后，依次为95.82亿元、50.97亿元、37.54亿元。
+“十五五”规划纲要提出，培育中高端消费新增长点，推动老字号、国货潮牌做精做强。
 
-A股市场并购重组持续活跃 今年以来，A股市场并购重组持续活跃。
+非遗消夏购物月是2026年“文化和自然遗产日”非遗主题宣传展示活动之一，将持续至7月下旬。
 
-相关数据显示，截至6月12日，A股年内已披露并购重组事件2795单，累计交易金额超25万亿元，接近2025年全年水平。
+其间，各地将围绕“非遗，让生活更美好！
 
-其中，证券行业内部的并购占据重要位置，多起券商并购案相继取得实质性进展。
+”主题，因地制宜推出1200余场活动，通过举办非遗市集、开展主题展演、发布非遗特色旅游线路等，推动非遗“活”起来、“火”起来，进一步激发夏日消费活力，释放消费市场潜力。
 
-世名科技股价飙涨107% 6月22日，世名科技强势涨停，报收23.05元/股。
+非遗“活”，引领新国潮。
 
-当日该股全天成交额达14.75亿元，总市值攀升至74.32亿元。
+扎根传统文化土壤，紧跟时代创新步伐，非遗活化传承掀起强劲国潮风尚，成为消费活力迸发的重要推动力。
 
 ## 相关推荐
 
-- 2026-06-30 08:05 - [王楚钦孙颖莎晋级混双八强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-30 07:51 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-30 07:47 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-30 07:56 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-30 07:43 - [巴拉圭进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
-- 2026-06-30 07:51 - [如果有二次元高中是什么样子的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-30 07:54 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-30 07:42 - [锐评T1战胜KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-30 07:55 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-30 07:41 - [张雪的一句“是我们”引发岛内热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
-- 2026-06-30 07:49 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
-- 2026-06-30 07:57 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
-- 2026-06-30 08:05 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
+- 2026-06-30 07:55 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-30 07:47 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-30 07:55 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-30 07:46 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-30 08:03 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-30 08:01 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-30 07:46 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-30 08:00 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
+- 2026-06-30 07:50 - [IGN评测电影版后室](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-30 07:45 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-30 08:11 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-30 07:52 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-30 07:57 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-30 08:00 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-30 07:52 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:51 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/982563700010.shtml)
-- 2026-06-30 07:46 - [医药暴涨5.91%背后](https://www.blog.kurohicncr.top/Article/details/083892179.shtml)
-- 2026-06-30 07:43 - [巴西绝杀](https://www.share.kurohicncr.top/Article/details/9494380437.shtml)
-- 2026-06-30 07:38 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/403323310234.shtml)
-- 2026-06-30 08:04 - [《共患难》](http://www.blog.kurohicncr.top/Article/details/790519312.shtml)
-- 2026-06-30 07:44 - [啊啊啊](https://www.blog.minike.top/Article/details/87494814.shtml)
-- 2026-06-30 07:42 - [二次元提前预演明日巴西对日本](https://www.share.minike.top/Article/details/008047028.shtml)
-- 2026-06-30 07:40 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/297552.shtml)
-- 2026-06-30 07:46 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/00796253.shtml)
-- 2026-06-30 07:56 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/2873523777.shtml)
-- 2026-06-30 07:48 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/476000657.shtml)
-- 2026-06-30 07:54 - [日本球员说被绝杀非常不甘心](http://www.share.kurohicncr.top/Article/details/748366165094.shtml)
-- 2026-06-30 08:01 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/12669479.shtml)
-- 2026-06-30 07:40 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/161114825.shtml)
-- 2026-06-30 07:42 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/526106457.shtml)
+- 2026-06-30 07:55 - [索马里女大使：想和中国一起搞事业](http://www.blog.kurohicncr.top/Article/details/644790398.shtml)
+- 2026-06-30 08:06 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/545029506.shtml)
+- 2026-06-30 07:53 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/40772.shtml)
+- 2026-06-30 08:10 - [德国爆冷点球大战不敌巴拉圭](http://www.blog.kurohicncr.top/Article/details/180233.shtml)
+- 2026-06-30 08:11 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/96347.shtml)
+- 2026-06-30 07:52 - [起风了](http://www.blog.kurohicncr.top/Article/details/6959073.shtml)
+- 2026-06-30 07:49 - [全球最火存储ETF纳入兆易创新](http://www.blog.minike.top/Article/details/57355.shtml)
+- 2026-06-30 08:03 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/15637708.shtml)
+- 2026-06-30 07:45 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/13902318.shtml)
+- 2026-06-30 07:45 - [警犬“多多”助民警寻回失联老人](https://www.blog.kurohicncr.top/Article/details/84935833.shtml)
+- 2026-06-30 08:08 - [“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/795316250276.shtml)
+- 2026-06-30 08:08 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/93728668643.shtml)
+- 2026-06-30 08:10 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/34643806480.shtml)
+- 2026-06-30 07:45 - [扬名立万](http://www.blog.minike.top/Article/details/659941468.shtml)
+- 2026-06-30 07:59 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/457736678868.shtml)

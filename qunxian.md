@@ -1,56 +1,57 @@
-# 税务个税补税提示将至，个人不补税7月1日起将付滞纳金
+# 爬土路、挖水晶……流量争夺下研学市场亟待规范
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-距离6月30日截止的2025年度个税汇算清缴还剩8天。一些未申报或少申报收入的补税人群，即将收到税务部门“补税”提示。 若无视这一“补税”提示，轻则需要承担补税金额每日万分之五的滞纳金，重则被立案稽查，面临罚款乃至被移送司法机关处理。 一般来说，个税年度汇算期内及汇算期结束后，税务部门会在大数据集成基础上，对纳税人申报各类收入、税前扣除项目等的准确性进行审核。经核实后确实存在疑
+无证经营、安全失防、生态破坏，亲子研学勿被流量裹挟 沙漠徒步、海岛生存、探洞冒险……近年来，我国未成年人研学游市场呈现爆发式增长，部分研学机构“野蛮生长”，各类刺激惊险的户外研学项目屡见不鲜，不仅存在安全隐患，还对当地生态环境造成了破坏。无证经营、安全失防、生态破坏，亲子研学市场乱象丛生，亟待规范。 研学机构爆发式增长带来安全风险 近期，个别研学机构以“自然教育”“研学团”等名
 
 ## 正文
 
-距离6月30日截止的2025年度个税汇算清缴还剩8天。
+无证经营、安全失防、生态破坏，亲子研学勿被流量裹挟 沙漠徒步、海岛生存、探洞冒险……近年来，我国未成年人研学游市场呈现爆发式增长，部分研学机构“野蛮生长”，各类刺激惊险的户外研学项目屡见不鲜，不仅存在安全隐患，还对当地生态环境造成了破坏。
 
-一些未申报或少申报收入的补税人群，即将收到税务部门“补税”提示。
+无证经营、安全失防、生态破坏，亲子研学市场乱象丛生，亟待规范。
 
-若无视这一“补税”提示，轻则需要承担补税金额每日万分之五的滞纳金，重则被立案稽查，面临罚款乃至被移送司法机关处理。
+研学机构爆发式增长带来安全风险 近期，个别研学机构以“自然教育”“研学团”等名义组团前往广东省广州市黄埔区暹岗大山“采石挖矿”，导致山体多处点位零星林地被破坏，树根裸露，地表出现孔洞。
 
-一般来说，个税年度汇算期内及汇算期结束后，税务部门会在大数据集成基础上，对纳税人申报各类收入、税前扣除项目等的准确性进行审核。
+社交媒体上有大量关于“暹岗大山挖水晶”的攻略信息，如“广州亲子自然教育，广州1小时直达的山野矿坑”“广州免费亲子徒步团，冲暹岗大山，挖水晶、爬土路”等，均以野路进山为主。
 
-经核实后确实存在疑点的，主管税务机关将提醒纳税人补正资料或更正申报。
+社交媒体上发布的图片显示，参加该徒步团的孩子，有的拿着工具敲打、挖泥土，有的全身趴在泥坑里。
 
-除此之外，个税汇算期结束后，税务部门还将按照法律法规规定开展个税汇算催报催缴以及事后抽查，不仅会对未申报纳税人开展催报提示，还会对已申报纳税人开展催缴提示以及事后抽查，发现纳税人申报存在疑点的，也会及时提醒纳税人更正。
+地质专家提醒，这类无序开挖不仅直接破坏山林原生植被，还会改变山体原有结构，大幅增加滑坡、塌方等地质灾害风险。
 
-国家税务总局税收科学研究所副所长李平介绍，税务部门在日常监管中发现涉税疑点后，通常会通过短信、电话、个税APP站内信等渠道，向纳税人发送提示提醒，这是税务机关主动帮助纳税人防范化解涉税风险的服务举措。
+一旦发生意外，参与活动人员的自身安全也难以得到保障。
 
-税务总局提醒，对于收到税务提醒的纳税人，应当全面核对收入信息，确保收入申报完整，尤其需要关注从多处取得的工资薪金、劳务报酬、稿酬、特许权使用费等综合所得，以及可能存在但未在系统中显示的收入项目。
+“我们都是在微信群里报名的，这种一日团，参加的大多是小学生，且需要家人陪伴。
 
 ## 相关推荐
 
-- 2026-06-30 08:04 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
-- 2026-06-30 08:04 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-30 07:55 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-30 08:02 - [全球芯片巨头史诗级扩产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
-- 2026-06-30 07:49 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-30 07:47 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
-- 2026-06-30 08:04 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-30 08:04 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-30 08:02 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-30 07:59 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-30 07:45 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-30 07:59 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
+- 2026-06-30 07:47 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-30 07:47 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-30 07:53 - [郑钦文温网一轮游](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-30 08:06 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-30 07:48 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-30 07:52 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-30 08:02 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-30 07:45 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-30 07:59 - [马耳他著名拱门坍塌致中国男子身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:52 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/177822.shtml)
-- 2026-06-30 08:05 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/7566913.shtml)
-- 2026-06-30 07:58 - [男子中医院拔火罐致浅2度烧伤](http://www.share.kurohicncr.top/Article/details/3900412844.shtml)
-- 2026-06-30 07:55 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.kurohicncr.top/Article/details/151868993.shtml)
-- 2026-06-30 07:53 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/02534480988.shtml)
-- 2026-06-30 07:40 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/450077993.shtml)
-- 2026-06-30 08:05 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/56128659604.shtml)
-- 2026-06-30 07:46 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/5187482988.shtml)
-- 2026-06-30 07:57 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/419087.shtml)
-- 2026-06-30 08:00 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/02959835846.shtml)
-- 2026-06-30 07:48 - [马耳他著名拱门坍塌致一中国男子身亡](https://www.blog.kurohicncr.top/Article/details/00195794.shtml)
-- 2026-06-30 07:52 - [日本队5进世界杯淘汰赛0胜](https://www.share.kurohicncr.top/Article/details/775832.shtml)
-- 2026-06-30 07:55 - [马耳他著名拱门坍塌致中国男子身亡](https://www.share.minike.top/Article/details/531328229.shtml)
-- 2026-06-30 07:46 - [好像看到了人类带孩子崩溃的样子](https://www.share.minike.top/Article/details/85359277854.shtml)
-- 2026-06-30 07:36 - [曝多支争冠球队有意塞克斯顿](https://www.blog.minike.top/Article/details/82680.shtml)
+- 2026-06-30 07:54 - [网瘾賊大的阿嬷](https://www.blog.kurohicncr.top/Article/details/9930447.shtml)
+- 2026-06-30 07:56 - [巴西2比1日本](https://www.blog.kurohicncr.top/Article/details/061197100.shtml)
+- 2026-06-30 07:56 - [武磊：日本队有能力跟任何强队抗衡](http://www.share.minike.top/Article/details/7446206.shtml)
+- 2026-06-30 07:55 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/542303.shtml)
+- 2026-06-30 07:47 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/17162183761.shtml)
+- 2026-06-30 08:09 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/811716748523.shtml)
+- 2026-06-30 08:03 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/10249675255.shtml)
+- 2026-06-30 07:56 - [巴拉圭率先破门](https://www.blog.minike.top/Article/details/5947620296.shtml)
+- 2026-06-30 08:05 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/62582.shtml)
+- 2026-06-30 08:04 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/71091.shtml)
+- 2026-06-30 08:03 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/459448.shtml)
+- 2026-06-30 08:04 - [曝灰熊将莫兰特交易至开拓者](http://www.blog.kurohicncr.top/Article/details/69201.shtml)
+- 2026-06-30 07:44 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/042623.shtml)
+- 2026-06-30 07:48 - [袁咏仪张智霖儿子寸头近照](http://www.share.kurohicncr.top/Article/details/79372890.shtml)
+- 2026-06-30 07:50 - [普京间接喊话特朗普有何考量](http://www.share.kurohicncr.top/Article/details/598226347124.shtml)

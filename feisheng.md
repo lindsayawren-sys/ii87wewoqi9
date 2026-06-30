@@ -1,59 +1,54 @@
-# 霍启刚：AI时代教育与人才培养十分关键
+# 路劲终止收购北京顺义项目51%股权 发起仲裁索回1.725亿元
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-专题：2026第十七届夏季达沃斯论坛 6月23日消息，世界经济论坛第十七届新领军者年会（2026大连夏季达沃斯论坛）今日在大连启幕。在“运动员的多元人生”主题分论坛上，香港特别行政区立法会议员霍启刚作为嘉宾出席并参与对话。 谈及AI浪潮下对大学生的建议，霍启刚表示，“说起工业革命，人们总说机器会取代人类，可我始终相信人类自身的力量。我认为，AI时代一定会到来，但人类终将占据主导
+路劲（01098）公布，有关公司的间接全资附属公司拟向北京旭科收购目标公司（名为北京顺和仁义房地产开发有限公司，为发展北京顺义公园和御住宅项目而设立的合资企业）的51%股权，集团最近接获通知，目标权益现已被北京旭科债权人提出强制执行诉讼，该诉讼将在中国通过司法拍卖方式处置。因此，北京旭科未能根据股权转让协议交割目标权益，而拟收购事项将终止推进。集团已采取措施，包括启动仲裁程序，
 
 ## 正文
 
-专题：2026第十七届夏季达沃斯论坛 6月23日消息，世界经济论坛第十七届新领军者年会（2026大连夏季达沃斯论坛）今日在大连启幕。
+路劲（01098）公布，有关公司的间接全资附属公司拟向北京旭科收购目标公司（名为北京顺和仁义房地产开发有限公司，为发展北京顺义公园和御住宅项目而设立的合资企业）的51%股权，集团最近接获通知，目标权益现已被北京旭科债权人提出强制执行诉讼，该诉讼将在中国通过司法拍卖方式处置。
 
-在“运动员的多元人生”主题分论坛上，香港特别行政区立法会议员霍启刚作为嘉宾出席并参与对话。
+因此，北京旭科未能根据股权转让协议交割目标权益，而拟收购事项将终止推进。
 
-谈及AI浪潮下对大学生的建议，霍启刚表示，“说起工业革命，人们总说机器会取代人类，可我始终相信人类自身的力量。
+集团已采取措施，包括启动仲裁程序，以追回已支付给北京旭科的人民币1.725亿元，即根据股权转让协议条款应付的首两期款项代价。
 
-我认为，AI时代一定会到来，但人类终将占据主导。
+集团仍保留目标公司49%的股权。
 
-” 霍启刚认为，“我们不该纠结AI是否会抢走工作、改变未来劳动力市场。
+北京顺义项目的整个开发项目包括802个单位，其中779个单位（相当于整个开发项目约97%）已预售。
 
-真正该思考的问题是，我们该如何培养青年人才，塑造他们的思维模式，教会他们合理把AI当作工具使用。
+该等预售单位已于2024年12月竣工后交付，合共已交付777个单位。
 
-” 我们从小要培养出什么样的人才？
-
-霍启刚谈到，“核心不只是学会操作AI，而是从幼儿阶段就塑造人的思维，培养创造力，懂得运用AI这一工具；除此之外，我们还要考量AI相关的伦理问题，这又是另一重议题。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 07:50 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
-- 2026-06-30 07:55 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-30 07:41 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-30 07:55 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-30 07:41 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
-- 2026-06-30 07:47 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-30 07:47 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-30 07:52 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
-- 2026-06-30 07:37 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-30 07:42 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
-- 2026-06-30 07:45 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-30 07:54 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-30 07:42 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-30 08:09 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-30 07:44 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-30 08:09 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-30 07:58 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-30 07:57 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
+- 2026-06-30 08:05 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-30 07:46 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-30 07:46 - [亚洲球队全部出局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-30 07:45 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-30 07:51 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:59 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.kurohicncr.top/Article/details/3936759.shtml)
-- 2026-06-30 07:38 - [卢卡申科发布解放军仪仗队视频](https://www.blog.kurohicncr.top/Article/details/32268417.shtml)
-- 2026-06-30 07:43 - [点球大战 残酷](http://www.blog.kurohicncr.top/Article/details/360865097683.shtml)
-- 2026-06-30 07:55 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/72006665634.shtml)
-- 2026-06-30 07:57 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/2833464.shtml)
-- 2026-06-30 07:51 - [媒体评泰山建135公里刀片刺绳隔离网](https://www.share.minike.top/Article/details/549590.shtml)
-- 2026-06-30 07:46 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/0348590.shtml)
-- 2026-06-30 07:37 - [点球大战 残酷](https://www.share.minike.top/Article/details/6894976903.shtml)
-- 2026-06-30 07:46 - [马耳他著名拱门坍塌致一中国男子身亡](https://www.share.minike.top/Article/details/155551042.shtml)
-- 2026-06-30 07:57 - [卢卡申科发布解放军仪仗队视频](https://www.blog.kurohicncr.top/Article/details/24126477.shtml)
-- 2026-06-30 08:05 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.kurohicncr.top/Article/details/2793368811.shtml)
-- 2026-06-30 07:43 - [日本进球](http://www.blog.kurohicncr.top/Article/details/781441063735.shtml)
-- 2026-06-30 07:57 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.share.minike.top/Article/details/994724750037.shtml)
-- 2026-06-30 07:37 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/6003500.shtml)
-- 2026-06-30 07:59 - [【大鸣王潮1566】真拿你没办法](http://www.blog.minike.top/Article/details/33052666961.shtml)
+- 2026-06-30 07:59 - [郑钦文温网三连败西尼亚科娃](https://www.share.minike.top/Article/details/11613359.shtml)
+- 2026-06-30 07:45 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/91870.shtml)
+- 2026-06-30 08:00 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/882761738.shtml)
+- 2026-06-30 08:01 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/922931131997.shtml)
+- 2026-06-30 07:43 - [王欣瑜2-1击败科恰雷托](https://www.blog.kurohicncr.top/Article/details/7035699105.shtml)
+- 2026-06-30 07:52 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.kurohicncr.top/Article/details/430869941.shtml)
+- 2026-06-30 07:44 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/02869.shtml)
+- 2026-06-30 07:57 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/9022731611.shtml)
+- 2026-06-30 07:59 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.minike.top/Article/details/93010911900.shtml)
+- 2026-06-30 07:57 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/6763627138.shtml)
+- 2026-06-30 07:49 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/76181.shtml)
+- 2026-06-30 07:57 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/67869729.shtml)
+- 2026-06-30 07:44 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/710853363.shtml)
+- 2026-06-30 08:10 - [王欣瑜2-1击败科恰雷托](http://www.blog.minike.top/Article/details/967237572.shtml)
+- 2026-06-30 08:00 - [乔家的儿女](http://www.share.minike.top/Article/details/27317065.shtml)

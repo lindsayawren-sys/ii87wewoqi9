@@ -1,60 +1,49 @@
-# 端午挂完的艾草别丢 祛湿助眠有妙用
+# 于适、陈楚生唱响清凉夏日！哈尔滨草莓音乐节打造周末出游新体验
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-端午节挂艾草的习俗已流传千年。家家户户将艾草悬挂于门框，老一辈常说可以“辟邪祈福”。其实这并非迷信，古人早已发现艾草的药用价值。今天，医生就带大家读懂平凡艾草的保健功效，解锁老祖宗的养生智慧。挂艾暗藏的古人养生经 端午挂艾的习俗家喻户晓，民间更是流传“家有三年艾，郎中不用来”的老话。的确，艾草不止是承载民俗寓意的野草，更是能驱蚊止痒、驱寒养生、安神调理的药食同源佳品。它自带独特
+发布时间：2026年06月14日 14:56 来源：中国新闻网 6月13日，2026哈尔滨草莓音乐节在哈尔滨冰雪大世界园区启幕，本次音乐节精心规划了三大特色演出区域，于适、陈楚生、毛不易等众多知名音乐人及乐队轮番登台，摇滚、流行、说唱、民谣等多元曲风激情碰撞，共同点燃全天候不停歇的音乐派对。 活动现场，乐迷们沉浸式感受音乐魅力的同时，与家人好友一同野餐欢聚，感受哈尔滨的清凉夏日
 
 ## 正文
 
-端午节挂艾草的习俗已流传千年。
+发布时间：2026年06月14日 14:56 来源：中国新闻网 6月13日，2026哈尔滨草莓音乐节在哈尔滨冰雪大世界园区启幕，本次音乐节精心规划了三大特色演出区域，于适、陈楚生、毛不易等众多知名音乐人及乐队轮番登台，摇滚、流行、说唱、民谣等多元曲风激情碰撞，共同点燃全天候不停歇的音乐派对。
 
-家家户户将艾草悬挂于门框，老一辈常说可以“辟邪祈福”。
+活动现场，乐迷们沉浸式感受音乐魅力的同时，与家人好友一同野餐欢聚，感受哈尔滨的清凉夏日魅力。
 
-其实这并非迷信，古人早已发现艾草的药用价值。
-
-今天，医生就带大家读懂平凡艾草的保健功效，解锁老祖宗的养生智慧。
-
-挂艾暗藏的古人养生经 端午挂艾的习俗家喻户晓，民间更是流传“家有三年艾，郎中不用来”的老话。
-
-的确，艾草不止是承载民俗寓意的野草，更是能驱蚊止痒、驱寒养生、安神调理的药食同源佳品。
-
-它自带独特香气，能够驱赶蚊虫、净化空气，而所谓的“邪”，实则是夏季湿热、蚊虫滋生带来的各类外邪与疾病。
-
-居家保健的多重妙用 艾草载入《本草纲目》，它没有名贵药材的稀缺与珍贵，田间地头随处可见，却是实用性极强的养生好物。
+(于琨 刘璐 制作 姜禹帆） 责任编辑：【周驰】
 
 ## 相关推荐
 
-- 2026-06-30 07:36 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
-- 2026-06-30 07:59 - [大蒜晒外面被路过女子连盆端走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-30 08:01 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-30 08:05 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
-- 2026-06-30 08:04 - [武磊：巴西队赢的并不轻松](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-30 07:52 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-30 07:58 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
-- 2026-06-30 08:02 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-30 07:52 - [齐思钧回复张月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-30 07:36 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-30 08:02 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-30 07:52 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-30 07:42 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-30 07:47 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-30 07:48 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-30 07:55 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-30 07:50 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-30 07:45 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-30 08:02 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-30 07:53 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-30 08:04 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-30 07:45 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-30 07:51 - [德国队连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-30 08:02 - [日本五次世界杯淘汰赛全败](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-30 08:11 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-30 07:56 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-30 08:01 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:43 - [女子清吧被陌生人投放伟哥](https://www.share.minike.top/Article/details/9303049.shtml)
-- 2026-06-30 08:05 - [张帅时隔四年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/7518342.shtml)
-- 2026-06-30 07:46 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/2528035391.shtml)
-- 2026-06-30 07:43 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.minike.top/Article/details/25255.shtml)
-- 2026-06-30 07:42 - [王楚钦孙颖莎晋级混双八强](http://www.share.kurohicncr.top/Article/details/34020596.shtml)
-- 2026-06-30 07:59 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/422743204.shtml)
-- 2026-06-30 07:56 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/859198587.shtml)
-- 2026-06-30 07:54 - [又一家县级医院关停门诊输液大厅](http://www.blog.kurohicncr.top/Article/details/90118695161.shtml)
-- 2026-06-30 08:04 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/48998409.shtml)
-- 2026-06-30 07:40 - [Melo向柳智敏张元英道歉](http://www.blog.kurohicncr.top/Article/details/3877709.shtml)
-- 2026-06-30 07:54 - [王楚钦说配合稍微有些陌生感](http://www.blog.kurohicncr.top/Article/details/409934626.shtml)
-- 2026-06-30 07:49 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/847134.shtml)
-- 2026-06-30 08:04 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/007583.shtml)
-- 2026-06-30 07:54 - [小娘惹](https://www.blog.minike.top/Article/details/54948.shtml)
-- 2026-06-30 07:58 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/28986900250.shtml)
+- 2026-06-30 08:11 - [男子中医院拔火罐致浅2度烧伤](https://www.share.kurohicncr.top/Article/details/308778965.shtml)
+- 2026-06-30 08:03 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/042302.shtml)
+- 2026-06-30 07:52 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/4156915.shtml)
+- 2026-06-30 07:52 - [刘宇宁是去进货了吗](http://www.blog.kurohicncr.top/Article/details/28312.shtml)
+- 2026-06-30 07:46 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/76632915781.shtml)
+- 2026-06-30 07:43 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/75183470184.shtml)
+- 2026-06-30 07:51 - [千香](http://www.blog.kurohicncr.top/Article/details/260437485913.shtml)
+- 2026-06-30 08:04 - [高质量发展看新疆](https://www.share.minike.top/Article/details/517098411200.shtml)
+- 2026-06-30 07:43 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/4504314.shtml)
+- 2026-06-30 07:58 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/52545328.shtml)
+- 2026-06-30 07:59 - [有什么好的高中网课推荐吗？](http://www.blog.kurohicncr.top/Article/details/77285.shtml)
+- 2026-06-30 07:51 - [一生一世](http://www.share.minike.top/Article/details/2588973.shtml)
+- 2026-06-30 07:47 - [美股深夜大反弹 特斯拉飙涨8%](http://www.blog.kurohicncr.top/Article/details/5867074.shtml)
+- 2026-06-30 07:50 - [宗元舞2.0 迟来的50万女装福利](https://www.share.minike.top/Article/details/6997378.shtml)
+- 2026-06-30 08:04 - [小娘惹](http://www.share.minike.top/Article/details/551413.shtml)

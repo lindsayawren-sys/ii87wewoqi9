@@ -1,54 +1,59 @@
-# 南方多地强降雨持续 未来三天部分地区有大暴雨
+# 40岁门将首登世界杯，零封西班牙“一战封神”！
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-中新网6月22日电 据应急管理部网站消息，6月22日，国家防总办公室、应急管理部组织中国气象局、水利部、自然资源部、住房和城乡建设部、交通运输部等多部门滚动会商，研判近期降雨趋势，督促指导重点省份做好江河洪水防御和强降雨防范应对工作。国家防总继续维持针对江苏、安徽、江西、湖北、湖南、广西、重庆、贵州的防汛四级应急响应。会商指出，未来三天，主雨带仍将维持在贵州、广西至长江中下游地
+40岁，第一次参加世界杯，7次关键扑救，力保球门不失，帮助球队逼平世界杯夺冠热门西班牙队，获得全场最佳球员…… 今天(16日)凌晨，佛得角门将沃西尼亚一战成名。赛后，他落泪庆祝的画面，更是让很多人动容。 这是一个关于逆袭的故事。 这是一场纸面实力悬殊的比赛。西班牙是本届世界杯夺冠热门，世界排名第2；佛得角是首次参加世界杯赛事，世界排名60多位。西班牙队球队身价超10亿欧元；佛得
 
 ## 正文
 
-中新网6月22日电 据应急管理部网站消息，6月22日，国家防总办公室、应急管理部组织中国气象局、水利部、自然资源部、住房和城乡建设部、交通运输部等多部门滚动会商，研判近期降雨趋势，督促指导重点省份做好江河洪水防御和强降雨防范应对工作。
+40岁，第一次参加世界杯，7次关键扑救，力保球门不失，帮助球队逼平世界杯夺冠热门西班牙队，获得全场最佳球员…… 今天(16日)凌晨，佛得角门将沃西尼亚一战成名。
 
-国家防总继续维持针对江苏、安徽、江西、湖北、湖南、广西、重庆、贵州的防汛四级应急响应。
+赛后，他落泪庆祝的画面，更是让很多人动容。
 
-会商指出，未来三天，主雨带仍将维持在贵州、广西至长江中下游地区，西南地区东部和南部、江淮、江南、华南西部等地有大到暴雨，部分地区有大暴雨，局地特大暴雨。
+这是一个关于逆袭的故事。
 
-珠江流域柳江编号洪水正向下游演进，西江部分江段将出现涨水过程。
+这是一场纸面实力悬殊的比赛。
 
-会商强调，相关地区和部门要保持高度警惕，加强组织领导，全力做好珠江流域柳江编号洪水防范应对工作，重点关注超警超保堤段、历史险工线段的巡查防守。
+西班牙是本届世界杯夺冠热门，世界排名第2；佛得角是首次参加世界杯赛事，世界排名60多位。
 
-要紧盯山洪和地质灾害、中小河流洪水等防范应对薄弱环节，落实落细临灾预警“叫应”直达基层责任一线的闭环机制，及时果断组织人员转移避险，全力保障人民群众生命安全。
+西班牙队球队身价超10亿欧元；佛得角球队身价仅为几千万欧元。
 
-要加强应急值守，做好突发洪涝险情灾情的核查报送工作。
+赛前，没多少人看好佛得角能拿分。
+
+比赛中，西班牙全场轰出27脚射门，但沃西尼亚全场完成7次扑救，其中有6次是救出对方在禁区内的射门，力保球门不失，帮助佛得角队创造了美加墨世界杯开赛以来最大的冷门。
 
 ## 相关推荐
 
-- 2026-06-30 08:04 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-30 07:41 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
-- 2026-06-30 07:53 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
-- 2026-06-30 08:02 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-30 07:51 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-30 07:51 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
-- 2026-06-30 08:00 - [巴拉圭率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-30 07:41 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
-- 2026-06-30 07:40 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-30 07:52 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-30 07:54 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-30 08:11 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-30 07:42 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-30 07:51 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-30 07:43 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-30 08:06 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-30 07:55 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-30 07:53 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-30 08:08 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-30 08:00 - [勇士续约波尔津吉斯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
+- 2026-06-30 08:01 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-30 07:53 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-30 08:10 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:39 - [日本反击率先破门](https://www.share.kurohicncr.top/Article/details/57050088323.shtml)
-- 2026-06-30 07:37 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.minike.top/Article/details/1276275.shtml)
-- 2026-06-30 07:43 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/2941666591.shtml)
-- 2026-06-30 07:41 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/2324592.shtml)
-- 2026-06-30 07:51 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/05419790446.shtml)
-- 2026-06-30 07:57 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/48494.shtml)
-- 2026-06-30 07:51 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/44264755.shtml)
-- 2026-06-30 07:38 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.share.minike.top/Article/details/3057359.shtml)
-- 2026-06-30 07:41 - [德国连续三届世界杯无缘16强](http://www.blog.kurohicncr.top/Article/details/35481507700.shtml)
-- 2026-06-30 07:40 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/25439.shtml)
-- 2026-06-30 08:01 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/9792015.shtml)
-- 2026-06-30 07:47 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/47520740262.shtml)
-- 2026-06-30 07:42 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/57553536.shtml)
-- 2026-06-30 07:53 - [男子中医院拔火罐致浅2度烧伤](http://www.share.minike.top/Article/details/26088968.shtml)
-- 2026-06-30 07:52 - [千与千寻](https://www.share.minike.top/Article/details/10570570855.shtml)
+- 2026-06-30 07:48 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/798458.shtml)
+- 2026-06-30 07:47 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/5143424721.shtml)
+- 2026-06-30 07:54 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/748472756984.shtml)
+- 2026-06-30 07:50 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/186923412.shtml)
+- 2026-06-30 08:06 - [日本16强魔咒](http://www.blog.minike.top/Article/details/841563034.shtml)
+- 2026-06-30 08:05 - [乔家的儿女](http://www.blog.minike.top/Article/details/3792144994.shtml)
+- 2026-06-30 07:47 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/062558008.shtml)
+- 2026-06-30 08:00 - [斛珠夫人](https://www.blog.minike.top/Article/details/40300109.shtml)
+- 2026-06-30 08:03 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.blog.kurohicncr.top/Article/details/654892018.shtml)
+- 2026-06-30 07:47 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/904382.shtml)
+- 2026-06-30 07:49 - [日本遭读秒绝杀 森保一：我水平不够](https://www.share.minike.top/Article/details/2702286.shtml)
+- 2026-06-30 08:00 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.kurohicncr.top/Article/details/3998998.shtml)
+- 2026-06-30 08:05 - [金鹰奖视后提名预测](https://www.blog.kurohicncr.top/Article/details/48742025.shtml)
+- 2026-06-30 08:11 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/02860459.shtml)
+- 2026-06-30 07:56 - [王楚钦说配合稍微有些陌生感](https://www.blog.kurohicncr.top/Article/details/525778368463.shtml)

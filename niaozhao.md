@@ -1,52 +1,60 @@
-# 全球首架国产C909公务机在上海投入商业运营
+# 抗衰“神药”，还有多远？
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月22日 19:12 来源：中国新闻网 6月22日，海航航空集团旗下上海金鹿公务航空有限公司(以下简称：上海金鹿)在上海虹桥国际机场举行全球首架CBJ公务机正式投入商业运营首航仪式。这是中国自主研制公务机在高端服务市场的重要突破，上海金鹿由此成为全球首家运营国产公务机的运营商，为中国公务航空事业翻开了崭新篇章。CBJ公务机是中国商飞C909机型系列化发展
+中国新闻周刊记者：孙厚铭 发于2026.6.15总第1239期《中国新闻周刊》杂志 接受药物干预的老年小鼠，比同龄小鼠活得更久。这样的结果，总会点燃人们对抗衰“神药”的想象。 今年4月，医学期刊《药物设计、开发与治疗》发表的一项研究显示，一种名为SRN-901的候选药物，可使老年小鼠剩余寿命的中位数延长约三分之一，肿瘤发生率降低约30%。2025年2月，一款名为LOY-002的
 
 ## 正文
 
-发布时间：2026年06月22日 19:12 来源：中国新闻网 6月22日，海航航空集团旗下上海金鹿公务航空有限公司(以下简称：上海金鹿)在上海虹桥国际机场举行全球首架CBJ公务机正式投入商业运营首航仪式。
+中国新闻周刊记者：孙厚铭 发于2026.6.15总第1239期《中国新闻周刊》杂志 接受药物干预的老年小鼠，比同龄小鼠活得更久。
 
-这是中国自主研制公务机在高端服务市场的重要突破，上海金鹿由此成为全球首家运营国产公务机的运营商，为中国公务航空事业翻开了崭新篇章。
+这样的结果，总会点燃人们对抗衰“神药”的想象。
 
-CBJ公务机是中国商飞C909机型系列化发展的重要成果，定位为大型喷气式高端定制化公务机。
+今年4月，医学期刊《药物设计、开发与治疗》发表的一项研究显示，一种名为SRN-901的候选药物，可使老年小鼠剩余寿命的中位数延长约三分之一，肿瘤发生率降低约30%。
 
-客舱空间更加宽敞，可灵活实现12至29座的座位布局，按需划分休息区、会议区、会客区、就餐区等相对独立的功能区域，充分满足个性化定制需求。
+2025年2月，一款名为LOY-002的候选药物获得美国食品药品监督管理局(FDA)兽医中心确认，对延长老年犬寿命“具有合理、有效性预期”。
 
-(殷立勤 制作 王佳琪） 责任编辑：【罗攀】
+针对人类，一批被认为具有潜力的抗衰老药物靶点与候选分子也正逐渐显现。
+
+“但截至目前，还没有任何一种药物有确凿证据，能延缓人类衰老。
+
+”中南大学衰老与老年疾病研究所所长刘幼硕对《中国新闻周刊》介绍，很多人希望通过吃药替代健康生活方式，但从动物实验到人体有效，还有相当长的距离。
+
+“打捆”干预 随着年龄增长，越来越多与衰老相关的疾病会陆续出现。
 
 ## 相关推荐
 
-- 2026-06-30 08:03 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-30 07:52 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
-- 2026-06-30 07:54 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
-- 2026-06-30 07:58 - [郑钦文温网一轮游](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
-- 2026-06-30 08:00 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-30 07:42 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
-- 2026-06-30 08:04 - [莫兰特转投开拓者效力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-30 07:43 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-30 07:43 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-30 07:46 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
-- 2026-06-30 08:04 - [男子在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
-- 2026-06-30 07:36 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-30 07:44 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
+- 2026-06-30 08:09 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-30 08:01 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-30 07:59 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-30 07:48 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-30 07:57 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-30 08:04 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-30 08:06 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-30 07:49 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
+- 2026-06-30 07:48 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-30 07:50 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-30 08:08 - [亚洲球队全部出局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-30 07:55 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-30 08:09 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:05 - [巴西vs日本](http://www.share.minike.top/Article/details/9301392.shtml)
-- 2026-06-30 07:43 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/0246717141.shtml)
-- 2026-06-30 07:51 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/2757011693.shtml)
-- 2026-06-30 08:05 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/371036.shtml)
-- 2026-06-30 07:59 - [金牌调解](http://www.share.minike.top/Article/details/87701493426.shtml)
-- 2026-06-30 07:39 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.kurohicncr.top/Article/details/9196770.shtml)
-- 2026-06-30 07:43 - [金刚川](http://www.blog.minike.top/Article/details/53103287.shtml)
-- 2026-06-30 07:49 - [金鹰奖视后提名预测](https://www.share.kurohicncr.top/Article/details/35108.shtml)
-- 2026-06-30 07:44 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.kurohicncr.top/Article/details/9808521.shtml)
-- 2026-06-30 07:44 - [杨紫被质疑未使用原名纯属误解](http://www.share.minike.top/Article/details/166873784.shtml)
-- 2026-06-30 07:46 - [曝灰熊将莫兰特交易至开拓者](https://www.share.minike.top/Article/details/2390677733.shtml)
-- 2026-06-30 08:03 - [F1奥地利站赛后复盘](https://www.share.kurohicncr.top/Article/details/98825775644.shtml)
-- 2026-06-30 07:40 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/41078.shtml)
-- 2026-06-30 07:53 - [王欣瑜2-1击败科恰雷托](https://www.blog.kurohicncr.top/Article/details/1671667335.shtml)
-- 2026-06-30 07:47 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/3707422.shtml)
+- 2026-06-30 07:48 - [人类...完蛋了...](https://www.share.kurohicncr.top/Article/details/648734830856.shtml)
+- 2026-06-30 07:47 - [覃予萱晋级WTT美国大满贯女单32强](https://www.share.minike.top/Article/details/089419834.shtml)
+- 2026-06-30 08:10 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/31942901488.shtml)
+- 2026-06-30 07:44 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/2472102.shtml)
+- 2026-06-30 07:45 - [卡塞米罗头球破门 巴西扳平日本](http://www.blog.minike.top/Article/details/162408945167.shtml)
+- 2026-06-30 07:51 - [女子清吧被陌生人投放伟哥](https://www.blog.kurohicncr.top/Article/details/67663.shtml)
+- 2026-06-30 08:06 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/583658501.shtml)
+- 2026-06-30 07:54 - [有酒店推行24小时退房制](https://www.share.kurohicncr.top/Article/details/79753.shtml)
+- 2026-06-30 08:00 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/526799.shtml)
+- 2026-06-30 07:44 - [世界杯巴拉圭点球淘汰德国](https://www.share.minike.top/Article/details/56458502.shtml)
+- 2026-06-30 07:48 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/293747.shtml)
+- 2026-06-30 07:57 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/07717879.shtml)
+- 2026-06-30 08:10 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/25382.shtml)
+- 2026-06-30 07:53 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://www.blog.minike.top/Article/details/773627121997.shtml)
+- 2026-06-30 07:48 - [巴拉圭率先破门](http://www.share.minike.top/Article/details/95522.shtml)

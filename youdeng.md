@@ -1,60 +1,61 @@
-# 盘前：纳指期货跌2.59% 全球科技股疯狂暴跌
+# 全球基金削减日本长期国债敞口 担忧日本央行行动迟缓
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-周二，全球市场出现连锁抛售，投资者对高涨的科技股和泡沫化估值感到不安。韩国Kospi指数暴跌10%，纳斯达克指数期货下跌逾2%，全球科技股抛售加速。尽管本月油价已下跌16%，但投资者仍预计美联储将采取更激进措施应对通胀。 截至发稿，道指期货跌0.39%，标普500指数期货跌1.22%，纳指期货跌2.59%。 斯托克欧洲600指数下跌1%。科技股和基础资源类股均下跌至少2.5%，
+在日本国债收益率终于高到足以吸引全球基金经理重返一年多之后，不少资金又开始撤出这一市场。 T． Rowe Price Group Inc．、施罗德以及Brandywine Global Investment Management等机构近期纷纷削减对日本长期国债的敞口，或仅持有战术性持仓。最新的4月份数据显示，海外投资者自2024年以来首次净卖出日本超长期国债，即卖出规模超过买入
 
 ## 正文
 
-周二，全球市场出现连锁抛售，投资者对高涨的科技股和泡沫化估值感到不安。
+在日本国债收益率终于高到足以吸引全球基金经理重返一年多之后，不少资金又开始撤出这一市场。
 
-韩国Kospi指数暴跌10%，纳斯达克指数期货下跌逾2%，全球科技股抛售加速。
+T． Rowe Price Group Inc．、施罗德以及Brandywine Global Investment Management等机构近期纷纷削减对日本长期国债的敞口，或仅持有战术性持仓。
 
-尽管本月油价已下跌16%，但投资者仍预计美联储将采取更激进措施应对通胀。
+最新的4月份数据显示，海外投资者自2024年以来首次净卖出日本超长期国债，即卖出规模超过买入规模。
 
-截至发稿，道指期货跌0.39%，标普500指数期货跌1.22%，纳指期货跌2.59%。
+即便市场普遍预期日本央行将在周二加息，投资者仍担心其不太可能足够迅速地收紧货币政策，以遏制通胀并稳定市场。
 
-斯托克欧洲600指数下跌1%。
+对许多投资者而言，今年创下数十年高位的收益率所带来的吸引力，已被对日本央行政策迟缓以及易受政治压力影响的担忧所掩盖。
 
-科技股和基础资源类股均下跌至少2.5%，为各行业中跌幅最大板块。
+Brandywine Global Investment Management投资组合经理兼高级研究分析师Carol Lye表示，“鉴于日本目前面临的负实际利率环境，我们认为日本央行在政策上略显滞后”，并称该机构近期削减了日本国债敞口，并卖出所持30年期债券，将部分资金转而配置于英国国债。
 
-韩国Kospi指数暴跌10% 欧洲市场跌幅小于其他全球指数，后者受到芯片制造商暴跌冲击。
+她表示，尽管日本国债估值已有所改善，但“结构性的供需关系仍然复杂”。
 
-亚洲科技股指数大幅下挫，结束八连涨。
+投资者的这一转变给日本政策制定者带来了挑战。
 
 ## 相关推荐
 
-- 2026-06-30 07:47 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-30 07:47 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-30 07:52 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
-- 2026-06-30 07:59 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-30 07:38 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-30 07:41 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-30 08:02 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
-- 2026-06-30 07:44 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-30 07:42 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
-- 2026-06-30 07:59 - [世界杯巴拉圭点球淘汰德国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
-- 2026-06-30 08:03 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-30 08:05 - [郑钦文温网一轮游](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-30 07:42 - [马耳他著名拱门坍塌致中国男子身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
-- 2026-06-30 07:52 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-30 07:43 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-30 08:04 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-30 08:05 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-30 08:04 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-30 07:43 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-30 07:58 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-30 07:45 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-30 08:00 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-30 07:59 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
+- 2026-06-30 07:54 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-30 08:00 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-30 07:45 - [德国巴拉圭加时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-30 07:44 - [巴拉圭率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-30 08:01 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-30 07:49 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:00 - [又一美国科技巨头转向中国大模型](http://www.share.kurohicncr.top/Article/details/019554.shtml)
-- 2026-06-30 07:49 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/7149712455.shtml)
-- 2026-06-30 07:38 - [德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/7800740473.shtml)
-- 2026-06-30 08:00 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.minike.top/Article/details/2687166.shtml)
-- 2026-06-30 07:39 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/5183497.shtml)
-- 2026-06-30 07:57 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/39925440218.shtml)
-- 2026-06-30 07:49 - [人类...完蛋了...](http://www.blog.minike.top/Article/details/774062819.shtml)
-- 2026-06-30 07:47 - [一见倾心](https://www.share.kurohicncr.top/Article/details/51373133697.shtml)
-- 2026-06-30 07:55 - [库尼亚赛后伸五指嘲讽日本](https://www.blog.minike.top/Article/details/95392606761.shtml)
-- 2026-06-30 07:54 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/61565318433.shtml)
-- 2026-06-30 07:40 - [森保一 保守](https://www.blog.minike.top/Article/details/390915170377.shtml)
-- 2026-06-30 07:37 - [巴西补时绝杀日本](http://www.blog.minike.top/Article/details/47769031.shtml)
-- 2026-06-30 07:36 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.minike.top/Article/details/377216.shtml)
-- 2026-06-30 07:46 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/13749473.shtml)
-- 2026-06-30 07:50 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/6145943853.shtml)
+- 2026-06-30 07:56 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/9395208.shtml)
+- 2026-06-30 07:51 - [点球大战 残酷](https://www.share.kurohicncr.top/Article/details/415173650144.shtml)
+- 2026-06-30 08:01 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/101151244.shtml)
+- 2026-06-30 07:43 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/64976.shtml)
+- 2026-06-30 07:55 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/3625907255.shtml)
+- 2026-06-30 07:46 - [千香](https://www.blog.kurohicncr.top/Article/details/634395921.shtml)
+- 2026-06-30 08:02 - [美人鱼](https://www.share.minike.top/Article/details/05117.shtml)
+- 2026-06-30 07:58 - [男子醉酒溺水获救后同行人拒协助抬人](http://www.blog.kurohicncr.top/Article/details/77313.shtml)
+- 2026-06-30 07:54 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/385643247.shtml)
+- 2026-06-30 08:01 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/50689.shtml)
+- 2026-06-30 07:44 - [日本淘汰](https://www.blog.kurohicncr.top/Article/details/2470182.shtml)
+- 2026-06-30 07:55 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/70783865204.shtml)
+- 2026-06-30 07:50 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/8923218.shtml)
+- 2026-06-30 07:48 - [吴易昺不敌德约科维奇 止步温网首轮](http://www.share.minike.top/Article/details/71621455.shtml)
+- 2026-06-30 08:09 - [峡谷事故团队组队时有人提醒会下雨](https://www.share.minike.top/Article/details/054227901673.shtml)

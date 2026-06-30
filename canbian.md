@@ -1,61 +1,57 @@
-# 联合包裹斥资4800万美元加码温控仓储设施，抢抓医疗健康物流发展红利
+# 外交部：霍尔木兹海峡安全自由通行符合各方利益
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-核心要点 美国消费者新闻与商业频道独家获悉，受温控类医疗物流需求爆发式增长驱动，联合包裹（UPS）宣布对医疗物流业务新增一笔投资。 本次 4800 万美元资金将用于升级其国内外共计 27 座温控仓储设施。 该公司此前曾表示，医疗健康业务是其最重要的增长赛道之一。 伴随医疗物流行业迎来高速发展期，联合包裹（UPS）将投入 4800 万美元，升级旗下 27 座温控物流仓储设施。 这
+6月16日，外交部发言人林剑主持例行记者会。有记者就伊美达成第一阶段谅解备忘录以及霍尔木兹海峡通航问题提问。 林剑表示，中方注意到伊美双方已达成的第一阶段谅解备忘录，包含了重开海峡等内容。霍尔木兹海峡是用于国际航行的海峡，尽早恢复海峡的安全自由通行，符合各方利益。 中方愿同有关国家和国际社会就此保持沟通。中方将继续全力维护中资船舶和中国籍船员的安全。 (总台央视记者 申杨 王晨
 
 ## 正文
 
-核心要点 美国消费者新闻与商业频道独家获悉，受温控类医疗物流需求爆发式增长驱动，联合包裹（UPS）宣布对医疗物流业务新增一笔投资。
+6月16日，外交部发言人林剑主持例行记者会。
 
-本次 4800 万美元资金将用于升级其国内外共计 27 座温控仓储设施。
+有记者就伊美达成第一阶段谅解备忘录以及霍尔木兹海峡通航问题提问。
 
-该公司此前曾表示，医疗健康业务是其最重要的增长赛道之一。
+林剑表示，中方注意到伊美双方已达成的第一阶段谅解备忘录，包含了重开海峡等内容。
 
-伴随医疗物流行业迎来高速发展期，联合包裹（UPS）将投入 4800 万美元，升级旗下 27 座温控物流仓储设施。
+霍尔木兹海峡是用于国际航行的海峡，尽早恢复海峡的安全自由通行，符合各方利益。
 
-这批仓储网点分布于美洲、欧洲及亚洲地区，专门用于运输需要恒定温度保存的货物。
+中方愿同有关国家和国际社会就此保持沟通。
 
-公司表示，此次投资将提升物流运转效率、完善全链路货物溯源管控能力，助力企业把握各类温控药品（包括部分胰高血糖素样肽 - 1（GLP-1）类药物）的市场增长机遇。
+中方将继续全力维护中资船舶和中国籍船员的安全。
 
-联合包裹国际、医疗健康及供应链解决方案总裁凯特・古特曼表示：“我们的全球中转枢纽进一步夯实了端到端冷链物流能力，确保各类关键治疗药物能够安全、稳定地送达全球各地患者手中。
-
-此次布局，连同我们在医疗物流领域开展的所有工作，都源于一个深刻认知：我们所做的早已不止是简单的货物运输。
+(总台央视记者 申杨 王晨)
 
 ## 相关推荐
 
-- 2026-06-30 07:53 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
-- 2026-06-30 07:54 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-30 08:03 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-30 07:38 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
-- 2026-06-30 07:52 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-30 08:02 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-30 07:58 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
-- 2026-06-30 07:54 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-30 07:52 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-30 08:02 - [世界杯巴拉圭点球淘汰德国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-30 07:55 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-30 07:40 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-30 07:41 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
-- 2026-06-30 07:46 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
-- 2026-06-30 07:42 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
+- 2026-06-30 07:53 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-30 07:46 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-30 07:45 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-30 07:58 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-30 07:53 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-30 07:49 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-30 07:51 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-30 07:42 - [男子在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-30 07:57 - [中国新一轮出口管制直指日本命脉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-30 07:45 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-30 07:45 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-30 07:50 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-30 08:09 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:01 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/251432179.shtml)
-- 2026-06-30 07:38 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/817063585.shtml)
-- 2026-06-30 07:41 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/3714688054.shtml)
-- 2026-06-30 08:05 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/470710.shtml)
-- 2026-06-30 07:49 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/920999182.shtml)
-- 2026-06-30 07:51 - [穆祉丞年度人气艺人](https://www.blog.minike.top/Article/details/105605550.shtml)
-- 2026-06-30 07:37 - [峡谷事故团队组队时有人提醒会下雨](https://www.blog.minike.top/Article/details/4896039327.shtml)
-- 2026-06-30 08:02 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/593248250707.shtml)
-- 2026-06-30 08:04 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/4239577.shtml)
-- 2026-06-30 07:50 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/9103321556.shtml)
-- 2026-06-30 08:05 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/874293196.shtml)
-- 2026-06-30 07:40 - [巴西2-1绝杀日本](http://www.blog.kurohicncr.top/Article/details/3150783.shtml)
-- 2026-06-30 08:00 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/5666868.shtml)
-- 2026-06-30 07:37 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/92818894598.shtml)
-- 2026-06-30 07:40 - [男子中医院拔火罐致浅2度烧伤](http://www.share.minike.top/Article/details/76664013480.shtml)
+- 2026-06-30 07:51 - [审核了不止十年的低创鬼畜](http://www.blog.kurohicncr.top/Article/details/5229448.shtml)
+- 2026-06-30 07:51 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/5426529.shtml)
+- 2026-06-30 07:56 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/20486834.shtml)
+- 2026-06-30 07:46 - [覃予萱晋级WTT美国大满贯女单32强](http://www.share.minike.top/Article/details/56498.shtml)
+- 2026-06-30 08:09 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/43789774289.shtml)
+- 2026-06-30 07:47 - [王源近几年没有路演了](https://www.share.minike.top/Article/details/89055872.shtml)
+- 2026-06-30 07:52 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.kurohicncr.top/Article/details/66173638.shtml)
+- 2026-06-30 07:56 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/88924.shtml)
+- 2026-06-30 07:53 - [老外对中国cosplay竟这样评价…](https://www.blog.minike.top/Article/details/77679796.shtml)
+- 2026-06-30 07:51 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/053445901.shtml)
+- 2026-06-30 07:53 - [二次元提前预演明日巴西对日本](http://www.blog.minike.top/Article/details/9699295049.shtml)
+- 2026-06-30 08:05 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/644214383.shtml)
+- 2026-06-30 07:54 - [媒体评泰山建135公里刀片刺绳隔离网](http://www.blog.minike.top/Article/details/124795854.shtml)
+- 2026-06-30 08:03 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/800800292951.shtml)
+- 2026-06-30 07:49 - [美股深夜大反弹 特斯拉飙涨8%](http://www.blog.minike.top/Article/details/6044953.shtml)

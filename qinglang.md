@@ -1,55 +1,50 @@
-# 欧洲央行副行长：预计通胀将在更长时间内维持高位
+# 信达生物授出5000份购股权及10.52万股受限制股份
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-欧洲央行副行长Boris Vujcic表示，考虑到通胀将在更长时间内维持高位，央行加息的决定是“稳健的”。 他周二在伦敦表示，与此同时，大多数长期通胀预期仍与欧洲央行2%的目标水平保持一致，并且目前的薪资增长并未显示出任何连锁反应。 “整体通胀和核心通胀都将在更长时间内维持高位——至2027年，”本月初接替Luis de Guindos出任欧洲央行副行长的Vujcic表示。“这
+信达生物（01801）发布公告，于2026年6月15日，公司根据2024年股份计划的条款向一名承授人授出5000份购股权并向22名承授人授出10.52万股受限制股份，惟须待承授人接纳。所有承授人均为本集团的非关连雇员（不属高级管理层）。责任编辑：卢昱君
 
 ## 正文
 
-欧洲央行副行长Boris Vujcic表示，考虑到通胀将在更长时间内维持高位，央行加息的决定是“稳健的”。
+信达生物（01801）发布公告，于2026年6月15日，公司根据2024年股份计划的条款向一名承授人授出5000份购股权并向22名承授人授出10.52万股受限制股份，惟须待承授人接纳。
 
-他周二在伦敦表示，与此同时，大多数长期通胀预期仍与欧洲央行2%的目标水平保持一致，并且目前的薪资增长并未显示出任何连锁反应。
+所有承授人均为本集团的非关连雇员（不属高级管理层）。
 
-“整体通胀和核心通胀都将在更长时间内维持高位——至2027年，”本月初接替Luis de Guindos出任欧洲央行副行长的Vujcic表示。
-
-“这基本上也是你们在上次会议上看到利率行动的理由。
-
-” 欧洲央行于6月11日将利率上调25个基点，目前正在评估未来几个月是否需要进一步收紧政策。
-
-责任编辑：李桐
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 07:41 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-30 07:37 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-30 07:48 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-30 07:54 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
-- 2026-06-30 07:43 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
-- 2026-06-30 07:37 - [萨内 看笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-30 07:47 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-30 07:48 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
-- 2026-06-30 07:51 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
-- 2026-06-30 08:04 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
-- 2026-06-30 07:47 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
-- 2026-06-30 07:50 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-30 07:58 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-30 07:56 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-30 07:45 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
+- 2026-06-30 07:59 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-30 07:45 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-30 08:10 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-30 08:02 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-30 07:49 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-30 08:10 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-30 08:10 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-30 07:42 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-30 08:11 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-30 07:48 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-30 07:43 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-30 07:42 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:00 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/260280.shtml)
-- 2026-06-30 07:46 - [感动全网的699分女生想报考清华](http://www.blog.kurohicncr.top/Article/details/38381426.shtml)
-- 2026-06-30 07:57 - [德国巴拉圭进入点球大战](http://www.blog.kurohicncr.top/Article/details/561541.shtml)
-- 2026-06-30 07:52 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/4238272135.shtml)
-- 2026-06-30 07:54 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/68156778855.shtml)
-- 2026-06-30 08:02 - [本届世界杯已有5名球员被控强奸](https://www.share.kurohicncr.top/Article/details/944768881.shtml)
-- 2026-06-30 08:03 - [美人鱼](https://www.blog.minike.top/Article/details/78800829304.shtml)
-- 2026-06-30 08:02 - [青春环游记第三季](http://www.share.minike.top/Article/details/67562365946.shtml)
-- 2026-06-30 07:42 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/4036525969.shtml)
-- 2026-06-30 07:47 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/13209.shtml)
-- 2026-06-30 07:51 - [我觉得你是在无中生友](http://www.blog.kurohicncr.top/Article/details/60621.shtml)
-- 2026-06-30 07:49 - [巴西把自己踢晕了](http://www.share.minike.top/Article/details/74507697.shtml)
-- 2026-06-30 08:04 - [韩乔生吐槽世界杯扩军](https://www.share.minike.top/Article/details/6617087715.shtml)
-- 2026-06-30 07:56 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/609352.shtml)
-- 2026-06-30 07:43 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/8977788026.shtml)
+- 2026-06-30 08:07 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/97084367406.shtml)
+- 2026-06-30 08:03 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.share.minike.top/Article/details/830234.shtml)
+- 2026-06-30 08:00 - [德国进球被吹](http://www.blog.kurohicncr.top/Article/details/715704842.shtml)
+- 2026-06-30 07:42 - [德国淘汰](http://www.blog.kurohicncr.top/Article/details/2049526.shtml)
+- 2026-06-30 08:10 - [好像看到了人类带孩子崩溃的样子](https://www.blog.minike.top/Article/details/58359.shtml)
+- 2026-06-30 07:43 - [问心2神一集鬼三集](http://www.blog.minike.top/Article/details/75766.shtml)
+- 2026-06-30 07:52 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/70583560.shtml)
+- 2026-06-30 07:47 - [日本进球](https://www.share.minike.top/Article/details/64335.shtml)
+- 2026-06-30 08:07 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/32203.shtml)
+- 2026-06-30 07:58 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/58623984656.shtml)
+- 2026-06-30 07:55 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.kurohicncr.top/Article/details/662675376807.shtml)
+- 2026-06-30 08:05 - [扬名立万](http://www.share.kurohicncr.top/Article/details/4627543.shtml)
+- 2026-06-30 08:04 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.kurohicncr.top/Article/details/11325195523.shtml)
+- 2026-06-30 07:42 - [巴西替补奇兵读秒绝杀](http://www.blog.minike.top/Article/details/723451619.shtml)
+- 2026-06-30 07:54 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/40073.shtml)

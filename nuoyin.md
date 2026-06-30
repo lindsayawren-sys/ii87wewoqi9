@@ -1,48 +1,48 @@
-# 英国国债下跌 斯塔默将就其未来发表声明
+# 创业板指涨超5% 重返4000点上方
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-英国国债走低，抹去早前涨幅，有迹象表明英国首相斯塔默或将辞职。 英国10年期国债收益率上升1个基点至4.85%；受美元整体走强影响，英镑/美元下跌0.3%至1.3193。 据官员透露，英国首相斯塔默将就其未来发表声明，或为伯纳姆接任首相铺垫。责任编辑：何云
+发布时间：2026年06月15日 16:13 来源：中国新闻网 15日，A股三大指数集体上涨，截至收盘，上证指数涨1.61%，深证成指涨3.79%，创业板指涨5.3%重返4000点上方，科创50指数涨5.12%。盘面上，电子元器件、贵金属、通信设备等行业板块涨幅居前；概念板块方面，覆铜板、电路板、光模块(CPO)概念表现亮眼。(记者 谢艺观） 责任编辑：【程春雨】
 
 ## 正文
 
-英国国债走低，抹去早前涨幅，有迹象表明英国首相斯塔默或将辞职。
+发布时间：2026年06月15日 16:13 来源：中国新闻网 15日，A股三大指数集体上涨，截至收盘，上证指数涨1.61%，深证成指涨3.79%，创业板指涨5.3%重返4000点上方，科创50指数涨5.12%。
 
-英国10年期国债收益率上升1个基点至4.85%；受美元整体走强影响，英镑/美元下跌0.3%至1.3193。
+盘面上，电子元器件、贵金属、通信设备等行业板块涨幅居前；概念板块方面，覆铜板、电路板、光模块(CPO)概念表现亮眼。
 
-据官员透露，英国首相斯塔默将就其未来发表声明，或为伯纳姆接任首相铺垫。
-
-责任编辑：何云
+(记者 谢艺观） 责任编辑：【程春雨】
 
 ## 相关推荐
 
-- 2026-06-30 07:57 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
-- 2026-06-30 07:36 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
-- 2026-06-30 07:52 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-30 07:54 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-30 07:51 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
-- 2026-06-30 07:49 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
-- 2026-06-30 07:46 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
-- 2026-06-30 07:40 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-30 07:38 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-30 07:43 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-30 08:09 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-30 08:09 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-30 07:58 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
+- 2026-06-30 07:56 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
+- 2026-06-30 08:00 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-30 08:07 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-30 07:48 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-30 08:12 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-30 07:52 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-30 07:53 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-30 07:50 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-30 07:56 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:38 - [国务院：探索延长义务教育年限](http://www.blog.kurohicncr.top/Article/details/287475883885.shtml)
-- 2026-06-30 07:51 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/328736046.shtml)
-- 2026-06-30 07:41 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.kurohicncr.top/Article/details/34700.shtml)
-- 2026-06-30 07:55 - [德国队连续三届世界杯无缘16强](http://www.share.minike.top/Article/details/224418.shtml)
-- 2026-06-30 07:39 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/41134439167.shtml)
-- 2026-06-30 07:51 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/44637369257.shtml)
-- 2026-06-30 07:49 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/135692960.shtml)
-- 2026-06-30 07:59 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/0880801426.shtml)
-- 2026-06-30 07:55 - [曝灰熊将莫兰特交易至开拓者](https://www.blog.minike.top/Article/details/82919.shtml)
-- 2026-06-30 07:36 - [恋与深空道歉声明](http://www.blog.kurohicncr.top/Article/details/5657496973.shtml)
-- 2026-06-30 07:40 - [韩国球迷凌晨4点接机怒骂主教练](https://www.blog.kurohicncr.top/Article/details/91783693.shtml)
-- 2026-06-30 07:54 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.minike.top/Article/details/95131491146.shtml)
-- 2026-06-30 08:04 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/476107259.shtml)
-- 2026-06-30 08:05 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.blog.kurohicncr.top/Article/details/54371996914.shtml)
-- 2026-06-30 07:50 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/7701038.shtml)
+- 2026-06-30 07:53 - [佐野海舟远射破门](http://www.blog.kurohicncr.top/Article/details/238782046.shtml)
+- 2026-06-30 08:11 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/18945949630.shtml)
+- 2026-06-30 07:42 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/722259552142.shtml)
+- 2026-06-30 07:43 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/18165225.shtml)
+- 2026-06-30 07:55 - [德国巴拉圭进入点球大战](http://www.share.kurohicncr.top/Article/details/90209310.shtml)
+- 2026-06-30 07:55 - [赛博朋克边缘行者2预告片](https://www.share.kurohicncr.top/Article/details/4541268.shtml)
+- 2026-06-30 08:07 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/1258260339.shtml)
+- 2026-06-30 07:47 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/8468598.shtml)
+- 2026-06-30 08:02 - [日本进球](http://www.blog.kurohicncr.top/Article/details/149306543.shtml)
+- 2026-06-30 08:00 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/745899185275.shtml)
+- 2026-06-30 08:08 - [巴拉圭进球](https://www.share.kurohicncr.top/Article/details/2488398.shtml)
+- 2026-06-30 07:53 - [佐野海舟远射破门](http://www.blog.minike.top/Article/details/3629317.shtml)
+- 2026-06-30 08:05 - [上市央企地产商 两年换了三任董事长](https://www.share.minike.top/Article/details/03721390316.shtml)
+- 2026-06-30 07:54 - [辛纳vs凯茨玛诺维奇](http://www.blog.minike.top/Article/details/028759347484.shtml)
+- 2026-06-30 07:43 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/45552155909.shtml)

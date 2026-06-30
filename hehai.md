@@ -1,50 +1,59 @@
-# 日韩股市开盘 韩国股市开盘下跌0.3%
+# 全线大涨！马斯克，突然喊话！联手英伟达，酝酿大动作？
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-专题：风险降级，市场惯性前进：主线仍是算力通胀 日经平均股指高开0.1%，报32404.37点，金属板块个股领涨。 韩国综合股价指数（KOSPI）开盘下跌0.3%，至9083.54点。责任编辑：王永生
+马斯克继续“唱多”！ 今日（6月15日）美股盘前，太空概念股集体走高，SpaceX涨超6%，Rocket Lab、ASTS涨超5%，回声星通信涨近3%。当天，A股商业航天概念股也掀起涨停潮，光库科技、德龙激光、宇环数控、深桑达A等近40只相关概念股涨停或涨超10%。 据最新消息，亿万富豪、特斯拉和SpaceX创始人马斯克表示，到2030年，SpaceX可能实现1万亿美元的营收。
 
 ## 正文
 
-专题：风险降级，市场惯性前进：主线仍是算力通胀 日经平均股指高开0.1%，报32404.37点，金属板块个股领涨。
+马斯克继续“唱多”！
 
-韩国综合股价指数（KOSPI）开盘下跌0.3%，至9083.54点。
+今日（6月15日）美股盘前，太空概念股集体走高，SpaceX涨超6%，Rocket Lab、ASTS涨超5%，回声星通信涨近3%。
 
-责任编辑：王永生
+当天，A股商业航天概念股也掀起涨停潮，光库科技、德龙激光、宇环数控、深桑达A等近40只相关概念股涨停或涨超10%。
+
+据最新消息，亿万富豪、特斯拉和SpaceX创始人马斯克表示，到2030年，SpaceX可能实现1万亿美元的营收。
+
+上周五，SpaceX在纳斯达克交易所上市首日大涨超19%，市值达2.1万亿美元。
+
+值得关注的是，就在SpaceX上市当天，马斯克与英伟达在社交媒体上互动，承诺将SpaceX与英伟达的合作关系提升到新的水平。
+
+有科技媒体称，SpaceX和英伟达可能会联手打造太空算力。
+
+另据央视财经报道，随着全球商业航天产业加速发展，我国商业航天也正进入快速成长期。
 
 ## 相关推荐
 
-- 2026-06-30 07:52 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-30 07:52 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-30 07:36 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-30 07:54 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-30 07:44 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-30 07:53 - [王濛回复黄灿灿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-30 07:44 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-30 07:57 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-30 08:02 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-30 08:00 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-30 07:47 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-30 07:52 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-30 07:37 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-30 07:43 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-30 07:55 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-30 07:56 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-30 07:44 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-30 08:03 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-30 07:54 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-30 08:09 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-30 08:01 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-30 08:00 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
+- 2026-06-30 07:51 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-30 07:47 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
+- 2026-06-30 07:49 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-30 08:01 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-30 07:44 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:37 - [花少8要去世界杯举办国](https://www.blog.kurohicncr.top/Article/details/06977.shtml)
-- 2026-06-30 08:00 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/033942.shtml)
-- 2026-06-30 08:03 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/83622860680.shtml)
-- 2026-06-30 08:01 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/372168477.shtml)
-- 2026-06-30 07:38 - [曝灰熊将莫兰特交易至开拓者](https://www.blog.kurohicncr.top/Article/details/5217926054.shtml)
-- 2026-06-30 07:52 - [感动全网的699分女生想报考清华](http://www.share.minike.top/Article/details/8349128.shtml)
-- 2026-06-30 07:56 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.minike.top/Article/details/313426726706.shtml)
-- 2026-06-30 08:01 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/174253.shtml)
-- 2026-06-30 07:51 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/378196822.shtml)
-- 2026-06-30 07:55 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.minike.top/Article/details/764353.shtml)
-- 2026-06-30 07:40 - [刘宇宁是去进货了吗](https://www.blog.minike.top/Article/details/488301134.shtml)
-- 2026-06-30 08:05 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/873966214334.shtml)
-- 2026-06-30 07:47 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.minike.top/Article/details/574294.shtml)
-- 2026-06-30 07:52 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/2413330561.shtml)
-- 2026-06-30 07:39 - [德国巴拉圭加时](https://www.share.kurohicncr.top/Article/details/839276.shtml)
+- 2026-06-30 07:45 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.kurohicncr.top/Article/details/59551518369.shtml)
+- 2026-06-30 08:04 - [斗破苍穹](https://www.share.minike.top/Article/details/798777662.shtml)
+- 2026-06-30 08:00 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/8125515.shtml)
+- 2026-06-30 07:49 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/34225202489.shtml)
+- 2026-06-30 08:03 - [上市央企地产商 两年换了三任董事长](http://www.share.minike.top/Article/details/4390096440.shtml)
+- 2026-06-30 07:43 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/76840096.shtml)
+- 2026-06-30 07:58 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.minike.top/Article/details/940367435779.shtml)
+- 2026-06-30 07:54 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/503345335.shtml)
+- 2026-06-30 08:01 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/776020.shtml)
+- 2026-06-30 07:50 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/238333533.shtml)
+- 2026-06-30 08:03 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/765851.shtml)
+- 2026-06-30 07:50 - [老外对中国cosplay竟这样评价…](http://www.share.kurohicncr.top/Article/details/44724652099.shtml)
+- 2026-06-30 07:43 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](http://www.blog.kurohicncr.top/Article/details/1467511.shtml)
+- 2026-06-30 08:11 - [世界杯](https://www.blog.minike.top/Article/details/245069417337.shtml)
+- 2026-06-30 07:58 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/107772889.shtml)

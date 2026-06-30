@@ -1,60 +1,61 @@
-# 两岸媒体参访团走进大足石刻 共话中华文化根脉
+# SpaceX让Mag 7“略显过时”？华尔街需重新为大型科技股取酷炫绰号
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-中新网重庆6月23日电 (记者 钟旖)参加双城新动能·2026两岸媒体川渝行活动的两岸媒体参访团一行，23日走进世界文化遗产大足石刻，感受这座南方石窟艺术瑰宝的千年魅力。 大足石刻是重庆市大足区境内摩崖造像的总称，其始建于初唐，至两宋达到鼎盛，5万余尊石窟造像是公元9世纪至13世纪世界石窟艺术最高水平的代表之一，被誉为“世界石窟艺术史上最后的丰碑”，于1999年被联合国教科文组
+专题：SpaceX上市首秀：创纪录IPO首日涨19% 市值美股第七 SpaceX上周以超过2万亿美元的估值强势登陆市场，超越了华尔街“七巨头”（Mag 7）中的两家，并引发了一个关键问题：这个“七巨头”的称谓是否依然适用？如果不适用，又该用什么来取代它？ SpaceX上市是美国史上规模最大的IPO，使SpaceX的市值超越了“七巨头”中的两家：马斯克旗下的另一家公司特斯拉以及M
 
 ## 正文
 
-中新网重庆6月23日电 (记者 钟旖)参加双城新动能·2026两岸媒体川渝行活动的两岸媒体参访团一行，23日走进世界文化遗产大足石刻，感受这座南方石窟艺术瑰宝的千年魅力。
+专题：SpaceX上市首秀：创纪录IPO首日涨19% 市值美股第七 SpaceX上周以超过2万亿美元的估值强势登陆市场，超越了华尔街“七巨头”（Mag 7）中的两家，并引发了一个关键问题：这个“七巨头”的称谓是否依然适用？
 
-大足石刻是重庆市大足区境内摩崖造像的总称，其始建于初唐，至两宋达到鼎盛，5万余尊石窟造像是公元9世纪至13世纪世界石窟艺术最高水平的代表之一，被誉为“世界石窟艺术史上最后的丰碑”，于1999年被联合国教科文组织列入《世界遗产名录》。
+如果不适用，又该用什么来取代它？
 
-2019年，大足石刻获评重庆市对台交流基地，成为渝台文化交流的重要载体。
+SpaceX上市是美国史上规模最大的IPO，使SpaceX的市值超越了“七巨头”中的两家：马斯克旗下的另一家公司特斯拉以及Meta。
 
-参访团成员沿步道缓步前行，驻足“牧牛图”、千手观音、卧佛、父母恩重经变相等造像前，认真聆听讲解，用镜头定格石刻艺术之美，体悟工匠在千年前一锤一錾雕琢出的文明瑰宝。
+分析师表示，随着OpenAI和Anthropic等万亿美元级候选企业正蓄势待发准备上市，这个俱乐部可能很快需要改名。
 
-台湾资深媒体人、台湾大学教授苑举正表示，大足石刻所蕴含的“慈、善、孝、义、廉”等传统价值，正是中华文化能够源远流长的根基。
+Futurum Equities首席市场策略师Shay Boloor，表示，随着SpaceX的加入，“继续将‘Mag 7’作为市场领导地位的简称变得非常困难，因为全球最重要的公司之一就被排除在这个标签之外。
 
-他指出，大足石刻是让台湾年轻人重新认识中华文化伟大之处的生动教材。
+” 这些分组并非正式的市场分类，而是策略师、投资者和媒体为捕捉特定时刻最热门大盘股而创造的简写标签。
 
-“这是我第一次走进大陆石窟艺术，从前只在课本上知晓敦煌，从未想到西南地区藏着如此震撼的石刻宝库。
+此类称谓历史悠久，从20世纪60、70年代的“Nifty 50”到90年代末互联网泡沫时期的“四骑士”皆属此类。
 
-”台湾人民报记者刘世鑫说，他在千手观音造像前久久驻足，“造像的每一只手都雕刻得惟妙惟肖，工艺精湛，极具视觉冲击力。
+SpaceX的IPO引发了一场竞相构思下一个酷炫缩写词的热潮。
 
 ## 相关推荐
 
-- 2026-06-30 07:41 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
-- 2026-06-30 07:42 - [德国罚丢3粒点球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
-- 2026-06-30 07:52 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-30 07:44 - [三星投资计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
-- 2026-06-30 08:05 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-30 07:58 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
-- 2026-06-30 07:38 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-30 07:53 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-30 07:56 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-30 07:49 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-30 07:39 - [德国罚丢3粒点球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-30 08:00 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
-- 2026-06-30 07:50 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
-- 2026-06-30 07:43 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-30 07:44 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-30 08:03 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-30 07:46 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-30 07:58 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-30 07:55 - [全新问界M9现身美国街头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-30 07:56 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
+- 2026-06-30 07:53 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-30 08:05 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-30 08:02 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-30 08:07 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
+- 2026-06-30 07:48 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-30 07:58 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-30 07:49 - [森保一 保守](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-30 07:51 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-30 07:45 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:51 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.minike.top/Article/details/520826831897.shtml)
-- 2026-06-30 07:58 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/77699605957.shtml)
-- 2026-06-30 07:49 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/681859.shtml)
-- 2026-06-30 07:39 - [警犬“多多”助民警寻回失联老人](https://www.blog.kurohicncr.top/Article/details/58608.shtml)
-- 2026-06-30 07:45 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.kurohicncr.top/Article/details/1993668285.shtml)
-- 2026-06-30 07:49 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/127785130.shtml)
-- 2026-06-30 07:58 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/9018469490.shtml)
-- 2026-06-30 07:48 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/698417.shtml)
-- 2026-06-30 07:47 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/93534212.shtml)
-- 2026-06-30 07:54 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/72498.shtml)
-- 2026-06-30 07:54 - [中国新一轮出口管制直指日本命脉](https://www.share.minike.top/Article/details/884691997962.shtml)
-- 2026-06-30 07:58 - [《男人至死是傻得儿》](https://www.share.minike.top/Article/details/93908396.shtml)
-- 2026-06-30 07:36 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/4820127725.shtml)
-- 2026-06-30 07:52 - [啊啊啊](http://www.blog.minike.top/Article/details/1652752.shtml)
-- 2026-06-30 08:05 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/030529260077.shtml)
+- 2026-06-30 08:05 - [媒体评泰山建135公里刀片刺绳隔离网](https://www.share.minike.top/Article/details/33906.shtml)
+- 2026-06-30 07:43 - [德国队连续三届世界杯无缘16强](http://www.blog.kurohicncr.top/Article/details/359694534.shtml)
+- 2026-06-30 08:10 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/66026.shtml)
+- 2026-06-30 07:57 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/303531.shtml)
+- 2026-06-30 07:58 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/22527908446.shtml)
+- 2026-06-30 08:00 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/070579367495.shtml)
+- 2026-06-30 07:45 - [花少8要去世界杯举办国](http://www.share.kurohicncr.top/Article/details/533210334.shtml)
+- 2026-06-30 08:03 - [德国淘汰](https://www.blog.kurohicncr.top/Article/details/94502.shtml)
+- 2026-06-30 07:53 - [全球芯片巨头史诗级扩产](https://www.share.minike.top/Article/details/757717598.shtml)
+- 2026-06-30 07:56 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.minike.top/Article/details/912836886.shtml)
+- 2026-06-30 07:49 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/875333.shtml)
+- 2026-06-30 07:42 - [《共患难》](http://www.blog.kurohicncr.top/Article/details/60278.shtml)
+- 2026-06-30 07:59 - [藤森庆子赢得秘鲁总统选举](http://www.blog.minike.top/Article/details/93749.shtml)
+- 2026-06-30 07:43 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/623589822277.shtml)
+- 2026-06-30 07:50 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/381699.shtml)

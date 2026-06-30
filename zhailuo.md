@@ -1,60 +1,52 @@
-# 南方持续较强降雨，湘黔桂等地降雨与前期落区重叠致灾风险高
+# 三星集团成立能源业务特别工作组
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-2026年6月24日，中央气象台预计，我国南方地区仍将出现大范围较强降雨，并伴有短时强降水、雷暴大风等强对流天气，广西、贵州、湖南等地累计雨量大、与前期降雨落区重叠，致灾风险持续增高，需做好山洪、地质灾害、中小河流洪水等次生灾害防御工作。 与此同时，今年第7号台风“米克拉”已加强为超强台风级，逐渐向台湾岛东南洋面靠近，24日开始将转向东北方向移动，强度逐渐减弱。 澎湃新闻注意到
+三星集团已组建高管特别工作组，探讨将能源领域作为未来新业务板块，并协调三星旗下各子公司间的合作事宜。韩国《每日经济新闻》援引三星一位未具名高级管理人员的话报道了这一消息。该特别工作组还计划在能源领域寻找并购目标。三星电子、三星 SDS、三星 SDI、三星物产、三星工程建设及三星重工的高管将参与该特别工作组。特别工作组正研究整个能源行业价值链，涵盖能源供需、建设项目合同、发电、电
 
 ## 正文
 
-2026年6月24日，中央气象台预计，我国南方地区仍将出现大范围较强降雨，并伴有短时强降水、雷暴大风等强对流天气，广西、贵州、湖南等地累计雨量大、与前期降雨落区重叠，致灾风险持续增高，需做好山洪、地质灾害、中小河流洪水等次生灾害防御工作。
+三星集团已组建高管特别工作组，探讨将能源领域作为未来新业务板块，并协调三星旗下各子公司间的合作事宜。
 
-与此同时，今年第7号台风“米克拉”已加强为超强台风级，逐渐向台湾岛东南洋面靠近，24日开始将转向东北方向移动，强度逐渐减弱。
+韩国《每日经济新闻》援引三星一位未具名高级管理人员的话报道了这一消息。
 
-澎湃新闻注意到，从6月18日起，副热带高压明显北抬，暖湿气流加强北上，主雨带维持在广西北部、贵州南部至长江中下游一带，持续多日的降雨导致土壤含水量持续饱和，山洪、地质灾害、中小河流洪水等次生灾害风险显著上升。
+该特别工作组还计划在能源领域寻找并购目标。
 
-6月24日，贵州、广西至江南地区降雨持续，江南地区降雨较22日减弱，强降雨主要出现在云南、贵州、广西等地。
+三星电子、三星 SDS、三星 SDI、三星物产、三星工程建设及三星重工的高管将参与该特别工作组。
 
-其中，贵州中南部、广西中北部、云南东部、湖南南部、江西中部、浙江等地部分地区有大到暴雨，贵州南部、广西北部、云南东南部等地局地有大暴雨（100毫米至240毫米）；上述部分地区伴有短时强降水（最大小时降雨量30毫米至50毫米，局地可超过80毫米），局地有雷暴大风等强对流天气。
+特别工作组正研究整个能源行业价值链，涵盖能源供需、建设项目合同、发电、电网、核电站及人工智能数据中心等领域。
 
-25日至27日，南方强降雨将南压到云南、贵州、广西北部到江南中南部一带，强度也会有所减弱，以中到大雨为主，局地暴雨或大暴雨。
-
-气象专家提醒，南方强降雨天气持续，公众外出时需注意安全，贵州、云南西部、广西北部、福建等地累计雨量大，局地发生山洪、地质灾害风险较高，应避免前往山谷、河道等低洼地带，相关部门注意做好暴雨次生灾害防御工作。
-
-同时，今年第7号台风“米克拉”于22日上午加强为超强台风级，23日8时位于台湾鹅銮鼻东南方向约570公里的菲律宾东北洋面上。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 07:39 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-30 07:56 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-30 07:47 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-30 07:43 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-30 08:00 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-30 07:58 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
-- 2026-06-30 07:45 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-30 07:55 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-30 07:52 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-30 07:58 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
-- 2026-06-30 08:04 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
-- 2026-06-30 07:38 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-30 07:45 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
-- 2026-06-30 07:39 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-30 07:50 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-30 07:42 - [日本队5进世界杯淘汰赛0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-30 07:44 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-30 07:53 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-30 08:08 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
+- 2026-06-30 08:06 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-30 07:55 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-30 08:01 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-30 08:09 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-30 08:01 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:51 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/295706.shtml)
-- 2026-06-30 07:50 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/279252964519.shtml)
-- 2026-06-30 07:43 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/4606395.shtml)
-- 2026-06-30 08:04 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/04329446398.shtml)
-- 2026-06-30 08:00 - [老外对中国cosplay竟这样评价…](http://www.share.minike.top/Article/details/621051648168.shtml)
-- 2026-06-30 08:04 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/11392.shtml)
-- 2026-06-30 08:01 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://www.share.minike.top/Article/details/6579919.shtml)
-- 2026-06-30 07:38 - [豆包收费了，你还会用吗？](https://www.blog.minike.top/Article/details/53744.shtml)
-- 2026-06-30 07:54 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/600674175.shtml)
-- 2026-06-30 07:43 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/698185.shtml)
-- 2026-06-30 07:54 - [又一美国科技巨头转向中国大模型](https://www.blog.minike.top/Article/details/3356534109.shtml)
-- 2026-06-30 07:55 - [郑钦文温网三连败西尼亚科娃](https://www.blog.kurohicncr.top/Article/details/19256826788.shtml)
-- 2026-06-30 07:37 - [千香](https://www.blog.minike.top/Article/details/181663.shtml)
-- 2026-06-30 08:01 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.share.kurohicncr.top/Article/details/9662250.shtml)
-- 2026-06-30 07:44 - [德国 传控](http://www.blog.kurohicncr.top/Article/details/58226.shtml)
+- 2026-06-30 07:59 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/496948617.shtml)
+- 2026-06-30 07:42 - [德国巴拉圭进入点球大战](https://www.share.kurohicncr.top/Article/details/51652627063.shtml)
+- 2026-06-30 07:43 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/9879922715.shtml)
+- 2026-06-30 07:57 - [萨内 看笑了](https://www.share.kurohicncr.top/Article/details/2155422.shtml)
+- 2026-06-30 07:58 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/213046471.shtml)
+- 2026-06-30 08:00 - [孙兴慜发长文致歉](http://www.share.minike.top/Article/details/56385282.shtml)
+- 2026-06-30 07:51 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/51684845.shtml)
+- 2026-06-30 08:02 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.kurohicncr.top/Article/details/070690330.shtml)
+- 2026-06-30 07:54 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/302954664053.shtml)
+- 2026-06-30 08:02 - [董卿父亲报纸上发文悼念亡妻](https://www.share.minike.top/Article/details/33798933156.shtml)
+- 2026-06-30 08:08 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.minike.top/Article/details/99575885581.shtml)
+- 2026-06-30 08:11 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/55672.shtml)
+- 2026-06-30 08:05 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/371900025.shtml)
+- 2026-06-30 08:05 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/851561.shtml)
+- 2026-06-30 08:01 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/85916473985.shtml)

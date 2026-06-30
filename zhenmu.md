@@ -1,57 +1,60 @@
-# 四川大竹：千年“中国草”串起“三产” 织就城乡“共富图”
+# 天津推千余项夏日文旅活动 八大主题覆盖多元场景
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-中新网达州6月22日电 (程一凡 张浪)6月下旬，川东大地绿意盎然。走进四川省达州市大竹县川主乡苎麻核心产区，田间地头打麻机轰鸣不绝，村民们抢抓晴好天气收割、打剥、转运，新鲜湿麻整齐码放，等待运往晾晒场与加工厂。 这株被外国人称为“中国草”的苎麻，已在大竹扎根三千余年。如今，这株穿越千年的古老植物迎来前所未有的新生。大竹县以“一县一业”为抓手，推动苎麻产业从传统种植向科技赋能转
+中新网天津6月14日电 (薛淳月 周亚强)以“夏日清新 独爱天津”为主题的2026天津夏季和端午假期文旅活动发布会13日晚在天津美术馆举办。天津围绕夏季及端午假期统筹策划1000余项文旅活动，并集中发布八大主题100项特色内容，覆盖景区、文博场馆、商圈街区、乡村田园等多元场景，进一步丰富优质文旅供给，激发假日消费潜力。 本次活动围绕“天天乐道 津津有味——天津始‘钟’‘响’你”
 
 ## 正文
 
-中新网达州6月22日电 (程一凡 张浪)6月下旬，川东大地绿意盎然。
+中新网天津6月14日电 (薛淳月 周亚强)以“夏日清新 独爱天津”为主题的2026天津夏季和端午假期文旅活动发布会13日晚在天津美术馆举办。
 
-走进四川省达州市大竹县川主乡苎麻核心产区，田间地头打麻机轰鸣不绝，村民们抢抓晴好天气收割、打剥、转运，新鲜湿麻整齐码放，等待运往晾晒场与加工厂。
+天津围绕夏季及端午假期统筹策划1000余项文旅活动，并集中发布八大主题100项特色内容，覆盖景区、文博场馆、商圈街区、乡村田园等多元场景，进一步丰富优质文旅供给，激发假日消费潜力。
 
-这株被外国人称为“中国草”的苎麻，已在大竹扎根三千余年。
+本次活动围绕“天天乐道 津津有味——天津始‘钟’‘响’你”城市文旅品牌，以水波荡漾、夏日清凉、粽情欢唱、桥边乐章、赛事激荡、山野风光、嗨啤疯狂、文脉流芳八大主题，融合演艺演出、文博展览、民俗体验、水上运动、啤酒节庆、美食市集等业态。
 
-如今，这株穿越千年的古老植物迎来前所未有的新生。
+其中，“桥边乐章”推出京剧、交响乐、芭蕾等多元文化风格和主题的演出，“赛事激荡”依托天津市海河足球超级联赛、天津海河龙舟系列赛等赛事开展相关活动。
 
-大竹县以“一县一业”为抓手，推动苎麻产业从传统种植向科技赋能转型、从初加工向精深加工升级、从单一产业向三产融合延伸，一根苎麻串起育苗、种植、加工、纺织、文旅完整产业链，不仅让近5万户麻农增收致富，更让当地走出一条特色产业赋能乡村振兴、带动城乡融合的新路径。
+端午假期期间，天津还将推出“粽情天地 嗨啤津夏”主题活动，以啤酒美食节、特色市集等活动吸引消费者参与。
 
-传统苎麻种植曾受育苗难、剥麻累、效率低“三难”困扰，种植收益微薄。
+活动现场，爱达邮轮有限公司发布2026年天津航季全新航线计划，在2026年天津航季中，爱达·地中海号将运营25个国际邮轮航次，覆盖暑期、中秋及国庆假期。
 
-川主乡铁佛村81岁的李方文深耕种麻数十年，手上磨亮的竹筒见证着往昔艰辛，过去一亩苎麻需两人劳作20天，辛苦一年收入寥寥。
+天津邮政联合天津市文旅局甄选20处津城地标，共创城市地标盲袋产品，构建“一戳配一景”的城市漫游新玩法。
 
-如今科技赋能彻底改写传统种麻模式，实现提质增效。
+同时，河西区推出“河西之夜”灯光秀、城市星空露营节、水上运动嘉年华等活动；滨海新区发布东疆湾沙滩音乐节、国家海洋博物馆夜场研学等产品。
 
 ## 相关推荐
 
-- 2026-06-30 07:38 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-30 07:44 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-30 08:01 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-30 07:48 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
-- 2026-06-30 07:57 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
-- 2026-06-30 07:46 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-30 07:49 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-30 07:39 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-30 07:48 - [老外对中国cosplay竟这样评价…](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-30 07:58 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-30 07:36 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
+- 2026-06-30 07:42 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-30 07:52 - [女子遭下药退赔偿拟追刑责](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-30 08:04 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-30 07:44 - [德国淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-30 08:11 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-30 07:56 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-30 07:43 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-30 07:57 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
+- 2026-06-30 08:04 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-30 08:05 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-30 08:02 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-30 08:01 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-30 07:46 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
+- 2026-06-30 07:45 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:36 - [张帅晋级温网次轮](https://www.blog.minike.top/Article/details/64681071596.shtml)
-- 2026-06-30 07:52 - [IGN评测电影版后室](http://www.blog.minike.top/Article/details/452783230930.shtml)
-- 2026-06-30 08:04 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.minike.top/Article/details/80933271410.shtml)
-- 2026-06-30 07:37 - [安切洛蒂 换人](http://www.share.kurohicncr.top/Article/details/901863601.shtml)
-- 2026-06-30 07:37 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/557390073.shtml)
-- 2026-06-30 07:57 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/99421371.shtml)
-- 2026-06-30 07:55 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/8692048573.shtml)
-- 2026-06-30 07:44 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/9988919185.shtml)
-- 2026-06-30 07:42 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.kurohicncr.top/Article/details/49346.shtml)
-- 2026-06-30 07:45 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/182402.shtml)
-- 2026-06-30 08:05 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/15884.shtml)
-- 2026-06-30 07:39 - [萨内 看笑了](https://www.share.kurohicncr.top/Article/details/9436846406.shtml)
-- 2026-06-30 07:58 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/081403.shtml)
-- 2026-06-30 07:45 - [女子清吧被陌生人投放伟哥](https://www.blog.kurohicncr.top/Article/details/1806630.shtml)
-- 2026-06-30 07:43 - [本届世界杯已有5名球员被控强奸](https://www.share.kurohicncr.top/Article/details/224103952734.shtml)
+- 2026-06-30 08:02 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/076704470.shtml)
+- 2026-06-30 08:00 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.share.minike.top/Article/details/315799272.shtml)
+- 2026-06-30 08:02 - [巴西半场0比1日本](https://www.share.minike.top/Article/details/842010759.shtml)
+- 2026-06-30 08:08 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.minike.top/Article/details/2430234707.shtml)
+- 2026-06-30 08:05 - [卢卡申科发布解放军仪仗队视频](http://www.blog.kurohicncr.top/Article/details/431377976440.shtml)
+- 2026-06-30 08:04 - [武磊：巴西队赢的并不轻松](https://www.blog.minike.top/Article/details/155313.shtml)
+- 2026-06-30 08:06 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/22155927721.shtml)
+- 2026-06-30 08:03 - [DeepSeek V4正式版要来了](http://www.share.minike.top/Article/details/082244383943.shtml)
+- 2026-06-30 07:57 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](http://www.blog.minike.top/Article/details/967273131708.shtml)
+- 2026-06-30 08:10 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.minike.top/Article/details/6710209264.shtml)
+- 2026-06-30 07:44 - [巴西足球能否再现昔日荣光](http://www.share.kurohicncr.top/Article/details/6011469704.shtml)
+- 2026-06-30 08:06 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/675195638905.shtml)
+- 2026-06-30 08:05 - [IGN评测电影版后室](http://www.blog.kurohicncr.top/Article/details/5376327986.shtml)
+- 2026-06-30 07:47 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/4772603097.shtml)
+- 2026-06-30 08:11 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/97678606374.shtml)

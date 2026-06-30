@@ -1,54 +1,58 @@
-# 藏韵街舞润甘南 公益助燃少年艺术梦
+# 心电一张网、慢病一盘棋 山西侯马探路县域医改
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月22日 18:57 来源：中国新闻网 6月21日，“华夏街舞·大国少年”青少年街舞美育计划(甘肃站)暨“情暖甘南·艺燃希望”第九届街舞进校园公益助学活动启动仪式在兰州举行。 来自中国澳门、广东、河南、浙江、甘肃等地的支教团队将历时5天奔赴甘肃省甘南藏族自治州三个县的三所小学，系统普及标准化街舞基础动作与技巧，助力高原青少年提升艺术素养。 谈及甘南美育特
+中新网临汾6月15日电 题：心电一张网、慢病一盘棋 山西侯马探路县域医改 中新网记者 范丽芳 2026年5月，山西临汾侯马市小里村的曹强(化名)突感胸闷气短，立刻到该村卫生所就诊。村医使用当地统一配备的便携式智能心电仪为其采集心电图。几分钟后，紧急数据出现在侯马市人民医院“心电平台”上，胸痛中心绿色通道立刻开启，转诊、接诊、手术……医生为其植入心脏起搏器后，患者转危为安。 这样
 
 ## 正文
 
-发布时间：2026年06月22日 18:57 来源：中国新闻网 6月21日，“华夏街舞·大国少年”青少年街舞美育计划(甘肃站)暨“情暖甘南·艺燃希望”第九届街舞进校园公益助学活动启动仪式在兰州举行。
+中新网临汾6月15日电 题：心电一张网、慢病一盘棋 山西侯马探路县域医改 中新网记者 范丽芳 2026年5月，山西临汾侯马市小里村的曹强(化名)突感胸闷气短，立刻到该村卫生所就诊。
 
-来自中国澳门、广东、河南、浙江、甘肃等地的支教团队将历时5天奔赴甘肃省甘南藏族自治州三个县的三所小学，系统普及标准化街舞基础动作与技巧，助力高原青少年提升艺术素养。
+村医使用当地统一配备的便携式智能心电仪为其采集心电图。
 
-谈及甘南美育特色，广东省佛山市街舞联盟秘书长、市新联会街舞工委会副主任霍建烽说：“这有力地促进了中华民族青少年交往交流交融。
+几分钟后，紧急数据出现在侯马市人民医院“心电平台”上，胸痛中心绿色通道立刻开启，转诊、接诊、手术……医生为其植入心脏起搏器后，患者转危为安。
 
-”澳门街舞文化协会会长吕俊能表示，甘南“传统+潮流”的特色舞蹈极具传播价值，未来将把甘南藏韵新潮舞蹈文化推向粤港澳大湾区乃至国际舞台。
+这样的“幸运”，并非偶然。
 
-依托多年美育探索，甘南当地已形成成熟的融合创编思路，采用“藏韵开篇、潮流递进”的创作模式，将甘南热门说唱曲目、经典锅庄舞步融入街舞编排，适配青少年审美特点，也频频出圈。
+近日，记者跟随2026年山西省卫健委“媒体走基层”调研采访活动走进侯马。
 
-(王牧雨 闫姣） 责任编辑：【罗攀】
+2023年11月，侯马建成覆盖全域的“心电一张网”。
+
+90台网络心电图机被统一配备到乡镇卫生院、社区卫生服务中心和村卫生所。
+
+一套“基层采集、云端传输、市级诊断、实时反馈、分级救治”的闭环模式由此成形。
 
 ## 相关推荐
 
-- 2026-06-30 07:49 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-30 07:53 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
-- 2026-06-30 07:58 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-30 07:56 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
-- 2026-06-30 07:42 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
-- 2026-06-30 08:03 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-30 08:02 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-30 07:38 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-30 07:38 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-30 08:01 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-30 08:00 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-30 07:53 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-30 08:09 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-30 07:58 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-30 07:57 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-30 07:47 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-30 07:58 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
+- 2026-06-30 07:42 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-30 07:54 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
+- 2026-06-30 08:06 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-30 07:54 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-30 07:52 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-30 07:47 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-30 08:08 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:47 - [全球芯片巨头史诗级扩产](http://www.blog.kurohicncr.top/Article/details/829464646965.shtml)
-- 2026-06-30 07:52 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/63650329.shtml)
-- 2026-06-30 08:01 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/414298929417.shtml)
-- 2026-06-30 08:02 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/0793159018.shtml)
-- 2026-06-30 07:41 - [上市央企地产商 两年换了三任董事长](http://www.blog.kurohicncr.top/Article/details/1198490.shtml)
-- 2026-06-30 08:05 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.minike.top/Article/details/76076359614.shtml)
-- 2026-06-30 08:05 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/41833076576.shtml)
-- 2026-06-30 08:02 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/866184933.shtml)
-- 2026-06-30 07:44 - [流金岁月](http://www.share.kurohicncr.top/Article/details/15782.shtml)
-- 2026-06-30 08:05 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/375217928165.shtml)
-- 2026-06-30 07:53 - [媒体评泰山建135公里刀片刺绳隔离网](https://www.blog.minike.top/Article/details/421236657398.shtml)
-- 2026-06-30 07:50 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/62136.shtml)
-- 2026-06-30 07:48 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/33653.shtml)
-- 2026-06-30 07:44 - [大蒜晒外面被路过女子连盆端走](http://www.blog.kurohicncr.top/Article/details/085231339514.shtml)
-- 2026-06-30 07:45 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/47575.shtml)
+- 2026-06-30 08:08 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://www.blog.kurohicncr.top/Article/details/2386798381.shtml)
+- 2026-06-30 07:50 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/3774966177.shtml)
+- 2026-06-30 07:57 - [网红峡谷5人溺亡 有人提醒会下雨](http://www.blog.minike.top/Article/details/880645.shtml)
+- 2026-06-30 08:11 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/09074053.shtml)
+- 2026-06-30 07:44 - [日本博主：日本足球真的垃圾](http://www.blog.minike.top/Article/details/315467866346.shtml)
+- 2026-06-30 08:09 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.share.minike.top/Article/details/32496812530.shtml)
+- 2026-06-30 08:08 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.minike.top/Article/details/0578918.shtml)
+- 2026-06-30 08:03 - [孙兴慜发长文致歉](http://www.blog.kurohicncr.top/Article/details/049951221142.shtml)
+- 2026-06-30 07:42 - [马耳他著名拱门坍塌致中国男子身亡](http://www.blog.minike.top/Article/details/672555518673.shtml)
+- 2026-06-30 08:06 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/305991561122.shtml)
+- 2026-06-30 07:54 - [赛博朋克边缘行者2预告片](https://www.share.kurohicncr.top/Article/details/3178707.shtml)
+- 2026-06-30 07:59 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/336862.shtml)
+- 2026-06-30 07:43 - [一生一世](http://www.blog.minike.top/Article/details/001942154926.shtml)
+- 2026-06-30 07:45 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/555316390185.shtml)
+- 2026-06-30 07:59 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/5317791656.shtml)

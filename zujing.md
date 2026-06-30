@@ -1,58 +1,56 @@
-# 王毅谈美伊冲突的启示
+# 跌至近1年低位后，同类规模最大金融科技ETF异动拉升，虚晃一枪还是绝地反攻？
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社新德里6月23日电（记者陈冬书伍岳）6月23日，中共中央政治局委员、中央外办主任王毅在新德里出席金砖国家安全事务高级代表会议时表示，近日美国和伊朗达成第一阶段谅解备忘录，这场百余天的冲突严重冲击地区和国际局势，也给我们带来深刻启示： 一是维护国际规则的重要性。任何国际和地区热点问题的解决都应以遵守国际
+周五（6月12日），市场风格再度切换，大金融久违活跃，金融科技板块低位反弹。成份股大面积飘红，赢时胜20CM涨停，财富趋势大涨10.84%，指南针收涨10%，银之杰、同花顺、中科金财、大智慧等多股涨超5%。 热门ETF方面，前一日下探近1年新低后，同类规模最大的金融科技ETF华宝（159851）异动走高，场内收涨3.66%站上五日线，环比放量成交3.65亿元。 中长期来看，当前
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+周五（6月12日），市场风格再度切换，大金融久违活跃，金融科技板块低位反弹。
 
-新华社新德里6月23日电（记者陈冬书伍岳）6月23日，中共中央政治局委员、中央外办主任王毅在新德里出席金砖国家安全事务高级代表会议时表示，近日美国和伊朗达成第一阶段谅解备忘录，这场百余天的冲突严重冲击地区和国际局势，也给我们带来深刻启示： 一是维护国际规则的重要性。
+成份股大面积飘红，赢时胜20CM涨停，财富趋势大涨10.84%，指南针收涨10%，银之杰、同花顺、中科金财、大智慧等多股涨超5%。
 
-任何国际和地区热点问题的解决都应以遵守国际规则为前提，丛林法则可以得逞一时，但不可持续。
+热门ETF方面，前一日下探近1年新低后，同类规模最大的金融科技ETF华宝（159851）异动走高，场内收涨3.66%站上五日线，环比放量成交3.65亿元。
 
-二是尊重国家主权的重要性。
+中长期来看，当前金融科技板块强催化与低估值共振。
 
-领土完整不受侵犯、一国内政不容干涉，这是最基本的国际道义底线。
+一方面，市场交投持续活跃，叠加AI技术赋能，为互联网券商及金融IT提供坚实的基本面支撑；另一方面，板块经历回调后估值回落至近三年历史低位，安全边际与弹性空间并存。
 
-三是树立新安全观的重要性。
+西部证券表示，金融科技板块或迎盈利兑现驱动估值修复的奇点时刻。
 
-各国越来越成为命运相连的共同体，以牺牲别国安全为代价，寻求自身绝对安全只会反噬自身。
+* 交投方面，A股成交连续突破2.5万亿元。
 
-四是把握新战争形态的重要性。
+金融科技强贝塔属性突出，高流动性下板块有望持续受益：互联网券商基本面预期有望持续改善，金融IT等作为顺周期高弹性品种，也持续受益于高流动性，C端炒股软件景气度向上，B端金融IT需求逐步释放。
 
 ## 相关推荐
 
-- 2026-06-30 07:45 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-30 08:02 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
-- 2026-06-30 08:03 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-30 07:48 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-30 07:37 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-30 07:37 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-30 08:01 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
-- 2026-06-30 07:42 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-30 07:41 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-30 08:02 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
-- 2026-06-30 07:59 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
-- 2026-06-30 07:39 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-30 08:05 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-30 08:02 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-30 07:44 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
+- 2026-06-30 07:57 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
+- 2026-06-30 07:52 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-30 08:06 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-30 07:43 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
+- 2026-06-30 08:10 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-30 07:51 - [德国队世界杯点球大战首败](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-30 08:05 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:04 - [啊啊啊](http://www.blog.minike.top/Article/details/9036592110.shtml)
-- 2026-06-30 07:42 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/64172.shtml)
-- 2026-06-30 07:38 - [日本 高位逼抢](http://www.share.minike.top/Article/details/8342412.shtml)
-- 2026-06-30 08:02 - [上市央企地产商 两年换了三任董事长](http://www.blog.minike.top/Article/details/805433047896.shtml)
-- 2026-06-30 07:37 - [德国 传控](http://www.share.minike.top/Article/details/54222087.shtml)
-- 2026-06-30 07:54 - [库尼亚赛后伸五指嘲讽日本](https://www.blog.kurohicncr.top/Article/details/471883330.shtml)
-- 2026-06-30 07:44 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/0165967499.shtml)
-- 2026-06-30 07:47 - [被巴西绝杀后 日球员田中碧跪地痛哭](http://www.share.minike.top/Article/details/81854460.shtml)
-- 2026-06-30 07:55 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/23589704.shtml)
-- 2026-06-30 07:39 - [王健林甩卖超80座万达广场](https://www.share.minike.top/Article/details/031590005.shtml)
-- 2026-06-30 07:49 - [佐野海舟远射破门](http://www.blog.kurohicncr.top/Article/details/46514908741.shtml)
-- 2026-06-30 08:01 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.blog.minike.top/Article/details/49082.shtml)
-- 2026-06-30 07:55 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/32984.shtml)
-- 2026-06-30 08:01 - [德国队连续三届世界杯无缘16强](http://www.blog.minike.top/Article/details/766125907748.shtml)
-- 2026-06-30 07:46 - [审核了不止十年的低创鬼畜](https://www.blog.minike.top/Article/details/48847679.shtml)
+- 2026-06-30 07:58 - [卡塞米罗头球破门 巴西扳平日本](https://www.share.kurohicncr.top/Article/details/28419284.shtml)
+- 2026-06-30 07:52 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/19242504567.shtml)
+- 2026-06-30 07:44 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/581027.shtml)
+- 2026-06-30 07:49 - [人类...完蛋了...](http://www.blog.kurohicncr.top/Article/details/8727447.shtml)
+- 2026-06-30 08:00 - [媒体：手机测评该挤挤水分了](https://www.share.kurohicncr.top/Article/details/06613.shtml)
+- 2026-06-30 08:04 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/267800967354.shtml)
+- 2026-06-30 07:50 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/307458800933.shtml)
+- 2026-06-30 08:02 - [刘必安等16人非法集资案二审宣判](http://www.blog.kurohicncr.top/Article/details/7679301.shtml)
+- 2026-06-30 07:57 - [这种关系可能正在悄悄“催老”你](https://www.share.minike.top/Article/details/154631916.shtml)
+- 2026-06-30 07:56 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/44958143884.shtml)
+- 2026-06-30 07:46 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/0040883.shtml)
+- 2026-06-30 07:45 - [巴西醒醒 这是淘汰赛](http://www.blog.minike.top/Article/details/300707308.shtml)
+- 2026-06-30 07:58 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/23671.shtml)
+- 2026-06-30 07:43 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/178941.shtml)
+- 2026-06-30 07:46 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/098650043267.shtml)

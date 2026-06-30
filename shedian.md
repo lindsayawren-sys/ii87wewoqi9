@@ -1,49 +1,57 @@
-# 盛龙股份：截至2025年末，公司保有钼金属量70.06万吨
+# 为什么是新浪财经的芝麻AI助手？投资理财选他的五大理由
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-证券日报网讯 6月22日，盛龙股份在互动平台回答投资者提问时表示，截至2025年末，公司保有钼金属量70.06万吨，保有共、伴生资源三氧化钨量5.53万吨，目前尚无产出钨精矿。根据公司所属南泥湖钼矿矿产资源开发利用方案，未来可产出钨精矿。（文章来源：证券日报）
+2026年的资本市场早已告别了“闭眼开户就能赚钱”的粗放时代。随着AI技术深度渗透金融领域，投资者面临的不再是信息匮乏，而是海量研报、实时快讯和复杂财报带来的信息过载。中国A股个人投资者数量已突破2.5亿，证券类APP月活用户稳定在1.7亿以上，全球AI驱动的智能投顾市场正以47.9%的年复合增长率爆发。在这个AI理财工具百花齐放的年份，选择谁，已不再是“赶时髦”，而是关乎决策
 
 ## 正文
 
-证券日报网讯 6月22日，盛龙股份在互动平台回答投资者提问时表示，截至2025年末，公司保有钼金属量70.06万吨，保有共、伴生资源三氧化钨量5.53万吨，目前尚无产出钨精矿。
+2026年的资本市场早已告别了“闭眼开户就能赚钱”的粗放时代。
 
-根据公司所属南泥湖钼矿矿产资源开发利用方案，未来可产出钨精矿。
+随着AI技术深度渗透金融领域，投资者面临的不再是信息匮乏，而是海量研报、实时快讯和复杂财报带来的信息过载。
 
-（文章来源：证券日报）
+中国A股个人投资者数量已突破2.5亿，证券类APP月活用户稳定在1.7亿以上，全球AI驱动的智能投顾市场正以47.9%的年复合增长率爆发。
+
+在这个AI理财工具百花齐放的年份，选择谁，已不再是“赶时髦”，而是关乎决策效率与资产安全的必然选择。
+
+经过多维度实测对比，新浪财经自主研发的芝麻AI助手凭借五大核心优势，成为2026年投资理财的最优之选。
+
+理由一：合规为基，数据权威——杜绝“AI幻觉”的金融生命线 金融领域最核心的底线是“真实”。
+
+在此维度上，芝麻AI建立了行业最高的护城河。
+
+与通用大模型在金融场景中频频暴露的数据滞后、信息来源不明等短板不同，芝麻AI已正式通过北京市生成式AI服务备案。
 
 ## 相关推荐
 
-- 2026-06-30 07:38 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-30 08:05 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
-- 2026-06-30 08:04 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-30 07:42 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-30 07:39 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-30 08:00 - [张雪的一句“是我们”引发岛内热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-30 07:38 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-30 07:53 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
-- 2026-06-30 08:03 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
-- 2026-06-30 07:52 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-30 07:58 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-30 07:49 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-30 07:46 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-30 07:58 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-30 07:47 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-30 08:01 - [现在叛逆期的孩子最怕的是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-30 08:01 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-30 07:56 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-30 07:42 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-30 07:54 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-30 07:42 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-30 07:52 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-30 08:07 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-30 07:50 - [德国罚丢3粒点球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:38 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/152401184452.shtml)
-- 2026-06-30 07:56 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/997236489242.shtml)
-- 2026-06-30 07:50 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/363883321.shtml)
-- 2026-06-30 07:40 - [王楚钦孙颖莎晋级混双八强](https://www.blog.minike.top/Article/details/379555736.shtml)
-- 2026-06-30 07:59 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/73197.shtml)
-- 2026-06-30 07:50 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/8730522.shtml)
-- 2026-06-30 07:40 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/888512242181.shtml)
-- 2026-06-30 07:52 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.minike.top/Article/details/2136586049.shtml)
-- 2026-06-30 08:02 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://www.share.minike.top/Article/details/92632668.shtml)
-- 2026-06-30 07:52 - [峡谷事故团队组队时有人提醒会下雨](http://www.share.kurohicncr.top/Article/details/240835668372.shtml)
-- 2026-06-30 07:42 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.minike.top/Article/details/395145.shtml)
-- 2026-06-30 07:59 - [男子身高一米八二仍做断骨增高](https://www.blog.kurohicncr.top/Article/details/697303863835.shtml)
-- 2026-06-30 07:36 - [高质量发展看新疆](http://www.blog.minike.top/Article/details/914133.shtml)
-- 2026-06-30 07:39 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/5692816557.shtml)
-- 2026-06-30 07:47 - [卡塞米罗头球破门 巴西扳平日本](http://www.blog.minike.top/Article/details/23055726213.shtml)
+- 2026-06-30 07:48 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/41222546.shtml)
+- 2026-06-30 07:48 - [泰山景区回应修建刀片刺绳隔离网](https://www.blog.kurohicncr.top/Article/details/82090562933.shtml)
+- 2026-06-30 08:11 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/536177596.shtml)
+- 2026-06-30 07:46 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.kurohicncr.top/Article/details/89541.shtml)
+- 2026-06-30 07:59 - [请回答王牌2019](https://www.share.minike.top/Article/details/97449066.shtml)
+- 2026-06-30 08:04 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/9070324248.shtml)
+- 2026-06-30 08:03 - [亚洲球队全部告别世界杯](http://www.share.minike.top/Article/details/750688959220.shtml)
+- 2026-06-30 07:43 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.kurohicncr.top/Article/details/23135179578.shtml)
+- 2026-06-30 08:01 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/235791786463.shtml)
+- 2026-06-30 07:51 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/281149739.shtml)
+- 2026-06-30 08:04 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/57885.shtml)
+- 2026-06-30 07:58 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.kurohicncr.top/Article/details/609799375.shtml)
+- 2026-06-30 08:03 - [巴西绝杀](http://www.blog.minike.top/Article/details/245244831058.shtml)
+- 2026-06-30 08:11 - [张碧晨一开口梦回逐玉](https://www.blog.kurohicncr.top/Article/details/21955166835.shtml)
+- 2026-06-30 08:05 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/402624443390.shtml)

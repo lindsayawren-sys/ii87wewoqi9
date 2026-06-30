@@ -1,51 +1,55 @@
-# 安徽马鞍山一河段水体异常变红 当地通报原因
+# 东方证券：中东局势和平曙光带来化工布局窗口期
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-中新网6月23日电 据“明珠博望”微信公众号消息，安徽省马鞍山市博望区生态环境分局22日发布情况通报称，6月22日，马鞍山市博望区生态环境分局接报，博望区丹阳镇杨桥河部分河段水体异常变色。 经溯源排查，系丹阳镇辖区内一包装材料公司露天堆放的红色水性色浆(生产原料)因储存容器法兰圈破损，沿雨水管网进入杨桥河，致使该河段水体呈红色。事发后，区委区政府迅速安排部署调查处置工作，组织专
+东方证券(600958.SH)于2026年6月14日发布基础化工行业研究报告，认为中东局势的和平曙光为化工行业布局带来窗口期。报告指出，美伊双方对冲突表现出克制，市场对霍尔木兹海峡通行预期提升，化工行业基本面与估值接近底部。东方证券建议关注二季度业绩预期较好的子行业及个股，因其业绩表现好可支撑估值，且在行业震荡中保持有利地位。特别关注磷化工盈利预期的修复机会，一艘载有5万吨硫磺
 
 ## 正文
 
-中新网6月23日电 据“明珠博望”微信公众号消息，安徽省马鞍山市博望区生态环境分局22日发布情况通报称，6月22日，马鞍山市博望区生态环境分局接报，博望区丹阳镇杨桥河部分河段水体异常变色。
+东方证券(600958.SH)于2026年6月14日发布基础化工行业研究报告，认为中东局势的和平曙光为化工行业布局带来窗口期。
 
-经溯源排查，系丹阳镇辖区内一包装材料公司露天堆放的红色水性色浆(生产原料)因储存容器法兰圈破损，沿雨水管网进入杨桥河，致使该河段水体呈红色。
+报告指出，美伊双方对冲突表现出克制，市场对霍尔木兹海峡通行预期提升，化工行业基本面与估值接近底部。
 
-事发后，区委区政府迅速安排部署调查处置工作，组织专业人员第一时间关闭下游闸口，开展筑坝拦截物理阻断污染扩散路径，并通过投加活性炭吸附等方式对该河段水体进行处置。
+东方证券建议关注二季度业绩预期较好的子行业及个股，因其业绩表现好可支撑估值，且在行业震荡中保持有利地位。
 
-经初步查询，水体变红的主要原因为产品中含有铁离子所致。
+特别关注磷化工盈利预期的修复机会，一艘载有5万吨硫磺的货轮成功通过霍尔木兹海峡，目的地为中国南方港口，释放积极信号，有望改善磷化工板块盈利预期。
 
-工作组已安排专业检测机构取样作进一步检测核实，后续情况将及时通报。
+东方证券看好化工各子行业景气复苏机遇，推荐MDI龙头万华化学(600309.SH)、PVC行业相关企业、炼化行业龙头企业以及农化产业链技术服务导向的龙头等。
+
+同时，报告提醒风险包括需求不及预期、政策不确定性风险和油价大幅波动。
 
 ## 相关推荐
 
-- 2026-06-30 07:53 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-30 08:02 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
-- 2026-06-30 07:42 - [男子在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-30 07:40 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
-- 2026-06-30 07:40 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-30 07:47 - [王楚钦孙颖莎晋级混双八强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-30 07:44 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-30 07:47 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-30 07:50 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-30 07:55 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-30 08:02 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-30 07:58 - [全球芯片巨头史诗级扩产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-30 08:07 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-30 08:03 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
+- 2026-06-30 08:02 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-30 07:52 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-30 07:58 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-30 08:05 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-30 08:05 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-30 07:49 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-30 08:00 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-30 08:05 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-30 07:52 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-30 07:50 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:50 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/52623923321.shtml)
-- 2026-06-30 07:45 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.minike.top/Article/details/18383.shtml)
-- 2026-06-30 07:48 - [DeepSeek启动成立来最大规模招聘](https://www.share.minike.top/Article/details/610874.shtml)
-- 2026-06-30 07:47 - [德国罚丢3粒点球](http://www.blog.minike.top/Article/details/59151263488.shtml)
-- 2026-06-30 07:59 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/70900617923.shtml)
-- 2026-06-30 07:37 - [巴拉圭先进球了](http://www.blog.minike.top/Article/details/9127193.shtml)
-- 2026-06-30 07:48 - [日本遭读秒绝杀 森保一：我水平不够](http://www.blog.minike.top/Article/details/2076848.shtml)
-- 2026-06-30 07:42 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.minike.top/Article/details/479498452.shtml)
-- 2026-06-30 07:46 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/607452703.shtml)
-- 2026-06-30 08:04 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.kurohicncr.top/Article/details/909526366.shtml)
-- 2026-06-30 07:52 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/3475624.shtml)
-- 2026-06-30 07:54 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/6829767282.shtml)
-- 2026-06-30 08:01 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.kurohicncr.top/Article/details/40432708901.shtml)
-- 2026-06-30 07:53 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/430175993.shtml)
-- 2026-06-30 07:56 - [父母催婚话术是如何做到全国统一的](http://www.share.kurohicncr.top/Article/details/60987842.shtml)
+- 2026-06-30 07:42 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/33245.shtml)
+- 2026-06-30 08:08 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.kurohicncr.top/Article/details/46926.shtml)
+- 2026-06-30 07:50 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/9067025.shtml)
+- 2026-06-30 08:04 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.kurohicncr.top/Article/details/3565933.shtml)
+- 2026-06-30 07:54 - [这几秒成世界杯最值钱广告位](http://www.blog.kurohicncr.top/Article/details/05174088.shtml)
+- 2026-06-30 07:42 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/6930334669.shtml)
+- 2026-06-30 08:08 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/49870270303.shtml)
+- 2026-06-30 08:07 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.minike.top/Article/details/3845277.shtml)
+- 2026-06-30 07:57 - [网瘾賊大的阿嬷](http://www.blog.kurohicncr.top/Article/details/849910766420.shtml)
+- 2026-06-30 07:52 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/702684.shtml)
+- 2026-06-30 07:45 - [一见倾心](http://www.blog.minike.top/Article/details/508163.shtml)
+- 2026-06-30 08:01 - [本届世界杯已有5名球员被控强奸](https://www.blog.kurohicncr.top/Article/details/42618359.shtml)
+- 2026-06-30 08:09 - [勇士续约波尔津吉斯](http://www.share.minike.top/Article/details/289151520.shtml)
+- 2026-06-30 08:03 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/08622886.shtml)
+- 2026-06-30 08:07 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/6273173.shtml)

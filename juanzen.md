@@ -1,55 +1,61 @@
-# 世大控股拟折让约2.6%发行3200万股 筹资约240万港元
+# 一线调研丨织密全域物流网 畅通经济大动脉
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-世大控股（08003）发布公告，于2026年6月22日，公司拟向认购人侯勇先生配发及发行合共3200万股股份，相当于公司于本公告日期现有已发行股本约9.63%；及公司因发行认购股份而扩大的已发行股本约8.78%。认购价为每股认购股份0.075港元，较6月22日收市价每股0.077港元折让约2.6%。董事认为，认购为筹集资金作集团业务营运及扩阔公司股东基础的机会。认购的所得款项总
+我国物流市场规模连续10年全球第一，但运输环节衔接不畅、物流成本偏高，成为制约经济发展的瓶颈。眼下，国家正在加速建设物流网，这张网将如何破解难题？来看记者的一线调研。 当记者来到宜兴市新材料产业园时，运输车正络绎不绝驶入厂区，但红火背后，企业的运输负责人给记者算了笔成本账。 江苏省宜兴市三木运输有限公司负责人 蒋新良：如果我们是水路，一次可以装一千吨到两千吨，陆路现在一次只能装
 
 ## 正文
 
-世大控股（08003）发布公告，于2026年6月22日，公司拟向认购人侯勇先生配发及发行合共3200万股股份，相当于公司于本公告日期现有已发行股本约9.63%；及公司因发行认购股份而扩大的已发行股本约8.78%。
+我国物流市场规模连续10年全球第一，但运输环节衔接不畅、物流成本偏高，成为制约经济发展的瓶颈。
 
-认购价为每股认购股份0.075港元，较6月22日收市价每股0.077港元折让约2.6%。
+眼下，国家正在加速建设物流网，这张网将如何破解难题？
 
-董事认为，认购为筹集资金作集团业务营运及扩阔公司股东基础的机会。
+来看记者的一线调研。
 
-认购的所得款项总额约为240万港元。
+当记者来到宜兴市新材料产业园时，运输车正络绎不绝驶入厂区，但红火背后，企业的运输负责人给记者算了笔成本账。
 
-所得款项总额拟用作集团营运资金。
+江苏省宜兴市三木运输有限公司负责人 蒋新良：如果我们是水路，一次可以装一千吨到两千吨，陆路现在一次只能装30吨，我们算过一笔账，陆路运输的成本要比水路运输贵一半以上。
 
-责任编辑：卢昱君
+事实上宜兴水网密布，明明有运量大成本低的水路可选，为什么这些企业非得通过公路运输呢？
+
+江苏三木化工股份有限公司副总经理 殷康：我们在周边像长江、运河，走大船都没问题，就是要到我进厂的这一段，现在满足不了。
+
+总台央视记者 盛洁：其实园区的西侧就是南干河，这里离通往京杭大运河的常溧线航道只有不到8公里距离，但就是因为部分河道太窄太浅没有办法行船，让这里的企业守着水，却用不了低成本的水运。
 
 ## 相关推荐
 
-- 2026-06-30 07:58 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
-- 2026-06-30 08:00 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-30 07:56 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-30 07:39 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-30 07:49 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
-- 2026-06-30 07:56 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-30 07:49 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-30 07:44 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-30 07:40 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-30 07:37 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
-- 2026-06-30 07:37 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
-- 2026-06-30 07:41 - [锐评T1战胜KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
-- 2026-06-30 08:03 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-30 07:55 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-30 07:49 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-30 07:42 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-30 07:44 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-30 07:51 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-30 08:03 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-30 07:50 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-30 08:06 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-30 08:03 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-30 08:08 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
+- 2026-06-30 07:56 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-30 07:58 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-30 08:09 - [库尼亚赛后伸五指嘲讽日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-30 07:51 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
+- 2026-06-30 07:47 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:52 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/38293.shtml)
-- 2026-06-30 07:40 - [日本进球](https://www.share.kurohicncr.top/Article/details/14095.shtml)
-- 2026-06-30 07:59 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/12112775.shtml)
-- 2026-06-30 08:02 - [《共患难》](https://www.share.minike.top/Article/details/66387643.shtml)
-- 2026-06-30 07:39 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/45664853089.shtml)
-- 2026-06-30 07:53 - [巴拉圭点球大战淘汰德国进16强](http://www.blog.kurohicncr.top/Article/details/505258704656.shtml)
-- 2026-06-30 07:56 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/856525.shtml)
-- 2026-06-30 08:02 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/46846385416.shtml)
-- 2026-06-30 07:51 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/78796981.shtml)
-- 2026-06-30 07:57 - [爆冷出局！德国点球大战不敌巴拉圭](https://www.share.minike.top/Article/details/461106055046.shtml)
-- 2026-06-30 07:51 - [日本球员说被绝杀非常不甘心](http://www.blog.kurohicncr.top/Article/details/050492.shtml)
-- 2026-06-30 07:45 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/18211532432.shtml)
-- 2026-06-30 07:38 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/911811.shtml)
-- 2026-06-30 07:44 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/713095356.shtml)
-- 2026-06-30 07:46 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/740499463.shtml)
+- 2026-06-30 07:52 - [德国巴拉圭 折磨](https://www.blog.kurohicncr.top/Article/details/2787853.shtml)
+- 2026-06-30 08:05 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/9805920054.shtml)
+- 2026-06-30 07:52 - [张帅晋级温网次轮](https://www.share.kurohicncr.top/Article/details/92886.shtml)
+- 2026-06-30 07:55 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/0815298555.shtml)
+- 2026-06-30 07:59 - [三星投资计划](http://www.share.minike.top/Article/details/14952.shtml)
+- 2026-06-30 08:11 - [德国淘汰](https://www.blog.kurohicncr.top/Article/details/582709294563.shtml)
+- 2026-06-30 07:55 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/5258446095.shtml)
+- 2026-06-30 07:44 - [曝老詹对自由市场态度与以往截然不同](http://www.share.minike.top/Article/details/274593120572.shtml)
+- 2026-06-30 07:52 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/20589502.shtml)
+- 2026-06-30 08:10 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/53213280.shtml)
+- 2026-06-30 08:07 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/61690904.shtml)
+- 2026-06-30 07:48 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/946713.shtml)
+- 2026-06-30 08:05 - [全球最火存储ETF纳入兆易创新](http://www.blog.kurohicncr.top/Article/details/6205278070.shtml)
+- 2026-06-30 08:04 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/7040502945.shtml)
+- 2026-06-30 07:53 - [王健林甩卖超80座万达广场](https://www.share.minike.top/Article/details/4437672.shtml)

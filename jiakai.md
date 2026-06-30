@@ -1,58 +1,58 @@
-# 募资29亿加码！储能材料龙头加速“换挡升级”
+# 中国科学家获颁国际人脑图谱学会最高奖
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-近日，锂电正极材料龙头德方纳米(300769)发布 2026年度向特定对象发行股票预案，计划募资不超过 29亿元，投向锂电新材料一体化(一期)项目及补充流动资金；这是公司自 2019年上市以来第四次直接融资。本次定增主要募投项目为锂电新材料一体化(一期)项目，投资金额约 24亿元，拟用募集资金 21.5亿元。项目在云南曲靖高新技术产业开发区花山片区建设，建设期 24个月，建成后
+中新网北京6月15日电 (记者 孙自法)记者6月15日从中国科学院自动化研究所获悉，该所研究员、脑网络组与脑机接口北京市重点实验室主任蒋田仔获得国际人脑图谱学会(OHBM)最高奖——终身成就奖。 这是该奖项自2014年设立以来，首次颁给欧美以外的科学家，体现出国际学术界对中国在脑图谱领域所作贡献的高度认可。 作为国际人脑图谱学会最高个人荣誉，终身成就奖每年仅授予一人，专门表彰利
 
 ## 正文
 
-近日，锂电正极材料龙头德方纳米(300769)发布 2026年度向特定对象发行股票预案，计划募资不超过 29亿元，投向锂电新材料一体化(一期)项目及补充流动资金；这是公司自 2019年上市以来第四次直接融资。
+中新网北京6月15日电 (记者 孙自法)记者6月15日从中国科学院自动化研究所获悉，该所研究员、脑网络组与脑机接口北京市重点实验室主任蒋田仔获得国际人脑图谱学会(OHBM)最高奖——终身成就奖。
 
-本次定增主要募投项目为锂电新材料一体化(一期)项目，投资金额约 24亿元，拟用募集资金 21.5亿元。
+这是该奖项自2014年设立以来，首次颁给欧美以外的科学家，体现出国际学术界对中国在脑图谱领域所作贡献的高度认可。
 
-项目在云南曲靖高新技术产业开发区花山片区建设，建设期 24个月，建成后将新增年产 20万吨新一代高压实磷酸盐新材料的生产能力，此次扩产主要指向“补齐高端产能短板”。
+作为国际人脑图谱学会最高个人荣誉，终身成就奖每年仅授予一人，专门表彰利用神经影像技术，在人类脑结构与功能研究中做出原创性、范式级贡献的领军学者。
 
-预案指出，传统磷酸铁锂行业此前已陷入产能过剩、同质化竞争的困境，新项目主要用来生产第四代高压实磷酸铁锂、第五代超高压实磷酸铁锂、磷酸锰铁锂等新一代产品，以匹配高端动力电芯和大型长时储能电池的需求，在磷酸铁锂行业“高端突围战”全面打响的当下，德方纳米此举意在从低端同质化竞争中抽身，抢占高附加值产品的制高点。
+在脑科学、神经影像及医工交叉领域，该奖项是对获奖者职业生涯的最高集体认可。
 
-从纳米材料到行业标杆德方纳米成立于2007年，总部位于深圳市南山区，是一家致力于锂离子电池核心材料研发、生产和销售的国家高新技术企业。
+国际人脑图谱学会是全球脑图谱领域最具权威的国际学术组织，其年会为全球脑图谱领域最大规模学术会议。
 
-公司核心产品为磷酸盐系正极材料，广泛应用于新能源汽车动力电池和储能电池等领域。
+本次年会当地时间6月14日至18日在法国波尔多召开，颁奖仪式在年会开幕式上举行。
 
-公司独创的“自热蒸发液相合成纳米磷酸铁锂技术”处于行业领先地位。
+据中国科学院自动化研究所介绍，蒋田仔研究员在脑影像和脑图谱领域深耕20余年，构建出脑网络组学研究体系。
 
-2019年4月，德方纳米在深交所创业板上市。
+根据该体系框架，他突破传统脑图谱绘制的瓶颈，提出利用脑连接信息绘制脑图谱的新思想，建立绘制新一代脑图谱的理论和方法，成功绘制出全新的“人类脑网络组图谱”，成为脑机接口的重要基础。
 
 ## 相关推荐
 
-- 2026-06-30 07:36 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
-- 2026-06-30 07:52 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-30 07:56 - [德国巴拉圭进入点球大战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
-- 2026-06-30 07:59 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
-- 2026-06-30 07:40 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
-- 2026-06-30 08:03 - [IGN评测电影版后室](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
-- 2026-06-30 08:02 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-30 07:55 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
-- 2026-06-30 07:39 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-30 08:05 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
-- 2026-06-30 07:46 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-30 08:00 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-30 08:05 - [索马里女大使：想和中国一起搞事业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-30 08:05 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
+- 2026-06-30 07:57 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-30 07:56 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-30 07:55 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-30 07:42 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-30 07:52 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-30 07:51 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-30 08:00 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-30 08:03 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-30 08:04 - [亚洲球队全部出局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-30 07:49 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:36 - [点球大战](http://www.blog.kurohicncr.top/Article/details/4426091479.shtml)
-- 2026-06-30 08:02 - [《共患难》](https://www.share.kurohicncr.top/Article/details/4123727432.shtml)
-- 2026-06-30 07:36 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/541462764473.shtml)
-- 2026-06-30 07:59 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/878485715991.shtml)
-- 2026-06-30 07:42 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.kurohicncr.top/Article/details/61687.shtml)
-- 2026-06-30 07:38 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/8915516.shtml)
-- 2026-06-30 07:55 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/43550944.shtml)
-- 2026-06-30 07:56 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/96710.shtml)
-- 2026-06-30 07:52 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.kurohicncr.top/Article/details/6681219605.shtml)
-- 2026-06-30 07:42 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/346540.shtml)
-- 2026-06-30 07:46 - [郑钦文温网一轮游](http://www.blog.kurohicncr.top/Article/details/19835.shtml)
-- 2026-06-30 08:04 - [巴西在进攻三区完成210脚传球](http://www.share.minike.top/Article/details/26871.shtml)
-- 2026-06-30 07:58 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/36472558.shtml)
-- 2026-06-30 07:44 - [健全中小学教师工资长效联动机制](http://www.blog.kurohicncr.top/Article/details/455459630.shtml)
-- 2026-06-30 07:54 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/0532901778.shtml)
+- 2026-06-30 07:58 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/37444.shtml)
+- 2026-06-30 08:08 - [佐野海舟远射破门](https://www.share.minike.top/Article/details/034662837882.shtml)
+- 2026-06-30 08:08 - [韩国人为什么这么在乎输赢](https://www.blog.minike.top/Article/details/58161814.shtml)
+- 2026-06-30 07:42 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/076942554656.shtml)
+- 2026-06-30 07:48 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/0607917.shtml)
+- 2026-06-30 08:03 - [上半年全国特种设备安全形势总体平稳](https://www.share.minike.top/Article/details/42104287832.shtml)
+- 2026-06-30 08:06 - [张帅晋级温网次轮](http://www.blog.minike.top/Article/details/71017.shtml)
+- 2026-06-30 07:55 - [“草莓月亮”浪漫现身](http://www.share.minike.top/Article/details/4248431487.shtml)
+- 2026-06-30 08:11 - [库尼亚赛后伸五指嘲讽日本](http://www.share.kurohicncr.top/Article/details/211888.shtml)
+- 2026-06-30 08:03 - [老外对中国cosplay竟这样评价…](https://www.share.kurohicncr.top/Article/details/264959046.shtml)
+- 2026-06-30 07:55 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/215117531437.shtml)
+- 2026-06-30 07:46 - [急先锋](https://www.share.minike.top/Article/details/730194073.shtml)
+- 2026-06-30 07:52 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/20457858.shtml)
+- 2026-06-30 07:49 - [日本淘汰](https://www.blog.minike.top/Article/details/61996028.shtml)
+- 2026-06-30 07:44 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/3513463.shtml)

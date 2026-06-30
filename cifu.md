@@ -1,53 +1,60 @@
-# 美参议院通过决议：限制特朗普对伊朗战争权力
+# 公共场所控烟 如何更有效？
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-中新网6月24日电 据美国哥伦比亚广播公司(CBS)报道，当地时间23日，美国参议院通过了一项旨在限制美国总统特朗普在伊朗战争权力的决议。 据报道，该决议要求美国总统在未经国会授权动武的情况下，结束美国对伊朗军事行动。这也是自2月底美国对伊动武以来，参议院第10次限制战争权力的投票。 另据介绍，由于该决议不具备法律约束力，报道将此次决议称作“象征性谴责”。
+近期，公共场所吸烟话题持续引发关注。近年来，中国不断加大控烟力度，《健康中国行动(2019—2030年)》明确将控烟列为15项专项行动之一。然而，一些公共场所虽设有禁烟标识，实际未能真正约束吸烟行为，相关规定执行效果有待提升。面对难题，各地正从立法完善、执法创新、技术赋能、柔性治理等多方面探索破局之道。只有疏堵结合、多方参与，才能减少吸烟与不吸烟人群的冲突，让公共空间真正回归清
 
 ## 正文
 
-中新网6月24日电 据美国哥伦比亚广播公司(CBS)报道，当地时间23日，美国参议院通过了一项旨在限制美国总统特朗普在伊朗战争权力的决议。
+近期，公共场所吸烟话题持续引发关注。
 
-据报道，该决议要求美国总统在未经国会授权动武的情况下，结束美国对伊朗军事行动。
+近年来，中国不断加大控烟力度，《健康中国行动(2019—2030年)》明确将控烟列为15项专项行动之一。
 
-这也是自2月底美国对伊动武以来，参议院第10次限制战争权力的投票。
+然而，一些公共场所虽设有禁烟标识，实际未能真正约束吸烟行为，相关规定执行效果有待提升。
 
-另据介绍，由于该决议不具备法律约束力，报道将此次决议称作“象征性谴责”。
+面对难题，各地正从立法完善、执法创新、技术赋能、柔性治理等多方面探索破局之道。
+
+只有疏堵结合、多方参与，才能减少吸烟与不吸烟人群的冲突，让公共空间真正回归清新。
+
+二手烟危害不容忽视 前不久，深圳一公交站台，一女子劝阻男子吸烟引发争执；上海迪士尼乐园，一名游客因制止他人吸烟，双方发生肢体冲突……诸如此类因二手烟引发的冲突，在各地公共场所时有发生。
+
+不少受访者表示，自己曾在电梯、饭店、办公楼楼道等室内公共场所被二手烟困扰，一些呼吸道敏感人群更是深感不便。
+
+“我有哮喘，闻到烟味就喘不上气。
 
 ## 相关推荐
 
-- 2026-06-30 07:39 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
-- 2026-06-30 07:36 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-30 08:00 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
-- 2026-06-30 07:59 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-30 07:48 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-30 07:41 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-30 07:46 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-30 07:42 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
-- 2026-06-30 08:02 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-30 07:41 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
-- 2026-06-30 07:45 - [森保一致歉：世界第一目标没能实现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-30 07:37 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
-- 2026-06-30 07:49 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-30 07:43 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-30 07:36 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-30 08:07 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-30 07:49 - [日本球员说被绝杀非常不甘心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-30 07:58 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-30 07:52 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
+- 2026-06-30 08:06 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-30 08:01 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-30 07:51 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-30 07:58 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-30 08:01 - [马耳他著名拱门坍塌致中国男子身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-30 08:07 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-30 08:08 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-30 08:03 - [森保一致歉：世界第一目标没能实现](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-30 08:04 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-30 08:02 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:52 - [刘必安等16人非法集资案二审宣判](https://www.blog.kurohicncr.top/Article/details/2182403.shtml)
-- 2026-06-30 08:03 - [王欣瑜2-1击败科恰雷托](http://www.blog.kurohicncr.top/Article/details/16248999.shtml)
-- 2026-06-30 07:47 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.minike.top/Article/details/146646.shtml)
-- 2026-06-30 07:49 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/79066605609.shtml)
-- 2026-06-30 08:00 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/0228192544.shtml)
-- 2026-06-30 07:49 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/607516.shtml)
-- 2026-06-30 07:56 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/5766087867.shtml)
-- 2026-06-30 07:42 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.minike.top/Article/details/189466017758.shtml)
-- 2026-06-30 07:40 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/355308.shtml)
-- 2026-06-30 07:49 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/7197834.shtml)
-- 2026-06-30 07:38 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/2495552514.shtml)
-- 2026-06-30 07:37 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/2270510.shtml)
-- 2026-06-30 07:52 - [速度与激情9](http://www.share.minike.top/Article/details/3459426.shtml)
-- 2026-06-30 07:43 - [森保一致歉：世界第一目标没能实现](https://www.blog.minike.top/Article/details/637896491.shtml)
-- 2026-06-30 07:47 - [高质量发展看新疆](http://www.blog.kurohicncr.top/Article/details/43008.shtml)
+- 2026-06-30 08:01 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/391199570625.shtml)
+- 2026-06-30 08:00 - [德国队世界杯点球大战首败](https://www.blog.kurohicncr.top/Article/details/93550.shtml)
+- 2026-06-30 08:10 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/3326491.shtml)
+- 2026-06-30 07:59 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/9629146641.shtml)
+- 2026-06-30 08:06 - [媒体评泰山建135公里刀片刺绳隔离网](https://www.blog.kurohicncr.top/Article/details/403580062653.shtml)
+- 2026-06-30 07:59 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.share.minike.top/Article/details/86743.shtml)
+- 2026-06-30 07:46 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/5083816674.shtml)
+- 2026-06-30 07:58 - [世界杯巴拉圭点球淘汰德国](http://www.share.kurohicncr.top/Article/details/18050.shtml)
+- 2026-06-30 07:46 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.minike.top/Article/details/316696.shtml)
+- 2026-06-30 07:55 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/74826.shtml)
+- 2026-06-30 07:57 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/266976777477.shtml)
+- 2026-06-30 08:06 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/952870222093.shtml)
+- 2026-06-30 08:07 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/87960928796.shtml)
+- 2026-06-30 07:47 - [莫兰特转投开拓者效力](https://www.blog.minike.top/Article/details/1346200.shtml)
+- 2026-06-30 07:46 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/44905827736.shtml)

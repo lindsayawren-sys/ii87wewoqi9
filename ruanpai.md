@@ -1,48 +1,47 @@
-# 广西北流公安：油罐车与水泥罐车发生碰撞起火，致3人死亡
+# 中信证券：SpaceX首日大涨 大航天时代起航
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-中新网6月23日电 据“北流公安”微信公众号消息，广西北流市公安局23日发布警情通报称，6月22日21时30分许，北流市六靖镇镇南村路口一辆油罐车与一辆水泥罐车发生碰撞，两车相继起火。 公安、消防、应急、卫健等部门第一时间赶赴现场开展救援。经全力扑救，明火已于22日23时38分扑灭，车上3人死亡，未造成周边其他人员伤亡。 目前，后续处置工作正有序进行中。
+中信证券研报称，6月12日SpaceX在纳斯达克上市，首日大涨约19%，本次IPO募资约750亿美元，成为全球有史以来规模最大的IPO，料将有力支撑SpaceX火箭和卫星迭代，并开拓包括太空算力在内的AI广阔空间。尽管由于商业火箭客观特点，国内可回收等发射节奏时有波动，但更需看到可回收技术突破后产业能够实现指数级别增长的潜力，以及太空算力更广阔的产业空间，聚焦“核心资产”及“通
 
 ## 正文
 
-中新网6月23日电 据“北流公安”微信公众号消息，广西北流市公安局23日发布警情通报称，6月22日21时30分许，北流市六靖镇镇南村路口一辆油罐车与一辆水泥罐车发生碰撞，两车相继起火。
+中信证券研报称，6月12日SpaceX在纳斯达克上市，首日大涨约19%，本次IPO募资约750亿美元，成为全球有史以来规模最大的IPO，料将有力支撑SpaceX火箭和卫星迭代，并开拓包括太空算力在内的AI广阔空间。
 
-公安、消防、应急、卫健等部门第一时间赶赴现场开展救援。
+尽管由于商业火箭客观特点，国内可回收等发射节奏时有波动，但更需看到可回收技术突破后产业能够实现指数级别增长的潜力，以及太空算力更广阔的产业空间，聚焦“核心资产”及“通胀环节”。
 
-经全力扑救，明火已于22日23时38分扑灭，车上3人死亡，未造成周边其他人员伤亡。
-
-目前，后续处置工作正有序进行中。
+责任编辑：郭栩彤
 
 ## 相关推荐
 
-- 2026-06-30 08:02 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-30 07:42 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
-- 2026-06-30 07:59 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-30 07:55 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-30 07:58 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
-- 2026-06-30 07:48 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
-- 2026-06-30 08:04 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
-- 2026-06-30 07:55 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-30 08:02 - [巴西在进攻三区完成210脚传球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-30 07:55 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-30 08:11 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-30 07:45 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
+- 2026-06-30 07:57 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
+- 2026-06-30 07:53 - [女子遭下药退赔偿拟追刑责](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-30 08:05 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-30 07:53 - [全新问界M9现身美国街头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-30 07:45 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-30 08:09 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-30 07:46 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-30 08:08 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
+- 2026-06-30 08:05 - [德国罚丢3粒点球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:58 - [女子遭下药退赔偿拟追刑责](http://www.share.minike.top/Article/details/115886231.shtml)
-- 2026-06-30 07:42 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/451831647707.shtml)
-- 2026-06-30 07:55 - [吴易昺不敌德约科维奇 止步温网首轮](http://www.blog.minike.top/Article/details/85617.shtml)
-- 2026-06-30 07:38 - [花少8要去世界杯举办国](https://www.blog.kurohicncr.top/Article/details/514194259.shtml)
-- 2026-06-30 07:40 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/9212065.shtml)
-- 2026-06-30 07:51 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/71943635.shtml)
-- 2026-06-30 07:38 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/641267295.shtml)
-- 2026-06-30 07:38 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/791351144528.shtml)
-- 2026-06-30 07:38 - [为什么会有「念旧」的心理？](https://www.share.kurohicncr.top/Article/details/617095258209.shtml)
-- 2026-06-30 07:46 - [日本五次世界杯淘汰赛全败](http://www.blog.minike.top/Article/details/1276539.shtml)
-- 2026-06-30 07:40 - [德国巴拉圭进入点球大战](http://www.share.minike.top/Article/details/804568.shtml)
-- 2026-06-30 08:00 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/64182513.shtml)
-- 2026-06-30 08:04 - [杨紫获白玉兰视后为何争议难平](https://www.blog.kurohicncr.top/Article/details/804801336130.shtml)
-- 2026-06-30 07:56 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/173078.shtml)
-- 2026-06-30 07:44 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/560248.shtml)
+- 2026-06-30 07:57 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/372049.shtml)
+- 2026-06-30 08:06 - [斗破苍穹](http://www.blog.minike.top/Article/details/25318257825.shtml)
+- 2026-06-30 07:53 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/69615750.shtml)
+- 2026-06-30 07:57 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.kurohicncr.top/Article/details/7369088.shtml)
+- 2026-06-30 07:45 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.kurohicncr.top/Article/details/2474868180.shtml)
+- 2026-06-30 08:03 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/7751505189.shtml)
+- 2026-06-30 08:07 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.kurohicncr.top/Article/details/1548428157.shtml)
+- 2026-06-30 08:10 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/7198105.shtml)
+- 2026-06-30 07:47 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/519213207669.shtml)
+- 2026-06-30 07:46 - [女心理师](http://www.share.minike.top/Article/details/2194429955.shtml)
+- 2026-06-30 07:42 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/872623371255.shtml)
+- 2026-06-30 08:10 - [莫兰特转投开拓者效力](https://www.share.minike.top/Article/details/951137.shtml)
+- 2026-06-30 07:45 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.kurohicncr.top/Article/details/88400916.shtml)
+- 2026-06-30 07:52 - [郑钦文温网三连败西尼亚科娃](http://www.blog.kurohicncr.top/Article/details/693948.shtml)
+- 2026-06-30 07:52 - [韩乔生吐槽世界杯扩军](http://www.share.minike.top/Article/details/4323296.shtml)

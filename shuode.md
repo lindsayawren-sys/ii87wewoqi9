@@ -1,46 +1,59 @@
-# 科大讯飞：公司持续通过多种渠道与广大投资者保持良好沟通和互动
+# 海南面向全球招募“旅游国际推荐官”
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-证券日报网讯6月22日，科大讯飞在互动平台回答投资者提问时表示，公司持续通过定期报告业绩说明会、投资者交流会以及券商策略会等多种渠道，与广大投资者保持良好沟通和互动。
+中新网海口6月16日电 (记者 张茜翼)海南省旅游和文化广电体育厅15日发布消息，即日起至12月，海南面向全球招募“海南旅游国际推荐官”，计划招募40至50名热爱旅行、擅长创作的境外达人，用独特视角向世界展示海南的热带海岛魅力。 申请者需满足以下条件：痴迷海南的阳光沙滩、黎苗风情、烟火美食，愿用真心分享海南之美；在Facebook、X(原Twitter)、Instagram、Y
 
 ## 正文
 
-证券日报网讯6月22日，科大讯飞在互动平台回答投资者提问时表示，公司持续通过定期报告业绩说明会、投资者交流会以及券商策略会等多种渠道，与广大投资者保持良好沟通和互动。
+中新网海口6月16日电 (记者 张茜翼)海南省旅游和文化广电体育厅15日发布消息，即日起至12月，海南面向全球招募“海南旅游国际推荐官”，计划招募40至50名热爱旅行、擅长创作的境外达人，用独特视角向世界展示海南的热带海岛魅力。
+
+申请者需满足以下条件：痴迷海南的阳光沙滩、黎苗风情、烟火美食，愿用真心分享海南之美；在Facebook、X(原Twitter)、Instagram、YouTube、TikTok等任一海外平台有账号及影响力；擅长用图文、短视频、直播等形式，挖掘海南文旅独特魅力；乐于交流、善于合作，愿融入团队共讲海南故事。
+
+作为中国对外开放前沿，海南凭借“免签+航线”双重红利，持续提升国际吸引力。
+
+目前，59国人员入境免签政策叠加240小时过境免签政策，让“说走就走”的海南游成为现实；78条国际航线串联莫斯科、悉尼等全球45个城市，织密“黄金航网”。
+
+2025年，海南入境游客达150万人次，同比增长35.2%。
+
+近年来，海南坚持“走出去+请进来”双向发力：境外推介精准触达重点客源国，海外旅行商、媒体考察常态化推进，港澳营销联盟加密航班；全球46家海南旅游推广办事处同步发力，系统性破解入境游堵点。
+
+截至2026年6月，海南旅游国际推荐官队伍已覆盖41个国家和地区，成为讲好海南故事的重要力量。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 07:53 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
-- 2026-06-30 07:40 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
-- 2026-06-30 07:41 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-30 07:54 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-30 07:56 - [索马里女大使：想和中国一起搞事业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-30 08:02 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-30 07:58 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-30 07:53 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-30 07:37 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
-- 2026-06-30 07:52 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
-- 2026-06-30 07:59 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
-- 2026-06-30 07:39 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
-- 2026-06-30 07:38 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-30 07:52 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-30 08:11 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-30 07:50 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-30 08:01 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-30 08:04 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-30 08:08 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
+- 2026-06-30 08:01 - [恋与深空道歉声明](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-30 08:09 - [德国队连续三届世界杯无缘16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-30 08:04 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-30 07:58 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-30 07:50 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-30 08:12 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-30 07:57 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-30 07:51 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:04 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/8139166.shtml)
-- 2026-06-30 07:46 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/58618351.shtml)
-- 2026-06-30 07:55 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/84151.shtml)
-- 2026-06-30 08:05 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/41371527.shtml)
-- 2026-06-30 07:50 - [美股](https://www.share.kurohicncr.top/Article/details/1834561.shtml)
-- 2026-06-30 07:50 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/75236955765.shtml)
-- 2026-06-30 07:47 - [佐野海舟远射破门](http://www.blog.minike.top/Article/details/91273572894.shtml)
-- 2026-06-30 07:51 - [辛纳vs凯茨玛诺维奇](http://www.blog.minike.top/Article/details/3147428.shtml)
-- 2026-06-30 08:04 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/376101683136.shtml)
-- 2026-06-30 07:54 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/986332263552.shtml)
-- 2026-06-30 07:47 - [爆冷出局！德国点球大战不敌巴拉圭](https://www.blog.kurohicncr.top/Article/details/773941774.shtml)
-- 2026-06-30 07:57 - [日本遭读秒绝杀 森保一：我水平不够](https://www.share.kurohicncr.top/Article/details/18352682.shtml)
-- 2026-06-30 07:44 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/58463789.shtml)
-- 2026-06-30 08:03 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/61674.shtml)
-- 2026-06-30 07:46 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/51836595.shtml)
+- 2026-06-30 08:06 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/03625503877.shtml)
+- 2026-06-30 07:43 - [田中碧失误](http://www.blog.minike.top/Article/details/343299719.shtml)
+- 2026-06-30 08:02 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/1110130076.shtml)
+- 2026-06-30 07:43 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/97445.shtml)
+- 2026-06-30 07:43 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/83026320882.shtml)
+- 2026-06-30 07:48 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/74139322.shtml)
+- 2026-06-30 08:08 - [普京间接喊话特朗普有何考量](https://www.share.kurohicncr.top/Article/details/93530632773.shtml)
+- 2026-06-30 07:42 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/442531.shtml)
+- 2026-06-30 08:09 - [网友写差评被店家“挂”门口避雷](https://www.blog.kurohicncr.top/Article/details/032327108107.shtml)
+- 2026-06-30 07:48 - [韩国球迷凌晨4点接机怒骂主教练](https://www.share.kurohicncr.top/Article/details/78565692.shtml)
+- 2026-06-30 07:59 - [董卿父亲报纸上发文悼念亡妻](https://www.share.minike.top/Article/details/399188162112.shtml)
+- 2026-06-30 08:10 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/140958.shtml)
+- 2026-06-30 07:47 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/30921911.shtml)
+- 2026-06-30 07:56 - [我觉得你是在无中生友](http://www.blog.kurohicncr.top/Article/details/2983510454.shtml)
+- 2026-06-30 08:11 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/9031858.shtml)

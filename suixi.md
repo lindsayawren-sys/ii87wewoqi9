@@ -1,61 +1,56 @@
-# 每年都有孩子因此受伤！这些乘车习惯一定要改
+# 翻倍！300014，预计上半年业绩大增
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-我国公安交管部门的数据显示，我国每年死于道路交通伤害的儿童，其中约有40%为乘车出行所致。儿童乘车安全一直是被重点关注的儿童道路安全主题。下面就让我们一起来学习同学们平时接触最多的几种乘车方式，在出行时要注意的各类安全问题。一、儿童如何安全地 乘坐私家车出行 随着社会经济的发展，私家车日益普及。儿童在日常生活中，经常乘坐私家车上下学或外出。儿童乘坐私家车出行都有哪些注意事项？
+亿纬锂能（维权）发布上半年业绩预告。 6月15日晚间，亿纬锂能（300014）发布2026年半年度业绩预告。亿纬锂能预计，公司上半年实现归母净利润31.3亿元—33.71亿元，同比增长95%—110%；实现扣非后净利润24.3亿元—26.03亿元，同比增长110%—125%。 对于业绩增长原因，公司认为主要有两方面： 1．公司坚持致力于产品迭代、服务升级与流程优化，把握市场增长
 
 ## 正文
 
-我国公安交管部门的数据显示，我国每年死于道路交通伤害的儿童，其中约有40%为乘车出行所致。
+亿纬锂能（维权）发布上半年业绩预告。
 
-儿童乘车安全一直是被重点关注的儿童道路安全主题。
+6月15日晚间，亿纬锂能（300014）发布2026年半年度业绩预告。
 
-下面就让我们一起来学习同学们平时接触最多的几种乘车方式，在出行时要注意的各类安全问题。
+亿纬锂能预计，公司上半年实现归母净利润31.3亿元—33.71亿元，同比增长95%—110%；实现扣非后净利润24.3亿元—26.03亿元，同比增长110%—125%。
 
-一、儿童如何安全地 乘坐私家车出行 随着社会经济的发展，私家车日益普及。
+对于业绩增长原因，公司认为主要有两方面： 1．公司坚持致力于产品迭代、服务升级与流程优化，把握市场增长机遇，驱动公司业务持续增长，营业收入同比增长约60%。
 
-儿童在日常生活中，经常乘坐私家车上下学或外出。
+2．为有效应对显著攀升的供应链成本压力，公司主动实施前置管理，通过供应链多元化布局、战略性采购规划及审慎运用金融工具，有力地缓冲了材料成本上涨波动，确保了主营业务盈利能力的稳定性。
 
-儿童乘坐私家车出行都有哪些注意事项？
-
-1.未满12周岁的儿童，乘坐私家车时就不能坐在副驾驶座位。
-
-车辆一旦发生碰撞，安全气囊可能直接击打儿童的头面部，瞬间撞击力量可达上百公斤，儿童头颈无法承受。
+综合自：公司公告
 
 ## 相关推荐
 
-- 2026-06-30 07:50 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-30 08:01 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-30 07:52 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-30 07:54 - [点球大战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-30 07:54 - [德国巴拉圭进入点球大战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-30 07:37 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
-- 2026-06-30 07:38 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
-- 2026-06-30 08:03 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
-- 2026-06-30 08:01 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-30 07:43 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-30 08:03 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-30 07:37 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-30 07:38 - [《共患难》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-30 07:59 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-30 07:37 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-30 07:53 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-30 07:43 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-30 07:49 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-30 07:42 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
+- 2026-06-30 07:50 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
+- 2026-06-30 07:43 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-30 07:46 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-30 08:10 - [金鹰奖视后提名预测](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
+- 2026-06-30 07:59 - [日本 高位逼抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-30 07:43 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-30 07:53 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-30 07:44 - [德国队连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-30 07:43 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-30 08:10 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:44 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/12786336750.shtml)
-- 2026-06-30 07:58 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.kurohicncr.top/Article/details/285846.shtml)
-- 2026-06-30 07:54 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.minike.top/Article/details/0660457.shtml)
-- 2026-06-30 08:00 - [曝詹姆斯即将与勇士会面](https://www.share.minike.top/Article/details/0673830.shtml)
-- 2026-06-30 07:44 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/453811.shtml)
-- 2026-06-30 07:46 - [老外对中国cosplay竟这样评价…](http://www.share.minike.top/Article/details/832847.shtml)
-- 2026-06-30 07:43 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/9348986.shtml)
-- 2026-06-30 08:02 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/34722891295.shtml)
-- 2026-06-30 07:53 - [网瘾賊大的阿嬷](http://www.blog.kurohicncr.top/Article/details/01667.shtml)
-- 2026-06-30 07:49 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/697086.shtml)
-- 2026-06-30 08:04 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/94026.shtml)
-- 2026-06-30 07:48 - [世界杯](https://www.share.minike.top/Article/details/1258145251.shtml)
-- 2026-06-30 07:51 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/2659633.shtml)
-- 2026-06-30 07:44 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/80429008.shtml)
-- 2026-06-30 07:55 - [F1奥地利站赛后复盘](https://www.share.minike.top/Article/details/7278817882.shtml)
+- 2026-06-30 07:51 - [小娘惹](http://www.share.kurohicncr.top/Article/details/3713539.shtml)
+- 2026-06-30 07:51 - [王楚钦孙颖莎晋级混双八强](https://www.blog.minike.top/Article/details/6152172.shtml)
+- 2026-06-30 08:06 - [张雪的一句“是我们”引发岛内热议](http://www.share.minike.top/Article/details/068151429433.shtml)
+- 2026-06-30 07:57 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/92650.shtml)
+- 2026-06-30 07:45 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/879646.shtml)
+- 2026-06-30 07:59 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/6167443.shtml)
+- 2026-06-30 08:00 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/1268419.shtml)
+- 2026-06-30 07:50 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/34558047.shtml)
+- 2026-06-30 07:46 - [又一美国科技巨头转向中国大模型](https://www.blog.minike.top/Article/details/041159102985.shtml)
+- 2026-06-30 07:57 - [德国巴拉圭进入点球大战](http://www.share.minike.top/Article/details/33339670204.shtml)
+- 2026-06-30 07:42 - [亚洲球队全部告别世界杯](http://www.blog.minike.top/Article/details/1334043.shtml)
+- 2026-06-30 08:07 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/25682558.shtml)
+- 2026-06-30 08:06 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/04300917673.shtml)
+- 2026-06-30 07:54 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.minike.top/Article/details/157616.shtml)
+- 2026-06-30 07:44 - [武磊：日本队有能力跟任何强队抗衡](https://www.blog.minike.top/Article/details/37224.shtml)

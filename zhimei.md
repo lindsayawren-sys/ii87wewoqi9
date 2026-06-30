@@ -1,55 +1,61 @@
-# 第166次中老缅泰湄公河联合巡逻执法行动启动
+# 香江观澜：问计于民，香港首个五年规划定下鲜明民生底色
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-中新网昆明6月23日电 (记者 缪超)记者23日从云南省公安厅获悉，第166次中老缅泰湄公河联合巡逻执法行动于22日启动。 行动开展前，中老缅泰四国执法部门在中国景洪召开指挥官联席会议，各方围绕行动方案、执法重点等内容深入磋商并达成共识，以“禁毒无国界，携手除毒患”为主题，将打击湄公河流域毒品犯罪作为核心任务，同步重拳整治网赌电诈、跨境赌博、拐卖人口、偷渡、制贩毒品、制假走私、
+中新社香港6月15日电 题：问计于民，香港首个五年规划定下鲜明民生底色 中新社记者 香卢平 香港特区政府15日就香港特别行政区经济和社会发展第一个五年规划(2026—2030)展开公众咨询。为期两个月的公众咨询，不仅是一份规划文本的酝酿，更是一次“把顶层设计和问计于民统一起来”的生动实践。行政长官李家超将“以民为本，把改善民生作为出发点和落脚点”列为这份五年规划三大策略方向之首
 
 ## 正文
 
-中新网昆明6月23日电 (记者 缪超)记者23日从云南省公安厅获悉，第166次中老缅泰湄公河联合巡逻执法行动于22日启动。
+中新社香港6月15日电 题：问计于民，香港首个五年规划定下鲜明民生底色 中新社记者 香卢平 香港特区政府15日就香港特别行政区经济和社会发展第一个五年规划(2026—2030)展开公众咨询。
 
-行动开展前，中老缅泰四国执法部门在中国景洪召开指挥官联席会议，各方围绕行动方案、执法重点等内容深入磋商并达成共识，以“禁毒无国界，携手除毒患”为主题，将打击湄公河流域毒品犯罪作为核心任务，同步重拳整治网赌电诈、跨境赌博、拐卖人口、偷渡、制贩毒品、制假走私、金融诈骗等跨境犯罪活动，全方位筑牢湄公河流域安全屏障。
+为期两个月的公众咨询，不仅是一份规划文本的酝酿，更是一次“把顶层设计和问计于民统一起来”的生动实践。
 
-据了解，此次行动采取动静结合、水陆联动模式，共派出执法艇6艘、执法人员106名。
+行政长官李家超将“以民为本，把改善民生作为出发点和落脚点”列为这份五年规划三大策略方向之首，为其定下了鲜明的民生底色。
 
-各方完成分段巡航后，将在预定水域会合，共同开展水陆联合巡逻、联合查缉、联合驻训等执法行动。
+香港特区政府政制及内地事务局局长谢小华15日介绍，公众咨询将于8月14日结束，香港市民可通过专题网站、电子邮件或邮寄等方式提交意见。
 
-同时，四国执法部门将依托多语种宣讲、入户科普、现场普法等形式开展“6·26”国际禁毒日宣传活动，深入沿江码头、村寨、校园、企业等重点区域开展禁毒知识宣传，切实增强沿岸百姓识毒、防毒、拒毒能力，构建全民禁毒防护网。
+特区政府还将举办多场咨询活动，听取特区立法会议员、业界代表和公众的意见和建议。
 
-行动期间，四国执法部门还将赴老挝会晒召开多边信息交流会，互通流域近期治安状况与毒品犯罪形势，研判跨境违法犯罪新型态势，围绕禁毒攻坚、线索共享、案件侦办、机制建设等合作事宜进行磋商交流，持续提升四国执法合作效能，以务实合作维护澜湄流域安全稳定、长治久安。
+只有规划内容真正回应医疗、教育、房屋、福利、安老等市民最切身的诉求，才能让市民切实感受到发展红利。
 
-(完)
+特区政府财政司司长陈茂波指出，这一规划有助于商界、企业、社会和市民更好擘画未来发展，凝聚共识、汇聚资源，增强发展力量。
+
+让规划真正回应市民切身诉求。
 
 ## 相关推荐
 
-- 2026-06-30 07:40 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-30 07:44 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
-- 2026-06-30 07:50 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-30 08:02 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-30 07:44 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-30 07:55 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-30 07:45 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
-- 2026-06-30 07:50 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-30 07:39 - [田中碧失误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-30 07:49 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-30 08:00 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-30 07:59 - [周冬雨多次说演不了话剧文城](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
+- 2026-06-30 08:06 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-30 07:50 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
+- 2026-06-30 07:56 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-30 07:53 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-30 07:50 - [巴西补时绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-30 07:42 - [德国队世界杯点球大战首败](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-30 07:54 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-30 07:49 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
+- 2026-06-30 08:03 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-30 07:57 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-30 07:47 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-30 07:53 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-30 08:00 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-30 08:08 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:38 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/77427.shtml)
-- 2026-06-30 07:43 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/66310766732.shtml)
-- 2026-06-30 07:44 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/058425.shtml)
-- 2026-06-30 07:48 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/0769511.shtml)
-- 2026-06-30 08:02 - [日本进球](http://www.share.minike.top/Article/details/6157326.shtml)
-- 2026-06-30 07:37 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.blog.kurohicncr.top/Article/details/32008149.shtml)
-- 2026-06-30 07:44 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://www.share.minike.top/Article/details/698798208334.shtml)
-- 2026-06-30 08:03 - [世界杯巴拉圭点球淘汰德国](https://www.blog.kurohicncr.top/Article/details/33001.shtml)
-- 2026-06-30 07:39 - [《共患难》](https://www.blog.minike.top/Article/details/8654841.shtml)
-- 2026-06-30 07:41 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/912540.shtml)
-- 2026-06-30 08:02 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/7605485009.shtml)
-- 2026-06-30 07:51 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/9082463195.shtml)
-- 2026-06-30 07:49 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.minike.top/Article/details/12642934747.shtml)
-- 2026-06-30 07:38 - [IGN评测电影版后室](https://www.blog.minike.top/Article/details/243933267.shtml)
-- 2026-06-30 07:43 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/169213.shtml)
+- 2026-06-30 07:53 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/129712.shtml)
+- 2026-06-30 08:07 - [刘宇宁高情商化解谁站C位](http://www.share.kurohicncr.top/Article/details/9378519211.shtml)
+- 2026-06-30 08:02 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/0799802.shtml)
+- 2026-06-30 07:53 - [中国新一轮出口管制直指日本命脉](http://www.share.minike.top/Article/details/971710621.shtml)
+- 2026-06-30 07:43 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/320849.shtml)
+- 2026-06-30 07:45 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.kurohicncr.top/Article/details/73815495.shtml)
+- 2026-06-30 08:08 - [卢卡申科发布解放军仪仗队视频](http://www.blog.minike.top/Article/details/5192425290.shtml)
+- 2026-06-30 08:03 - [男子中医院拔火罐致浅2度烧伤](https://www.share.minike.top/Article/details/429030380.shtml)
+- 2026-06-30 07:56 - [孙兴慜道歉](http://www.share.minike.top/Article/details/373764055840.shtml)
+- 2026-06-30 07:48 - [网友写差评被店家“挂”门口避雷](https://www.share.minike.top/Article/details/846425316834.shtml)
+- 2026-06-30 08:02 - [开电动汽车真的很省钱吗？](https://www.share.minike.top/Article/details/168888565.shtml)
+- 2026-06-30 08:03 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/96323561.shtml)
+- 2026-06-30 08:09 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/61467620877.shtml)
+- 2026-06-30 08:09 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/141899.shtml)
+- 2026-06-30 07:56 - [日本五次世界杯淘汰赛全败](https://www.share.minike.top/Article/details/493404.shtml)

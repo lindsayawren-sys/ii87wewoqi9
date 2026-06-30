@@ -1,57 +1,61 @@
-# 恒瑞医药盘中涨近7% 瑞维鲁胺片上市许可申请获欧洲EMA受理
+# 探秘百洞峡
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-恒瑞医药（01276）盘中涨近7%，截至发稿，股价上涨4.82%，现报57.60港元，成交额1.73亿港元。 恒瑞医药公告称，自主研发的1类创新药瑞维鲁胺片上市许可申请获欧洲药品管理局（EMA）正式受理。这是恒瑞首个以自主原研身份独立向欧盟递交上市申请的创新药，标志着公司国际化战略从早期License-out授权模式，迈向核心创新药自主冲击欧美主流市场的新阶段。 公开资料显示，
+发布时间：2026年06月15日 16:31 来源：中国新闻网 百洞峡旅游区位于黄石市阳新县洋港镇，因一条峡谷贯穿百洞而得名。这里有距今5亿年的寒武纪溶洞奇观、风景秀丽的生态峡谷、巍峨险峻的神兵崖壁、惊险刺激的体验项目、炊烟袅袅的古朴村落，是观赏洞峡景观的奇幻秘境，是考察溶洞成因的研学课堂，也是乐享峡谷休闲生活的世外桃源。百洞峡主洞“山海幻境”全长3600米，由6个大洞厅及众多
 
 ## 正文
 
-恒瑞医药（01276）盘中涨近7%，截至发稿，股价上涨4.82%，现报57.60港元，成交额1.73亿港元。
+发布时间：2026年06月15日 16:31 来源：中国新闻网 百洞峡旅游区位于黄石市阳新县洋港镇，因一条峡谷贯穿百洞而得名。
 
-恒瑞医药公告称，自主研发的1类创新药瑞维鲁胺片上市许可申请获欧洲药品管理局（EMA）正式受理。
+这里有距今5亿年的寒武纪溶洞奇观、风景秀丽的生态峡谷、巍峨险峻的神兵崖壁、惊险刺激的体验项目、炊烟袅袅的古朴村落，是观赏洞峡景观的奇幻秘境，是考察溶洞成因的研学课堂，也是乐享峡谷休闲生活的世外桃源。
 
-这是恒瑞首个以自主原研身份独立向欧盟递交上市申请的创新药，标志着公司国际化战略从早期License-out授权模式，迈向核心创新药自主冲击欧美主流市场的新阶段。
+百洞峡主洞“山海幻境”全长3600米，由6个大洞厅及众多小洞穴组成，常年恒温17℃，冬暖夏凉。
 
-公开资料显示，2024年纳入国家医保目录后，瑞维鲁胺患者可及性显著提升，医院覆盖范围持续扩大，销售增长持续快于行业平均水平。
+进入洞中，石笋、石柱、石幔等钟乳石景群气势恢宏、各具形态、令人震撼，堪称“地下艺术宫殿”。
 
-2025年其国内销售额达到18.51亿元，位居国产泌尿肿瘤创新药第一梯队。
+在华中地区最大的洞内玻璃观景平台上俯瞰，下方的步道灯宛若银河中闪耀的群星。
 
-据Evaluate Pharma数据显示，2025年全球第二代雄激素受体抑制剂销售额合计达128.9亿美元。
+有的钟乳石通体透明，玲珑别致，如琼楼玉宇；还有的钟乳石造型各异，金光闪耀，参差交叠，如龙鳞覆盖。
 
-责任编辑：卢昱君
+洞内天桥、石林、悬崖、绝壁、峰丛幽谷，仿若走进了寒武纪时代，见证地质历史的演化变迁。
+
+(周星亮） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-30 07:49 - [恋与深空道歉声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-30 07:40 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
-- 2026-06-30 07:58 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-30 07:57 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-30 07:56 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
-- 2026-06-30 07:39 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-30 07:58 - [日本进球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-30 07:40 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-30 07:50 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-30 08:04 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-30 07:48 - [感动全网的699分女生想报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-30 07:50 - [苗族银饰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-30 07:44 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-30 07:52 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-30 08:09 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-30 07:47 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-30 08:10 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-30 08:04 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-30 07:54 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-30 07:48 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
+- 2026-06-30 07:55 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-30 07:55 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-30 08:01 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-30 07:57 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-30 07:56 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-30 07:52 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-30 07:59 - [德国 传控](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-30 07:54 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:48 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.minike.top/Article/details/57110.shtml)
-- 2026-06-30 08:03 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/33048161.shtml)
-- 2026-06-30 07:53 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.kurohicncr.top/Article/details/15407842.shtml)
-- 2026-06-30 08:00 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/6410175932.shtml)
-- 2026-06-30 07:40 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/4665210208.shtml)
-- 2026-06-30 07:43 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.kurohicncr.top/Article/details/29027190.shtml)
-- 2026-06-30 07:37 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/2984117.shtml)
-- 2026-06-30 08:04 - [董卿父亲在报纸上发文悼念亡妻](http://www.blog.minike.top/Article/details/21650650349.shtml)
-- 2026-06-30 07:43 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/98292816.shtml)
-- 2026-06-30 08:00 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/221974.shtml)
-- 2026-06-30 07:42 - [郑钦文温网三连败西尼亚科娃](http://www.blog.minike.top/Article/details/378836457.shtml)
-- 2026-06-30 07:59 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/08027233.shtml)
-- 2026-06-30 07:56 - [金牌调解](https://www.share.kurohicncr.top/Article/details/80761593.shtml)
-- 2026-06-30 07:54 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/849026561700.shtml)
-- 2026-06-30 08:05 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/045781980447.shtml)
+- 2026-06-30 07:51 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.kurohicncr.top/Article/details/85371.shtml)
+- 2026-06-30 08:11 - [德国连续三届世界杯无缘16强](http://www.share.kurohicncr.top/Article/details/1943372820.shtml)
+- 2026-06-30 07:46 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/5374935.shtml)
+- 2026-06-30 07:49 - [日本博主：日本足球真的垃圾](http://www.blog.kurohicncr.top/Article/details/289578295374.shtml)
+- 2026-06-30 07:52 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/589856756.shtml)
+- 2026-06-30 08:08 - [上市央企地产商 两年换了三任董事长](http://www.share.minike.top/Article/details/63961879077.shtml)
+- 2026-06-30 07:54 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.minike.top/Article/details/9284659.shtml)
+- 2026-06-30 07:55 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/286424391631.shtml)
+- 2026-06-30 07:49 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/93336661.shtml)
+- 2026-06-30 07:57 - [董卿父亲报纸上发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/21240178136.shtml)
+- 2026-06-30 08:07 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/6950888.shtml)
+- 2026-06-30 07:56 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/601211389419.shtml)
+- 2026-06-30 07:58 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/58795963606.shtml)
+- 2026-06-30 07:52 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/14207100.shtml)
+- 2026-06-30 07:47 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/24063.shtml)

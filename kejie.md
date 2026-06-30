@@ -1,59 +1,57 @@
-# 长江有色：美伊谈判新进展提振市场乐观情绪 23日锌价或上涨
+# 重大诉讼披露不及时不完整，国晟科技及三名高管被北京证监局、上交所警示
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-长江有色金属网 【ccmn.cn摘要】美伊谈判新进展提振市场乐观情绪，隔夜伦锌收涨1.32%；国内淡季消费偏弱，但锌精矿TC延续下行转负，港口库存下滑，今现锌或上涨。 【ccmn.cn锌期货市场】隔夜伦锌震荡走强；开盘报3560美元/吨，高点报3619.5美元，低点报3546.5美元，尾盘收于3602美元，涨47美元，涨幅1.32%；成交量12125手增加2137手，持仓量26
+登录新浪财经APP 搜索【信披】查看更多考评等级 6月15日，国晟科技（维权）（603778.SH）发布公告，因涉及一起重大买卖合同纠纷的信息披露存在不及时、不完整问题，公司及相关人员先后收到中国证监会北京监管局（以下简称“北京证监局”）的警示函及上海证券交易所（以下简称“上交所”）的监管警示决定。 监管查明，国晟科技与江苏大航电气贸易有限公司存在买卖合同纠纷，涉案金额5184
 
 ## 正文
 
-长江有色金属网 【ccmn.cn摘要】美伊谈判新进展提振市场乐观情绪，隔夜伦锌收涨1.32%；国内淡季消费偏弱，但锌精矿TC延续下行转负，港口库存下滑，今现锌或上涨。
+登录新浪财经APP 搜索【信披】查看更多考评等级 6月15日，国晟科技（维权）（603778.SH）发布公告，因涉及一起重大买卖合同纠纷的信息披露存在不及时、不完整问题，公司及相关人员先后收到中国证监会北京监管局（以下简称“北京证监局”）的警示函及上海证券交易所（以下简称“上交所”）的监管警示决定。
 
-【ccmn.cn锌期货市场】隔夜伦锌震荡走强；开盘报3560美元/吨，高点报3619.5美元，低点报3546.5美元，尾盘收于3602美元，涨47美元，涨幅1.32%；成交量12125手增加2137手，持仓量260895手增加3291手。
+监管查明，国晟科技与江苏大航电气贸易有限公司存在买卖合同纠纷，涉案金额5184.62万元，占最近一期经审计净资产的比重超过10%。
 
-晚间沪锌偏强震荡；主力2608合约最新收盘价报24855元/吨，涨130元，涨幅0.53%。
+今年4月24日，公司披露《关于累计诉讼、仲裁事项的公告》时，已获悉该笔诉讼情况，但未在相关公告中予以披露，迟至5月22日才进行补充披露，相关信息披露不完整、不及时。
 
-长江锌业网（pb.ccmn.cn）今日现货锌价行情预估： 宏观层面，德银放弃此前宽松预测，全面上调通胀预期并转为预计美联储2026年加息两次（共50bp）至4.1%，不排除7月意外加息；CME FedWatch显示12月加息隐含概率升至89%、9月加息也被部分定价（7月加25bp概率38.5%）。
+北京证监局认为，国晟科技的上述行为违反了《中华人民共和国证券法》、《上市公司信息披露管理办法》等相关规定。
 
-美伊方面，美财政部批准60天制裁豁免（至8月21日）允许伊朗售油及获收入，瑞士会谈就60天终版路线图达成一致、建立以色列-真主党冲突降级小组及霍尔木兹通航沟通热线——地缘风险溢价继续微量回吐但海湾铝锌产能复产仍需时日。
+吴君作为公司董事长、高飞作为公司总经理、张昆作为公司董事会秘书，对上述违规行为负有主要责任，违反了《上市公司信息披露管理办法》的规定。
 
-国内方面，1-5月全国一般公共预算收入100，465亿元（+4%），税收收入82，617亿元（+4.4%），增值税连续四月提速至+6.2%，财政增收质量改善。
+根据《上市公司信息披露管理办法》第五十三条的规定，北京证监局决定对国晟科技、吴君、高飞、张昆采取出具警示函的行政监管措施，并记入证券期货市场诚信档案。
 
-产业基本面，矿端（强支撑）：进口锌精矿TC指数降至-71.76美元/干吨（环比-0.56），国产矿TC均价下调150元至-200元/金属吨，锌精矿港口库存环比降1.6万吨至28万吨，5月锌精矿进口同比-19.32%至39.66万吨，炼厂亏损面积扩大，虽暂未见大规模减产（仍以常规检修为主），但精炼锌增量空间受抑，深跌封底。
+同日，上交所也就该事项出具监管警示决定。
 
-库存端压力：LME锌库存增至12.34万吨，LME基金净多持仓高位但有止盈迹象（6月12日当周略降）；国内社库环比+0.94万吨至27.52万吨（端午+淡季影响），现货进口亏损扩至>4，100元/吨、保税区仅0.33万吨，内外流通不畅。
+上交所指出，公司上述行为违反了《上海证券交易所股票上市规则》的有关规定。
 
 ## 相关推荐
 
-- 2026-06-30 07:42 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
-- 2026-06-30 08:00 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-30 07:49 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-30 07:54 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
-- 2026-06-30 08:02 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-30 07:45 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-30 07:54 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-30 07:43 - [巴拉圭点球大战淘汰德国进16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-30 07:42 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
-- 2026-06-30 07:51 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-30 07:38 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
-- 2026-06-30 07:56 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-30 07:36 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-30 07:50 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-30 07:51 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-30 07:55 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
+- 2026-06-30 07:59 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-30 07:47 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-30 08:01 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-30 08:06 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-30 07:49 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-30 07:48 - [德国爆冷点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-30 08:06 - [泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-30 08:00 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:50 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/524829738224.shtml)
-- 2026-06-30 07:46 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/40811.shtml)
-- 2026-06-30 07:54 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/474403127895.shtml)
-- 2026-06-30 07:41 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.blog.kurohicncr.top/Article/details/764746171.shtml)
-- 2026-06-30 07:58 - [警犬“多多”助民警寻回失联老人](http://www.blog.kurohicncr.top/Article/details/23409067.shtml)
-- 2026-06-30 07:45 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/53470.shtml)
-- 2026-06-30 07:38 - [王欣瑜温网开门红](https://www.share.kurohicncr.top/Article/details/990123669.shtml)
-- 2026-06-30 07:47 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/66287007728.shtml)
-- 2026-06-30 07:40 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/1414939500.shtml)
-- 2026-06-30 07:40 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/3022337.shtml)
-- 2026-06-30 07:44 - [德国进球被吹](http://www.blog.kurohicncr.top/Article/details/71931567.shtml)
-- 2026-06-30 07:58 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/3167963.shtml)
-- 2026-06-30 08:04 - [赛博朋克边缘行者2预告片](http://www.share.minike.top/Article/details/75707.shtml)
-- 2026-06-30 07:53 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/87530.shtml)
-- 2026-06-30 07:53 - [有酒店推行24小时退房制](https://www.blog.minike.top/Article/details/503940447301.shtml)
+- 2026-06-30 07:45 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/836109284.shtml)
+- 2026-06-30 07:51 - [曝詹姆斯即将与勇士会面](http://www.share.minike.top/Article/details/157246431.shtml)
+- 2026-06-30 08:02 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/57797163.shtml)
+- 2026-06-30 08:04 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/7245347837.shtml)
+- 2026-06-30 08:07 - [警犬“多多”助民警寻回失联老人](https://www.blog.minike.top/Article/details/6972532414.shtml)
+- 2026-06-30 07:59 - [扬名立万](http://www.blog.minike.top/Article/details/472132359290.shtml)
+- 2026-06-30 07:56 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/28426522.shtml)
+- 2026-06-30 08:11 - [索马里女大使：想和中国一起搞事业](http://www.share.minike.top/Article/details/73925854785.shtml)
+- 2026-06-30 07:50 - [高考结束了，你会让孩子在家玩手机吗？](https://www.share.kurohicncr.top/Article/details/771228057.shtml)
+- 2026-06-30 08:06 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/5518354.shtml)
+- 2026-06-30 08:02 - [美股深夜大反弹 特斯拉飙涨8%](http://www.blog.kurohicncr.top/Article/details/864901105.shtml)
+- 2026-06-30 07:45 - [王濛回复黄灿灿](http://www.share.kurohicncr.top/Article/details/65955.shtml)
+- 2026-06-30 07:45 - [审核了不止十年的低创鬼畜](http://www.blog.kurohicncr.top/Article/details/90822.shtml)
+- 2026-06-30 08:06 - [德国巴拉圭加时](http://www.blog.minike.top/Article/details/33742772.shtml)
+- 2026-06-30 08:02 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/73814.shtml)

@@ -1,57 +1,59 @@
-# 针对巴拿马方面无端指责 中国驻美大使阐明中方立场
+# 山西大同直飞首尔仁川航线即将复航 畅通晋韩双向文旅交流通道
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-中新社华盛顿6月23日电 中国驻美国大使兼驻美洲国家组织(OAS)观察员谢锋23日在巴拿马出席OAS成员国与观察员国对话会时，针对巴方领导人在年会开幕式上无端指责中方对到港船舶开展港口国监督检查等不实言论，第一时间澄清事实，阐明中方严正立场。谢锋强调，作为航运大国，中国始终高度重视海上运输和生命安全。但2026年以来，巴拿马旗船舶在中国水域连续发生多起商渔船碰撞事故，造成多人死
+中新网太原6月15日电 (刘小红)记者15日从山西宝华国旅获悉，大同直飞首尔仁川国际航线将于7月9日正式复航。此次复航恰逢暑期旅游旺季，将深度激活两地双向客流，拓宽山西对外开放空中航线通道。 此次复航航线固定每周执飞两班，班期为周四、周日，单程飞行时长约2.5小时，所有航班时刻均参照当地时间执行。每周四，ZE8262航班16:00从大同起飞，19:10抵达仁川；ZE8261返程
 
 ## 正文
 
-中新社华盛顿6月23日电 中国驻美国大使兼驻美洲国家组织(OAS)观察员谢锋23日在巴拿马出席OAS成员国与观察员国对话会时，针对巴方领导人在年会开幕式上无端指责中方对到港船舶开展港口国监督检查等不实言论，第一时间澄清事实，阐明中方严正立场。
+中新网太原6月15日电 (刘小红)记者15日从山西宝华国旅获悉，大同直飞首尔仁川国际航线将于7月9日正式复航。
 
-谢锋强调，作为航运大国，中国始终高度重视海上运输和生命安全。
+此次复航恰逢暑期旅游旺季，将深度激活两地双向客流，拓宽山西对外开放空中航线通道。
 
-但2026年以来，巴拿马旗船舶在中国水域连续发生多起商渔船碰撞事故，造成多人死亡失踪，本着对航运安全，包括船只特别是人员安全负责的态度，中国依照中国法律和国际公约，对到港船舶开展港口国监督检查，不针对特定国家和船旗，无可指责。
+此次复航航线固定每周执飞两班，班期为周四、周日，单程飞行时长约2.5小时，所有航班时刻均参照当地时间执行。
 
-谢锋表示，中国企业自1997年获准并依法经营运河两端港口，为促进巴经济发展作出了积极贡献。
+每周四，ZE8262航班16:00从大同起飞，19:10抵达仁川；ZE8261返程航班13:30从仁川起飞，15:00抵达大同。
 
-近30年来双方合作顺畅，不存在任何重大争议，巴方也从未提出任何抱怨。
+每周日，ZE8262航班18:00从大同起飞，21:15抵达仁川；ZE8261返程航班15:40从仁川起飞，17:00抵达大同。
 
-今年1月，巴最高法院突然作出判决，强行没收、接管，强制驱逐中国企业，明眼人都看得出这背后是政治操弄。
+当前，中国对韩国游客实施单方面免签政策。
 
-如果契约想撕毁就撕毁，市场规则说不遵守就不遵守，资产想接管就接管，经营者说驱逐就驱逐，谁还来投资，谁还来合作？
+持普通护照的韩国游客可免签入境，停留时长不超过15天。
 
-谢锋再次敦促巴方纠正错误，保障中国企业的正当合法权益。
+免签政策叠加直飞航线优势，降低韩国游客入境出行门槛，扩大山西文旅资源的东北亚辐射范围，稳定入境游客源市场。
 
 ## 相关推荐
 
-- 2026-06-30 07:50 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-30 08:00 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
-- 2026-06-30 08:04 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-30 07:55 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
-- 2026-06-30 07:44 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
-- 2026-06-30 07:41 - [二次元提前预演明日巴西对日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-30 07:44 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-30 07:40 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-30 07:40 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-30 07:54 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-30 07:38 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
+- 2026-06-30 07:57 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-30 07:46 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-30 07:54 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-30 07:44 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-30 07:57 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-30 08:11 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-30 07:52 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-30 07:43 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-30 08:08 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-30 07:46 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-30 07:50 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-30 08:01 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-30 08:03 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:42 - [这种关系可能正在悄悄“催老”你](http://www.share.kurohicncr.top/Article/details/60778.shtml)
-- 2026-06-30 07:45 - [马耳他著名拱门坍塌致一中国男子身亡](https://www.blog.minike.top/Article/details/750491446.shtml)
-- 2026-06-30 08:01 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.kurohicncr.top/Article/details/263073840348.shtml)
-- 2026-06-30 07:37 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/3361417666.shtml)
-- 2026-06-30 07:47 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.kurohicncr.top/Article/details/4372780.shtml)
-- 2026-06-30 07:49 - [《贺子珍》](https://www.share.minike.top/Article/details/56284823526.shtml)
-- 2026-06-30 07:54 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/4272835828.shtml)
-- 2026-06-30 07:52 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.blog.minike.top/Article/details/97468628.shtml)
-- 2026-06-30 07:37 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/5588120826.shtml)
-- 2026-06-30 07:56 - [网瘾賊大的阿嬷](http://www.share.minike.top/Article/details/801480269.shtml)
-- 2026-06-30 07:46 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.blog.minike.top/Article/details/49533754.shtml)
-- 2026-06-30 08:05 - [上市央企地产商 两年换了三任董事长](https://www.blog.kurohicncr.top/Article/details/768113272019.shtml)
-- 2026-06-30 07:54 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/90309.shtml)
-- 2026-06-30 07:43 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.minike.top/Article/details/424684201411.shtml)
-- 2026-06-30 08:01 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/6359478505.shtml)
+- 2026-06-30 08:01 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/68554864.shtml)
+- 2026-06-30 07:59 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/589595658260.shtml)
+- 2026-06-30 08:06 - [杨紫获白玉兰视后争议不止](http://www.blog.kurohicncr.top/Article/details/534282697167.shtml)
+- 2026-06-30 08:01 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/581170.shtml)
+- 2026-06-30 08:05 - [美股深夜大反弹 特斯拉飙涨8%](https://www.share.kurohicncr.top/Article/details/71981.shtml)
+- 2026-06-30 07:50 - [周生如故](https://www.blog.kurohicncr.top/Article/details/19255438736.shtml)
+- 2026-06-30 08:10 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/23206.shtml)
+- 2026-06-30 08:02 - [大蒜晒外面被路过女子连盆端走](https://www.share.minike.top/Article/details/916774116819.shtml)
+- 2026-06-30 07:51 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/06829497494.shtml)
+- 2026-06-30 08:11 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/204126018059.shtml)
+- 2026-06-30 07:51 - [乔家的儿女](http://www.blog.minike.top/Article/details/00003.shtml)
+- 2026-06-30 08:10 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/2127354284.shtml)
+- 2026-06-30 07:43 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/831003.shtml)
+- 2026-06-30 07:46 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/20060.shtml)
+- 2026-06-30 07:48 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/28284592877.shtml)

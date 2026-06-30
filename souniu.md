@@ -1,57 +1,56 @@
-# 直击广西柳州超警洪水：楼房被淹多部门联合救援
+# 一习话·文脉华章丨“中国文化源远流长 中华文明博大精深”
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-中新网柳州6月22日电 题：直击广西柳州超警洪水：楼房被淹多部门联合救援 作者 林馨 陈梅 受上游持续强降雨影响，广西柳州市柳江河出现今年以来最大洪水。截至6月22日14时，柳江柳州水文站水位85.6米，超警戒水位3.1米，水位仍在持续上涨。 当天，柳州市城区沿江多条路段被洪水淹没，变“河道”。随着水位不断上涨，柳州市公安局水上派出所成了名副其实的“水上”派出所，洪水漫进一楼值
+“文化是一个国家、一个民族的灵魂。” 党的十八大以来，以习近平同志为核心的党中央始终把文化建设摆在全局工作的重要位置。2023年6月，习近平总书记在文化传承发展座谈会上指出，“中国文化源远流长，中华文明博大精深。只有全面深入了解中华文明的历史，才能更有效地推动中华优秀传统文化创造性转化、创新性发展，更有力地推进中国特色社会主义文化建设。” 近年来，我国文博热、非遗热不断升温，文
 
 ## 正文
 
-中新网柳州6月22日电 题：直击广西柳州超警洪水：楼房被淹多部门联合救援 作者 林馨 陈梅 受上游持续强降雨影响，广西柳州市柳江河出现今年以来最大洪水。
+“文化是一个国家、一个民族的灵魂。
 
-截至6月22日14时，柳江柳州水文站水位85.6米，超警戒水位3.1米，水位仍在持续上涨。
+” 党的十八大以来，以习近平同志为核心的党中央始终把文化建设摆在全局工作的重要位置。
 
-当天，柳州市城区沿江多条路段被洪水淹没，变“河道”。
+2023年6月，习近平总书记在文化传承发展座谈会上指出，“中国文化源远流长，中华文明博大精深。
 
-随着水位不断上涨，柳州市公安局水上派出所成了名副其实的“水上”派出所，洪水漫进一楼值班室、备勤室。
+只有全面深入了解中华文明的历史，才能更有效地推动中华优秀传统文化创造性转化、创新性发展，更有力地推进中国特色社会主义文化建设。
 
-“这几天我们所全员到岗，24小时备勤，已经救助80多名被困民众。
+” 近年来，我国文博热、非遗热不断升温，文化自信给全社会带来持续迸发的创新创造活力。
 
-”该所教导员邓淇文表示，她已连续2天没回家。
+今年6月13日是我国第十个文化和自然遗产日，主题为“文物属于人民 服务人民”。
 
-当地民间救援队伍也积极参与此次救援行动。
+我们要把中华民族历经沧桑留下的中华文明瑰宝呵护好、弘扬好、发展好，在创造性转化和创新性发展中赓续中华文脉，更好担负起新的文化使命。
 
-柳州市龙城先锋救援队队长曲毅介绍，该队80%成员都是退伍军人，应对突发险情有一定经验。
+监制：张军 于锋 统筹：伍刚 蔡荣波 王薇 策划：赵净 姜葳 阮修星 采访制作：王进文 王晶 胡典(实习) 来源：央广网 中国互联网发展基金会中国正能量网络传播专项基金支持
 
 ## 相关推荐
 
-- 2026-06-30 07:49 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
-- 2026-06-30 07:49 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-30 08:00 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-30 07:40 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-30 07:42 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-30 08:05 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
-- 2026-06-30 08:01 - [大蒜晒外面被路过女子连盆端走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-30 07:49 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-30 07:38 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-30 07:47 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-30 07:57 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-30 08:10 - [王濛回复黄灿灿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-30 07:49 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-30 07:44 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-30 08:08 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-30 07:47 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
+- 2026-06-30 07:49 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-30 07:43 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-30 07:57 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-30 08:04 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-30 07:44 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:52 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/68822793.shtml)
-- 2026-06-30 07:57 - [输球后日本球迷被强行披上巴西国旗](https://www.share.minike.top/Article/details/942048781.shtml)
-- 2026-06-30 08:04 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/52089602749.shtml)
-- 2026-06-30 07:36 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/1737811.shtml)
-- 2026-06-30 07:56 - [巴西替补奇兵读秒绝杀](http://www.blog.kurohicncr.top/Article/details/337254363.shtml)
-- 2026-06-30 07:42 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/54951421.shtml)
-- 2026-06-30 07:38 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/724208770250.shtml)
-- 2026-06-30 07:55 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/77898247044.shtml)
-- 2026-06-30 08:00 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/81613.shtml)
-- 2026-06-30 07:45 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/872137932.shtml)
-- 2026-06-30 07:48 - [好像看到了人类带孩子崩溃的样子](http://www.share.minike.top/Article/details/13169.shtml)
-- 2026-06-30 07:38 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/3940793.shtml)
-- 2026-06-30 07:45 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/23657415.shtml)
-- 2026-06-30 07:55 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/77271539666.shtml)
-- 2026-06-30 07:45 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/89364632.shtml)
+- 2026-06-30 08:01 - [美股](http://www.blog.minike.top/Article/details/0175450.shtml)
+- 2026-06-30 07:49 - [网红峡谷5人溺亡 有人提醒会下雨](http://www.blog.minike.top/Article/details/08004115.shtml)
+- 2026-06-30 07:53 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/698981.shtml)
+- 2026-06-30 08:03 - [高质量发展看新疆](http://www.blog.minike.top/Article/details/0625610466.shtml)
+- 2026-06-30 08:04 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://www.share.minike.top/Article/details/867272851.shtml)
+- 2026-06-30 07:42 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/202150493696.shtml)
+- 2026-06-30 07:42 - [免费试吃发差评被店家挂店门避雷](http://www.blog.minike.top/Article/details/42176.shtml)
+- 2026-06-30 07:57 - [美人鱼](http://www.share.minike.top/Article/details/8973384827.shtml)
+- 2026-06-30 07:44 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/601935509.shtml)
+- 2026-06-30 08:07 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/700486.shtml)
+- 2026-06-30 08:09 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/42201.shtml)
+- 2026-06-30 07:47 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/104453.shtml)
+- 2026-06-30 08:05 - [金牌调解](http://www.share.kurohicncr.top/Article/details/1457074.shtml)
+- 2026-06-30 07:59 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/731881049.shtml)
+- 2026-06-30 08:05 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/46765.shtml)

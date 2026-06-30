@@ -1,56 +1,60 @@
-# 从琼岛田间到全球南方 海南“科技小院”加速“出海”
+# 超强厄尔尼诺预警引发市场担忧 全球大宗商品价格面临上涨压力
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-中新网海口6月23日电 (记者 王子谦)海南科技小院高质量发展专场新闻发布会23日在海口举行。记者了解到，海南正加快推动“科技小院”出海，将中国农业技术更好地服务全球南方农业绿色发展。 近期海南“科技小院”出海动作频频：4月25日，海南高校首个海外科技小院——“海南大学赞比亚禾牧科技小院”在赞比亚正式挂牌成立，揭开了海南省高校海外科技小院建设的新篇章；5月20日，海南大学7家海
+美国国家海洋和大气管理局（NOAA）及多家金融分析机构日前发布预警指出，今年全球发生超强厄尔尼诺现象的概率显著上升。专家警告，这一极端气候周期将严重旱涝不均，导致全球农作物大幅减产，可能拉动全球食品大宗商品价格飙升上升至9%。在美伊冲突逐步降温、地缘政治溢价消退的背景下，大宗商品供应链所遭遇的“气候冲击”恐将接棒成为推高全球通胀的主要驱动力。 根据美国国家海洋和大气管理局的预测
 
 ## 正文
 
-中新网海口6月23日电 (记者 王子谦)海南科技小院高质量发展专场新闻发布会23日在海口举行。
+美国国家海洋和大气管理局（NOAA）及多家金融分析机构日前发布预警指出，今年全球发生超强厄尔尼诺现象的概率显著上升。
 
-记者了解到，海南正加快推动“科技小院”出海，将中国农业技术更好地服务全球南方农业绿色发展。
+专家警告，这一极端气候周期将严重旱涝不均，导致全球农作物大幅减产，可能拉动全球食品大宗商品价格飙升上升至9%。
 
-近期海南“科技小院”出海动作频频：4月25日，海南高校首个海外科技小院——“海南大学赞比亚禾牧科技小院”在赞比亚正式挂牌成立，揭开了海南省高校海外科技小院建设的新篇章；5月20日，海南大学7家海外科技小院在“热区高校联盟2026年年会”上集中落地，标志着海南省科技小院和高等教育对外开放迈出坚实步伐。
+在美伊冲突逐步降温、地缘政治溢价消退的背景下，大宗商品供应链所遭遇的“气候冲击”恐将接棒成为推高全球通胀的主要驱动力。
 
-作为海南科技小院建设的主要牵头高校，海南大学已构建起“集群化布局+整建制出海”的双轮驱动格局。
+根据美国国家海洋和大气管理局的预测，今年发生厄尔尼诺现象的可能性已超过90%，且有四分之一的概率演变为类似于1997年至1998年级别的超强厄尔尼诺事件。
 
-海南大学副校长刘谦介绍，该校发挥海南自贸港开放政策优势与学校国际化办学优势，按照“广泛孵化、重点支持，成熟一个、发展一个”原则，在赞比亚、尼日利亚、纳米比亚、安哥拉、马来西亚、印度尼西亚、柬埔寨成立7个海外科技小院，采用“四方共建”模式，与国内科技小院结成“姊妹小院”，并创新实施人才培养“1+1+1”模式，培育“带不走”的本土人才。
+气象预测机构“天气钟”（WeatherBELL Analytics）高级气象预报员乔·巴斯塔迪指出，中太平洋和西太平洋的气压变化表明该现象实际上已经开始。
 
-中国农业大学三亚研究院副院长、教授张朝春称，研究院积极推进国际科技小院示范点建设，将在三亚市吉阳区建立大茅国际科技小院示范基地。
+英国大宗商品经纪商马莱克斯（Marex）在一份专题研究报告中指出，强烈的厄尔尼诺将严重扰乱热带及温带作物的生产周期，其中小麦、大米、棉花、食糖、可可和棕榈油的产量受到的冲击最为严重。
 
-同时，搭建高层次交流平台：今年1月，举办科技小院国际论坛；5月，与联合国粮农组织在海南启动首届FAO海南国际科技小院技术培训班，并与FAO亚洲大洋洲近20个国家代表处举行共建筹备会，将共建国际科技小院纳入未来海南省政府与联合国粮农组织合作计划当中。
+历史数据表明，该现象引发的极端旱涝曾导致澳大利亚以及俄罗斯、乌克兰、哈萨克斯坦等传统产粮区的作物大面积减产，进而急剧推高全球粮价。
 
-海南省教育厅高等教育处处长王丽娜说，海南正布局“科技小院”国际化发展，近期指导和支持海南大学依托热区高校联盟，助力高等教育国际化发展。
+该机构分析师同时警示，由于担忧气候灾害造成颗粒无收，农户可能会主动削减种植面积，这种顺周期行为将进一步加剧农产品的供给危机。
 
 ## 相关推荐
 
-- 2026-06-30 08:01 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
-- 2026-06-30 07:58 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-30 08:00 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
-- 2026-06-30 07:42 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-30 07:39 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
-- 2026-06-30 07:43 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
-- 2026-06-30 07:56 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-30 07:55 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-30 07:40 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-30 07:56 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-30 08:05 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-30 08:04 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-30 08:01 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-30 07:47 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-30 07:53 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-30 08:10 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-30 08:10 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-30 07:44 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-30 08:08 - [点球大战 残酷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-30 07:58 - [萨内 看笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
+- 2026-06-30 08:01 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
+- 2026-06-30 07:55 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-30 07:54 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-30 07:57 - [巴西足球能否再现昔日荣光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:56 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/025030160.shtml)
-- 2026-06-30 07:50 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.minike.top/Article/details/798822.shtml)
-- 2026-06-30 07:38 - [吴易昺不敌德约科维奇 止步温网首轮](http://www.share.minike.top/Article/details/294508.shtml)
-- 2026-06-30 07:37 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/322734229.shtml)
-- 2026-06-30 07:41 - [上市央企地产商 两年换了三任董事长](http://www.share.minike.top/Article/details/5587511.shtml)
-- 2026-06-30 07:36 - [《共患难》](http://www.share.kurohicncr.top/Article/details/596843738.shtml)
-- 2026-06-30 07:57 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.minike.top/Article/details/4033704361.shtml)
-- 2026-06-30 07:40 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://www.blog.minike.top/Article/details/59035052.shtml)
-- 2026-06-30 07:56 - [天道](http://www.share.kurohicncr.top/Article/details/6856259199.shtml)
-- 2026-06-30 07:37 - [好像看到了人类带孩子崩溃的样子](https://www.blog.kurohicncr.top/Article/details/291231232432.shtml)
-- 2026-06-30 08:00 - [父母催婚话术是如何做到全国统一的](http://www.share.kurohicncr.top/Article/details/328800904656.shtml)
-- 2026-06-30 08:04 - [极限挑战第一季](http://www.blog.minike.top/Article/details/6724906.shtml)
-- 2026-06-30 07:51 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/1998072.shtml)
-- 2026-06-30 07:52 - [日本反击率先破门](http://www.blog.minike.top/Article/details/3552133231.shtml)
-- 2026-06-30 07:36 - [檀健次王楚然吻戏看热了](http://www.share.kurohicncr.top/Article/details/544343.shtml)
+- 2026-06-30 07:57 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/11641777025.shtml)
+- 2026-06-30 07:46 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/68435345895.shtml)
+- 2026-06-30 07:45 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/8059704.shtml)
+- 2026-06-30 07:42 - [点球大战](http://www.blog.kurohicncr.top/Article/details/33131.shtml)
+- 2026-06-30 07:59 - [日本队5进世界杯淘汰赛0胜](http://www.blog.kurohicncr.top/Article/details/830732721.shtml)
+- 2026-06-30 07:47 - [湖南祁东原文化馆被指贱卖](https://www.blog.minike.top/Article/details/7812101.shtml)
+- 2026-06-30 07:46 - [德国4比5巴拉圭](http://www.share.kurohicncr.top/Article/details/67806.shtml)
+- 2026-06-30 08:11 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/44460.shtml)
+- 2026-06-30 08:01 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/462847141578.shtml)
+- 2026-06-30 07:50 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/277929463.shtml)
+- 2026-06-30 08:02 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/27594053068.shtml)
+- 2026-06-30 07:47 - [曝多支争冠球队有意塞克斯顿](http://www.share.kurohicncr.top/Article/details/7317125.shtml)
+- 2026-06-30 07:58 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/56394.shtml)
+- 2026-06-30 08:08 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/426966122.shtml)
+- 2026-06-30 08:03 - [德国队世界杯点球大战首败](http://www.blog.minike.top/Article/details/45622.shtml)

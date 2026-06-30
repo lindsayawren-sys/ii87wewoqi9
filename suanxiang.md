@@ -1,45 +1,61 @@
-# 英媒报道称：逾400艘船在霍尔木兹海峡等待谈判结果
+# 用户反复上传盗版剧集 平台只删链接不封号被判赔3万元
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月23日 10:59 来源：央视新闻 责任编辑：【王祎】
+用户反复上传盗版剧集，版权方20多次投诉，平台却机械地“只删链接不封号”，导致用户持续上传、侵权反复发生。这种情况下平台要不要担责呢？北京互联网法院审结的一起侵权纠纷给出明确答案，平台构成帮助侵权，必须赔偿。一家影视公司享有一部知名电视剧的独占信息网络传播权。他们发现，视频平台上的一名用户在长达4个月的时间内，一直上传这部电视剧的完整剧集，侵权链接多达上百条。 原告委托诉讼代理
 
 ## 正文
 
-发布时间：2026年06月23日 10:59 来源：央视新闻 责任编辑：【王祎】
+用户反复上传盗版剧集，版权方20多次投诉，平台却机械地“只删链接不封号”，导致用户持续上传、侵权反复发生。
+
+这种情况下平台要不要担责呢？
+
+北京互联网法院审结的一起侵权纠纷给出明确答案，平台构成帮助侵权，必须赔偿。
+
+一家影视公司享有一部知名电视剧的独占信息网络传播权。
+
+他们发现，视频平台上的一名用户在长达4个月的时间内，一直上传这部电视剧的完整剧集，侵权链接多达上百条。
+
+原告委托诉讼代理人：这个账号基本隔几天就会上传侵权内容，频次非常高，而且持续了比较长的时间，我们也投诉了很多次。
+
+北京互联网法院法官 王彦杰：原告方发现侵权内容之后，对被告公司发出了相应的侵权通知函，要求被告公司针对相关的侵权内容进行删除处理，并且对于上传侵权内容的用户，采取屏蔽、封号等措施。
+
+2023年5月31日至9月21日，这家影视公司先后二十多次发起投诉，针对侵权账号发布的105条侵权链接进行维权。
 
 ## 相关推荐
 
-- 2026-06-30 07:53 - [日本16强魔咒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-30 07:41 - [锐评T1战胜KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-30 07:38 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-30 07:47 - [为什么会有「念旧」的心理？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-30 07:37 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
-- 2026-06-30 07:44 - [德国队世界杯点球大战首败](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-30 07:54 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-30 07:41 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-30 07:50 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
-- 2026-06-30 07:45 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
-- 2026-06-30 07:58 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-30 07:46 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
-- 2026-06-30 08:05 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-30 07:53 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-30 07:43 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-30 07:51 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-30 08:04 - [日本队5进世界杯淘汰赛0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-30 08:10 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-30 07:46 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-30 07:54 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-30 07:48 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-30 07:56 - [锐评T1战胜KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-30 07:52 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-30 08:06 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-30 07:53 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-30 08:07 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-30 08:11 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
+- 2026-06-30 07:51 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:44 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/2923412.shtml)
-- 2026-06-30 07:46 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/5100866086.shtml)
-- 2026-06-30 07:43 - [天道](https://www.share.minike.top/Article/details/098924529.shtml)
-- 2026-06-30 07:39 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.kurohicncr.top/Article/details/57507.shtml)
-- 2026-06-30 07:42 - [曝老詹对自由市场态度与以往截然不同](http://www.blog.minike.top/Article/details/2191235876.shtml)
-- 2026-06-30 08:03 - [王濛回复黄灿灿](https://www.share.kurohicncr.top/Article/details/90449.shtml)
-- 2026-06-30 07:57 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/6509678.shtml)
-- 2026-06-30 07:36 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/138534612.shtml)
-- 2026-06-30 07:44 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/2313918.shtml)
-- 2026-06-30 07:59 - [《贺子珍》](https://www.share.minike.top/Article/details/96381934.shtml)
-- 2026-06-30 07:49 - [媒体：手机测评该挤挤水分了](https://www.share.kurohicncr.top/Article/details/31140361.shtml)
-- 2026-06-30 07:53 - [日本遭读秒绝杀 森保一：我水平不够](http://www.share.kurohicncr.top/Article/details/810681340661.shtml)
-- 2026-06-30 07:58 - [日本进球](http://www.blog.kurohicncr.top/Article/details/37984138781.shtml)
-- 2026-06-30 07:56 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/807805.shtml)
-- 2026-06-30 07:37 - [日本 高位逼抢](http://www.share.minike.top/Article/details/69475.shtml)
+- 2026-06-30 08:09 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/834548739430.shtml)
+- 2026-06-30 07:52 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/778676079.shtml)
+- 2026-06-30 07:45 - [免费试吃发差评被店家挂店门避雷](http://www.blog.kurohicncr.top/Article/details/7049052.shtml)
+- 2026-06-30 08:09 - [这几秒成世界杯最值钱广告位](https://www.share.minike.top/Article/details/190547514209.shtml)
+- 2026-06-30 08:04 - [扬名立万](http://www.share.kurohicncr.top/Article/details/896248113.shtml)
+- 2026-06-30 08:03 - [王源近几年没有路演了](http://www.blog.minike.top/Article/details/46544533.shtml)
+- 2026-06-30 08:02 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/026782945.shtml)
+- 2026-06-30 07:46 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/456404848670.shtml)
+- 2026-06-30 07:51 - [博世们还在犹豫 美的们已经卖断货](http://www.share.minike.top/Article/details/48214738.shtml)
+- 2026-06-30 07:47 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/76139849.shtml)
+- 2026-06-30 08:10 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.kurohicncr.top/Article/details/631128.shtml)
+- 2026-06-30 07:42 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.kurohicncr.top/Article/details/02923.shtml)
+- 2026-06-30 08:10 - [曝詹姆斯即将与勇士会面](https://www.blog.kurohicncr.top/Article/details/00165215.shtml)
+- 2026-06-30 08:05 - [孙颖莎王楚钦晋级8强](https://www.blog.kurohicncr.top/Article/details/806375944.shtml)
+- 2026-06-30 08:08 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/98837322.shtml)

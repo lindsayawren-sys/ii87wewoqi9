@@ -1,59 +1,51 @@
-# 首单央企商业不动产REITs项目，华夏保利商业REIT获批
+# 威华达控股遭SHOG Creation Limited减持2256.9万股 每股均价约2.02港元
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-2026年6月22日，华夏保利发展封闭式商业不动产证券投资基金（以下简称“华夏保利商业REIT”）正式获得中国证监会准予注册的批复以及上海证券交易所无异议函。 此项目不仅是首单央企商业不动产REITs，同时也是保利发展在商业资产证券化方面的标志性突破。华夏保利商业REIT的获批，既为资本市场提供优质商业不动产投资选项，更将持续发挥行业标杆效应，为房企存量资产盘活、轻重资产分离转
+香港联交所最新数据显示，6月12日，SHOG Creation Limited减持威华达控股（00622）2256.9万股，每股均价2.0243港元，总金额约为4568.64万港元。减持后最新持股数目约为9.72亿股，持股比例为13.99%。责任编辑：卢昱君
 
 ## 正文
 
-2026年6月22日，华夏保利发展封闭式商业不动产证券投资基金（以下简称“华夏保利商业REIT”）正式获得中国证监会准予注册的批复以及上海证券交易所无异议函。
+香港联交所最新数据显示，6月12日，SHOG Creation Limited减持威华达控股（00622）2256.9万股，每股均价2.0243港元，总金额约为4568.64万港元。
 
-此项目不仅是首单央企商业不动产REITs，同时也是保利发展在商业资产证券化方面的标志性突破。
+减持后最新持股数目约为9.72亿股，持股比例为13.99%。
 
-华夏保利商业REIT的获批，既为资本市场提供优质商业不动产投资选项，更将持续发挥行业标杆效应，为房企存量资产盘活、轻重资产分离转型提供可复制的实践路径，助力我国商业不动产市场与公募REITs行业高质量发展。
-
-相关资料显示，该产品原始权益人为保利集团旗下大型上市公司保利发展，底层资产囊括地处珠江新城的广州保利中心、位于千灯湖商圈核心的佛山保利水城，运营管理机构为保利发展、保利商业物业及和汇商管，计划管理人、财务顾问为中信证券，基金管理人为华夏基金，各专业机构协同运作，为基金规范运作、稳健发展筑起坚实保障。
-
-具体来看，产品原始权益人保利发展稳居房地产行业头部，资产规模超万亿，连续多年销售业绩位居行业首位，持有业态覆盖购物中心、写字楼、酒店、住房租赁全品类，在营项目超200个，扩募储备优质资产规模超100万平方米，在建拟建储备项目超20个，资产布局聚焦全国核心城市核心区位，具备成熟不动产全周期运营能力与充足后续扩募空间。
-
-而原始权益人背后核心支撑为保利集团，其系国务院国资委直管大型中央企业，2025年位列《财富》世界500强第199位，13次获国务院国资委业绩考核A级，品牌实力位居央企前列。
-
-集团依托全产业链资源优势，未来可积极参与覆盖Pre-REITs到公募REITs的生态体系，为产品长期稳健运营、持续资产扩容提供坚实央企背书与全维度赋能。
-
-两处标的资产均坐落大湾区核心区位，形成高端写字楼与商业综合体双业态互补格局，深度绑定各区域发展红利。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 07:57 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
-- 2026-06-30 07:41 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-30 08:05 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
-- 2026-06-30 07:45 - [德国队连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-30 07:52 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-30 07:38 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-30 08:02 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-30 08:05 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-30 07:45 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
-- 2026-06-30 08:04 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-30 07:45 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
-- 2026-06-30 07:36 - [三星投资计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-30 07:56 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-30 07:44 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-30 08:06 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-30 07:57 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-30 07:58 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-30 08:00 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-30 07:55 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-30 08:03 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-30 07:58 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-30 08:05 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-30 07:46 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-30 07:55 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-30 08:02 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-30 08:05 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-30 08:02 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-30 08:00 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:36 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/6866356.shtml)
-- 2026-06-30 08:01 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/45479446208.shtml)
-- 2026-06-30 08:01 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/349607.shtml)
-- 2026-06-30 07:45 - [日本遭读秒绝杀 森保一：我水平不够](http://www.share.minike.top/Article/details/77446597.shtml)
-- 2026-06-30 07:45 - [曝多支争冠球队有意塞克斯顿](http://www.share.minike.top/Article/details/013859188.shtml)
-- 2026-06-30 07:40 - [巴西把自己踢晕了](http://www.share.minike.top/Article/details/924594492.shtml)
-- 2026-06-30 07:39 - [啊啊啊](http://www.blog.minike.top/Article/details/0329194.shtml)
-- 2026-06-30 07:51 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.blog.minike.top/Article/details/16037.shtml)
-- 2026-06-30 08:01 - [日本半场1比0领先巴西](http://www.share.minike.top/Article/details/32937.shtml)
-- 2026-06-30 08:04 - [王健林甩卖超80座万达广场](https://www.share.minike.top/Article/details/643591441557.shtml)
-- 2026-06-30 07:50 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/82809372.shtml)
-- 2026-06-30 07:49 - [巴拉圭点球大战淘汰德国进16强](http://www.blog.kurohicncr.top/Article/details/15344.shtml)
-- 2026-06-30 07:37 - [德国进球被吹](http://www.share.kurohicncr.top/Article/details/51911.shtml)
-- 2026-06-30 07:50 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.kurohicncr.top/Article/details/98357.shtml)
-- 2026-06-30 07:51 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/689956.shtml)
+- 2026-06-30 08:06 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](http://www.share.minike.top/Article/details/97449158.shtml)
+- 2026-06-30 07:49 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/02274686143.shtml)
+- 2026-06-30 07:49 - [日本半场1比0领先巴西](http://www.blog.minike.top/Article/details/79966461.shtml)
+- 2026-06-30 07:44 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/650295.shtml)
+- 2026-06-30 08:05 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/82107355.shtml)
+- 2026-06-30 08:04 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/75956.shtml)
+- 2026-06-30 07:45 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/066741.shtml)
+- 2026-06-30 08:09 - [巴西补时绝杀日本](http://www.blog.kurohicncr.top/Article/details/82350450968.shtml)
+- 2026-06-30 07:53 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.kurohicncr.top/Article/details/43512177835.shtml)
+- 2026-06-30 07:57 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/23582.shtml)
+- 2026-06-30 07:45 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.kurohicncr.top/Article/details/32462.shtml)
+- 2026-06-30 07:50 - [为什么会有「念旧」的心理？](http://www.share.kurohicncr.top/Article/details/707664.shtml)
+- 2026-06-30 08:04 - [吴易昺不敌德约科维奇 止步温网首轮](http://www.share.minike.top/Article/details/7262152639.shtml)
+- 2026-06-30 08:11 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/2573226480.shtml)
+- 2026-06-30 08:04 - [Melo向柳智敏张元英道歉](https://www.share.kurohicncr.top/Article/details/492076022255.shtml)

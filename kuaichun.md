@@ -1,42 +1,56 @@
-# 多名北京网友称电视弹出“海淀地震”提示 海淀区地震局工作人员：非官方发布信息 正在核实来源
+# 光大期货：6月16日农产品日报
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月23日 22:56 来源：中国新闻网 多名北京网友称电视弹出“海淀地震”提示 海淀区地震局工作人员：非官方发布信息 正在核实来源 责任编辑：【李光伟】
+蛋白粕： （侯雪玲，从业资格号：F3048706；交易咨询资格号：Z0013637） 周一，CBOT大豆收高，受助于技术性反弹，此前总体有利的美国作物天气以及原油价格拖累美豆创四个月新低。NOPA发布月度压榨数据，截至5月底美豆油库存降至17.35亿帮，为5个月最低水平。美豆油库存低于预期。美豆出口检验符合预期，美豆优良率略改善。机构预计美豆种植面积8530万英亩，略高于种植意
 
 ## 正文
 
-发布时间：2026年06月23日 22:56 来源：中国新闻网 多名北京网友称电视弹出“海淀地震”提示 海淀区地震局工作人员：非官方发布信息 正在核实来源 责任编辑：【李光伟】
+蛋白粕： （侯雪玲，从业资格号：F3048706；交易咨询资格号：Z0013637） 周一，CBOT大豆收高，受助于技术性反弹，此前总体有利的美国作物天气以及原油价格拖累美豆创四个月新低。
+
+NOPA发布月度压榨数据，截至5月底美豆油库存降至17.35亿帮，为5个月最低水平。
+
+美豆油库存低于预期。
+
+美豆出口检验符合预期，美豆优良率略改善。
+
+机构预计美豆种植面积8530万英亩，略高于种植意向报告的8470万英亩。
+
+国内方面，蛋白粕偏弱震荡，资金观望情绪浓厚。
+
+现货市场成交清淡，同样观望为主。
+
+钢联数据显示，上周大豆库存攀升，豆粕库存攀升，未执行合同下降。
 
 ## 相关推荐
 
-- 2026-06-30 08:05 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
-- 2026-06-30 08:03 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-30 07:37 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-30 08:01 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-30 07:49 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
-- 2026-06-30 07:43 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-30 07:57 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
-- 2026-06-30 08:02 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-30 07:43 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
-- 2026-06-30 07:57 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-30 08:09 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-30 08:04 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-30 07:58 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-30 08:06 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-30 07:47 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-30 08:00 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-30 07:58 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
+- 2026-06-30 08:03 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-30 07:49 - [森保一致歉：世界第一目标没能实现](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-30 07:52 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:40 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/7661615324.shtml)
-- 2026-06-30 08:02 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://www.blog.minike.top/Article/details/272162.shtml)
-- 2026-06-30 08:03 - [藤森庆子赢得秘鲁总统选举](https://www.blog.kurohicncr.top/Article/details/68399489906.shtml)
-- 2026-06-30 07:47 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/986194628.shtml)
-- 2026-06-30 07:39 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/6725455041.shtml)
-- 2026-06-30 07:41 - [巴西半场0比1日本](http://www.blog.kurohicncr.top/Article/details/286980.shtml)
-- 2026-06-30 07:40 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/18545.shtml)
-- 2026-06-30 07:47 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/99739.shtml)
-- 2026-06-30 07:42 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.minike.top/Article/details/700151241958.shtml)
-- 2026-06-30 07:44 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/54383821.shtml)
-- 2026-06-30 07:55 - [Melo向柳智敏张元英道歉](http://www.share.kurohicncr.top/Article/details/2616217.shtml)
-- 2026-06-30 07:43 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/4139992525.shtml)
-- 2026-06-30 07:51 - [女心理师](https://www.blog.minike.top/Article/details/76398.shtml)
-- 2026-06-30 07:41 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/601699859.shtml)
-- 2026-06-30 07:55 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.minike.top/Article/details/99246.shtml)
+- 2026-06-30 08:06 - [“草莓月亮”浪漫现身](http://www.share.minike.top/Article/details/159577172.shtml)
+- 2026-06-30 08:03 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/3251770.shtml)
+- 2026-06-30 07:42 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/95313569.shtml)
+- 2026-06-30 08:04 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.minike.top/Article/details/94558.shtml)
+- 2026-06-30 07:50 - [亚洲球队全部出局](http://www.blog.minike.top/Article/details/319786020.shtml)
+- 2026-06-30 07:50 - [斗破苍穹](http://www.blog.minike.top/Article/details/94274742.shtml)
+- 2026-06-30 07:47 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/7152601667.shtml)
+- 2026-06-30 07:54 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.kurohicncr.top/Article/details/1917177592.shtml)
+- 2026-06-30 08:05 - [爱很美味](http://www.share.minike.top/Article/details/5962081.shtml)
+- 2026-06-30 07:45 - [巴西在进攻三区完成210脚传球](https://www.blog.kurohicncr.top/Article/details/116624.shtml)
+- 2026-06-30 08:00 - [詹姆斯下赛季去哪](https://www.blog.kurohicncr.top/Article/details/55023.shtml)
+- 2026-06-30 07:53 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/203337110772.shtml)
+- 2026-06-30 07:51 - [覃予萱晋级WTT美国大满贯女单32强](https://www.share.kurohicncr.top/Article/details/857253.shtml)
+- 2026-06-30 07:51 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/3564992448.shtml)
+- 2026-06-30 07:42 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/20427091.shtml)

@@ -1,57 +1,46 @@
-# 净息差或倒挂，中小银行要换新活法？投资收益撑起营收，六大城商行金融投资占比超四成
+# 以色列袭击黎巴嫩首都附近地区 至少3人死亡
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-原标题：净息差或倒挂，中小银行要换新活法？！投资收益撑起营收，六大城商行金融投资占比超四成；上海银行、南京银行投资收益占比增至38%、34% 来源：今日行长 作者 | 时也运也 编辑 | 顾柠 手工补息明确叫停、存款利率全面破“1”．．．这两年来，银行业经历了不少影响深远的大事，当“躺着赚利差”的日子一去不复返，银行机构不得不寻找新的营收支点。 在此背景下，投资收益，这个曾经在
+中新网6月15日电 据卡塔尔半岛新闻网报道，当地时间15日，黎巴嫩当局称，以色列对该国首都贝鲁特南郊的袭击，已造成至少3人死亡。 报道援引观察人士的话警告称，这是最新的军事升级，可能破坏美国与伊朗之间脆弱的和平谈判。
 
 ## 正文
 
-原标题：净息差或倒挂，中小银行要换新活法？
+中新网6月15日电 据卡塔尔半岛新闻网报道，当地时间15日，黎巴嫩当局称，以色列对该国首都贝鲁特南郊的袭击，已造成至少3人死亡。
 
-！
-
-投资收益撑起营收，六大城商行金融投资占比超四成；上海银行、南京银行投资收益占比增至38%、34% 来源：今日行长 作者 | 时也运也 编辑 | 顾柠 手工补息明确叫停、存款利率全面破“1”．．．这两年来，银行业经历了不少影响深远的大事，当“躺着赚利差”的日子一去不复返，银行机构不得不寻找新的营收支点。
-
-在此背景下，投资收益，这个曾经在银行营收结构中扮演配角的科目，正逐渐成为影响盈利表现的核心变量之一。
-
-资产端，A股42家上市银行2025年末整体金融投资达94.44万亿，在总资产中占比28.5%，其中宁波银行、齐鲁银行、杭州银行等六家城商行的金融投资占总资产比重更超过四成。
-
-收益端，2025年末42家银行累计实现投资收益6059.9亿元，在总营收中占比10.6%，多达30家银行机构投资收益占营收比重较前一年增长．．． 长三角区域上市行金融投资领先，六家上市城商行占比超四成 2025年，42家上市行中有23家银行机构金融投资占比同比提升，占总资产规模比重均值保持在三成左右，加码金融投资显然成为近两年银行业资产端主叙事逻辑之一。
-
-其中，国有大行的金融投资占比均值为30.28%。
-
-邮储银行34.03%，在六大行中最高，其后依次为农业银行33.46%、工商银行31.62%、交通银行29.12%，建设银行28.26%、中国银行25.18%。
+报道援引观察人士的话警告称，这是最新的军事升级，可能破坏美国与伊朗之间脆弱的和平谈判。
 
 ## 相关推荐
 
-- 2026-06-30 08:05 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-30 08:00 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-30 07:48 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-30 07:59 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-30 08:03 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-30 07:37 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
-- 2026-06-30 07:57 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-30 07:59 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-30 07:38 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-30 07:44 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
-- 2026-06-30 07:50 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-30 07:45 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-30 07:42 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-30 08:00 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
+- 2026-06-30 08:10 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-30 08:01 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-30 07:48 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-30 08:11 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-30 07:42 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-30 08:00 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
+- 2026-06-30 08:00 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-30 07:43 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-30 07:43 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:48 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/12490.shtml)
-- 2026-06-30 07:47 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/59611442411.shtml)
-- 2026-06-30 07:39 - [巴拉圭点球大战淘汰德国进16强](https://www.blog.minike.top/Article/details/975048591.shtml)
-- 2026-06-30 08:03 - [日本 高位逼抢](http://www.share.kurohicncr.top/Article/details/7758603.shtml)
-- 2026-06-30 07:43 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.kurohicncr.top/Article/details/06445.shtml)
-- 2026-06-30 07:38 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/451602.shtml)
-- 2026-06-30 07:49 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/419702.shtml)
-- 2026-06-30 08:02 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/0513801575.shtml)
-- 2026-06-30 07:39 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.kurohicncr.top/Article/details/2986336146.shtml)
-- 2026-06-30 07:38 - [花少8要去世界杯举办国](https://www.share.minike.top/Article/details/198404335483.shtml)
-- 2026-06-30 07:50 - [刘宇宁高情商化解谁站C位](http://www.share.minike.top/Article/details/14511377.shtml)
-- 2026-06-30 07:40 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/2723806.shtml)
-- 2026-06-30 07:40 - [赛博朋克边缘行者2预告片](https://www.blog.kurohicncr.top/Article/details/24455.shtml)
-- 2026-06-30 07:49 - [日本进球](http://www.share.kurohicncr.top/Article/details/8626232.shtml)
-- 2026-06-30 08:04 - [我觉得你是在无中生友](http://www.share.minike.top/Article/details/42925165761.shtml)
+- 2026-06-30 07:59 - [明星大侦探第四季](http://www.share.minike.top/Article/details/2237121.shtml)
+- 2026-06-30 07:49 - [全新问界M9现身美国街头](https://www.blog.minike.top/Article/details/5166478.shtml)
+- 2026-06-30 07:54 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/02851.shtml)
+- 2026-06-30 07:52 - [现在叛逆期的孩子最怕的是什么？](https://www.share.minike.top/Article/details/3783347.shtml)
+- 2026-06-30 07:59 - [房价什么时候能涨](https://www.share.minike.top/Article/details/6913769.shtml)
+- 2026-06-30 07:53 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.kurohicncr.top/Article/details/094619.shtml)
+- 2026-06-30 08:11 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/01478714616.shtml)
+- 2026-06-30 07:45 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/2005219.shtml)
+- 2026-06-30 07:54 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/93906179798.shtml)
+- 2026-06-30 07:56 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/810621.shtml)
+- 2026-06-30 08:09 - [国务院：稳步推进研究生考试招生改革](https://www.share.kurohicncr.top/Article/details/06602940355.shtml)
+- 2026-06-30 08:09 - [现在叛逆期的孩子最怕的是什么？](https://www.blog.minike.top/Article/details/70095101120.shtml)
+- 2026-06-30 07:53 - [王欣瑜2-1击败科恰雷托](http://www.blog.kurohicncr.top/Article/details/4919450762.shtml)
+- 2026-06-30 08:03 - [德国巴拉圭 折磨](https://www.blog.kurohicncr.top/Article/details/23330616.shtml)
+- 2026-06-30 07:44 - [《贺子珍》](https://www.share.minike.top/Article/details/86690440.shtml)

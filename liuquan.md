@@ -1,51 +1,56 @@
-# 山西运城警方通报13岁女孩相关案件：成立联合调查组全面复核
+# 伊朗国足获准世界杯比赛时在美国过夜
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-中新网运城6月23日电 (记者 李庭耀)山西省运城市公安局盐湖分局22日晚发布警情通报称，近日，网络平台反映“13岁女孩称遭男子强奸，警方不予立案”。运城市公安局盐湖分局对此高度重视，目前已与相关单位组成联合调查组，启动案件复核程序，对案件的原始卷宗、证据材料及办理过程依法依规进行全面复核。 通报称，鉴于该案涉及未成年人，请广大网友不要传播未经证实的相关信息，共同维护未成年人的
+发布时间：2026年06月16日 13:35 来源：中国新闻网 伊朗足协当地时间6月15日证实，伊朗国足参加2026美加墨世界杯期间可以在美国过夜。观察人士说，美伊达成谅解备忘录或许起到了推动作用。 根据赛程，伊朗队三场小组赛都在美国境内进行，当地时间15日和21日在洛杉矶分别对阵新西兰队和比利时队，26日在西雅图对阵埃及队。 由于伊朗战事以及随之而来的签证拖延、驻地转换、出入
 
 ## 正文
 
-中新网运城6月23日电 (记者 李庭耀)山西省运城市公安局盐湖分局22日晚发布警情通报称，近日，网络平台反映“13岁女孩称遭男子强奸，警方不予立案”。
+发布时间：2026年06月16日 13:35 来源：中国新闻网 伊朗足协当地时间6月15日证实，伊朗国足参加2026美加墨世界杯期间可以在美国过夜。
 
-运城市公安局盐湖分局对此高度重视，目前已与相关单位组成联合调查组，启动案件复核程序，对案件的原始卷宗、证据材料及办理过程依法依规进行全面复核。
+观察人士说，美伊达成谅解备忘录或许起到了推动作用。
 
-通报称，鉴于该案涉及未成年人，请广大网友不要传播未经证实的相关信息，共同维护未成年人的合法权益。
+根据赛程，伊朗队三场小组赛都在美国境内进行，当地时间15日和21日在洛杉矶分别对阵新西兰队和比利时队，26日在西雅图对阵埃及队。
 
-(完)
+由于伊朗战事以及随之而来的签证拖延、驻地转换、出入美国等一系列困扰，伊朗男足如何参加本届世界杯一直备受关注。
+
+依据此前消息，伊朗队仅可在比赛日前往美国，赛后需立即返回位于墨西哥蒂华纳的驻地。
+
+此次伊朗足协证实，伊朗国足可以在适当情况下在美国过夜。
+
+为履行赛前义务，伊朗足球队14日全员亮相洛杉矶体育场，伊朗队主教练加莱诺埃和前锋塔雷米一同出席了赛前发布会。
+
+加莱诺埃说，一些与足球本身无关的困扰影响了队伍备战。
 
 ## 相关推荐
 
-- 2026-06-30 07:55 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-30 08:02 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
-- 2026-06-30 08:00 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
-- 2026-06-30 08:02 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-30 07:49 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-30 07:42 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
-- 2026-06-30 07:56 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-30 07:47 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-30 08:03 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-30 08:04 - [日本球员说被绝杀非常不甘心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-30 07:58 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
-- 2026-06-30 07:58 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
-- 2026-06-30 07:54 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-30 07:56 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-30 07:42 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-30 07:47 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-30 08:10 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-30 08:10 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-30 08:00 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-30 08:05 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-30 07:48 - [张雪的一句“是我们”引发岛内热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-30 07:54 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-30 08:06 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:54 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/5677181.shtml)
-- 2026-06-30 07:49 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/97085828484.shtml)
-- 2026-06-30 07:47 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/18131.shtml)
-- 2026-06-30 07:53 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/849929.shtml)
-- 2026-06-30 07:47 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/52631.shtml)
-- 2026-06-30 07:59 - [王欣瑜2-1击败科恰雷托](https://www.share.minike.top/Article/details/2573936.shtml)
-- 2026-06-30 07:52 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/215086908576.shtml)
-- 2026-06-30 07:58 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.share.minike.top/Article/details/511278565645.shtml)
-- 2026-06-30 07:55 - [美股深夜大反弹 特斯拉飙涨8%](http://www.blog.kurohicncr.top/Article/details/31814.shtml)
-- 2026-06-30 07:49 - [藤森庆子赢得秘鲁总统选举](https://www.share.minike.top/Article/details/85244454.shtml)
-- 2026-06-30 07:41 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://www.blog.kurohicncr.top/Article/details/16355066.shtml)
-- 2026-06-30 07:45 - [DeepSeek V4正式版要来了](http://www.blog.minike.top/Article/details/39328.shtml)
-- 2026-06-30 07:58 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.minike.top/Article/details/394866.shtml)
-- 2026-06-30 07:50 - [库尼亚赛后伸五指嘲讽日本](http://www.blog.kurohicncr.top/Article/details/007794.shtml)
-- 2026-06-30 07:39 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/742871345.shtml)
+- 2026-06-30 07:44 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/05356.shtml)
+- 2026-06-30 08:05 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/15818985.shtml)
+- 2026-06-30 08:07 - [男子身高一米八二仍做断骨增高](https://www.blog.kurohicncr.top/Article/details/69646708286.shtml)
+- 2026-06-30 07:44 - [齐思钧回复张月](https://www.share.minike.top/Article/details/34012515.shtml)
+- 2026-06-30 08:09 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.minike.top/Article/details/965536063.shtml)
+- 2026-06-30 07:53 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.minike.top/Article/details/71076.shtml)
+- 2026-06-30 08:11 - [这几秒成世界杯最值钱广告位](http://www.share.minike.top/Article/details/1375591613.shtml)
+- 2026-06-30 07:44 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/5301051850.shtml)
+- 2026-06-30 07:54 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/627761.shtml)
+- 2026-06-30 08:11 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/756356417541.shtml)
+- 2026-06-30 07:56 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/909571.shtml)
+- 2026-06-30 07:44 - [峡谷事故团队组队时有人提醒会下雨](https://www.share.minike.top/Article/details/12593.shtml)
+- 2026-06-30 07:46 - [媒体评泰山建135公里刀片刺绳隔离网](https://www.share.minike.top/Article/details/59782067.shtml)
+- 2026-06-30 07:42 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.minike.top/Article/details/305196687971.shtml)
+- 2026-06-30 07:43 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/634370.shtml)

@@ -1,47 +1,61 @@
-# 东方证券遭上海宁泉资产管理有限公司减持125.4万股 每股作价5.91港元
+# 重庆荣昌赓续非遗：窑火“炼”匠心、夏布“织”新韵
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-香港联交所最新资料显示，6月12日，上海宁泉资产管理有限公司减持东方证券（03958）125.4万股，每股作价5.91港元，总金额为741.114万港元。减持后最新持股数目为5029.64万股，最新持股比例为4.90%。责任编辑：卢昱君
+中新网重庆6月15日电 题：重庆荣昌赓续非遗：窑火“炼”匠心、夏布“织”新韵 作者 梁钦卿 走进重庆荣昌鸦屿山下的安陶小镇，百余家陶艺工作室与标准化厂房错落有致，形成从陶土开采、手工制坯、柴烧上釉到文创展销的完整产业链。作为拥有800余年历史的传统产业，荣昌陶器如今远销30多个国家和地区。 荣昌制陶业主要集聚在鸦屿山一带。根据出土文物佐证，荣昌制陶业在唐宋时期已十分兴盛。历经千
 
 ## 正文
 
-香港联交所最新资料显示，6月12日，上海宁泉资产管理有限公司减持东方证券（03958）125.4万股，每股作价5.91港元，总金额为741.114万港元。
+中新网重庆6月15日电 题：重庆荣昌赓续非遗：窑火“炼”匠心、夏布“织”新韵 作者 梁钦卿 走进重庆荣昌鸦屿山下的安陶小镇，百余家陶艺工作室与标准化厂房错落有致，形成从陶土开采、手工制坯、柴烧上釉到文创展销的完整产业链。
 
-减持后最新持股数目为5029.64万股，最新持股比例为4.90%。
+作为拥有800余年历史的传统产业，荣昌陶器如今远销30多个国家和地区。
 
-责任编辑：卢昱君
+荣昌制陶业主要集聚在鸦屿山一带。
+
+根据出土文物佐证，荣昌制陶业在唐宋时期已十分兴盛。
+
+历经千年传承，荣昌陶器形成独树一帜的制作工艺与艺术特色。
+
+其制作需历经20余道精细工序，成品质地细腻致密，敲击之声清脆如金属鸣响，素有“薄如纸、亮如镜、声如磐”的美誉。
+
+“荣昌陶艺术水准位居国内陶业前列，是重庆乃至全国极具辨识度的非遗陶艺名片。
+
+”国家级非物质文化遗产陶器烧制技艺(荣昌陶器制作技艺)代表性传承人梁先才14日告诉中新网，长期以来，荣昌陶以低端日用陶生产为主，产品附加值低、创新不足。
 
 ## 相关推荐
 
-- 2026-06-30 08:01 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
-- 2026-06-30 07:36 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-30 07:53 - [点球大战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-30 07:40 - [锐评T1战胜KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
-- 2026-06-30 07:51 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-30 07:56 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
-- 2026-06-30 07:46 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-30 07:56 - [德国巴拉圭加时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-30 07:51 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
-- 2026-06-30 07:40 - [德国巴拉圭加时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-30 07:36 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-30 07:43 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-30 08:09 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-30 07:58 - [德国4比5巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-30 07:58 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-30 08:09 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-30 08:06 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-30 08:04 - [内马尔替补](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-30 07:58 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-30 07:42 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
+- 2026-06-30 07:48 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-30 07:59 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-30 08:00 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-30 07:42 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-30 07:59 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-30 07:59 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:02 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/894457847791.shtml)
-- 2026-06-30 07:53 - [周生如故](https://www.blog.kurohicncr.top/Article/details/5936871578.shtml)
-- 2026-06-30 07:46 - [中国新一轮出口管制直指日本命脉](http://www.share.minike.top/Article/details/51918959.shtml)
-- 2026-06-30 07:41 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/03453182.shtml)
-- 2026-06-30 07:55 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.minike.top/Article/details/83151.shtml)
-- 2026-06-30 07:39 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/26428139655.shtml)
-- 2026-06-30 08:02 - [金牌调解](http://www.share.kurohicncr.top/Article/details/9155111707.shtml)
-- 2026-06-30 07:43 - [湖南祁东原文化馆被指贱卖](http://www.share.minike.top/Article/details/46173282316.shtml)
-- 2026-06-30 08:00 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/178273385437.shtml)
-- 2026-06-30 07:37 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/156009095963.shtml)
-- 2026-06-30 07:53 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/042576123563.shtml)
-- 2026-06-30 08:01 - [日本五次世界杯淘汰赛全败](http://www.share.minike.top/Article/details/919123062.shtml)
-- 2026-06-30 07:49 - [扬名立万](https://www.share.minike.top/Article/details/899947.shtml)
-- 2026-06-30 07:45 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/909700.shtml)
-- 2026-06-30 07:43 - [金刚川](https://www.blog.minike.top/Article/details/46785030605.shtml)
+- 2026-06-30 07:48 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/71401815762.shtml)
+- 2026-06-30 07:53 - [巴拉圭先进球了](https://www.blog.minike.top/Article/details/0899682.shtml)
+- 2026-06-30 08:03 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/155729.shtml)
+- 2026-06-30 08:11 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/28718.shtml)
+- 2026-06-30 07:53 - [巴西绝杀](https://www.blog.minike.top/Article/details/3378931087.shtml)
+- 2026-06-30 08:08 - [日本 高位逼抢](http://www.share.kurohicncr.top/Article/details/5453335565.shtml)
+- 2026-06-30 07:45 - [网瘾賊大的阿嬷](https://www.blog.kurohicncr.top/Article/details/95541117.shtml)
+- 2026-06-30 07:44 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/464877.shtml)
+- 2026-06-30 08:10 - [刘必安等16人非法集资案二审宣判](https://www.share.minike.top/Article/details/163303.shtml)
+- 2026-06-30 08:07 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/44022.shtml)
+- 2026-06-30 08:04 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/484426.shtml)
+- 2026-06-30 08:05 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/351484770.shtml)
+- 2026-06-30 08:02 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/77353.shtml)
+- 2026-06-30 08:01 - [刘宇宁高情商化解谁站C位](http://www.share.kurohicncr.top/Article/details/2106931.shtml)
+- 2026-06-30 08:01 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/32821539844.shtml)

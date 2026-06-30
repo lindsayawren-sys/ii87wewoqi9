@@ -1,57 +1,60 @@
-# 多家银行，落地此项业务！
+# 邦达亚洲:美伊达成和平协议 黄金早盘攀升
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-6月22日，中国外汇交易中心与上海清算所联合推出面向全市场的外币回购质押券替换功能，旨在进一步优化外币回购交易及清算服务，满足市场机构抵押品管理和多样化结算方式的需求。《中国银行保险报》记者注意到，新功能启动当日，工商银行、建设银行、交通银行、中信银行、浦发银行、浙商银行、招商银行、渤海银行、北京银行、顺德农商银行、广东华兴银行、中金公司等多家机构成功达成首批外币质押式回购质押
+6月15日，在伊朗战争持续近4个月之际，美伊和谈终于迎来了突破性进展。美国、伊朗以及关键斡旋方巴基斯坦均表示，协议已达成，并将于本周五在瑞士正式签署。美国总统特朗普和巴基斯坦总理谢谢里夫双双宣布，美国和伊朗已达成协议。而伊朗方面也已正式确认伊美停战谅解备忘录达成。综合央视新闻等媒体报道，当地时间14日，美国总统特朗普表示，与伊朗的协议现已完成，全面开放霍尔木兹海峡，同时授权立即
 
 ## 正文
 
-6月22日，中国外汇交易中心与上海清算所联合推出面向全市场的外币回购质押券替换功能，旨在进一步优化外币回购交易及清算服务，满足市场机构抵押品管理和多样化结算方式的需求。
+6月15日，在伊朗战争持续近4个月之际，美伊和谈终于迎来了突破性进展。
 
-《中国银行保险报》记者注意到，新功能启动当日，工商银行、建设银行、交通银行、中信银行、浦发银行、浙商银行、招商银行、渤海银行、北京银行、顺德农商银行、广东华兴银行、中金公司等多家机构成功达成首批外币质押式回购质押券替换业务，标志着外币回购全生命周期管理机制迈上新台阶。
+美国、伊朗以及关键斡旋方巴基斯坦均表示，协议已达成，并将于本周五在瑞士正式签署。
 
-外币回购是金融机构之间基于抵押品开展的外币资金融通业务，即通过抵押债券等资产来融入外币资金。
+美国总统特朗普和巴基斯坦总理谢谢里夫双双宣布，美国和伊朗已达成协议。
 
-根据上海清算所此前发布的新版业务指南，外币质押式回购是交易双方进行的以债券为权利质押的一种短期外币资金融通业务。
+而伊朗方面也已正式确认伊美停战谅解备忘录达成。
 
-正回购方在将债券出质给逆回购方融入外币资金的同时，双方约定在将来某一日期由正回购方按约定回购利率计算的资金额向逆回购方返还资金。
+综合央视新闻等媒体报道，当地时间14日，美国总统特朗普表示，与伊朗的协议现已完成，全面开放霍尔木兹海峡，同时授权立即解除美国海军的封锁。
 
-外汇交易中心指出，质押券替换功能的推出，有效支持了参与机构通过该中心外汇交易系统和上海清算所综合业务系统更加灵活地开展外币流动性管理，实现了外币回购担保品管理体系从“静态锁定”向“动态管理”的优化升级。
+随后不久，特朗普又发文称，这项伟大协议将为整个地区带来和平与安全。
 
-在资产配置层面，也打破质押券一经锁定即不可变动的约束，通过释放优质资产的再融资能力，大幅提升市场资金流转与资源配置效率。
+随着美伊协议19日签署，霍尔木兹海峡将重新开放，以便进行排雷作业。
 
-在风险管理层面，构建了基于估值波动及风险偏好的主动调整机制，提升参与机构对质押券组合的精细化管理能力，为构建层次更丰富、运行更高效、韧性更强的银行间外币货币市场夯实运行基础。
+另外，澳大利亚预计将迎来年内首次维持关键利率不变。
 
 ## 相关推荐
 
-- 2026-06-30 07:51 - [武磊：巴西队赢的并不轻松](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
-- 2026-06-30 07:58 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-30 07:58 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-30 07:49 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-30 07:44 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
-- 2026-06-30 07:56 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-30 07:47 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
-- 2026-06-30 08:05 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
-- 2026-06-30 07:49 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
-- 2026-06-30 08:00 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-30 07:43 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-30 08:06 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-30 07:45 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-30 07:56 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-30 08:09 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-30 08:00 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
+- 2026-06-30 07:50 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-30 07:53 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-30 08:08 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
+- 2026-06-30 07:53 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-30 08:09 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-30 08:11 - [马耳他著名拱门坍塌致一中国男子身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-30 08:08 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-30 07:49 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-30 08:10 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:54 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/80983042.shtml)
-- 2026-06-30 07:47 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.kurohicncr.top/Article/details/50298.shtml)
-- 2026-06-30 07:47 - [健全中小学教师工资长效联动机制](https://www.blog.kurohicncr.top/Article/details/9818045.shtml)
-- 2026-06-30 08:00 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/58769929.shtml)
-- 2026-06-30 07:50 - [网友写差评被店家“挂”门口避雷](http://www.share.minike.top/Article/details/0227973338.shtml)
-- 2026-06-30 07:46 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/06631922645.shtml)
-- 2026-06-30 08:05 - [巴西在进攻三区完成210脚传球](https://www.share.minike.top/Article/details/470411434.shtml)
-- 2026-06-30 07:42 - [美股深夜大反弹 特斯拉飙涨8%](https://www.share.minike.top/Article/details/4869531.shtml)
-- 2026-06-30 07:38 - [巴西绝杀](https://www.blog.minike.top/Article/details/5734676.shtml)
-- 2026-06-30 07:55 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/133020235196.shtml)
-- 2026-06-30 07:54 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/067816781165.shtml)
-- 2026-06-30 07:51 - [莫兰特转投开拓者效力](https://www.share.minike.top/Article/details/096918422.shtml)
-- 2026-06-30 07:50 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/07730762267.shtml)
-- 2026-06-30 07:37 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.minike.top/Article/details/0094927.shtml)
-- 2026-06-30 08:02 - [国务院：鼓励行业龙头企业举办职校](http://www.share.minike.top/Article/details/45862318.shtml)
+- 2026-06-30 08:06 - [媒体：手机测评该挤挤水分了](http://www.share.minike.top/Article/details/4289998.shtml)
+- 2026-06-30 08:05 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/959102724561.shtml)
+- 2026-06-30 08:10 - [豆包收费了，你还会用吗？](https://www.blog.minike.top/Article/details/37109173.shtml)
+- 2026-06-30 08:11 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/835596.shtml)
+- 2026-06-30 07:45 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/328897.shtml)
+- 2026-06-30 07:44 - [媒体评泰山建135公里刀片刺绳隔离网](https://www.blog.kurohicncr.top/Article/details/4735245168.shtml)
+- 2026-06-30 08:00 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/339781072408.shtml)
+- 2026-06-30 07:43 - [王健林甩卖超80座万达广场](http://www.blog.minike.top/Article/details/5078781464.shtml)
+- 2026-06-30 08:02 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.kurohicncr.top/Article/details/96435942999.shtml)
+- 2026-06-30 07:43 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/430249508.shtml)
+- 2026-06-30 08:11 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/429100162.shtml)
+- 2026-06-30 07:54 - [网红峡谷5人溺亡 有人提醒会下雨](http://www.blog.minike.top/Article/details/961642911577.shtml)
+- 2026-06-30 07:46 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/39781727.shtml)
+- 2026-06-30 07:46 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/8608427.shtml)
+- 2026-06-30 07:46 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/0819038.shtml)

@@ -1,59 +1,56 @@
-# 韩国央行：考虑通胀经济金融等因素，需要在适当时候提高利率
+# 智谱“加盟”首日，港股硬科技炸了！规模最大港股通信息技术ETF华宝（159131）放量大涨7.35%
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-韩国央行重申了其向鹰派转向的立场，随着房价上涨、家庭债务增加和杠杆投资带来加剧金融失衡的风险，在适当的时候需要提高利率。 在周三发布的半年一度的《金融稳定报告》中，韩国央行表示，尽管国内外不确定性加剧，但得益于更强劲的经济增长、具有韧性的金融机构和雄厚的对外收支状况，该国的金融体系总体上保持稳定。 不过，该报告警告称，随着首尔及周边地区房价加速上涨，以及投资者越来越依赖杠杆购买
+6月15日，港股硬科技持续领涨全市场，港股通信息C指数大涨7%，大幅跑赢恒生科技5.7个百分点。同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）场内价格持续走高，尾盘再度发力，强势收涨7.35%，涨幅高居全市场跨境类ETF第一，单日成交额超19亿元。 成份股方面，智谱飙涨32%，建滔积层板涨超22%，海致科技集团、英诺赛科、建滔集团、蓝思科技、光合科技等十股
 
 ## 正文
 
-韩国央行重申了其向鹰派转向的立场，随着房价上涨、家庭债务增加和杠杆投资带来加剧金融失衡的风险，在适当的时候需要提高利率。
+6月15日，港股硬科技持续领涨全市场，港股通信息C指数大涨7%，大幅跑赢恒生科技5.7个百分点。
 
-在周三发布的半年一度的《金融稳定报告》中，韩国央行表示，尽管国内外不确定性加剧，但得益于更强劲的经济增长、具有韧性的金融机构和雄厚的对外收支状况，该国的金融体系总体上保持稳定。
+同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）场内价格持续走高，尾盘再度发力，强势收涨7.35%，涨幅高居全市场跨境类ETF第一，单日成交额超19亿元。
 
-不过，该报告警告称，随着首尔及周边地区房价加速上涨，以及投资者越来越依赖杠杆购买资产，金融失衡可能会进一步加剧。
+成份股方面，智谱飙涨32%，建滔积层板涨超22%，海致科技集团、英诺赛科、建滔集团、蓝思科技、光合科技等十股涨超10%。
 
-央行也指出，弱势借款人和企业的信贷风险正在上升，尽管银行和其他金融机构维持着资本和流动性缓冲。
+据悉，智谱今日正式纳入港股通信息技术ETF华宝（159131）标的指数成份股，该指数成为全市场率先纳入智谱的港股科技类指数之一。
 
-报告称：“韩国央行自2025年下半年以来一直将基准利率维持在2.5%，但考虑到通胀压力、经济状况和金融稳定风险，认为有必要在适当的时候提高政策利率。
+同步纳入的新晋成份股还有壁仞科技、胜宏科技、天数智芯等3只今年刚登陆港股的硬件翘楚。
 
-” 货币政策委员会成员黄建日主导了这份报告的撰写，他警告称，经济领域日益加剧的两极分化可能成为金融不稳定的根源。
+至此，港股通信息C指数成份股从52只扩容至60只，硬科技属性进一步增强。
 
-他在单独声明中表示，脆弱行业面临的压力不断增加，加上与房地产市场上涨和杠杆投资相关的家庭债务再度攀升，都值得密切关注。
+消息面上，美国政府以国安为由禁Anthropic两款最强AI模型向外国人开放。
 
-韩国央行表示，将继续协调货币政策和宏观审慎政策，同时加强对家庭债务、杠杆投资以及非银行部门流动性风险的监管。
+禁售之际，国产大模型企业智谱宣布，旗下最强模型“GLM-5.2”上周六傍晚起全量开放。
 
 ## 相关推荐
 
-- 2026-06-30 07:36 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
-- 2026-06-30 07:52 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-30 07:41 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-30 08:02 - [张雪的一句“是我们”引发岛内热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-30 07:51 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-30 07:52 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
-- 2026-06-30 07:59 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-30 07:40 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-30 08:03 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-30 07:45 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-30 07:40 - [安切洛蒂 换人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
-- 2026-06-30 07:39 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
-- 2026-06-30 08:01 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-30 07:42 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-30 08:01 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
+- 2026-06-30 07:57 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-30 07:55 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-30 08:06 - [Melo向柳智敏张元英道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-30 07:53 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-30 07:47 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-30 07:42 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-30 08:03 - [男子在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-30 08:04 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:03 - [德国连续三届世界杯无缘16强](http://www.share.minike.top/Article/details/674361855641.shtml)
-- 2026-06-30 07:47 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/4560876.shtml)
-- 2026-06-30 07:40 - [中国新一轮出口管制直指日本命脉](https://www.share.kurohicncr.top/Article/details/248584077.shtml)
-- 2026-06-30 07:59 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.kurohicncr.top/Article/details/740596.shtml)
-- 2026-06-30 07:56 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/591563186064.shtml)
-- 2026-06-30 08:01 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.kurohicncr.top/Article/details/324765105.shtml)
-- 2026-06-30 07:47 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/79588487.shtml)
-- 2026-06-30 07:51 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/503938568989.shtml)
-- 2026-06-30 07:58 - [输球后日本球迷被强行披上巴西国旗](http://www.share.kurohicncr.top/Article/details/158537.shtml)
-- 2026-06-30 07:40 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/38972873.shtml)
-- 2026-06-30 07:46 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/118630537.shtml)
-- 2026-06-30 07:41 - [爆冷出局！德国点球大战不敌巴拉圭](https://www.blog.minike.top/Article/details/6210101.shtml)
-- 2026-06-30 07:53 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/445613437.shtml)
-- 2026-06-30 07:36 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.kurohicncr.top/Article/details/10669268.shtml)
-- 2026-06-30 07:37 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/191140884781.shtml)
+- 2026-06-30 08:03 - [德国连续三届世界杯无缘16强](http://www.share.minike.top/Article/details/80341663103.shtml)
+- 2026-06-30 07:51 - [德国罚丢3粒点球](https://www.share.minike.top/Article/details/76037349412.shtml)
+- 2026-06-30 08:06 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/435329152.shtml)
+- 2026-06-30 07:49 - [苗族银饰](https://www.blog.kurohicncr.top/Article/details/44496.shtml)
+- 2026-06-30 08:00 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/071888289.shtml)
+- 2026-06-30 07:46 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/35681930087.shtml)
+- 2026-06-30 08:11 - [刘宇宁高情商化解谁站C位](https://www.blog.minike.top/Article/details/11107.shtml)
+- 2026-06-30 08:05 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/5512223729.shtml)
+- 2026-06-30 07:47 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.blog.kurohicncr.top/Article/details/27053.shtml)
+- 2026-06-30 08:00 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/70586371029.shtml)
+- 2026-06-30 07:46 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/8556609048.shtml)
+- 2026-06-30 07:56 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/97159561.shtml)
+- 2026-06-30 08:00 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/49369.shtml)
+- 2026-06-30 07:54 - [巴西绝杀日本](http://www.share.kurohicncr.top/Article/details/61424302497.shtml)
+- 2026-06-30 07:46 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/107100491.shtml)

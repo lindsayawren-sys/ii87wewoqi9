@@ -1,56 +1,57 @@
-# 股海导航_2026年6月23日_沪深股市公告与交易提示
+# 国家统计局：5月份国民经济运行总体平稳、向新向优
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 专题：交易提示 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！【停牌】 002175 *ST东智 688146 中船特气 【复牌】 600717 天津港 300665 飞鹿股份 603159 上海亚虹 688143 长盈通 600777 新潮能源（维权） 002217 ST合力泰（维权） 【品大事】 晶
+中新网6月16日电 据国家统计局网站消息，5月份，各地区各部门认真贯彻落实党中央、国务院决策部署，坚持稳中求进工作总基调，完整准确全面贯彻新发展理念，加快构建新发展格局，认真落实更加积极有为的宏观政策，有效应对外部冲击挑战，生产供给稳中有升，就业物价总体稳定，外贸韧性持续彰显，新动能成长壮大，国民经济延续总体平稳、向新向优的发展态势。一、工业生产加快，装备制造业和高技术制造业较
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 专题：交易提示 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网6月16日电 据国家统计局网站消息，5月份，各地区各部门认真贯彻落实党中央、国务院决策部署，坚持稳中求进工作总基调，完整准确全面贯彻新发展理念，加快构建新发展格局，认真落实更加积极有为的宏观政策，有效应对外部冲击挑战，生产供给稳中有升，就业物价总体稳定，外贸韧性持续彰显，新动能成长壮大，国民经济延续总体平稳、向新向优的发展态势。
 
-【停牌】 002175 *ST东智 688146 中船特气 【复牌】 600717 天津港 300665 飞鹿股份 603159 上海亚虹 688143 长盈通 600777 新潮能源（维权） 002217 ST合力泰（维权） 【品大事】 晶升股份：碳化硅正处于小批量测试阶段 晶升股份（688478）6月22日发布股票交易异常波动公告，公司关注到近期媒体报道及市场传闻涉及“AIDC智算中心、先进封装带动碳化硅需求爆发”“碳化硅迈入12英寸时代”“公司深度受益AI算力与先进封装产业链景气上行”等事项。
+一、工业生产加快，装备制造业和高技术制造业较快增长 5月份，全国规模以上工业增加值同比增长4.5%，比上月加快0.4个百分点；环比增长0.40%。
 
-在AIDC、先进封装等新兴应用场景中，目前碳化硅正处于小批量测试阶段，下游客户认证、批量采购落地进度存在较大不确定性，在下游相关新应用领域实现规模化技术落地前，暂不会形成大批量使用。
+分三大门类看，采矿业增加值同比增长2.3%，制造业增长4.4%，电力、热力、燃气及水生产和供应业增长7.6%。
 
-因此，AIDC、先进封装的应用需求对公司整体经营业绩的影响存在不确定性。
+装备制造业增加值同比增长9.5%，高技术制造业增加值增长15.1%，分别比上月加快1.2和2.3个百分点。
 
-中船特气：公司股票交易严重异常波动 23日起停牌核查 中船特气（688146）6月22日公告，因公司股票价格自5月11日至6月22日期间多次触及股票交易异常波动及严重异常波动的情形，为维护投资者利益，公司将就股票交易波动情况进行停牌核查。
+分经济类型看，国有控股企业增加值同比增长3.7%；股份制企业增长5.2%，外商及港澳台投资企业增长1.9%；私营企业增长2.7%。
 
-经申请，公司股票将于6月23日（星期二）开市起停牌，自披露核查公告后复牌。
+分产品看，3D打印设备、锂离子电池、工业机器人产品产量同比分别增长54.4%、40.0%、27.9%。
 
-麦捷科技：公司无MLCC研发、生产、销售相关业务 麦捷科技（300319）6月22日发布股票交易异常波动公告，公司此前已多次通过公告、投资者互动平台等渠道澄清与英伟达的合作进展：公司当前仅有部分电感料号正在进行研发导入，整体业务仅处于研发小批量试产阶段，尚未形成规模化、稳定大批量供货。
+1—5月份，全国规模以上工业增加值同比增长5.4%。
 
-自2025年第四季度开始，元器件上游铜、锡、银等大宗商品价格大幅上涨，下游企业成本难以负担，据此，部分元器件因成本压力传导导致产品售价有所上涨。
+5月份，制造业采购经理指数为50.0%，企业生产经营活动预期指数为53.9%。
 
 ## 相关推荐
 
-- 2026-06-30 08:03 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-30 07:36 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-30 08:04 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
-- 2026-06-30 07:54 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-30 08:04 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-30 07:54 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-30 07:56 - [上半年全国特种设备安全形势总体平稳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
-- 2026-06-30 07:57 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
-- 2026-06-30 08:03 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
-- 2026-06-30 07:53 - [男子在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-30 07:57 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-30 08:05 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-30 07:58 - [王楚钦说配合稍微有些陌生感](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-30 08:01 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-30 07:43 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-30 08:01 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-30 08:09 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-30 07:56 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-30 07:48 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-30 07:54 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-30 07:55 - [人类...完蛋了...](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:57 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/469638474.shtml)
-- 2026-06-30 07:55 - [安切洛蒂 换人](https://www.share.minike.top/Article/details/7196124535.shtml)
-- 2026-06-30 07:51 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/850557311.shtml)
-- 2026-06-30 07:46 - [AI手机进入Agent时代](https://www.blog.minike.top/Article/details/036200675355.shtml)
-- 2026-06-30 07:52 - [一见倾心](https://www.share.minike.top/Article/details/07838381.shtml)
-- 2026-06-30 07:47 - [德国vs巴拉圭](https://www.blog.minike.top/Article/details/98371.shtml)
-- 2026-06-30 07:53 - [警犬“多多”助民警寻回失联老人](http://www.share.kurohicncr.top/Article/details/78339276414.shtml)
-- 2026-06-30 07:50 - [媒体：手机测评该挤挤水分了](http://www.share.kurohicncr.top/Article/details/093176212759.shtml)
-- 2026-06-30 08:02 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.share.minike.top/Article/details/912206092786.shtml)
-- 2026-06-30 07:48 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/51085697.shtml)
-- 2026-06-30 07:48 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/8379547913.shtml)
-- 2026-06-30 07:51 - [覃予萱晋级WTT美国大满贯女单32强](http://www.share.minike.top/Article/details/720518.shtml)
-- 2026-06-30 08:02 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/297021.shtml)
-- 2026-06-30 07:53 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/7234644307.shtml)
-- 2026-06-30 08:04 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/4484628132.shtml)
+- 2026-06-30 07:48 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/482143789207.shtml)
+- 2026-06-30 07:53 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/326371749.shtml)
+- 2026-06-30 07:48 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/5393981.shtml)
+- 2026-06-30 07:58 - [男子在京东买到“同仁堂”假药](http://www.blog.kurohicncr.top/Article/details/416474.shtml)
+- 2026-06-30 07:51 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.kurohicncr.top/Article/details/9832172614.shtml)
+- 2026-06-30 08:10 - [请回答王牌2019](https://www.share.minike.top/Article/details/1443635309.shtml)
+- 2026-06-30 07:43 - [巴西绝杀日本](http://www.share.minike.top/Article/details/03551.shtml)
+- 2026-06-30 08:11 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/1569347832.shtml)
+- 2026-06-30 07:54 - [巴西绝杀日本](https://www.share.minike.top/Article/details/1444621035.shtml)
+- 2026-06-30 07:43 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/6428322.shtml)
+- 2026-06-30 07:58 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/60896.shtml)
+- 2026-06-30 07:46 - [森保一 保守](https://www.blog.kurohicncr.top/Article/details/42216.shtml)
+- 2026-06-30 08:05 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/765335.shtml)
+- 2026-06-30 07:43 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/456652248513.shtml)
+- 2026-06-30 07:46 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/22195.shtml)

@@ -1,46 +1,60 @@
-# 朱勇刚任华为旗下花瓣支付董事长
+# 美伊达成和平协议提振亚洲科技股，软银大涨超10%
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-6月23日金融一线消息，天眼查平台显示，近日，花瓣支付（深圳）有限公司发生工商变更，郑丽英卸任董事长，由朱勇刚接任，同时多位主要人员发生变更。该公司成立于2013年6月，注册资本2亿人民币，经营范围含电子支付、支付结算和清算系统的技术开发与技术咨询服务，互联网支付、移动电话支付、数字电视支付业务等，由华为技术有限公司全资持股。 责任编辑：曹睿潼
+核心要点 美伊达成终止中东冲突的和平协议，受此利好提振，周一亚洲科技股集体大幅上涨。 日本科技投资集团软银领涨亚洲核心科技板块，收盘涨幅达 10%；东京电子、爱德万测试分别上涨 7%、7.67%。 韩国综合指数权重存储芯片龙头同步走强：三星电子上涨 4.5%，SK 海力士涨幅 6.42%。 中国台湾台积电（TSMC）上涨 2.81%，鸿海精密（富士康）上涨 2.69%。 近几周
 
 ## 正文
 
-6月23日金融一线消息，天眼查平台显示，近日，花瓣支付（深圳）有限公司发生工商变更，郑丽英卸任董事长，由朱勇刚接任，同时多位主要人员发生变更。
+核心要点 美伊达成终止中东冲突的和平协议，受此利好提振，周一亚洲科技股集体大幅上涨。
 
-该公司成立于2013年6月，注册资本2亿人民币，经营范围含电子支付、支付结算和清算系统的技术开发与技术咨询服务，互联网支付、移动电话支付、数字电视支付业务等，由华为技术有限公司全资持股。
+日本科技投资集团软银领涨亚洲核心科技板块，收盘涨幅达 10%；东京电子、爱德万测试分别上涨 7%、7.67%。
 
-责任编辑：曹睿潼
+韩国综合指数权重存储芯片龙头同步走强：三星电子上涨 4.5%，SK 海力士涨幅 6.42%。
+
+中国台湾台积电（TSMC）上涨 2.81%，鸿海精密（富士康）上涨 2.69%。
+
+近几周软银、三星电子、SK 海力士累计涨幅巨大。
+
+上月，三星电子与 SK 海力士市值先后突破 1 万亿美元，软银近期更是登顶日本市值第一大企业。
+
+本轮上涨源于市场风险偏好全面升温，投资者押注美伊签署和平协议后，中东战事将快速落幕。
+
+巴基斯坦总理夏巴兹・谢里夫于周日透露，美伊双方已达成协议，约定全线立即永久停止一切军事行动；正式签约仪式定于 6 月 19 日（周五）在瑞士举行，巴基斯坦全程担任两国斡旋方。
 
 ## 相关推荐
 
-- 2026-06-30 07:58 - [男子在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-30 07:57 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-30 07:54 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-30 07:44 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-30 07:42 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
-- 2026-06-30 07:40 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
-- 2026-06-30 07:55 - [德国罚丢3粒点球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-30 07:36 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-30 07:42 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-30 07:50 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-30 07:50 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
+- 2026-06-30 08:10 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-30 08:00 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-30 07:44 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-30 07:56 - [德国4比5巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
+- 2026-06-30 08:11 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-30 07:51 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-30 07:43 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-30 08:10 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-30 07:51 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-30 08:10 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-30 07:53 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-30 08:11 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-30 08:06 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:56 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/5587559375.shtml)
-- 2026-06-30 07:38 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/28658.shtml)
-- 2026-06-30 08:03 - [巴西2-1绝杀日本](http://www.blog.kurohicncr.top/Article/details/234734.shtml)
-- 2026-06-30 07:53 - [刘宇宁高情商化解谁站C位](https://www.blog.minike.top/Article/details/42760569.shtml)
-- 2026-06-30 07:47 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/485884.shtml)
-- 2026-06-30 07:46 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/925892.shtml)
-- 2026-06-30 07:58 - [覃予萱晋级WTT美国大满贯女单32强](http://www.blog.kurohicncr.top/Article/details/799321315.shtml)
-- 2026-06-30 07:57 - [武磊：日本队有能力跟任何强队抗衡](http://www.blog.kurohicncr.top/Article/details/694432852.shtml)
-- 2026-06-30 07:37 - [起风了](http://www.blog.minike.top/Article/details/72130.shtml)
-- 2026-06-30 07:43 - [峡谷事故团队组队时有人提醒会下雨](https://www.share.minike.top/Article/details/86058415.shtml)
-- 2026-06-30 07:47 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/52284.shtml)
-- 2026-06-30 08:04 - [世界杯：德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/242223.shtml)
-- 2026-06-30 07:44 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/026949.shtml)
-- 2026-06-30 07:59 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.kurohicncr.top/Article/details/88704.shtml)
-- 2026-06-30 07:48 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/12079.shtml)
+- 2026-06-30 07:58 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/96735.shtml)
+- 2026-06-30 07:47 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](http://www.blog.minike.top/Article/details/167156.shtml)
+- 2026-06-30 08:10 - [美股三大指数高开 西部数据涨超2%](http://www.blog.minike.top/Article/details/862736476204.shtml)
+- 2026-06-30 07:58 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.minike.top/Article/details/1512272794.shtml)
+- 2026-06-30 07:58 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/6544013.shtml)
+- 2026-06-30 07:56 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/811298427.shtml)
+- 2026-06-30 08:09 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/600467743433.shtml)
+- 2026-06-30 08:11 - [曝詹姆斯即将与勇士会面](https://www.share.kurohicncr.top/Article/details/0405082.shtml)
+- 2026-06-30 08:11 - [曝多支争冠球队有意塞克斯顿](http://www.share.minike.top/Article/details/285411596.shtml)
+- 2026-06-30 08:04 - [南北多地暴雨和强对流天气持续](http://www.share.kurohicncr.top/Article/details/264080368884.shtml)
+- 2026-06-30 07:47 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/34035952301.shtml)
+- 2026-06-30 07:56 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/183571.shtml)
+- 2026-06-30 08:02 - [王濛回复黄灿灿](https://www.share.kurohicncr.top/Article/details/27783861.shtml)
+- 2026-06-30 08:11 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.minike.top/Article/details/90030493.shtml)
+- 2026-06-30 07:44 - [德国连续三届世界杯无缘16强](https://www.share.minike.top/Article/details/49547070590.shtml)

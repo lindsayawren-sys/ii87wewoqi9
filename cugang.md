@@ -1,48 +1,58 @@
-# 快讯：现货黄金日内跌超2% 现货白银失守62美元/盎司
+# 美国和伊朗达成临时和平协议 本周有望重开霍尔木兹海峡
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-北京时间6月23日下午，现货黄金日内跌幅扩大至2%，报4106.03美元/盎司。现货白银失守62美元/盎司，日内跌4.72%。 责任编辑：朱赫楠
+美国和伊朗达成了一项临时和平协议，以重新开放霍尔木兹海峡，并进一步推动结束这场持续15周的战争。这场冲突不仅在中东地区造成严重混乱，也对全球经济产生了广泛冲击。 这一进展推动本周交易伊始全球股市和债券市场上涨，而此前因海峡关闭而飙升的原油和天然气价格则下跌。 美国总统唐纳德·特朗普面临燃油价格上涨带来的政治压力，高油价正冲击其本人以及共和党在11月中期选举前的支持率。他称赞这是
 
 ## 正文
 
-北京时间6月23日下午，现货黄金日内跌幅扩大至2%，报4106.03美元/盎司。
+美国和伊朗达成了一项临时和平协议，以重新开放霍尔木兹海峡，并进一步推动结束这场持续15周的战争。
 
-现货白银失守62美元/盎司，日内跌4.72%。
+这场冲突不仅在中东地区造成严重混乱，也对全球经济产生了广泛冲击。
 
-责任编辑：朱赫楠
+这一进展推动本周交易伊始全球股市和债券市场上涨，而此前因海峡关闭而飙升的原油和天然气价格则下跌。
+
+美国总统唐纳德·特朗普面临燃油价格上涨带来的政治压力，高油价正冲击其本人以及共和党在11月中期选举前的支持率。
+
+他称赞这是一项“将为整个地区带来和平与安全的伟大协议”。
+
+他还曾敦促伊朗在周日公布协议，而当天恰逢他的80岁生日。
+
+这份协议已经由特朗普、美国副总统JD·万斯，以及伊朗议会议长卡利巴夫电子签署。
+
+全球股市走高，标普500指数创4月以来最大涨幅。
 
 ## 相关推荐
 
-- 2026-06-30 07:51 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-30 08:05 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-30 07:36 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-30 07:50 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-30 07:36 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
-- 2026-06-30 07:50 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
-- 2026-06-30 07:50 - [郑钦文温网首轮出局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-30 07:54 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
-- 2026-06-30 08:02 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-30 07:47 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-30 08:04 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-30 07:43 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-30 07:44 - [郑钦文温网一轮游](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-30 07:46 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-30 08:07 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-30 07:56 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
+- 2026-06-30 07:42 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-30 07:56 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-30 08:02 - [张雪的一句“是我们”引发岛内热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-30 07:43 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-30 08:00 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-30 08:02 - [一生一世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-30 08:01 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-30 07:53 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:45 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/24851055163.shtml)
-- 2026-06-30 07:43 - [德国巴拉圭进入点球大战](http://www.share.minike.top/Article/details/5213231442.shtml)
-- 2026-06-30 07:51 - [网瘾賊大的阿嬷](https://www.share.kurohicncr.top/Article/details/781643.shtml)
-- 2026-06-30 07:37 - [马耳他著名拱门坍塌致中国男子身亡](http://www.share.minike.top/Article/details/465532.shtml)
-- 2026-06-30 07:51 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/3555409855.shtml)
-- 2026-06-30 07:53 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/705247.shtml)
-- 2026-06-30 07:53 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/08853.shtml)
-- 2026-06-30 07:41 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.kurohicncr.top/Article/details/457267390.shtml)
-- 2026-06-30 07:46 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/222079.shtml)
-- 2026-06-30 07:36 - [索马里女大使：想和中国一起搞事业](http://www.blog.minike.top/Article/details/2252150.shtml)
-- 2026-06-30 08:05 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/818103.shtml)
-- 2026-06-30 07:55 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/108762.shtml)
-- 2026-06-30 07:53 - [千香](http://www.blog.minike.top/Article/details/090683739119.shtml)
-- 2026-06-30 07:44 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/87166193135.shtml)
-- 2026-06-30 07:36 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/519436811.shtml)
+- 2026-06-30 08:09 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/097453138018.shtml)
+- 2026-06-30 07:49 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/701304877870.shtml)
+- 2026-06-30 08:11 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/9879836.shtml)
+- 2026-06-30 07:47 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/979682793592.shtml)
+- 2026-06-30 07:49 - [张帅时隔四年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/38766799930.shtml)
+- 2026-06-30 08:06 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/258499934.shtml)
+- 2026-06-30 07:55 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/05400916557.shtml)
+- 2026-06-30 07:44 - [穆祉丞年度人气艺人](http://www.share.minike.top/Article/details/97276726268.shtml)
+- 2026-06-30 07:54 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/4182074.shtml)
+- 2026-06-30 07:46 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/081905313.shtml)
+- 2026-06-30 07:52 - [内马尔替补](https://www.share.kurohicncr.top/Article/details/9732587864.shtml)
+- 2026-06-30 07:59 - [索马里女大使：想和中国一起搞事业](https://www.blog.kurohicncr.top/Article/details/8660107304.shtml)
+- 2026-06-30 08:05 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.kurohicncr.top/Article/details/5353386.shtml)
+- 2026-06-30 08:00 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/80888.shtml)
+- 2026-06-30 07:59 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/3476597138.shtml)

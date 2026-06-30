@@ -1,58 +1,59 @@
-# 华泰期货：苹果低位反弹收涨，红枣天气支撑有限
+# 各地积极调整优化住房公积金政策
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-来源：华泰期货 作者： 白旭宇 苹果观点 市场要闻与重要数据 期货方面，昨日收盘苹果2610合约7574元/吨，较前一日变动+69元/吨，幅度+0.92%。现货方面，山东栖霞80# 一二级晚富士价格3.25元/斤，较前一日变动+0.00元/斤，现货基差AP10-1005，较前一日变动+113；陕西洛川70# 以上半商品晚富士价格3.75元/斤，较前一日变动+0.00元/斤，现货
+原标题：各地积极调整优化住房公积金政策 央视网消息(新闻联播)：今年以来，住房公积金政策迎来密集调整，各地积极拓宽公积金提取使用范围，满足多元化住房消费需求。 今年以来，全国已有超过60个城市调整优化了公积金政策，涉及贷款额度、首付比例、提取范围等方面，公积金的提取场景也正从传统的“购房、租房”拓展至自住住房装修或支付物业费、城市更新等多个民生领域。近日，沈阳出台七项住房公积金
 
 ## 正文
 
-来源：华泰期货 作者： 白旭宇 苹果观点 市场要闻与重要数据 期货方面，昨日收盘苹果2610合约7574元/吨，较前一日变动+69元/吨，幅度+0.92%。
+原标题：各地积极调整优化住房公积金政策 央视网消息(新闻联播)：今年以来，住房公积金政策迎来密集调整，各地积极拓宽公积金提取使用范围，满足多元化住房消费需求。
 
-现货方面，山东栖霞80# 一二级晚富士价格3.25元/斤，较前一日变动+0.00元/斤，现货基差AP10-1005，较前一日变动+113；陕西洛川70# 以上半商品晚富士价格3.75元/斤，较前一日变动+0.00元/斤，现货基差AP10-5，较前一日变动+113。
+今年以来，全国已有超过60个城市调整优化了公积金政策，涉及贷款额度、首付比例、提取范围等方面，公积金的提取场景也正从传统的“购房、租房”拓展至自住住房装修或支付物业费、城市更新等多个民生领域。
 
-近期市场资讯，苹果产区库存果走货东快西慢，行情暂时维持稳定。
+近日，沈阳出台七项住房公积金政策，包括支持适居性改造、居家适老化改造提取住房公积金等举措。
 
-西北地区果农货基本结束，客商货源整体成交不快。
+此外，各地还积极推进灵活就业人员参加住房公积金制度。
 
-山东产区客商调片红性价比高的货源，电商及出口拿货增加，果农低价货源整体顺价成交，好货较为难寻，持货商要价略硬。
+宜昌、济南、柳州等地全面放开灵活就业人员缴存限制，未达法定退休年龄的灵活就业人员，包括外卖员、快递员、网约车司机、个体工商户等，都可以线上自主开户缴存。
 
-栖霞80#一二级片红价格2.5-4.0元/斤，80#统货1.5-2.0元/斤附近。
+今年以来，住房公积金跨区域便利化服务水平也在持续提升。
 
-陕西洛川产区果农统货价格2.3-2.8元/斤，客商半商品出库价格3.5-4.2元/斤。
+目前，长三角地区全域实现公积金缴存、贷款、提取一体化通办，粤港澳大湾区多个城市打通跨城公积金联办通道，西安与青海实现了公积金互认互贷，四川、重庆已累计支持跨域公积金贷款超71亿元。
 
-甘肃产区静宁半商品4.5-7.0元/斤。
+来源：央视网
 
 ## 相关推荐
 
-- 2026-06-30 07:58 - [《共患难》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-30 07:43 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
-- 2026-06-30 07:55 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-30 08:05 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-30 08:03 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-30 07:37 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-30 07:42 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-30 07:40 - [马耳他著名拱门坍塌致一中国男子身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-30 07:43 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-30 07:38 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-30 07:55 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
-- 2026-06-30 07:53 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-30 07:47 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-30 08:04 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-30 08:04 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-30 07:46 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-30 08:01 - [德国巴拉圭进入点球大战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-30 07:49 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-30 07:54 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-30 08:10 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-30 07:50 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-30 08:10 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-30 07:45 - [泰山景区回应修建刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-30 07:44 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-30 07:58 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:55 - [孙兴慜发长文致歉](https://www.blog.kurohicncr.top/Article/details/634105498346.shtml)
-- 2026-06-30 07:44 - [曝多支争冠球队有意塞克斯顿](https://www.blog.minike.top/Article/details/579005534835.shtml)
-- 2026-06-30 07:52 - [张帅时隔四年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/77847.shtml)
-- 2026-06-30 07:41 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.minike.top/Article/details/595997296.shtml)
-- 2026-06-30 07:47 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/364341697.shtml)
-- 2026-06-30 07:44 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.kurohicncr.top/Article/details/18112792739.shtml)
-- 2026-06-30 08:03 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/053385.shtml)
-- 2026-06-30 07:43 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/0449237979.shtml)
-- 2026-06-30 07:57 - [库尼亚赛后伸五指嘲讽日本](https://www.share.minike.top/Article/details/342837362.shtml)
-- 2026-06-30 07:59 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/31700499.shtml)
-- 2026-06-30 08:00 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/395803362020.shtml)
-- 2026-06-30 07:36 - [穆祉丞年度人气艺人](http://www.share.minike.top/Article/details/267938495007.shtml)
-- 2026-06-30 07:43 - [媒体：手机测评该挤挤水分了](http://www.blog.minike.top/Article/details/263003653565.shtml)
-- 2026-06-30 08:00 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/29400179.shtml)
-- 2026-06-30 07:53 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/568752824077.shtml)
+- 2026-06-30 07:42 - [世界杯](https://www.share.minike.top/Article/details/27655.shtml)
+- 2026-06-30 08:02 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/27951.shtml)
+- 2026-06-30 08:03 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/846166.shtml)
+- 2026-06-30 08:08 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.kurohicncr.top/Article/details/11197056336.shtml)
+- 2026-06-30 07:47 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/19716036.shtml)
+- 2026-06-30 08:06 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/634405887094.shtml)
+- 2026-06-30 08:07 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.minike.top/Article/details/219616226.shtml)
+- 2026-06-30 07:51 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/33265.shtml)
+- 2026-06-30 07:49 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/44946344380.shtml)
+- 2026-06-30 07:59 - [补时绝杀 巴西2-1淘汰日本](http://www.share.kurohicncr.top/Article/details/64611.shtml)
+- 2026-06-30 07:59 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/04294326.shtml)
+- 2026-06-30 07:46 - [速度与激情9](http://www.share.minike.top/Article/details/308862651.shtml)
+- 2026-06-30 07:42 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.minike.top/Article/details/433758164266.shtml)
+- 2026-06-30 07:58 - [穆祉丞年度人气艺人](http://www.share.kurohicncr.top/Article/details/33158574.shtml)
+- 2026-06-30 08:03 - [徐亮怒斥世界杯踢假球](https://www.share.minike.top/Article/details/58818137103.shtml)

@@ -1,61 +1,60 @@
-# 放射检查“通关秘籍”，看完再也不慌
+# 美国战略石油储备跌至1983年以来最低水平
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-放射检查“通关秘籍”，看完再也不慌！| 健康体检 很多人去做X线、CT这些放射检查，心里都犯嘀咕：要准备什么？辐射会不会伤身体？检查前后要注意啥？别担心，这份超通俗的检查攻略，把所有要点都说得明明白白，照着做就够了！ 检查前 这些事一定要提前做好1 有什么特殊情况，千万别瞒着医生 去检查前，一定要主动跟医生说明：是否备孕、怀孕，有无药物过敏史，是否安装心脏支架、钢板、假牙或体内
+美国战略石油储备已降至40多年来的最低水平，原因是紧急库存被释放，以缓解伊朗战争引发的供应中断。 美国能源部周一公布的数据显示，截至6月12日，美国战略石油储备为3.403亿桶，为1983年夏季以来的最低水平。该储备环比上周减少近900万桶。 美伊将于周五签署的旨在重新开放霍尔木兹海峡的协议达成之际，石油公司高管已发出警告，称全球库存正迅速消耗至临界水平。 埃克森美孚高级副总裁
 
 ## 正文
 
-放射检查“通关秘籍”，看完再也不慌！
+美国战略石油储备已降至40多年来的最低水平，原因是紧急库存被释放，以缓解伊朗战争引发的供应中断。
 
-| 健康体检 很多人去做X线、CT这些放射检查，心里都犯嘀咕：要准备什么？
+美国能源部周一公布的数据显示，截至6月12日，美国战略石油储备为3.403亿桶，为1983年夏季以来的最低水平。
 
-辐射会不会伤身体？
+该储备环比上周减少近900万桶。
 
-检查前后要注意啥？
+美伊将于周五签署的旨在重新开放霍尔木兹海峡的协议达成之际，石油公司高管已发出警告，称全球库存正迅速消耗至临界水平。
 
-别担心，这份超通俗的检查攻略，把所有要点都说得明明白白，照着做就够了！
+埃克森美孚高级副总裁尼尔·查普曼5月28日在纽约由伯恩斯坦公司主办的一次会议上表示：“我们正逼近前所未闻的库存水平。
 
-检查前 这些事一定要提前做好1 有什么特殊情况，千万别瞒着医生 去检查前，一定要主动跟医生说明：是否备孕、怀孕，有无药物过敏史，是否安装心脏支架、钢板、假牙或体内有节育环，以及肝肾功能情况。
+”查普曼当时警告说，随着夏季燃油需求即将达到顶峰，库存下降将推动油价飙升。
 
-这些情况医生必须知道，才能判断你能不能做检查、该用哪种方案，避免出问题。
+即使美伊协议得到执行，库存仍将继续下降，因为霍尔木兹海峡的石油运输可能需要数周甚至数月才能恢复正常。
 
-2 身上所有金属物品都要摘下来 项链、耳环、手镯、戒指，还有皮带、钥匙、手机，以及口袋里的小物件都拿出来。
+咨询公司Rapidan Energy表示：“库存仍在下降，这一趋势不可阻挡，而且已经处于历史低位。
 
 ## 相关推荐
 
-- 2026-06-30 08:01 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
-- 2026-06-30 08:00 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-30 07:41 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-30 08:00 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-30 07:59 - [三星投资计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
-- 2026-06-30 07:41 - [大蒜晒外面被路过女子连盆端走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-30 07:41 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-30 07:38 - [大蒜晒外面被路过女子连盆端走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-30 08:05 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-30 07:57 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-30 08:02 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-30 08:04 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-30 08:05 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
-- 2026-06-30 07:52 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
-- 2026-06-30 08:05 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
+- 2026-06-30 07:42 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-30 08:05 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-30 07:42 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-30 07:59 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-30 08:10 - [泰山景区回应修建刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
+- 2026-06-30 08:04 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-30 08:04 - [曝老詹对自由市场态度与以往截然不同](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-30 08:05 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-30 07:58 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
+- 2026-06-30 07:47 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-30 07:51 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-30 07:42 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-30 07:43 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-30 07:53 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:49 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/42474.shtml)
-- 2026-06-30 07:39 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/152622229.shtml)
-- 2026-06-30 08:00 - [德国 传控](https://www.blog.minike.top/Article/details/6078182519.shtml)
-- 2026-06-30 08:01 - [王欣瑜温网开门红](https://www.share.kurohicncr.top/Article/details/2347475.shtml)
-- 2026-06-30 07:57 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/7131427319.shtml)
-- 2026-06-30 07:45 - [美股深夜大反弹 特斯拉飙涨8%](https://www.blog.kurohicncr.top/Article/details/07907.shtml)
-- 2026-06-30 08:01 - [张凌赫杨超越 峨眉](https://www.blog.minike.top/Article/details/80531575704.shtml)
-- 2026-06-30 07:52 - [女子清吧被陌生人投放伟哥](https://www.blog.minike.top/Article/details/81554.shtml)
-- 2026-06-30 07:40 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/36642591.shtml)
-- 2026-06-30 07:45 - [巴西vs日本首发名单](http://www.blog.kurohicncr.top/Article/details/285734821.shtml)
-- 2026-06-30 08:03 - [点球大战 残酷](http://www.blog.kurohicncr.top/Article/details/538461.shtml)
-- 2026-06-30 07:56 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/39460834.shtml)
-- 2026-06-30 08:02 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/90274263.shtml)
-- 2026-06-30 07:49 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/11482550042.shtml)
-- 2026-06-30 07:54 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/022663.shtml)
+- 2026-06-30 08:03 - [孙兴慜道歉](https://www.blog.minike.top/Article/details/015359.shtml)
+- 2026-06-30 08:01 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.kurohicncr.top/Article/details/125935499.shtml)
+- 2026-06-30 07:49 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.minike.top/Article/details/21935720.shtml)
+- 2026-06-30 07:51 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/015645879572.shtml)
+- 2026-06-30 08:01 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/4540385653.shtml)
+- 2026-06-30 08:04 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/399412516296.shtml)
+- 2026-06-30 07:44 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/840647113769.shtml)
+- 2026-06-30 07:58 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/6292858.shtml)
+- 2026-06-30 08:03 - [泰山景区回应修建刀片刺绳隔离网](http://www.blog.kurohicncr.top/Article/details/522846071410.shtml)
+- 2026-06-30 07:50 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/0396280116.shtml)
+- 2026-06-30 07:43 - [逃狱兄弟](https://www.blog.minike.top/Article/details/55549.shtml)
+- 2026-06-30 08:10 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/098401315.shtml)
+- 2026-06-30 07:42 - [大蒜晒外面被路过女子连盆端走](http://www.blog.minike.top/Article/details/464619.shtml)
+- 2026-06-30 07:53 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/6075783826.shtml)
+- 2026-06-30 07:49 - [库尼亚赛后伸五指嘲讽日本](http://www.share.kurohicncr.top/Article/details/7216026178.shtml)

@@ -1,61 +1,51 @@
-# 《营养指导员服务技术指南（试行）》解读
+# 英国和日本计划签署180亿英镑清洁能源投资协议
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-一、制定背景 《健康中国行动(2019—2030年)》提出，要“在幼儿园、学校、养老机构、医院等集体供餐单位配备营养师，在社区配备营养指导员等”，并将“每万人拥有1名营养指导员”作为健康中国行动2030年的主要政府工作指标。随着全民营养健康素养提升、合理膳食行动深入实施，营养指导员已成为基层健康服务的重要力量。截至2025年底，我国已累计培育营养指导员14.8万名。为贯彻落实《
+英国首相基尔·斯塔默的办公室周六在声明中表示，预计英国和日本将就一项价值180亿英镑（241亿美元）的协议达成一致，双方预计该协议将在海上风电、基础设施和金融服务领域创造新的就业机会。 该协议将包括高达90亿英镑的日本投资，用于在英国开发5.9吉瓦的漂浮式海上风电项目，最终产生足够为800万户家庭供电的清洁电力。 在法国举行的七国集团（G7）峰会之前，日本首相高市早苗周日将赴唐
 
 ## 正文
 
-一、制定背景 《健康中国行动(2019—2030年)》提出，要“在幼儿园、学校、养老机构、医院等集体供餐单位配备营养师，在社区配备营养指导员等”，并将“每万人拥有1名营养指导员”作为健康中国行动2030年的主要政府工作指标。
+英国首相基尔·斯塔默的办公室周六在声明中表示，预计英国和日本将就一项价值180亿英镑（241亿美元）的协议达成一致，双方预计该协议将在海上风电、基础设施和金融服务领域创造新的就业机会。
 
-随着全民营养健康素养提升、合理膳食行动深入实施，营养指导员已成为基层健康服务的重要力量。
+该协议将包括高达90亿英镑的日本投资，用于在英国开发5.9吉瓦的漂浮式海上风电项目，最终产生足够为800万户家庭供电的清洁电力。
 
-截至2025年底，我国已累计培育营养指导员14.8万名。
+在法国举行的七国集团（G7）峰会之前，日本首相高市早苗周日将赴唐宁街与斯塔默会面，两国商界领袖也将出席。
 
-为贯彻落实《国民营养计划(2017—2030年)》和《健康中国行动(2019—2030年)》要求，满足社会营养指导需求和促进营养指导员规范有序地提供服务，国家卫生健康委组织起草了《营养指导员服务技术指南(试行)》(以下简称《指南》)。
-
-二、框架及主要内容 《指南》以科学理论和实践经验为依据，立足社会对营养服务的广泛需求、营养从业人员能力现状及行业发展趋势，全面开展目标人群调研，综合运用专家研讨、论证咨询等方法，结合各省(区、市)已有实践经验，科学规范地制订营养指导服务内容和服务要求。
-
-《指南》作为营养指导员开展相关工作的技术性文件，供营养指导员在实际工作中查阅参考，不作为考核指标依据。
-
-《指南》强调实用性和可操作性，针对营养指导员应如何开展工作，提出五方面主要工作内容的技术能力要求：一是营养监测与调查，二是膳食营养状况评价，三是营养咨询与指导，四是营养配餐，五是营养科普教育。
-
-《指南》提出，营养指导要点主要包括：社区营养健康服务、托幼机构和中小学校营养健康服务、养老服务机构营养健康服务、餐饮与食品健康服务指导、体重管理营养健康服务。
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-30 07:50 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
-- 2026-06-30 07:47 - [德国队世界杯点球大战首败](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-30 08:03 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
-- 2026-06-30 07:41 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-30 07:51 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
-- 2026-06-30 07:40 - [亚洲球队全部出局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
-- 2026-06-30 08:02 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-30 07:45 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-30 07:49 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-30 07:39 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
-- 2026-06-30 07:45 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-30 07:59 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
-- 2026-06-30 07:51 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
-- 2026-06-30 08:01 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-30 07:43 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-30 08:06 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-30 08:10 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-30 08:10 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
+- 2026-06-30 07:45 - [网友写差评被店家“挂”门口避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
+- 2026-06-30 07:51 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-30 07:52 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-30 08:06 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-30 07:53 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-30 08:08 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-30 07:52 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-30 07:53 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-30 08:08 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-30 08:04 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:03 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/46589429465.shtml)
-- 2026-06-30 07:45 - [巴西半场0比1日本](http://www.share.minike.top/Article/details/41781187353.shtml)
-- 2026-06-30 07:56 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/95380470.shtml)
-- 2026-06-30 08:00 - [锐评T1战胜KC](http://www.blog.kurohicncr.top/Article/details/12628.shtml)
-- 2026-06-30 08:04 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/595402676164.shtml)
-- 2026-06-30 07:41 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/700615261.shtml)
-- 2026-06-30 07:36 - [巴西vs日本首发名单](https://www.blog.kurohicncr.top/Article/details/254672532768.shtml)
-- 2026-06-30 07:45 - [巴拉圭率先破门](https://www.blog.kurohicncr.top/Article/details/3745733734.shtml)
-- 2026-06-30 07:52 - [巴西补时绝杀日本](http://www.blog.minike.top/Article/details/9987954732.shtml)
-- 2026-06-30 07:37 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/698016065.shtml)
-- 2026-06-30 07:44 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/21865498721.shtml)
-- 2026-06-30 08:02 - [刘宇宁高情商化解谁站C位](http://www.share.minike.top/Article/details/8672515.shtml)
-- 2026-06-30 07:36 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/794000.shtml)
-- 2026-06-30 07:44 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/920720335459.shtml)
-- 2026-06-30 07:54 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/929006537.shtml)
+- 2026-06-30 08:08 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/69420286.shtml)
+- 2026-06-30 07:55 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/2074876.shtml)
+- 2026-06-30 08:06 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/658915679.shtml)
+- 2026-06-30 07:54 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/0571424466.shtml)
+- 2026-06-30 07:47 - [曝詹姆斯即将与勇士会面](http://www.blog.kurohicncr.top/Article/details/30390824.shtml)
+- 2026-06-30 07:44 - [王楚钦说配合稍微有些陌生感](https://www.blog.minike.top/Article/details/1572564.shtml)
+- 2026-06-30 07:50 - [曝詹姆斯即将与勇士会面](https://www.blog.minike.top/Article/details/439664973967.shtml)
+- 2026-06-30 07:43 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/6986214529.shtml)
+- 2026-06-30 07:57 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/339672.shtml)
+- 2026-06-30 08:03 - [人类...完蛋了...](https://www.blog.minike.top/Article/details/23515.shtml)
+- 2026-06-30 08:05 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/05276340561.shtml)
+- 2026-06-30 08:04 - [巴西2比1日本](https://www.share.minike.top/Article/details/14533754.shtml)
+- 2026-06-30 08:01 - [失明的我带老妈去了趟“火星”](https://www.blog.kurohicncr.top/Article/details/6547270757.shtml)
+- 2026-06-30 07:42 - [德国 传控](https://www.share.minike.top/Article/details/16945002878.shtml)
+- 2026-06-30 07:48 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/42925558235.shtml)

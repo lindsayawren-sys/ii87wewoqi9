@@ -1,44 +1,56 @@
-# 天天学习｜一部防灾电影背后的政绩观
+# 国家统计局：进一步强化宏观政策调节，持续扩大内需、优化供给
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月24日 09:36 来源：央视网 责任编辑：【杨彦宇】
+中新网6月16日电 国新办16日举行新闻发布会，国家统计局相关负责人介绍2026年5月份国民经济运行情况。 会上，有记者问：5月份主要经济指标已发布，请问如何评价5月份国民经济运行总体表现？另外，当前经济运行中主要亮点有哪些？ 国家统计局新闻发言人、总经济师、国民经济综合统计司司长付凌晖表示，5月份，尽管国际环境复杂多变，中东地缘政治冲突外溢影响持续显现，国内部分地区出现高温多
 
 ## 正文
 
-发布时间：2026年06月24日 09:36 来源：央视网 责任编辑：【杨彦宇】
+中新网6月16日电 国新办16日举行新闻发布会，国家统计局相关负责人介绍2026年5月份国民经济运行情况。
+
+会上，有记者问：5月份主要经济指标已发布，请问如何评价5月份国民经济运行总体表现？
+
+另外，当前经济运行中主要亮点有哪些？
+
+国家统计局新闻发言人、总经济师、国民经济综合统计司司长付凌晖表示，5月份，尽管国际环境复杂多变，中东地缘政治冲突外溢影响持续显现，国内部分地区出现高温多雨，冲击着市场需求和供给。
+
+但各地区各部门有效实施更加积极有为的宏观政策，积极应对外部挑战，克服内部困难，生产供给平稳增长，新动能加快成长，就业民生保障有力，国民经济延续总体平稳、向新向优的发展态势。
+
+具体来看有以下几个特点： 一是生产平稳增长。
+
+从农业看，今年夏粮生产形势较好，有望实现丰收。
+
+从工业看，创新引领作用增强，生产稳中有升。
 
 ## 相关推荐
 
-- 2026-06-30 07:40 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
-- 2026-06-30 07:50 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
-- 2026-06-30 07:36 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
-- 2026-06-30 07:56 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
-- 2026-06-30 07:48 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
-- 2026-06-30 07:46 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
-- 2026-06-30 08:00 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
-- 2026-06-30 07:56 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-30 07:52 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-30 07:56 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-30 07:46 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-30 07:44 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-30 07:56 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
+- 2026-06-30 07:44 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-30 07:58 - [森保一 保守](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-30 07:46 - [森保一 保守](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
+- 2026-06-30 08:02 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-30 07:48 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-30 07:52 - [德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-30 08:02 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-30 07:57 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-30 07:54 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:42 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/85031643800.shtml)
-- 2026-06-30 07:52 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.minike.top/Article/details/11510149864.shtml)
-- 2026-06-30 07:55 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.kurohicncr.top/Article/details/77555392351.shtml)
-- 2026-06-30 07:41 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/53314821.shtml)
-- 2026-06-30 08:02 - [曝詹姆斯即将与勇士会面](https://www.share.kurohicncr.top/Article/details/340115.shtml)
-- 2026-06-30 07:40 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/6404514.shtml)
-- 2026-06-30 08:06 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/348555073.shtml)
-- 2026-06-30 07:46 - [世界杯：德国vs巴拉圭](https://www.share.kurohicncr.top/Article/details/7657625329.shtml)
-- 2026-06-30 07:57 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/42712276355.shtml)
-- 2026-06-30 07:39 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/1250203593.shtml)
-- 2026-06-30 07:53 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/09816291976.shtml)
-- 2026-06-30 07:41 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/814961.shtml)
-- 2026-06-30 07:37 - [建议不要突然完全停止喝咖啡](http://www.share.kurohicncr.top/Article/details/29923909073.shtml)
-- 2026-06-30 07:41 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/6491399.shtml)
-- 2026-06-30 07:49 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/69610935.shtml)
+- 2026-06-30 07:50 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/166131117701.shtml)
+- 2026-06-30 08:08 - [泰山景区回应修建刀片刺绳隔离网](https://www.share.kurohicncr.top/Article/details/34486847131.shtml)
+- 2026-06-30 08:04 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/6042689110.shtml)
+- 2026-06-30 07:44 - [这种关系可能正在悄悄“催老”你](https://www.blog.minike.top/Article/details/1897959619.shtml)
+- 2026-06-30 07:50 - [内马尔替补](http://www.blog.kurohicncr.top/Article/details/351244.shtml)
+- 2026-06-30 07:44 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/54531536813.shtml)
+- 2026-06-30 08:10 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/764586921681.shtml)
+- 2026-06-30 08:05 - [佐野海舟远射破门](http://www.blog.minike.top/Article/details/195552474.shtml)
+- 2026-06-30 07:43 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/34733415.shtml)
+- 2026-06-30 07:42 - [“草莓月亮”浪漫现身](http://www.blog.kurohicncr.top/Article/details/2023839093.shtml)
+- 2026-06-30 07:44 - [关晓彤一路小跑迎接爸爸探班](https://www.share.kurohicncr.top/Article/details/8633405021.shtml)
+- 2026-06-30 07:42 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/91433.shtml)
+- 2026-06-30 08:05 - [AI手机进入Agent时代](http://www.share.kurohicncr.top/Article/details/762690.shtml)
+- 2026-06-30 07:42 - [豆包收费了，你还会用吗？](https://www.share.kurohicncr.top/Article/details/356169102767.shtml)
+- 2026-06-30 07:52 - [詹姆斯下赛季去哪](https://www.blog.kurohicncr.top/Article/details/99535296.shtml)

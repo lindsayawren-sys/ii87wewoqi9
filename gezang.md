@@ -1,56 +1,49 @@
-# 证监会：准予华安陆家嘴封闭式商业不动产证券投资基金注册
+# 机构：美联储会议在即，市场等待沃什对利率和经济的看法
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 关于准予华安陆家嘴封闭式商业不动产证券投资基金注册的批复 华安基金管理有限公司： 你公司报送的《关于申请募集华安陆家嘴封闭式商业不动产证券投资基金的请示》及相关文件收悉。根据《证券投资基金法》《公开募集证券投资基金运作管理办法》（证监会令第104号）和《中国证监会关于推出商业不动产投资信托基金试点的公告》（证监会公告〔2025〕
+丹麦银行分析师在一份报告中表示，市场预计美联储在周三的会议上将维持利率不变，从而将焦点留给美联储主席凯文·沃什的观点。他们表示：“因此，所有人的目光都将集中在凯文·沃什身上，关注他对利率和该国经济的个人看法，以及对旧有做法可能做出的改变。“他们补充说，但即使沃什加入美国联邦公开市场委员会的偏宽松阵营，个人利率预测的分布仍可能较3月份上移。责任编辑：王永生
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 关于准予华安陆家嘴封闭式商业不动产证券投资基金注册的批复 华安基金管理有限公司： 你公司报送的《关于申请募集华安陆家嘴封闭式商业不动产证券投资基金的请示》及相关文件收悉。
+丹麦银行分析师在一份报告中表示，市场预计美联储在周三的会议上将维持利率不变，从而将焦点留给美联储主席凯文·沃什的观点。
 
-根据《证券投资基金法》《公开募集证券投资基金运作管理办法》（证监会令第104号）和《中国证监会关于推出商业不动产投资信托基金试点的公告》（证监会公告〔2025〕21号）等有关规定，经审查，现批复如下： 一、准予你公司注册华安陆家嘴封闭式商业不动产证券投资基金，基金类型为契约型封闭式，基金合同期限为38年。
+他们表示：“因此，所有人的目光都将集中在凯文·沃什身上，关注他对利率和该国经济的个人看法，以及对旧有做法可能做出的改变。
 
-二、准予基金的募集份额总额为10亿份。
+“他们补充说，但即使沃什加入美国联邦公开市场委员会的偏宽松阵营，个人利率预测的分布仍可能较3月份上移。
 
-三、同意你公司为基金的基金管理人，上海浦东发展银行股份有限公司为基金的基金托管人。
-
-四、你公司应自本批复下发之日起6个月内进行基金的募集活动，募集期限自基金份额发售之日起不得超过3个月。
-
-五、你公司应会同基金的销售机构和上海证券交易所等，认真做好基金的信息披露、路演推介、询价、定价、配售、认购、上市交易、登记、会计核算、客户服务和募集准备等工作。
-
-通过建立和完善内部合规控制制度、风险防范机制和应急计划等措施，防范和化解基金募集和运作过程中的风险，保护基金份额持有人的合法权益。
-
-六、你公司及基金销售机构在销售活动中应当遵守《公开募集证券投资基金销售机构监督管理办法》（证监会令第175号）及其他相关规定，不得损害投资人的合法权益，不得有虚假陈述或欺骗性宣传，不得误导投资人买卖基金。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 07:46 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-30 07:54 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-30 07:56 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
-- 2026-06-30 08:03 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
-- 2026-06-30 08:03 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-30 07:47 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-30 07:48 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-30 07:52 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
-- 2026-06-30 08:03 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-30 07:46 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-30 07:51 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-30 08:10 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-30 08:09 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-30 08:10 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-30 08:01 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-30 07:56 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-30 07:55 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-30 08:00 - [武磊：巴西队赢的并不轻松](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-30 07:46 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-30 07:49 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-30 08:02 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:46 - [媒体评泰山建135公里刀片刺绳隔离网](http://www.blog.minike.top/Article/details/2629029744.shtml)
-- 2026-06-30 07:45 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/586393.shtml)
-- 2026-06-30 07:41 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/283471.shtml)
-- 2026-06-30 07:47 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/107686509456.shtml)
-- 2026-06-30 07:58 - [巴西vs日本首发名单](http://www.blog.minike.top/Article/details/620189127644.shtml)
-- 2026-06-30 07:44 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/301953.shtml)
-- 2026-06-30 08:04 - [卢卡申科发布解放军仪仗队视频](http://www.blog.kurohicncr.top/Article/details/518359781422.shtml)
-- 2026-06-30 07:40 - [老外对中国cosplay竟这样评价…](http://www.blog.minike.top/Article/details/439701161.shtml)
-- 2026-06-30 07:37 - [绘画区你赢了](https://www.blog.minike.top/Article/details/41526.shtml)
-- 2026-06-30 07:50 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/523398294.shtml)
-- 2026-06-30 07:40 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/137978159.shtml)
-- 2026-06-30 07:44 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.kurohicncr.top/Article/details/42945991973.shtml)
-- 2026-06-30 07:57 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/053813837.shtml)
-- 2026-06-30 07:44 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/090706408710.shtml)
-- 2026-06-30 07:39 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/41688715.shtml)
+- 2026-06-30 07:46 - [日本16强魔咒](http://www.blog.minike.top/Article/details/134462899949.shtml)
+- 2026-06-30 07:43 - [DeepSeek V4正式版要来了](http://www.share.minike.top/Article/details/973176266010.shtml)
+- 2026-06-30 07:50 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/03527090.shtml)
+- 2026-06-30 08:02 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/39301108.shtml)
+- 2026-06-30 07:53 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/69180407618.shtml)
+- 2026-06-30 07:49 - [失明的我带老妈去了趟“火星”](https://www.blog.kurohicncr.top/Article/details/59545504892.shtml)
+- 2026-06-30 07:50 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/500119420.shtml)
+- 2026-06-30 08:04 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/318763854042.shtml)
+- 2026-06-30 07:46 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/703309.shtml)
+- 2026-06-30 07:50 - [内马尔替补](https://www.share.minike.top/Article/details/518865643.shtml)
+- 2026-06-30 07:57 - [女心理师](http://www.blog.minike.top/Article/details/188445.shtml)
+- 2026-06-30 08:00 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/100358.shtml)
+- 2026-06-30 07:47 - [沉睡花园](http://www.share.minike.top/Article/details/425461708329.shtml)
+- 2026-06-30 08:03 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/45816226753.shtml)
+- 2026-06-30 07:42 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/462130.shtml)

@@ -1,59 +1,58 @@
-# 一天只喝6斤奶 这样的轻断食科学吗
+# 桥水精简旗舰基金扭转业绩颓势 但管理费下降前景令部分股东萌生退意
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-近日，一位网友分享了自己“轻断食一天喝了6斤牛奶”的经历，声称期间除了奶，其他一口东西没吃。而原本以为会“饿到发疯”，结果非但没有饥饿感，胃还有点撑，体重也如愿下降了近1kg。这条分享迅速引发热议，有网友认为如此巨量的牛奶热量明显超标，减重效果理应打折扣；也有人坚信这样“液断”该掉秤更多……这样的轻断食科学吗？对此，记者采访了南京江北医院内分泌科主任、副主任医师谢作玲。扬子晚报
+在首席执行官Nir Bar Dea致力于重振桥水的三年中，这家对冲基金变得更加精简，业绩也较前几年有所改善。不过，一些股东削减对该公司的估值，也有一些选择撤资。 据知情人士称，尽管桥水的旗舰宏观基金在2025年收获了创纪录的表现，但该公司七家机构股东中的两家决定以低于买入价的价格将股份卖回给桥水。Teacher Retirement System of Texas作为第三家机构
 
 ## 正文
 
-近日，一位网友分享了自己“轻断食一天喝了6斤牛奶”的经历，声称期间除了奶，其他一口东西没吃。
+在首席执行官Nir Bar Dea致力于重振桥水的三年中，这家对冲基金变得更加精简，业绩也较前几年有所改善。
 
-而原本以为会“饿到发疯”，结果非但没有饥饿感，胃还有点撑，体重也如愿下降了近1kg。
+不过，一些股东削减对该公司的估值，也有一些选择撤资。
 
-这条分享迅速引发热议，有网友认为如此巨量的牛奶热量明显超标，减重效果理应打折扣；也有人坚信这样“液断”该掉秤更多……这样的轻断食科学吗？
+据知情人士称，尽管桥水的旗舰宏观基金在2025年收获了创纪录的表现，但该公司七家机构股东中的两家决定以低于买入价的价格将股份卖回给桥水。
 
-对此，记者采访了南京江北医院内分泌科主任、副主任医师谢作玲。
+Teacher Retirement System of Texas作为第三家机构股东也在寻求出售所持股份，其去年已将持股价值削减了9%。
 
-扬子晚报/紫牛新闻记者 许倩倩 减掉的是水分，伤的是身体 在采访中，谢作玲告诉记者，任何极端饮食都可能诱发一系列代谢问题甚至更严重的后果，靠液体断食也难以达到真正的减脂减重目标。
+Bar Dea的押注是，旗舰基金Pure Alpha以更小、更专注的模式将会扭转过去十年业绩落后于竞争对手的局面。
 
-“首先可以肯定的是，一天6斤牛奶所摄入的热量是超标的，可能有1800千卡左右，而轻断食的日热卡应该控制在600千卡左右。
+该基金长期以来是全球最大的对冲基金。
 
-”谢作玲介绍，正常情况下，成年人一天的奶量不宜超过500毫升，否则蛋白质的含量、钙的含量超标，一方面不容易被人体吸收，腹胀明显；另一方面还会加重肾脏负担，结石风险增加，并且可能导致乳糖不耐受，甚至出现乳蛋白过敏反应。
+虽然这种做法行之有效，但减少管理的资金规模也可能降低可预测的管理费，而这些管理费正是股权价值的主要驱动因素。
 
-“如果这6斤牛奶都是全脂牛奶，脂肪含量还严重超标，显然不能达到减脂减重目标。
+桥水的一位代表拒绝置评。
 
 ## 相关推荐
 
-- 2026-06-30 07:56 - [森保一 保守](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
-- 2026-06-30 07:46 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-30 07:46 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-30 07:42 - [莫兰特转投开拓者效力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-30 07:47 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-30 07:36 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-30 07:41 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-30 07:54 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-30 07:50 - [德国罚丢3粒点球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
-- 2026-06-30 07:48 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-30 07:55 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-30 07:46 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-30 07:37 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-30 07:58 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-30 07:55 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-30 08:01 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-30 07:59 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-30 07:55 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-30 08:11 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-30 07:48 - [三星投资计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-30 08:12 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-30 08:02 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-30 07:59 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-30 07:51 - [日本队5进世界杯淘汰赛0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-30 08:05 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:50 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/1835427.shtml)
-- 2026-06-30 08:04 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/812104.shtml)
-- 2026-06-30 07:57 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/5658721.shtml)
-- 2026-06-30 07:48 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/329196.shtml)
-- 2026-06-30 07:51 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/239947625.shtml)
-- 2026-06-30 07:58 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/820731419.shtml)
-- 2026-06-30 07:53 - [日本五次世界杯淘汰赛全败](http://www.blog.kurohicncr.top/Article/details/2257943.shtml)
-- 2026-06-30 07:58 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/90639196066.shtml)
-- 2026-06-30 07:49 - [德国巴拉圭加时](http://www.share.minike.top/Article/details/28947.shtml)
-- 2026-06-30 07:49 - [国务院：稳步推进研究生考试招生改革](https://www.share.kurohicncr.top/Article/details/668204641.shtml)
-- 2026-06-30 07:43 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/887237647479.shtml)
-- 2026-06-30 08:00 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://www.share.kurohicncr.top/Article/details/302950237.shtml)
-- 2026-06-30 07:56 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/180986932997.shtml)
-- 2026-06-30 08:00 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/12410.shtml)
-- 2026-06-30 07:55 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/269271223296.shtml)
+- 2026-06-30 08:02 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/53380793899.shtml)
+- 2026-06-30 07:55 - [谢依霖说杨幂是聚会第一把张罗手](http://www.share.kurohicncr.top/Article/details/509778040.shtml)
+- 2026-06-30 07:51 - [巴西醒醒 这是淘汰赛](https://www.share.minike.top/Article/details/9678048923.shtml)
+- 2026-06-30 08:10 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/323715026.shtml)
+- 2026-06-30 07:49 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/4902166608.shtml)
+- 2026-06-30 07:45 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/67721561.shtml)
+- 2026-06-30 08:05 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/08215.shtml)
+- 2026-06-30 07:53 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.kurohicncr.top/Article/details/5213255.shtml)
+- 2026-06-30 08:08 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/490596.shtml)
+- 2026-06-30 07:43 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/041549.shtml)
+- 2026-06-30 07:42 - [沉睡花园](http://www.share.minike.top/Article/details/06862571.shtml)
+- 2026-06-30 07:43 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/02225295.shtml)
+- 2026-06-30 07:57 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/9765114398.shtml)
+- 2026-06-30 08:04 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/250172043744.shtml)
+- 2026-06-30 08:08 - [速度与激情9](http://www.blog.minike.top/Article/details/6256430890.shtml)

@@ -1,59 +1,57 @@
-# 数据显示：更多船只通过霍尔木兹海峡，与卡塔尔有关的液化天然气运输船重返该海域
+# 日本央行加息预期升温叠加美元指数回落，美元兑日元维持高位震荡
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-船舶追踪数据显示，周二，两艘搁浅的超大型油轮通过了霍尔木兹海峡，而最近几周，七艘与卡塔尔有关联的空载液化天然气（LNG）运输船已进入该海峡，这可能是海湾地区天然气运输即将恢复的早期迹象。 数据还显示，与伊朗有关联的油轮也继续通过这条重要水道，随着美伊谈判的推进，周一该水道的船只流量有所增加。在谈判开始前，由于美国总统唐纳德·特朗普威胁重启战争，以及德黑兰宣布再次封锁海峡，该水道
+汇通财经APP讯——周一亚洲交易时段，美元兑日元围绕160.20附近窄幅波动。随着美国与伊朗就结束持续近四个月的军事冲突达成和平框架，市场风险偏好明显改善，避险资金流向出现调整，美元指数整体有所回落，为日元提供一定支撑。 美国与伊朗已就结束冲突、解除对伊朗的海上封锁以及恢复霍尔木兹海峡通航达成协议框架。同时，英国、法国、德国和意大利表示，如果伊朗在核问题方面采取相应措施，相关国
 
 ## 正文
 
-船舶追踪数据显示，周二，两艘搁浅的超大型油轮通过了霍尔木兹海峡，而最近几周，七艘与卡塔尔有关联的空载液化天然气（LNG）运输船已进入该海峡，这可能是海湾地区天然气运输即将恢复的早期迹象。
+汇通财经APP讯——周一亚洲交易时段，美元兑日元围绕160.20附近窄幅波动。
 
-数据还显示，与伊朗有关联的油轮也继续通过这条重要水道，随着美伊谈判的推进，周一该水道的船只流量有所增加。
+随着美国与伊朗就结束持续近四个月的军事冲突达成和平框架，市场风险偏好明显改善，避险资金流向出现调整，美元指数整体有所回落，为日元提供一定支撑。
 
-在谈判开始前，由于美国总统唐纳德·特朗普威胁重启战争，以及德黑兰宣布再次封锁海峡，该水道的船只流量曾一度减弱。
+美国与伊朗已就结束冲突、解除对伊朗的海上封锁以及恢复霍尔木兹海峡通航达成协议框架。
 
-首轮谈判于周日开始，次日结束，双方就60天内达成永久协议的路线图达成一致。
+同时，英国、法国、德国和意大利表示，如果伊朗在核问题方面采取相应措施，相关国家准备解除部分制裁。
 
-美国还宣布将制裁豁免期延长至8月21日，这缓解了市场对全球原油和液化天然气供应的担忧，并推动价格走低。
+中东局势缓和降低了市场对于能源供应中断以及通胀进一步上升的担忧，从而削弱了美元的避险吸引力。
 
-分析师表示，自战争爆发以来滞留在波斯湾的更多原油货船预计现在将得以驶出；与此同时，在美国豁免制裁后，越来越多的受制裁油轮正穿梭于海峡，装载并出口伊朗原油。
+不过，市场谨慎情绪并未完全消散。
 
-数据显示，一艘由韩国炼油商GSCaltex租用的VLCC“UniversalGlory”号，周二载着200万桶沙特原油驶离了海峡。
+美国总统唐纳德·特朗普表示，若伊朗未能与美国达成最终核协议，美国仍可能恢复军事行动。
 
-GSCaltex拒绝置评。
+这意味着当前和平框架仍存在不确定性，任何谈判受阻或地缘局势重新紧张，都可能重新推动市场避险需求升温。
 
 ## 相关推荐
 
-- 2026-06-30 07:41 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-30 07:36 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-30 08:02 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-30 07:40 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-30 07:39 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-30 07:44 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-30 08:04 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
-- 2026-06-30 07:36 - [巴西在进攻三区完成210脚传球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-30 08:01 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-30 08:03 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-30 07:45 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-30 07:44 - [郑钦文温网一轮游](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-30 07:39 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
+- 2026-06-30 07:59 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-30 08:11 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
+- 2026-06-30 08:07 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-30 07:47 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-30 08:03 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-30 07:46 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-30 08:02 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-30 08:02 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-30 07:58 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
+- 2026-06-30 07:48 - [德国队世界杯点球大战首败](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-30 07:58 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:47 - [王楚钦孙颖莎晋级混双八强](http://www.share.minike.top/Article/details/03145999.shtml)
-- 2026-06-30 07:41 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/071836972.shtml)
-- 2026-06-30 08:04 - [德国4比5巴拉圭](http://www.share.minike.top/Article/details/436588784.shtml)
-- 2026-06-30 08:04 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/56167445415.shtml)
-- 2026-06-30 08:03 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/8809127995.shtml)
-- 2026-06-30 07:45 - [我和我的家乡](http://www.blog.minike.top/Article/details/538380884.shtml)
-- 2026-06-30 07:58 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/4834587.shtml)
-- 2026-06-30 07:40 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/91587107.shtml)
-- 2026-06-30 07:43 - [内马尔中场休息积极鼓励队友](http://www.share.kurohicncr.top/Article/details/83019739071.shtml)
-- 2026-06-30 08:00 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/24168198.shtml)
-- 2026-06-30 07:42 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.kurohicncr.top/Article/details/41884535.shtml)
-- 2026-06-30 08:04 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/069745570492.shtml)
-- 2026-06-30 08:04 - [德国爆冷点球大战不敌巴拉圭](http://www.share.minike.top/Article/details/9499770825.shtml)
-- 2026-06-30 08:02 - [孙颖莎王楚钦晋级8强](https://www.share.minike.top/Article/details/91552664830.shtml)
-- 2026-06-30 08:02 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/5444209325.shtml)
+- 2026-06-30 07:59 - [DeepSeek启动成立来最大规模招聘](https://www.share.minike.top/Article/details/599907898.shtml)
+- 2026-06-30 08:04 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/945207.shtml)
+- 2026-06-30 07:56 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/73674120.shtml)
+- 2026-06-30 07:49 - [周冬雨多次说演不了话剧文城](https://www.blog.minike.top/Article/details/2175495624.shtml)
+- 2026-06-30 07:46 - [郑钦文温网三连败西尼亚科娃](https://www.blog.minike.top/Article/details/84936065366.shtml)
+- 2026-06-30 08:01 - [又一美国科技巨头转向中国大模型](http://www.blog.kurohicncr.top/Article/details/731949.shtml)
+- 2026-06-30 08:07 - [第一炉香](https://www.blog.minike.top/Article/details/04224.shtml)
+- 2026-06-30 07:59 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/62769.shtml)
+- 2026-06-30 07:43 - [德国连续三届世界杯无缘16强](http://www.blog.minike.top/Article/details/467180.shtml)
+- 2026-06-30 07:59 - [《共患难》](https://www.share.kurohicncr.top/Article/details/833344413545.shtml)
+- 2026-06-30 07:48 - [德国进球被吹](http://www.share.kurohicncr.top/Article/details/01572215.shtml)
+- 2026-06-30 07:56 - [佐野海舟远射破门](http://www.blog.kurohicncr.top/Article/details/60565473304.shtml)
+- 2026-06-30 07:43 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/2600808.shtml)
+- 2026-06-30 08:00 - [郑钦文温网一轮游](https://www.blog.kurohicncr.top/Article/details/785692.shtml)
+- 2026-06-30 07:55 - [田中碧失误](https://www.share.minike.top/Article/details/663705320.shtml)

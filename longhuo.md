@@ -1,61 +1,56 @@
-# 无惧行情波动，资金逢跌布局！有色ETF华宝（159876）获净申购3360万份！机构：看多AI金属稀土钨钼！
+# 中国“纯硅”成功突破！我国攻克硅基量子芯片关键材料
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-今日（6月23日）市场盘整，A股主要指数悉数收绿，有色金属板块领跌全市场，同标的指数规模最大*的有色ETF华宝（159876）随市回调，场内价格重挫8.66%，全天成交额1.58亿元，交投火热！ 无惧行情波动，资金逢跌布局！有色ETF华宝（159876）全天获资金净申购3360万份，昨天亦单日吸金1233万元。 成份股方面，株冶集团领涨超4%，有研新材涨逾3%，云南锗业涨超1%
+记者今天(15日)从中核集团了解到，我国科学家在稳定同位素富集领域取得关键性突破，首次成功实现丰度超过99.99%的硅-28同位素自主量产，产品关键指标达国际先进水平。标志着我国在构建自主可控、协同高效的稳定同位素产业格局方面迈出实质性步伐。硅是一种非金属元素，天然硅中有三种同位素：硅-28、硅-29和硅-30，其中硅-28占比92.2%，这种同位素可极大降低量子计算中的环境噪
 
 ## 正文
 
-今日（6月23日）市场盘整，A股主要指数悉数收绿，有色金属板块领跌全市场，同标的指数规模最大*的有色ETF华宝（159876）随市回调，场内价格重挫8.66%，全天成交额1.58亿元，交投火热！
+记者今天(15日)从中核集团了解到，我国科学家在稳定同位素富集领域取得关键性突破，首次成功实现丰度超过99.99%的硅-28同位素自主量产，产品关键指标达国际先进水平。
 
-无惧行情波动，资金逢跌布局！
+标志着我国在构建自主可控、协同高效的稳定同位素产业格局方面迈出实质性步伐。
 
-有色ETF华宝（159876）全天获资金净申购3360万份，昨天亦单日吸金1233万元。
+硅是一种非金属元素，天然硅中有三种同位素：硅-28、硅-29和硅-30，其中硅-28占比92.2%，这种同位素可极大降低量子计算中的环境噪声干扰，被誉为“世界上最纯净的硅”。
 
-成份股方面，株冶集团领涨超4%，有研新材涨逾3%，云南锗业涨超1%，博威合金平盘报收，其余54股尽墨，洛阳钼业、江西铜业、铜陵有色等17股跌停，拖累指数表现。
+而天然硅中的另一种稳定同位素——硅-29会对量子计算产生干扰。
 
-资金为何积极布局有色金属板块？
+因此，要把干扰降到最低，就必须将硅-28丰度从92.2%提高到99.99%以上。
 
-或可从政策和产业两个维度进行拆解： 1、政策层面，两部门出招反制。
+中核集团核工业理化工程研究院院长姜宏民介绍，提纯硅-28，不是靠物质反应把硅-29变成硅-28，而是像筛豆子一样把三种同位素分离开——硅-28富集到一侧，硅-29和硅-30到另一侧。
 
-6月22日，商务部宣布将美国稀土公司等10家美国实体列入出口管制管控名单，财政部亦下发通知，要求在政府采购活动中，不得采购46家美国企业生产的产品。
+总量不变，各组分丰度却变了。
 
-我国具备从矿-分离-深加工的稀土全产业链，把控产品定价权。
+据介绍，除量子计算外，超高丰度硅-28在先进制程半导体、高端导航、计量基准等前沿领域也有重要应用前景。
 
 ## 相关推荐
 
-- 2026-06-30 07:44 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-30 07:37 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
-- 2026-06-30 07:58 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-30 08:03 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-30 08:02 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-30 07:41 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
-- 2026-06-30 08:03 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-30 07:38 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-30 07:46 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-30 07:43 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-30 07:38 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
-- 2026-06-30 07:45 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-30 07:53 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-30 07:53 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
-- 2026-06-30 07:38 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
+- 2026-06-30 07:49 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-30 07:42 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-30 08:06 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-30 07:43 - [老外对中国cosplay竟这样评价…](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-30 08:03 - [田中碧失误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
+- 2026-06-30 07:55 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-30 08:03 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-30 08:01 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-30 07:58 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-30 08:01 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:40 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/47779799888.shtml)
-- 2026-06-30 07:38 - [武磊：日本队有能力跟任何强队抗衡](http://www.share.kurohicncr.top/Article/details/5018085938.shtml)
-- 2026-06-30 07:52 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/46508.shtml)
-- 2026-06-30 07:59 - [又一美国科技巨头转向中国大模型](https://www.share.minike.top/Article/details/2983045076.shtml)
-- 2026-06-30 07:37 - [武磊：日本队有能力跟任何强队抗衡](http://www.share.minike.top/Article/details/31592239.shtml)
-- 2026-06-30 07:53 - [德国爆冷点球大战不敌巴拉圭](https://www.share.kurohicncr.top/Article/details/99726202019.shtml)
-- 2026-06-30 08:00 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/66884029377.shtml)
-- 2026-06-30 07:51 - [沙丘](https://www.blog.kurohicncr.top/Article/details/38079955188.shtml)
-- 2026-06-30 07:56 - [千香](https://www.share.minike.top/Article/details/5286013171.shtml)
-- 2026-06-30 07:52 - [马耳他著名拱门坍塌致中国男子身亡](https://www.blog.minike.top/Article/details/1338731141.shtml)
-- 2026-06-30 07:47 - [王欣瑜温网开门红](http://www.blog.minike.top/Article/details/960386032786.shtml)
-- 2026-06-30 07:40 - [峡谷事故团队组队时有人提醒会下雨](https://www.blog.minike.top/Article/details/337177.shtml)
-- 2026-06-30 08:04 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/71614384.shtml)
-- 2026-06-30 07:51 - [曝老詹对自由市场态度与以往截然不同](https://www.blog.kurohicncr.top/Article/details/6158935818.shtml)
-- 2026-06-30 07:48 - [二次元提前预演明日巴西对日本](https://www.share.kurohicncr.top/Article/details/3587162.shtml)
+- 2026-06-30 07:46 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/436614.shtml)
+- 2026-06-30 07:42 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/1259597704.shtml)
+- 2026-06-30 08:04 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/95789284806.shtml)
+- 2026-06-30 08:00 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/46953451.shtml)
+- 2026-06-30 07:48 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.minike.top/Article/details/711356091.shtml)
+- 2026-06-30 07:44 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](http://www.share.minike.top/Article/details/82600508.shtml)
+- 2026-06-30 08:10 - [曝老詹对自由市场态度与以往截然不同](https://www.blog.kurohicncr.top/Article/details/64902.shtml)
+- 2026-06-30 07:52 - [藤森庆子赢得秘鲁总统选举](https://www.share.minike.top/Article/details/51594.shtml)
+- 2026-06-30 08:03 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/3198886580.shtml)
+- 2026-06-30 07:43 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.share.minike.top/Article/details/47121758404.shtml)
+- 2026-06-30 07:47 - [王濛回复黄灿灿](https://www.blog.minike.top/Article/details/50462.shtml)
+- 2026-06-30 07:47 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/307025248743.shtml)
+- 2026-06-30 08:02 - [《男人至死是傻得儿》](http://www.share.minike.top/Article/details/207587107068.shtml)
+- 2026-06-30 08:00 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.share.minike.top/Article/details/18376646284.shtml)
+- 2026-06-30 08:11 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/669123307731.shtml)

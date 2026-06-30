@@ -1,56 +1,56 @@
-# 迈入循证时代 优色林首宣《国际色素沉着管理共识》
+# 光大期货：6月16日软商品日报
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月22日晚间消息，近日，中华医学会第三十一次皮肤性病学术年会（CSD 2026）在北京召开。年会期间，德国皮肤学先锋品牌优色林携手全球顶尖皮肤学专家，面向中国皮肤临床与公众正式首宣《国际色素沉着管理共识》（以下简称“《共识》”）。 据介绍，该《共识》由优色林联合全球十位权威皮肤科专家，以循证医学为基础共同
+白糖： （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 中东地缘冲突缓和，国际原油期价收至三个月低位。能源走弱拖累ICE原糖盘面，昨日原糖期价盘中下探至两个月低点，10月合约最低触及14.07美分/磅。短期持续跟踪巴西压榨进度与产区天气扰动。国内夏季步入传统消费旺季，短期市场情绪核心取决于销售节奏与去库速度；中长期厄尔尼诺气象扰动带来的天气溢价支撑仍
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+白糖： （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 中东地缘冲突缓和，国际原油期价收至三个月低位。
 
-6月22日晚间消息，近日，中华医学会第三十一次皮肤性病学术年会（CSD 2026）在北京召开。
+能源走弱拖累ICE原糖盘面，昨日原糖期价盘中下探至两个月低点，10月合约最低触及14.07美分/磅。
 
-年会期间，德国皮肤学先锋品牌优色林携手全球顶尖皮肤学专家，面向中国皮肤临床与公众正式首宣《国际色素沉着管理共识》（以下简称“《共识》”）。
+短期持续跟踪巴西压榨进度与产区天气扰动。
 
-据介绍，该《共识》由优色林联合全球十位权威皮肤科专家，以循证医学为基础共同起草，是全球首个系统化的色素性疾病临床管理框架，为中国消费者建立起可验证、可追溯的精准淡斑新标准。
+国内夏季步入传统消费旺季，短期市场情绪核心取决于销售节奏与去库速度；中长期厄尔尼诺气象扰动带来的天气溢价支撑仍存。
 
-在《共识》中，Thiamidol®提安明多®是护肤品活性成分里唯一获得专家组一致推荐的一线外用治疗成分。
+郑糖期价延续低位震荡，市场持仓维持高位、多空分歧加剧，未来盘面将持续验证底部支撑有效性。
 
-共识指出，其在黄褐斑、炎症后色素沉着中应作为一线外用选择，并推荐用于眶周色素沉着及皱褶部位色素沉着。
+棉花： （孙成震，从业资格号：F03099994；交易咨询资格号：Z0021057） 周一，ICE美棉上涨0.46%，报收76.77美分/磅，郑棉主力合约环比下降0.16%，报收15745元/吨，主力合约持仓环比下降5694手至59.99万手，棉花3128B现货价格指数16930元/吨，较前一日下降5元/吨。
 
-拜尔斯道夫集团皮肤科学全球营销副总裁Heike Fischer表示：“我们围绕核心成分，为中国市场开发了专门的产品，采用独家配方科技，让使用感非常适合中国肌肤。
+国际市场方面，近期美棉期价扰动因素较多，宏观及天气均有扰动。
 
-中国是全球最大的护肤市场，我们希望成为色素管理领域中的一线品牌。
+美伊签署备忘录，原油价格跳水，美元指数走弱。
 
 ## 相关推荐
 
-- 2026-06-30 07:52 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
-- 2026-06-30 07:55 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-30 07:37 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-30 07:50 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-30 07:50 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-30 07:47 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-30 07:55 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-30 07:41 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-30 07:51 - [日本队5进世界杯淘汰赛0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
-- 2026-06-30 07:57 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-30 07:47 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-30 08:00 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-30 08:04 - [王楚钦孙颖莎晋级混双八强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
+- 2026-06-30 08:05 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-30 07:54 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-30 08:08 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-30 08:06 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-30 08:11 - [马耳他著名拱门坍塌致一中国男子身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-30 07:47 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-30 08:02 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:02 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/21344.shtml)
-- 2026-06-30 07:59 - [周冬雨多次说演不了话剧文城](https://www.share.kurohicncr.top/Article/details/204952714.shtml)
-- 2026-06-30 07:48 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/1093060.shtml)
-- 2026-06-30 07:54 - [森保一 保守](https://www.share.minike.top/Article/details/6922773.shtml)
-- 2026-06-30 08:00 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.kurohicncr.top/Article/details/064886845.shtml)
-- 2026-06-30 07:40 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/0034489673.shtml)
-- 2026-06-30 07:41 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/4957835886.shtml)
-- 2026-06-30 07:51 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/542578168317.shtml)
-- 2026-06-30 07:58 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/290573492316.shtml)
-- 2026-06-30 07:42 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/443093.shtml)
-- 2026-06-30 07:47 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/58450838.shtml)
-- 2026-06-30 07:51 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/6450435919.shtml)
-- 2026-06-30 07:52 - [曝多支争冠球队有意塞克斯顿](http://www.share.kurohicncr.top/Article/details/48518081640.shtml)
-- 2026-06-30 07:51 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.kurohicncr.top/Article/details/408927261051.shtml)
-- 2026-06-30 07:57 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.share.minike.top/Article/details/76612281.shtml)
+- 2026-06-30 07:56 - [男子在京东买到“同仁堂”假药](http://www.share.kurohicncr.top/Article/details/72573.shtml)
+- 2026-06-30 08:08 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.minike.top/Article/details/536424.shtml)
+- 2026-06-30 07:57 - [韩国球迷凌晨4点接机怒骂主教练](http://www.blog.minike.top/Article/details/194298906.shtml)
+- 2026-06-30 07:51 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/475426852.shtml)
+- 2026-06-30 08:03 - [男生180+，有腹肌是什么体验？](https://www.share.kurohicncr.top/Article/details/23618276033.shtml)
+- 2026-06-30 08:04 - [森保一致歉：世界第一目标没能实现](https://www.share.kurohicncr.top/Article/details/846872200912.shtml)
+- 2026-06-30 07:57 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/0853494.shtml)
+- 2026-06-30 08:04 - [老外对中国cosplay竟这样评价…](https://www.share.kurohicncr.top/Article/details/5681188.shtml)
+- 2026-06-30 07:54 - [田中碧失误](http://www.blog.kurohicncr.top/Article/details/781659.shtml)
+- 2026-06-30 07:49 - [张帅晋级温网次轮](https://www.blog.minike.top/Article/details/8537941.shtml)
+- 2026-06-30 07:50 - [曝灰熊将莫兰特交易至开拓者](http://www.share.minike.top/Article/details/6912750.shtml)
+- 2026-06-30 07:57 - [DeepSeek启动成立来最大规模招聘](http://www.blog.kurohicncr.top/Article/details/46186198416.shtml)
+- 2026-06-30 08:08 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/71076411659.shtml)
+- 2026-06-30 08:02 - [巴西醒醒 这是淘汰赛](http://www.share.minike.top/Article/details/02270.shtml)
+- 2026-06-30 08:04 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/302222.shtml)

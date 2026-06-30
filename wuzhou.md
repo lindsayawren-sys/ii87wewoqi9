@@ -1,55 +1,60 @@
-# 企业微信证内测“大圆”agent，可自动理解用户诉求并结合对应场景给出回复
+# 印尼静待MSCI关键决定 或引发130亿美元资金外流
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-6月23日消息，腾讯公司公关总监张军今日发布微博称，企业微信即将推出名为“大圆”agent，目前已进入内测阶段。“大圆”更像是一个“长在企业微信里”的AI助理。该产品并不要求用户反复说上下文，而是可以基于企业微信内已有的群聊、文档、会议、邮件、日程等工作数据，自动理解用户诉求，并结合对应场景给出回复。在企微里任何时候，只要向左侧轻滑，即可唤起大圆，TA能智能识别你所在的界面，知
+印尼本月将面临一项关键考验，届时MSCI Inc．将决定是否继续下调印尼的评级，而投资者早已对这个全球表现最差股市的韧性表示质疑。 一些分析师表示，若该指数编制机构将印尼从新兴市场降级为前沿市场，全球基金可能撤出高达130亿美元的资金。这也将进一步给雅加达综合指数带来压力，受此决定及对总统普拉博沃经济管理能力的担忧影响，该指数今年已下跌近28%。 随着近日印尼资产连续多日遭抛售
 
 ## 正文
 
-6月23日消息，腾讯公司公关总监张军今日发布微博称，企业微信即将推出名为“大圆”agent，目前已进入内测阶段。
+印尼本月将面临一项关键考验，届时MSCI Inc．将决定是否继续下调印尼的评级，而投资者早已对这个全球表现最差股市的韧性表示质疑。
 
-“大圆”更像是一个“长在企业微信里”的AI助理。
+一些分析师表示，若该指数编制机构将印尼从新兴市场降级为前沿市场，全球基金可能撤出高达130亿美元的资金。
 
-该产品并不要求用户反复说上下文，而是可以基于企业微信内已有的群聊、文档、会议、邮件、日程等工作数据，自动理解用户诉求，并结合对应场景给出回复。
+这也将进一步给雅加达综合指数带来压力，受此决定及对总统普拉博沃经济管理能力的担忧影响，该指数今年已下跌近28%。
 
-在企微里任何时候，只要向左侧轻滑，即可唤起大圆，TA能智能识别你所在的界面，知道你在问什么，帮你更好解决问题。
+随着近日印尼资产连续多日遭抛售，引发市场对今年股市外国资金流出额逼近40亿美元的担忧，这一决定变得愈发关键。
 
-责任编辑：梁斌 SF055
+维持新兴市场地位 —— 这是大多数投资者的基本预期 —— 将有助于恢复部分投资者的信心，并为普拉博沃重振经济增长提供喘息空间。
+
+“在提高透明度方面已经取得进展，尽管没人知道这是否足以满足MSCI的要求，”UOB Asset Management Indonesia首席投资官Albert Budiman表示。
+
+尚不清楚避免评级下调能否解决印尼面临的所有挑战。
+
+印尼盾正面临多重逆风 —— 从高企的油价到不断扩大的财政赤字 —— 导致其汇率连创纪录新低。
 
 ## 相关推荐
 
-- 2026-06-30 07:59 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-30 07:47 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-30 07:47 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-30 07:53 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-30 07:44 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-30 07:48 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-30 08:01 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
-- 2026-06-30 08:00 - [男子在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-30 07:51 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-30 07:44 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
-- 2026-06-30 08:04 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-30 07:45 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-30 07:41 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
-- 2026-06-30 07:45 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
-- 2026-06-30 07:41 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-30 08:07 - [大蒜晒外面被路过女子连盆端走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-30 07:55 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-30 07:57 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-30 08:02 - [恋与深空回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-30 08:06 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-30 07:51 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-30 07:51 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
+- 2026-06-30 08:05 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-30 08:10 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
+- 2026-06-30 08:00 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-30 07:43 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-30 07:44 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
+- 2026-06-30 07:49 - [点球大战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-30 07:52 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:42 - [世界杯巴拉圭点球淘汰德国](https://www.share.kurohicncr.top/Article/details/207476673238.shtml)
-- 2026-06-30 07:47 - [医药暴涨5.91%背后](http://www.share.minike.top/Article/details/66207258.shtml)
-- 2026-06-30 07:44 - [金牌调解](http://www.share.kurohicncr.top/Article/details/68894013.shtml)
-- 2026-06-30 07:57 - [明星大侦探第四季](https://www.share.minike.top/Article/details/2501867.shtml)
-- 2026-06-30 07:56 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.kurohicncr.top/Article/details/5425460.shtml)
-- 2026-06-30 07:52 - [勇士续约波尔津吉斯](https://www.blog.kurohicncr.top/Article/details/37549.shtml)
-- 2026-06-30 07:51 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/758785654.shtml)
-- 2026-06-30 07:55 - [女子遭下药退赔偿拟追刑责](http://www.share.kurohicncr.top/Article/details/777031263.shtml)
-- 2026-06-30 07:36 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/0810949291.shtml)
-- 2026-06-30 08:00 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/1673819.shtml)
-- 2026-06-30 08:00 - [一生一世](https://www.share.minike.top/Article/details/74783724741.shtml)
-- 2026-06-30 07:57 - [日本半场1比0领先巴西](https://www.blog.minike.top/Article/details/86095822.shtml)
-- 2026-06-30 08:00 - [媒体评泰山建135公里刀片刺绳隔离网](http://www.share.minike.top/Article/details/0165296.shtml)
-- 2026-06-30 07:43 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/457453736.shtml)
-- 2026-06-30 07:52 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/121566626941.shtml)
+- 2026-06-30 07:46 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://www.share.minike.top/Article/details/91503.shtml)
+- 2026-06-30 07:44 - [MSI应援曲 如果季中成回忆](https://www.share.kurohicncr.top/Article/details/13011.shtml)
+- 2026-06-30 08:05 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.kurohicncr.top/Article/details/21720.shtml)
+- 2026-06-30 08:01 - [全球最火存储ETF纳入兆易创新](https://www.blog.minike.top/Article/details/1757237.shtml)
+- 2026-06-30 08:07 - [齐思钧回复张月](http://www.share.minike.top/Article/details/654382.shtml)
+- 2026-06-30 08:11 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/47424.shtml)
+- 2026-06-30 07:49 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/02766993.shtml)
+- 2026-06-30 07:58 - [孙兴慜道歉](https://www.share.kurohicncr.top/Article/details/6364565718.shtml)
+- 2026-06-30 08:00 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/6614862800.shtml)
+- 2026-06-30 08:08 - [王楚钦孙颖莎晋级混双八强](https://www.blog.minike.top/Article/details/22277218.shtml)
+- 2026-06-30 08:06 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/220391766.shtml)
+- 2026-06-30 08:05 - [《共患难》](https://www.share.minike.top/Article/details/060445.shtml)
+- 2026-06-30 08:04 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/195231818412.shtml)
+- 2026-06-30 07:42 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/1997128007.shtml)
+- 2026-06-30 08:04 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/359536.shtml)

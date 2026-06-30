@@ -1,60 +1,60 @@
-# 光大期货：6月24日农产品日报
+# （聚焦海峡论坛）第十七届海峡两岸少儿美术大展厦门展开幕
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-蛋白粕： （侯雪玲，从业资格号：F3048706；交易咨询资格号：Z0013637） 周二，CBOT大豆几乎持平，原油市场继续拖累，但投资者在重新评估美国天气、地缘风险及出口前景。美豆粕涨跌不一，美豆油下跌。之前作物报告显示，美豆优良率66%，符合市场预期，出苗率93%，开花率9%，均高于去年和五年均值。美豆早期生长良好。国内方面，蛋白粕震荡运行，跟随进口成本波动。现货市场成交
+中新社厦门6月14日电 (郑江洛)以“信”为主题的第十七届海峡两岸少儿美术大展厦门展14日在厦门市美术馆开幕。 展览集中展示了海峡两岸、港澳及马来西亚华人地区的600余件少儿作品。孩子们以“信”为媒，对话亲友、他者与未来。 来自台湾新北的5岁小朋友许耿睿的作品《我写给大自然的信》参加了本次展览，其画作中孩童与青蛙嬉戏、亲近自然，画面温馨动人。许耿睿说，希望能和小青蛙成为好朋友，
 
 ## 正文
 
-蛋白粕： （侯雪玲，从业资格号：F3048706；交易咨询资格号：Z0013637） 周二，CBOT大豆几乎持平，原油市场继续拖累，但投资者在重新评估美国天气、地缘风险及出口前景。
+中新社厦门6月14日电 (郑江洛)以“信”为主题的第十七届海峡两岸少儿美术大展厦门展14日在厦门市美术馆开幕。
 
-美豆粕涨跌不一，美豆油下跌。
+展览集中展示了海峡两岸、港澳及马来西亚华人地区的600余件少儿作品。
 
-之前作物报告显示，美豆优良率66%，符合市场预期，出苗率93%，开花率9%，均高于去年和五年均值。
+孩子们以“信”为媒，对话亲友、他者与未来。
 
-美豆早期生长良好。
+来自台湾新北的5岁小朋友许耿睿的作品《我写给大自然的信》参加了本次展览，其画作中孩童与青蛙嬉戏、亲近自然，画面温馨动人。
 
-国内方面，蛋白粕震荡运行，跟随进口成本波动。
+许耿睿说，希望能和小青蛙成为好朋友，这是他写给大自然的“信”。
 
-现货市场成交清淡，同样观望为主。
+本届展览特别邀请台湾艺术家林永发携其子、青年艺术家林冠廷参与。
 
-钢联数据显示，上周大豆库存攀升，豆粕库存攀升，未执行合同下降。
+其中《我们都是一家人》表达两岸同根同源、血脉相连的深厚情谊。
 
-油脂： （侯雪玲，从业资格号：F3048706；交易咨询资格号：Z0013637） 周二，BMD棕榈油下跌，受到竞争性食用油疲软及交易商获利了结拖累。
+“孩子们的作品风格各异，却都传递着真善美，实现孩童之间的心灵对话。
 
 ## 相关推荐
 
-- 2026-06-30 08:03 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
-- 2026-06-30 07:38 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
-- 2026-06-30 07:49 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-30 07:40 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-30 07:43 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
-- 2026-06-30 08:04 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-30 08:03 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-30 07:55 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-30 07:47 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
-- 2026-06-30 07:48 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-30 08:00 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-30 07:48 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-30 07:36 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-30 07:59 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
+- 2026-06-30 08:09 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
+- 2026-06-30 07:48 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-30 08:07 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-30 07:52 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
+- 2026-06-30 08:10 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-30 07:44 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-30 08:06 - [男子在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-30 07:58 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-30 07:43 - [王楚钦说配合稍微有些陌生感](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-30 07:49 - [王濛回复黄灿灿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-30 07:49 - [男子在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-30 07:59 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-30 07:51 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-30 07:45 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:47 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/62339450.shtml)
-- 2026-06-30 08:03 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/77282.shtml)
-- 2026-06-30 07:53 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/582713925.shtml)
-- 2026-06-30 07:53 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/21344451750.shtml)
-- 2026-06-30 07:54 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/32146186152.shtml)
-- 2026-06-30 07:50 - [博世们还在犹豫 美的们已经卖断货](https://www.share.kurohicncr.top/Article/details/6033643027.shtml)
-- 2026-06-30 07:57 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/91337700601.shtml)
-- 2026-06-30 07:59 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/258034169.shtml)
-- 2026-06-30 07:48 - [爱很美味](https://www.share.minike.top/Article/details/162910321.shtml)
-- 2026-06-30 07:58 - [日本半场1比0领先巴西](https://www.blog.minike.top/Article/details/801777806420.shtml)
-- 2026-06-30 08:00 - [王楚钦说配合稍微有些陌生感](http://www.blog.kurohicncr.top/Article/details/50864415.shtml)
-- 2026-06-30 07:54 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/459702.shtml)
-- 2026-06-30 07:45 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/12040565.shtml)
-- 2026-06-30 07:48 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/2864270294.shtml)
-- 2026-06-30 07:41 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/65532.shtml)
+- 2026-06-30 08:05 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/160016.shtml)
+- 2026-06-30 07:58 - [萨内 看笑了](http://www.blog.minike.top/Article/details/33757161463.shtml)
+- 2026-06-30 07:54 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://www.share.minike.top/Article/details/160313528.shtml)
+- 2026-06-30 07:57 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/19109981081.shtml)
+- 2026-06-30 07:52 - [上半年全国特种设备安全形势总体平稳](https://www.share.kurohicncr.top/Article/details/88795.shtml)
+- 2026-06-30 08:10 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/13993612.shtml)
+- 2026-06-30 07:58 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/56034346.shtml)
+- 2026-06-30 07:55 - [王楚钦孙颖莎晋级混双八强](http://www.share.minike.top/Article/details/3066080.shtml)
+- 2026-06-30 08:05 - [亚洲球队全部出局](http://www.share.minike.top/Article/details/0554847.shtml)
+- 2026-06-30 08:08 - [媒体：手机测评该挤挤水分了](https://www.blog.kurohicncr.top/Article/details/588462.shtml)
+- 2026-06-30 08:04 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/7029009.shtml)
+- 2026-06-30 08:09 - [安切洛蒂 换人](http://www.share.kurohicncr.top/Article/details/3348581839.shtml)
+- 2026-06-30 08:07 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/607947.shtml)
+- 2026-06-30 08:04 - [索马里女大使：想和中国一起搞事业](http://www.blog.kurohicncr.top/Article/details/700427330545.shtml)
+- 2026-06-30 08:11 - [藤森庆子赢得秘鲁总统选举](https://www.share.minike.top/Article/details/906888.shtml)

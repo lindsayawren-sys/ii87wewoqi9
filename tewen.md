@@ -1,59 +1,60 @@
-# 上海金融法院设立临港新片区巡回审判站，助力提升跨境离岸功能
+# 2025年度个税汇算即将结束 这些常见问题要留意
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-为持续推进上海国际金融中心建设能级提升，以高水平金融司法护航临港新片区金融开放与创新发展，上海金融法院在临港新片区设立巡回审判站。 6月23日，上海金融法院临港新片区巡回审判站在临港新片区涉外中心揭牌设立，并对一起涉临港新片区国际贸易公司企业信用证融资纠纷开展首场巡回审判。 今年的陆家嘴论坛上，中央金融监管部门、国家发改委、上海市人民政府等六部门联合发布《上海国际金融中心发展离
+2025年度综合所得个税汇算将于6月30日结束。国家税务总局日前发布的最新数据显示，截至5月底，已有超过1.6亿人完成汇算申报，超过1.1亿人办理了退税，退税规模较去年同比增加超过17%。 您办理退税了吗？在办理过程中，哪些专项附加扣除项目容易出错？被陌生人冒用信息又该怎么办？ 眼下个税汇算办理即将截止，不过，对于不少人来说，还有一些不知如何填写的“难题”。比如，有人会疑惑，“
 
 ## 正文
 
-为持续推进上海国际金融中心建设能级提升，以高水平金融司法护航临港新片区金融开放与创新发展，上海金融法院在临港新片区设立巡回审判站。
+2025年度综合所得个税汇算将于6月30日结束。
 
-6月23日，上海金融法院临港新片区巡回审判站在临港新片区涉外中心揭牌设立，并对一起涉临港新片区国际贸易公司企业信用证融资纠纷开展首场巡回审判。
+国家税务总局日前发布的最新数据显示，截至5月底，已有超过1.6亿人完成汇算申报，超过1.1亿人办理了退税，退税规模较去年同比增加超过17%。
 
-今年的陆家嘴论坛上，中央金融监管部门、国家发改委、上海市人民政府等六部门联合发布《上海国际金融中心发展离岸金融行动方案》，明确要求上海率先建成适配国际金融中心能级的离岸金融体系，也为金融司法服务保障提出全新课题与更高要求。
+您办理退税了吗？
 
-上海市委常委，临港新片区党工委书记、管委会主任陈金山表示，跨境离岸金融是临港新片区高水平开放的重要标志，金融安全有序开放需更高标准法治护航。
+在办理过程中，哪些专项附加扣除项目容易出错？
 
-希望以此次巡回审判站设立为契机，进一步深化与上海金融法院的协作，共同营造国际一流的法治化营商环境，持续提升跨境离岸功能。
+被陌生人冒用信息又该怎么办？
 
-近年来，临港新片区探索打造离岸金融（经济）功能区，在离岸贸易、离岸租赁、再保险等领域先行先试，形成一系列创新性制度成果。
+眼下个税汇算办理即将截止，不过，对于不少人来说，还有一些不知如何填写的“难题”。
 
-具体而言，临港新片区聚焦跨境资金便利，打造跨境金融制度体系。
+比如，有人会疑惑，“每个月单位都扣个人所得税，是不是就不用办个税汇算了？
 
-以滴水湖金融湾为核心承载区，全球高端金融要素资源，全力打造上海国际金融中心“第三极”。
+” 其实，不能一概而论。
 
 ## 相关推荐
 
-- 2026-06-30 07:48 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-30 07:54 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
-- 2026-06-30 08:04 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-30 07:57 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-30 07:48 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-30 07:50 - [马耳他著名拱门坍塌致一中国男子身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-30 07:37 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
-- 2026-06-30 07:54 - [点球大战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-30 08:03 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-30 07:46 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-30 07:52 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-30 07:43 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
-- 2026-06-30 07:36 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-30 08:02 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-30 07:46 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-30 07:53 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-30 07:56 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-30 08:06 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-30 08:05 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-30 07:43 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-30 08:07 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-30 07:50 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-30 07:56 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-30 07:44 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-30 08:09 - [三星投资计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-30 07:58 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-30 07:47 - [现在叛逆期的孩子最怕的是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:53 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/8499583.shtml)
-- 2026-06-30 08:00 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/01224017.shtml)
-- 2026-06-30 08:01 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/77565946.shtml)
-- 2026-06-30 07:40 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/88592543.shtml)
-- 2026-06-30 07:49 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/6698102740.shtml)
-- 2026-06-30 07:57 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/132883353.shtml)
-- 2026-06-30 07:46 - [峡谷事故团队组队时有人提醒会下雨](https://www.share.kurohicncr.top/Article/details/4742008.shtml)
-- 2026-06-30 07:46 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/711406360.shtml)
-- 2026-06-30 08:00 - [DeepSeek启动成立来最大规模招聘](https://www.share.minike.top/Article/details/906306046.shtml)
-- 2026-06-30 07:39 - [安切洛蒂 换人](http://www.share.minike.top/Article/details/697380.shtml)
-- 2026-06-30 08:00 - [男子在京东买到“同仁堂”假药](http://www.share.kurohicncr.top/Article/details/45092.shtml)
-- 2026-06-30 07:43 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.blog.minike.top/Article/details/1609125.shtml)
-- 2026-06-30 07:38 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/034139015.shtml)
-- 2026-06-30 07:46 - [锐评T1战胜KC](http://www.share.minike.top/Article/details/16343.shtml)
-- 2026-06-30 07:57 - [杨紫被质疑未使用原名纯属误解](http://www.blog.kurohicncr.top/Article/details/62561889.shtml)
+- 2026-06-30 08:11 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/73177.shtml)
+- 2026-06-30 07:55 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/694086201465.shtml)
+- 2026-06-30 08:11 - [日本进球](http://www.share.minike.top/Article/details/88660296293.shtml)
+- 2026-06-30 08:11 - [刘必安等16人非法集资案二审宣判](http://www.share.kurohicncr.top/Article/details/89787740766.shtml)
+- 2026-06-30 07:52 - [森保一 保守](http://www.blog.kurohicncr.top/Article/details/34745174340.shtml)
+- 2026-06-30 07:48 - [勇士续约波尔津吉斯](http://www.share.minike.top/Article/details/9497833099.shtml)
+- 2026-06-30 07:46 - [世界杯：德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/9661354955.shtml)
+- 2026-06-30 07:44 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/34202.shtml)
+- 2026-06-30 07:47 - [网友写差评被店家“挂”门口避雷](https://www.share.kurohicncr.top/Article/details/34589593.shtml)
+- 2026-06-30 07:46 - [巴西vs日本首发名单](http://www.share.minike.top/Article/details/9119857987.shtml)
+- 2026-06-30 07:45 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/971160488.shtml)
+- 2026-06-30 07:51 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.minike.top/Article/details/20671.shtml)
+- 2026-06-30 08:04 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/169332.shtml)
+- 2026-06-30 08:09 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/981244768.shtml)
+- 2026-06-30 08:05 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/1905222710.shtml)

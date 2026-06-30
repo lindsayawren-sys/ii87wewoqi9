@@ -1,59 +1,58 @@
-# 荷兰特文特大学教授Hans Hilgenkamp：AI带来的数据污染挑战需全社会共同应对
+# （活力中国调研行）聚链成势 北京机器人产业加速跑
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-专题：2026第十七届夏季达沃斯论坛 6月23日消息，世界经济论坛第十七届新领军者年会（2026大连夏季达沃斯论坛）今日在大连举行。荷兰特文特大学（University of Twente）应用物理与纳米技术学科教授Hans Hilgenkamp与新浪财经展开对话，就AI能耗、数据污染、人才培养等话题发表观点。 Hilgenkamp教授首先介绍了自己的研究方向：“我的研究兴趣聚
+中新网北京6月15日电 (记者 陈杭)北京中关村(海淀)具身智能创新产业园内的绿茵场上，6台人形机器人进行全程无人类遥控的3v3足球对抗，带球、传球、射门等一气呵成。 记者连日来跟随2026年“活力中国调研行”北京主题采访活动走进中试平台与企业，沿着研发生产—数据训练—场景验证的轨迹，感受机器人产业聚链成势，迈向规模化部署。 走进北京人形机器人创新中心中试验证平台，记者了解到，
 
 ## 正文
 
-专题：2026第十七届夏季达沃斯论坛 6月23日消息，世界经济论坛第十七届新领军者年会（2026大连夏季达沃斯论坛）今日在大连举行。
+中新网北京6月15日电 (记者 陈杭)北京中关村(海淀)具身智能创新产业园内的绿茵场上，6台人形机器人进行全程无人类遥控的3v3足球对抗，带球、传球、射门等一气呵成。
 
-荷兰特文特大学（University of Twente）应用物理与纳米技术学科教授Hans Hilgenkamp与新浪财经展开对话，就AI能耗、数据污染、人才培养等话题发表观点。
+记者连日来跟随2026年“活力中国调研行”北京主题采访活动走进中试平台与企业，沿着研发生产—数据训练—场景验证的轨迹，感受机器人产业聚链成势，迈向规模化部署。
 
-Hilgenkamp教授首先介绍了自己的研究方向：“我的研究兴趣聚焦于神经形态计算（Neuromorphic Computing）。
+走进北京人形机器人创新中心中试验证平台，记者了解到，机器人从原材料出库、上线，到整机测试、装箱入库等全流程生产仅需一天多时间。
 
-人脑在处理信息时极为强大，但能耗远低于当前AI系统。
+中心生产负责人黄哲表示，自2025年投用以来，平台已具备试制生产和测试设备500台套的能力，具身智能机器人年产能可达5000台套，搭建起了从技术研发到产品转化、从小批量试制到规模化生产准备的桥梁。
 
-这一研究方向有望从根本上解决AI能源消耗过大的问题，为绿色计算开辟新路径。
+机器人下线后要进行数百项全量测试，逐一过关方可“放行”。
 
-” 在被问及生成式AI带来的新挑战时，Hilgenkamp教授指出，数据污染正在成为现实。
+出厂后，需数据训练才能真正上岗。
 
-生成式AI会产生大量不正确的内容，而这些错误数据又被用作训练新模型的素材，形成恶性循环。
+千寻智能训练场内，工作人员身穿便携式数采装备，“带着”机器人学习物体夹取与移动；不远处，铅笔、笔盒、遥控器等物品凌乱放置，机器人自主决策并规划任务优先级，先将笔归位，再收纳遥控器。
 
-“未来我们面临的一大挑战是如何区分真实数据与错误数据，而这个问题可能本身也需要借助AI来解决。
+“数据是具身智能模型进化的燃料，依托动作研发、数据采集、模型训练与推理运行，赋予机器人自主理解任务、动态调整操作策略的能力。
 
 ## 相关推荐
 
-- 2026-06-30 07:55 - [哈弗茨头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
-- 2026-06-30 07:50 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-30 07:57 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-30 07:58 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-30 08:00 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
-- 2026-06-30 08:00 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-30 07:36 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-30 07:59 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
-- 2026-06-30 07:37 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
-- 2026-06-30 07:45 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
-- 2026-06-30 07:57 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-30 07:47 - [日本五次世界杯淘汰赛全败](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
-- 2026-06-30 07:41 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-30 07:45 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-30 08:10 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-30 08:03 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-30 07:46 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
+- 2026-06-30 07:56 - [三星投资计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
+- 2026-06-30 07:52 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-30 07:57 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-30 08:11 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-30 07:50 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-30 07:44 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-30 08:02 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-30 07:51 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:05 - [日本淘汰](https://www.share.kurohicncr.top/Article/details/30385887628.shtml)
-- 2026-06-30 07:54 - [男生180+，有腹肌是什么体验？](https://www.share.kurohicncr.top/Article/details/760825739.shtml)
-- 2026-06-30 07:55 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/85454905738.shtml)
-- 2026-06-30 07:54 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/53464688.shtml)
-- 2026-06-30 07:56 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/2223419.shtml)
-- 2026-06-30 07:55 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/85288498.shtml)
-- 2026-06-30 07:58 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/2364638312.shtml)
-- 2026-06-30 07:58 - [这一刀 会很帅](https://www.share.minike.top/Article/details/914743939824.shtml)
-- 2026-06-30 07:41 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/4949760544.shtml)
-- 2026-06-30 07:56 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/56095.shtml)
-- 2026-06-30 07:37 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/27430.shtml)
-- 2026-06-30 07:59 - [曝多支争冠球队有意塞克斯顿](http://www.share.kurohicncr.top/Article/details/78035899376.shtml)
-- 2026-06-30 07:49 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/3801438.shtml)
-- 2026-06-30 07:58 - [巴西醒醒 这是淘汰赛](http://www.share.minike.top/Article/details/9578905.shtml)
-- 2026-06-30 07:56 - [佐野海舟远射破门](https://www.blog.minike.top/Article/details/71803495.shtml)
+- 2026-06-30 08:00 - [巴西替补奇兵读秒绝杀](http://www.blog.kurohicncr.top/Article/details/38549.shtml)
+- 2026-06-30 08:01 - [德国巴拉圭加时](https://www.blog.kurohicncr.top/Article/details/727532.shtml)
+- 2026-06-30 08:03 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/48077606603.shtml)
+- 2026-06-30 07:55 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/72463139875.shtml)
+- 2026-06-30 07:54 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/789209.shtml)
+- 2026-06-30 07:58 - [森保一致歉：世界第一目标没能实现](https://www.blog.kurohicncr.top/Article/details/025895812991.shtml)
+- 2026-06-30 08:00 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/4618268810.shtml)
+- 2026-06-30 07:44 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/289545888.shtml)
+- 2026-06-30 07:49 - [这种关系可能正在悄悄“催老”你](http://www.blog.minike.top/Article/details/8458532523.shtml)
+- 2026-06-30 07:54 - [开电动汽车真的很省钱吗？](https://www.share.kurohicncr.top/Article/details/72201041223.shtml)
+- 2026-06-30 07:54 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.share.minike.top/Article/details/2013476.shtml)
+- 2026-06-30 07:48 - [日本淘汰](https://www.share.kurohicncr.top/Article/details/4846588.shtml)
+- 2026-06-30 07:46 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.kurohicncr.top/Article/details/2404978879.shtml)
+- 2026-06-30 07:44 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/57004549.shtml)
+- 2026-06-30 08:02 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/125727339.shtml)

@@ -1,55 +1,61 @@
-# 华为乾崑智驾高阶包7月起调价
+# 2026甬港经济合作论坛促成20个合作项目签约
 
-> 更新时间：2026-06-30 08:06:02 UTC+8
+> 更新时间：2026-06-30 08:12:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！（来源：证券时报）人民财讯6月22日电，6月22日，引望发布公告称，华为乾崑智驾ADS Max高阶功能包将从7月1日起调整价格。其中，一次性购买的建议销售价限时优惠将取消，由32000元恢复至标准价36000元。值得注意的是，随着此次价格的调整，引望新增了ADS高阶功能包保障与服务权益，对智驾保障权益进行了
+中新网香港6月16日电 (郑欣怡 戴小橦)2026甬港经济合作论坛15日在香港举行，活动现场及会前累计签约20个合作项目，合作领域涵盖港航服务、高端装备、生物医药、金融服务等多个重点方向。 活动上，浙江省委副书记、宁波市委书记王成致辞表示，甬港两地全方位、深层次、多维度合作持续走深走实。如今宁波已成为香港工商界投资兴业、拓展内地市场的热土，香港则是宁波最大的外资来源地、重要的贸
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网香港6月16日电 (郑欣怡 戴小橦)2026甬港经济合作论坛15日在香港举行，活动现场及会前累计签约20个合作项目，合作领域涵盖港航服务、高端装备、生物医药、金融服务等多个重点方向。
 
-（来源：证券时报）人民财讯6月22日电，6月22日，引望发布公告称，华为乾崑智驾ADS Max高阶功能包将从7月1日起调整价格。
+活动上，浙江省委副书记、宁波市委书记王成致辞表示，甬港两地全方位、深层次、多维度合作持续走深走实。
 
-其中，一次性购买的建议销售价限时优惠将取消，由32000元恢复至标准价36000元。
+如今宁波已成为香港工商界投资兴业、拓展内地市场的热土，香港则是宁波最大的外资来源地、重要的贸易伙伴和宁波企业境外上市的主要市场。
 
-值得注意的是，随着此次价格的调整，引望新增了ADS高阶功能包保障与服务权益，对智驾保障权益进行了重大升级，将城区NCA及高速NCA纳入保障场景。
+香港特区政府政务司副司长卓永兴致辞指出，香港和宁波在经贸、文化、创新科技及青年交流等方面一直合作无间。
 
-公告还强调，用户购买时享有的高阶功能包补贴，由各车企自行发布，最终支付金额以实际成交价为准。
+宁波是长三角制造业和港口枢纽，香港是国际金融、贸易、航运中心，两地优势互补、合作空间无限。
+
+特区政府将会继续推动甬港两地交流合作，双向联动、双向赋能。
+
+香港贸易发展局主席马时亨发言提到，宁波与香港均为重要港口城市，改革开放以来，港商在宁波投资热情高涨，投资领域不断向高新技术产业延伸。
+
+香港贸易发展局将积极搭建桥梁，一方面协助香港科创企业落地宁波，加速科技成果转化应用；另一方面助力内地企业依托香港平台开拓海外市场，提供全方位服务支持。
 
 ## 相关推荐
 
-- 2026-06-30 08:02 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
-- 2026-06-30 07:53 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-30 07:50 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-30 07:37 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
-- 2026-06-30 07:50 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
-- 2026-06-30 07:55 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-30 08:01 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-30 08:05 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-30 07:39 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-30 07:42 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
-- 2026-06-30 07:55 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
-- 2026-06-30 07:41 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
-- 2026-06-30 07:45 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-30 08:05 - [网瘾賊大的阿嬷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-30 07:59 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-30 07:56 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-30 07:53 - [泰山景区回应修建刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-30 08:08 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-30 08:04 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-30 08:10 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-30 08:02 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-30 07:52 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-30 07:48 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-30 08:10 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
+- 2026-06-30 08:07 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-30 07:51 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-30 07:46 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-30 08:05 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-30 07:47 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-30 07:52 - [张雪的一句“是我们”引发岛内热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:45 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/7086311.shtml)
-- 2026-06-30 07:41 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/018739590.shtml)
-- 2026-06-30 07:58 - [美股深夜大反弹 特斯拉飙涨8%](http://www.share.minike.top/Article/details/9277375508.shtml)
-- 2026-06-30 07:44 - [巴西vs日本首发名单](https://www.blog.minike.top/Article/details/40618984.shtml)
-- 2026-06-30 08:05 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/847606.shtml)
-- 2026-06-30 07:37 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/84129.shtml)
-- 2026-06-30 07:38 - [普京间接喊话特朗普有何考量](https://www.blog.kurohicncr.top/Article/details/045288163.shtml)
-- 2026-06-30 07:58 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/0745942.shtml)
-- 2026-06-30 08:02 - [亚洲球队全部出局](https://www.share.minike.top/Article/details/15900.shtml)
-- 2026-06-30 08:02 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/026067352781.shtml)
-- 2026-06-30 07:40 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/91952.shtml)
-- 2026-06-30 07:38 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/277122.shtml)
-- 2026-06-30 07:51 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/61124759.shtml)
-- 2026-06-30 07:58 - [美股](https://www.blog.minike.top/Article/details/258570802.shtml)
-- 2026-06-30 07:54 - [爆冷出局！德国点球大战不敌巴拉圭](https://www.blog.minike.top/Article/details/9681659161.shtml)
+- 2026-06-30 07:49 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/74580784.shtml)
+- 2026-06-30 08:05 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/92226.shtml)
+- 2026-06-30 07:56 - [詹姆斯下赛季去哪](http://www.blog.kurohicncr.top/Article/details/755546679.shtml)
+- 2026-06-30 07:45 - [巴拉圭先进球了](http://www.blog.kurohicncr.top/Article/details/0065798.shtml)
+- 2026-06-30 08:07 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/8369018.shtml)
+- 2026-06-30 07:45 - [庆祝中国共产党成立105周年音乐会](https://www.blog.minike.top/Article/details/36141963.shtml)
+- 2026-06-30 07:55 - [爆冷出局！德国点球大战不敌巴拉圭](https://www.blog.kurohicncr.top/Article/details/7583494710.shtml)
+- 2026-06-30 07:50 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/463157375.shtml)
+- 2026-06-30 07:58 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/050812002822.shtml)
+- 2026-06-30 07:49 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/51276385129.shtml)
+- 2026-06-30 07:45 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/498196591548.shtml)
+- 2026-06-30 08:02 - [IGN评测电影版后室](https://www.share.kurohicncr.top/Article/details/9085788.shtml)
+- 2026-06-30 07:43 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/107148308.shtml)
+- 2026-06-30 07:56 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/004114756139.shtml)
+- 2026-06-30 07:47 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.blog.minike.top/Article/details/0587394866.shtml)
