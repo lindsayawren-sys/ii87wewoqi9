@@ -1,51 +1,61 @@
-# 蔚来李斌：20到30万级里，今年要全面应用旗舰级智驾芯片及智驾系统
+# 大行一周抛售国债近900亿 反手押注政金债结构性行情
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-专题：智能电动汽车发展高层论坛（2026） 新浪科技讯 4月11日上午消息，2026智能电动汽车发展高层论坛举行，蔚来汽车创始人、董事长、CEO李斌与新浪科技等媒体进行对话。 谈及“智驾芯片及智驾系统上车的进展”，李斌表示，在4月21号会宣布乐道L90将搭配NX神玑9031，这个芯片已经是全球量产最高的最新一代的旗舰智驾芯片，“另外新的世界模型及全域操作系统都将全面上车L90。
+财联社5月18日讯（编辑 李响）近期，随着债市长端利率出现调整，机构行为也呈现出较为明显的差异化表现。 财联社从业内人士处了解到，上周债市分化调整的背后，是以银行系为主的机构对利率债减持意愿上升，其中大行减持国债达891亿元，不过对于政金债增持力度有所上升，单周净买入794亿元，此外对于信用债大行卖出力度更大，单周资金净流出达1237亿元，而中小银行方面主要对利率债品种悉数减持
 
 ## 正文
 
-专题：智能电动汽车发展高层论坛（2026） 新浪科技讯 4月11日上午消息，2026智能电动汽车发展高层论坛举行，蔚来汽车创始人、董事长、CEO李斌与新浪科技等媒体进行对话。
+财联社5月18日讯（编辑 李响）近期，随着债市长端利率出现调整，机构行为也呈现出较为明显的差异化表现。
 
-谈及“智驾芯片及智驾系统上车的进展”，李斌表示，在4月21号会宣布乐道L90将搭配NX神玑9031，这个芯片已经是全球量产最高的最新一代的旗舰智驾芯片，“另外新的世界模型及全域操作系统都将全面上车L90。
+财联社从业内人士处了解到，上周债市分化调整的背后，是以银行系为主的机构对利率债减持意愿上升，其中大行减持国债达891亿元，不过对于政金债增持力度有所上升，单周净买入794亿元，此外对于信用债大行卖出力度更大，单周资金净流出达1237亿元，而中小银行方面主要对利率债品种悉数减持。
 
-” 李斌强调：“对（蔚来）来说，今年非常大的事情，就是在20~30万级别里，要全面应用全球旗舰级智驾芯片和我们的智驾系统。
+值得注意的是，以基金公司为主的交易型机构加大对信用债的增持力度，为上周市场最大的买方，合计净买入规模达884亿元。
 
-”责任编辑：郝欣煜
+有业内人士指出，近期长端走势陷入纠结或是资金风格转向的主导因素之一，一方面市场担忧5月下旬政府债发行节奏加快对资金的虹吸效应，另一方面基于央行一季度货政报告对短期降息降准的落空使得部分交易性资金主动进入防御，优选票息相对较高的信用债品种。
+
+与此同时，也有机构人士认为，在目前银行净融出规模仍处高位下，市场资金面仍预期宽松，在此背景下，利率债中目前国债、政金债风险偏好的风化也存在部分资金对于中端期限品种稳定性的诉求。
+
+利率债品种出现分化 资金押注政金债结构行情 从上周行情表现来看，随着以大行、基金等资金对于政金债的增持，利率债行情表现有所风化，国债相较政金债表现偏弱，尤其是中短端品种。
+
+数据显示，上周1年国债收益率上行1.95bp至1.21%，10年国债收益率下行0.12bp至1.77%，30年国债收益率上行0.5bp至2.25%。
+
+而国开债呈现中短端偏强，10年期国开债收益率下行约2bp至1.83%，不过30年期国开债小幅走弱1bp至2.26%。
 
 ## 相关推荐
 
-- 2026-06-30 08:33 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
-- 2026-06-30 08:47 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-30 08:19 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-30 08:32 - [日本博主：日本足球真的垃圾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
-- 2026-06-30 08:36 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
-- 2026-06-30 08:42 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-30 08:46 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-30 08:20 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-30 08:25 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
-- 2026-06-30 08:44 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
-- 2026-06-30 08:29 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
-- 2026-06-30 08:46 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-30 08:35 - [日本队5进世界杯淘汰赛0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-30 08:39 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-30 08:36 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-30 08:44 - [《名肘探科比》：科比大战裂口女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-30 08:25 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-30 08:30 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-30 08:39 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-30 08:35 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-30 08:53 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-30 08:37 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-30 08:25 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
+- 2026-06-30 08:45 - [勇士续约波尔津吉斯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-30 08:34 - [王楚钦说配合稍微有些陌生感](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-30 08:29 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
+- 2026-06-30 08:48 - [郑钦文 四年一轮游](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-30 08:41 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:34 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/37193.shtml)
-- 2026-06-30 08:43 - [巴西在进攻三区完成210脚传球](https://www.blog.minike.top/Article/details/241637047212.shtml)
-- 2026-06-30 08:45 - [卢卡申科发布解放军仪仗队视频](http://www.share.minike.top/Article/details/075309706.shtml)
-- 2026-06-30 08:26 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/116485173.shtml)
-- 2026-06-30 08:44 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/77025849.shtml)
-- 2026-06-30 08:35 - [德国连续三届世界杯无缘16强](http://www.share.minike.top/Article/details/24798247.shtml)
-- 2026-06-30 08:23 - [欧洲装一台空调有多难](http://www.blog.minike.top/Article/details/96242.shtml)
-- 2026-06-30 08:31 - [德国罚丢3粒点球](https://www.blog.minike.top/Article/details/73234902428.shtml)
-- 2026-06-30 08:43 - [巴西醒醒 这是淘汰赛](http://www.blog.kurohicncr.top/Article/details/9599655.shtml)
-- 2026-06-30 08:31 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/6110502278.shtml)
-- 2026-06-30 08:25 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/0867306.shtml)
-- 2026-06-30 08:18 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](http://www.share.kurohicncr.top/Article/details/059008871924.shtml)
-- 2026-06-30 08:44 - [勇士续约波尔津吉斯](https://www.share.kurohicncr.top/Article/details/861486511608.shtml)
-- 2026-06-30 08:25 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/86346841652.shtml)
-- 2026-06-30 08:26 - [赛博朋克边缘行者2预告片](https://www.blog.kurohicncr.top/Article/details/3844966472.shtml)
+- 2026-06-30 08:42 - [如果有二次元高中是什么样子的？](http://www.share.kurohicncr.top/Article/details/9245225891.shtml)
+- 2026-06-30 08:36 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/823991202.shtml)
+- 2026-06-30 08:30 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/640578.shtml)
+- 2026-06-30 08:28 - [巴西把自己踢晕了](http://www.blog.kurohicncr.top/Article/details/006491124391.shtml)
+- 2026-06-30 08:41 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/89902914518.shtml)
+- 2026-06-30 08:29 - [这种关系可能正在悄悄“催老”你](https://www.blog.minike.top/Article/details/169195762.shtml)
+- 2026-06-30 08:46 - [美股深夜大反弹 特斯拉飙涨8%](https://www.share.kurohicncr.top/Article/details/06927519.shtml)
+- 2026-06-30 08:52 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/812491.shtml)
+- 2026-06-30 08:37 - [F1奥地利站赛后复盘](http://www.share.kurohicncr.top/Article/details/68631182.shtml)
+- 2026-06-30 08:44 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/430565556.shtml)
+- 2026-06-30 08:36 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/1204964307.shtml)
+- 2026-06-30 08:27 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/51093.shtml)
+- 2026-06-30 08:51 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/242547711147.shtml)
+- 2026-06-30 08:27 - [城市规划有可能成为「屎山代码」吗？](http://www.blog.minike.top/Article/details/5799543566.shtml)
+- 2026-06-30 08:44 - [刘必安等16人非法集资案二审宣判](https://www.blog.minike.top/Article/details/05747.shtml)

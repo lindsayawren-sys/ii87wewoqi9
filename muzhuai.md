@@ -1,60 +1,60 @@
-# 中东紧张局势升级 日本10年期国债收益率升至1997年以来最高水平
+# 拱北口岸年内通关旅客突破5000万人次
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-在美国准备封锁霍尔木兹海峡，中东紧张局势升级，日本10年期国债收益率攀升至1997年以来的最高水准。 东京周一，该基准利率上涨5.5个基点至2.49%。10年期国债期货价格一度下跌55个点至129.27。 华盛顿和德黑兰周末的谈判未能达成一项协议以结束冲突，这给上周脆弱的停火协议能否持续的希望蒙上了一层阴影。紧张局势的再度升级推动了油价走高，加剧了日本的通胀压力，该国严重依赖中
+发布时间：2026年05月18日 18:28 来源：中国新闻网 根据拱北边检站统计的数据显示，截至5月18日上午11时许，该站累计查验出入境客流量突破5000万人次大关，相较去年提前12天，再次成为全国首个年内客流量超5000万人次的陆路口岸。 据拱北边检站公布的数据，今年以来，拱北口岸客流始终处于高位运行态势，日均查验旅客超33万人次，较去年同比增长8%。尤其是重大节假日客流
 
 ## 正文
 
-在美国准备封锁霍尔木兹海峡，中东紧张局势升级，日本10年期国债收益率攀升至1997年以来的最高水准。
+发布时间：2026年05月18日 18:28 来源：中国新闻网 根据拱北边检站统计的数据显示，截至5月18日上午11时许，该站累计查验出入境客流量突破5000万人次大关，相较去年提前12天，再次成为全国首个年内客流量超5000万人次的陆路口岸。
 
-东京周一，该基准利率上涨5.5个基点至2.49%。
+据拱北边检站公布的数据，今年以来，拱北口岸客流始终处于高位运行态势，日均查验旅客超33万人次，较去年同比增长8%。
 
-10年期国债期货价格一度下跌55个点至129.27。
+尤其是重大节假日客流峰值屡创新高，双向往来活力持续迸发。
 
-华盛顿和德黑兰周末的谈判未能达成一项协议以结束冲突，这给上周脆弱的停火协议能否持续的希望蒙上了一层阴影。
+今年第一季度，口岸单日客流量结节攀升，连续3次刷新近6年来最高纪录。
 
-紧张局势的再度升级推动了油价走高，加剧了日本的通胀压力，该国严重依赖中东能源进口。
+从客流结构分析，珠澳居民跨境通勤、探亲访友、休闲消费、就学务工成为主流，人员双向流动特征更加凸显。
 
-日元持续疲软推高进口成本，加剧了通胀风险。
+第二季度以来，随着广交会、世界互联网大会亚太峰会、APEC峰会等重要活动陆续拉开帷幕，经口岸过境的外籍商务人员、外籍游客持续增多，截至5月17日，该站累计查验出入境外国旅客超35万人次，同比增长超10%，口岸辐射能力和对外开放水平进一步增强。
 
-日元兑美元汇率再次逼近160日元关口，促使日本官员发出更强烈的口头警告。
+拱北边检站相关负责人表示，年内5000万人次通关量，是珠澳深度交融、湾区蓬勃发展的有力答卷，也是新时代移民管理机构守牢安全底线、优化服务保障的工作成效。
 
-日本财务大臣片山皋月表示，考虑到汇率波动对家庭和经济的影响，当局准备在市场各个方面采取行动。
+(邓媛雯 何志金 制作 刘鹏 ） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 08:36 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-30 08:33 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-30 08:23 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
-- 2026-06-30 08:40 - [孙颖莎王楚钦晋级8强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-30 08:31 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-30 08:41 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-30 08:46 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-30 08:45 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-30 08:18 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-30 08:33 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-30 08:32 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
-- 2026-06-30 08:24 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-30 08:22 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
-- 2026-06-30 08:32 - [曝老詹对自由市场态度与以往截然不同](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
+- 2026-06-30 08:35 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-30 08:42 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-30 08:51 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
+- 2026-06-30 08:26 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-30 08:37 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-30 08:24 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-30 08:30 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-30 08:40 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-30 08:43 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-30 08:37 - [巴西绝杀日本：漫画般结局换了主角](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
+- 2026-06-30 08:27 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-30 08:39 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-30 08:37 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-30 08:53 - [恋与深空制作组回应近期争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:34 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/18384586306.shtml)
-- 2026-06-30 08:20 - [刘必安等16人非法集资案二审宣判](http://www.blog.kurohicncr.top/Article/details/1044129.shtml)
-- 2026-06-30 08:29 - [女子清吧被陌生人投放伟哥](https://www.blog.kurohicncr.top/Article/details/26512055415.shtml)
-- 2026-06-30 08:44 - [爱很美味](http://www.share.kurohicncr.top/Article/details/041987.shtml)
-- 2026-06-30 08:28 - [董卿父亲在报纸上发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/52300.shtml)
-- 2026-06-30 08:33 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/1588745914.shtml)
-- 2026-06-30 08:34 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/54375203260.shtml)
-- 2026-06-30 08:31 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/3638457.shtml)
-- 2026-06-30 08:33 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/42557.shtml)
-- 2026-06-30 08:27 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/819603.shtml)
-- 2026-06-30 08:41 - [湖南祁东原文化馆被指贱卖](https://www.share.minike.top/Article/details/3703724177.shtml)
-- 2026-06-30 08:35 - [刘必安等16人非法集资案二审宣判](http://www.share.kurohicncr.top/Article/details/595491114483.shtml)
-- 2026-06-30 08:41 - [德国爆冷点球大战不敌巴拉圭](http://www.blog.minike.top/Article/details/67992442526.shtml)
-- 2026-06-30 08:29 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/907061420.shtml)
-- 2026-06-30 08:43 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/5546587098.shtml)
+- 2026-06-30 08:36 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.kurohicncr.top/Article/details/85431892613.shtml)
+- 2026-06-30 08:38 - [亚洲球队全部出局](http://www.blog.kurohicncr.top/Article/details/88107649.shtml)
+- 2026-06-30 08:35 - [巴西绝杀日本](http://www.blog.minike.top/Article/details/95506305.shtml)
+- 2026-06-30 08:29 - [《贺子珍》](https://www.blog.minike.top/Article/details/142126.shtml)
+- 2026-06-30 08:24 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/22482.shtml)
+- 2026-06-30 08:30 - [恋与深空道歉声明](https://www.share.kurohicncr.top/Article/details/62847.shtml)
+- 2026-06-30 08:24 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](http://www.blog.kurohicncr.top/Article/details/38262880.shtml)
+- 2026-06-30 08:46 - [德国队连续三届世界杯无缘16强](https://www.share.minike.top/Article/details/812964596.shtml)
+- 2026-06-30 08:29 - [送你一朵小红花](https://www.share.minike.top/Article/details/95014.shtml)
+- 2026-06-30 08:36 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](http://www.blog.minike.top/Article/details/547831278.shtml)
+- 2026-06-30 08:25 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/18794.shtml)
+- 2026-06-30 08:47 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/774511.shtml)
+- 2026-06-30 08:26 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/04190530.shtml)
+- 2026-06-30 08:26 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/03961848096.shtml)
+- 2026-06-30 08:36 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/809719.shtml)

@@ -1,57 +1,61 @@
-# 浙江江山“小城办大赛”：攀岩热与城市活力同频攀升
+# Anthropic严打对其股份的未授权交易 投资者担心持仓突然之间一文不值
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-中新网江山4月10日电(张煜欢 毛武俊)10日，2026年全国青少年攀岩公开赛(浙江江山站)在浙江衢州江山市体育馆攀岩馆开赛。来自国内25个省(自治区、直辖市)的178支代表队、979名青少年攀岩运动员齐聚浙西小城，在岩壁之上展开一场力量、技巧与意志的较量。 攀岩馆内，一面面色彩斑斓的岩壁前，小选手们目光专注，手指牢牢扣住岩点，脚下迅速寻找支撑，在身体腾挪、转身、发力之间不断向
+在Anthropic扩大对购买其股票的热门渠道的禁令后，全球各地的投资者聊天群一片沸腾。 “我们是不是完了？”一名人士在一个拥有数百名成员的家族办公室WhatsApp群里写道。类似疑问也在X、Reddit以及中文社交媒体上更公开地扩散开来。投资者担心，他们持有的这家人工智能开发商股份 —— 也是最受追捧的未上市企业之一 —— 是否突然变得一文不值。 几天之后，情况依然不明朗。A
 
 ## 正文
 
-中新网江山4月10日电(张煜欢 毛武俊)10日，2026年全国青少年攀岩公开赛(浙江江山站)在浙江衢州江山市体育馆攀岩馆开赛。
+在Anthropic扩大对购买其股票的热门渠道的禁令后，全球各地的投资者聊天群一片沸腾。
 
-来自国内25个省(自治区、直辖市)的178支代表队、979名青少年攀岩运动员齐聚浙西小城，在岩壁之上展开一场力量、技巧与意志的较量。
+“我们是不是完了？
 
-攀岩馆内，一面面色彩斑斓的岩壁前，小选手们目光专注，手指牢牢扣住岩点，脚下迅速寻找支撑，在身体腾挪、转身、发力之间不断向上突破。
+”一名人士在一个拥有数百名成员的家族办公室WhatsApp群里写道。
 
-赛场上，速度与稳定交织，力量与技巧碰撞；看台边，教练紧盯路线变化，家长屏息注视，每一次精准触点、每一次成功登顶，都引来阵阵掌声与喝彩。
+类似疑问也在X、Reddit以及中文社交媒体上更公开地扩散开来。
 
-据介绍，本次赛事由国家体育总局登山运动管理中心、中国登山协会主办，衢州市体育局、江山市人民政府承办。
+投资者担心，他们持有的这家人工智能开发商股份 —— 也是最受追捧的未上市企业之一 —— 是否突然变得一文不值。
 
-比赛为期3天，设攀石赛、难度赛、速度赛三大项目，并根据年龄设置A8、A9、A10、A11、A12、U15、U17七个组别，各组别均分男、女组展开角逐。
+几天之后，情况依然不明朗。
 
-其中，A8、A9、A10组不设攀石赛，A11、A12、U15、U17组不设难度赛。
+Anthropic PBC上周在其网站就未授权股份出售发出了措辞严厉的警告，非同寻常地直接点名八家机构，称其提供的相关份额将被视为无效。
 
-近千名青少年运动员、数百支参赛队伍汇聚一城，对一座县域城市而言，这样的赛事体量并不小。
+该公司还明确禁止投资者通过特殊目的载体购买股份。
 
 ## 相关推荐
 
-- 2026-06-30 08:25 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
-- 2026-06-30 08:43 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-30 08:46 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-30 08:22 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
-- 2026-06-30 08:33 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-30 08:27 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-30 08:35 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-30 08:43 - [诺伊尔尽力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-30 08:36 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
-- 2026-06-30 08:25 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-30 08:23 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
+- 2026-06-30 08:36 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-30 08:43 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-30 08:38 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
+- 2026-06-30 08:46 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-30 08:51 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-30 08:31 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-30 08:33 - [田中碧失误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-30 08:39 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-30 08:31 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
+- 2026-06-30 08:43 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-30 08:31 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
+- 2026-06-30 08:29 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-30 08:33 - [董路：谁赢谁是“正路子”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-30 08:38 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-30 08:53 - [4000美元是黄金新一轮下跌的开始吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:43 - [媒体评哈兰德之歌火了](http://www.blog.kurohicncr.top/Article/details/8569852296.shtml)
-- 2026-06-30 08:21 - [啊啊啊](http://www.share.minike.top/Article/details/96621312.shtml)
-- 2026-06-30 08:43 - [杨紫被质疑未使用原名纯属误解](https://www.blog.minike.top/Article/details/17730.shtml)
-- 2026-06-30 08:48 - [日本球员说被绝杀非常不甘心](http://www.share.minike.top/Article/details/62075233510.shtml)
-- 2026-06-30 08:34 - [日本球迷被强行披上巴西国旗](https://www.share.minike.top/Article/details/92065271.shtml)
-- 2026-06-30 08:28 - [马耳他著名拱门坍塌致一中国男子身亡](https://www.share.kurohicncr.top/Article/details/79916333.shtml)
-- 2026-06-30 08:21 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/813903102.shtml)
-- 2026-06-30 08:22 - [点球大战 残酷](http://www.share.kurohicncr.top/Article/details/061897255549.shtml)
-- 2026-06-30 08:40 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/545060.shtml)
-- 2026-06-30 08:26 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/3679520.shtml)
-- 2026-06-30 08:25 - [韩国球迷凌晨4点接机怒骂主教练](https://www.share.kurohicncr.top/Article/details/659507.shtml)
-- 2026-06-30 08:43 - [杨紫学位证上就是杨紫](http://www.share.minike.top/Article/details/61853133496.shtml)
-- 2026-06-30 08:37 - [金刚川](https://www.share.kurohicncr.top/Article/details/065842.shtml)
-- 2026-06-30 08:31 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/2540363458.shtml)
-- 2026-06-30 08:24 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/07268598466.shtml)
+- 2026-06-30 08:49 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/57829667.shtml)
+- 2026-06-30 08:26 - [日本球员说被绝杀非常不甘心](https://www.blog.minike.top/Article/details/13435831263.shtml)
+- 2026-06-30 08:53 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/14667081100.shtml)
+- 2026-06-30 08:49 - [绘画区你赢了](https://www.share.minike.top/Article/details/052294969.shtml)
+- 2026-06-30 08:43 - [张月收到黄灿灿辣货两眼发光](http://www.blog.kurohicncr.top/Article/details/62130.shtml)
+- 2026-06-30 08:49 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/184810827.shtml)
+- 2026-06-30 08:42 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/42721465.shtml)
+- 2026-06-30 08:41 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/24409.shtml)
+- 2026-06-30 08:34 - [巴西2比1日本](http://www.share.kurohicncr.top/Article/details/145753162.shtml)
+- 2026-06-30 08:27 - [曝灰熊将莫兰特交易至开拓者](http://www.blog.kurohicncr.top/Article/details/562418581490.shtml)
+- 2026-06-30 08:37 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/00591929954.shtml)
+- 2026-06-30 08:26 - [张雪的一句“是我们”引发岛内热议](http://www.blog.kurohicncr.top/Article/details/9702085.shtml)
+- 2026-06-30 08:32 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://www.share.minike.top/Article/details/89624.shtml)
+- 2026-06-30 08:54 - [AI手机进入Agent时代](http://www.blog.kurohicncr.top/Article/details/1314970.shtml)
+- 2026-06-30 08:29 - [我觉得你是在无中生友](http://www.share.kurohicncr.top/Article/details/84182206.shtml)

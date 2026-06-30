@@ -1,48 +1,58 @@
-# 上海宝山：“人犬越野赛”开跑
+# 男子殴打未满2个月女儿 重庆巴南警方：涉嫌虐待罪已被刑拘
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月11日 18:05 来源：中国新闻网 4月11日，一场“人犬越野赛”在上海市宝山区庙行镇康宁绿地火热开跑。本次比赛吸引了百余组中外市民携爱犬报名。赛道上，人犬默契配合，为人宠友好的生活方式注入活力。 (记者 张亨伟 李佳佳 制作 乐小敏) 责任编辑：【罗攀】
+中新网5月18日电 据“平安巴南”微博消息，18日，重庆市公安局巴南区分局发布警情通报。通报称，网传一男子殴打婴儿视频。经重庆市公安局巴南区分局调查，5月17日21时许，徐某(男，36岁)在巴南区莲花街道家中，酒后与妻子发生口角，继而殴打未满两个月的女儿，致其受伤。22时许，徐某到公安机关投案自首。目前，女婴已及时送医治疗。徐某因涉嫌虐待罪已被巴南区分局依法刑事拘留，案件正进一
 
 ## 正文
 
-发布时间：2026年04月11日 18:05 来源：中国新闻网 4月11日，一场“人犬越野赛”在上海市宝山区庙行镇康宁绿地火热开跑。
+中新网5月18日电 据“平安巴南”微博消息，18日，重庆市公安局巴南区分局发布警情通报。
 
-本次比赛吸引了百余组中外市民携爱犬报名。
+通报称，网传一男子殴打婴儿视频。
 
-赛道上，人犬默契配合，为人宠友好的生活方式注入活力。
+经重庆市公安局巴南区分局调查，5月17日21时许，徐某(男，36岁)在巴南区莲花街道家中，酒后与妻子发生口角，继而殴打未满两个月的女儿，致其受伤。
 
-(记者 张亨伟 李佳佳 制作 乐小敏) 责任编辑：【罗攀】
+22时许，徐某到公安机关投案自首。
+
+目前，女婴已及时送医治疗。
+
+徐某因涉嫌虐待罪已被巴南区分局依法刑事拘留，案件正进一步侦办中。
+
+警方吁请广大网民不传播相关图片、视频，避免给受害人及家庭造成二次伤害。
 
 ## 相关推荐
 
-- 2026-06-30 08:37 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-30 08:43 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-30 08:24 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-30 08:45 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-30 08:23 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
-- 2026-06-30 08:31 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-30 08:27 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-30 08:40 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-30 08:24 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-30 08:24 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-30 08:44 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-30 08:46 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-30 08:49 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
+- 2026-06-30 08:39 - [杨紫大银幕成绩单如何](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
+- 2026-06-30 08:32 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-30 08:33 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-30 08:25 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-30 08:47 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-30 08:36 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-30 08:43 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-30 08:29 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-30 08:28 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-30 08:45 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-30 08:25 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:28 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/4519579227.shtml)
-- 2026-06-30 08:32 - [日本队5进世界杯淘汰赛0胜](https://www.share.minike.top/Article/details/3651281324.shtml)
-- 2026-06-30 08:46 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/4105272135.shtml)
-- 2026-06-30 08:27 - [建议不要突然完全停止喝咖啡](https://www.share.minike.top/Article/details/0922469696.shtml)
-- 2026-06-30 08:18 - [莫兰特转投开拓者效力](http://www.share.minike.top/Article/details/0736751.shtml)
-- 2026-06-30 08:37 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/65503.shtml)
-- 2026-06-30 08:28 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/729799861.shtml)
-- 2026-06-30 08:22 - [恋与深空回应争议](http://www.share.minike.top/Article/details/774775.shtml)
-- 2026-06-30 08:20 - [沙丘](https://www.blog.minike.top/Article/details/326139710.shtml)
-- 2026-06-30 08:30 - [泰山建135公里刀片刺绳隔离网](http://www.blog.minike.top/Article/details/97255335.shtml)
-- 2026-06-30 08:37 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/10112.shtml)
-- 2026-06-30 08:33 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/6768132981.shtml)
-- 2026-06-30 08:26 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/904065.shtml)
-- 2026-06-30 08:39 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/553666.shtml)
-- 2026-06-30 08:47 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/87090479.shtml)
+- 2026-06-30 08:40 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/722621282.shtml)
+- 2026-06-30 08:49 - [董路：谁赢谁是“正路子”](http://www.blog.kurohicncr.top/Article/details/0836425062.shtml)
+- 2026-06-30 08:36 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/752481212981.shtml)
+- 2026-06-30 08:42 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/72207.shtml)
+- 2026-06-30 08:45 - [巴西足球能否再现昔日荣光](http://www.share.kurohicncr.top/Article/details/67192828.shtml)
+- 2026-06-30 08:40 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/4192007126.shtml)
+- 2026-06-30 08:33 - [男子醉酒溺水获救后同行人拒协助抬人](http://www.blog.kurohicncr.top/Article/details/051544182563.shtml)
+- 2026-06-30 08:38 - [峡谷事故团队组队时有人提醒会下雨](https://www.blog.minike.top/Article/details/53851.shtml)
+- 2026-06-30 08:32 - [急先锋](https://www.share.minike.top/Article/details/995734.shtml)
+- 2026-06-30 08:43 - [第3集丨“柠檬茶能换怀表？”](https://www.blog.minike.top/Article/details/919662951669.shtml)
+- 2026-06-30 08:38 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/724885072.shtml)
+- 2026-06-30 08:46 - [德国淘汰](https://www.share.minike.top/Article/details/04813830.shtml)
+- 2026-06-30 08:46 - [杨紫肖战余生请多指教拍立得](http://www.share.kurohicncr.top/Article/details/198321036.shtml)
+- 2026-06-30 08:29 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/43344.shtml)
+- 2026-06-30 08:43 - [曝iPhone18Pro机密文件现身暗网](http://www.share.minike.top/Article/details/39156516406.shtml)

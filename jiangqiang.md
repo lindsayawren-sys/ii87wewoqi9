@@ -1,59 +1,57 @@
-# 医院通用人工智能平台在广州发布
+# 公路抵村到户 “移动超市”开进西藏墨脱乡村
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-中新网广州4月10日电 (记者 蔡敏婕)医院通用人工智能平台(Hospital AI Platform，简称：HAIP)10日在广州发布，该平台通过统筹全院算力、数据、模型资源，将分散的AI能力整合为可共享、可进化、可向基层赋能的统一数智化底座，推动医疗AI建设从“单点部署、零散应用”向“统一规划、全域协同”转变。“AI驱动智慧医院建设新范式高峰论坛”当天在广州举行。该论坛由广
+发布时间：2026年05月18日 19:05 来源：中国新闻网 5月17日，记者在西藏自治区墨脱县达木珞巴民族乡卡布村偶遇一辆小型货车改造的“移动超市”，新鲜蔬菜、水果、卤菜、肉蛋等食材和日用品种类丰富。 位于西藏东南部的墨脱县于2013年建成联通外界的公路，是中国最后一个通公路的县城，被誉为“莲花秘境”。近年来，该县交通基础设施持续改善，通乡抵村甚至到户的公路网络基本建成，极
 
 ## 正文
 
-中新网广州4月10日电 (记者 蔡敏婕)医院通用人工智能平台(Hospital AI Platform，简称：HAIP)10日在广州发布，该平台通过统筹全院算力、数据、模型资源，将分散的AI能力整合为可共享、可进化、可向基层赋能的统一数智化底座，推动医疗AI建设从“单点部署、零散应用”向“统一规划、全域协同”转变。
+发布时间：2026年05月18日 19:05 来源：中国新闻网 5月17日，记者在西藏自治区墨脱县达木珞巴民族乡卡布村偶遇一辆小型货车改造的“移动超市”，新鲜蔬菜、水果、卤菜、肉蛋等食材和日用品种类丰富。
 
-“AI驱动智慧医院建设新范式高峰论坛”当天在广州举行。
+位于西藏东南部的墨脱县于2013年建成联通外界的公路，是中国最后一个通公路的县城，被誉为“莲花秘境”。
 
-该论坛由广东省卫生健康委员会、广州市卫生健康委员会指导支持，南方医科大学南方医院等共同举办，探讨AI技术在医疗行业规模化落地路径。
+近年来，该县交通基础设施持续改善，通乡抵村甚至到户的公路网络基本建成，极大促进了当地的交流与营商环境。
 
-“过去各个学科打造的都是各自独立的‘烟囱式’AI智能体，HAIP平台就像一条高速公路，建好底座后，不同学科的AI智能体可以高效运行、互通有无。
+卡布村是墨脱县珞巴族源乡，是一个既保留了典型珞巴文化又与时俱进的门珞藏汉壮多民族互嵌式村落。
 
-”南方医科大学南方医院院长孙剑表示，未来在平台上搭载不同专家、不同学科的AI智能体，根据临床场景形成智慧医院模式，“希望把智慧模式复制推广赋能基层，不仅赋能城市医联体，还能赋能城市各行各业，打造城市的HAIP平台”。
+自公路网络建成以来，来自重庆的“移动超市”老板周文政每周都会开着小型货车改造的“移动超市”进入村落。
 
-“数据无法流通、资源不能协同、AI难以融入全流程等是主要挑战。
+便利并丰富了当地少数民族民众日常生活的同时，也为自己带来丰厚收入。
 
-”针对当前医疗AI落地面临的瓶颈，华为副总裁李俊风指出，“该平台的核心就是建立统一数据底座，不打破医院现有流程，让人工智能赋能每个诊疗环节，实现全流程、全科室覆盖，让病人和医生享受普惠的AI服务。
+当地村民购物完成，只需要扫码车上的二维码即可完成移动支付。
 
-” 据介绍，HAIP平台打通全院统一的数据视图，打破科室壁垒与数据孤岛，构建AI训练的“数据粮仓”。
+周文政每次入村的销售额在三四百元人民币左右。
 
 ## 相关推荐
 
-- 2026-06-30 08:30 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-30 08:21 - [巴拉圭进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-30 08:45 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-30 08:38 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-30 08:42 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-30 08:40 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
-- 2026-06-30 08:31 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-30 08:42 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-30 08:41 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-30 08:36 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
-- 2026-06-30 08:19 - [马耳他著名拱门坍塌致中国男子身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-30 08:25 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-30 08:35 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-30 08:47 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-30 08:43 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-30 08:48 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-30 08:32 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-30 08:39 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-30 08:30 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-30 08:29 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-30 08:35 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-30 08:26 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-30 08:25 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-30 08:27 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:29 - [诺伊尔尽力了](http://www.blog.kurohicncr.top/Article/details/7212959.shtml)
-- 2026-06-30 08:35 - [德国vs巴拉圭](https://www.blog.kurohicncr.top/Article/details/853630.shtml)
-- 2026-06-30 08:42 - [我觉得你是在无中生友](https://www.share.kurohicncr.top/Article/details/180526.shtml)
-- 2026-06-30 08:36 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/568040054.shtml)
-- 2026-06-30 08:47 - [这种关系可能正在悄悄“催老”你](https://www.share.minike.top/Article/details/569094038806.shtml)
-- 2026-06-30 08:18 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/5808688.shtml)
-- 2026-06-30 08:20 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/2066460.shtml)
-- 2026-06-30 08:47 - [亚洲球队全部告别世界杯](https://www.share.kurohicncr.top/Article/details/3115372965.shtml)
-- 2026-06-30 08:33 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/0829983.shtml)
-- 2026-06-30 08:30 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/3512560.shtml)
-- 2026-06-30 08:19 - [电影抓特务上映11天破亿](https://www.share.minike.top/Article/details/05704601.shtml)
-- 2026-06-30 08:39 - [泰山建135公里刀片刺绳隔离网](http://www.share.minike.top/Article/details/24353159365.shtml)
-- 2026-06-30 08:18 - [泰山建135公里刀片刺绳隔离网](http://www.share.kurohicncr.top/Article/details/576658342288.shtml)
-- 2026-06-30 08:21 - [电影抓特务上映11天破亿](https://www.share.minike.top/Article/details/89684.shtml)
-- 2026-06-30 08:24 - [《男人至死是傻得儿》](http://www.share.kurohicncr.top/Article/details/81338.shtml)
+- 2026-06-30 08:33 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.kurohicncr.top/Article/details/035928112539.shtml)
+- 2026-06-30 08:26 - [巴西替补奇兵读秒绝杀](https://www.blog.kurohicncr.top/Article/details/3820278790.shtml)
+- 2026-06-30 08:47 - [有什么好的高中网课推荐吗？](http://www.blog.kurohicncr.top/Article/details/072492487780.shtml)
+- 2026-06-30 08:42 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/33670427.shtml)
+- 2026-06-30 08:50 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/6557299.shtml)
+- 2026-06-30 08:24 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/83573418.shtml)
+- 2026-06-30 08:31 - [感动全网的699分女生想报考清华](https://www.blog.minike.top/Article/details/42754326.shtml)
+- 2026-06-30 08:30 - [日本反击率先破门](http://www.share.minike.top/Article/details/37646765575.shtml)
+- 2026-06-30 08:24 - [孙兴慜发长文致歉](http://www.blog.minike.top/Article/details/70518962503.shtml)
+- 2026-06-30 08:27 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/98378.shtml)
+- 2026-06-30 08:37 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/69719405.shtml)
+- 2026-06-30 08:49 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/933142383346.shtml)
+- 2026-06-30 08:25 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/035004685.shtml)
+- 2026-06-30 08:51 - [城市规划有可能成为「屎山代码」吗？](https://www.share.minike.top/Article/details/992898306787.shtml)
+- 2026-06-30 08:32 - [泰山建135公里刀片刺绳隔离网](http://www.share.minike.top/Article/details/459768386013.shtml)

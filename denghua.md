@@ -1,57 +1,59 @@
-# 通胀与公用事业成本冲击民众生活 阿根廷信贷压力加剧
+# 自费流感疫苗也可医保报销了
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-37 岁的教师贡萨洛・马丁内斯希望有一天打开银行账户时，自己不再被债务缠身。 随着通胀攀升、政府补贴削减导致购买力持续缩水，阿根廷民众家庭财务濒临崩溃，越来越多人陷入银行贷款逾期困境，马丁内斯正是其中一员。 阿根廷央行数据显示，2026 年 1 月家庭贷款违约率升至10.6%，高于去年 12 月的 9.3%；而在哈维尔・米莱总统就职的 2023 年 12 月，这一比例仅为 2.
+“疫苗不报销”将成为过去式。近日，允许医保个账支付自费疫苗的全国性文件终于出炉，首个惠及的苗种是流感疫苗。 国家医保局办公室、财政部办公厅5月19日发布《关于进一步加强定点零售药店职工基本医疗保险个人账户使用监督管理的通知》，明确建立定点零售药店职工医保个人账户支付白名单制度。与此同时，此次文件首次以部委发文的形式明确“允许使用职工医保个人账户支付在定点医疗机构发生的流感疫苗费
 
 ## 正文
 
-37 岁的教师贡萨洛・马丁内斯希望有一天打开银行账户时，自己不再被债务缠身。
+“疫苗不报销”将成为过去式。
 
-随着通胀攀升、政府补贴削减导致购买力持续缩水，阿根廷民众家庭财务濒临崩溃，越来越多人陷入银行贷款逾期困境，马丁内斯正是其中一员。
+近日，允许医保个账支付自费疫苗的全国性文件终于出炉，首个惠及的苗种是流感疫苗。
 
-阿根廷央行数据显示，2026 年 1 月家庭贷款违约率升至10.6%，高于去年 12 月的 9.3%；而在哈维尔・米莱总统就职的 2023 年 12 月，这一比例仅为 2.8%。
+国家医保局办公室、财政部办公厅5月19日发布《关于进一步加强定点零售药店职工基本医疗保险个人账户使用监督管理的通知》，明确建立定点零售药店职工医保个人账户支付白名单制度。
 
-为抑制通胀，米莱推行了大幅 “大刀阔斧式” 的公共支出削减，实现了阿根廷十余年来首次预算盈余。
+与此同时，此次文件首次以部委发文的形式明确“允许使用职工医保个人账户支付在定点医疗机构发生的流感疫苗费用”。
 
-但这些紧缩措施引发了街头抗议，包括公立大学学生与退休人员在内的群体，纷纷反对教育经费与养老金缩水。
+此前，受制于上位法对医保待遇边界的约束和医疗保险的传统逻辑，成人疫苗长期由公共卫生领域的财政资金直接提供，基本医保和商业健康保险均不予承担。
 
-分析师向路透社表示，贷款违约率上升反映出实际收入下降，薪资涨幅跟不上通胀速度，同时政府大幅削减电力、燃气、交通等公共服务补贴。
+国家医保局曾在2020年发布的《基本医疗保险用药管理暂行办法》中提出，预防性疫苗不纳入医保支付范围。
 
-咨询机构 VDC 经济学家兼主管巴勃罗・贝斯梅德里斯内克称：“公共服务费率上涨持续挤压可支配收入，进而削弱了家庭的偿债能力。
+而前述由国家医保局和财政部共同作出的破冰之举，在不少受访业界人士看来早有预兆。
 
-” 居住在布宜诺斯艾利斯的马丁内斯表示，由于薪资未能跟上通胀，他已累积大量信用卡债务。
+他们的理由至少有三：首先，部分非免疫规划疫苗纳入医保个人账户的合理性证据已较为充分，疫苗接种作为成本效益显著的预防手段，其投入远低于相关疾病的治疗开支。
 
 ## 相关推荐
 
-- 2026-06-30 08:36 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
-- 2026-06-30 08:47 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
-- 2026-06-30 08:35 - [德国爆冷点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-30 08:37 - [王楚钦说配合稍微有些陌生感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-30 08:26 - [德国队世界杯点球大战首败](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-30 08:31 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-30 08:45 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
-- 2026-06-30 08:44 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
-- 2026-06-30 08:37 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
-- 2026-06-30 08:42 - [森保一致歉：世界第一目标没能实现](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-30 08:20 - [陈幸同晋级WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-30 08:29 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
+- 2026-06-30 08:28 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-30 08:33 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-30 08:46 - [张月收到黄灿灿辣货两眼发光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-30 08:34 - [IGN评测电影版后室](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-30 08:47 - [张月收到黄灿灿辣货两眼发光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-30 08:35 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
+- 2026-06-30 08:24 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-30 08:39 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-30 08:36 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
+- 2026-06-30 08:41 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-30 08:32 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-30 08:25 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:25 - [泰山景区回应修建刀片刺绳隔离网](http://www.share.minike.top/Article/details/63531.shtml)
-- 2026-06-30 08:46 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.minike.top/Article/details/264197692484.shtml)
-- 2026-06-30 08:33 - [内马尔中场休息积极鼓励队友](http://www.blog.kurohicncr.top/Article/details/00128778.shtml)
-- 2026-06-30 08:36 - [刘宇宁高情商化解谁站C位](http://www.blog.minike.top/Article/details/89439.shtml)
-- 2026-06-30 08:32 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.minike.top/Article/details/2046434185.shtml)
-- 2026-06-30 08:43 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/012946.shtml)
-- 2026-06-30 08:47 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/329530520141.shtml)
-- 2026-06-30 08:48 - [有什么好的高中网课推荐吗？](https://www.blog.kurohicncr.top/Article/details/811781587368.shtml)
-- 2026-06-30 08:21 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](http://www.share.minike.top/Article/details/543902126517.shtml)
-- 2026-06-30 08:34 - [庆祝中国共产党成立105周年大会将举行](http://www.share.minike.top/Article/details/3020423.shtml)
-- 2026-06-30 08:30 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.minike.top/Article/details/8051633366.shtml)
-- 2026-06-30 08:44 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/2974505.shtml)
-- 2026-06-30 08:37 - [《男人至死是傻得儿》](https://www.blog.kurohicncr.top/Article/details/24037951.shtml)
-- 2026-06-30 08:38 - [IGN评测电影版后室](http://www.share.minike.top/Article/details/485382661.shtml)
-- 2026-06-30 08:46 - [穆祉丞回应获年度人气艺人](https://www.blog.kurohicncr.top/Article/details/55784669.shtml)
+- 2026-06-30 08:46 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/512733.shtml)
+- 2026-06-30 08:25 - [网瘾賊大的阿嬷](http://www.share.kurohicncr.top/Article/details/9684670588.shtml)
+- 2026-06-30 08:52 - [日本 高位逼抢](https://www.blog.kurohicncr.top/Article/details/804516590.shtml)
+- 2026-06-30 08:42 - [急先锋](http://www.share.minike.top/Article/details/46268.shtml)
+- 2026-06-30 08:34 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/089465043965.shtml)
+- 2026-06-30 08:33 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.kurohicncr.top/Article/details/26750490447.shtml)
+- 2026-06-30 08:26 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/36650748.shtml)
+- 2026-06-30 08:50 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/56314050697.shtml)
+- 2026-06-30 08:43 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/9670954988.shtml)
+- 2026-06-30 08:50 - [佐野海舟远射破门](http://www.blog.kurohicncr.top/Article/details/9090321.shtml)
+- 2026-06-30 08:39 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/788373961.shtml)
+- 2026-06-30 08:31 - [藤森庆子赢得秘鲁总统选举](https://www.blog.kurohicncr.top/Article/details/61420566.shtml)
+- 2026-06-30 08:50 - [张雪的一句“是我们”引发岛内热议](https://www.blog.kurohicncr.top/Article/details/235021851.shtml)
+- 2026-06-30 08:53 - [日本16强魔咒](https://www.blog.minike.top/Article/details/190120.shtml)
+- 2026-06-30 08:37 - [库尼亚赛后伸五指嘲讽日本](https://www.blog.minike.top/Article/details/35209704938.shtml)

@@ -1,57 +1,59 @@
-# 江南降雨重心东移 华南高温炎热天气持续
+# 债券稳盘、股票加仓：一季度险资运用余额近40万亿，“长钱”话语权提升
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-中国天气网讯 今天(4月11日)，江南降雨重心东移，江西北部、浙江等地有暴雨或大暴雨，明后天南方降雨范围仍然较大，近期江南等地降雨频繁，需注意防范次生灾害的发生。在降雨波及不到的华南一带，高温炎热天气仍将持续，海南多地或达40℃，需注意防暑；北方气温多波动起伏，华北等地周末两天暖意融融，下周初将现降温，公众请适时调整着装。江南降雨重心东移 江西浙江等地部分地区有暴雨或大暴雨 昨
+蓝鲸新闻5月18日讯（记者 石雨）近日，金融监管总局披露了第一季度保险业经营情况表和保险公司资金运营情况数据。 一季度，保险业实现原保费收入23104亿元，同比增长6.2%，其中人身险、财产险分别实现原保费收入19289亿元、3815亿元；同期赔款与给付支出8893亿元，同比增长7.5%，其中人身险公司赔付支出6697亿元，同比增长8.9%。 截至2026年第一季度末，全行业总
 
 ## 正文
 
-中国天气网讯 今天(4月11日)，江南降雨重心东移，江西北部、浙江等地有暴雨或大暴雨，明后天南方降雨范围仍然较大，近期江南等地降雨频繁，需注意防范次生灾害的发生。
+蓝鲸新闻5月18日讯（记者 石雨）近日，金融监管总局披露了第一季度保险业经营情况表和保险公司资金运营情况数据。
 
-在降雨波及不到的华南一带，高温炎热天气仍将持续，海南多地或达40℃，需注意防暑；北方气温多波动起伏，华北等地周末两天暖意融融，下周初将现降温，公众请适时调整着装。
+一季度，保险业实现原保费收入23104亿元，同比增长6.2%，其中人身险、财产险分别实现原保费收入19289亿元、3815亿元；同期赔款与给付支出8893亿元，同比增长7.5%，其中人身险公司赔付支出6697亿元，同比增长8.9%。
 
-江南降雨重心东移 江西浙江等地部分地区有暴雨或大暴雨 昨天，江南多地出现较强降雨，并伴有强对流天气。
+截至2026年第一季度末，全行业总资产42.47万亿元，同比增长12.23%，较2025年末增长2.8%。
 
-监测显示，江西中部、湖南中北部、贵州东部等地部分地区出现大到暴雨，江西宜春和新余、湖南娄底和怀化、贵州铜仁等局地大暴雨；湖南南部、江西东部等局地出现8至10级雷暴大风，湖南株洲茶陵局地达13级。
+其中，财产险公司总资产33023亿元、人身险公司总资产373283亿元，再保险公司和保险资管公司总资产则分别为8591亿元和1524亿元。
 
-今天，江南降雨重心东移，江西北部、浙江等地部分地区将有强降雨，并伴强对流。
+同步于原保费的增长，保险资金运用规模稳健扩张。
 
-明后天，南方阴雨范围仍然较大，降雨强度总体减弱。
+今年第一季度，保险公司资金运用余额39.44万亿元，较2025年末的38.48万亿元增长2.5%，其中，人身险公司资金运用余额35.55万亿元，占行业的90%，财产险公司资金运用余额为2.47万亿元。
 
-同时，青藏高原等地部分地区雨雪频繁。
+从资金运用方向来看，债券仍是险资的“基本盘”，数据显示，2026年一季度险资配置债券占比50.5%，配置余额较2025年末增长2.7%。
 
-具体来看，中央气象台预计，今天，内蒙古东北部、黑龙江东部、西藏西北部、青海中南部和东部等地部分地区有小雪或雨夹雪，其中，青海中部和东部等地部分地区有中到大雪，局地暴雪；江汉东部、江南大部、重庆中部等地部分地区有中到大雨，其中，湖南南部、江西中北部、浙江中南部、福建西北部等地部分地区有暴雨或大暴雨。
+中泰证券在研报中指出，当前险资配置债券一方面系积极践行资产负债匹配的必要措施，拉长久期缩小利率风险敞口，另一方面或也是应对资产荒和信用出清的被动选择。
 
 ## 相关推荐
 
-- 2026-06-30 08:18 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-30 08:44 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
-- 2026-06-30 08:45 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-30 08:39 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
-- 2026-06-30 08:22 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-30 08:47 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-30 08:35 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-30 08:28 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-30 08:36 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-30 08:25 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-30 08:21 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
+- 2026-06-30 08:25 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-30 08:29 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-30 08:30 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-30 08:38 - [萨内 看笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-30 08:25 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-30 08:29 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-30 08:46 - [王楚钦说配合稍微有些陌生感](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-30 08:49 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-30 08:34 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
+- 2026-06-30 08:34 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-30 08:36 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
+- 2026-06-30 08:52 - [日本球员说被绝杀非常不甘心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-30 08:49 - [电影抓特务上映11天破亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:26 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/2804644.shtml)
-- 2026-06-30 08:28 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](http://www.blog.kurohicncr.top/Article/details/608303131042.shtml)
-- 2026-06-30 08:33 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/10449481.shtml)
-- 2026-06-30 08:42 - [德国巴拉圭 折磨](https://www.blog.kurohicncr.top/Article/details/02018606.shtml)
-- 2026-06-30 08:42 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/749493030345.shtml)
-- 2026-06-30 08:21 - [杨紫肖战余生请多指教拍立得](https://www.blog.minike.top/Article/details/26629854.shtml)
-- 2026-06-30 08:22 - [孙颖莎王楚钦晋级8强](https://www.share.minike.top/Article/details/39525446.shtml)
-- 2026-06-30 08:45 - [明星大侦探第一季](https://www.share.minike.top/Article/details/69256528107.shtml)
-- 2026-06-30 08:43 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/13148.shtml)
-- 2026-06-30 08:34 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/60771.shtml)
-- 2026-06-30 08:42 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/78896595.shtml)
-- 2026-06-30 08:45 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/728000.shtml)
-- 2026-06-30 08:22 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/7531353162.shtml)
-- 2026-06-30 08:39 - [孙兴慜道歉](http://www.share.minike.top/Article/details/12805011767.shtml)
-- 2026-06-30 08:33 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/9824841.shtml)
+- 2026-06-30 08:41 - [萨内 看笑了](http://www.blog.kurohicncr.top/Article/details/864429.shtml)
+- 2026-06-30 08:47 - [覃予萱晋级WTT美国大满贯女单32强](http://www.share.minike.top/Article/details/0358875.shtml)
+- 2026-06-30 08:32 - [巴拉圭进球](http://www.share.kurohicncr.top/Article/details/58924.shtml)
+- 2026-06-30 08:50 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/735469.shtml)
+- 2026-06-30 08:38 - [第3集丨“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/1603314.shtml)
+- 2026-06-30 08:26 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/92277.shtml)
+- 2026-06-30 08:30 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/4157822.shtml)
+- 2026-06-30 08:27 - [马耳他著名拱门坍塌致一中国男子身亡](https://www.share.kurohicncr.top/Article/details/55163562.shtml)
+- 2026-06-30 08:50 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/2526459.shtml)
+- 2026-06-30 08:51 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/46045.shtml)
+- 2026-06-30 08:27 - [曝老詹对自由市场态度与以往截然不同](http://www.blog.kurohicncr.top/Article/details/045414546.shtml)
+- 2026-06-30 08:25 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/3300814.shtml)
+- 2026-06-30 08:50 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/48019083.shtml)
+- 2026-06-30 08:32 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/86090279843.shtml)
+- 2026-06-30 08:38 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.kurohicncr.top/Article/details/39155617.shtml)

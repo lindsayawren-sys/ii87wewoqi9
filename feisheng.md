@@ -1,61 +1,58 @@
-# 中俄界江乌苏里江开渔
+# 美方发布特朗普访华事实清单 中方回应
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-中新社黑龙江双鸭山4月11日电 (记者 姜辉)“等了小半年，今天早点下网，就盼着能有个好收成。”11日一早，在江边整理渔网的渔民管福东说。随着气温不断升高，中俄界江乌苏里江于10日13时迎来2026年捕鱼季。 作为“三花五罗十八子”等名优鱼类主产区，乌苏里江每年12月进入封冻期。经过冰层下5个月的蛰伏，江鱼脂肪消耗殆尽，肉质变得紧实弹牙。顾客早已在江畔等候，询问价格、仔细挑选。
+中新网北京5月18日电 (记者 黄钰钦 曾玥)中国外交部发言人郭嘉昆18日主持例行记者会。 有记者提问：白宫发布了特朗普总统访华的事实清单，介绍此访的有关成果，请问中方对此有何评论？ 郭嘉昆：访问期间，两国元首同意将“中美建设性战略稳定关系”作为两国关系的新定位，就下阶段高层交往和外交、经贸、两军、执法等各领域对话合作作出规划，就共同关心的国际和地区热点问题深入交换意见。中方表
 
 ## 正文
 
-中新社黑龙江双鸭山4月11日电 (记者 姜辉)“等了小半年，今天早点下网，就盼着能有个好收成。
+中新网北京5月18日电 (记者 黄钰钦 曾玥)中国外交部发言人郭嘉昆18日主持例行记者会。
 
-”11日一早，在江边整理渔网的渔民管福东说。
+有记者提问：白宫发布了特朗普总统访华的事实清单，介绍此访的有关成果，请问中方对此有何评论？
 
-随着气温不断升高，中俄界江乌苏里江于10日13时迎来2026年捕鱼季。
+郭嘉昆：访问期间，两国元首同意将“中美建设性战略稳定关系”作为两国关系的新定位，就下阶段高层交往和外交、经贸、两军、执法等各领域对话合作作出规划，就共同关心的国际和地区热点问题深入交换意见。
 
-作为“三花五罗十八子”等名优鱼类主产区，乌苏里江每年12月进入封冻期。
+中方表明了在伊朗、朝鲜半岛核等问题上的一贯立场，要求美方正视有关各方的合理关切，坚持通过对话谈判和平解决问题。
 
-经过冰层下5个月的蛰伏，江鱼脂肪消耗殆尽，肉质变得紧实弹牙。
+双方经贸团队本着平等、尊重、互惠的态度进行磋商，就稳定中美经贸关系、妥善解决各自关切，达成了总体平衡、积极的成果。
 
-顾客早已在江畔等候，询问价格、仔细挑选。
+中方愿同美方一道，全面、准确落实好两国元首达成的重要共识，加强对话，拓展合作，妥善处理分歧和敏感问题，不断丰富“中美建设性战略稳定关系”的内涵，推动中美关系稳定、健康、可持续发展。
 
-“每年我们都来吃鱼，今年运气不错，刚开江就吃到了鲤鱼和鳌花。
-
-”山东游客刘奇峰说。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 08:27 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
-- 2026-06-30 08:45 - [巴西足球能否再现昔日荣光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-30 08:36 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-30 08:18 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-30 08:19 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-30 08:36 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-30 08:33 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
-- 2026-06-30 08:45 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
-- 2026-06-30 08:28 - [日本球员说被绝杀非常不甘心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-30 08:23 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-30 08:28 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
-- 2026-06-30 08:28 - [电影抓特务上映11天破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-30 08:43 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-30 08:38 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
-- 2026-06-30 08:37 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-30 08:53 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-30 08:29 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-30 08:30 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
+- 2026-06-30 08:44 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-30 08:36 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-30 08:34 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-30 08:32 - [日本五次世界杯淘汰赛全败](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-30 08:39 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-30 08:25 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-30 08:46 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-30 08:29 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-30 08:33 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-30 08:48 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-30 08:41 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:35 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/4722123.shtml)
-- 2026-06-30 08:43 - [日本队主帅道歉](https://www.share.minike.top/Article/details/4734813595.shtml)
-- 2026-06-30 08:24 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/563826.shtml)
-- 2026-06-30 08:26 - [谢依霖说杨幂是聚会第一把张罗手](http://www.share.kurohicncr.top/Article/details/221359662.shtml)
-- 2026-06-30 08:42 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/345779489244.shtml)
-- 2026-06-30 08:23 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.kurohicncr.top/Article/details/8411662779.shtml)
-- 2026-06-30 08:43 - [男子中医院拔火罐致浅2度烧伤](https://www.share.kurohicncr.top/Article/details/268048430736.shtml)
-- 2026-06-30 08:33 - [男子身高一米八二仍做断骨增高](https://www.share.kurohicncr.top/Article/details/42608451.shtml)
-- 2026-06-30 08:24 - [德国队世界杯点球大战首败](http://www.blog.kurohicncr.top/Article/details/598579.shtml)
-- 2026-06-30 08:41 - [巴西在进攻三区完成210脚传球](https://www.blog.kurohicncr.top/Article/details/91349.shtml)
-- 2026-06-30 08:47 - [AI手机进入Agent时代](http://www.share.kurohicncr.top/Article/details/961593.shtml)
-- 2026-06-30 08:29 - [杨紫肖战余生请多指教拍立得](https://www.share.minike.top/Article/details/8725815207.shtml)
-- 2026-06-30 08:43 - [森保一致歉：世界第一目标没能实现](https://www.blog.kurohicncr.top/Article/details/5775002054.shtml)
-- 2026-06-30 08:39 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.share.minike.top/Article/details/36761.shtml)
-- 2026-06-30 08:37 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/0608305206.shtml)
+- 2026-06-30 08:32 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/505153264818.shtml)
+- 2026-06-30 08:37 - [斛珠夫人](https://www.share.minike.top/Article/details/014825035197.shtml)
+- 2026-06-30 08:37 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/6408347.shtml)
+- 2026-06-30 08:50 - [徐亮怒斥世界杯踢假球](https://www.share.kurohicncr.top/Article/details/84023332669.shtml)
+- 2026-06-30 08:33 - [德国 传控](http://www.blog.kurohicncr.top/Article/details/608962.shtml)
+- 2026-06-30 08:28 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.kurohicncr.top/Article/details/4397691.shtml)
+- 2026-06-30 08:25 - [韩国世界杯出局是主帅一个人的锅吗](http://www.share.minike.top/Article/details/89065.shtml)
+- 2026-06-30 08:32 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.blog.kurohicncr.top/Article/details/4734330957.shtml)
+- 2026-06-30 08:52 - [《共患难》](https://www.share.minike.top/Article/details/62539869244.shtml)
+- 2026-06-30 08:37 - [上市央企地产商 两年换了三任董事长](http://www.blog.kurohicncr.top/Article/details/3916967.shtml)
+- 2026-06-30 08:51 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/9870032605.shtml)
+- 2026-06-30 08:49 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](http://www.share.kurohicncr.top/Article/details/81745397814.shtml)
+- 2026-06-30 08:50 - [花少8要去世界杯举办国](http://www.blog.minike.top/Article/details/2789830941.shtml)
+- 2026-06-30 08:48 - [周冬雨多次说演不了话剧文城](http://www.blog.kurohicncr.top/Article/details/399462138.shtml)
+- 2026-06-30 08:51 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/48823.shtml)

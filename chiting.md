@@ -1,60 +1,61 @@
-# 华为董事侯金龙：加快超充网络建设是推动重卡电动化可持续发展的关键
+# 惩戒与修复并重 央行就“严重失信主体名单”管理公开征求意见
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。华为董事、华为数字能源总裁侯金龙出席并演讲。 侯金龙指出，面向汽车电动化产业，华为数字能源定位为运动与及重点网络解决方案的提供商。在智能电动领域，致力于帮助车企造好车，为用户带来极致的驾乘体验
+中国人民银行日前发布《中国人民银行管理领域严重失信主体名单管理办法(征求意见稿)》，严格规定了严重失信主体名单列入条件，加强对失信行为的约束和惩戒。 征求意见稿提出，中国人民银行管理的票据、支付、人民币流通、征信等领域中，机构及个人发生法律法规中明令禁止、严重破坏金融市场秩序、侵害人民群众合法权益的行为，且情节特别严重、影响特别恶劣的，要列入严重失信主体名单。 根据征求意见稿，
 
 ## 正文
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
+中国人民银行日前发布《中国人民银行管理领域严重失信主体名单管理办法(征求意见稿)》，严格规定了严重失信主体名单列入条件，加强对失信行为的约束和惩戒。
 
-华为董事、华为数字能源总裁侯金龙出席并演讲。
+征求意见稿提出，中国人民银行管理的票据、支付、人民币流通、征信等领域中，机构及个人发生法律法规中明令禁止、严重破坏金融市场秩序、侵害人民群众合法权益的行为，且情节特别严重、影响特别恶劣的，要列入严重失信主体名单。
 
-侯金龙指出，面向汽车电动化产业，华为数字能源定位为运动与及重点网络解决方案的提供商。
+根据征求意见稿，对于列入严重失信主体名单的机构或个人可以采取纳入重点管理对象、提高执法检查频次，向有关部门共享相关信息、公示名单信息，作为审查行政许可、资质、资格、委托承担政府采购项目、工程招投标时重要考量因素等管理措施。
 
-在智能电动领域，致力于帮助车企造好车，为用户带来极致的驾乘体验。
+此外，征求意见稿鼓励严重失信主体主动纠正失信行为、进行信用修复。
 
-在智能充电领域，致力于为运营商提供高质量的充电解决方案，为用户带来更优质的体验。
+根据规定，严重失信主体名单管理期限为3年，管理期满后移出。
 
-电动重卡走向开放场景，侯金龙认为，打造点线面的超充网络覆盖是关键，加快以兆瓦超充为主的超充网络是推动重卡电动化可持续发展的关键。
+被列入严重失信主体名单满12个月后，失信主体已经履行行政处罚决定或司法判决中规定的义务、危害后果和不良影响外溢性得到有效防控、未再发生严重失信行为的，可以申请移出严重失信主体名单。
 
-他提出三点建议： 第一，强化产业链的生态协同，包括车装网、运营商联合开展技术创新和商业协同，来供应发展的机遇。
+中国人民银行相关人士表示，将依法依规加强对金融领域严重失信行为的约束与惩戒，鼓励严重失信主体积极纠正失信行为，促进营造金融领域“守信激励、失信惩戒”的信用环境，进一步完善金融领域社会信用体系建设。
 
-他认为，电动重卡物流的电动化转型是个非常大的发展机遇。
+(央视新闻客户端 总台央视记者 孙艳)
 
 ## 相关推荐
 
-- 2026-06-30 08:48 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-30 08:42 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-30 08:32 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-30 08:45 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
-- 2026-06-30 08:29 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-30 08:45 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-30 08:30 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-30 08:47 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-30 08:33 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-30 08:38 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
-- 2026-06-30 08:19 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
-- 2026-06-30 08:25 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
-- 2026-06-30 08:19 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-30 08:24 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-30 08:45 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-30 08:41 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-30 08:33 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-30 08:43 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-30 08:33 - [巴西足球能否再现昔日荣光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-30 08:33 - [诺伊尔尽力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-30 08:45 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-30 08:24 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
+- 2026-06-30 08:40 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-30 08:47 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
+- 2026-06-30 08:37 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-30 08:32 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-30 08:28 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-30 08:29 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-30 08:43 - [《名肘探科比》：科比大战裂口女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:20 - [王欣瑜2-1击败科恰雷托](http://www.blog.kurohicncr.top/Article/details/476438684.shtml)
-- 2026-06-30 08:26 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/5199760894.shtml)
-- 2026-06-30 08:41 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/04813697.shtml)
-- 2026-06-30 08:33 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/209216218203.shtml)
-- 2026-06-30 08:46 - [郑钦文温网一轮游](http://www.blog.kurohicncr.top/Article/details/46149857772.shtml)
-- 2026-06-30 08:30 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/21005.shtml)
-- 2026-06-30 08:29 - [刘宇宁是去进货了吗](http://www.blog.kurohicncr.top/Article/details/434565.shtml)
-- 2026-06-30 08:41 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/11749.shtml)
-- 2026-06-30 08:25 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.kurohicncr.top/Article/details/44204.shtml)
-- 2026-06-30 08:31 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/33238.shtml)
-- 2026-06-30 08:43 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/8848891885.shtml)
-- 2026-06-30 08:27 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.minike.top/Article/details/62524.shtml)
-- 2026-06-30 08:27 - [德国爆冷点球大战不敌巴拉圭](http://www.share.minike.top/Article/details/8499692.shtml)
-- 2026-06-30 08:27 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/332817890.shtml)
-- 2026-06-30 08:21 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.minike.top/Article/details/763203.shtml)
+- 2026-06-30 08:48 - [女子遭下药退赔偿拟追刑责](https://www.share.kurohicncr.top/Article/details/3037785434.shtml)
+- 2026-06-30 08:33 - [城市规划有可能成为「屎山代码」吗？](http://www.share.minike.top/Article/details/21183154.shtml)
+- 2026-06-30 08:49 - [德国爆冷点球大战不敌巴拉圭](https://www.blog.minike.top/Article/details/97583797.shtml)
+- 2026-06-30 08:28 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://www.blog.minike.top/Article/details/437050910.shtml)
+- 2026-06-30 08:25 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/015324285.shtml)
+- 2026-06-30 08:28 - [张帅时隔四年晋级温网第二轮](http://www.share.minike.top/Article/details/95610.shtml)
+- 2026-06-30 08:30 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/78048140947.shtml)
+- 2026-06-30 08:36 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/44951154031.shtml)
+- 2026-06-30 08:44 - [王欣瑜晋级温网女单次轮](http://www.blog.minike.top/Article/details/14251515581.shtml)
+- 2026-06-30 08:50 - [上市央企地产商 两年换了三任董事长](http://www.share.minike.top/Article/details/12232128061.shtml)
+- 2026-06-30 08:46 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/2375954.shtml)
+- 2026-06-30 08:53 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/7385684.shtml)
+- 2026-06-30 08:47 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/177179442018.shtml)
+- 2026-06-30 08:37 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/06758546.shtml)
+- 2026-06-30 08:50 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/793864.shtml)

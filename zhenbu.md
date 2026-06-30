@@ -1,47 +1,54 @@
-# 香格里拉海关2026年4月至12月政府采购意向公开
+# 大理“加电”到珠峰 滇藏公路变身新能源“绿色天路”
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-为便于供应商及时了解政府采购信息，根据《财政部关于开展政府采购意向公开工作的通知》(财库〔2020〕10号)等有关规定，现将香格里拉海关2026年4至12 月采购意向公开如下： 本次公开的采购意向是本单位政府采购工作的初步安排，具体采购项目情况以相关采购公告和采购文件为准。 香格里拉海关 2026年4月8日
+发布时间：2026年05月18日 15:15 来源：中国新闻网 今年是滇藏公路建成通车50周年。这条“天路”全长700多公里、起于云南大理、在西藏芒康与川藏公路相接。修建滇藏公路时，曾因高寒缺氧、地势险要，先后有300余名建设者捐躯于雪域高原。50年后的今天，当记者沿滇藏公路一路北上，发现这条用生命修筑的公路，正被另一种“能量”悄然点亮——强大而密集的新能源基建，已让新能源汽车
 
 ## 正文
 
-为便于供应商及时了解政府采购信息，根据《财政部关于开展政府采购意向公开工作的通知》(财库〔2020〕10号)等有关规定，现将香格里拉海关2026年4至12 月采购意向公开如下： 本次公开的采购意向是本单位政府采购工作的初步安排，具体采购项目情况以相关采购公告和采购文件为准。
+发布时间：2026年05月18日 15:15 来源：中国新闻网 今年是滇藏公路建成通车50周年。
 
-香格里拉海关 2026年4月8日
+这条“天路”全长700多公里、起于云南大理、在西藏芒康与川藏公路相接。
+
+修建滇藏公路时，曾因高寒缺氧、地势险要，先后有300余名建设者捐躯于雪域高原。
+
+50年后的今天，当记者沿滇藏公路一路北上，发现这条用生命修筑的公路，正被另一种“能量”悄然点亮——强大而密集的新能源基建，已让新能源汽车在这条高原天路上畅行无忧。
+
+从玉龙雪山脚下到梅里雪山之巅，从苍山洱海畔到珠峰大本营前，如今的新能源车主完全可以像燃油车一样，轻松规划一趟“零排放”的进藏之旅。
+
+50年前，筑路先辈们用生命凿开了一条进入雪域高原的道路；50年后，新一代建设者们用清洁能源赋予这条天路全新的生命力。
+
+记者 杜潇潇 刘冉阳 缪超 云南迪庆报道 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-30 08:24 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-30 08:19 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
-- 2026-06-30 08:44 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-30 08:46 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-30 08:41 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-30 08:46 - [曝iPhone18Pro机密文件现身暗网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
-- 2026-06-30 08:32 - [点球大战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
-- 2026-06-30 08:37 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
-- 2026-06-30 08:33 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-30 08:35 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-30 08:22 - [《名肘探科比》：科比大战裂口女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-30 08:42 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
-- 2026-06-30 08:21 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-30 08:48 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-30 08:28 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-30 08:27 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
+- 2026-06-30 08:28 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-30 08:43 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
+- 2026-06-30 08:36 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-30 08:37 - [曝老詹对自由市场态度与以往截然不同](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-30 08:33 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-30 08:52 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-30 08:48 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:36 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/8681537.shtml)
-- 2026-06-30 08:44 - [德国进球被吹](https://www.blog.minike.top/Article/details/5379189.shtml)
-- 2026-06-30 08:32 - [巴拉圭点球大战淘汰德国进16强](http://www.blog.kurohicncr.top/Article/details/113047679477.shtml)
-- 2026-06-30 08:29 - [大蒜晒外面被路过女子连盆端走](https://www.blog.minike.top/Article/details/20274.shtml)
-- 2026-06-30 08:42 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/3896254.shtml)
-- 2026-06-30 08:27 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/239549.shtml)
-- 2026-06-30 08:26 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.share.kurohicncr.top/Article/details/68178.shtml)
-- 2026-06-30 08:35 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.kurohicncr.top/Article/details/08349308.shtml)
-- 2026-06-30 08:28 - [全新问界M9现身美国街头](https://www.blog.kurohicncr.top/Article/details/5175832664.shtml)
-- 2026-06-30 08:34 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.minike.top/Article/details/296553.shtml)
-- 2026-06-30 08:43 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/119799828319.shtml)
-- 2026-06-30 08:34 - [杨紫学位证上就是杨紫](http://www.blog.minike.top/Article/details/403205221271.shtml)
-- 2026-06-30 08:35 - [男子醉酒溺水获救后同行人拒协助抬人](https://www.share.minike.top/Article/details/18829546.shtml)
-- 2026-06-30 08:44 - [斗破苍穹](https://www.blog.minike.top/Article/details/950098782.shtml)
-- 2026-06-30 08:21 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.kurohicncr.top/Article/details/448774863.shtml)
+- 2026-06-30 08:37 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/0743372724.shtml)
+- 2026-06-30 08:35 - [自然光｜papi酱&窦文涛：驴与跑步机](https://www.blog.kurohicncr.top/Article/details/6949458.shtml)
+- 2026-06-30 08:36 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/77771335563.shtml)
+- 2026-06-30 08:32 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/0121341.shtml)
+- 2026-06-30 08:50 - [德国巴拉圭进入点球大战](http://www.blog.kurohicncr.top/Article/details/2371860860.shtml)
+- 2026-06-30 08:45 - [千与千寻](http://www.share.kurohicncr.top/Article/details/0830563077.shtml)
+- 2026-06-30 08:34 - [刘宇宁是去进货了吗](http://www.blog.kurohicncr.top/Article/details/052474854280.shtml)
+- 2026-06-30 08:29 - [武磊：巴西队赢的并不轻松](https://www.share.minike.top/Article/details/521215973.shtml)
+- 2026-06-30 08:43 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/79028971640.shtml)
+- 2026-06-30 08:50 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/75424698.shtml)
+- 2026-06-30 08:52 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/954346233.shtml)
+- 2026-06-30 08:54 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.kurohicncr.top/Article/details/978967.shtml)
+- 2026-06-30 08:24 - [三星投资计划](https://www.blog.kurohicncr.top/Article/details/50007270640.shtml)
+- 2026-06-30 08:51 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/462687.shtml)
+- 2026-06-30 08:35 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/1067221732.shtml)

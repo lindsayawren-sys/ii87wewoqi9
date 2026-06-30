@@ -1,56 +1,44 @@
-# （近观中国）国共领导人十年再会面，习近平定调“守护好、建设好共同家园”
+# 05月18日锌24586.00元/吨 20天上涨3.44%
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-中新社北京4月10日电 题：国共领导人十年再会面，习近平定调“守护好、建设好共同家园” 中新社记者 杨程晨 黄钰钦 “中国是中华民族的共同家园。” 中共中央总书记习近平10日在北京会见中国国民党主席郑丽文率领的访问团时强调，两岸同胞要守护好、建设好这个共同家园。 这是台海形势复杂严峻背景下，国共领导人时隔10年再次会面。观察人士指出，习近平重要讲话，昭示大陆方面推动两岸关系和平
+据生意社监测，锌05月18日最新价格24586.00元/吨，最近20天上涨3.44%，60天上涨7.66%。相关生产商有：中金岭南(000060)兴业银锡(000426)盛达资源(000603)国城矿业（维权）(000688)锌业股份(000751)中色股份(000758)智慧农业(000816)锡业股份(000960)罗平锌电(002114)恒邦股份(002237)湖南白银(
 
 ## 正文
 
-中新社北京4月10日电 题：国共领导人十年再会面，习近平定调“守护好、建设好共同家园” 中新社记者 杨程晨 黄钰钦 “中国是中华民族的共同家园。
+据生意社监测，锌05月18日最新价格24586.00元/吨，最近20天上涨3.44%，60天上涨7.66%。
 
-” 中共中央总书记习近平10日在北京会见中国国民党主席郑丽文率领的访问团时强调，两岸同胞要守护好、建设好这个共同家园。
-
-这是台海形势复杂严峻背景下，国共领导人时隔10年再次会面。
-
-观察人士指出，习近平重要讲话，昭示大陆方面推动两岸关系和平发展、融合发展的坚定决心与最大诚意，宣示“两岸同胞走亲走近、走到一起的大潮流不会改变”。
-
-从共同家园看初心，“九二共识”是台海和平稳定锚。
-
-2016年，习近平会见来访的时任国民党主席洪秀柱时指出，两岸是割舍不断的命运共同体。
-
-时隔10年，习近平在此次讲话中提到，两岸同胞“是休戚与共的命运共同体”；大陆和台湾同属一个中国，中国是中华民族的共同家园。
-
-众所周知，要守护好、建设好共同家园，其根本在于坚持“九二共识”、反对“台独”，其核心是认同两岸同属一个中国。
+相关生产商有：中金岭南(000060)兴业银锡(000426)盛达资源(000603)国城矿业（维权）(000688)锌业股份(000751)中色股份(000758)智慧农业(000816)锡业股份(000960)罗平锌电(002114)恒邦股份(002237)湖南白银(002716)飞南资源(301500)华锡有色(600301)宏达股份(600331)西藏珠峰(600338)驰宏锌锗(600497)豫光金铅(600531)盛屯矿业（维权）(600711)株冶集团(600961)华钰矿业(601020)西部矿业(601168)白银有色（维权）(601212)紫金矿业(601899)金钼股份(601958)金徽股份(603132)等。
 
 ## 相关推荐
 
-- 2026-06-30 08:35 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-30 08:37 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
-- 2026-06-30 08:40 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-30 08:29 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
-- 2026-06-30 08:27 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-30 08:22 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-30 08:24 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-30 08:47 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-30 08:32 - [日本队主帅道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
-- 2026-06-30 08:44 - [三星投资计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-30 08:42 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-30 08:28 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
+- 2026-06-30 08:37 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-30 08:43 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
+- 2026-06-30 08:51 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-30 08:31 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-30 08:38 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-30 08:26 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-30 08:26 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-30 08:50 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:27 - [中国新一轮出口管制直指日本命脉](http://www.share.kurohicncr.top/Article/details/65527334348.shtml)
-- 2026-06-30 08:24 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/671954200842.shtml)
-- 2026-06-30 08:29 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/08930418.shtml)
-- 2026-06-30 08:40 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/97800.shtml)
-- 2026-06-30 08:27 - [泰山景区回应修建刀片刺绳隔离网](http://www.share.kurohicncr.top/Article/details/3452572.shtml)
-- 2026-06-30 08:23 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://www.blog.minike.top/Article/details/45066.shtml)
-- 2026-06-30 08:34 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.minike.top/Article/details/26596981171.shtml)
-- 2026-06-30 08:20 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/6115827141.shtml)
-- 2026-06-30 08:44 - [男子身高一米八二仍做断骨增高](http://www.share.kurohicncr.top/Article/details/825265146.shtml)
-- 2026-06-30 08:26 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/182796768.shtml)
-- 2026-06-30 08:41 - [日本进球](https://www.share.minike.top/Article/details/60443.shtml)
-- 2026-06-30 08:34 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.kurohicncr.top/Article/details/194013613.shtml)
-- 2026-06-30 08:28 - [有什么好的高中网课推荐吗？](http://www.blog.kurohicncr.top/Article/details/056780872982.shtml)
-- 2026-06-30 08:19 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/751114.shtml)
-- 2026-06-30 08:26 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/19246751191.shtml)
+- 2026-06-30 08:47 - [巴拉圭点球大战淘汰德国进16强](http://www.blog.minike.top/Article/details/28027.shtml)
+- 2026-06-30 08:35 - [第一炉香](https://www.blog.minike.top/Article/details/339033.shtml)
+- 2026-06-30 08:53 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/206111470.shtml)
+- 2026-06-30 08:36 - [巴西2-1绝杀日本](https://www.share.kurohicncr.top/Article/details/2638962.shtml)
+- 2026-06-30 08:34 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/7254118.shtml)
+- 2026-06-30 08:31 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/985117416.shtml)
+- 2026-06-30 08:37 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/785425649677.shtml)
+- 2026-06-30 08:25 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/24361.shtml)
+- 2026-06-30 08:31 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/97491988281.shtml)
+- 2026-06-30 08:46 - [德国巴拉圭进入点球大战](https://www.blog.kurohicncr.top/Article/details/66154.shtml)
+- 2026-06-30 08:28 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/283218339874.shtml)
+- 2026-06-30 08:34 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/712221.shtml)
+- 2026-06-30 08:47 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/917337.shtml)
+- 2026-06-30 08:37 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/94692067.shtml)
+- 2026-06-30 08:50 - [泰山建135公里刀片刺绳隔离网](http://www.share.minike.top/Article/details/15604347787.shtml)

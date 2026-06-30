@@ -1,59 +1,60 @@
-# 开局起步“十五五”：海南“外联内畅”促“人享其行、物畅其流”
+# 西联汇款任命Pedro Alegría为墨西哥及中美洲副总裁兼总经理
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-中新网海口4月10日电 (记者 王子谦)海南省发展和改革委员会主任綦树利10日在海口表示，“十五五”期间海南将以“人享其行、物畅其流”为愿景，打造“外联内畅”的基础设施体系，助力构建国内国际双循环战略交汇点。 “开局起步‘十五五’——高标准建设海南自由贸易港”专场新闻发布会10日在海口举行。在会上，如何强化基础设施供给能力和稳定性，构建对内对外互联互通新格局备受关注。 《海南省
+关键人事任命 西联汇款宣布任命Pedro Alegría为墨西哥及中美洲地区副总裁兼总经理。Alegría将全面负责该地区的业务战略与运营，重点推动数字创新、可持续增长及以客户为中心的价值主张。 新任高管背景 Alegría在金融服务、数字支付及创新领域拥有超过20年的从业经验，曾在墨西哥和美国两地担任领导职务。他的职业生涯包括在美国运通、Banco Azteca及Banco
 
 ## 正文
 
-中新网海口4月10日电 (记者 王子谦)海南省发展和改革委员会主任綦树利10日在海口表示，“十五五”期间海南将以“人享其行、物畅其流”为愿景，打造“外联内畅”的基础设施体系，助力构建国内国际双循环战略交汇点。
+关键人事任命 西联汇款宣布任命Pedro Alegría为墨西哥及中美洲地区副总裁兼总经理。
 
-“开局起步‘十五五’——高标准建设海南自由贸易港”专场新闻发布会10日在海口举行。
+Alegría将全面负责该地区的业务战略与运营，重点推动数字创新、可持续增长及以客户为中心的价值主张。
 
-在会上，如何强化基础设施供给能力和稳定性，构建对内对外互联互通新格局备受关注。
+新任高管背景 Alegría在金融服务、数字支付及创新领域拥有超过20年的从业经验，曾在墨西哥和美国两地担任领导职务。
 
-《海南省国民经济和社会发展第十五个五年规划纲要》明确提出，海南将强化基础设施供给能力和稳定性，以集成融合为导向，着眼补短板、强弱项，提升安全韧性和运营可持续性，构建适度超前的自由贸易港对内对外互联互通新格局。
+他的职业生涯包括在美国运通、Banco Azteca及Banco Dondé等机构任职，此前担任Broxel USA总经理，领导开发了支付解决方案、汇款、电子钱包、账户、银行卡及跨境平台等数字金融产品。
 
-綦树利在会上表示，“十五五”海南基础设施提质升级主要体现在三个方面： 第一，是交通网络更通达。
+他拥有蒙特雷科技大学工商管理学士学位及商业发展创新硕士学位，并取得墨西哥国立自治大学金融科技文凭。
 
-在对外联通方面，加快推进三亚新机场、儋州机场、东方机场建设，完善海南自贸港特色运输机场群；进一步完善以洋浦国际枢纽港为龙头、以海口港为重点的港口体系建设；打造琼州海峡“黄金水道”，加快建设湛海高铁，大幅缩短旅客过海时间。
+战略背景 此次任命正值西联汇款大力推进其“Beyond”战略之际——从全球汇款提供商向综合性金融服务平台转型，将数字解决方案与广泛的实体网络深度融合。
 
-在对内畅行方面，推动环岛高铁公交化运营，实施环岛高速、国省干道、旅游公路等扩容提升工程，基本形成“123交通出行圈”，实现三大经济圈1小时通勤、主要城市2小时互通、全岛3小时畅行。
+公司近年来在数字资产领域积极探索，计划推出稳定币USDP，并正在推进以约5亿美元收购同行Intermex的交易，以巩固在美墨等重点汇款走廊的市场地位。
 
-第二，是能源体系更坚韧。
+管理层表态 Alegría表示，他将致力于通过数字化演进、全渠道扩展以及新产品和服务的开发，持续提升客户体验，满足人们多元化的金融需求。
 
 ## 相关推荐
 
-- 2026-06-30 08:44 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
-- 2026-06-30 08:34 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-30 08:44 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
-- 2026-06-30 08:18 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-30 08:41 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-30 08:45 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-30 08:47 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-30 08:29 - [森保一 保守](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
-- 2026-06-30 08:23 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-30 08:44 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
-- 2026-06-30 08:44 - [二次元提前预演明日巴西对日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
-- 2026-06-30 08:22 - [德国队世界杯点球大战首败](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-30 08:46 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-30 08:29 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-30 08:44 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-30 08:48 - [德国4比5巴拉圭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-30 08:43 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-30 08:26 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
+- 2026-06-30 08:29 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-30 08:41 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-30 08:53 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-30 08:46 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
+- 2026-06-30 08:36 - [德国巴拉圭进入点球大战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-30 08:49 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-30 08:27 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-30 08:43 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
+- 2026-06-30 08:35 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:23 - [诺伊尔尽力了](https://www.blog.kurohicncr.top/Article/details/93081280899.shtml)
-- 2026-06-30 08:23 - [速度与激情9](https://www.share.minike.top/Article/details/59573510055.shtml)
-- 2026-06-30 08:37 - [郑钦文温网一轮游](https://www.blog.kurohicncr.top/Article/details/03451069.shtml)
-- 2026-06-30 08:25 - [苗族银饰](http://www.blog.kurohicncr.top/Article/details/9918940434.shtml)
-- 2026-06-30 08:29 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://www.share.minike.top/Article/details/055863819903.shtml)
-- 2026-06-30 08:32 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/182844181.shtml)
-- 2026-06-30 08:19 - [萨内 看笑了](http://www.blog.kurohicncr.top/Article/details/3745799814.shtml)
-- 2026-06-30 08:42 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/581552382363.shtml)
-- 2026-06-30 08:28 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/02528171744.shtml)
-- 2026-06-30 08:39 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/8711488.shtml)
-- 2026-06-30 08:31 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/448254203.shtml)
-- 2026-06-30 08:26 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/85806.shtml)
-- 2026-06-30 08:31 - [点球大战](https://www.share.minike.top/Article/details/71621.shtml)
-- 2026-06-30 08:27 - [孙兴慜发长文致歉](https://www.blog.kurohicncr.top/Article/details/97061.shtml)
-- 2026-06-30 08:45 - [网友写差评被店家“挂”门口避雷](https://www.blog.minike.top/Article/details/405115737142.shtml)
+- 2026-06-30 08:35 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/29171193780.shtml)
+- 2026-06-30 08:30 - [亚洲球队全部告别世界杯](http://www.blog.kurohicncr.top/Article/details/4253603985.shtml)
+- 2026-06-30 08:41 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/58022767.shtml)
+- 2026-06-30 08:30 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/46186.shtml)
+- 2026-06-30 08:35 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/6628049264.shtml)
+- 2026-06-30 08:49 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/8161103.shtml)
+- 2026-06-30 08:49 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/350915457358.shtml)
+- 2026-06-30 08:32 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/658562432307.shtml)
+- 2026-06-30 08:35 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/73002237474.shtml)
+- 2026-06-30 08:26 - [4000美元是黄金新一轮下跌的开始吗](https://www.share.kurohicncr.top/Article/details/0854334664.shtml)
+- 2026-06-30 08:28 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/820377.shtml)
+- 2026-06-30 08:24 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.kurohicncr.top/Article/details/2876283.shtml)
+- 2026-06-30 08:43 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.kurohicncr.top/Article/details/0362270839.shtml)
+- 2026-06-30 08:36 - [如果有二次元高中是什么样子的？](http://www.blog.minike.top/Article/details/06181428333.shtml)
+- 2026-06-30 08:45 - [这种关系可能正在悄悄“催老”你](https://www.blog.kurohicncr.top/Article/details/647920124.shtml)

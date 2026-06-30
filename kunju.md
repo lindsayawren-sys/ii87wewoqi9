@@ -1,58 +1,58 @@
-# 数聚智连港股IPO：业务本质仍是经销商 毛利率垫底、存货逐年攀升 控股股东认定与前次发行不一致
+# 北京推出22项举措优化人才服务与劳动者权益保障
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-出品：新浪财经上市公司研究院 作者：渚 3月31日，数聚智连向联交所主板提交上市申请，这是其继2024年折戟创业板后的第二次IPO尝试，华兴资本为独家保荐人。 2024年，受国内电商存量市场内卷加剧的直接冲击，数聚智连业绩出现断崖式下跌，营收同比下滑13.5%，净利润暴跌88.6%，毛利率跌破20%，经营现金流收缩至0.59亿元。2025年，尽管业绩有所反弹，但盈利水平仍未回到
+中新网北京5月18日电 (记者 吕少威)记者今天从北京市人力资源和社会保障局获悉，该局和北京市人才工作局联合发布《人才服务与劳动者权益保障领域2026年全面打造国际一流“北京服务”持续优化营商环境工作方案》(下称“工作方案”)，聚焦企业发展痛点、人才成长堵点、群众办事难点，推出七大板块、22方面具体举措，提升企业和劳动者获得感，优化人才服务与劳动者权益保障领域营商环境。根据工作
 
 ## 正文
 
-出品：新浪财经上市公司研究院 作者：渚 3月31日，数聚智连向联交所主板提交上市申请，这是其继2024年折戟创业板后的第二次IPO尝试，华兴资本为独家保荐人。
+中新网北京5月18日电 (记者 吕少威)记者今天从北京市人力资源和社会保障局获悉，该局和北京市人才工作局联合发布《人才服务与劳动者权益保障领域2026年全面打造国际一流“北京服务”持续优化营商环境工作方案》(下称“工作方案”)，聚焦企业发展痛点、人才成长堵点、群众办事难点，推出七大板块、22方面具体举措，提升企业和劳动者获得感，优化人才服务与劳动者权益保障领域营商环境。
 
-2024年，受国内电商存量市场内卷加剧的直接冲击，数聚智连业绩出现断崖式下跌，营收同比下滑13.5%，净利润暴跌88.6%，毛利率跌破20%，经营现金流收缩至0.59亿元。
+根据工作方案，北京将深化“高效办成一件事”改革。
 
-2025年，尽管业绩有所反弹，但盈利水平仍未回到2023年的高位，且经营现金流出现大幅恶化，全年经营性现金流为-1.41亿元，同比下滑340%，呈现出“增收不增现”的尴尬局面。
+持续优化个人创业等已建成“一件事”场景功能。
 
-在买断经销模式下，数聚智连需先向品牌方或其授权分销商付款采购产品，取得商品的完整所有权，这意味着公司需全额承担库存风险。
+新增大学生就业安居等6个集成场景，推动跨部门事项“一次受理、集成办理”。
 
-同时，大规模采购需要占用大量资金，导致公司资金周转速度缓慢，财务成本居高不下，进一步加重了运营负担。
+推进“免申即享、直达快享”服务模式，推动单位招用社会保险补贴实行“直达快享”。
 
-截至今年1月底，存货余额及占流动资产的比例进一步提升至4.27亿元、50.66%，显著异于同行。
+上线公共就业、社保服务、高校毕业生就业创业、培训评价、调解服务等五项人社地图，实现服务网点、政策资源“一图尽览”。
 
-前后两次发行关于控股股东认定不一致 数聚智连是一家以品效营销驱动销售的综合性全链路电子商务运营服务商，通过为国内外知名品牌提供包括品牌电商运营、渠道分销、品效营销等专业、高效、全链路的电商运营及营销服务，协助品牌提升在中国市场知名度及销售业绩，同时为消费者提供良好的购物体验。
+北京将搭建全链条就业创业服务机制。
 
-数聚智连曾经系上市公司蓝色光标的子公司，曾用名为蓝标电商。
+构建就业友好型发展方式，制定新就业群体就业友好若干措施。
 
 ## 相关推荐
 
-- 2026-06-30 08:47 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-30 08:28 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-30 08:47 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-30 08:36 - [王楚钦说配合稍微有些陌生感](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-30 08:39 - [日本五次世界杯淘汰赛全败](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-30 08:23 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-30 08:32 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-30 08:20 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-30 08:47 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
-- 2026-06-30 08:43 - [三星投资计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-30 08:30 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-30 08:25 - [森保一 保守](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-30 08:50 - [现在叛逆期的孩子最怕的是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-30 08:40 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-30 08:33 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-30 08:38 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-30 08:47 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-30 08:32 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-30 08:49 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-30 08:43 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-30 08:31 - [泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
+- 2026-06-30 08:39 - [曝iPhone18Pro机密文件现身暗网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-30 08:35 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-30 08:35 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:35 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/3802920.shtml)
-- 2026-06-30 08:29 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://www.share.kurohicncr.top/Article/details/0215815654.shtml)
-- 2026-06-30 08:45 - [自然光｜papi酱&窦文涛：驴与跑步机](http://www.share.minike.top/Article/details/215451.shtml)
-- 2026-06-30 08:38 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/730737.shtml)
-- 2026-06-30 08:22 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/957010181119.shtml)
-- 2026-06-30 08:20 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](https://www.share.kurohicncr.top/Article/details/2952807.shtml)
-- 2026-06-30 08:34 - [金牌调解](https://www.share.minike.top/Article/details/998576500397.shtml)
-- 2026-06-30 08:26 - [锐评T1战胜KC](https://www.blog.minike.top/Article/details/950190286828.shtml)
-- 2026-06-30 08:26 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.blog.minike.top/Article/details/811729.shtml)
-- 2026-06-30 08:29 - [世界杯：德国vs巴拉圭](http://www.share.minike.top/Article/details/12978799244.shtml)
-- 2026-06-30 08:45 - [亚洲球队全部告别世界杯](http://www.blog.minike.top/Article/details/501294.shtml)
-- 2026-06-30 08:36 - [点球大战](http://www.blog.minike.top/Article/details/619147445.shtml)
-- 2026-06-30 08:25 - [巴拉圭率先破门](https://www.blog.kurohicncr.top/Article/details/94531.shtml)
-- 2026-06-30 08:25 - [男子在京东买到“同仁堂”假药](http://www.share.kurohicncr.top/Article/details/10006.shtml)
-- 2026-06-30 08:41 - [曝灰熊将莫兰特交易至开拓者](https://www.blog.minike.top/Article/details/88873.shtml)
+- 2026-06-30 08:38 - [日本球迷被强行披上巴西国旗](https://www.blog.minike.top/Article/details/27071848992.shtml)
+- 2026-06-30 08:33 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/5776193.shtml)
+- 2026-06-30 08:43 - [德国vs巴拉圭](https://www.blog.kurohicncr.top/Article/details/550618361.shtml)
+- 2026-06-30 08:53 - [日本队5进世界杯淘汰赛0胜](http://www.share.minike.top/Article/details/54539072.shtml)
+- 2026-06-30 08:31 - [日本淘汰](http://www.blog.kurohicncr.top/Article/details/753115.shtml)
+- 2026-06-30 08:32 - [巴西vs日本](http://www.blog.minike.top/Article/details/028392.shtml)
+- 2026-06-30 08:43 - [德国 传控](https://www.share.minike.top/Article/details/67538.shtml)
+- 2026-06-30 08:51 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/854598239547.shtml)
+- 2026-06-30 08:32 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/39118425999.shtml)
+- 2026-06-30 08:29 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.kurohicncr.top/Article/details/9582878696.shtml)
+- 2026-06-30 08:25 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/524524.shtml)
+- 2026-06-30 08:46 - [我觉得你是在无中生友](http://www.share.minike.top/Article/details/583629793.shtml)
+- 2026-06-30 08:39 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/33845.shtml)
+- 2026-06-30 08:49 - [网红峡谷5人溺亡 有人提醒会下雨](http://www.share.minike.top/Article/details/59618505798.shtml)
+- 2026-06-30 08:48 - [韩国世界杯出局是主帅一个人的锅吗](https://www.blog.minike.top/Article/details/735332.shtml)

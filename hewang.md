@@ -1,60 +1,56 @@
-# 海峡两岸两百余人合肥纪念刘铭传诞辰190周年
+# 民调：近六成美国民众认为特朗普政策令个人经济恶化
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-中新社合肥4月12日电 (记者 赵强)海峡两岸(合肥)纪念台湾首任巡抚刘铭传诞辰190周年祭拜活动12日在合肥市肥西县刘铭传墓园举行，海峡两岸各界人士两百余人参与。 活动现场，献花、敬香、恭读祭文等环节在细雨中依次进行，刘铭传嫡裔及刘氏宗亲行跪拜三叩首之礼......整场仪式庄严肃穆。 刘铭传，安徽合肥人，1885年任首任台湾巡抚，任内修铁路、建学堂、办电讯、兴实业，开启台湾近
+一项最新民调显示，近半数美国民众对个人财务状况感到焦虑，同时对特朗普执政下的国内经济形势心生不满。 民调数据显示，44%的受访者认为自身个人财务与经济处境状况较差或很差；49%的民众表示自身经济状况良好或尚可；剩余7%的受访者对此态度不明。 同期民调结果还显示，57%的受访者认为特朗普推行的政策让自己的经济处境愈发窘迫；仅14%民众认为相关政策改善了自身财务状况；另有29%人群
 
 ## 正文
 
-中新社合肥4月12日电 (记者 赵强)海峡两岸(合肥)纪念台湾首任巡抚刘铭传诞辰190周年祭拜活动12日在合肥市肥西县刘铭传墓园举行，海峡两岸各界人士两百余人参与。
+一项最新民调显示，近半数美国民众对个人财务状况感到焦虑，同时对特朗普执政下的国内经济形势心生不满。
 
-活动现场，献花、敬香、恭读祭文等环节在细雨中依次进行，刘铭传嫡裔及刘氏宗亲行跪拜三叩首之礼......整场仪式庄严肃穆。
+民调数据显示，44%的受访者认为自身个人财务与经济处境状况较差或很差；49%的民众表示自身经济状况良好或尚可；剩余7%的受访者对此态度不明。
 
-刘铭传，安徽合肥人，1885年任首任台湾巡抚，任内修铁路、建学堂、办电讯、兴实业，开启台湾近代化建设的先河。
+同期民调结果还显示，57%的受访者认为特朗普推行的政策让自己的经济处境愈发窘迫；仅14%民众认为相关政策改善了自身财务状况；另有29%人群表示政策并未给自己的经济状况带来明显变化。
 
-“今年是先祖刘铭传诞辰190周年，我们将陆续举办两岸书画展、刘铭传史迹展、文物展等系列纪念活动。
+目前美伊冲突已持续近四个月，战事直接推高国际油气价格。
 
-”安徽省刘铭传研究会会长、刘铭传五世嫡孙刘学宣说。
+据美国汽车协会数据，周日全美普通汽油均价达到每加仑4.51美元，而去年同期均价仅为3.19美元。
 
-他表示，刘铭传在台湾政治、经济、科技、教育、文化等领域推行广泛改革。
+作为石油运输要道的霍尔木兹海峡，也因局势冲突陷入停运状态。
 
-如今海峡两岸民众齐聚于此共同祭拜，既是追忆历史，更是传承中华民族慎终追远、饮水思源的传统美德。
+正值共和党力争保住众议院微弱多数席位之际，众议院议长迈克・约翰逊再度对高油价问题表达担忧。
 
-合肥市民刘贤冬专程带着孩子参加祭拜活动。
+约翰逊在周日采访中直言，美国民众当下遭遇的各类经济困境，根源直指霍尔木兹海峡局势。
 
 ## 相关推荐
 
-- 2026-06-30 08:34 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-30 08:41 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
-- 2026-06-30 08:24 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-30 08:34 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-30 08:28 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-30 08:27 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-30 08:29 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-30 08:41 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
-- 2026-06-30 08:21 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-30 08:25 - [金鹰奖视后提名预测](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-30 08:27 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-30 08:35 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
-- 2026-06-30 08:46 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-30 08:29 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-30 08:48 - [索马里女大使：想和中国一起搞事业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-30 08:31 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-30 08:37 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-30 08:48 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
+- 2026-06-30 08:48 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
+- 2026-06-30 08:52 - [巴拉圭率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-30 08:48 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-30 08:25 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-30 08:37 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-30 08:46 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:25 - [我觉得你是在无中生友](https://www.blog.kurohicncr.top/Article/details/611351548145.shtml)
-- 2026-06-30 08:28 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.minike.top/Article/details/1767499905.shtml)
-- 2026-06-30 08:37 - [孙兴慜发长文致歉](https://www.blog.kurohicncr.top/Article/details/5333196.shtml)
-- 2026-06-30 08:37 - [日本进球](http://www.share.minike.top/Article/details/300943176904.shtml)
-- 2026-06-30 08:36 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.kurohicncr.top/Article/details/878252339159.shtml)
-- 2026-06-30 08:18 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/7898741805.shtml)
-- 2026-06-30 08:20 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/428488572380.shtml)
-- 2026-06-30 08:29 - [曝老詹对自由市场态度与以往截然不同](https://www.share.minike.top/Article/details/6137699.shtml)
-- 2026-06-30 08:36 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/50745.shtml)
-- 2026-06-30 08:27 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.kurohicncr.top/Article/details/4709973.shtml)
-- 2026-06-30 08:23 - [森保一 保守](http://www.share.kurohicncr.top/Article/details/909240.shtml)
-- 2026-06-30 08:45 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.minike.top/Article/details/536531585939.shtml)
-- 2026-06-30 08:43 - [武磊：日本队有能力跟任何强队抗衡](http://www.blog.kurohicncr.top/Article/details/623401913.shtml)
-- 2026-06-30 08:32 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/75301280012.shtml)
-- 2026-06-30 08:36 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/11664952.shtml)
+- 2026-06-30 08:40 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/6325725.shtml)
+- 2026-06-30 08:36 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/34683253.shtml)
+- 2026-06-30 08:42 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/41464330.shtml)
+- 2026-06-30 08:28 - [一见倾心](https://www.blog.minike.top/Article/details/775347205.shtml)
+- 2026-06-30 08:49 - [毒液2](http://www.blog.minike.top/Article/details/023687384.shtml)
+- 2026-06-30 08:24 - [日本淘汰](https://www.share.minike.top/Article/details/4200781458.shtml)
+- 2026-06-30 08:52 - [孙颖莎王楚钦晋级8强](https://www.share.minike.top/Article/details/67410.shtml)
+- 2026-06-30 08:37 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/253256788.shtml)
+- 2026-06-30 08:38 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/1676134.shtml)
+- 2026-06-30 08:28 - [媒体：手机测评该挤挤水分了](http://www.blog.kurohicncr.top/Article/details/020694634.shtml)
+- 2026-06-30 08:39 - [DeepSeek V4正式版要来了](https://www.share.minike.top/Article/details/76622893612.shtml)
+- 2026-06-30 08:52 - [孙兴慜发长文致歉](http://www.share.kurohicncr.top/Article/details/766100061932.shtml)
+- 2026-06-30 08:35 - [德国连续三届世界杯无缘16强](https://www.share.kurohicncr.top/Article/details/97879450272.shtml)
+- 2026-06-30 08:40 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/24189802.shtml)
+- 2026-06-30 08:36 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/418352910390.shtml)

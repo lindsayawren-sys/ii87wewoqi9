@@ -1,56 +1,57 @@
-# 亚马逊计划投资250亿美元在密西西比州建设数据中心，创造2000个就业岗位
+# 微视频｜在文化遗存前 总书记驻足凝视
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-亚马逊公司宣布，将把在密西西比州的计划投资总额提升至250亿美元，并预计在该州所有数据中心运营中创造2000个高技能就业岗位。 追加投资与设施扩建 亚马逊的最新扩张计划包括在麦迪逊县追加110亿美元投资，以及在欣兹县投资10亿美元，用于将当地一处前德尔福制造厂改造成一个先进的数据中心设施。 在此之前，亚马逊已宣布在麦迪逊县投资100亿美元建设其首个数据中心园区，并于2025年1
+博物馆，方寸之间，一览千年。习近平总书记曾说，“我到地方考察，都会抽时间到博物馆走一走、看一看”。 在习近平总书记心中，博物馆是保护和传承人类文明的重要殿堂，是连接过去、现在、未来的桥梁。 一次次触摸历史，一次次寻访传统，习近平总书记目光深邃、思虑深远，高度重视博物馆在文化传承和历史教育中的重要作用，指出“要推动中华优秀传统文化创造性转化、创新性发展，以时代精神激活中华优秀传统
 
 ## 正文
 
-亚马逊公司宣布，将把在密西西比州的计划投资总额提升至250亿美元，并预计在该州所有数据中心运营中创造2000个高技能就业岗位。
+博物馆，方寸之间，一览千年。
 
-追加投资与设施扩建 亚马逊的最新扩张计划包括在麦迪逊县追加110亿美元投资，以及在欣兹县投资10亿美元，用于将当地一处前德尔福制造厂改造成一个先进的数据中心设施。
+习近平总书记曾说，“我到地方考察，都会抽时间到博物馆走一走、看一看”。
 
-在此之前，亚马逊已宣布在麦迪逊县投资100亿美元建设其首个数据中心园区，并于2025年11月宣布在沃伦县投资30亿美元建设一个新园区。
+在习近平总书记心中，博物馆是保护和传承人类文明的重要殿堂，是连接过去、现在、未来的桥梁。
 
-就业岗位与社区影响 密西西比州州长泰特·里夫斯在周四的新闻发布会上表示，这些项目将创造“2000个新工作岗位”，并称“密西西比州不仅仅是在吸引未来产业，我们正在建设它们”。
+一次次触摸历史，一次次寻访传统，习近平总书记目光深邃、思虑深远，高度重视博物馆在文化传承和历史教育中的重要作用，指出“要推动中华优秀传统文化创造性转化、创新性发展，以时代精神激活中华优秀传统文化的生命力”。
 
-此前宣布的麦迪逊县项目已预计创造1200个岗位，最新公告在此基础上增加了约800个新岗位。
+泱泱中华，历史何其悠久，文明何其博大，这是我们的自信之基、力量之源。
 
-能源与基础设施承诺 亚马逊全球公共政策及法律事务主管大卫·扎波尔斯基表示，亚马逊正在为电网带来新的能源，并承担全部能源费用。
-
-AWS经济发展总监罗杰·韦纳在活动中介绍了数据中心对当地资源的承诺： 在克林顿市（欣兹县）的数据中心将完全不使用水 在里奇兰市（麦迪逊县）的数据中心，一年中约有30天（约9%的时间）会使用水，其余时间将使用回收水 Entergy Mississippi总裁海利·费萨克利表示，亚马逊已承诺支付与电力相关的所有增量成本，包括变电站和输电升级，这部分额外收入将有助于为客户降低系统故障并节省约20亿美元。
-
-全球投资背景 亚马逊在2月财报中表示，计划在2026年投入约2000亿美元用于集团范围内的资本支出，主要用于AWS和AI基础设施的扩张。
+统筹：韩珅、王志斌 编导：张旻曦、方亚东 记者：尚昆仑、姜亮、吴鸿波、马晓冬 摄制：麻翛然、董敬 配音：王帅龙 海报：王彦凯 新华社音视频部制作
 
 ## 相关推荐
 
-- 2026-06-30 08:40 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
-- 2026-06-30 08:39 - [媒体：手机测评该挤挤水分了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-30 08:46 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
-- 2026-06-30 08:45 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-30 08:30 - [世界杯欧洲队7战南美仅1胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-30 08:18 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
-- 2026-06-30 08:26 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-30 08:24 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
-- 2026-06-30 08:18 - [三星投资计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-30 08:46 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-30 08:42 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-30 08:51 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-30 08:51 - [现在叛逆期的孩子最怕的是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-30 08:40 - [韩国世界杯出局是主帅一个人的锅吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-30 08:24 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-30 08:27 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-30 08:25 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-30 08:37 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-30 08:38 - [巴拉圭进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-30 08:54 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-30 08:28 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-30 08:49 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-30 08:49 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-30 08:26 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-30 08:45 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:19 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/20246.shtml)
-- 2026-06-30 08:40 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/016654.shtml)
-- 2026-06-30 08:22 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/365769745.shtml)
-- 2026-06-30 08:31 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/745575.shtml)
-- 2026-06-30 08:44 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/10768229.shtml)
-- 2026-06-30 08:25 - [郑钦文温网首轮出局](https://www.share.minike.top/Article/details/25234676.shtml)
-- 2026-06-30 08:42 - [杨紫获白玉兰视后为何争议难平](https://www.share.minike.top/Article/details/66253234.shtml)
-- 2026-06-30 08:22 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/02301806943.shtml)
-- 2026-06-30 08:35 - [【涤墨作战7人870】望：我从地狱杀回来了！](http://www.share.kurohicncr.top/Article/details/15237084.shtml)
-- 2026-06-30 08:47 - [AI手机进入Agent时代](https://www.share.minike.top/Article/details/5883006.shtml)
-- 2026-06-30 08:42 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/110693.shtml)
-- 2026-06-30 08:27 - [iPhone18e曝光](http://www.blog.kurohicncr.top/Article/details/60875.shtml)
-- 2026-06-30 08:25 - [千香](http://www.share.kurohicncr.top/Article/details/1751104.shtml)
-- 2026-06-30 08:29 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](http://www.share.minike.top/Article/details/423945.shtml)
-- 2026-06-30 08:34 - [德国4比5巴拉圭](http://www.blog.kurohicncr.top/Article/details/2841861.shtml)
+- 2026-06-30 08:46 - [董路：谁赢谁是“正路子”](https://www.blog.minike.top/Article/details/59330.shtml)
+- 2026-06-30 08:48 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/2157655564.shtml)
+- 2026-06-30 08:29 - [第3集丨“柠檬茶能换怀表？”](http://www.blog.kurohicncr.top/Article/details/297062.shtml)
+- 2026-06-30 08:27 - [德国队连续三届世界杯无缘16强](http://www.share.kurohicncr.top/Article/details/7577393.shtml)
+- 2026-06-30 08:41 - [点球大战 残酷](http://www.blog.minike.top/Article/details/24530846.shtml)
+- 2026-06-30 08:47 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/59481522456.shtml)
+- 2026-06-30 08:41 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/7841985.shtml)
+- 2026-06-30 08:30 - [乔家的儿女](http://www.blog.minike.top/Article/details/580378.shtml)
+- 2026-06-30 08:27 - [董路：谁赢谁是“正路子”](https://www.share.kurohicncr.top/Article/details/98746537.shtml)
+- 2026-06-30 08:44 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/3972151.shtml)
+- 2026-06-30 08:31 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/2569122.shtml)
+- 2026-06-30 08:52 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://www.blog.kurohicncr.top/Article/details/245999.shtml)
+- 2026-06-30 08:40 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](https://www.blog.kurohicncr.top/Article/details/768983870.shtml)
+- 2026-06-30 08:29 - [德国队世界杯点球大战首败](http://www.share.kurohicncr.top/Article/details/49812426085.shtml)
+- 2026-06-30 08:28 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://www.blog.kurohicncr.top/Article/details/4440409.shtml)

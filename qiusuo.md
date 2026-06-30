@@ -1,50 +1,61 @@
-# 从攀枝花到巴黎：傈僳族传统服饰“潮”向国际新传承
+# 白皮书：2025年中国卫星导航产业总体产值超6000亿元
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月11日 17:51 来源：中国新闻网 傈僳族被称为“追赶太阳的民族”。在四川省攀枝花市盐边县，一批傈僳族世代栖居，孕育出傈僳族传统服饰等璀璨非遗。 在傈僳族姑娘谷艳现代化运营思维和本土化民族特色融合的思路下，2025年，傈僳族传统服饰走出大山，先后登上中国国际时装周、中法时装周的舞台。如今，谷艳正联合全国傈僳族研究会，以“人工智能+”为基础，研发傈僳族
+中新社北京5月18日电 (记者 马帅莎)中国卫星导航定位协会18日在北京发布的《2026中国北斗时空产业发展白皮书》显示，2025年，中国卫星导航产业(北斗产业)总体产值达6290亿元(人民币，下同)，同比增长9.24%。白皮书指出，2025年，北斗时空产业总体产值达到13323亿元。其中，作为北斗时空产业基础的卫星导航产业(北斗产业)总体产值达6290亿元，同比增长9.24%
 
 ## 正文
 
-发布时间：2026年04月11日 17:51 来源：中国新闻网 傈僳族被称为“追赶太阳的民族”。
+中新社北京5月18日电 (记者 马帅莎)中国卫星导航定位协会18日在北京发布的《2026中国北斗时空产业发展白皮书》显示，2025年，中国卫星导航产业(北斗产业)总体产值达6290亿元(人民币，下同)，同比增长9.24%。
 
-在四川省攀枝花市盐边县，一批傈僳族世代栖居，孕育出傈僳族传统服饰等璀璨非遗。
+白皮书指出，2025年，北斗时空产业总体产值达到13323亿元。
 
-在傈僳族姑娘谷艳现代化运营思维和本土化民族特色融合的思路下，2025年，傈僳族传统服饰走出大山，先后登上中国国际时装周、中法时装周的舞台。
+其中，作为北斗时空产业基础的卫星导航产业(北斗产业)总体产值达6290亿元，同比增长9.24%，展现出强劲的发展韧性和巨大的增长潜力。
 
-如今，谷艳正联合全国傈僳族研究会，以“人工智能+”为基础，研发傈僳族服饰谱系系统，将传统技艺在传承保护中焕发生机。
+白皮书称，2025年，北斗时空产业最鲜明的特征，就是实现了从“卫星导航”到“时空服务”的跨越，呈现出“技术融合化、应用场景化、生态多元化”的发展态势，产业迭代升级速度持续加快，核心竞争力不断提升。
 
-(杨予頔) 责任编辑：【罗攀】
+白皮书表示，2025年，北斗时空产业的应用市场呈现“专业深化、大众普及”的双轮驱动格局。
+
+在大众消费领域，截至2025年底，中国已有近14亿部智能手机支持北斗定位功能，约占总量的98%；支持北斗定位功能的可穿戴设备保有量超过1.6亿；超过1亿台乘用车部署了具有北斗定位导航功能的车载设备。
+
+白皮书说，在海外应用市场方面，北斗系统服务及相关产品已输出到140余个国家和地区。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 08:38 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
-- 2026-06-30 08:28 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-30 08:36 - [库尼亚赛后伸五指嘲讽日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-30 08:38 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
-- 2026-06-30 08:41 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-30 08:21 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
-- 2026-06-30 08:31 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-30 08:41 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
-- 2026-06-30 08:39 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-30 08:25 - [德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-30 08:35 - [诺伊尔尽力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-30 08:46 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-30 08:36 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-30 08:32 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-30 08:30 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-30 08:43 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-30 08:34 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-30 08:46 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-30 08:42 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-30 08:28 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-30 08:45 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-30 08:49 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-30 08:40 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
+- 2026-06-30 08:26 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-30 08:35 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:29 - [马耳他著名拱门坍塌致中国男子身亡](http://www.blog.minike.top/Article/details/282908674.shtml)
-- 2026-06-30 08:41 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.minike.top/Article/details/14480968.shtml)
-- 2026-06-30 08:31 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/23058.shtml)
-- 2026-06-30 08:23 - [古代人对纳妾的态度是什么样的？](http://www.share.minike.top/Article/details/59284190287.shtml)
-- 2026-06-30 08:34 - [巴西2比1日本](https://www.share.minike.top/Article/details/970489095.shtml)
-- 2026-06-30 08:37 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/24921529.shtml)
-- 2026-06-30 08:23 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/644696879.shtml)
-- 2026-06-30 08:38 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.kurohicncr.top/Article/details/41418862619.shtml)
-- 2026-06-30 08:36 - [媒体评泰山建135公里刀片刺绳隔离网](https://www.share.minike.top/Article/details/26070186743.shtml)
-- 2026-06-30 08:44 - [德国巴拉圭 折磨](http://www.blog.kurohicncr.top/Article/details/28491363.shtml)
-- 2026-06-30 08:19 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.minike.top/Article/details/752774.shtml)
-- 2026-06-30 08:32 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/81942519342.shtml)
-- 2026-06-30 08:30 - [输球后日本球迷被强行披上巴西国旗](https://www.blog.kurohicncr.top/Article/details/867890066134.shtml)
-- 2026-06-30 08:31 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/76796.shtml)
-- 2026-06-30 08:41 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/91195958188.shtml)
+- 2026-06-30 08:44 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.minike.top/Article/details/4427390.shtml)
+- 2026-06-30 08:35 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/32344189295.shtml)
+- 2026-06-30 08:49 - [巴西扳平比分](https://www.share.minike.top/Article/details/0941684881.shtml)
+- 2026-06-30 08:47 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/905303.shtml)
+- 2026-06-30 08:38 - [安切洛蒂 换人](http://www.share.kurohicncr.top/Article/details/4327325556.shtml)
+- 2026-06-30 08:36 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.minike.top/Article/details/78677701207.shtml)
+- 2026-06-30 08:36 - [点球大战](https://www.blog.kurohicncr.top/Article/details/451413026404.shtml)
+- 2026-06-30 08:35 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/365528934489.shtml)
+- 2026-06-30 08:39 - [一见倾心](https://www.share.minike.top/Article/details/384164.shtml)
+- 2026-06-30 08:33 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/237484.shtml)
+- 2026-06-30 08:49 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/44385790.shtml)
+- 2026-06-30 08:52 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/3221862.shtml)
+- 2026-06-30 08:25 - [安切洛蒂 换人](http://www.blog.minike.top/Article/details/0891706533.shtml)
+- 2026-06-30 08:26 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/3655345.shtml)
+- 2026-06-30 08:30 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/78758108.shtml)

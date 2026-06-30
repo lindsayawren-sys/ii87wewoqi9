@@ -1,47 +1,59 @@
-# 国际油价大涨 再破每桶100美元
+# 西班牙第二副首相兼劳动与社会经济大臣到访中华全国供销合作总社
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-13日亚洲交易时段，国际油价大幅上涨，再次突破每桶100美元。截至北京时间6时50分，纽商所5月交货的轻质原油期货价格报每桶104.42美元，涨幅为8.13%。6月交货的布伦特原油期货价格报每桶102.36美元，上涨7.52%。
+中新网北京5月19日电(记者 谢艺观)5月18日，西班牙第二副首相兼劳动与社会经济大臣约兰达·迪亚斯·佩雷斯到访中华全国供销合作总社，与总社党组书记、理事会主任王宇燕会谈。双方就推进农产品贸易、农业科技、合作社治理等领域合作深入交换意见。总社党组成员、理事会副主任徐光洪参加会谈。王宇燕对迪亚斯一行的到来表示热烈欢迎。她指出，中国供销合作社经过70多年的发展，已构建起覆盖全国城乡
 
 ## 正文
 
-13日亚洲交易时段，国际油价大幅上涨，再次突破每桶100美元。
+中新网北京5月19日电(记者 谢艺观)5月18日，西班牙第二副首相兼劳动与社会经济大臣约兰达·迪亚斯·佩雷斯到访中华全国供销合作总社，与总社党组书记、理事会主任王宇燕会谈。
 
-截至北京时间6时50分，纽商所5月交货的轻质原油期货价格报每桶104.42美元，涨幅为8.13%。
+双方就推进农产品贸易、农业科技、合作社治理等领域合作深入交换意见。
 
-6月交货的布伦特原油期货价格报每桶102.36美元，上涨7.52%。
+总社党组成员、理事会副主任徐光洪参加会谈。
+
+王宇燕对迪亚斯一行的到来表示热烈欢迎。
+
+她指出，中国供销合作社经过70多年的发展，已构建起覆盖全国城乡的组织体系和经营服务网络。
+
+西班牙合作社是促进西班牙国民经济发展的重要力量，在农业领域拥有成熟的经验。
+
+作为中国供销合作社的联合组织，中华全国供销合作总社愿推动中国供销合作社与西班牙合作社进一步加强交流互鉴，深化务实合作，不断助力提升农业发展水平。
+
+迪亚斯高度认可中国供销合作社的发展经验与为农服务模式。
 
 ## 相关推荐
 
-- 2026-06-30 08:36 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
-- 2026-06-30 08:19 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-30 08:36 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-30 08:26 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
-- 2026-06-30 08:25 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-30 08:33 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-30 08:19 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-30 08:31 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-30 08:39 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-30 08:28 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
-- 2026-06-30 08:29 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-30 08:44 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-30 08:50 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
+- 2026-06-30 08:46 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-30 08:37 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-30 08:45 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-30 08:37 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-30 08:49 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-30 08:42 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
+- 2026-06-30 08:28 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
+- 2026-06-30 08:46 - [田中碧失误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-30 08:39 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-30 08:52 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
+- 2026-06-30 08:31 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:35 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/45976699.shtml)
-- 2026-06-30 08:38 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.kurohicncr.top/Article/details/31130383415.shtml)
-- 2026-06-30 08:22 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/876330264140.shtml)
-- 2026-06-30 08:22 - [勇士续约波尔津吉斯](http://www.blog.minike.top/Article/details/8586332.shtml)
-- 2026-06-30 08:43 - [巴西2-1绝杀日本](https://www.share.minike.top/Article/details/672912720.shtml)
-- 2026-06-30 08:39 - [王曼昱被突如其来的话筒逗笑了](https://www.share.kurohicncr.top/Article/details/859066443.shtml)
-- 2026-06-30 08:24 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/951029600.shtml)
-- 2026-06-30 08:22 - [自然光｜papi酱&窦文涛：驴与跑步机](https://www.blog.minike.top/Article/details/678697748034.shtml)
-- 2026-06-30 08:34 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/812531271.shtml)
-- 2026-06-30 08:23 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/28222585.shtml)
-- 2026-06-30 08:41 - [扬名立万](https://www.share.minike.top/Article/details/31324255388.shtml)
-- 2026-06-30 08:41 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/166342.shtml)
-- 2026-06-30 08:25 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](https://www.share.minike.top/Article/details/6842559.shtml)
-- 2026-06-30 08:45 - [张雪的一句“是我们”引发岛内热议](https://www.blog.kurohicncr.top/Article/details/682885.shtml)
-- 2026-06-30 08:40 - [马耳他著名拱门坍塌致中国男子身亡](https://www.blog.kurohicncr.top/Article/details/6029864.shtml)
+- 2026-06-30 08:31 - [德国队连续三届世界杯无缘16强](https://www.share.kurohicncr.top/Article/details/7333892.shtml)
+- 2026-06-30 08:36 - [爱很美味](https://www.blog.minike.top/Article/details/8788745.shtml)
+- 2026-06-30 08:45 - [中国新一轮出口管制直指日本命脉](http://www.share.kurohicncr.top/Article/details/566334.shtml)
+- 2026-06-30 08:27 - [内马尔替补](https://www.share.minike.top/Article/details/59280376.shtml)
+- 2026-06-30 08:34 - [穆祉丞年度人气艺人](https://www.blog.kurohicncr.top/Article/details/40420.shtml)
+- 2026-06-30 08:36 - [曝灰熊将莫兰特交易至开拓者](https://www.blog.kurohicncr.top/Article/details/237025.shtml)
+- 2026-06-30 08:40 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/6105608770.shtml)
+- 2026-06-30 08:32 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/577950124327.shtml)
+- 2026-06-30 08:52 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://www.blog.minike.top/Article/details/5996279582.shtml)
+- 2026-06-30 08:29 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/65729.shtml)
+- 2026-06-30 08:50 - [张凌赫杨超越 峨眉](https://www.blog.minike.top/Article/details/96808443.shtml)
+- 2026-06-30 08:42 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.minike.top/Article/details/781963401023.shtml)
+- 2026-06-30 08:33 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/464578542.shtml)
+- 2026-06-30 08:37 - [张月收到黄灿灿辣货两眼发光](http://www.blog.kurohicncr.top/Article/details/447954506120.shtml)
+- 2026-06-30 08:51 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/448493660.shtml)

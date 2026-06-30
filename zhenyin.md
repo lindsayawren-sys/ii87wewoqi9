@@ -1,57 +1,47 @@
-# 宿迁市湖南商会成立
+# 迫击炮实弹射击现场，请戴耳机观看
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-4月11日，宿迁市湖南商会第一次会员大会暨成立大会顺利召开，江苏省工商联党组成员、副主席熊杰，湖南省工商联党组成员、副主席漆平波，宿迁市人民政府副市长李亮，宿迁市政协副主席、市工商联主席李瑞华，宿迁市委统战部副部长、市工商联党组书记张相阳等出席会议。湖南、宿迁两地相关领导对宿迁市湖南商会的成立表示热烈祝贺。会议指出，湘商精神与宿迁“敢为人先、实事求是”的工作作风高度契合，大批湘
+发布时间：2026年05月19日 16:20 来源：中国新闻网 武警第二机动总队某支队开展迫击炮实弹射击，锤炼实战化精准打击能力。(作者：梁烨博 王睿 姚天宝） 责任编辑：【魏聪聪】
 
 ## 正文
 
-4月11日，宿迁市湖南商会第一次会员大会暨成立大会顺利召开，江苏省工商联党组成员、副主席熊杰，湖南省工商联党组成员、副主席漆平波，宿迁市人民政府副市长李亮，宿迁市政协副主席、市工商联主席李瑞华，宿迁市委统战部副部长、市工商联党组书记张相阳等出席会议。
+发布时间：2026年05月19日 16:20 来源：中国新闻网 武警第二机动总队某支队开展迫击炮实弹射击，锤炼实战化精准打击能力。
 
-湖南、宿迁两地相关领导对宿迁市湖南商会的成立表示热烈祝贺。
-
-会议指出，湘商精神与宿迁“敢为人先、实事求是”的工作作风高度契合，大批湘商在宿创业发展，为两地合作奠定了坚实基础。
-
-希望商会成立后，严格规范管理、强化服务功能，充分发挥桥梁纽带作用，一方面凝聚好、服务好在宿湘商，引导企业合法经营、诚信发展；另一方面积极搭建宿湘两地合作平台，推动更多湖南优质资源向宿迁集聚，更多宿迁特色产业向湖南延伸，助力两地实现优势互补、协同发展。
-
-两地政府将持续优化营商环境，落实各项扶持政策，为商会发展和湘商企业在宿发展提供全方位保障，让企业放心投资、安心经营、顺心发展。
-
-湖南省工商联机关党委常务副书记曹文涛、湖南省人民政府驻上海办事处交流合作处处长苏胜鹏、湖南省工商联商会部二级调研员黎春梅，宿迁市工商联党组成员、副主席、二级调研员刘永，宿豫区委常委、统战部部长仓杰等参加会议。
+(作者：梁烨博 王睿 姚天宝） 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-30 08:25 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-30 08:20 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-30 08:31 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-30 08:37 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
-- 2026-06-30 08:31 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-30 08:28 - [锐评T1战胜KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-30 08:43 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
-- 2026-06-30 08:31 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-30 08:30 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
-- 2026-06-30 08:47 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-30 08:37 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-30 08:42 - [莫兰特转投开拓者效力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-30 08:18 - [郑钦文 四年一轮游](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
-- 2026-06-30 08:26 - [日本队5进世界杯淘汰赛0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-30 08:21 - [森保一致歉：世界第一目标没能实现](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-30 08:37 - [巴西绝杀日本：漫画般结局换了主角](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
+- 2026-06-30 08:29 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-30 08:31 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-30 08:45 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-30 08:48 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-30 08:46 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-30 08:44 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-30 08:25 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-30 08:32 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-30 08:34 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-30 08:29 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-30 08:33 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-30 08:40 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:32 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/530683967501.shtml)
-- 2026-06-30 08:37 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/5874515843.shtml)
-- 2026-06-30 08:28 - [王楚钦孙颖莎晋级混双八强](https://www.share.kurohicncr.top/Article/details/73153872421.shtml)
-- 2026-06-30 08:37 - [湖南祁东原文化馆被指贱卖](https://www.share.kurohicncr.top/Article/details/892081.shtml)
-- 2026-06-30 08:41 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/022638.shtml)
-- 2026-06-30 08:23 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/6640416766.shtml)
-- 2026-06-30 08:33 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/816241.shtml)
-- 2026-06-30 08:37 - [索马里女大使：想和中国一起搞事业](http://www.blog.kurohicncr.top/Article/details/30990555.shtml)
-- 2026-06-30 08:43 - [库尼亚赛后伸五指嘲讽日本](https://www.blog.minike.top/Article/details/304604808794.shtml)
-- 2026-06-30 08:19 - [巴西在进攻三区完成210脚传球](https://www.share.kurohicncr.top/Article/details/348411.shtml)
-- 2026-06-30 08:42 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/28996.shtml)
-- 2026-06-30 08:43 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/33820287.shtml)
-- 2026-06-30 08:24 - [男子在京东买到“同仁堂”假药](https://www.blog.kurohicncr.top/Article/details/654219620591.shtml)
-- 2026-06-30 08:38 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/6609766.shtml)
-- 2026-06-30 08:33 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/750034.shtml)
+- 2026-06-30 08:27 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/962919157.shtml)
+- 2026-06-30 08:41 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/4096343444.shtml)
+- 2026-06-30 08:40 - [巴西绝杀日本：漫画般结局换了主角](https://www.blog.kurohicncr.top/Article/details/45024048532.shtml)
+- 2026-06-30 08:30 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/42784.shtml)
+- 2026-06-30 08:46 - [日本反击率先破门](https://www.blog.kurohicncr.top/Article/details/55718987787.shtml)
+- 2026-06-30 08:52 - [第一次对自信的力量有了实感](https://www.blog.kurohicncr.top/Article/details/883087736.shtml)
+- 2026-06-30 08:37 - [德国爆冷点球大战不敌巴拉圭](http://www.share.kurohicncr.top/Article/details/9421380077.shtml)
+- 2026-06-30 08:51 - [一见倾心](https://www.blog.minike.top/Article/details/7548735.shtml)
+- 2026-06-30 08:48 - [好像看到了人类带孩子崩溃的样子](http://www.blog.minike.top/Article/details/811014.shtml)
+- 2026-06-30 08:24 - [日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？](http://www.blog.minike.top/Article/details/6247944.shtml)
+- 2026-06-30 08:46 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/88756.shtml)
+- 2026-06-30 08:35 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/2846161.shtml)
+- 2026-06-30 08:49 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/10236.shtml)
+- 2026-06-30 08:33 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/0871383867.shtml)
+- 2026-06-30 08:37 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/9837112.shtml)

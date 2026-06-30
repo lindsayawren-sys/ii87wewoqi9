@@ -1,53 +1,54 @@
-# 外国驻港领团和商界代表体验深中通道 点赞中国速度
+# 石家河遗址博物馆开馆：70余年考古揭秘史前“超级都邑”
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月12日 13:32 来源：中国新闻网 4月9日至10日，外国驻港领团和商界参访团经深中通道往返香港、中山开展考察交流，实地感受世界级跨海通道带来的高效便捷。 全程平稳顺畅、通行高效，参访团亲身体验粤港澳大湾区“一小时生活圈”从蓝图变为现实。深中通道大幅缩短香港、深圳、中山三地时空距离，打通人流、物流、资金流、信息流快速通道，成为推动大湾区互联互通、融合
+发布时间：2026年05月18日 21:31 来源：中国新闻网 在湖北天门，藏着一座低调了5000多年的史前文明遗址——石家河遗址。神秘感不输三星堆，规模远超故宫。历经七十余年接续考古探秘，这座史前“超级都邑”迎来全新亮相。5月18日，石家河遗址博物馆在湖北天门开馆。 记者邹浩湖北天门报道 责任编辑：【李季】
 
 ## 正文
 
-发布时间：2026年04月12日 13:32 来源：中国新闻网 4月9日至10日，外国驻港领团和商界参访团经深中通道往返香港、中山开展考察交流，实地感受世界级跨海通道带来的高效便捷。
+发布时间：2026年05月18日 21:31 来源：中国新闻网 在湖北天门，藏着一座低调了5000多年的史前文明遗址——石家河遗址。
 
-全程平稳顺畅、通行高效，参访团亲身体验粤港澳大湾区“一小时生活圈”从蓝图变为现实。
+神秘感不输三星堆，规模远超故宫。
 
-深中通道大幅缩短香港、深圳、中山三地时空距离，打通人流、物流、资金流、信息流快速通道，成为推动大湾区互联互通、融合发展的黄金纽带。
+历经七十余年接续考古探秘，这座史前“超级都邑”迎来全新亮相。
 
-参与考察的外国驻港商会代表纷纷点赞，高度评价中国基建实力与大湾区建设成果。
+5月18日，石家河遗址博物馆在湖北天门开馆。
 
-(记者 戴小橦 制作 侯诗蕊) 责任编辑：【卢岩】
+记者邹浩湖北天门报道 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 08:27 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
-- 2026-06-30 08:44 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
-- 2026-06-30 08:41 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-30 08:36 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-30 08:47 - [iPhone18e曝光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
-- 2026-06-30 08:41 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
-- 2026-06-30 08:41 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-30 08:28 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-30 08:25 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
-- 2026-06-30 08:29 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
-- 2026-06-30 08:44 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-30 08:22 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-30 08:40 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-30 08:38 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-30 08:48 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-30 08:51 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-30 08:51 - [董路：谁赢谁是“正路子”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-30 08:40 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-30 08:46 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-30 08:35 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
+- 2026-06-30 08:37 - [德国进球被吹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-30 08:49 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-30 08:31 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
+- 2026-06-30 08:39 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-30 08:30 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-30 08:40 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-30 08:40 - [日耳曼拖拉机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:35 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/445953126.shtml)
-- 2026-06-30 08:21 - [大蒜晒外面被路过女子连盆端走](https://www.blog.kurohicncr.top/Article/details/225697000367.shtml)
-- 2026-06-30 08:37 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](http://www.blog.minike.top/Article/details/44798.shtml)
-- 2026-06-30 08:21 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/989314794995.shtml)
-- 2026-06-30 08:38 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.blog.kurohicncr.top/Article/details/3743975.shtml)
-- 2026-06-30 08:32 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/286375506.shtml)
-- 2026-06-30 08:32 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.minike.top/Article/details/834966947.shtml)
-- 2026-06-30 08:21 - [高考填志愿父亲和女儿产生分歧](http://www.share.minike.top/Article/details/06264.shtml)
-- 2026-06-30 08:28 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](http://www.blog.kurohicncr.top/Article/details/141617.shtml)
-- 2026-06-30 08:29 - [欧洲装一台空调有多难](https://www.blog.kurohicncr.top/Article/details/193696.shtml)
-- 2026-06-30 08:35 - [AI手机进入Agent时代](http://www.share.kurohicncr.top/Article/details/765861.shtml)
-- 2026-06-30 08:34 - [巴西把自己踢晕了](http://www.share.kurohicncr.top/Article/details/251432968.shtml)
-- 2026-06-30 08:30 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/3909139204.shtml)
-- 2026-06-30 08:41 - [巴拉圭点球大战淘汰德国进16强](https://www.share.minike.top/Article/details/7462373970.shtml)
-- 2026-06-30 08:44 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/6281108.shtml)
+- 2026-06-30 08:29 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/697415.shtml)
+- 2026-06-30 08:45 - [日本半场1比0领先巴西](https://www.share.kurohicncr.top/Article/details/49431164.shtml)
+- 2026-06-30 08:38 - [金刚川](https://www.share.kurohicncr.top/Article/details/2015230.shtml)
+- 2026-06-30 08:28 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/02643.shtml)
+- 2026-06-30 08:34 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](https://www.blog.kurohicncr.top/Article/details/7294918.shtml)
+- 2026-06-30 08:43 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/16959196.shtml)
+- 2026-06-30 08:43 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/927664491918.shtml)
+- 2026-06-30 08:46 - [德国vs巴拉圭](https://www.share.minike.top/Article/details/78963231135.shtml)
+- 2026-06-30 08:43 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.minike.top/Article/details/060562946527.shtml)
+- 2026-06-30 08:46 - [F1奥地利站赛后复盘](http://www.blog.kurohicncr.top/Article/details/01083051.shtml)
+- 2026-06-30 08:38 - [德国进球被吹](http://www.blog.minike.top/Article/details/89679198339.shtml)
+- 2026-06-30 08:31 - [覃予萱晋级WTT美国大满贯女单32强](https://www.blog.kurohicncr.top/Article/details/06977635720.shtml)
+- 2026-06-30 08:31 - [上市央企地产商 两年换了三任董事长](http://www.share.minike.top/Article/details/4261390310.shtml)
+- 2026-06-30 08:27 - [日本球迷被强行披上巴西国旗](http://www.share.kurohicncr.top/Article/details/51104739.shtml)
+- 2026-06-30 08:50 - [赛博朋克边缘行者2预告片](http://www.blog.minike.top/Article/details/532668066.shtml)

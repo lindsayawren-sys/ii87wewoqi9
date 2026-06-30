@@ -1,58 +1,49 @@
-# 金价回吐上周涨幅 美国封锁霍尔木兹海峡的计划加剧通胀风险
+# 中国第42次南极考察队“雪龙2”号凯旋
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-通胀担忧升温推动金价下跌，之前美伊和平谈判未果，而且美国打算封锁霍尔木兹海峡，加剧全球能源供应冲击。 金价一度跌2.2%，跌破每盎司4650美元，抹去上周涨幅。在中东地区陷入战争六周之际，美国与伊朗周末举行谈判，但未能达成将脆弱的停火变成持久和平的协议，美国军方表示，它将从美东时间周一上午10点开始封锁霍尔木兹海峡。 石油和天然气价格大涨。美国总统唐纳德·特朗普还表示，美国将拦
+据自然资源部消息，2026年5月18日，“雪龙2”号极地科考破冰船返回国内抵达上海，标志着中国第42次南极考察圆满结束。 本次南极考察由“雪龙”号和“雪龙2”号两船共同保障，2025年11月1日从上海同时出发，“雪龙”号于2026年4月9日返回。“雪龙2”号在完成南极普里兹湾“秋季南大洋生态系统”联合航次任务后，于2026年5月18日返回，历时199天，航程约3.5万海里。 此
 
 ## 正文
 
-通胀担忧升温推动金价下跌，之前美伊和平谈判未果，而且美国打算封锁霍尔木兹海峡，加剧全球能源供应冲击。
+据自然资源部消息，2026年5月18日，“雪龙2”号极地科考破冰船返回国内抵达上海，标志着中国第42次南极考察圆满结束。
 
-金价一度跌2.2%，跌破每盎司4650美元，抹去上周涨幅。
+本次南极考察由“雪龙”号和“雪龙2”号两船共同保障，2025年11月1日从上海同时出发，“雪龙”号于2026年4月9日返回。
 
-在中东地区陷入战争六周之际，美国与伊朗周末举行谈判，但未能达成将脆弱的停火变成持久和平的协议，美国军方表示，它将从美东时间周一上午10点开始封锁霍尔木兹海峡。
+“雪龙2”号在完成南极普里兹湾“秋季南大洋生态系统”联合航次任务后，于2026年5月18日返回，历时199天，航程约3.5万海里。
 
-石油和天然气价格大涨。
-
-美国总统唐纳德·特朗普还表示，美国将拦截任何向伊朗付了通行费以求安全通过霍尔木兹海峡的船只。
-
-霍尔木兹海峡是连接波斯湾和全球市场的海上咽喉要道。
-
-战前，全球五分之一的原油和液化天然气都要经过该海峡。
-
-股指期货下跌，一项美元指数一度上涨逾0.4%，这对以美元计价的黄金不利。
+此次考察由来自国内外125家单位的550名队员组成，在重大项目建设、科研调查监测、自主装备测试应用、国际合作等方面取得了新突破，为我国和国际社会深入研究南极快速变化、有效应对全球气候变化、积极参与南极治理提供了有力支撑。
 
 ## 相关推荐
 
-- 2026-06-30 08:21 - [日本将帅赛后采访纷纷哽咽落泪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-30 08:32 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
-- 2026-06-30 08:28 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-30 08:27 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-30 08:24 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-30 08:31 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-30 08:43 - [杨紫肖战余生请多指教拍立得](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-30 08:28 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-30 08:30 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
-- 2026-06-30 08:24 - [金鹰奖视后提名预测](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
-- 2026-06-30 08:18 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-30 08:39 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-30 08:26 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-30 08:40 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
+- 2026-06-30 08:32 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-30 08:37 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
+- 2026-06-30 08:37 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
+- 2026-06-30 08:35 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-30 08:48 - [德国罚丢3粒点球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-30 08:31 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-30 08:29 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-30 08:29 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
+- 2026-06-30 08:26 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:41 - [孙颖莎王楚钦晋级8强](http://www.share.kurohicncr.top/Article/details/526929.shtml)
-- 2026-06-30 08:19 - [起风了](https://www.share.kurohicncr.top/Article/details/057034803.shtml)
-- 2026-06-30 08:23 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.kurohicncr.top/Article/details/379741662703.shtml)
-- 2026-06-30 08:23 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/620227.shtml)
-- 2026-06-30 08:31 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.kurohicncr.top/Article/details/28571118011.shtml)
-- 2026-06-30 08:29 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/9678810288.shtml)
-- 2026-06-30 08:38 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/48942644013.shtml)
-- 2026-06-30 08:44 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/9187142716.shtml)
-- 2026-06-30 08:19 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/5846131.shtml)
-- 2026-06-30 08:23 - [王源近几年没有路演了](http://www.blog.kurohicncr.top/Article/details/12491285857.shtml)
-- 2026-06-30 08:23 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/327055.shtml)
-- 2026-06-30 08:25 - [花少8要去世界杯举办国](http://www.blog.kurohicncr.top/Article/details/94812.shtml)
-- 2026-06-30 08:41 - [高考结束了，你会让孩子在家玩手机吗？](https://www.blog.kurohicncr.top/Article/details/488832.shtml)
-- 2026-06-30 08:38 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.kurohicncr.top/Article/details/77742.shtml)
-- 2026-06-30 08:26 - [内马尔中场休息积极鼓励队友](http://www.share.minike.top/Article/details/3679872273.shtml)
+- 2026-06-30 08:49 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.minike.top/Article/details/22974.shtml)
+- 2026-06-30 08:37 - [全球最火存储ETF纳入兆易创新](http://www.blog.minike.top/Article/details/021710.shtml)
+- 2026-06-30 08:37 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/807038761.shtml)
+- 2026-06-30 08:39 - [网红峡谷5人溺亡 有人提醒会下雨](http://www.blog.minike.top/Article/details/73604424.shtml)
+- 2026-06-30 08:37 - [日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？](https://www.blog.kurohicncr.top/Article/details/736018182811.shtml)
+- 2026-06-30 08:27 - [巴西绝杀日本](http://www.share.kurohicncr.top/Article/details/24782087518.shtml)
+- 2026-06-30 08:30 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/7783725.shtml)
+- 2026-06-30 08:35 - [世界杯：德国vs巴拉圭](https://www.share.minike.top/Article/details/52525.shtml)
+- 2026-06-30 08:39 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/338662036.shtml)
+- 2026-06-30 08:52 - [美股深夜大反弹 特斯拉飙涨8%](https://www.share.kurohicncr.top/Article/details/175872276.shtml)
+- 2026-06-30 08:45 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/60201274100.shtml)
+- 2026-06-30 08:39 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/235709843197.shtml)
+- 2026-06-30 08:34 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.kurohicncr.top/Article/details/861272.shtml)
+- 2026-06-30 08:46 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/7192679827.shtml)
+- 2026-06-30 08:42 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/098031534.shtml)

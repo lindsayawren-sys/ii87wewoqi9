@@ -1,55 +1,60 @@
-# 关于2026年“全国十佳新闻工作者”推荐人选的公示
+# 百度2026年Q1：总营收321亿元 AI业务占比达52%
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-关于2026年“全国十佳新闻工作者” 推荐人选的公示 根据中国记协《关于开展2026年“全国十佳新闻工作者”宣传选树活动推荐报送工作的通知》精神，经研究确定廖攀、黄钰钦同志为推荐人选。 按照工作要求，现对推荐人选进行公示。公示时间：2026年4月13日至17日。如有异议，请实名反馈至中新社人力资源管理中心。联系电话：010--88311253 传真：010--68315011
+5月18日，百度发布2026年第一季度财报，显示季度总营收321亿元，百度一般性业务收入260亿元，同比增长2%，超出市场预期。其中，AI业务收入136亿元，占百度一般性业务收入的52%，已连续多个季度增长。 “一季度，百度AI业务收入占比首次超过百度一般性业务收入的一半，这表明AI已成为百度的核心驱动力。”百度创始人李彦宏表示，“在企业需求激增和我们多年来建立的差异化全栈AI
 
 ## 正文
 
-关于2026年“全国十佳新闻工作者” 推荐人选的公示 根据中国记协《关于开展2026年“全国十佳新闻工作者”宣传选树活动推荐报送工作的通知》精神，经研究确定廖攀、黄钰钦同志为推荐人选。
+5月18日，百度发布2026年第一季度财报，显示季度总营收321亿元，百度一般性业务收入260亿元，同比增长2%，超出市场预期。
 
-按照工作要求，现对推荐人选进行公示。
+其中，AI业务收入136亿元，占百度一般性业务收入的52%，已连续多个季度增长。
 
-公示时间：2026年4月13日至17日。
+“一季度，百度AI业务收入占比首次超过百度一般性业务收入的一半，这表明AI已成为百度的核心驱动力。
 
-如有异议，请实名反馈至中新社人力资源管理中心。
+”百度创始人李彦宏表示，“在企业需求激增和我们多年来建立的差异化全栈AI能力的推动下，AI云收入增长势头强劲。
 
-联系电话：010--88311253 传真：010--68315011 Email: renshi@chinanews.com.cn 地址：北京市西城区百万庄南街12号 邮编：100037 中国新闻社人力资源管理中心 2026年4月13日 1.廖攀申报材料 2.黄钰钦申报材料
+百度AI应用持续在企业和个人中扩大影响力，进一步验证了百度AI创新的商业潜力。
+
+与此同时，萝卜快跑在全无人驾驶出行单量上保持三位数增长，并持续推进国际化扩张。
+
+我们认为AI将在未来几个季度为百度带来更大价值。
+
+” 全栈AI能力优势凸显 AI云高速增长79% 季度内，百度AI云收入88亿元，同比高速增长79%；GPU云收入同比增长184%。
 
 ## 相关推荐
 
-- 2026-06-30 08:42 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-30 08:31 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-30 08:47 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-30 08:39 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-30 08:26 - [德国淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-30 08:41 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-30 08:40 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-30 08:35 - [男子在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-30 08:31 - [马耳他著名拱门坍塌致中国男子身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-30 08:43 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-30 08:31 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
-- 2026-06-30 08:46 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-30 08:46 - [日本进球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-30 08:34 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
-- 2026-06-30 08:23 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-30 08:45 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-30 08:24 - [现在叛逆期的孩子最怕的是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-30 08:51 - [德国队世界杯点球大战首败](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-30 08:36 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-30 08:51 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-30 08:33 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-30 08:38 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-30 08:48 - [泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-30 08:24 - [莫兰特被交易到开拓者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-30 08:45 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-30 08:32 - [感动全网的699分女生想报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-30 08:33 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-30 08:42 - [女子遭下药退赔偿拟追刑责](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-30 08:44 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:48 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.kurohicncr.top/Article/details/349895.shtml)
-- 2026-06-30 08:29 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/9051637123.shtml)
-- 2026-06-30 08:29 - [美股](https://www.blog.kurohicncr.top/Article/details/1362803.shtml)
-- 2026-06-30 08:45 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.minike.top/Article/details/593008571632.shtml)
-- 2026-06-30 08:43 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.kurohicncr.top/Article/details/452811998324.shtml)
-- 2026-06-30 08:23 - [韩国道歉完日本道歉](https://www.blog.minike.top/Article/details/16092340863.shtml)
-- 2026-06-30 08:32 - [【大鸣王潮1566】真拿你没办法](http://www.blog.minike.top/Article/details/451549.shtml)
-- 2026-06-30 08:35 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/481383.shtml)
-- 2026-06-30 08:31 - [亚洲球队全部告别世界杯](https://www.blog.kurohicncr.top/Article/details/4246640.shtml)
-- 2026-06-30 08:21 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/71967334678.shtml)
-- 2026-06-30 08:32 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/14165662071.shtml)
-- 2026-06-30 08:31 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/5926812.shtml)
-- 2026-06-30 08:41 - [男子在京东买到“同仁堂”假药](https://www.share.kurohicncr.top/Article/details/4337362.shtml)
-- 2026-06-30 08:42 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/50251.shtml)
-- 2026-06-30 08:31 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/9636376846.shtml)
+- 2026-06-30 08:28 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/51111.shtml)
+- 2026-06-30 08:45 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/869236811.shtml)
+- 2026-06-30 08:52 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.minike.top/Article/details/1480670025.shtml)
+- 2026-06-30 08:50 - [如果有二次元高中是什么样子的？](https://www.share.kurohicncr.top/Article/details/44378.shtml)
+- 2026-06-30 08:29 - [毒液2](https://www.blog.minike.top/Article/details/9596549552.shtml)
+- 2026-06-30 08:44 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/591050228.shtml)
+- 2026-06-30 08:46 - [中国新一轮出口管制直指日本命脉](http://www.blog.minike.top/Article/details/898034.shtml)
+- 2026-06-30 08:34 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/36268055.shtml)
+- 2026-06-30 08:30 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/9068325.shtml)
+- 2026-06-30 08:50 - [日本球员说被绝杀非常不甘心](http://www.blog.minike.top/Article/details/50102470069.shtml)
+- 2026-06-30 08:53 - [古代人对纳妾的态度是什么样的？](https://www.share.kurohicncr.top/Article/details/52188.shtml)
+- 2026-06-30 08:40 - [三星投资计划](https://www.blog.kurohicncr.top/Article/details/16326660247.shtml)
+- 2026-06-30 08:36 - [现在叛逆期的孩子最怕的是什么？](http://www.share.kurohicncr.top/Article/details/210251.shtml)
+- 2026-06-30 08:39 - [安切洛蒂 换人](http://www.blog.minike.top/Article/details/3732858914.shtml)
+- 2026-06-30 08:24 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/47136202.shtml)

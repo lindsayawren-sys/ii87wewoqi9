@@ -1,60 +1,50 @@
-# 广西临桂无人机巡防平台联动 解锁智慧警务基层治理新场景
+# 知行科技午前涨超8% 前4月营业收入同比大增162.55%
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-中新网桂林4月10日电(杨宗盛)清晨的广西桂林市临桂区金水路与世纪大道交叉口，早高峰车流如织。市民王女士驾车与他人发生刮擦，焦急报警时，一架警用无人机已悬停上空，高清画面实时传回指挥中心。几分钟后，民警远程完成责任认定，引导双方移车至安全区域。从报警到挪车，全程仅8分钟。 “当时堵在路中间特别无助，没想到无人机处理这么快，几分钟就能挪车了。”王女士事后连声称赞。这起微小事故的快
+知行科技（01274）午前涨超8%，截至发稿，股价上涨8.44%，现报4.24港元，成交额253.42万港元。 知行科技5月18日公告，截至2026年4月30日止四个月，实现营业收入约4亿元，同比大增162.55%；毛利率提升5.68个百分点至9.32%。期内公司产品总销售量同比增长243.3%，累计交付逾14.8万套组合驾驶辅助解决方案及产品，其中自研组合驾驶辅助域控制器及智
 
 ## 正文
 
-中新网桂林4月10日电(杨宗盛)清晨的广西桂林市临桂区金水路与世纪大道交叉口，早高峰车流如织。
+知行科技（01274）午前涨超8%，截至发稿，股价上涨8.44%，现报4.24港元，成交额253.42万港元。
 
-市民王女士驾车与他人发生刮擦，焦急报警时，一架警用无人机已悬停上空，高清画面实时传回指挥中心。
+知行科技5月18日公告，截至2026年4月30日止四个月，实现营业收入约4亿元，同比大增162.55%；毛利率提升5.68个百分点至9.32%。
 
-几分钟后，民警远程完成责任认定，引导双方移车至安全区域。
+期内公司产品总销售量同比增长243.3%，累计交付逾14.8万套组合驾驶辅助解决方案及产品，其中自研组合驾驶辅助域控制器及智能前视摄像头销量分别增长95.6%及460.3%，成为业绩增长的重要引擎。
 
-从报警到挪车，全程仅8分钟。
+其中，首款搭载iDC500域控制器的量产车型——奇瑞iCAR V27车型已于2026年3月正式上市，是公司对地平线征程6系列计算平台应用能力与高效交付的体现。
 
-“当时堵在路中间特别无助，没想到无人机处理这么快，几分钟就能挪车了。
-
-”王女士事后连声称赞。
-
-这起微小事故的快速处置，正是桂林市公安局临桂分局运用无人机提升基层治理效能的日常一幕。
-
-该分局将无人机技术深度嵌入事故处置、巡逻管控等场景，创新“无人机+互联网”小微交通事故快处模式。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 08:45 - [巴西绝杀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-30 08:20 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-30 08:43 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-30 08:21 - [马耳他著名拱门坍塌致一中国男子身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-30 08:36 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-30 08:42 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
-- 2026-06-30 08:19 - [田中碧失误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-30 08:38 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-30 08:25 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-30 08:46 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-30 08:36 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-30 08:34 - [欧洲装一台空调有多难](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-30 08:36 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-30 08:24 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-30 08:39 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-30 08:45 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-30 08:24 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-30 08:30 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-30 08:45 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
+- 2026-06-30 08:53 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-30 08:33 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-30 08:38 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-30 08:35 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-30 08:43 - [全球芯片巨头史诗级扩产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:18 - [德国进球被吹](https://www.share.minike.top/Article/details/833771.shtml)
-- 2026-06-30 08:45 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/394083.shtml)
-- 2026-06-30 08:41 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/120656.shtml)
-- 2026-06-30 08:18 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.minike.top/Article/details/86991723533.shtml)
-- 2026-06-30 08:31 - [二次元提前预演明日巴西对日本](http://www.share.kurohicncr.top/Article/details/167170379877.shtml)
-- 2026-06-30 08:22 - [巴西2-1绝杀日本](http://www.share.minike.top/Article/details/47201267.shtml)
-- 2026-06-30 08:44 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.minike.top/Article/details/24687112.shtml)
-- 2026-06-30 08:34 - [韩国道歉完日本道歉](http://www.blog.kurohicncr.top/Article/details/72771.shtml)
-- 2026-06-30 08:37 - [马耳他著名拱门坍塌致一中国男子身亡](http://www.share.minike.top/Article/details/73431.shtml)
-- 2026-06-30 08:32 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/435731119.shtml)
-- 2026-06-30 08:36 - [内马尔中场休息积极鼓励队友](https://www.share.minike.top/Article/details/8571177117.shtml)
-- 2026-06-30 08:39 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/02589.shtml)
-- 2026-06-30 08:39 - [日本队主帅道歉](http://www.blog.minike.top/Article/details/3493803.shtml)
-- 2026-06-30 08:41 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/46339.shtml)
-- 2026-06-30 08:43 - [杨紫被质疑未使用原名纯属误解](https://www.blog.kurohicncr.top/Article/details/7990323.shtml)
+- 2026-06-30 08:45 - [电影抓特务上映11天破亿](http://www.share.minike.top/Article/details/54227197.shtml)
+- 2026-06-30 08:35 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/0205583.shtml)
+- 2026-06-30 08:24 - [二次元提前预演明日巴西对日本](http://www.share.kurohicncr.top/Article/details/02931381045.shtml)
+- 2026-06-30 08:37 - [巴西2-1绝杀日本](http://www.share.minike.top/Article/details/7790509.shtml)
+- 2026-06-30 08:48 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.minike.top/Article/details/44988.shtml)
+- 2026-06-30 08:33 - [媒体：手机测评该挤挤水分了](http://www.blog.kurohicncr.top/Article/details/864704266.shtml)
+- 2026-06-30 08:44 - [陈幸同晋级WTT美国大满贯女单32强](https://www.share.kurohicncr.top/Article/details/3998051498.shtml)
+- 2026-06-30 08:50 - [德国 传控](https://www.blog.kurohicncr.top/Article/details/8433672.shtml)
+- 2026-06-30 08:41 - [杨紫被质疑未使用原名纯属误解](http://www.blog.kurohicncr.top/Article/details/07837.shtml)
+- 2026-06-30 08:41 - [4000美元是黄金新一轮下跌的开始吗](http://www.share.minike.top/Article/details/157650507.shtml)
+- 2026-06-30 08:30 - [巴西醒醒 这是淘汰赛](http://www.share.kurohicncr.top/Article/details/112698.shtml)
+- 2026-06-30 08:26 - [开电动汽车真的很省钱吗？](http://www.blog.kurohicncr.top/Article/details/8296119.shtml)
+- 2026-06-30 08:39 - [王欣瑜2-1击败科恰雷托](https://www.blog.minike.top/Article/details/865122041737.shtml)
+- 2026-06-30 08:48 - [自然光｜papi酱&窦文涛：驴与跑步机](http://www.share.minike.top/Article/details/533753.shtml)
+- 2026-06-30 08:41 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/144402135.shtml)

@@ -1,59 +1,60 @@
-# 英国将向海湾地区派遣新型拦截导弹
+# 北京出台22项措施优化人才服务与劳动者权益保障
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-英国国防大臣希利表示，英国计划为英军及其海湾地区伙伴采购先进拦截导弹，专门用于对抗伊朗“沙赫德”类攻击无人机。 英国国防部称，首批大量导弹及发射装置将于5月交付，根据协议，更多装备将在六个月内陆续供应。这款名为Skyhammer的新型导弹由剑桥航空航天公司研制，射程超18英里，最高时速逾430英里。 此项宣布正值英国首相斯塔默对海湾地区进行为期三天的访问。尽管起步较晚，英国目前
+中新社北京5月18日电 (记者 陈杭)记者18日从北京市人力资源和社会保障局获悉，该局和北京市人才工作局近日联合发布《人才服务与劳动者权益保障领域2026年全面打造国际一流“北京服务”持续优化营商环境工作方案》，推出七大板块、22方面具体举措，提升企业和劳动者获得感，优化人才服务与劳动者权益保障领域营商环境。根据工作方案，北京将搭建全链条就业创业服务机制。构建就业友好型发展方式
 
 ## 正文
 
-英国国防大臣希利表示，英国计划为英军及其海湾地区伙伴采购先进拦截导弹，专门用于对抗伊朗“沙赫德”类攻击无人机。
+中新社北京5月18日电 (记者 陈杭)记者18日从北京市人力资源和社会保障局获悉，该局和北京市人才工作局近日联合发布《人才服务与劳动者权益保障领域2026年全面打造国际一流“北京服务”持续优化营商环境工作方案》，推出七大板块、22方面具体举措，提升企业和劳动者获得感，优化人才服务与劳动者权益保障领域营商环境。
 
-英国国防部称，首批大量导弹及发射装置将于5月交付，根据协议，更多装备将在六个月内陆续供应。
+根据工作方案，北京将搭建全链条就业创业服务机制。
 
-这款名为Skyhammer的新型导弹由剑桥航空航天公司研制，射程超18英里，最高时速逾430英里。
+构建就业友好型发展方式，制定新就业群体就业友好若干措施。
 
-此项宣布正值英国首相斯塔默对海湾地区进行为期三天的访问。
+在全市布局建设就业服务站点，构建15分钟就业服务圈。
 
-尽管起步较晚，英国目前已成为海湾国家防空领域最主要的外部援助方之一。
+强化创业扶持，鼓励OPC(一人公司)为代表的创业新模式。
 
-自美国和以色列打击伊朗后，伊朗向邻国发射数千枚弹药，海湾国家便一直在寻求新的防空装备供应，相关采购多来自乌克兰及欧洲其他初创企业。
+深挖数字经济就业潜力，年内归集发布1万个优质岗位。
 
-责任编辑：何云
+工作方案提出，北京将构建人力资源服务发展新格局。
+
+编制外国人来京工作指导目录，迭代升级《北京市国际职业资格认可目录》。
 
 ## 相关推荐
 
-- 2026-06-30 08:39 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-30 08:30 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
-- 2026-06-30 08:40 - [王楚钦孙颖莎晋级混双八强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-30 08:29 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-30 08:31 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-30 08:38 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
-- 2026-06-30 08:33 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-30 08:18 - [第3集丨“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-30 08:46 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-30 08:31 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
-- 2026-06-30 08:42 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-30 08:24 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
-- 2026-06-30 08:47 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-30 08:18 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-30 08:33 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-30 08:33 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-30 08:41 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-30 08:27 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-30 08:38 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-30 08:52 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-30 08:50 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-30 08:34 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-30 08:27 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-30 08:45 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-30 08:53 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-30 08:33 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-30 08:24 - [巴西绝杀日本：漫画般结局换了主角](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-30 08:36 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
+- 2026-06-30 08:44 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:23 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/35245229.shtml)
-- 2026-06-30 08:24 - [刘必安等16人非法集资案二审宣判](http://www.share.kurohicncr.top/Article/details/932620.shtml)
-- 2026-06-30 08:37 - [F1奥地利站赛后复盘](https://www.share.minike.top/Article/details/492335471160.shtml)
-- 2026-06-30 08:21 - [德国巴拉圭加时](https://www.share.kurohicncr.top/Article/details/93598.shtml)
-- 2026-06-30 08:26 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/78634.shtml)
-- 2026-06-30 08:47 - [起风了](http://www.share.minike.top/Article/details/665274453.shtml)
-- 2026-06-30 08:18 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/7336335636.shtml)
-- 2026-06-30 08:43 - [iPhone18e曝光](https://www.blog.minike.top/Article/details/812285605.shtml)
-- 2026-06-30 08:27 - [网友写差评被店家“挂”门口避雷](https://www.share.minike.top/Article/details/782228671.shtml)
-- 2026-06-30 08:25 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/0372005.shtml)
-- 2026-06-30 08:27 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/594035.shtml)
-- 2026-06-30 08:33 - [网红峡谷5人溺亡 有人提醒会下雨](http://www.blog.minike.top/Article/details/43917633.shtml)
-- 2026-06-30 08:23 - [建议不要突然完全停止喝咖啡](http://www.blog.minike.top/Article/details/0063826473.shtml)
-- 2026-06-30 08:24 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/371851143.shtml)
-- 2026-06-30 08:31 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/6691121.shtml)
+- 2026-06-30 08:49 - [日本球迷被强行披上巴西国旗](http://www.blog.kurohicncr.top/Article/details/341697972.shtml)
+- 2026-06-30 08:31 - [《名肘探科比》：科比大战裂口女](http://www.share.minike.top/Article/details/421747.shtml)
+- 2026-06-30 08:47 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.minike.top/Article/details/64471.shtml)
+- 2026-06-30 08:30 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/817194483442.shtml)
+- 2026-06-30 08:24 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/99412.shtml)
+- 2026-06-30 08:27 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/51380048.shtml)
+- 2026-06-30 08:33 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/750258.shtml)
+- 2026-06-30 08:31 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://www.share.kurohicncr.top/Article/details/473979.shtml)
+- 2026-06-30 08:24 - [王楚钦孙颖莎晋级混双八强](http://www.share.minike.top/Article/details/23573.shtml)
+- 2026-06-30 08:46 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/6806445328.shtml)
+- 2026-06-30 08:27 - [感动全网的699分女生想报考清华](http://www.share.kurohicncr.top/Article/details/92491.shtml)
+- 2026-06-30 08:52 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.minike.top/Article/details/55504.shtml)
+- 2026-06-30 08:53 - [王源近几年没有路演了](http://www.blog.minike.top/Article/details/829246071.shtml)
+- 2026-06-30 08:36 - [网瘾賊大的阿嬷](http://www.share.kurohicncr.top/Article/details/81229102.shtml)
+- 2026-06-30 08:25 - [开电动汽车真的很省钱吗？](https://www.blog.kurohicncr.top/Article/details/09592.shtml)

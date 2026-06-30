@@ -1,57 +1,59 @@
-# 西班牙首相四年四度访华 中西两国书写“变局中的不变友谊”
+# Vatee万腾:原油高位震荡风险升级
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-中新网4月12日电 春暖花开之际，中国再度迎来远道而来的贵宾。时隔一年，西班牙首相桑切斯再次抵达中国，于4月11日至15日对华进行正式访问。 此访是桑切斯首相自2023年以来第四次到访中国。回望建交半个多世纪的历程，中西双方虽历经国际风云变幻考验，却始终相互尊重、平等相待，为不同历史文化、不同社会制度国家间的友好相处树立了典范，在变乱交织的国际局势中书写出不变的友谊篇章。一图了
+5月18日，国际原油价格延续强势格局，布伦特原油升至110美元上方关键区间，市场情绪明显升温。Vatee万腾分析称，霍尔木兹海峡的航运风险、地缘局势胶着以及部分国家加快战略储备补库，三大因素叠加形成供给端的多重不确定性，市场风险溢价显著回升，多头资金参与度同步上行。 在需求端，全球炼厂开工率维持高位，亚洲消费动能稳健释放，整体需求结构未见明显走弱。Vatee万腾认为，当前油价上
 
 ## 正文
 
-中新网4月12日电 春暖花开之际，中国再度迎来远道而来的贵宾。
+5月18日，国际原油价格延续强势格局，布伦特原油升至110美元上方关键区间，市场情绪明显升温。
 
-时隔一年，西班牙首相桑切斯再次抵达中国，于4月11日至15日对华进行正式访问。
+Vatee万腾分析称，霍尔木兹海峡的航运风险、地缘局势胶着以及部分国家加快战略储备补库，三大因素叠加形成供给端的多重不确定性，市场风险溢价显著回升，多头资金参与度同步上行。
 
-此访是桑切斯首相自2023年以来第四次到访中国。
+在需求端，全球炼厂开工率维持高位，亚洲消费动能稳健释放，整体需求结构未见明显走弱。
 
-回望建交半个多世纪的历程，中西双方虽历经国际风云变幻考验，却始终相互尊重、平等相待，为不同历史文化、不同社会制度国家间的友好相处树立了典范，在变乱交织的国际局势中书写出不变的友谊篇章。
+Vatee万腾认为，当前油价上涨既反映出地缘风险定价，也包含对夏季能源消费旺季的提前布局，多头资金通过远月合约持续加码，市场结构呈现明显的看涨倾向，做空力量有所收敛，趋势性资金流入特征更为清晰，整体情绪偏向乐观。
 
-一图了解中西关系的发展脉络与友好往来历程。
+政策层面，多个产油国正评估额外增产空间，但整体节奏审慎。
 
-(“图览天下”栏目) 文案：冯小妍 设计：王璐瑶 策划及审校：孟湘君 孔庆玲 谷丽萍 文字来源：中国外交部官网、新华社、中新网等
+多位市场参与者表示，OPEC+对当下油价回升保持观察态度，强调任何政策调整都将与库存与需求数据高度挂钩，短期内大幅增产的概率相对有限，供需平衡的微妙状态有望延续。
+
+Vatee万腾提醒，原油市场对突发地缘消息高度敏感，单日波幅可能超出常规预期。
+
+预计短线油价仍将围绕高位震荡运行，做好仓位控制与跨品种对冲将有助于穿越情绪极端阶段的市场噪音，规避过度暴露风险，避免在情绪高点追多有助于守住稳健节奏。
 
 ## 相关推荐
 
-- 2026-06-30 08:25 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-30 08:30 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-30 08:20 - [德国队连续三届世界杯无缘16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
-- 2026-06-30 08:25 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-30 08:37 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-30 08:47 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-30 08:30 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-30 08:32 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
-- 2026-06-30 08:46 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
-- 2026-06-30 08:32 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-30 08:36 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
-- 2026-06-30 08:28 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-30 08:46 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-30 08:23 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-30 08:22 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-30 08:46 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-30 08:33 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-30 08:32 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-30 08:36 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
+- 2026-06-30 08:33 - [大蒜晒外面被路过女子连盆端走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
+- 2026-06-30 08:42 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-30 08:26 - [第3集丨“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
+- 2026-06-30 08:39 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-30 08:39 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-30 08:37 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-30 08:46 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-30 08:29 - [库尼亚赛后伸五指嘲讽日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-30 08:50 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:44 - [诺伊尔尽力了](http://www.share.kurohicncr.top/Article/details/755186800403.shtml)
-- 2026-06-30 08:42 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/87304891.shtml)
-- 2026-06-30 08:33 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/727742.shtml)
-- 2026-06-30 08:21 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/7096038835.shtml)
-- 2026-06-30 08:40 - [杨紫大银幕成绩单如何](http://www.blog.kurohicncr.top/Article/details/696527354.shtml)
-- 2026-06-30 08:29 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/7795289.shtml)
-- 2026-06-30 08:35 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/46427415.shtml)
-- 2026-06-30 08:24 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/54036.shtml)
-- 2026-06-30 08:27 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.kurohicncr.top/Article/details/17078353.shtml)
-- 2026-06-30 08:34 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/462584.shtml)
-- 2026-06-30 08:46 - [内马尔替补](http://www.share.minike.top/Article/details/355596.shtml)
-- 2026-06-30 08:46 - [王曼昱被突如其来的话筒逗笑了](https://www.share.kurohicncr.top/Article/details/16091794933.shtml)
-- 2026-06-30 08:39 - [媒体评泰山建135公里刀片刺绳隔离网](https://www.share.kurohicncr.top/Article/details/04242950733.shtml)
-- 2026-06-30 08:32 - [王欣瑜连续4年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/16490289144.shtml)
-- 2026-06-30 08:34 - [人类...完蛋了...](https://www.blog.minike.top/Article/details/6855137.shtml)
+- 2026-06-30 08:33 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/0736248.shtml)
+- 2026-06-30 08:43 - [老外对中国cosplay竟这样评价…](https://www.share.minike.top/Article/details/62451544.shtml)
+- 2026-06-30 08:45 - [巴西半场0比1日本](https://www.share.minike.top/Article/details/53205500.shtml)
+- 2026-06-30 08:46 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/75204423366.shtml)
+- 2026-06-30 08:51 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/996802651358.shtml)
+- 2026-06-30 08:28 - [德国队世界杯点球大战首败](https://www.blog.kurohicncr.top/Article/details/60825646.shtml)
+- 2026-06-30 08:49 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/432201.shtml)
+- 2026-06-30 08:51 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/41693357.shtml)
+- 2026-06-30 08:25 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/7497731.shtml)
+- 2026-06-30 08:31 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/54782102.shtml)
+- 2026-06-30 08:53 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/32780199224.shtml)
+- 2026-06-30 08:47 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/23833177391.shtml)
+- 2026-06-30 08:50 - [沙丘](http://www.share.minike.top/Article/details/895259204405.shtml)
+- 2026-06-30 08:30 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/1115342513.shtml)
+- 2026-06-30 08:28 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/445722160.shtml)

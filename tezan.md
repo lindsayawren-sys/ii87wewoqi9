@@ -1,54 +1,59 @@
-# 迅策早盘大涨超17%盘中创新高 与深数所正式签署战略合作协议
+# 外交部介绍普京访华相关安排
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-迅策（03317）早盘大涨超22%，高见382.80港元，再度刷新上市新高，截至发稿，股价上涨17.23%，现报363.40港元，成交额13.64亿港元。 4月12日，迅策科技宣布与深圳数据交易所正式签署战略合作协议。根据协议，双方将在三方面展开合作：一是联合推动企业数智化转型；二是共建数据资产化与入表服务体系；三是打造具身智能数据规范体系，覆盖智能机器人、自动驾驶、智能终端等
+5月18日，外交部发言人郭嘉昆主持例行记者会。有记者问，中方前天发布了普京总统将对中国进行国事访问的消息，能否具体介绍此访有关安排？中方对普京总统此访有什么期待？中方如何评价当前中俄关系？ 郭嘉昆表示，这将是普京总统第二十五次到访中国。访问期间，两国元首将就双边关系、各领域合作以及共同关心的国际地区问题交换意见。责任编辑：刘万里 SF014
 
 ## 正文
 
-迅策（03317）早盘大涨超22%，高见382.80港元，再度刷新上市新高，截至发稿，股价上涨17.23%，现报363.40港元，成交额13.64亿港元。
+5月18日，外交部发言人郭嘉昆主持例行记者会。
 
-4月12日，迅策科技宣布与深圳数据交易所正式签署战略合作协议。
+有记者问，中方前天发布了普京总统将对中国进行国事访问的消息，能否具体介绍此访有关安排？
 
-根据协议，双方将在三方面展开合作：一是联合推动企业数智化转型；二是共建数据资产化与入表服务体系；三是打造具身智能数据规范体系，覆盖智能机器人、自动驾驶、智能终端等场景。
+中方对普京总统此访有什么期待？
 
-此次合作标志着公司正在从“数据治理”向“垂类Token精炼”延伸，为AI推理时代的高质量数据供给提供基础设施支撑。
+中方如何评价当前中俄关系？
 
-公开资料显示，迅策科技深耕实时数据基础设施领域十余年，以AI Data Agent为核心，构建了从数据获取、清洗、标准化、实时计算到模型调优的全链路技术体系。
+郭嘉昆表示，这将是普京总统第二十五次到访中国。
 
-2025年，公司营收同比增长103%至12.83亿元，多元化行业收入占比提升至80%，ARPU从272万元跃升至559万元。
+访问期间，两国元首将就双边关系、各领域合作以及共同关心的国际地区问题交换意见。
 
-责任编辑：卢昱君
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-30 08:41 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-30 08:20 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
-- 2026-06-30 08:24 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-30 08:22 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
-- 2026-06-30 08:41 - [日本博主：日本足球真的垃圾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
-- 2026-06-30 08:36 - [曝老詹对自由市场态度与以往截然不同](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-30 08:43 - [欧洲装一台空调有多难](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-30 08:29 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
-- 2026-06-30 08:28 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
-- 2026-06-30 08:21 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-30 08:40 - [杨紫学位证上就是杨紫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-30 08:48 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-30 08:53 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
+- 2026-06-30 08:29 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
+- 2026-06-30 08:31 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-30 08:44 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-30 08:37 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-30 08:39 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-30 08:32 - [郑钦文温网首轮出局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-30 08:44 - [巴西足球能否再现昔日荣光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-30 08:24 - [存储芯片龙头提示风险](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-30 08:41 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-30 08:36 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-30 08:24 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-30 08:34 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:30 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/94904521180.shtml)
-- 2026-06-30 08:47 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/52901517672.shtml)
-- 2026-06-30 08:41 - [这种关系可能正在悄悄“催老”你](https://www.blog.kurohicncr.top/Article/details/620240509518.shtml)
-- 2026-06-30 08:35 - [【大鸣王潮1566】真拿你没办法](https://www.share.kurohicncr.top/Article/details/83043364.shtml)
-- 2026-06-30 08:24 - [青春环游记第三季](https://www.share.minike.top/Article/details/87535233.shtml)
-- 2026-06-30 08:27 - [毒液2](http://www.blog.kurohicncr.top/Article/details/585731635.shtml)
-- 2026-06-30 08:25 - [天道](https://www.blog.kurohicncr.top/Article/details/479167329906.shtml)
-- 2026-06-30 08:24 - [田中碧失误](https://www.share.minike.top/Article/details/665896372.shtml)
-- 2026-06-30 08:18 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.minike.top/Article/details/8298466621.shtml)
-- 2026-06-30 08:46 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/136922240264.shtml)
-- 2026-06-30 08:41 - [时光音乐会](https://www.share.minike.top/Article/details/2310156013.shtml)
-- 2026-06-30 08:31 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/8945729731.shtml)
-- 2026-06-30 08:23 - [徐亮怒斥世界杯踢假球](http://www.share.kurohicncr.top/Article/details/50949574597.shtml)
-- 2026-06-30 08:37 - [日本队5进世界杯淘汰赛0胜](https://www.blog.minike.top/Article/details/96623.shtml)
-- 2026-06-30 08:41 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/61171507440.shtml)
+- 2026-06-30 08:48 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/177274.shtml)
+- 2026-06-30 08:43 - [千与千寻](http://www.share.minike.top/Article/details/9441392.shtml)
+- 2026-06-30 08:35 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](http://www.blog.kurohicncr.top/Article/details/66463.shtml)
+- 2026-06-30 08:51 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.minike.top/Article/details/8457612765.shtml)
+- 2026-06-30 08:26 - [三星投资计划](https://www.blog.kurohicncr.top/Article/details/27271589196.shtml)
+- 2026-06-30 08:35 - [网红峡谷5人溺亡 有人提醒会下雨](https://www.blog.kurohicncr.top/Article/details/336966359684.shtml)
+- 2026-06-30 08:36 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/135931.shtml)
+- 2026-06-30 08:33 - [全球最火存储ETF纳入兆易创新](https://www.blog.kurohicncr.top/Article/details/1899145095.shtml)
+- 2026-06-30 08:52 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/9092102413.shtml)
+- 2026-06-30 08:36 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/13806765.shtml)
+- 2026-06-30 08:46 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.minike.top/Article/details/42330.shtml)
+- 2026-06-30 08:28 - [巴西醒醒 这是淘汰赛](http://www.blog.kurohicncr.top/Article/details/4356167628.shtml)
+- 2026-06-30 08:45 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](https://www.share.kurohicncr.top/Article/details/147767373.shtml)
+- 2026-06-30 08:32 - [“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/98678.shtml)
+- 2026-06-30 08:30 - [巴西绝杀日本](https://www.share.minike.top/Article/details/03546000.shtml)

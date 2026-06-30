@@ -1,56 +1,59 @@
-# 川渝“校园之春”活动在重庆举行 45年来累计超千万人次参与
+# 山西启动“5·19中国旅游日”主题活动 多措并举推动文旅产业提质升级
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-中新网重庆4月12日电 (梁钦卿)第45届川渝“校园之春”文化艺术体育科技活动推介发布暨“红岩新青年”大学生思政课11日在合川举办，部分高校团委负责同志、青年师生代表及社会观众等4800余人现场参加活动。 本届“校园之春”活动立足长江经济带发展战略实施十周年重要节点，在传承经典的基础上持续创新，进一步优化升级赛事体系，将举办团干部素质能力大赛、辅导员素质能力大赛、歌唱大赛、街舞
+中新网晋中5月19日电 (刘小红)2026年“5·19中国旅游日”山西启动仪式暨全省文旅惠民发布活动18日在晋中市榆次老城启幕。此次活动以“乐享品质旅游、共赴美好山河”为主题，以门票优惠、沉浸式民俗表演、互动游戏、惠民礼包发放等多元形式，开展各类文旅活动，激活全省文旅消费市场。 活动开场前，老城街巷间已是一番热闹景象，工作人员安排身着传统服饰的非玩家角色(NPC)在榆次老城街巷
 
 ## 正文
 
-中新网重庆4月12日电 (梁钦卿)第45届川渝“校园之春”文化艺术体育科技活动推介发布暨“红岩新青年”大学生思政课11日在合川举办，部分高校团委负责同志、青年师生代表及社会观众等4800余人现场参加活动。
+中新网晋中5月19日电 (刘小红)2026年“5·19中国旅游日”山西启动仪式暨全省文旅惠民发布活动18日在晋中市榆次老城启幕。
 
-本届“校园之春”活动立足长江经济带发展战略实施十周年重要节点，在传承经典的基础上持续创新，进一步优化升级赛事体系，将举办团干部素质能力大赛、辅导员素质能力大赛、歌唱大赛、街舞大赛、篮球大赛、电竞大赛、机器人大赛、机甲大师联盟赛、“挑战杯”创业计划竞赛等赛事活动，促进学生德智体美劳全面发展，不断构建“红岩新青年”高校大思政体系。
+此次活动以“乐享品质旅游、共赴美好山河”为主题，以门票优惠、沉浸式民俗表演、互动游戏、惠民礼包发放等多元形式，开展各类文旅活动，激活全省文旅消费市场。
 
-“‘校园之春’见证了我的成长，也见证了一届届职教人的梦想接力。
+活动开场前，老城街巷间已是一番热闹景象，工作人员安排身着传统服饰的非玩家角色(NPC)在榆次老城街巷与游客互动、合影，烘托活动氛围。
 
-”第26届“校园之春”数控技能大赛一等奖获得者、重庆工业职业技术大学机械工程学院高级实验师韩辉辉说，对他而言，校园之春不仅是荣誉，更是学生们成长锻炼收获自信的舞台。
+当日16时，活动正式启动。
 
-“新时代需要大国工匠，新征程呼唤工匠精神，我将和学生们一起以匠心铸就梦想，用技能报效国家，贡献职教人的青春力量。
+活动现场发布了2026年“5·19中国旅游日”山西省景区惠民政策。
 
-” 第34届“校园之春”高校学生干部“说·写·行”风采大赛一等奖获得者邱新园如今已投身公安工作，扎根反诈一线。
+据介绍，5月19日，山西省多家A级景区对全国游客实行半价、免首道门票等优惠，政策覆盖洪洞大槐树、王莽岭等景区，游客可畅游大美山西，打卡壮丽的表里山河。
 
-她说，一路走来，“校园之春”这个舞台不仅褪去了她的胆怯，赋予她从容自信，更照亮她成长的道路。
+与此同时，山西多地景区同步推出风筝露营节、草坪音乐会、红色潮玩互动体验等主题活动和文艺汇演，全省同频共振，营造了浓厚的旅游氛围。
 
-当年在赛场上沉淀的表达能力、抗压底气，陪着她从校园走向岗位，成为守护平安、履职担当的勇气和力量。
+活动现场，左权小花戏舞蹈带来原汁原味的民俗表演，一招一式尽显传统文化的独特魅力。
 
 ## 相关推荐
 
-- 2026-06-30 08:47 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-30 08:43 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-30 08:41 - [董路：谁赢谁是“正路子”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
-- 2026-06-30 08:40 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-30 08:43 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-30 08:40 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
-- 2026-06-30 08:25 - [网友写差评被店家“挂”门口避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-30 08:22 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
-- 2026-06-30 08:34 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
-- 2026-06-30 08:33 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
+- 2026-06-30 08:29 - [董路：谁赢谁是“正路子”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-30 08:24 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-30 08:36 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-30 08:51 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
+- 2026-06-30 08:30 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-30 08:32 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-30 08:43 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-30 08:31 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-30 08:25 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-30 08:53 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-30 08:47 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-30 08:43 - [德国巴拉圭 折磨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-30 08:39 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:34 - [金牌调解](https://www.share.kurohicncr.top/Article/details/275754455028.shtml)
-- 2026-06-30 08:31 - [爆冷出局！德国点球大战不敌巴拉圭](http://www.blog.minike.top/Article/details/025128.shtml)
-- 2026-06-30 08:42 - [董卿父亲报纸上发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/95201.shtml)
-- 2026-06-30 08:35 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/6992898.shtml)
-- 2026-06-30 08:31 - [德国巴拉圭 折磨](https://www.blog.kurohicncr.top/Article/details/99618906036.shtml)
-- 2026-06-30 08:39 - [81岁老人被男子买光菜回家车祸去世](http://www.share.kurohicncr.top/Article/details/378504826507.shtml)
-- 2026-06-30 08:20 - [恋与深空制作组回应近期争议](http://www.blog.minike.top/Article/details/65665580309.shtml)
-- 2026-06-30 08:43 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/148774623377.shtml)
-- 2026-06-30 08:18 - [巴西把自己踢晕了](https://www.share.minike.top/Article/details/22892.shtml)
-- 2026-06-30 08:46 - [穆祉丞年度人气艺人](http://www.share.kurohicncr.top/Article/details/13617322.shtml)
-- 2026-06-30 08:36 - [恋与深空制作组回应近期争议](http://www.blog.minike.top/Article/details/7991956152.shtml)
-- 2026-06-30 08:45 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/374606.shtml)
-- 2026-06-30 08:45 - [亚洲球队全部告别世界杯](http://www.share.minike.top/Article/details/68384684436.shtml)
-- 2026-06-30 08:28 - [日本将帅赛后采访纷纷哽咽落泪](http://www.blog.minike.top/Article/details/9920275543.shtml)
-- 2026-06-30 08:21 - [我觉得你是在无中生友](http://www.share.kurohicncr.top/Article/details/253214833786.shtml)
+- 2026-06-30 08:25 - [第一炉香](http://www.blog.minike.top/Article/details/615735498876.shtml)
+- 2026-06-30 08:41 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/71854562106.shtml)
+- 2026-06-30 08:49 - [日本博主：日本足球真的垃圾](https://www.share.minike.top/Article/details/02854406.shtml)
+- 2026-06-30 08:52 - [森保一致歉：世界第一目标没能实现](https://www.share.minike.top/Article/details/702035379.shtml)
+- 2026-06-30 08:43 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/051373.shtml)
+- 2026-06-30 08:51 - [王灿兮被烫伤两年后维权成功](https://www.blog.kurohicncr.top/Article/details/67559.shtml)
+- 2026-06-30 08:33 - [吴易昺不敌德约科维奇 止步温网首轮](http://www.share.kurohicncr.top/Article/details/236503307269.shtml)
+- 2026-06-30 08:44 - [点球大战 残酷](http://www.share.kurohicncr.top/Article/details/8116698767.shtml)
+- 2026-06-30 08:37 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.kurohicncr.top/Article/details/639844008.shtml)
+- 2026-06-30 08:49 - [孙兴慜发长文致歉](http://www.blog.minike.top/Article/details/079640.shtml)
+- 2026-06-30 08:27 - [巴西足球能否再现昔日荣光](https://www.blog.minike.top/Article/details/88900868190.shtml)
+- 2026-06-30 08:33 - [日耳曼拖拉机](http://www.blog.kurohicncr.top/Article/details/88034624.shtml)
+- 2026-06-30 08:41 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/2257558.shtml)
+- 2026-06-30 08:45 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.share.minike.top/Article/details/066804488160.shtml)
+- 2026-06-30 08:42 - [世界杯欧洲队7战南美仅1胜](https://www.share.minike.top/Article/details/9536261674.shtml)

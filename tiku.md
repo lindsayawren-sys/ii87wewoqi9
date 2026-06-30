@@ -1,53 +1,58 @@
-# 中国正计划向伊朗提供武器？外交部：反对无根据的抹黑或恶意关联
+# *ST华微成功“摘星脱帽”，曾被监管处罚索赔征集中
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-澎湃新闻记者 杨文钦 朱郑勇 4月13日，外交部发言人郭嘉昆主持例行记者会。彭博社记者提问，有报道称“中国正计划向伊朗提供武器”、“中国已经向伊朗提供军民两用技术和相关组件”，中方对此有何回应？ 对此，郭嘉昆表示，中国在军品出口方面一贯采取慎重负责任态度，根据本国出口管制法律法规及承担的国际义务实施严格管控。我们反对无根据的抹黑或恶意关联。责任编辑：刘万里 SF014
+登录新浪财经APP 搜索【信披】查看更多考评等级 股价曾因濒临退市而跌入谷底的*ST华微（维权）于5月18日公告称，公司股票将于5月19日停牌一天，自5月20日起复牌并撤销退市风险警示及其他风险警示。 这一纸公告，标志着这家功率半导体龙头企业在经历了审计“非标”、巨额资金占用、监管处罚等一系列危机后，正在重回正轨。 华微电子的危机爆发于2024年。因2023年度内部控制被出具否
 
 ## 正文
 
-澎湃新闻记者 杨文钦 朱郑勇 4月13日，外交部发言人郭嘉昆主持例行记者会。
+登录新浪财经APP 搜索【信披】查看更多考评等级 股价曾因濒临退市而跌入谷底的*ST华微（维权）于5月18日公告称，公司股票将于5月19日停牌一天，自5月20日起复牌并撤销退市风险警示及其他风险警示。
 
-彭博社记者提问，有报道称“中国正计划向伊朗提供武器”、“中国已经向伊朗提供军民两用技术和相关组件”，中方对此有何回应？
+这一纸公告，标志着这家功率半导体龙头企业在经历了审计“非标”、巨额资金占用、监管处罚等一系列危机后，正在重回正轨。
 
-对此，郭嘉昆表示，中国在军品出口方面一贯采取慎重负责任态度，根据本国出口管制法律法规及承担的国际义务实施严格管控。
+华微电子的危机爆发于2024年。
 
-我们反对无根据的抹黑或恶意关联。
+因2023年度内部控制被出具否定意见的审计报告，公司股票于2024年5月6日起被“ST”。
 
-责任编辑：刘万里 SF014
+随后因2024年度财务报告被出具“无法表示意见”，公司股票变更为*ST华微，面临退市边缘。
+
+那段时间，公司曝出存在资金占用问题。
+
+2025年，在监管层的强力介入下，控股股东上海鹏盛科技实业有限公司终于开始归还占用的资金。
+
+根据公告，2025年8月，在监管的强力介入下公司清收了全部被控股股东及其关联方占用的资金及利息，合计高达15.67亿元。
 
 ## 相关推荐
 
-- 2026-06-30 08:31 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-30 08:36 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-30 08:23 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
-- 2026-06-30 08:24 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-30 08:44 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
-- 2026-06-30 08:39 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-30 08:45 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-30 08:45 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-30 08:38 - [库尼亚赛后伸五指嘲讽日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
-- 2026-06-30 08:46 - [点球大战 残酷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
-- 2026-06-30 08:22 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
-- 2026-06-30 08:38 - [亚洲球队全部出局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-30 08:31 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-30 08:29 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-30 08:45 - [孙颖莎王楚钦晋级8强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-30 08:37 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-30 08:33 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-30 08:36 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
+- 2026-06-30 08:52 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-30 08:31 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-30 08:46 - [日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-30 08:46 - [诺伊尔尽力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
+- 2026-06-30 08:37 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-30 08:51 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-30 08:27 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:43 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/9426428617.shtml)
-- 2026-06-30 08:45 - [免费试吃发差评被店家挂店门避雷](https://www.blog.minike.top/Article/details/595698.shtml)
-- 2026-06-30 08:38 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/242945615.shtml)
-- 2026-06-30 08:29 - [世界杯：德国vs巴拉圭](https://www.blog.kurohicncr.top/Article/details/85080587400.shtml)
-- 2026-06-30 08:47 - [张月感谢了每一公的队友](http://www.share.minike.top/Article/details/3227306.shtml)
-- 2026-06-30 08:31 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/76278097.shtml)
-- 2026-06-30 08:47 - [曝詹姆斯即将与勇士会面](https://www.blog.minike.top/Article/details/889363.shtml)
-- 2026-06-30 08:45 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.kurohicncr.top/Article/details/418468368900.shtml)
-- 2026-06-30 08:44 - [孙颖莎王楚钦晋级8强](https://www.blog.minike.top/Article/details/854674224901.shtml)
-- 2026-06-30 08:46 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.minike.top/Article/details/016852776.shtml)
-- 2026-06-30 08:40 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/899791610.shtml)
-- 2026-06-30 08:33 - [日本五次世界杯淘汰赛全败](https://www.share.kurohicncr.top/Article/details/0085526.shtml)
-- 2026-06-30 08:35 - [武磊：日本队有能力跟任何强队抗衡](http://www.share.kurohicncr.top/Article/details/298978640.shtml)
-- 2026-06-30 08:45 - [沙丘](https://www.blog.kurohicncr.top/Article/details/718131531.shtml)
-- 2026-06-30 08:41 - [锐评T1战胜KC](http://www.share.kurohicncr.top/Article/details/93105.shtml)
+- 2026-06-30 08:44 - [内马尔中场休息积极鼓励队友](http://www.share.minike.top/Article/details/35088.shtml)
+- 2026-06-30 08:38 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/25100126490.shtml)
+- 2026-06-30 08:38 - [孙兴慜发长文致歉](https://www.share.kurohicncr.top/Article/details/8992915.shtml)
+- 2026-06-30 08:44 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/247192606.shtml)
+- 2026-06-30 08:26 - [三星投资计划](http://www.blog.minike.top/Article/details/5684540.shtml)
+- 2026-06-30 08:52 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.share.minike.top/Article/details/064956.shtml)
+- 2026-06-30 08:27 - [德国巴拉圭进入点球大战](http://www.blog.kurohicncr.top/Article/details/2327118776.shtml)
+- 2026-06-30 08:52 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/694479710790.shtml)
+- 2026-06-30 08:25 - [巴西把自己踢晕了](http://www.blog.kurohicncr.top/Article/details/0030397063.shtml)
+- 2026-06-30 08:32 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/3916959897.shtml)
+- 2026-06-30 08:35 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/685980426234.shtml)
+- 2026-06-30 08:28 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](http://www.share.kurohicncr.top/Article/details/005840.shtml)
+- 2026-06-30 08:29 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/97748.shtml)
+- 2026-06-30 08:44 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/80253312848.shtml)
+- 2026-06-30 08:45 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/683234001.shtml)

@@ -1,44 +1,60 @@
-# 伊美即将举行第三轮会谈
+# 自贸离岸债发行又有新突破，交行首次引入FTU投资者
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-专题：美伊谈判最新进展 据伊朗方面11日晚消息，伊美谈判代表团已在巴基斯坦首都伊斯兰堡完成两轮会谈，第三轮会谈仍定于当晚举行。 责任编辑：李桐
+自贸离岸债又传新消息。 第一财经从交通银行获悉，近日，该行落地全球首单引入自贸区分账核算单元（FTU）投资者的上海自贸离岸债。此次发行由交通银行香港分行作为发行人，发行规模为6亿元人民币，期限364天，票面利率1.65%，由银行间市场清算所股份有限公司（上海清算所）提供登记托管服务。 据介绍，首次引入FTU投资者，是此次发行最核心的突破，打通了上海自贸区FT账户体系与自贸离岸债
 
 ## 正文
 
-专题：美伊谈判最新进展 据伊朗方面11日晚消息，伊美谈判代表团已在巴基斯坦首都伊斯兰堡完成两轮会谈，第三轮会谈仍定于当晚举行。
+自贸离岸债又传新消息。
 
-责任编辑：李桐
+第一财经从交通银行获悉，近日，该行落地全球首单引入自贸区分账核算单元（FTU）投资者的上海自贸离岸债。
+
+此次发行由交通银行香港分行作为发行人，发行规模为6亿元人民币，期限364天，票面利率1.65%，由银行间市场清算所股份有限公司（上海清算所）提供登记托管服务。
+
+据介绍，首次引入FTU投资者，是此次发行最核心的突破，打通了上海自贸区FT账户体系与自贸离岸债市场的资金通道。
+
+所谓FTU，是境内金融机构为开展离岸业务和投资，在银行内部开立的自贸专用账务核算体系。
+
+此前，自贸离岸债投资者仅限于纯境外机构，此次除了来自中国香港、中国澳门、新加坡等地的境外优质投资人，FTU投资者的加入首次实现了境内金融机构通过合法渠道参与自贸离岸债市场，形成了“境外资金+FTU资金”双轮驱动的投资者结构，为FT账户体系内沉淀的离岸人民币资金提供了新的投资渠道。
+
+业内人士认为，FTU投资者的加入显著扩大了投资者基础，境内金融机构对中资发行主体的信用状况更加了解，能够提供更合理的定价，有助于形成更加连续、有效的自贸离岸债收益率曲线；同时，也有利于中资金融机构积累离岸市场投资经验，提升全球资产配置能力，进而推动上海国际金融中心建设，增强上海在全球离岸人民币市场的定价权。
+
+资金仍然严格遵循“两头在外”原则，全部来自境外，用于境外用途，形成真正的离岸资金循环。
 
 ## 相关推荐
 
-- 2026-06-30 08:40 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-30 08:24 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-30 08:24 - [男子在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-30 08:22 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-30 08:33 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-30 08:18 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
-- 2026-06-30 08:39 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-30 08:35 - [德国巴拉圭进入点球大战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-30 08:41 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-30 08:18 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-30 08:31 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-30 08:37 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-30 08:51 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-30 08:29 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-30 08:46 - [德国队连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-30 08:48 - [巴西足球能否再现昔日荣光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-30 08:49 - [女子遭下药退赔偿拟追刑责](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-30 08:30 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
+- 2026-06-30 08:29 - [德国 传控](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-30 08:51 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-30 08:53 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-30 08:25 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-30 08:38 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-30 08:28 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:30 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/578183440.shtml)
-- 2026-06-30 08:43 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.kurohicncr.top/Article/details/8750529.shtml)
-- 2026-06-30 08:24 - [免费试吃发差评被店家挂店门避雷](http://www.share.minike.top/Article/details/63293.shtml)
-- 2026-06-30 08:35 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/81951692597.shtml)
-- 2026-06-30 08:20 - [武磊：巴西队赢的并不轻松](https://www.share.minike.top/Article/details/12389805648.shtml)
-- 2026-06-30 08:30 - [德国淘汰](http://www.blog.minike.top/Article/details/47734565.shtml)
-- 2026-06-30 08:38 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/314256928261.shtml)
-- 2026-06-30 08:27 - [金刚川](http://www.share.kurohicncr.top/Article/details/7910438.shtml)
-- 2026-06-30 08:18 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/3083910233.shtml)
-- 2026-06-30 08:28 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/96662421.shtml)
-- 2026-06-30 08:32 - [日本将帅赛后采访纷纷哽咽落泪](https://www.share.kurohicncr.top/Article/details/932379146.shtml)
-- 2026-06-30 08:24 - [【大鸣王潮1566】真拿你没办法](https://www.share.kurohicncr.top/Article/details/75376.shtml)
-- 2026-06-30 08:37 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://www.share.kurohicncr.top/Article/details/637659176.shtml)
-- 2026-06-30 08:20 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/55727256.shtml)
-- 2026-06-30 08:28 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/617939280797.shtml)
+- 2026-06-30 08:46 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/684556.shtml)
+- 2026-06-30 08:49 - [存储芯片龙头提示风险](https://www.share.kurohicncr.top/Article/details/939951.shtml)
+- 2026-06-30 08:42 - [第3集丨“柠檬茶能换怀表？”](http://www.blog.kurohicncr.top/Article/details/29092661.shtml)
+- 2026-06-30 08:49 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/0151768977.shtml)
+- 2026-06-30 08:41 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/4638466.shtml)
+- 2026-06-30 08:30 - [4000美元是黄金新一轮下跌的开始吗](https://www.blog.kurohicncr.top/Article/details/17816737.shtml)
+- 2026-06-30 08:25 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/74927088297.shtml)
+- 2026-06-30 08:41 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/0589588.shtml)
+- 2026-06-30 08:35 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://www.blog.minike.top/Article/details/92417104709.shtml)
+- 2026-06-30 08:32 - [马耳他著名拱门坍塌致中国男子身亡](http://www.blog.minike.top/Article/details/35871989.shtml)
+- 2026-06-30 08:33 - [国务院：稳步推进研究生考试招生改革](https://www.blog.minike.top/Article/details/78621429268.shtml)
+- 2026-06-30 08:41 - [千香](https://www.share.minike.top/Article/details/4439248.shtml)
+- 2026-06-30 08:37 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](http://www.share.minike.top/Article/details/641598604.shtml)
+- 2026-06-30 08:41 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.minike.top/Article/details/012419.shtml)
+- 2026-06-30 08:38 - [卢卡申科发布解放军仪仗队视频](https://www.blog.kurohicncr.top/Article/details/45826.shtml)

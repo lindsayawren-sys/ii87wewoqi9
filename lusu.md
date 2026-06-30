@@ -1,50 +1,59 @@
-# 双登股份早盘涨超7% 公司决定投资建设12GWh半固态AIDC储能电芯项目
+# 电科数字“蹭热点”被罚300万，受损投资者可索赔
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-双登股份（06960）早盘涨超8%，截至发稿，股价上涨7.25%，现报14.49港元，成交额1166.799万港元。 双登股份公布，公司与江苏盱眙管委会订立协议，据此，公司将在江苏盱眙经济开发区建设并布局年产12GWh半固态人工智能数据中心（AIDC）储能电芯及系统集成项目，投资计划将由公司逐步实施。 公告称，公司新型电力储能业务于2025年录得收入同比大幅增长，接近翻倍，市场
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！2026年5月16日，电科数字（维权）发布公告称，公司及相关当事人收到上海证监局下发的《行政处罚事先告知书》。因在投资者互动平台发布关于子公司涉及“卫星互联网”业务的不准确、不完整信息，涉嫌构成误导性陈述，公司及董秘拟被合计罚款300万元。 上海沪紫律师事务所刘鹏律师表示依据相关法律法规符合于2025年12
 
 ## 正文
 
-双登股份（06960）早盘涨超8%，截至发稿，股价上涨7.25%，现报14.49港元，成交额1166.799万港元。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-双登股份公布，公司与江苏盱眙管委会订立协议，据此，公司将在江苏盱眙经济开发区建设并布局年产12GWh半固态人工智能数据中心（AIDC）储能电芯及系统集成项目，投资计划将由公司逐步实施。
+2026年5月16日，电科数字（维权）发布公告称，公司及相关当事人收到上海证监局下发的《行政处罚事先告知书》。
 
-公告称，公司新型电力储能业务于2025年录得收入同比大幅增长，接近翻倍，市场订单维持充足。
+因在投资者互动平台发布关于子公司涉及“卫星互联网”业务的不准确、不完整信息，涉嫌构成误导性陈述，公司及董秘拟被合计罚款300万元。
 
-为配合快速增长的市场需求，公司决定投资建设12GWh半固态AIDC储能电芯项目，以把握行业发展及政策支持所带来的市场机遇，进一步强化公司于AIDC智算中心储能应用场景中的市场地位，并支持集团长期业务拓展及可持续发展。
+上海沪紫律师事务所刘鹏律师表示依据相关法律法规符合于2025年12月17日-2026年1月12日期间买入，且在2026年1月13日之后卖出或仍持有而亏损的即可登记。
 
-责任编辑：卢昱君
+根据《行政处罚事先告知书》显示，2025年12月17日至12月31日期间，电科数字在上证e互动平台及投资者关系活动记录表中多次宣称，其全资子公司柏飞电子“在卫星互联网领域主要提供星载高性能计算、AI智算及射频传输三类产品”，并“已成功构建了全国产化的解决方案”。
+
+受此消息刺激，电科数字股价连续涨停。
+
+但经监管查实，所谓的“三类核心产品”，实际仅是为客户开展特定研究提供的产品，不仅后续发展存在极大不确定性，产品收入占公司整体业务比重更是不足0.1%。
+
+上海证监局认定，电科数字未准确、完整披露产品开发阶段、收入占比及不确定性风险，致使投资者可能作出错误判断，构成误导性陈述。
 
 ## 相关推荐
 
-- 2026-06-30 08:25 - [二次元提前预演明日巴西对日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
-- 2026-06-30 08:23 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
-- 2026-06-30 08:39 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
-- 2026-06-30 08:47 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
-- 2026-06-30 08:34 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-30 08:36 - [张月收到黄灿灿辣货两眼发光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
-- 2026-06-30 08:47 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
-- 2026-06-30 08:29 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-30 08:18 - [德国爆冷点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-30 08:25 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
+- 2026-06-30 08:28 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-30 08:26 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-30 08:24 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-30 08:50 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
+- 2026-06-30 08:35 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-30 08:47 - [郑钦文温网一轮游](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-30 08:36 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-30 08:37 - [诺伊尔尽力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-30 08:45 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
+- 2026-06-30 08:53 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-30 08:39 - [《共患难》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-30 08:25 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-30 08:40 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:41 - [巴拉圭先进球了](https://www.blog.minike.top/Article/details/910466382086.shtml)
-- 2026-06-30 08:19 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/16356.shtml)
-- 2026-06-30 08:28 - [女子遭下药退赔偿拟追刑责](http://www.blog.minike.top/Article/details/678458.shtml)
-- 2026-06-30 08:46 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/335041.shtml)
-- 2026-06-30 08:22 - [周冬雨多次说演不了话剧文城](https://www.share.minike.top/Article/details/737823911800.shtml)
-- 2026-06-30 08:28 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/4116216877.shtml)
-- 2026-06-30 08:25 - [老外对中国cosplay竟这样评价…](https://www.share.kurohicncr.top/Article/details/43060.shtml)
-- 2026-06-30 08:33 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/3719234868.shtml)
-- 2026-06-30 08:43 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.minike.top/Article/details/42482872678.shtml)
-- 2026-06-30 08:47 - [斗破苍穹](https://www.share.minike.top/Article/details/753046.shtml)
-- 2026-06-30 08:29 - [这种关系可能正在悄悄“催老”你](https://www.blog.minike.top/Article/details/77400.shtml)
-- 2026-06-30 08:21 - [巴西vs日本](http://www.share.kurohicncr.top/Article/details/28948969.shtml)
-- 2026-06-30 08:18 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.kurohicncr.top/Article/details/832983243.shtml)
-- 2026-06-30 08:31 - [穆祉丞回应获年度人气艺人](https://www.blog.kurohicncr.top/Article/details/8380486.shtml)
-- 2026-06-30 08:22 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/47293034.shtml)
+- 2026-06-30 08:27 - [青春环游记第三季](https://www.blog.minike.top/Article/details/967529503.shtml)
+- 2026-06-30 08:32 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/329791493816.shtml)
+- 2026-06-30 08:39 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/085625319.shtml)
+- 2026-06-30 08:52 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/53783992721.shtml)
+- 2026-06-30 08:24 - [女子健身不当 居然“脑子漏水”了](http://www.blog.minike.top/Article/details/6880324.shtml)
+- 2026-06-30 08:47 - [好像看到了人类带孩子崩溃的样子](https://www.blog.kurohicncr.top/Article/details/03547581.shtml)
+- 2026-06-30 08:45 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/291210.shtml)
+- 2026-06-30 08:48 - [委内瑞拉地震死亡人数升至1719人](https://www.share.minike.top/Article/details/8022181.shtml)
+- 2026-06-30 08:50 - [日本五次世界杯淘汰赛全败](https://www.blog.minike.top/Article/details/66387573199.shtml)
+- 2026-06-30 08:32 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/26092664658.shtml)
+- 2026-06-30 08:53 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/32610.shtml)
+- 2026-06-30 08:28 - [第一次对自信的力量有了实感](http://www.blog.minike.top/Article/details/8038027290.shtml)
+- 2026-06-30 08:49 - [藤森庆子赢得秘鲁总统选举](https://www.share.kurohicncr.top/Article/details/9215289523.shtml)
+- 2026-06-30 08:38 - [王楚钦孙颖莎晋级混双八强](https://www.share.kurohicncr.top/Article/details/481448694739.shtml)
+- 2026-06-30 08:44 - [韩国球迷凌晨4点接机怒骂主教练](http://www.share.kurohicncr.top/Article/details/726455.shtml)

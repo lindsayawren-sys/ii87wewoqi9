@@ -1,52 +1,59 @@
-# 此行间·把两岸关系的未来牢牢掌握在中国人自己手中
+# 广州近80家场馆联动 打造文旅消费新场景
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月11日 19:39 来源：人民日报客户端 “把两岸关系的未来牢牢掌握在中国人自己手中。”习近平总书记会见中国国民党主席郑丽文时强调的这句话，掷地有声。无论国际形势、台海局势如何变化，中华民族伟大复兴的大趋势不会改变，两岸同胞走亲走近、走到一起的大潮流不会改变。 责任编辑：【李太源】
+“无界博物·阅见广州”国际博物馆日 广州近80家场馆联动 打造文旅消费新场景 本版撰文/广州日报全媒体记者 卜松竹 通讯员 张琳 徐迎 今年5月18日，是第50个国际博物馆日，主题为“博物馆：联结世界的桥梁”。“无界博物·阅见广州”主题宣传活动将在广州举行。全城近80家博物馆联动，邀你共享。 在中共三大会址纪念馆，一场《春园回响》沉浸式剧目带观众走进国际博物馆日广州主会场，同时
 
 ## 正文
 
-发布时间：2026年04月11日 19:39 来源：人民日报客户端 “把两岸关系的未来牢牢掌握在中国人自己手中。
+“无界博物·阅见广州”国际博物馆日 广州近80家场馆联动 打造文旅消费新场景 本版撰文/广州日报全媒体记者 卜松竹 通讯员 张琳 徐迎 今年5月18日，是第50个国际博物馆日，主题为“博物馆：联结世界的桥梁”。
 
-”习近平总书记会见中国国民党主席郑丽文时强调的这句话，掷地有声。
+“无界博物·阅见广州”主题宣传活动将在广州举行。
 
-无论国际形势、台海局势如何变化，中华民族伟大复兴的大趋势不会改变，两岸同胞走亲走近、走到一起的大潮流不会改变。
+全城近80家博物馆联动，邀你共享。
 
-责任编辑：【李太源】
+在中共三大会址纪念馆，一场《春园回响》沉浸式剧目带观众走进国际博物馆日广州主会场，同时宣告红色文化地标——春园26号正式开放。
+
+而广州文博公益“鳌游卡”的亮相，更是激发了公众的畅游热情。
+
+《春园回响》宣告春园26号正式开放 《春园回响》5月18日的公众预约场次30个名额在发布后5分钟内就被约满。
+
+剧目以建设春园的华侨“黎兄”“陈兄”及“黎兄”后人黎振德的视角切入，围绕中国共产党人1923年至1924年在春园进行的重要活动展开，生动再现了中国共产党人凝聚共识、坚守信仰、推动国民革命的峥嵘岁月，展现从小家到国家，从历史回响到新时代征程的宏阔画卷。
+
+随着剧情的推进，陈独秀、李大钊、毛泽东、周恩来、李立三、瞿秋白、蔡和森、谭平山、向警予、王荷波等中国共产党早期领导人和中共三大代表，革命先行者孙中山，共产国际代表和苏联顾问鲍罗廷、加伦……众多历史人物纷纷“重现”。
 
 ## 相关推荐
 
-- 2026-06-30 08:44 - [板面：为什么那么多人爱吃？？！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-30 08:19 - [存储芯片龙头提示风险](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-30 08:44 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-30 08:18 - [iPhone18e曝光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
-- 2026-06-30 08:42 - [恋与深空道歉声明](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
-- 2026-06-30 08:32 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
-- 2026-06-30 08:31 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-30 08:28 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-30 08:22 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-30 08:27 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-30 08:24 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
-- 2026-06-30 08:47 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-30 08:20 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-30 08:34 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-30 08:46 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-30 08:32 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
+- 2026-06-30 08:27 - [董路：谁赢谁是“正路子”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-30 08:40 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-30 08:40 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-30 08:36 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-30 08:28 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-30 08:26 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
+- 2026-06-30 08:38 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-30 08:39 - [德国连续三届世界杯无缘16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-30 08:28 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-30 08:51 - [iPhone18e曝光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-30 08:30 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:36 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/6153711009.shtml)
-- 2026-06-30 08:25 - [千香](http://www.share.kurohicncr.top/Article/details/18622706985.shtml)
-- 2026-06-30 08:34 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/06467867.shtml)
-- 2026-06-30 08:23 - [好像看到了人类带孩子崩溃的样子](http://www.blog.minike.top/Article/details/9299259.shtml)
-- 2026-06-30 08:22 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/52839873866.shtml)
-- 2026-06-30 08:21 - [王欣瑜2-1击败科恰雷托](http://www.blog.kurohicncr.top/Article/details/01324525.shtml)
-- 2026-06-30 08:18 - [自然光｜papi酱&窦文涛：驴与跑步机](https://www.blog.kurohicncr.top/Article/details/419264299063.shtml)
-- 2026-06-30 08:28 - [檀健次王楚然吻戏看热了](http://www.share.kurohicncr.top/Article/details/1082129.shtml)
-- 2026-06-30 08:40 - [警犬“多多”助民警寻回失联老人](http://www.blog.kurohicncr.top/Article/details/90862.shtml)
-- 2026-06-30 08:43 - [杨紫肖战余生请多指教拍立得](https://www.share.minike.top/Article/details/382687733094.shtml)
-- 2026-06-30 08:22 - [卡塞米罗头球破门](https://www.share.minike.top/Article/details/9425196.shtml)
-- 2026-06-30 08:41 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/77499121241.shtml)
-- 2026-06-30 08:43 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/14132061003.shtml)
-- 2026-06-30 08:22 - [沙丘](http://www.blog.minike.top/Article/details/7508550.shtml)
-- 2026-06-30 08:39 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/239131.shtml)
+- 2026-06-30 08:34 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/1158496.shtml)
+- 2026-06-30 08:34 - [日本 高位逼抢](http://www.share.minike.top/Article/details/5850815.shtml)
+- 2026-06-30 08:41 - [卡塞米罗头球破门 巴西扳平日本](https://www.share.kurohicncr.top/Article/details/892585147.shtml)
+- 2026-06-30 08:38 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/58738835802.shtml)
+- 2026-06-30 08:48 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/986869.shtml)
+- 2026-06-30 08:51 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/500527706110.shtml)
+- 2026-06-30 08:32 - [杨紫被质疑未使用原名纯属误解](http://www.share.kurohicncr.top/Article/details/794513521879.shtml)
+- 2026-06-30 08:51 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/47723122.shtml)
+- 2026-06-30 08:35 - [陈幸同晋级WTT美国大满贯女单32强](http://www.share.kurohicncr.top/Article/details/88975383918.shtml)
+- 2026-06-30 08:25 - [女心理师](https://www.blog.kurohicncr.top/Article/details/936648.shtml)
+- 2026-06-30 08:40 - [美股深夜大反弹 特斯拉飙涨8%](https://www.blog.minike.top/Article/details/61846359865.shtml)
+- 2026-06-30 08:38 - [周生如故](http://www.blog.kurohicncr.top/Article/details/894130988.shtml)
+- 2026-06-30 08:48 - [德国4比5巴拉圭](https://www.blog.minike.top/Article/details/448721414.shtml)
+- 2026-06-30 08:26 - [《名肘探科比》：科比大战裂口女](http://www.share.minike.top/Article/details/10278953488.shtml)
+- 2026-06-30 08:34 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/906678.shtml)

@@ -1,53 +1,60 @@
-# 张雪拍卖机车 45秒后“光速结束” 款项全部捐给李亚鹏
+# 瑞安航空称旅客暂缓预订机票，机票定价行情走弱
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-中新网4月10日电(记者 吴家驹)4月10日20时，张雪拍卖张雪机车夺冠车型复刻版，并附赠“最快圈数”冠军奖杯、亲笔签名冠军帽等。 张雪称，拍卖所得款项将全部捐给李亚鹏，李亚鹏可自主决定将款项用于嫣然天使基金或嫣然天使儿童医院。 拍卖时长10分钟，封顶价500万元。拍卖开始45秒，就有人出价500万元，拍卖“光速结束”。(完)
+瑞安航空发布预警，临近暑期出行旺季，机票定价走势弱于预期；受出行需求及燃油供应不确定性影响，该航司暂未发布下一财年盈利指引。 这家爱尔兰航空集团于周一表示，预计截至6月的季度机票票价同比下滑中个位数百分比，9月所在季度票价整体趋于平稳。其补充称，近期油价走高引发经济层面不确定性，叠加市场担忧燃油供应短缺，致使机票价格有所回落，旅客订票节奏也较去年明显延后。 瑞安航空此前预计暑期
 
 ## 正文
 
-中新网4月10日电(记者 吴家驹)4月10日20时，张雪拍卖张雪机车夺冠车型复刻版，并附赠“最快圈数”冠军奖杯、亲笔签名冠军帽等。
+瑞安航空发布预警，临近暑期出行旺季，机票定价走势弱于预期；受出行需求及燃油供应不确定性影响，该航司暂未发布下一财年盈利指引。
 
-张雪称，拍卖所得款项将全部捐给李亚鹏，李亚鹏可自主决定将款项用于嫣然天使基金或嫣然天使儿童医院。
+这家爱尔兰航空集团于周一表示，预计截至6月的季度机票票价同比下滑中个位数百分比，9月所在季度票价整体趋于平稳。
 
-拍卖时长10分钟，封顶价500万元。
+其补充称，近期油价走高引发经济层面不确定性，叠加市场担忧燃油供应短缺，致使机票价格有所回落，旅客订票节奏也较去年明显延后。
 
-拍卖开始45秒，就有人出价500万元，拍卖“光速结束”。
+瑞安航空此前预计暑期机票票价将实现低个位数百分比涨幅，目前则表示最终票价走势取决于旺季临近阶段的即时订票量与票价水平。
 
-(完)
+该航司称，出行需求前景不明、燃油价格与供应波动较大，现阶段暂无法给出截至2027年3月财年具备参考价值的盈利预期。
+
+公司预计全年客运量将增长4%，达到2.16亿人次。
+
+瑞安航空首席执行官表示：“我们有望在 7 月末发布一季度财报期间，向股东清晰阐明上半年的票价走势与燃油成本情况。
+
+”责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-30 08:44 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-30 08:39 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-30 08:43 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-30 08:36 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
-- 2026-06-30 08:28 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-30 08:24 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-30 08:40 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
-- 2026-06-30 08:31 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-30 08:42 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
-- 2026-06-30 08:40 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
-- 2026-06-30 08:34 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-30 08:44 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-30 08:37 - [世界杯欧洲队7战南美仅1胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-30 08:53 - [iPhone18e曝光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-30 08:28 - [德国进球被吹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-30 08:27 - [张雪的一句“是我们”引发岛内热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
+- 2026-06-30 08:24 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-30 08:28 - [德国队连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-30 08:27 - [4000美元是黄金新一轮下跌的开始吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-30 08:45 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-30 08:44 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
+- 2026-06-30 08:26 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
+- 2026-06-30 08:26 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-30 08:38 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-30 08:39 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-30 08:44 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-30 08:32 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:45 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/656961679560.shtml)
-- 2026-06-30 08:30 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.minike.top/Article/details/98599.shtml)
-- 2026-06-30 08:26 - [世界杯：德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/95120.shtml)
-- 2026-06-30 08:38 - [佐野海舟远射破门](https://www.blog.kurohicncr.top/Article/details/64460215.shtml)
-- 2026-06-30 08:23 - [张帅晋级温网次轮](http://www.share.kurohicncr.top/Article/details/0142239.shtml)
-- 2026-06-30 08:21 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/672820644226.shtml)
-- 2026-06-30 08:34 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.minike.top/Article/details/9039024.shtml)
-- 2026-06-30 08:41 - [萨内 看笑了](https://www.blog.kurohicncr.top/Article/details/109298207530.shtml)
-- 2026-06-30 08:40 - [马耳他著名拱门坍塌致一中国男子身亡](https://www.share.kurohicncr.top/Article/details/69435.shtml)
-- 2026-06-30 08:21 - [德国4比5巴拉圭](http://www.share.kurohicncr.top/Article/details/44900815.shtml)
-- 2026-06-30 08:20 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/29641765.shtml)
-- 2026-06-30 08:26 - [杨紫学位证上就是杨紫](http://www.share.minike.top/Article/details/0979776.shtml)
-- 2026-06-30 08:28 - [覃予萱晋级WTT美国大满贯女单32强](http://www.blog.minike.top/Article/details/969859116.shtml)
-- 2026-06-30 08:30 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/59133639.shtml)
-- 2026-06-30 08:24 - [武磊：巴西队赢的并不轻松](http://www.share.kurohicncr.top/Article/details/705236002770.shtml)
+- 2026-06-30 08:42 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/97650.shtml)
+- 2026-06-30 08:42 - [斛珠夫人](http://www.blog.minike.top/Article/details/60306041627.shtml)
+- 2026-06-30 08:46 - [【大鸣王潮1566】真拿你没办法](http://www.blog.minike.top/Article/details/95239.shtml)
+- 2026-06-30 08:32 - [如何评价杨紫白玉兰获奖](http://www.blog.minike.top/Article/details/38369636097.shtml)
+- 2026-06-30 08:28 - [日本五次世界杯淘汰赛全败](http://www.blog.kurohicncr.top/Article/details/2355344.shtml)
+- 2026-06-30 08:48 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/5930868.shtml)
+- 2026-06-30 08:50 - [巴西2-1绝杀日本](http://www.share.minike.top/Article/details/52296.shtml)
+- 2026-06-30 08:45 - [郑钦文 四年一轮游](http://www.share.minike.top/Article/details/2693699166.shtml)
+- 2026-06-30 08:49 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.blog.minike.top/Article/details/5656735159.shtml)
+- 2026-06-30 08:25 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/5033992.shtml)
+- 2026-06-30 08:46 - [千香](http://www.share.minike.top/Article/details/656113701.shtml)
+- 2026-06-30 08:49 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/14355765869.shtml)
+- 2026-06-30 08:39 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](https://www.share.kurohicncr.top/Article/details/79715713190.shtml)
+- 2026-06-30 08:49 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/906472.shtml)
+- 2026-06-30 08:30 - [如果有二次元高中是什么样子的？](http://www.blog.kurohicncr.top/Article/details/456612376150.shtml)

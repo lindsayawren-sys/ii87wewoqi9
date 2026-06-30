@@ -1,61 +1,54 @@
-# 2026年全国教育科研工作会议在京举行
+# 印尼财政部将入市干预债市以稳定价格
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-中新网北京4月12日电 (记者 曾玥)记者从中国教育科学研究院获悉，2026年全国教育科研工作会议4月10至11日在北京举行。此次会议聚焦基础教育高质量发展的关键性与引领性议题，围绕基础教育发展战略暨义务教育法实施四十周年开展主题研讨。教育部党组成员、副部长、总督学王嘉毅出席会议并讲话。会议指出，党的十八大以来，我国基础教育取得了历史性成就、发生了格局性变化，各项关键指标显著提
+印尼财政部长普尔巴亚・尤迪・萨德瓦（Purbaya Yudhi Sadewa）周一晚间表示，已下令财政部自本周起每日投入2万亿印尼盾（折合1.1319亿美元）干预债券市场，以此稳定债市价格。 他并未详述此次操作的实施机制与目标，相关具体信息如下： 普尔巴亚在出席与普拉博沃・苏比安托总统的会议后向记者表示，此次债市维稳举措旨在为债券市场营造积极情绪，同时提振持续走弱的印尼盾汇率。
 
 ## 正文
 
-中新网北京4月12日电 (记者 曾玥)记者从中国教育科学研究院获悉，2026年全国教育科研工作会议4月10至11日在北京举行。
+印尼财政部长普尔巴亚・尤迪・萨德瓦（Purbaya Yudhi Sadewa）周一晚间表示，已下令财政部自本周起每日投入2万亿印尼盾（折合1.1319亿美元）干预债券市场，以此稳定债市价格。
 
-此次会议聚焦基础教育高质量发展的关键性与引领性议题，围绕基础教育发展战略暨义务教育法实施四十周年开展主题研讨。
+他并未详述此次操作的实施机制与目标，相关具体信息如下： 普尔巴亚在出席与普拉博沃・苏比安托总统的会议后向记者表示，此次债市维稳举措旨在为债券市场营造积极情绪，同时提振持续走弱的印尼盾汇率。
 
-教育部党组成员、副部长、总督学王嘉毅出席会议并讲话。
+他称：“我们将分步入场干预，本周起债市价格走势将趋于平稳。
 
-会议指出，党的十八大以来，我国基础教育取得了历史性成就、发生了格局性变化，各项关键指标显著提升。
+” 普尔巴亚透露，财政部将动用闲置富余资金支撑此次市场干预行动，目前该国财政现金储备达420万亿印尼盾（折合237.7亿美元）。
 
-“十五五”时期是贯彻落实民生为大、基教优先的关键阶段，基础教育改革发展既面临重要机遇，也面临诸多挑战。
+他曾于5月6日表态计划启用债券稳定基金，但在5月11日改口称将改用其他调控工具，原因是该专项基金仅可在危机时期动用。
 
-要深刻把握时代变局、人口变化、教育功利化倾向、学生身心健康和人工智能快速发展带来的新要求、新考验。
-
-牢牢守住意识形态主阵地，精准配置教育资源，统筹推进学前教育优质普惠、义务教育优质均衡、高中教育优质特色发展，全面深入推进“人工智能+教育”，持续营造风清气正的教育生态。
-
-会议强调，教育科研是推动教育事业发展的战略引擎，必须切实发挥好教育科研作用，从学科发展逻辑向问题解决逻辑转变，加快AI+科研范式转型，构建能够指导教育强国建设的自主知识体系。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 08:39 - [德国 传控](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-30 08:42 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-30 08:38 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-30 08:39 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-30 08:21 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-30 08:43 - [库尼亚赛后伸五指嘲讽日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-30 08:26 - [日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-30 08:38 - [齐思钧回复张月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
-- 2026-06-30 08:28 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
-- 2026-06-30 08:30 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-30 08:39 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-30 08:34 - [巴拉圭进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
-- 2026-06-30 08:43 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
-- 2026-06-30 08:38 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-30 08:31 - [锐评T1战胜KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-30 08:41 - [马耳他著名拱门坍塌致一中国男子身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
+- 2026-06-30 08:44 - [巴西绝杀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-30 08:29 - [欧洲装一台空调有多难](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-30 08:34 - [日本球员说被绝杀非常不甘心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-30 08:39 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-30 08:47 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
+- 2026-06-30 08:30 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-30 08:36 - [穆祉丞回应获年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
+- 2026-06-30 08:28 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-30 08:32 - [穆祉丞回应获年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-30 08:41 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-30 08:50 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:38 - [森保一致歉：世界第一目标没能实现](http://www.share.minike.top/Article/details/4149163.shtml)
-- 2026-06-30 08:41 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/57928.shtml)
-- 2026-06-30 08:44 - [F1奥地利站赛后复盘](http://www.blog.kurohicncr.top/Article/details/6601003607.shtml)
-- 2026-06-30 08:47 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/5122897918.shtml)
-- 2026-06-30 08:47 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/3968197850.shtml)
-- 2026-06-30 08:22 - [这几秒成世界杯最值钱广告位](http://www.share.minike.top/Article/details/5758593.shtml)
-- 2026-06-30 08:34 - [穆祉丞回应获年度人气艺人](http://www.share.kurohicncr.top/Article/details/41047.shtml)
-- 2026-06-30 08:25 - [德国队连续三届世界杯无缘16强](http://www.blog.minike.top/Article/details/8626099.shtml)
-- 2026-06-30 08:42 - [F1奥地利站赛后复盘](http://www.share.kurohicncr.top/Article/details/089022.shtml)
-- 2026-06-30 08:25 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/16938.shtml)
-- 2026-06-30 08:21 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/012686549803.shtml)
-- 2026-06-30 08:21 - [巴西绝杀日本](http://www.share.minike.top/Article/details/88030321693.shtml)
-- 2026-06-30 08:48 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/02987827366.shtml)
-- 2026-06-30 08:28 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/907396760664.shtml)
-- 2026-06-30 08:44 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/727391966564.shtml)
+- 2026-06-30 08:39 - [杨紫大银幕成绩单如何](http://www.share.kurohicncr.top/Article/details/684457.shtml)
+- 2026-06-30 08:33 - [曝老詹对自由市场态度与以往截然不同](http://www.share.kurohicncr.top/Article/details/023736.shtml)
+- 2026-06-30 08:27 - [极限挑战第一季](https://www.blog.minike.top/Article/details/5736636.shtml)
+- 2026-06-30 08:34 - [这一刀 会很帅](https://www.share.minike.top/Article/details/25243755821.shtml)
+- 2026-06-30 08:34 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.minike.top/Article/details/090416815461.shtml)
+- 2026-06-30 08:36 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.blog.kurohicncr.top/Article/details/8311161593.shtml)
+- 2026-06-30 08:41 - [韩国球迷凌晨4点接机怒骂主教练](https://www.share.kurohicncr.top/Article/details/59126061343.shtml)
+- 2026-06-30 08:44 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/8846821163.shtml)
+- 2026-06-30 08:41 - [张雪的一句“是我们”引发岛内热议](http://www.share.minike.top/Article/details/8280260.shtml)
+- 2026-06-30 08:31 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/42949.shtml)
+- 2026-06-30 08:43 - [第一炉香](https://www.share.minike.top/Article/details/724470363.shtml)
+- 2026-06-30 08:53 - [板面：为什么那么多人爱吃？？！](https://www.blog.kurohicncr.top/Article/details/8667368939.shtml)
+- 2026-06-30 08:42 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/18599.shtml)
+- 2026-06-30 08:41 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.minike.top/Article/details/642923346960.shtml)
+- 2026-06-30 08:47 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/380769332.shtml)

@@ -1,48 +1,57 @@
-# 第六届消博会启动在即 布展进入收尾阶段
+# 中国驻孟加拉国使馆发布规范中介机构办理赴华签证提示
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月12日 13:26 来源：中国新闻网 以“开放引领全球消费，创新驱动美好生活”为主题的第六届中国国际消费品博览会将于4月13日至18日在海南举办。4月11日，记者在本届消博会的主会场海南国际会展中心内看到，各展区、展位搭建工作已全部结束，部分参展商正进行最后阶段的设备调试及展品陈列，各项工作有序推进。 作为海南自贸港全岛封关运作后的首届消博会，本届消博
+中新网5月19日电 据中国驻孟加拉国大使馆微信公众号消息，近期，中国驻孟加拉国使馆发现部分中介机构在代办赴华签证中存在申请材料造假、收费项目不公开、夸大办证难度、延误办证进度、发布虚假信息、蒙骗申请人等问题，扰乱使馆正常办证秩序，损害申请人利益。为进一步规范中介机构代办签证活动，自2026年7月5日起，驻孟加拉国使馆要求代办赴华签证的孟当地旅行社具备国际航空运输协会(IATA)
 
 ## 正文
 
-发布时间：2026年04月12日 13:26 来源：中国新闻网 以“开放引领全球消费，创新驱动美好生活”为主题的第六届中国国际消费品博览会将于4月13日至18日在海南举办。
+中新网5月19日电 据中国驻孟加拉国大使馆微信公众号消息，近期，中国驻孟加拉国使馆发现部分中介机构在代办赴华签证中存在申请材料造假、收费项目不公开、夸大办证难度、延误办证进度、发布虚假信息、蒙骗申请人等问题，扰乱使馆正常办证秩序，损害申请人利益。
 
-4月11日，记者在本届消博会的主会场海南国际会展中心内看到，各展区、展位搭建工作已全部结束，部分参展商正进行最后阶段的设备调试及展品陈列，各项工作有序推进。
+为进一步规范中介机构代办签证活动，自2026年7月5日起，驻孟加拉国使馆要求代办赴华签证的孟当地旅行社具备国际航空运输协会(IATA)资质。
 
-作为海南自贸港全岛封关运作后的首届消博会，本届消博会将有来自60多个国家和地区的超过3400个品牌参展。
+驻孟加拉国使馆不为任何中介机构提供降低签证审核标准的特权。
 
-(记者 李宇凡） 责任编辑：【卢岩】
+为减少等候时间，建议符合材料要求的申请人通过中国签证申请服务中心网站https://www.visaforchina.cn/自行提交材料，勿委托中介代办。
+
+驻孟加拉国使馆致力于为孟民众提供优质便捷的签证服务，将不断出台新举措便利中孟人员往来。
+
+使馆未授权、指定或推荐特定机构作为签证代办专门机构，未与任何签证代办机构建立合作伙伴关系。
+
+如发现任何机构或个人冒充使馆名义从事代办签证的商业行为，使馆将追究其法律责任。
+
+请广大申请人提高警惕，谨防受骗。
 
 ## 相关推荐
 
-- 2026-06-30 08:27 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-30 08:47 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-30 08:21 - [库尼亚赛后伸五指嘲讽日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
-- 2026-06-30 08:47 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-30 08:38 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-30 08:46 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-30 08:37 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-30 08:33 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-30 08:28 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
-- 2026-06-30 08:45 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-30 08:31 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-30 08:34 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-30 08:33 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-30 08:24 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
+- 2026-06-30 08:46 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
+- 2026-06-30 08:45 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-30 08:38 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-30 08:29 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-30 08:40 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
+- 2026-06-30 08:50 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-30 08:27 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:46 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/51306.shtml)
-- 2026-06-30 08:27 - [网友写差评被店家“挂”门口避雷](http://www.share.minike.top/Article/details/450493616.shtml)
-- 2026-06-30 08:44 - [库尼亚赛后伸五指嘲讽日本](http://www.blog.kurohicncr.top/Article/details/19174.shtml)
-- 2026-06-30 08:20 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/02487951.shtml)
-- 2026-06-30 08:45 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/32744.shtml)
-- 2026-06-30 08:38 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/34060.shtml)
-- 2026-06-30 08:28 - [森保一致歉：世界第一目标没能实现](https://www.share.minike.top/Article/details/59681821.shtml)
-- 2026-06-30 08:31 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.kurohicncr.top/Article/details/13788150.shtml)
-- 2026-06-30 08:40 - [网友写差评被店家“挂”门口避雷](https://www.blog.kurohicncr.top/Article/details/36884.shtml)
-- 2026-06-30 08:35 - [日本反击率先破门](http://www.blog.kurohicncr.top/Article/details/674514244.shtml)
-- 2026-06-30 08:35 - [德国巴拉圭加时](https://www.share.minike.top/Article/details/04314117.shtml)
-- 2026-06-30 08:24 - [时光音乐会](http://www.share.minike.top/Article/details/531533778.shtml)
-- 2026-06-30 08:43 - [明星大侦探第一季](https://www.share.minike.top/Article/details/413156123.shtml)
-- 2026-06-30 08:22 - [全球最火存储ETF纳入兆易创新](https://www.blog.minike.top/Article/details/29385.shtml)
-- 2026-06-30 08:44 - [爆冷出局！德国点球大战不敌巴拉圭](http://www.blog.minike.top/Article/details/72822726226.shtml)
+- 2026-06-30 08:52 - [日本遭读秒绝杀 森保一：我水平不够](http://www.blog.kurohicncr.top/Article/details/829968.shtml)
+- 2026-06-30 08:50 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://www.blog.minike.top/Article/details/5198247.shtml)
+- 2026-06-30 08:52 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/32849.shtml)
+- 2026-06-30 08:42 - [张雪的一句“是我们”引发岛内热议](https://www.share.minike.top/Article/details/690988634839.shtml)
+- 2026-06-30 08:34 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/343098.shtml)
+- 2026-06-30 08:39 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.kurohicncr.top/Article/details/37113494405.shtml)
+- 2026-06-30 08:27 - [张帅时隔四年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/53602245.shtml)
+- 2026-06-30 08:44 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://www.blog.kurohicncr.top/Article/details/44477.shtml)
+- 2026-06-30 08:27 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/98346916.shtml)
+- 2026-06-30 08:50 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/904441776.shtml)
+- 2026-06-30 08:30 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/1360112753.shtml)
+- 2026-06-30 08:46 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.kurohicncr.top/Article/details/8759881.shtml)
+- 2026-06-30 08:49 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/96144.shtml)
+- 2026-06-30 08:34 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/82210983.shtml)
+- 2026-06-30 08:38 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/4166185238.shtml)

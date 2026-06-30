@@ -1,56 +1,61 @@
-# （乡村行·看振兴）广东黎溪镇：香水柠檬铺就乡村致富路
+# “晋高句骊归义侯”金印正式入藏集安市博物馆
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-中新网清远4月12日电 (记者 张璐)近日，走进广东清远英德市黎溪镇黎新村火砖楼村小组，只见昔日的荒坡野岭间一派热火朝天，干部群众正抢抓时节栽种香水柠檬，一株株新苗扎根沃土，一幅生机盎然的乡村增绿兴产画卷正徐徐展开。 据了解，2026年初，黎溪镇党委主要领导走进火砖楼村小组开展“英州夜谈”，与村民围坐共话发展。大家表示，村里约40亩林地长期闲置，希望能盘活利用，发展特色种养产业
+中新网吉林集安5月18日电 (记者 郭佳)18日，“晋高句骊归义侯”金印正式纳入集安市博物馆馆藏体系并向公众展出，此印为西晋时期中央王朝颁赐给高句丽首领的册封信物，是中原王朝对东北边疆实施有效行政管理的实证。 高句丽是汉唐时期活跃于中国东北的民族地方政权，其705年的历史中有425年以今天的吉林省集安市为都，当地留有大量遗存。2004年，“高句丽王城、王陵及贵族墓葬”被列入《世
 
 ## 正文
 
-中新网清远4月12日电 (记者 张璐)近日，走进广东清远英德市黎溪镇黎新村火砖楼村小组，只见昔日的荒坡野岭间一派热火朝天，干部群众正抢抓时节栽种香水柠檬，一株株新苗扎根沃土，一幅生机盎然的乡村增绿兴产画卷正徐徐展开。
+中新网吉林集安5月18日电 (记者 郭佳)18日，“晋高句骊归义侯”金印正式纳入集安市博物馆馆藏体系并向公众展出，此印为西晋时期中央王朝颁赐给高句丽首领的册封信物，是中原王朝对东北边疆实施有效行政管理的实证。
 
-据了解，2026年初，黎溪镇党委主要领导走进火砖楼村小组开展“英州夜谈”，与村民围坐共话发展。
+高句丽是汉唐时期活跃于中国东北的民族地方政权，其705年的历史中有425年以今天的吉林省集安市为都，当地留有大量遗存。
 
-大家表示，村里约40亩林地长期闲置，希望能盘活利用，发展特色种养产业。
+2004年，“高句丽王城、王陵及贵族墓葬”被列入《世界遗产名录》。
 
-该镇党委政府迅速行动，因地制宜，最终确定种植香水柠檬。
+“晋高句骊归义侯”金印为马钮印，印面2.4×2.3厘米，印台高0.6厘米，通高2.8厘米，重约88克。
 
-2026年3月，2000株香水柠檬果苗顺利采购到位，镇村干部、党员志愿者一同上山开展绿化行动。
+印面为阴刻篆书“晋高句骊归义侯”七字。
 
-挖坑、栽苗、培土、浇水……一株株柠檬苗在春风里扎根生长，既为村庄添上一抹新绿，也为村民种下了增收致富的希望。
+在中国嘉德香港2025年春季拍卖会上，爱心人士金明南、高金丹夫妇以创下古玺印拍卖新世界纪录的价格将其拍下，后无偿捐赠给集安市博物馆。
 
-前两年，村里整合连片林地引入第三方规模化种植油茶和香水柠檬，让荒山披绿、集体增收；今年又乘势而上，在后山林地种下香水柠檬并创新竞价发包模式，实现了从“集体流转”到“村民承包”的深化拓展。
+中国国家文物局此前指出，这方金印和以往发现的6方与高句丽朝贡册封有关的玺印形成完整证据链，证明了西晋时期高句丽处在中原王朝的有效管辖之下。
 
-从油茶到柠檬，火砖楼村的实践核心在于将乡村绿化与产业发展、集体经济壮大、农民增收紧密结合。
+据悉，除了这方“归义侯”金印外，西晋还曾颁赐过“晋高句骊率善邑长”“晋高句骊率善仟长”“晋高句骊率善佰长”等铜质官印。
 
 ## 相关推荐
 
-- 2026-06-30 08:46 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-30 08:36 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-30 08:31 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-30 08:26 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
-- 2026-06-30 08:21 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-30 08:38 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-30 08:34 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-30 08:20 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-30 08:41 - [莫兰特被交易到开拓者](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
-- 2026-06-30 08:44 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-30 08:53 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-30 08:29 - [日本球员说被绝杀非常不甘心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-30 08:42 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-30 08:27 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-30 08:25 - [德国连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-30 08:44 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-30 08:32 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-30 08:30 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-30 08:37 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
+- 2026-06-30 08:44 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-30 08:34 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-30 08:48 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-30 08:48 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-30 08:47 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-30 08:28 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:40 - [《男人至死是傻得儿》](https://www.blog.kurohicncr.top/Article/details/64899.shtml)
-- 2026-06-30 08:40 - [日本队5进世界杯淘汰赛0胜](https://www.share.kurohicncr.top/Article/details/09259.shtml)
-- 2026-06-30 08:37 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/1211842331.shtml)
-- 2026-06-30 08:35 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/668280234.shtml)
-- 2026-06-30 08:42 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/13415.shtml)
-- 2026-06-30 08:46 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/878812075818.shtml)
-- 2026-06-30 08:45 - [美股](http://www.blog.minike.top/Article/details/030495720140.shtml)
-- 2026-06-30 08:25 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/2071430495.shtml)
-- 2026-06-30 08:44 - [德国队世界杯点球大战首败](https://www.share.kurohicncr.top/Article/details/2487146.shtml)
-- 2026-06-30 08:22 - [“草莓月亮”浪漫现身](https://www.share.minike.top/Article/details/30613.shtml)
-- 2026-06-30 08:23 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](https://www.blog.kurohicncr.top/Article/details/0971762.shtml)
-- 2026-06-30 08:39 - [F1奥地利站赛后复盘](https://www.share.kurohicncr.top/Article/details/9970805895.shtml)
-- 2026-06-30 08:25 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.minike.top/Article/details/39296127794.shtml)
-- 2026-06-30 08:22 - [这一刀 会很帅](https://www.share.minike.top/Article/details/47842.shtml)
-- 2026-06-30 08:24 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/767423296634.shtml)
+- 2026-06-30 08:53 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/2172489281.shtml)
+- 2026-06-30 08:50 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/25539431808.shtml)
+- 2026-06-30 08:26 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/901684877.shtml)
+- 2026-06-30 08:32 - [iPhone18e曝光](http://www.blog.kurohicncr.top/Article/details/97358893.shtml)
+- 2026-06-30 08:50 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/421762195.shtml)
+- 2026-06-30 08:47 - [天道](https://www.share.kurohicncr.top/Article/details/132258004.shtml)
+- 2026-06-30 08:31 - [穆祉丞回应获年度人气艺人](http://www.blog.minike.top/Article/details/3054249181.shtml)
+- 2026-06-30 08:37 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/935456.shtml)
+- 2026-06-30 08:25 - [这种关系可能正在悄悄“催老”你](http://www.share.kurohicncr.top/Article/details/22241137.shtml)
+- 2026-06-30 08:31 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/293535.shtml)
+- 2026-06-30 08:53 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/3857932118.shtml)
+- 2026-06-30 08:46 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/2496119120.shtml)
+- 2026-06-30 08:44 - [吴易昺不敌德约科维奇 止步温网首轮](https://www.blog.minike.top/Article/details/4505957923.shtml)
+- 2026-06-30 08:44 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/236527.shtml)
+- 2026-06-30 08:45 - [王源近几年没有路演了](http://www.blog.minike.top/Article/details/85817532.shtml)

@@ -1,58 +1,55 @@
-# 舞蹈专业女生跨界飞机领航员 “跳上”全国轻型飞机锦标赛
+# 花旗：腾讯控股维持“买入”评级 目标价763港元
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月12日 13:35 来源：中国新闻网 鹰击长空，气贯长虹，轻型飞机编队以灵巧的身姿翱翔，在空中画出美丽画卷。4月11日，2026年第四届全国轻型飞机锦标赛在广东清远市举行，作为国内规格最高、影响力最广的轻型飞机专业赛事，本届赛事汇聚全国25支顶尖机组、52名资深飞行员、17架飞机同场竞技。 在当天的飞行表演中，六机花样编队、小半径盘旋、四机对冲、彩烟拉
+花旗发布研报称，在腾讯控股（00700）首季业绩后与其管理层举行了投资者视像会议。管理层对公司AI进展感到乐观，并对混元3.0模型表现改善充满信心。随着国内芯片代工产能逐渐放缓，预期下半年国内芯片交付将加快，带动下半年资本开支增加。花旗维持腾讯“买入”评级，目标价763港元。 报告引述管理层指，混元3.0模型在代码编写及agentic AI等方面应用取得进展，并已与内部产品深度
 
 ## 正文
 
-发布时间：2026年04月12日 13:35 来源：中国新闻网 鹰击长空，气贯长虹，轻型飞机编队以灵巧的身姿翱翔，在空中画出美丽画卷。
+花旗发布研报称，在腾讯控股（00700）首季业绩后与其管理层举行了投资者视像会议。
 
-4月11日，2026年第四届全国轻型飞机锦标赛在广东清远市举行，作为国内规格最高、影响力最广的轻型飞机专业赛事，本届赛事汇聚全国25支顶尖机组、52名资深飞行员、17架飞机同场竞技。
+管理层对公司AI进展感到乐观，并对混元3.0模型表现改善充满信心。
 
-在当天的飞行表演中，六机花样编队、小半径盘旋、四机对冲、彩烟拉烟等高难度动作轮番上演。
+随着国内芯片代工产能逐渐放缓，预期下半年国内芯片交付将加快，带动下半年资本开支增加。
 
-飞行员以苍穹为幕，呈现震撼的空中视觉盛宴。
+花旗维持腾讯“买入”评级，目标价763港元。
 
-李佩蓉来自江苏，因为爱上蓝天，从舞者变成飞行员。
+报告引述管理层指，混元3.0模型在代码编写及agentic AI等方面应用取得进展，并已与内部产品深度整合。
 
-她的目标是积累属于她的200小时飞行时间，当上女机长。
+同时，受惠于与全球存储供应商的长期策略合作，以及国内存储芯片出货增加，相信腾讯在算力及内存限制方面处于有利位置。
 
-记者 王庆然 清远报道 责任编辑：【卢岩】
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 08:23 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-30 08:46 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-30 08:25 - [韩国世界杯出局是主帅一个人的锅吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
-- 2026-06-30 08:21 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-30 08:25 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
-- 2026-06-30 08:28 - [巴西足球能否再现昔日荣光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-30 08:43 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-30 08:43 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-30 08:32 - [森保一致歉：世界第一目标没能实现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-30 08:27 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-30 08:44 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-30 08:28 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
-- 2026-06-30 08:40 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-30 08:44 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-30 08:28 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
+- 2026-06-30 08:37 - [勇士续约波尔津吉斯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-30 08:30 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-30 08:27 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-30 08:26 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-30 08:52 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-30 08:53 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-30 08:49 - [董路：谁赢谁是“正路子”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-30 08:51 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
+- 2026-06-30 08:47 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-30 08:30 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:45 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/643270.shtml)
-- 2026-06-30 08:28 - [男子醉酒溺水获救后同行人拒协助抬人](https://www.blog.kurohicncr.top/Article/details/21501079.shtml)
-- 2026-06-30 08:22 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/830316.shtml)
-- 2026-06-30 08:20 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/74210.shtml)
-- 2026-06-30 08:45 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/296137.shtml)
-- 2026-06-30 08:26 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/117178224160.shtml)
-- 2026-06-30 08:38 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/460092.shtml)
-- 2026-06-30 08:35 - [老外对中国cosplay竟这样评价…](https://www.share.kurohicncr.top/Article/details/49677949895.shtml)
-- 2026-06-30 08:18 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](http://www.share.kurohicncr.top/Article/details/201646826.shtml)
-- 2026-06-30 08:39 - [流金岁月](http://www.share.kurohicncr.top/Article/details/6386351.shtml)
-- 2026-06-30 08:32 - [武磊：巴西队赢的并不轻松](https://www.share.kurohicncr.top/Article/details/034155.shtml)
-- 2026-06-30 08:36 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/904593818.shtml)
-- 2026-06-30 08:36 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/9477457.shtml)
-- 2026-06-30 08:38 - [德国爆冷点球大战不敌巴拉圭](https://www.blog.minike.top/Article/details/24412.shtml)
-- 2026-06-30 08:22 - [流金岁月](https://www.share.kurohicncr.top/Article/details/813206174546.shtml)
+- 2026-06-30 08:28 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/7604592532.shtml)
+- 2026-06-30 08:36 - [巴西2比1日本](https://www.blog.kurohicncr.top/Article/details/06463.shtml)
+- 2026-06-30 08:24 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/5810579411.shtml)
+- 2026-06-30 08:34 - [老外对中国cosplay竟这样评价…](https://www.share.kurohicncr.top/Article/details/832429.shtml)
+- 2026-06-30 08:50 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/76744.shtml)
+- 2026-06-30 08:24 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/11294428.shtml)
+- 2026-06-30 08:48 - [莫兰特被交易到开拓者](http://www.share.kurohicncr.top/Article/details/025451.shtml)
+- 2026-06-30 08:40 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/4843342720.shtml)
+- 2026-06-30 08:34 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/239196.shtml)
+- 2026-06-30 08:36 - [森保一致歉：世界第一目标没能实现](http://www.share.minike.top/Article/details/924163224823.shtml)
+- 2026-06-30 08:37 - [我觉得你是在无中生友](http://www.blog.minike.top/Article/details/93660.shtml)
+- 2026-06-30 08:47 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/206051470.shtml)
+- 2026-06-30 08:31 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/389978.shtml)
+- 2026-06-30 08:33 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/78790425.shtml)
+- 2026-06-30 08:36 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/2457149.shtml)

@@ -1,60 +1,60 @@
-# 这种病盯上了年轻人，拿什么拯救你，职场干眼症？
+# Klarna牵手EZContacts，为视力保健提供灵活支付方案
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-这种病盯上了年轻人；部门里的一小半人都在用人工泪液—— 拿什么拯救你，职场干眼症？ 阅读提示 “偏爱”老年人的“干眼症”正盯上职场年轻人。数据显示，约有1/3的职场人被泪腺经历的“干旱”所困扰。除了“自救”，企业也应主动作为，通过在年度体检中重视眼表检查，每天在固定时段组织工间操、眼保健操等举措“拯救”职场干眼症。受访者期待，推动将因职业因素导致的干眼症纳入职业病认定范畴。周二
+合作概况与支付选项 瑞典数字银行及灵活支付服务提供商Klarna宣布与在线零售商EZContacts达成合作，为美国消费者购买太阳镜、隐形眼镜和处方眼镜提供多元化的支付方案。通过此次合作，EZContacts的客户在结账时可选择全额付款、30天内免息付款、四期免息分期付款或长期融资方案。 战略意义与双方表态 Klarna首席商务官David Sykes表示，与EZContact
 
 ## 正文
 
-这种病盯上了年轻人；部门里的一小半人都在用人工泪液—— 拿什么拯救你，职场干眼症？
+合作概况与支付选项 瑞典数字银行及灵活支付服务提供商Klarna宣布与在线零售商EZContacts达成合作，为美国消费者购买太阳镜、隐形眼镜和处方眼镜提供多元化的支付方案。
 
-阅读提示 “偏爱”老年人的“干眼症”正盯上职场年轻人。
+通过此次合作，EZContacts的客户在结账时可选择全额付款、30天内免息付款、四期免息分期付款或长期融资方案。
 
-数据显示，约有1/3的职场人被泪腺经历的“干旱”所困扰。
+战略意义与双方表态 Klarna首席商务官David Sykes表示，与EZContacts的合作体现了Klarna致力于拓展细分零售领域的决心。
 
-除了“自救”，企业也应主动作为，通过在年度体检中重视眼表检查，每天在固定时段组织工间操、眼保健操等举措“拯救”职场干眼症。
+视力保健属于计划性消费，消费者更倾向于通过结构化支付方式管理开支，而非依赖传统信贷。
 
-受访者期待，推动将因职业因素导致的干眼症纳入职业病认定范畴。
+EZContacts增长负责人Rafael Sarim Oezdemir指出，此次合作与公司以客户为中心的理念高度契合，能为客户提供诚实、透明的结账选项，无任何隐藏费用。
 
-周二下午两点，浙江温州某三甲医院干眼理疗室内，6台热敷仪器与6台雾化机器正满负荷运转。
+公司背景与市场反响 Klarna是全球领先的AI驱动支付网络和购物助手，拥有超过1.18亿活跃用户，每日处理交易量达340万笔，已在纽约证券交易所上市。
 
-54岁的庄丽芬做完一轮雾化，环顾四周，略感意外：“一开始我以为得干眼症的都是中年人，没想到年轻人来做理疗的也不少。
+EZContacts成立于2005年，服务超过500万客户，库存涵盖300多个品牌的5万多款产品。
 
-” 更让她惊讶的是，雾化治疗需要患者睁眼接受药液熏蒸，但即便在这短短十几分钟的治疗间隙，身旁一位年轻上班族仍紧盯着手机屏幕，飞快地回复着工作消息。
+合作宣布后，Klarna股价当日上涨约2.87%至15.60美元，该支付选项已向所有美国境内EZContacts用户开放。
 
 ## 相关推荐
 
-- 2026-06-30 08:18 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-30 08:26 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-30 08:29 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
-- 2026-06-30 08:20 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-30 08:25 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-30 08:19 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-30 08:20 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-30 08:23 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-30 08:26 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
-- 2026-06-30 08:22 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-30 08:44 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
-- 2026-06-30 08:19 - [德国队世界杯点球大战首败](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
-- 2026-06-30 08:33 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-30 08:25 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-30 08:43 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
+- 2026-06-30 08:41 - [泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-30 08:32 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-30 08:42 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
+- 2026-06-30 08:35 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-30 08:50 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-30 08:27 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-30 08:32 - [全新问界M9现身美国街头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-30 08:46 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-30 08:52 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-30 08:47 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
+- 2026-06-30 08:28 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-30 08:37 - [日本球员说被绝杀非常不甘心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-30 08:53 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:24 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/285200.shtml)
-- 2026-06-30 08:19 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/9436674113.shtml)
-- 2026-06-30 08:33 - [杨紫被质疑未使用原名纯属误解](http://www.blog.kurohicncr.top/Article/details/02641.shtml)
-- 2026-06-30 08:26 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.kurohicncr.top/Article/details/1483981.shtml)
-- 2026-06-30 08:30 - [乔家的儿女](https://www.blog.minike.top/Article/details/828018.shtml)
-- 2026-06-30 08:34 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/916994.shtml)
-- 2026-06-30 08:19 - [存储芯片龙头提示风险](http://www.blog.kurohicncr.top/Article/details/158348.shtml)
-- 2026-06-30 08:20 - [巴西把自己踢晕了](https://www.share.minike.top/Article/details/1251792894.shtml)
-- 2026-06-30 08:23 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/815313336.shtml)
-- 2026-06-30 08:23 - [点球大战](http://www.share.minike.top/Article/details/36790.shtml)
-- 2026-06-30 08:24 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/925839.shtml)
-- 2026-06-30 08:30 - [日本球员说被绝杀非常不甘心](https://www.blog.minike.top/Article/details/491736.shtml)
-- 2026-06-30 08:39 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://www.share.kurohicncr.top/Article/details/42078.shtml)
-- 2026-06-30 08:44 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/4538730.shtml)
-- 2026-06-30 08:42 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/018579.shtml)
+- 2026-06-30 08:28 - [现在叛逆期的孩子最怕的是什么？](http://www.blog.minike.top/Article/details/957970811.shtml)
+- 2026-06-30 08:49 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/2831434454.shtml)
+- 2026-06-30 08:52 - [德国 传控](http://www.share.kurohicncr.top/Article/details/6091115744.shtml)
+- 2026-06-30 08:30 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/93203.shtml)
+- 2026-06-30 08:51 - [世界杯“美洲德比”7月1日开打](http://www.blog.minike.top/Article/details/12094059265.shtml)
+- 2026-06-30 08:45 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/272767.shtml)
+- 2026-06-30 08:52 - [安切洛蒂 换人](http://www.blog.kurohicncr.top/Article/details/63095192.shtml)
+- 2026-06-30 08:26 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/85015.shtml)
+- 2026-06-30 08:41 - [恋与深空制作组回应近期争议](https://www.share.kurohicncr.top/Article/details/949330.shtml)
+- 2026-06-30 08:47 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.blog.kurohicncr.top/Article/details/70513.shtml)
+- 2026-06-30 08:42 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/98969421795.shtml)
+- 2026-06-30 08:38 - [德国队连续三届世界杯无缘16强](https://www.blog.kurohicncr.top/Article/details/43572437595.shtml)
+- 2026-06-30 08:36 - [时光音乐会](http://www.blog.minike.top/Article/details/101978.shtml)
+- 2026-06-30 08:25 - [日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？](http://www.share.kurohicncr.top/Article/details/52260273161.shtml)
+- 2026-06-30 08:45 - [本届世界杯已有5名球员被控强奸](https://www.share.kurohicncr.top/Article/details/2259519630.shtml)

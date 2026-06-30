@@ -1,57 +1,58 @@
-# 纳指八连涨，欧洲三大股指涨跌不一，油价、金价都跌了
+# 银行理财产品“飞单”，怎么防、谁来赔？
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-中新经纬4月11日电 美东时间周五，美股三大股指收盘涨跌不一。截至收盘，道指跌0.56%报47916.57点；纳指涨0.35%报22902.89点，实现八连涨；标普500指数跌0.11%报6816.89点。 本周，道指涨3.04%，纳指涨4.68%，标普500指数涨3.56%。 Wind截图 北京时间4月10日晚间，美国劳工统计局发布了3月消费者价格指数(CPI)报告，其中显示
+来源：中国银行保险报 买了非银行自主发行或代销的理财产品，出现大额损失谁来赔？看似正规的银行网点里，隐藏着怎样的“飞单”风险？ 5月15日，在北京市西城区人民法院（以下简称“西城法院”）、北京金融街服务局联合举办的“5·15全国投资者保护宣传日”专题宣讲活动上，西城法院法官现场以案说法，为投资者敲响警钟。 所谓“飞单”，是指金融机构员工私自向客户推介非所属机构发行或代理的其他第
 
 ## 正文
 
-中新经纬4月11日电 美东时间周五，美股三大股指收盘涨跌不一。
+来源：中国银行保险报 买了非银行自主发行或代销的理财产品，出现大额损失谁来赔？
 
-截至收盘，道指跌0.56%报47916.57点；纳指涨0.35%报22902.89点，实现八连涨；标普500指数跌0.11%报6816.89点。
+看似正规的银行网点里，隐藏着怎样的“飞单”风险？
 
-本周，道指涨3.04%，纳指涨4.68%，标普500指数涨3.56%。
+5月15日，在北京市西城区人民法院（以下简称“西城法院”）、北京金融街服务局联合举办的“5·15全国投资者保护宣传日”专题宣讲活动上，西城法院法官现场以案说法，为投资者敲响警钟。
 
-Wind截图 北京时间4月10日晚间，美国劳工统计局发布了3月消费者价格指数(CPI)报告，其中显示，美国3月CPI同比增长3.3%，为2024年5月以来新高，但低于市场预估的3.4%，前值为2.4%；CPI环比增长0.9%，为2022年6月以来最大单月涨幅，但符合市场预期，前值为0.30%。
+所谓“飞单”，是指金融机构员工私自向客户推介非所属机构发行或代理的其他第三方机构理财产品行为。
 
-盘面上，大型科技股涨跌互现，万得美国科技七巨头指数涨0.77%。
+在西城法院公布的一起案例中，嵇某成立某有限合伙企业后，伙同他人向社会公众非法吸收资金。
 
-个股方面，英伟达、亚马逊涨超2%，特斯拉涨近1%，脸书涨0.23%，苹果持平，谷歌跌0.39%，微软跌0.59%。
+为扩大吸收资金途径，嵇某找到某银行客户经理赵某，让其帮助寻找投资人。
 
-英特尔收涨1.07%，本周累涨23.82%，创2000年1月以来最大单周涨幅。
+赵某遂向银行客户闫某推荐了嵇某成立的合伙企业发行的一只基金。
 
-能源股全线走低，埃克森美孚跌超1%，雪佛龙跌近1%，康菲石油跌0.75%，斯伦贝谢跌超1%，西方石油跌近1%。
+赵某具有真实的金融机构工作人员身份，销售场景也为赵某工作的银行网点。
 
 ## 相关推荐
 
-- 2026-06-30 08:46 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
-- 2026-06-30 08:43 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-30 08:19 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-30 08:24 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
-- 2026-06-30 08:28 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
-- 2026-06-30 08:22 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-30 08:27 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
-- 2026-06-30 08:46 - [高质量发展看新疆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-30 08:28 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
-- 2026-06-30 08:23 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-30 08:39 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-30 08:25 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-30 08:28 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
+- 2026-06-30 08:52 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-30 08:52 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-30 08:39 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-30 08:26 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-30 08:40 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-30 08:43 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-30 08:50 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
+- 2026-06-30 08:43 - [马耳他著名拱门坍塌致一中国男子身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-30 08:40 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-30 08:51 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:30 - [全球最火存储ETF纳入兆易创新](http://www.blog.kurohicncr.top/Article/details/50838410.shtml)
-- 2026-06-30 08:18 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/995505609827.shtml)
-- 2026-06-30 08:30 - [德国巴拉圭进入点球大战](https://www.share.minike.top/Article/details/3487470952.shtml)
-- 2026-06-30 08:27 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/291996963093.shtml)
-- 2026-06-30 08:34 - [为什么会有「念旧」的心理？](https://www.blog.minike.top/Article/details/82344240780.shtml)
-- 2026-06-30 08:45 - [张碧晨一开口梦回逐玉](http://www.share.minike.top/Article/details/97510570.shtml)
-- 2026-06-30 08:18 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/814510680.shtml)
-- 2026-06-30 08:35 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.blog.minike.top/Article/details/065323206.shtml)
-- 2026-06-30 08:38 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/5807403581.shtml)
-- 2026-06-30 08:18 - [女心理师](http://www.blog.minike.top/Article/details/35606150.shtml)
-- 2026-06-30 08:41 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/59184700665.shtml)
-- 2026-06-30 08:41 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/766775884307.shtml)
-- 2026-06-30 08:20 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.minike.top/Article/details/1775197650.shtml)
-- 2026-06-30 08:37 - [杨紫大银幕成绩单如何](https://www.blog.minike.top/Article/details/91457275.shtml)
-- 2026-06-30 08:22 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/2332524656.shtml)
+- 2026-06-30 08:39 - [日本博主：日本足球真的垃圾](https://www.blog.kurohicncr.top/Article/details/3943103995.shtml)
+- 2026-06-30 08:48 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/7587536.shtml)
+- 2026-06-30 08:31 - [存储芯片龙头提示风险](https://www.blog.minike.top/Article/details/622742410216.shtml)
+- 2026-06-30 08:26 - [女心理师](http://www.blog.kurohicncr.top/Article/details/919000956.shtml)
+- 2026-06-30 08:44 - [一见倾心](https://www.blog.minike.top/Article/details/147917.shtml)
+- 2026-06-30 08:30 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/37717.shtml)
+- 2026-06-30 08:43 - [板面：为什么那么多人爱吃？？！](http://www.blog.minike.top/Article/details/42335560.shtml)
+- 2026-06-30 08:51 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/2976502.shtml)
+- 2026-06-30 08:44 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/4458340896.shtml)
+- 2026-06-30 08:52 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/41811.shtml)
+- 2026-06-30 08:44 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/158424711781.shtml)
+- 2026-06-30 08:38 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/623204387702.shtml)
+- 2026-06-30 08:43 - [好像看到了人类带孩子崩溃的样子](https://www.share.minike.top/Article/details/212627851.shtml)
+- 2026-06-30 08:31 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://www.share.kurohicncr.top/Article/details/89120.shtml)
+- 2026-06-30 08:26 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/955546370.shtml)

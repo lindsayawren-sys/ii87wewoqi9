@@ -1,59 +1,58 @@
-# 海外侨胞关注国共领导人会面：展现两岸和平发展心愿
+# 芯片需求强劲，韩国上市公司一季度营业利润总额飙升175%创历史新高
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-中新社北京4月10日电 (记者 吴侃 门睿)中共中央总书记习近平10日在北京会见了郑丽文主席率领的中国国民党访问团。多位海外侨胞接受中新社记者连线采访时表示，此次会见展现了期盼和平、共谋发展的共同心愿，将对两岸关系发展产生深远影响。 全非洲中国和平统一促进会荣誉会长李新铸说，此次会见为新形势下两岸关系发展指明了方向，也为两岸深化交流合作、实现共同发展创造良好条件。海外侨胞将继续
+韩国交易所周二公布的数据显示，受人工智能（AI）热潮推动半导体需求强劲增长，韩国上市公司今年前三个月总利润创历史新高。 韩国交易所汇编的数据显示，今年1月至3月，韩国综合股价指数（KOSPI）639家上市公司的营业利润总额同比增长175%，达到156.3万亿韩元（约合1039亿美元）。 这些公司的总销售额同比增长19.4%，达到927.5万亿韩元，净利润合计飙升117.8%，达
 
 ## 正文
 
-中新社北京4月10日电 (记者 吴侃 门睿)中共中央总书记习近平10日在北京会见了郑丽文主席率领的中国国民党访问团。
+韩国交易所周二公布的数据显示，受人工智能（AI）热潮推动半导体需求强劲增长，韩国上市公司今年前三个月总利润创历史新高。
 
-多位海外侨胞接受中新社记者连线采访时表示，此次会见展现了期盼和平、共谋发展的共同心愿，将对两岸关系发展产生深远影响。
+韩国交易所汇编的数据显示，今年1月至3月，韩国综合股价指数（KOSPI）639家上市公司的营业利润总额同比增长175%，达到156.3万亿韩元（约合1039亿美元）。
 
-全非洲中国和平统一促进会荣誉会长李新铸说，此次会见为新形势下两岸关系发展指明了方向，也为两岸深化交流合作、实现共同发展创造良好条件。
+这些公司的总销售额同比增长19.4%，达到927.5万亿韩元，净利润合计飙升117.8%，达到141万亿韩元。
 
-海外侨胞将继续支持两岸各领域交流合作，助力两岸关系向前发展。
+然而，数据显示，上市公司盈利的激增主要由三星电子和SK海力士两家公司引领，这两家公司受益于人工智能领域的蓬勃发展而获利颇丰。
 
-西班牙中国和平统一促进会会长徐松华说，两岸同胞同属中华民族，中华文化是两岸同胞共同的根脉和归属，“两岸一家亲，都是中国人”是两岸关系的底色。
+剔除三星电子和SK海力士后，上市公司的销售额增长了9.07%，营业利润和净利润分别增长了44.4%和55.7%。
 
-此次会见更坚定了海外侨胞对两岸和平发展的信心。
+在所有上市公司中，590家公司（占81.16%）实现了盈利。
 
-俄罗斯中国和平统一促进会常务副会长吴昊说，国共两党重申坚持“九二共识”、反对“台独”的政治基础，为两岸关系发展铸牢“定海神针”，只有坚守这一根基，台海和平稳定才有坚实保障。
+从行业来看，电气电子公司和汽车制造商表现稳健。
 
-老挝中国和平统一促进会执行会长林俊雄表示，当前两岸融合发展实践取得阶段性成果，两岸同胞在交流中拉近距离，在合作中增进互信。
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-30 08:19 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-30 08:39 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
-- 2026-06-30 08:29 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-30 08:18 - [感动全网的699分女生想报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-30 08:26 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-30 08:25 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-30 08:19 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-30 08:21 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-30 08:18 - [莫兰特转投开拓者效力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-30 08:37 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
-- 2026-06-30 08:34 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-30 08:18 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
-- 2026-06-30 08:36 - [德国连续三届世界杯无缘16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-30 08:33 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
+- 2026-06-30 08:53 - [郑钦文 四年一轮游](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-30 08:48 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-30 08:37 - [恋与深空回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-30 08:25 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-30 08:49 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-30 08:31 - [电影抓特务上映11天破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-30 08:44 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-30 08:39 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-30 08:34 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-30 08:49 - [郑钦文温网首轮出局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-30 08:53 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:19 - [日本将帅赛后采访纷纷哽咽落泪](http://www.share.kurohicncr.top/Article/details/176801.shtml)
-- 2026-06-30 08:35 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/2747063820.shtml)
-- 2026-06-30 08:26 - [诺伊尔尽力了](http://www.share.minike.top/Article/details/04771386.shtml)
-- 2026-06-30 08:47 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/921028.shtml)
-- 2026-06-30 08:44 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.kurohicncr.top/Article/details/08004073.shtml)
-- 2026-06-30 08:25 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/37864830861.shtml)
-- 2026-06-30 08:30 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/4081110389.shtml)
-- 2026-06-30 08:30 - [毒液2](https://www.blog.minike.top/Article/details/61167601061.shtml)
-- 2026-06-30 08:42 - [韩国人为什么这么在乎输赢](https://www.blog.minike.top/Article/details/93817553.shtml)
-- 2026-06-30 08:44 - [亚洲球队全部告别世界杯](https://www.share.minike.top/Article/details/4689047610.shtml)
-- 2026-06-30 08:21 - [武磊：巴西队赢的并不轻松](http://www.share.minike.top/Article/details/503509471.shtml)
-- 2026-06-30 08:18 - [索马里女大使：想和中国一起搞事业](http://www.blog.minike.top/Article/details/49567399.shtml)
-- 2026-06-30 08:18 - [德国罚丢3粒点球](https://www.blog.minike.top/Article/details/49373007032.shtml)
-- 2026-06-30 08:19 - [第3集丨“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/993893812.shtml)
-- 2026-06-30 08:35 - [国务院：鼓励行业龙头企业举办职校](http://www.share.minike.top/Article/details/56442543.shtml)
+- 2026-06-30 08:42 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/588016170.shtml)
+- 2026-06-30 08:42 - [藤森庆子赢得秘鲁总统选举](https://www.share.kurohicncr.top/Article/details/17060.shtml)
+- 2026-06-30 08:28 - [世界杯：德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/420310.shtml)
+- 2026-06-30 08:53 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/559564039972.shtml)
+- 2026-06-30 08:49 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/13942522.shtml)
+- 2026-06-30 08:30 - [【涤墨作战7人870】望：我从地狱杀回来了！](http://www.blog.minike.top/Article/details/741001251804.shtml)
+- 2026-06-30 08:48 - [金鹰奖视后提名预测](http://www.blog.minike.top/Article/details/512780387.shtml)
+- 2026-06-30 08:40 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/82425.shtml)
+- 2026-06-30 08:35 - [周冬雨多次说演不了话剧文城](https://www.share.minike.top/Article/details/108508.shtml)
+- 2026-06-30 08:33 - [毒液2](http://www.share.minike.top/Article/details/33721209.shtml)
+- 2026-06-30 08:41 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/7137795626.shtml)
+- 2026-06-30 08:32 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.minike.top/Article/details/135960322704.shtml)
+- 2026-06-30 08:26 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/5853512134.shtml)
+- 2026-06-30 08:32 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](http://www.share.kurohicncr.top/Article/details/9192480750.shtml)
+- 2026-06-30 08:43 - [世界杯欧洲队7战南美仅1胜](http://www.share.minike.top/Article/details/172759.shtml)

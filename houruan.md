@@ -1,60 +1,59 @@
-# 长谈21小时后 美国副总统万斯称未能与伊朗达成协议
+# Ulstein向Nexans交付新型DP3电缆铺设船，提升全球海上输电能力
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-美国副总统JD·万斯表示，美国和伊朗在周末于巴基斯坦进行了长达21小时的会谈后，未能就结束战争达成协议。 万斯周日早些时候在伊斯兰堡对记者表示：“我们返回美国，仍然没有达成协议。我们已经非常明确地说明了我们的底线，哪些方面我们愿意作出让步，哪些方面我们不会让步。我们已经尽可能清楚地表达了这一点，而他们选择不接受我们的条件。” 万斯与美国特使史蒂夫·威特科夫和特朗普的女婿贾里德·
+挪威船厂Ulstein Verft已向Nexans交付了一艘名为“Nexans Electra”的DP3电缆铺设船（CLV）。该船是其姊妹船“Nexans Aurora”（2021年交付）的升级版，增强了载缆容量并优化了布局。 技术规格 Nexans Electra配备了一个额外的3500吨舱内转盘、一个可容纳10000吨电缆的甲板分体式转盘，以及一个450吨的光纤罐。该船专为
 
 ## 正文
 
-美国副总统JD·万斯表示，美国和伊朗在周末于巴基斯坦进行了长达21小时的会谈后，未能就结束战争达成协议。
+挪威船厂Ulstein Verft已向Nexans交付了一艘名为“Nexans Electra”的DP3电缆铺设船（CLV）。
 
-万斯周日早些时候在伊斯兰堡对记者表示：“我们返回美国，仍然没有达成协议。
+该船是其姊妹船“Nexans Aurora”（2021年交付）的升级版，增强了载缆容量并优化了布局。
 
-我们已经非常明确地说明了我们的底线，哪些方面我们愿意作出让步，哪些方面我们不会让步。
+技术规格 Nexans Electra配备了一个额外的3500吨舱内转盘、一个可容纳10000吨电缆的甲板分体式转盘，以及一个450吨的光纤罐。
 
-我们已经尽可能清楚地表达了这一点，而他们选择不接受我们的条件。
+该船专为严苛的海上作业设计，具备优秀的机动性和动力定位能力，可在恶劣天气下高效运营。
 
-” 万斯与美国特使史蒂夫·威特科夫和特朗普的女婿贾里德·库什纳一起与由伊朗议长穆罕默德·巴格尔·卡利巴夫牵头的伊朗团队进行谈判，以寻求为结束这场持续六周的战争找到持久解决方案。
+战略意义 该船计划于2026年投入运营，届时将成为全球海上可再生能源和互联互通项目的重要资产，极大增强Nexans安装先进海底电力和通信电缆系统的能力。
 
-据一名知情美国官员和一名知情巴基斯坦官员称，技术专家小组于周六参加了会谈，话题主要集中在霍尔木兹海峡、停火的潜在延长以及分阶段削减制裁等问题上。
+管理层表态 Nexans Norway首席执行官Lars Eriksen表示，此次交付是重要里程碑，验证了Ulstein在复杂建造项目中的执行能力。
 
-这很大程度上回避了特朗普政府声称导致战争爆发的核心议题，包括伊朗对武装代理人的支持，以及其核计划和导弹计划。
+Nexans输电业务集团执行副总裁Pascal Radue补充说，该船显著扩展了公司安全、高效交付最复杂海底项目的能力，满足了能源转型加速背景下客户的关键需求。
 
-双方未能达成协议，这意味着双方继上周达成脆弱的两周停火后遇挫。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-30 08:22 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-30 08:37 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-30 08:39 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
-- 2026-06-30 08:31 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-30 08:33 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-30 08:30 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-30 08:42 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
-- 2026-06-30 08:39 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-30 08:41 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-30 08:18 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-30 08:34 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-30 08:35 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-30 08:30 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
-- 2026-06-30 08:29 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-30 08:48 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-30 08:39 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-30 08:25 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-30 08:33 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-30 08:37 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-30 08:28 - [点球大战 残酷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-30 08:42 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-30 08:25 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-30 08:54 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-30 08:45 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-30 08:42 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-30 08:35 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-30 08:28 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:35 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/16053093994.shtml)
-- 2026-06-30 08:41 - [国务院：鼓励行业龙头企业举办职校](http://www.share.minike.top/Article/details/351001.shtml)
-- 2026-06-30 08:46 - [巴西绝杀日本](http://www.blog.minike.top/Article/details/196801284021.shtml)
-- 2026-06-30 08:27 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.kurohicncr.top/Article/details/66479295366.shtml)
-- 2026-06-30 08:27 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/76560.shtml)
-- 2026-06-30 08:29 - [媒体：手机测评该挤挤水分了](http://www.blog.kurohicncr.top/Article/details/78232473457.shtml)
-- 2026-06-30 08:36 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.kurohicncr.top/Article/details/927762217584.shtml)
-- 2026-06-30 08:39 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/2390094725.shtml)
-- 2026-06-30 08:43 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/7953574.shtml)
-- 2026-06-30 08:25 - [韩乔生吐槽世界杯扩军](https://www.share.kurohicncr.top/Article/details/315732.shtml)
-- 2026-06-30 08:30 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/17502553.shtml)
-- 2026-06-30 08:46 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/988501792683.shtml)
-- 2026-06-30 08:27 - [王欣瑜2-1击败科恰雷托](http://www.blog.kurohicncr.top/Article/details/12706859295.shtml)
-- 2026-06-30 08:38 - [高考结束了，你会让孩子在家玩手机吗？](https://www.share.kurohicncr.top/Article/details/4007140.shtml)
-- 2026-06-30 08:19 - [金刚川](https://www.share.minike.top/Article/details/095410683.shtml)
+- 2026-06-30 08:30 - [张帅时隔四年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/115409432.shtml)
+- 2026-06-30 08:30 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.minike.top/Article/details/71533.shtml)
+- 2026-06-30 08:44 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/763505023367.shtml)
+- 2026-06-30 08:26 - [美股](https://www.blog.kurohicncr.top/Article/details/6405504546.shtml)
+- 2026-06-30 08:44 - [日本队5进世界杯淘汰赛0胜](https://www.blog.minike.top/Article/details/276083.shtml)
+- 2026-06-30 08:48 - [锐评T1战胜KC](https://www.blog.kurohicncr.top/Article/details/742921938.shtml)
+- 2026-06-30 08:34 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/3788353.shtml)
+- 2026-06-30 08:37 - [巴西替补奇兵读秒绝杀](https://www.share.kurohicncr.top/Article/details/4769392.shtml)
+- 2026-06-30 08:35 - [曝iPhone18Pro机密文件现身暗网](http://www.share.minike.top/Article/details/2124354646.shtml)
+- 2026-06-30 08:50 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/52331464.shtml)
+- 2026-06-30 08:53 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/950073496232.shtml)
+- 2026-06-30 08:30 - [世界杯](http://www.share.minike.top/Article/details/5581921246.shtml)
+- 2026-06-30 08:51 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/968034881.shtml)
+- 2026-06-30 08:31 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.minike.top/Article/details/114846.shtml)
+- 2026-06-30 08:30 - [板面：为什么那么多人爱吃？？！](http://www.blog.kurohicncr.top/Article/details/992714525268.shtml)

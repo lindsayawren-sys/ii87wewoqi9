@@ -1,53 +1,55 @@
-# 交通运输部安委办约谈中国铁建股份有限公司
+# 中信建投：Figure机器人直播分拣 关注垂类应用放量拐点
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-中新网4月10日电 据交通运输部微信公众号消息，今年以来，中国铁建股份有限公司及其所属子公司在公路水运工程建设领域事故多发，为推动公路水运工程建设安全生产形势稳定好转，依据《交通运输部安全生产警示约谈和挂牌督办办法》，近日，交通运输部安委办约谈了中国铁建股份有限公司及其所属相关子公司。约谈强调，中国铁建要认真落实党中央、国务院决策部署，统筹好发展和安全，坚持人民至上、生命至上，
+转自：证券时报 人民财讯5月19日电，中信建投证券研报称，Figure机器人直播分拣，关注垂类应用放量拐点。Figure03全天候直播包裹分拣任务，这表明人形机器人正在从实验室加速走向商业化应用阶段，人形机器人板块的核心已从主题投资向量产预期演进，机器人在工业、商业、家庭等场景的落地进程是当前资本市场关注的重点。F.03连续分拣超过80小时、处理超过10万个包裹，这是人形机器人
 
 ## 正文
 
-中新网4月10日电 据交通运输部微信公众号消息，今年以来，中国铁建股份有限公司及其所属子公司在公路水运工程建设领域事故多发，为推动公路水运工程建设安全生产形势稳定好转，依据《交通运输部安全生产警示约谈和挂牌督办办法》，近日，交通运输部安委办约谈了中国铁建股份有限公司及其所属相关子公司。
+转自：证券时报 人民财讯5月19日电，中信建投证券研报称，Figure机器人直播分拣，关注垂类应用放量拐点。
 
-约谈强调，中国铁建要认真落实党中央、国务院决策部署，统筹好发展和安全，坚持人民至上、生命至上，树立和践行正确政绩观，处理好安全、质量、工期和效益的关系，坚持强管理、高标准、严要求，切实提高公路水运工程项目施工质量安全管理水平。
+Figure03全天候直播包裹分拣任务，这表明人形机器人正在从实验室加速走向商业化应用阶段，人形机器人板块的核心已从主题投资向量产预期演进，机器人在工业、商业、家庭等场景的落地进程是当前资本市场关注的重点。
 
-约谈指出，中国铁建要深刻认识当前安全生产形势，深刻剖析事故背后的深层次问题，深刻汲取事故教训，切实举一反三，采取有效手段，重点防范思想认识不到位、施工现场管控不到位、材料产品管理不到位等带来的质量安全风险，坚决遏制事故多发势头。
+F.03连续分拣超过80小时、处理超过10万个包裹，这是人形机器人工业场景落地应用的重要考验，证明其在自主性、连续性、可靠性方面得到了明显提升。
 
-约谈要求，中国铁建要从严履行企业主体责任，积极主动作为，加强内部安全管理，强化分包和劳务合作队伍管理，坚决整治违规作业和冒险施工，严防施工现场失管失控。
+今年7—8月特斯拉Optimus项目有望启动量产，后续产品发布、量产推进等值得重点关注；同时，宇树科技等国产机器人公司IPO持续推进，国产本体厂商有望估值重估，当前建议把握核心环节。
 
-要深化开展风险隐患排查整治，针对桥梁、隧道、基坑和边坡、临时结构工程等重点部位，强化质量安全管理措施，严防群死群伤事故发生。
+责任编辑：江钰涵
 
 ## 相关推荐
 
-- 2026-06-30 08:35 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-30 08:33 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-30 08:28 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-30 08:27 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-30 08:42 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
-- 2026-06-30 08:36 - [勇士续约波尔津吉斯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
-- 2026-06-30 08:45 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-30 08:19 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-30 08:31 - [周冬雨多次说演不了话剧文城](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
-- 2026-06-30 08:40 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
-- 2026-06-30 08:21 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-30 08:29 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
-- 2026-06-30 08:29 - [现在叛逆期的孩子最怕的是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-30 08:40 - [田中碧失误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-30 08:42 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-30 08:30 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-30 08:52 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-30 08:25 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-30 08:38 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-30 08:26 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-30 08:39 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-30 08:30 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-30 08:42 - [巴拉圭率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
+- 2026-06-30 08:30 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
+- 2026-06-30 08:47 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-30 08:48 - [杨紫大银幕成绩单如何](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-30 08:29 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-30 08:52 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:19 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/87577.shtml)
-- 2026-06-30 08:43 - [全球芯片巨头史诗级扩产](http://www.share.kurohicncr.top/Article/details/880634472.shtml)
-- 2026-06-30 08:25 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/9911279.shtml)
-- 2026-06-30 08:38 - [明星大侦探第一季](http://www.share.minike.top/Article/details/338313611840.shtml)
-- 2026-06-30 08:26 - [这几秒成世界杯最值钱广告位](https://www.blog.kurohicncr.top/Article/details/224957974.shtml)
-- 2026-06-30 08:28 - [曝灰熊将莫兰特交易至开拓者](http://www.share.kurohicncr.top/Article/details/60514.shtml)
-- 2026-06-30 08:35 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/005328823483.shtml)
-- 2026-06-30 08:18 - [覃予萱晋级WTT美国大满贯女单32强](http://www.share.kurohicncr.top/Article/details/2910248594.shtml)
-- 2026-06-30 08:41 - [世界杯：德国vs巴拉圭](https://www.blog.kurohicncr.top/Article/details/5357363.shtml)
-- 2026-06-30 08:28 - [《共患难》](https://www.share.minike.top/Article/details/924276.shtml)
-- 2026-06-30 08:23 - [沙丘](http://www.blog.kurohicncr.top/Article/details/621969282337.shtml)
-- 2026-06-30 08:26 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/8054971.shtml)
-- 2026-06-30 08:44 - [乔家的儿女](http://www.blog.minike.top/Article/details/75079992584.shtml)
-- 2026-06-30 08:34 - [巴拉圭先进球了](http://www.share.kurohicncr.top/Article/details/1771752.shtml)
-- 2026-06-30 08:31 - [送你一朵小红花](http://www.blog.minike.top/Article/details/13906.shtml)
+- 2026-06-30 08:31 - [巴西2-1绝杀日本](https://www.share.kurohicncr.top/Article/details/3071743.shtml)
+- 2026-06-30 08:52 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/0988440.shtml)
+- 2026-06-30 08:30 - [这一刀 会很帅](https://www.share.minike.top/Article/details/457504420.shtml)
+- 2026-06-30 08:39 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/473934.shtml)
+- 2026-06-30 08:42 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.share.minike.top/Article/details/34904939382.shtml)
+- 2026-06-30 08:31 - [【大鸣王潮1566】真拿你没办法](http://www.blog.kurohicncr.top/Article/details/35824.shtml)
+- 2026-06-30 08:50 - [我和我的家乡](https://www.blog.minike.top/Article/details/0651330858.shtml)
+- 2026-06-30 08:24 - [德国淘汰](https://www.blog.kurohicncr.top/Article/details/347757591.shtml)
+- 2026-06-30 08:53 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/498147667.shtml)
+- 2026-06-30 08:34 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/31787820301.shtml)
+- 2026-06-30 08:41 - [问心2神一集鬼三集](http://www.blog.kurohicncr.top/Article/details/934159344542.shtml)
+- 2026-06-30 08:25 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/34386945229.shtml)
+- 2026-06-30 08:46 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/34178144.shtml)
+- 2026-06-30 08:52 - [全球最火存储ETF纳入兆易创新](https://www.blog.kurohicncr.top/Article/details/9895981513.shtml)
+- 2026-06-30 08:53 - [王楚钦说配合稍微有些陌生感](https://www.blog.kurohicncr.top/Article/details/9147591041.shtml)

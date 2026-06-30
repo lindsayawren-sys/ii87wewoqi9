@@ -1,56 +1,61 @@
-# 纽约汇市：彭博美元指数五连跌 美国核心CPI削弱货币政策收紧压力
+# 10元基数量居首，翻倍基超20只 富国主动权益长短期业绩齐绽放
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-彭博美元指数周五微跌，低于预期的美国3月核心CPI缓解了美联储收紧货币政策的压力。该指数本周累计下挫1.4%，为两个多月来最大周跌幅。 彭博美元即期指数下跌0.1%，连续第五天走低，单周表现为1月23日以来最差。 法国农业信贷银行G-10外汇研究与策略主管Valentin Marinov表示，自伊朗战争爆发以来，美元“在名义利率上已全面处于劣势，今天的CPI数据可能会加剧这一势
+近期，A股市场多日连阳后现回调。在前几个交易日的上涨过程中，主要指数不断走高：Wind数据显示，5月14日上证指数突破前期高点，盘中触及4258.86点；万得偏股混合型基金指数亦于5月13日刷新历史高位。在此背景下，富国基金旗下主动权益产品展现出“长短期俱佳”的实力：截至5月14日，全市场复权单位净值超10元的主动权益基金共98只，富国基金以7只的数量位居行业前列。在长期耐力凸
 
 ## 正文
 
-彭博美元指数周五微跌，低于预期的美国3月核心CPI缓解了美联储收紧货币政策的压力。
+近期，A股市场多日连阳后现回调。
 
-该指数本周累计下挫1.4%，为两个多月来最大周跌幅。
+在前几个交易日的上涨过程中，主要指数不断走高：Wind数据显示，5月14日上证指数突破前期高点，盘中触及4258.86点；万得偏股混合型基金指数亦于5月13日刷新历史高位。
 
-彭博美元即期指数下跌0.1%，连续第五天走低，单周表现为1月23日以来最差。
+在此背景下，富国基金旗下主动权益产品展现出“长短期俱佳”的实力：截至5月14日，全市场复权单位净值超10元的主动权益基金共98只，富国基金以7只的数量位居行业前列。
 
-法国农业信贷银行G-10外汇研究与策略主管Valentin Marinov表示，自伊朗战争爆发以来，美元“在名义利率上已全面处于劣势，今天的CPI数据可能会加剧这一势头。
+在长期耐力凸显的同时，短期爆发力同样表现不俗，全市场近一年收益率翻倍的主动权益产品共478只，富国基金旗下21只入围，成为全行业仅有的两家“翻倍基”数量超20只的管理人之一。
 
-” 但他同时指出：“当前外汇市场走势主要取决于本周末即将举行的美伊谈判。
+长期耐力凸显：“10元基”数量行业第一 如今，市场衡量一只基金的优劣，已不仅看阶段涨幅，更看有多少持有人实实在在赚到了钱。
 
-” 三菱日联金融集团外汇策略师Lee Hardman在报告中写道，中东持续的袭击凸显出“通往长期和平协议的道路仍面临重大障碍，目前尚不清楚霍尔木兹海峡的能源供应何时能够恢复。
+这要求产品净值整体呈现持续向上的趋势。
 
-” 他补充称，“这种持续的不确定性可能会抑制高贝塔货币短期内的进一步上涨。
+Wind数据显示，单从5月数据来看，全市场成立满5年的主动权益类产品中，有1260只复权单位净值创出历史新高，复权单位净值在2元以上的达793只。
 
-” 美元/日元上涨0.2%至159.27，连续第二天走高。
+更引人注目的是，全市场复权单位净值超过10元的主动权益基金已达98只。
 
 ## 相关推荐
 
-- 2026-06-30 08:27 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
-- 2026-06-30 08:42 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-30 08:23 - [网瘾賊大的阿嬷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-30 08:30 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-30 08:44 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-30 08:39 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-30 08:27 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-30 08:33 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-30 08:42 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-30 08:34 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-30 08:25 - [武磊：巴西队赢的并不轻松](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-30 08:31 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-30 08:25 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
+- 2026-06-30 08:46 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-30 08:30 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
+- 2026-06-30 08:28 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-30 08:46 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-30 08:30 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-30 08:25 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
+- 2026-06-30 08:39 - [德国连续三届世界杯无缘16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-30 08:53 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
+- 2026-06-30 08:35 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-30 08:28 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-30 08:28 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-30 08:38 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:32 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](https://www.share.minike.top/Article/details/025169406655.shtml)
-- 2026-06-30 08:43 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/27088187.shtml)
-- 2026-06-30 08:35 - [穆祉丞年度人气艺人](http://www.share.minike.top/Article/details/59181630704.shtml)
-- 2026-06-30 08:20 - [孙兴慜道歉](https://www.blog.kurohicncr.top/Article/details/89765681748.shtml)
-- 2026-06-30 08:27 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/121433190600.shtml)
-- 2026-06-30 08:26 - [世界杯欧洲队7战南美仅1胜](https://www.share.kurohicncr.top/Article/details/356999526087.shtml)
-- 2026-06-30 08:34 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.kurohicncr.top/Article/details/340480581.shtml)
-- 2026-06-30 08:29 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/582689720.shtml)
-- 2026-06-30 08:46 - [森保一致歉：世界第一目标没能实现](http://www.blog.minike.top/Article/details/254089690.shtml)
-- 2026-06-30 08:29 - [日本半场1比0领先巴西](http://www.blog.minike.top/Article/details/5703760935.shtml)
-- 2026-06-30 08:34 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/7168264.shtml)
-- 2026-06-30 08:32 - [刘必安等16人非法集资案二审宣判](https://www.share.minike.top/Article/details/15333527553.shtml)
-- 2026-06-30 08:24 - [日本队主帅道歉](https://www.share.minike.top/Article/details/513751.shtml)
-- 2026-06-30 08:19 - [武磊：日本队有能力跟任何强队抗衡](https://www.blog.kurohicncr.top/Article/details/967587459956.shtml)
-- 2026-06-30 08:29 - [日本 高位逼抢](https://www.blog.minike.top/Article/details/6844769.shtml)
+- 2026-06-30 08:44 - [绘画区你赢了](http://www.share.minike.top/Article/details/6408139323.shtml)
+- 2026-06-30 08:40 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/70666.shtml)
+- 2026-06-30 08:26 - [网红峡谷5人溺亡 有人提醒会下雨](https://www.share.kurohicncr.top/Article/details/90367413613.shtml)
+- 2026-06-30 08:32 - [巴西vs日本](https://www.blog.minike.top/Article/details/099960258.shtml)
+- 2026-06-30 08:48 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/118904223.shtml)
+- 2026-06-30 08:46 - [美股](https://www.blog.kurohicncr.top/Article/details/49112121160.shtml)
+- 2026-06-30 08:32 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.kurohicncr.top/Article/details/072558816.shtml)
+- 2026-06-30 08:42 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/838524717.shtml)
+- 2026-06-30 08:26 - [有酒店推行24小时退房制](https://www.share.kurohicncr.top/Article/details/3721300578.shtml)
+- 2026-06-30 08:31 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/738787.shtml)
+- 2026-06-30 08:50 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/06871256662.shtml)
+- 2026-06-30 08:46 - [绘画区你赢了](https://www.blog.minike.top/Article/details/001307.shtml)
+- 2026-06-30 08:48 - [第3集丨“柠檬茶能换怀表？”](http://www.share.kurohicncr.top/Article/details/27024854.shtml)
+- 2026-06-30 08:33 - [Melo向柳智敏张元英道歉](http://www.share.kurohicncr.top/Article/details/842108.shtml)
+- 2026-06-30 08:53 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/54129592.shtml)

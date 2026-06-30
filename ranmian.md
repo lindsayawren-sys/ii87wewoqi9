@@ -1,56 +1,61 @@
-# Onyx称如果美国真的封锁霍尔木兹海峡 油价或涨至每桶150美元
+# SpaceX冲刺史上最大IPO：目标估值2万亿美元，马斯克承诺“一股不卖”
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-一位石油市场高管表示，如果美国按计划对霍尔木兹海峡实施海上封锁，油价应该会比目前水准高得多。 布伦特原油价格周一升至每桶103美元以上，此前华盛顿和德黑兰未在周末的谈判达成协议，加剧了这场震动市场的全球能源危机。美军将于纽约时间周一10：00开始实施封锁，该封锁适用于所有进出伊朗港口的船只。 Onyx Capital Group董事总经理Jorge Montepeque表示，今
+创纪录的募资规模与上市时间表 据多方消息，埃隆·马斯克旗下的太空探索巨头SpaceX已加速IPO进程，计划最早于6月12日登陆纳斯达克，股票代码为“SPCX”。此次IPO目标估值高达1.75万亿至2万亿美元，计划募资700亿至750亿美元，将大幅刷新沙特阿美2019年创下的294亿美元纪录，成为人类历史上规模最大的IPO。 拆股降门槛，马斯克承诺“锁仓” 为降低散户参与门槛，S
 
 ## 正文
 
-一位石油市场高管表示，如果美国按计划对霍尔木兹海峡实施海上封锁，油价应该会比目前水准高得多。
+创纪录的募资规模与上市时间表 据多方消息，埃隆·马斯克旗下的太空探索巨头SpaceX已加速IPO进程，计划最早于6月12日登陆纳斯达克，股票代码为“SPCX”。
 
-布伦特原油价格周一升至每桶103美元以上，此前华盛顿和德黑兰未在周末的谈判达成协议，加剧了这场震动市场的全球能源危机。
+此次IPO目标估值高达1.75万亿至2万亿美元，计划募资700亿至750亿美元，将大幅刷新沙特阿美2019年创下的294亿美元纪录，成为人类历史上规模最大的IPO。
 
-美军将于纽约时间周一10：00开始实施封锁，该封锁适用于所有进出伊朗港口的船只。
+拆股降门槛，马斯克承诺“锁仓” 为降低散户参与门槛，SpaceX已执行“1拆5”拆股方案，单股价值从约526.59美元调整至约105.32美元。
 
-Onyx Capital Group董事总经理Jorge Montepeque表示，今天早上看到的数字——103美元；上涨8%——完全不能反映如果美国真的决定实施封锁将会发生什么。
+同时，马斯克在X平台公开承诺，他在IPO中“一股都不会卖”，并计划发行10倍投票权的B类股，以确保其对公司的绝对控制权，专注于“让生命成为多行星化”的长期愿景，而非短期财报表现。
 
-这完全说不通。
+坚实业务支撑万亿估值 支撑这一创纪录估值的，是SpaceX强悍的基本面。
 
-油价应该到140美元、150美元。
+公司已占据全球80%以上的火箭发射市场份额；星链在轨卫星超1万颗，全球用户破千万，2025年营收已突破100亿美元。
 
-Montepeque表示，美国的封锁可能将一场区域性冲突升级为一场全球性冲突，导致每日供应减少高达1，200万桶。
+此外，与xAI的合并为公司注入了“AI+太空算力”的全新增长叙事，计划利用星舰部署轨道数据中心。
 
-“用一个词来形容就是：疯狂，”Montepeque在接受Haslinda Amin采访时说道。
+特斯拉动向：Robotaxi扩张同步推进 在SpaceX冲刺IPO的同时，马斯克旗下的另一家旗舰公司特斯拉也在全力推进自动驾驶。
 
 ## 相关推荐
 
-- 2026-06-30 08:39 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-30 08:30 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-30 08:21 - [周冬雨多次说演不了话剧文城](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-30 08:25 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-30 08:22 - [如果有二次元高中是什么样子的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-30 08:45 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-30 08:34 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-30 08:18 - [马耳他著名拱门坍塌致中国男子身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
-- 2026-06-30 08:40 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-30 08:28 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-30 08:49 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-30 08:47 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-30 08:32 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-30 08:38 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-30 08:42 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-30 08:29 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-30 08:29 - [现在叛逆期的孩子最怕的是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-30 08:36 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-30 08:42 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-30 08:44 - [孙颖莎王楚钦晋级8强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-30 08:39 - [日本队主帅道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-30 08:50 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-30 08:29 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-30 08:40 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-30 08:38 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:36 - [金刚川](https://www.share.kurohicncr.top/Article/details/394679141.shtml)
-- 2026-06-30 08:25 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/874155.shtml)
-- 2026-06-30 08:47 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/114297990187.shtml)
-- 2026-06-30 08:35 - [急先锋](http://www.blog.kurohicncr.top/Article/details/272769319.shtml)
-- 2026-06-30 08:40 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/5078177264.shtml)
-- 2026-06-30 08:22 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/3089363.shtml)
-- 2026-06-30 08:24 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/7347115.shtml)
-- 2026-06-30 08:38 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.minike.top/Article/details/50942629058.shtml)
-- 2026-06-30 08:43 - [自然光｜papi酱&窦文涛：驴与跑步机](http://www.share.minike.top/Article/details/170070226850.shtml)
-- 2026-06-30 08:35 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/2101442.shtml)
-- 2026-06-30 08:45 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/618379469293.shtml)
-- 2026-06-30 08:43 - [日本球迷被强行披上巴西国旗](https://www.blog.kurohicncr.top/Article/details/7302210962.shtml)
-- 2026-06-30 08:29 - [请回答王牌2019](http://www.blog.minike.top/Article/details/14428925.shtml)
-- 2026-06-30 08:39 - [“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/028600890.shtml)
-- 2026-06-30 08:38 - [恋与深空制作组回应近期争议](http://www.blog.minike.top/Article/details/694359225233.shtml)
+- 2026-06-30 08:50 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/8025824.shtml)
+- 2026-06-30 08:37 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/30955886236.shtml)
+- 2026-06-30 08:44 - [输球后日本球迷被强行披上巴西国旗](http://www.blog.kurohicncr.top/Article/details/667670085338.shtml)
+- 2026-06-30 08:36 - [韩乔生吐槽世界杯扩军](http://www.share.minike.top/Article/details/3379591.shtml)
+- 2026-06-30 08:24 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/319394488.shtml)
+- 2026-06-30 08:28 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/67885570.shtml)
+- 2026-06-30 08:32 - [美人鱼](https://www.share.minike.top/Article/details/35989007.shtml)
+- 2026-06-30 08:43 - [逃狱兄弟](https://www.share.minike.top/Article/details/08390431.shtml)
+- 2026-06-30 08:43 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/30750942371.shtml)
+- 2026-06-30 08:29 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.kurohicncr.top/Article/details/68206.shtml)
+- 2026-06-30 08:48 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/3216060865.shtml)
+- 2026-06-30 08:31 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](http://www.share.kurohicncr.top/Article/details/9137630.shtml)
+- 2026-06-30 08:34 - [《共患难》](http://www.blog.kurohicncr.top/Article/details/70702845850.shtml)
+- 2026-06-30 08:30 - [德国队连续三届世界杯无缘16强](http://www.blog.minike.top/Article/details/917572.shtml)
+- 2026-06-30 08:31 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/188773630.shtml)

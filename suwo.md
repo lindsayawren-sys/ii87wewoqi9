@@ -1,58 +1,56 @@
-# 不到一年，兴证资管再换帅：固收老将王焕舟出任董事长
+# 凭祥海关关于开展2026年5月份“关长接待日”的公告
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-每经记者|李娜 每经编辑|赵云 距上次换帅（去年5月20日）不足一年，兴证资管再度迎来掌门人更迭。 2026年4月11日，兴证资管发布公告称，王焕舟正式出任董事长，原董事长刘宇因工作调动离任，同时王焕舟代任公募基金管理业务合规负责人。 这位在固收与衍生品领域深耕多年的资深老将，又会给这家管理规模超千亿元的券商资管，带来怎样的变化？ 4月11日，兴证资管公告称，正式任命王焕舟为董
+为了解社会各界的建议和意见，并切实解决实际问题和困难，现就凭祥海关2026年5月份关长接待日有关事项预告如下： 一、接待时间：2026年5月26日(8：30-12：00)。 二、当值领导：凭祥海关党委书记、关长唐多。 三、接待地点：凭祥市友谊关大道6号凭祥海关办公楼。四、有关要求 (一)为做好接待安排工作，请来访者提前预约，预约的主要内容包括： 1.来访者的姓名、人数、单位、联
 
 ## 正文
 
-每经记者|李娜 每经编辑|赵云 距上次换帅（去年5月20日）不足一年，兴证资管再度迎来掌门人更迭。
+为了解社会各界的建议和意见，并切实解决实际问题和困难，现就凭祥海关2026年5月份关长接待日有关事项预告如下： 一、接待时间：2026年5月26日(8：30-12：00)。
 
-2026年4月11日，兴证资管发布公告称，王焕舟正式出任董事长，原董事长刘宇因工作调动离任，同时王焕舟代任公募基金管理业务合规负责人。
+二、当值领导：凭祥海关党委书记、关长唐多。
 
-这位在固收与衍生品领域深耕多年的资深老将，又会给这家管理规模超千亿元的券商资管，带来怎样的变化？
+三、接待地点：凭祥市友谊关大道6号凭祥海关办公楼。
 
-4月11日，兴证资管公告称，正式任命王焕舟为董事长，原董事长刘宇因工作调动不再担任该职务。
+四、有关要求 (一)为做好接待安排工作，请来访者提前预约，预约的主要内容包括： 1.来访者的姓名、人数、单位、联系电话或其他联系方式、身份证号码； 2.来访目的，如反映问题、咨询业务、提供工作建议、个人诉求等； 3.其他需要预约的事项。
 
-与此同时，王焕舟还将代任公募基金管理业务合规负责人。
+(二)来访者可通过拨打电话(0771-8537255)告知有关预约信息；也可以填写《预约表》(详见附件)发送传真(0771-8537255)或邮箱(pxhg_bgs@customs.gov.cn)进行预约，若您选择电子邮箱发送，务必请您在发送邮件后拨打电话与我们确认您的邮件是否发送成功。
 
-公告显示，王焕舟长期深耕金融机构自营投资和客需业务，在固定收益、多元资产和相关衍生品领域拥有丰富的投资交易和管理经验，曾任职于中信证券、国泰君安证券、上海爱建信托、华福证券等多家大中型金融机构。
+预约截止时间：2026年5月25日12：00前。
 
-同时，他还兼任中国银行间市场交易商协会第五届金融衍生品专家委员会委员、中国银行间市场交易商协会第三届从业人员培训专家委员会委员等职务。
+特此公告。
 
-王焕舟于2026年3月加入兴证资管，4月9日起正式担任董事长。
+附件：凭祥海关关长接待日预约表.doc 来源：南宁海关网站
 
 ## 相关推荐
 
-- 2026-06-30 08:47 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-30 08:37 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-30 08:25 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
-- 2026-06-30 08:28 - [德国爆冷点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-30 08:46 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
-- 2026-06-30 08:47 - [武磊：巴西队赢的并不轻松](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-30 08:24 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-30 08:42 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-30 08:29 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
-- 2026-06-30 08:45 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
-- 2026-06-30 08:23 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-30 08:35 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-30 08:48 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-30 08:47 - [德国4比5巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-30 08:24 - [杨紫学位证上就是杨紫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
+- 2026-06-30 08:26 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-30 08:53 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-30 08:53 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-30 08:49 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
+- 2026-06-30 08:33 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-30 08:25 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-30 08:36 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:27 - [“草莓月亮”浪漫现身](https://www.share.minike.top/Article/details/5621406109.shtml)
-- 2026-06-30 08:41 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/1373902292.shtml)
-- 2026-06-30 08:36 - [郑钦文 四年一轮游](http://www.blog.kurohicncr.top/Article/details/52788592267.shtml)
-- 2026-06-30 08:20 - [董路：谁赢谁是“正路子”](http://www.share.minike.top/Article/details/13213976.shtml)
-- 2026-06-30 08:36 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://www.share.minike.top/Article/details/304651988046.shtml)
-- 2026-06-30 08:33 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/4985807.shtml)
-- 2026-06-30 08:41 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/621495915.shtml)
-- 2026-06-30 08:37 - [南北多地暴雨和强对流天气持续](http://www.share.kurohicncr.top/Article/details/6232943.shtml)
-- 2026-06-30 08:27 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/6187458.shtml)
-- 2026-06-30 08:26 - [泰山景区回应修建刀片刺绳隔离网](https://www.share.minike.top/Article/details/58712255.shtml)
-- 2026-06-30 08:19 - [日本遭读秒绝杀 森保一：我水平不够](https://www.blog.minike.top/Article/details/759459778348.shtml)
-- 2026-06-30 08:42 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/261546777827.shtml)
-- 2026-06-30 08:43 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/203139013.shtml)
-- 2026-06-30 08:29 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/80107.shtml)
-- 2026-06-30 08:47 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/8888938.shtml)
+- 2026-06-30 08:33 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/689433939080.shtml)
+- 2026-06-30 08:35 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/730989460808.shtml)
+- 2026-06-30 08:52 - [建议不要突然完全停止喝咖啡](http://www.share.kurohicncr.top/Article/details/506685480380.shtml)
+- 2026-06-30 08:53 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/55598817873.shtml)
+- 2026-06-30 08:28 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/606789.shtml)
+- 2026-06-30 08:54 - [德国巴拉圭进入点球大战](https://www.blog.kurohicncr.top/Article/details/5784987550.shtml)
+- 2026-06-30 08:32 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/1079856921.shtml)
+- 2026-06-30 08:51 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/211670.shtml)
+- 2026-06-30 08:49 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/876365.shtml)
+- 2026-06-30 08:49 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/69657020.shtml)
+- 2026-06-30 08:40 - [日本球迷被强行披上巴西国旗](http://www.share.kurohicncr.top/Article/details/9259421960.shtml)
+- 2026-06-30 08:28 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](https://www.blog.kurohicncr.top/Article/details/29321367545.shtml)
+- 2026-06-30 08:33 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/23845127.shtml)
+- 2026-06-30 08:34 - [日本球迷被强行披上巴西国旗](https://www.share.minike.top/Article/details/0592510845.shtml)
+- 2026-06-30 08:24 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/6454787377.shtml)

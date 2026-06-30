@@ -1,59 +1,50 @@
-# 广西将组团参加第六届消博会 共享海南自贸港建设机遇
+# 英美资源集团将以最高38.8亿美元出售澳大利亚煤矿资产
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-中新网南宁4月10日电 (林浩)4月10日，广西壮族自治区商务厅介绍，为深化桂琼合作，共享海南自贸港建设机遇，广西将组建高规格代表团参加第六届中国国际消费品博览会，聚焦人工智能+消费、桂品出海、内外贸一体化、非遗活化、乡村振兴五大重点方向，精选广西14个地市的约64家广西优质企业、超350人参展参会。广西高度重视本届消博会，参会期间，将与海南签署相关协议，合力推进粤桂琼自贸试验
+资源集团周一宣布，已达成协议，将旗下澳大利亚炼焦煤矿作价最高38.8亿美元出售给英国矿业企业迪尔玛公司，这家伦敦上市企业借此精简自身业务资产组合。 该交易包含23亿美元首期现金款项，以及最高15.8亿美元与煤炭价格挂钩的浮动收益，所得资金将专门用于偿还债务。 英美资源集团首席英美资源集团将以最高38.8亿美元出售澳大利亚煤矿资产执行官邓肯・万布拉德在声明中表示：“通过此次交易，
 
 ## 正文
 
-中新网南宁4月10日电 (林浩)4月10日，广西壮族自治区商务厅介绍，为深化桂琼合作，共享海南自贸港建设机遇，广西将组建高规格代表团参加第六届中国国际消费品博览会，聚焦人工智能+消费、桂品出海、内外贸一体化、非遗活化、乡村振兴五大重点方向，精选广西14个地市的约64家广西优质企业、超350人参展参会。
+资源集团周一宣布，已达成协议，将旗下澳大利亚炼焦煤矿作价最高38.8亿美元出售给英国矿业企业迪尔玛公司，这家伦敦上市企业借此精简自身业务资产组合。
 
-广西高度重视本届消博会，参会期间，将与海南签署相关协议，合力推进粤桂琼自贸试验区(港)合作建设，深化在海事、旅游、物流、医疗、消费维权、育种等领域协作，共同加密北部湾港至海南港口的集装箱航线，拓展中国—东盟区域医药交易集采平台应用范围，促进桂琼两地创新链、政策链、资源链深度融合。
+该交易包含23亿美元首期现金款项，以及最高15.8亿美元与煤炭价格挂钩的浮动收益，所得资金将专门用于偿还债务。
 
-立足“北上广研发、广西集成、东盟应用”创新协同格局，广西还将以“潮起八桂智链全球，让国际消费更便利更美好！
+英美资源集团首席英美资源集团将以最高38.8亿美元出售澳大利亚煤矿资产执行官邓肯・万布拉德在声明中表示：“通过此次交易，我们将彻底退出炼焦煤业务领域。
 
-”为主题，设立广西馆，紧扣数字赋能、消费升级、开放共赢领域，按照智汇广西、智造桂品、桂韵新潮三大板块科学布局，同步特设东盟优品展示区，全方位展现广西智能制造硬实力、桂字号品牌影响力与中国—东盟开放合作新成果。
-
-“观众可以在展会上了解广西推动中国—东盟国家人工智能应用合作中心建设的成就，看到广西向海经济、汽车制造、数字硬件全链条发展成果，打卡体验广西非遗美食、民族康养与老字号茶酒，感受新时代壮美广西‘开放、创新、绿色、高质量’的发展图景。
-
-”广西商务厅相关负责人说。
-
-本届消博会上，广西还将与海南以“让国际消费更便利更美好”为主题，共同举办“潮涌消博会燃动北部湾——2026购在中国·广西主题推介活动”，推动两省区在规则对接、产业联动、通道协同、AI合作等领域落地一批合作项目，展现广西助力高标准建设海南自由贸易港，服务和融入新发展格局的具体成效，推动共建全球消费新高地。
-
-广西还将启动“购在中国·桂字号——广西品牌天下行”活动，助力广西优质品牌走向世界，开启桂琼消费协同发展全新篇章。
+”责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-30 08:38 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-30 08:45 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-30 08:21 - [德国罚丢3粒点球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
-- 2026-06-30 08:23 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
-- 2026-06-30 08:45 - [勇士续约波尔津吉斯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
-- 2026-06-30 08:21 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-30 08:41 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-30 08:47 - [德国淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-30 08:33 - [巴西绝杀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-30 08:34 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-30 08:40 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
-- 2026-06-30 08:28 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-30 08:30 - [杨紫大银幕成绩单如何](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-30 08:49 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-30 08:38 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-30 08:30 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
+- 2026-06-30 08:49 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-30 08:51 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-30 08:36 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-30 08:39 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-30 08:32 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
+- 2026-06-30 08:30 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-30 08:34 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-30 08:28 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-30 08:45 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:43 - [女子清吧被陌生人投放伟哥](http://www.share.minike.top/Article/details/322915.shtml)
-- 2026-06-30 08:45 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.kurohicncr.top/Article/details/587740932339.shtml)
-- 2026-06-30 08:45 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/22410459.shtml)
-- 2026-06-30 08:29 - [又一家县级医院关停门诊输液大厅](http://www.share.minike.top/Article/details/5616019.shtml)
-- 2026-06-30 08:22 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/4854366122.shtml)
-- 2026-06-30 08:23 - [佐野海舟远射破门](https://www.blog.minike.top/Article/details/94273.shtml)
-- 2026-06-30 08:34 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/3011254.shtml)
-- 2026-06-30 08:18 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/05638981170.shtml)
-- 2026-06-30 08:30 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/5860615719.shtml)
-- 2026-06-30 08:31 - [吴易昺不敌德约科维奇 止步温网首轮](http://www.blog.kurohicncr.top/Article/details/2571330.shtml)
-- 2026-06-30 08:22 - [张雪的一句“是我们”引发岛内热议](https://www.share.minike.top/Article/details/7635027050.shtml)
-- 2026-06-30 08:38 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](http://www.share.kurohicncr.top/Article/details/85112911966.shtml)
-- 2026-06-30 08:45 - [开电动汽车真的很省钱吗？](https://www.share.minike.top/Article/details/5635137897.shtml)
-- 2026-06-30 08:44 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/603929822.shtml)
-- 2026-06-30 08:41 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/5209402.shtml)
+- 2026-06-30 08:27 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/023248074.shtml)
+- 2026-06-30 08:46 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.kurohicncr.top/Article/details/29977.shtml)
+- 2026-06-30 08:31 - [啊啊啊](https://www.blog.minike.top/Article/details/903408142.shtml)
+- 2026-06-30 08:32 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://www.share.minike.top/Article/details/3738185.shtml)
+- 2026-06-30 08:28 - [王欣瑜2-1击败科恰雷托](https://www.share.kurohicncr.top/Article/details/0964784.shtml)
+- 2026-06-30 08:47 - [张雪的一句“是我们”引发岛内热议](https://www.blog.minike.top/Article/details/555248.shtml)
+- 2026-06-30 08:34 - [德国巴拉圭加时](http://www.share.kurohicncr.top/Article/details/386470668095.shtml)
+- 2026-06-30 08:35 - [内马尔中场休息积极鼓励队友](https://www.share.kurohicncr.top/Article/details/11462139570.shtml)
+- 2026-06-30 08:47 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/594592035094.shtml)
+- 2026-06-30 08:35 - [韩乔生吐槽世界杯扩军](https://www.blog.kurohicncr.top/Article/details/8507664670.shtml)
+- 2026-06-30 08:37 - [【涤墨作战7人870】望：我从地狱杀回来了！](http://www.share.kurohicncr.top/Article/details/314296.shtml)
+- 2026-06-30 08:27 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://www.blog.minike.top/Article/details/089632117021.shtml)
+- 2026-06-30 08:50 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/1376245225.shtml)
+- 2026-06-30 08:26 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/1849928.shtml)
+- 2026-06-30 08:30 - [媒体评哈兰德之歌火了](http://www.blog.kurohicncr.top/Article/details/58381684499.shtml)

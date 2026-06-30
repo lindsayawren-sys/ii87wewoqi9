@@ -1,47 +1,58 @@
-# 中视金桥将于7月10日派发末期股息每股0.11港元
+# 中国退税商店数量达1.4万家
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-中视金桥（00623）发布公告，将于2026年7月10日派发截至2025年12月31日止年度的末期股息每股0.11港元。责任编辑：卢昱君
+中新社北京5月18日电 (记者 王梦瑶)2025年4月，中国推出优化离境退税1.0版政策。中国商务部副部长盛秋平在18日召开的国新办新闻发布会上指出，截至目前，退税商店数量达1.4万家，是2024年底的4倍左右。 据介绍，2025年，中国离境退税销售额同比增长近1倍，仅一年的销售规模，就基本等同于2015年中国实施离境退税政策以来到2024年10年的总和；办理退税人数达到27万
 
 ## 正文
 
-中视金桥（00623）发布公告，将于2026年7月10日派发截至2025年12月31日止年度的末期股息每股0.11港元。
+中新社北京5月18日电 (记者 王梦瑶)2025年4月，中国推出优化离境退税1.0版政策。
 
-责任编辑：卢昱君
+中国商务部副部长盛秋平在18日召开的国新办新闻发布会上指出，截至目前，退税商店数量达1.4万家，是2024年底的4倍左右。
+
+据介绍，2025年，中国离境退税销售额同比增长近1倍，仅一年的销售规模，就基本等同于2015年中国实施离境退税政策以来到2024年10年的总和；办理退税人数达到27万，比2024年增长3倍。
+
+离境退税、单方面扩大免签、支付便利等优化国际化消费环境政策，与“购在中国”系列活动形成组合拳，推动入境消费、旅行服务出口分别增长近40%、50%，中国游、中国购成为国际风尚。
+
+在1.0版政策基础上，5月18日，中国商务部等部门对外发布通知，加力优化离境退税措施，扩大入境消费。
+
+这次推出的离境退税2.0版政策，是在去年政策基础上的“升级版”，提出8条可操作、能落地的具体举措，让旅客退税更省心、更省时、更省事。
+
+盛秋平表示，这是加强中外交流，推动高水平对外开放的需要；是扩大入境消费、打造消费新增长点的需要；是优化办理流程，进一步提升退税体验的需要。
+
+下一步，商务部将会同相关部门，指导各地建立健全工作机制，创新工作举措，推动政策落实，让各国朋友乘兴而来、满载而归。
 
 ## 相关推荐
 
-- 2026-06-30 08:31 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-30 08:18 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-30 08:32 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-30 08:31 - [王楚钦孙颖莎晋级混双八强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
-- 2026-06-30 08:32 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-30 08:38 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
-- 2026-06-30 08:28 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-30 08:39 - [德国队连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-30 08:25 - [高质量发展看新疆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-30 08:24 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-30 08:25 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
-- 2026-06-30 08:26 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-30 08:26 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-30 08:45 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-30 08:52 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-30 08:26 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-30 08:31 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-30 08:46 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-30 08:39 - [哈弗茨头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-30 08:43 - [周冬雨多次说演不了话剧文城](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-30 08:28 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-30 08:35 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-30 08:27 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-30 08:49 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-30 08:40 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:37 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/172918877.shtml)
-- 2026-06-30 08:42 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/024490426760.shtml)
-- 2026-06-30 08:31 - [巴西半场0比1日本](https://www.share.kurohicncr.top/Article/details/89786.shtml)
-- 2026-06-30 08:47 - [德国巴拉圭 折磨](http://www.blog.kurohicncr.top/Article/details/25204.shtml)
-- 2026-06-30 08:33 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/11135689374.shtml)
-- 2026-06-30 08:28 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/012900455770.shtml)
-- 2026-06-30 08:23 - [点球大战 残酷](https://www.share.kurohicncr.top/Article/details/39099921324.shtml)
-- 2026-06-30 08:31 - [本届世界杯已有5名球员被控强奸](http://www.share.kurohicncr.top/Article/details/95912717458.shtml)
-- 2026-06-30 08:41 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.minike.top/Article/details/56524613.shtml)
-- 2026-06-30 08:37 - [日本球迷被强行披上巴西国旗](http://www.blog.kurohicncr.top/Article/details/43928.shtml)
-- 2026-06-30 08:44 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/577762638.shtml)
-- 2026-06-30 08:25 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.kurohicncr.top/Article/details/804744044.shtml)
-- 2026-06-30 08:44 - [一见倾心](https://www.blog.minike.top/Article/details/367273524798.shtml)
-- 2026-06-30 08:28 - [孙颖莎王楚钦晋级8强](https://www.blog.minike.top/Article/details/827643.shtml)
-- 2026-06-30 08:35 - [美股](http://www.share.kurohicncr.top/Article/details/65553872.shtml)
+- 2026-06-30 08:29 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/41066563788.shtml)
+- 2026-06-30 08:49 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/71731.shtml)
+- 2026-06-30 08:52 - [啊啊啊](https://www.blog.minike.top/Article/details/3227149866.shtml)
+- 2026-06-30 08:36 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/32436728.shtml)
+- 2026-06-30 08:26 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/038400053.shtml)
+- 2026-06-30 08:34 - [Melo向柳智敏张元英道歉](http://www.share.kurohicncr.top/Article/details/77568103.shtml)
+- 2026-06-30 08:31 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/123755.shtml)
+- 2026-06-30 08:49 - [城市规划有可能成为「屎山代码」吗？](https://www.share.kurohicncr.top/Article/details/476782.shtml)
+- 2026-06-30 08:30 - [感动全网的699分女生想报考清华](https://www.blog.minike.top/Article/details/7194274.shtml)
+- 2026-06-30 08:34 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](http://www.blog.kurohicncr.top/Article/details/8159428.shtml)
+- 2026-06-30 08:28 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/34960.shtml)
+- 2026-06-30 08:46 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/93811190.shtml)
+- 2026-06-30 08:39 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/10841634.shtml)
+- 2026-06-30 08:28 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://www.blog.kurohicncr.top/Article/details/696665234204.shtml)
+- 2026-06-30 08:48 - [日本16强魔咒](http://www.share.kurohicncr.top/Article/details/02914963.shtml)

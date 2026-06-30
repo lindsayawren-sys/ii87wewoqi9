@@ -1,50 +1,56 @@
-# 特朗普称美伊谈判除核问题外进展顺利
+# 广西北海海上风电单桩基础设备出运越南
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社华盛顿4月12日电美国总统特朗普12日在社交媒体发文称，美伊谈判进展顺利，除核问题外，就大部分问题双方都达成了一致。（完）责任编辑：宋雅芳
+中新网北海5月18日电(庞毅)5月18日下午，装载着海上风电单桩基础设备的“新丝路”轮，从广西北海市铁山港公共码头起航，驶向越南。这是广西蓝水海洋工程有限公司承接的越南永隆海上风电项目的首批设备。 据了解，为保障这批风电设备安全、高效出口，北海海事局主动作为，提供精准服务。自项目启动之初，该局便与企业建立常态化对接机制，围绕船舶选型、出运方案优化等关键环节提供专业指导，提前化解
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网北海5月18日电(庞毅)5月18日下午，装载着海上风电单桩基础设备的“新丝路”轮，从广西北海市铁山港公共码头起航，驶向越南。
 
-新华社华盛顿4月12日电美国总统特朗普12日在社交媒体发文称，美伊谈判进展顺利，除核问题外，就大部分问题双方都达成了一致。
+这是广西蓝水海洋工程有限公司承接的越南永隆海上风电项目的首批设备。
 
-（完）责任编辑：宋雅芳
+据了解，为保障这批风电设备安全、高效出口，北海海事局主动作为，提供精准服务。
+
+自项目启动之初，该局便与企业建立常态化对接机制，围绕船舶选型、出运方案优化等关键环节提供专业指导，提前化解潜在风险；并依托与气象、海洋等部门的联动机制，实时跟踪辖区海况变化，及时推送预警信息，协助企业科学研判并抢抓最佳运输窗口期，有效规避恶劣天气风险。
+
+在运输环节，海事执法人员对承运船舶“新丝路”轮开展了全面安全“体检”。
+
+为进一步提升运输效能，北海海事局联合北部湾船舶交通管理中心(筹)、引航机构、码头业主等单位，为风电设备运输船舶开辟“绿色通道”，实行优先受理、优先审核、优先放行，保障船舶优先进出港。
+
+今年以来，北海海事局已累计保障风电大件设备安全出运12艘次，其中包括导管架17个、基础桩44根。
+
+北海海事局表示，将持续优化监管与服务举措，护航海上风电产业出口。
 
 ## 相关推荐
 
-- 2026-06-30 08:25 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-30 08:19 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-30 08:41 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
-- 2026-06-30 08:31 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-30 08:22 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-30 08:41 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
-- 2026-06-30 08:43 - [韩国道歉完日本道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-30 08:45 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-30 08:38 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
-- 2026-06-30 08:28 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-30 08:43 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
-- 2026-06-30 08:35 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-30 08:21 - [点球大战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-30 08:47 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-30 08:32 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-30 08:31 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-30 08:31 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-30 08:44 - [全球芯片巨头史诗级扩产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-30 08:34 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-30 08:25 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
+- 2026-06-30 08:37 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
+- 2026-06-30 08:39 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
+- 2026-06-30 08:38 - [世界杯巴拉圭点球淘汰德国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-30 08:36 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:18 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/8849170301.shtml)
-- 2026-06-30 08:44 - [“草莓月亮”浪漫现身](http://www.share.kurohicncr.top/Article/details/65735692.shtml)
-- 2026-06-30 08:19 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](http://www.blog.minike.top/Article/details/50147621418.shtml)
-- 2026-06-30 08:46 - [Melo向柳智敏张元英道歉](https://www.share.kurohicncr.top/Article/details/2336638268.shtml)
-- 2026-06-30 08:18 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/08289.shtml)
-- 2026-06-30 08:22 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/373564972.shtml)
-- 2026-06-30 08:19 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/15826192584.shtml)
-- 2026-06-30 08:36 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.kurohicncr.top/Article/details/240260108.shtml)
-- 2026-06-30 08:27 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/969361.shtml)
-- 2026-06-30 08:32 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/643263.shtml)
-- 2026-06-30 08:44 - [一生一世](https://www.blog.kurohicncr.top/Article/details/520709761.shtml)
-- 2026-06-30 08:33 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.kurohicncr.top/Article/details/198599.shtml)
-- 2026-06-30 08:23 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.kurohicncr.top/Article/details/433417.shtml)
-- 2026-06-30 08:46 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/099227653114.shtml)
-- 2026-06-30 08:34 - [王曼昱被突如其来的话筒逗笑了](https://www.blog.kurohicncr.top/Article/details/59811.shtml)
+- 2026-06-30 08:43 - [王楚钦孙颖莎晋级混双八强](https://www.share.kurohicncr.top/Article/details/594592483.shtml)
+- 2026-06-30 08:52 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/740317216.shtml)
+- 2026-06-30 08:40 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/80909691894.shtml)
+- 2026-06-30 08:38 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/6748171.shtml)
+- 2026-06-30 08:41 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.kurohicncr.top/Article/details/18172618894.shtml)
+- 2026-06-30 08:42 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/222865010.shtml)
+- 2026-06-30 08:36 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/8980700683.shtml)
+- 2026-06-30 08:41 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/88714937344.shtml)
+- 2026-06-30 08:52 - [巴西把自己踢晕了](http://www.blog.minike.top/Article/details/488677361.shtml)
+- 2026-06-30 08:46 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.share.minike.top/Article/details/792757261145.shtml)
+- 2026-06-30 08:45 - [DeepSeek V4正式版要来了](http://www.share.minike.top/Article/details/777713404370.shtml)
+- 2026-06-30 08:37 - [高质量发展看新疆](http://www.share.kurohicncr.top/Article/details/11635989.shtml)
+- 2026-06-30 08:35 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/7589664.shtml)
+- 2026-06-30 08:53 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/603470016144.shtml)
+- 2026-06-30 08:30 - [这几秒成世界杯最值钱广告位](http://www.blog.minike.top/Article/details/979791095277.shtml)

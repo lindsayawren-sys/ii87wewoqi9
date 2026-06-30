@@ -1,56 +1,57 @@
-# 大型纪录片《寻古中国·朔门古港》揭秘“海上温州”繁华史
+# 普京发表视频讲话：俄中关系达到前所未有水平
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-中新网北京4月11日电 (记者 应妮)大型纪录片《寻古中国·朔门古港》聚焦入选2022年度“全国十大考古新发现”的浙江温州朔门古港遗址，结合最新考古研究成果，系统呈现古代港口城市的空间格局与贸易网络运行机制，实证温州作为海上丝绸之路重要节点的历史地位，生动讲述一个港、一座城、一条江、一条路的传奇故事。 朔门古港遗址目前已发掘面积近1万平方米，已发现包括12座码头、10段江岸、2
+中新社莫斯科5月19日电 应中国国家主席习近平邀请，俄罗斯总统普京于5月19日至20日对中国进行国事访问。访华前，普京发表视频讲话。他表示，很高兴应习近平主席邀请再次访华，定期互访和举行元首会晤，是俄中全方位发展两国关系、挖掘其真正无限潜力的重要且不可或缺的一部分。这是普京首次在出访前发表视频讲话。他说：“我由衷珍视习近平主席对同俄罗斯开展长远合作的意愿。我们之间的密切友好往来
 
 ## 正文
 
-中新网北京4月11日电 (记者 应妮)大型纪录片《寻古中国·朔门古港》聚焦入选2022年度“全国十大考古新发现”的浙江温州朔门古港遗址，结合最新考古研究成果，系统呈现古代港口城市的空间格局与贸易网络运行机制，实证温州作为海上丝绸之路重要节点的历史地位，生动讲述一个港、一座城、一条江、一条路的传奇故事。
+中新社莫斯科5月19日电 应中国国家主席习近平邀请，俄罗斯总统普京于5月19日至20日对中国进行国事访问。
 
-朔门古港遗址目前已发掘面积近1万平方米，已发现包括12座码头、10段江岸、2艘沉船、航标以及古城水陆城门在内的丰富遗迹。
+访华前，普京发表视频讲话。
 
-该遗址集江岸、码头、仓储、航运、城防等多重元素于一体，是目前国内外罕见的“全要素”古代港口遗址。
+他表示，很高兴应习近平主席邀请再次访华，定期互访和举行元首会晤，是俄中全方位发展两国关系、挖掘其真正无限潜力的重要且不可或缺的一部分。
 
-现已出土超过30吨的各类瓷片、漆器、钱币等遗存，其中可修复文物达10000件以上，年代跨度以宋元时期为主，上溯唐代晚期，下延至民国时期。
+这是普京首次在出访前发表视频讲话。
 
-这种“水陆并行、城港一体”的格局历经千年基本未变，为研究古代港口城市运作及中外贸易往来提供了珍贵的实物资料。
+他说：“我由衷珍视习近平主席对同俄罗斯开展长远合作的意愿。
 
-节目记录了朔门古港考古发掘现场，呈现了一件南宋龙泉窑青釉瓜棱瓶的出土过程，由此展开对古代瓷器贸易出海路径的追溯，印证了温州朔门古港正是内陆商品走向海洋的重要通道之一；蕨草纹执壶等异域风格的“定制款”文物，则呈现出古代东西方文明交流与融合的历史图景。
+我们之间的密切友好往来，有助于我们擘画最为宏伟的蓝图，并将其付诸实践。
 
-除了瓷器，温州漆器同样在贸易体系中占据重要地位。
+” 普京说，25年前俄罗斯与中国签署了《俄中睦邻友好合作条约》，为建立真正意义上的战略协作与全面伙伴关系奠定了坚实基础，造福两国人民。
 
-遗址出土的带有“温州上牢”铭文的北宋漆器，见证了当年漆器远销海外。
+他表示，当前，俄中关系达到了前所未有的水平。
 
 ## 相关推荐
 
-- 2026-06-30 08:37 - [全新问界M9现身美国街头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-30 08:42 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-30 08:43 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-30 08:18 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-30 08:36 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-30 08:41 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
-- 2026-06-30 08:23 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-30 08:38 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
-- 2026-06-30 08:47 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-30 08:24 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-30 08:50 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-30 08:52 - [孙颖莎王楚钦晋级8强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-30 08:52 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
+- 2026-06-30 08:41 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-30 08:37 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-30 08:26 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-30 08:39 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-30 08:42 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
+- 2026-06-30 08:42 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-30 08:27 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-30 08:39 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:19 - [韩国道歉完日本道歉](https://www.blog.minike.top/Article/details/441578069.shtml)
-- 2026-06-30 08:18 - [高质量发展看新疆](https://www.share.minike.top/Article/details/960446922.shtml)
-- 2026-06-30 08:36 - [《男人至死是傻得儿》](http://www.blog.minike.top/Article/details/910480614356.shtml)
-- 2026-06-30 08:30 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/74893.shtml)
-- 2026-06-30 08:23 - [内马尔中场休息积极鼓励队友](http://www.blog.minike.top/Article/details/357265130.shtml)
-- 2026-06-30 08:28 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/450769367.shtml)
-- 2026-06-30 08:34 - [健全中小学教师工资长效联动机制](http://www.share.minike.top/Article/details/44195017.shtml)
-- 2026-06-30 08:29 - [王楚钦孙颖莎晋级混双八强](https://www.blog.kurohicncr.top/Article/details/7235871680.shtml)
-- 2026-06-30 08:42 - [德国队世界杯点球大战首败](http://www.blog.kurohicncr.top/Article/details/6615622645.shtml)
-- 2026-06-30 08:36 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/558248.shtml)
-- 2026-06-30 08:22 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/434524540291.shtml)
-- 2026-06-30 08:46 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/8113512.shtml)
-- 2026-06-30 08:28 - [韩国球迷凌晨4点接机怒骂主教练](http://www.blog.minike.top/Article/details/458396292.shtml)
-- 2026-06-30 08:31 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/540110012100.shtml)
-- 2026-06-30 08:41 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/9341300737.shtml)
+- 2026-06-30 08:47 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.kurohicncr.top/Article/details/13843.shtml)
+- 2026-06-30 08:39 - [电影抓特务上映11天破亿](https://www.share.kurohicncr.top/Article/details/762954.shtml)
+- 2026-06-30 08:34 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.blog.minike.top/Article/details/418839.shtml)
+- 2026-06-30 08:40 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/32128.shtml)
+- 2026-06-30 08:34 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/905600.shtml)
+- 2026-06-30 08:32 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/587934311.shtml)
+- 2026-06-30 08:37 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/851069153.shtml)
+- 2026-06-30 08:34 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.kurohicncr.top/Article/details/00282344689.shtml)
+- 2026-06-30 08:45 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/41336205.shtml)
+- 2026-06-30 08:41 - [周生如故](http://www.share.kurohicncr.top/Article/details/025729515.shtml)
+- 2026-06-30 08:46 - [健全中小学教师工资长效联动机制](https://www.blog.minike.top/Article/details/716931365125.shtml)
+- 2026-06-30 08:52 - [武磊：日本队有能力跟任何强队抗衡](http://www.share.minike.top/Article/details/7381576.shtml)
+- 2026-06-30 08:33 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/43624672876.shtml)
+- 2026-06-30 08:28 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/499911541626.shtml)
+- 2026-06-30 08:50 - [峡谷事故团队组队时有人提醒会下雨](https://www.blog.kurohicncr.top/Article/details/48576414561.shtml)

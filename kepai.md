@@ -1,56 +1,47 @@
-# 在美国养育一名子女至成年的花费已超30万美元
+# 文化传信：加多利会计师事务所辞任核数师
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-LendingTree借贷平台的一项最新研究显示，在美国将一名孩子抚养至18岁的平均总成本已达到303418美元。 不同州的总花费差异悬殊。夏威夷州是养育子女成本最高的地区，LendingTree预估总成本为412661美元；阿拉斯加州和马里兰州紧随其后，分别为365047美元与326360美元。与此同时，新罕布什尔州是养育成本最低的州，仅需201963美元，不到夏威夷州花费的
+文化传信（00343）发布公告，于2026年5月18日，董事会及本公司审核委员会接获加多利会计师事务所有限公司（加多利会计师事务所）日期为2026年5月18日的辞任函，内容有关其辞任本集团核数师，即时生效。责任编辑：卢昱君
 
 ## 正文
 
-LendingTree借贷平台的一项最新研究显示，在美国将一名孩子抚养至18岁的平均总成本已达到303418美元。
+文化传信（00343）发布公告，于2026年5月18日，董事会及本公司审核委员会接获加多利会计师事务所有限公司（加多利会计师事务所）日期为2026年5月18日的辞任函，内容有关其辞任本集团核数师，即时生效。
 
-不同州的总花费差异悬殊。
-
-夏威夷州是养育子女成本最高的地区，LendingTree预估总成本为412661美元；阿拉斯加州和马里兰州紧随其后，分别为365047美元与326360美元。
-
-与此同时，新罕布什尔州是养育成本最低的州，仅需201963美元，不到夏威夷州花费的一半。
-
-为3岁与4岁儿童提供免费学前教育的华盛顿哥伦比亚特区，以及南卡罗来纳州，分列养育成本最低地区的第二、三位。
-
-受房租与服装成本大幅上涨影响，育儿成本同比上涨1.9%。
-
-LendingTree数据显示，平均房租已从2025年上一次调查时的1128美元飙升至今年的1680美元，涨幅接近50%；服装成本同比涨幅超过25%。
-
-该研究作者、LendingTree首席消费金融分析师马特・舒尔茨在接受采访时表示：“通胀显然正在给人们带来沉重压力，这无疑也是育儿成本出现如此大幅增长的原因之一。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 08:35 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-30 08:26 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-30 08:35 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
-- 2026-06-30 08:47 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-30 08:33 - [董路：谁赢谁是“正路子”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-30 08:41 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-30 08:29 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
-- 2026-06-30 08:20 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
-- 2026-06-30 08:43 - [日本球迷被强行披上巴西国旗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-30 08:28 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-30 08:37 - [穆祉丞回应获年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-30 08:26 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-30 08:53 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-30 08:37 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-30 08:24 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-30 08:50 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-30 08:33 - [杨紫大银幕成绩单如何](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-30 08:49 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-30 08:51 - [日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-30 08:43 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-30 08:42 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-30 08:27 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-30 08:24 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:32 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/43119735.shtml)
-- 2026-06-30 08:21 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/96151035024.shtml)
-- 2026-06-30 08:27 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.minike.top/Article/details/87821002908.shtml)
-- 2026-06-30 08:26 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/14504344861.shtml)
-- 2026-06-30 08:45 - [巴西绝杀日本](https://www.blog.minike.top/Article/details/56315320.shtml)
-- 2026-06-30 08:39 - [美人鱼](https://www.share.minike.top/Article/details/63745109624.shtml)
-- 2026-06-30 08:21 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/4269831771.shtml)
-- 2026-06-30 08:33 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/139537231.shtml)
-- 2026-06-30 08:44 - [森保一 保守](http://www.share.minike.top/Article/details/67755.shtml)
-- 2026-06-30 08:40 - [博世们还在犹豫 美的们已经卖断货](http://www.share.kurohicncr.top/Article/details/97636221449.shtml)
-- 2026-06-30 08:26 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/8208977394.shtml)
-- 2026-06-30 08:23 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/96259591841.shtml)
-- 2026-06-30 08:40 - [【大鸣王潮1566】真拿你没办法](http://www.blog.minike.top/Article/details/191981003951.shtml)
-- 2026-06-30 08:46 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/357863993355.shtml)
-- 2026-06-30 08:41 - [马耳他著名拱门坍塌致中国男子身亡](https://www.share.kurohicncr.top/Article/details/6654968434.shtml)
+- 2026-06-30 08:48 - [明星大侦探第四季](https://www.share.minike.top/Article/details/802497.shtml)
+- 2026-06-30 08:24 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/345397.shtml)
+- 2026-06-30 08:44 - [中国新一轮出口管制直指日本命脉](http://www.blog.minike.top/Article/details/45541497.shtml)
+- 2026-06-30 08:33 - [感动全网的699分女生想报考清华](http://www.share.kurohicncr.top/Article/details/54285402320.shtml)
+- 2026-06-30 08:34 - [武磊：日本队有能力跟任何强队抗衡](https://www.share.kurohicncr.top/Article/details/401207929.shtml)
+- 2026-06-30 08:44 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/901715.shtml)
+- 2026-06-30 08:36 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.minike.top/Article/details/3526453488.shtml)
+- 2026-06-30 08:35 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/97207872052.shtml)
+- 2026-06-30 08:52 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/75126.shtml)
+- 2026-06-30 08:53 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/0189897424.shtml)
+- 2026-06-30 08:47 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/796301986995.shtml)
+- 2026-06-30 08:32 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/05934.shtml)
+- 2026-06-30 08:38 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/191706.shtml)
+- 2026-06-30 08:26 - [杨紫大银幕成绩单如何](https://www.blog.kurohicncr.top/Article/details/8486767501.shtml)
+- 2026-06-30 08:29 - [日本将帅赛后采访纷纷哽咽落泪](http://www.blog.kurohicncr.top/Article/details/4931519414.shtml)

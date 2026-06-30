@@ -1,59 +1,59 @@
-# “双管齐下”保安全 浙江推进“三小”治理守护医药消费环境
+# 反超同期大片 《给阿嬷的情书》如何逆袭成票房黑马
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-中新网杭州4月10日电 (潘沁文)“一手抓源头治理，一手抓协同治理，‘双管齐下’守牢安全底线，让群众用药更放心。”4月10日，在浙江深化药品监管改革促进医药产业高水平安全高质量发展新闻发布会上，浙江省药品监督管理局(以下简称“浙江省药监局”)党组书记、局长王状武介绍了该省药品监管部门如何保障药品质量高水平安全。 “药品监管工作一头连着经济社会发展，一头连着千家万户健康。”王状武
+1400万低成本制作 方言对白叠加素人演员 票房反超同期大片 《给阿嬷的情书》如何逆袭成票房黑马 灯塔专业版显示，截至5月17日，上映18天的电影《给阿嬷的情书》票房已破5亿。这也许会令部分从业者费解：这部95%对白为潮汕方言、素人主演、成本仅1400万的电影，豆瓣评分从9.0涨到9.1，首日排片仅1.6%，却在18天后反超所有同期商业大片，登顶单日冠军。不仅如此，该片还亮相第
 
 ## 正文
 
-中新网杭州4月10日电 (潘沁文)“一手抓源头治理，一手抓协同治理，‘双管齐下’守牢安全底线，让群众用药更放心。
+1400万低成本制作 方言对白叠加素人演员 票房反超同期大片 《给阿嬷的情书》如何逆袭成票房黑马 灯塔专业版显示，截至5月17日，上映18天的电影《给阿嬷的情书》票房已破5亿。
 
-”4月10日，在浙江深化药品监管改革促进医药产业高水平安全高质量发展新闻发布会上，浙江省药品监督管理局(以下简称“浙江省药监局”)党组书记、局长王状武介绍了该省药品监管部门如何保障药品质量高水平安全。
+这也许会令部分从业者费解：这部95%对白为潮汕方言、素人主演、成本仅1400万的电影，豆瓣评分从9.0涨到9.1，首日排片仅1.6%，却在18天后反超所有同期商业大片，登顶单日冠军。
 
-“药品监管工作一头连着经济社会发展，一头连着千家万户健康。
+不仅如此，该片还亮相第79届戛纳电影节，引发热烈关注。
 
-”王状武表示，该局坚持统筹发展和安全，通过高效能的监管，推动浙江药品安全态势稳定向好、医药产业发展稳中有进。
+方言、素人、无流量、无大特效，讲述的是几十年前的侨批故事，但它却成了2026年迄今为止最大的票房黑马。
 
-线下监管方面，值得关注的是，针对小药店、小诊所、小美容店(“三小”)经营者药品安全意识和合规能力相对薄弱等问题，去年，该省多部门联合开展“三小”经营使用药品安全问题专项治理，重点整治从非法渠道购买药械、不按规定销售处方药、销售和使用过期药械等行为。
+影片凭借的不是运气、营销或“情怀税”，那又是什么能让观众走进影院并为此动容？
 
-从具体举措来看，采用集中培训、网络自学、上门服务、自查自纠等方式开展合规指导，共合规指导“三小”主体62418家，推动114家小药店依法调整经营范围；坚持有投诉举报的必查、有违法违规主观故意的必查、有风险隐患的必查、有危害后果的必查，共查办“三小”违法案件14431件；推动“三小”治理常态长效，发布典型案例423个，制定主体合规、协同治理、能力提升等方面的长效机制215个。
+以情义击中观众 造就影片最核心情感发动机 电影《给阿嬷的情书》以侨批为核心线索(编者注：侨批是海外华侨通过民间渠道汇寄至国内的信件与汇款合一的特殊邮传载体，是连带家书或简单附言的汇款凭证)，讲述潮汕阿嬷叶淑柔半生守候书信往来的“阿公”，孙子晓伟远赴泰国探寻真相，却发现与阿嬷通信半生的并非远赴南洋的郑木生，而是陌生人谢南枝的故事。
 
-线上监管方面，针对网络消费建立“药械化网络消费纠纷调解服务站”，“十四五”期间，浙江省药监局共收到并办结投诉举报、意见建议等8574件，有力维护了医药消费环境良好秩序。
+影片不是爱情故事，甚至不是亲情故事。
 
-(完)
+谢南枝从未见过阿嬷，阿嬷也从未见过她。
 
 ## 相关推荐
 
-- 2026-06-30 08:20 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
-- 2026-06-30 08:35 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-30 08:37 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
-- 2026-06-30 08:41 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-30 08:41 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-30 08:43 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-30 08:36 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-30 08:27 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-30 08:20 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
-- 2026-06-30 08:34 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
-- 2026-06-30 08:22 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-30 08:28 - [孙颖莎王楚钦晋级8强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-30 08:33 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-30 08:27 - [恋与深空道歉声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
+- 2026-06-30 08:34 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-30 08:48 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
+- 2026-06-30 08:31 - [森保一致歉：世界第一目标没能实现](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-30 08:40 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-30 08:50 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-30 08:50 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-30 08:45 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-30 08:46 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-30 08:48 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-30 08:46 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-30 08:45 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-30 08:41 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:21 - [杨紫肖战余生请多指教拍立得](https://www.share.minike.top/Article/details/911201.shtml)
-- 2026-06-30 08:24 - [点球大战 残酷](http://www.blog.kurohicncr.top/Article/details/05528.shtml)
-- 2026-06-30 08:28 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.minike.top/Article/details/726956239242.shtml)
-- 2026-06-30 08:18 - [卡塞米罗头球破门](http://www.share.minike.top/Article/details/865361.shtml)
-- 2026-06-30 08:44 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/633587.shtml)
-- 2026-06-30 08:27 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/571069060.shtml)
-- 2026-06-30 08:43 - [流金岁月](https://www.blog.minike.top/Article/details/132234696.shtml)
-- 2026-06-30 08:44 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/685442.shtml)
-- 2026-06-30 08:46 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](http://www.blog.minike.top/Article/details/915459.shtml)
-- 2026-06-30 08:37 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/021262.shtml)
-- 2026-06-30 08:26 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/4561388.shtml)
-- 2026-06-30 08:43 - [网红峡谷5人溺亡 有人提醒会下雨](https://www.blog.minike.top/Article/details/74829883.shtml)
-- 2026-06-30 08:44 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/7606934196.shtml)
-- 2026-06-30 08:41 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/7783916583.shtml)
-- 2026-06-30 08:40 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/9864603714.shtml)
+- 2026-06-30 08:53 - [德国4比5巴拉圭](https://www.share.minike.top/Article/details/65385416194.shtml)
+- 2026-06-30 08:25 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/052929192086.shtml)
+- 2026-06-30 08:42 - [金鹰奖视后提名预测](http://www.blog.minike.top/Article/details/435322871112.shtml)
+- 2026-06-30 08:29 - [沙丘](http://www.share.minike.top/Article/details/90252.shtml)
+- 2026-06-30 08:38 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/089364988436.shtml)
+- 2026-06-30 08:34 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/64592246.shtml)
+- 2026-06-30 08:47 - [巴拉圭进球](http://www.share.minike.top/Article/details/13195.shtml)
+- 2026-06-30 08:24 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/289202196557.shtml)
+- 2026-06-30 08:37 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.kurohicncr.top/Article/details/377690638865.shtml)
+- 2026-06-30 08:38 - [孙兴慜发长文致歉](https://www.blog.kurohicncr.top/Article/details/62846539900.shtml)
+- 2026-06-30 08:28 - [卡塞米罗头球破门](http://www.blog.minike.top/Article/details/3975627.shtml)
+- 2026-06-30 08:25 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/445212655053.shtml)
+- 2026-06-30 08:52 - [韩国人为什么这么在乎输赢](https://www.blog.kurohicncr.top/Article/details/7878588.shtml)
+- 2026-06-30 08:53 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/580937326594.shtml)
+- 2026-06-30 08:40 - [德国队连续三届世界杯无缘16强](https://www.blog.kurohicncr.top/Article/details/14599.shtml)

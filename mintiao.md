@@ -1,57 +1,61 @@
-# 男子称提前还贷发现贷款利率8.7%而非3.8%，又有两人反映有相同遭遇 银行客服：正抓紧核实
+# 广西玉林围绕数智化书写向海新文章
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-来源：红星新闻 原标题：男子称提前还贷发现贷款利率8.7%而非3.8%，又有两人反映有相同遭遇，“投诉后银行承诺降低利率”，银行客服：正抓紧核实 据荔枝新闻报道，江苏的王先生在常熟农商银行办理住房抵押贷款，误以为按3.8%年利率还款，今年打算提前还款才发现年利率为8.7%。 随后，#房贷年利率3.8变8.7五年才发现#登上微博热搜，引发关注。 4月10日，另有两位在常熟农商银行
+开局之年看中国丨广西玉林围绕数智化书写向海新文章 5月15日上午，“开局之年看中国·共此壮美广西”网络主题宣传活动正式启动。央视新闻记者随采访团首站奔赴玉林调研，玉林近年围绕数智创新做强向海经济，给记者留下深刻印象。 港湾+数智化 算力也要“向海而兴” 近海不沿海，曾是玉林的遗憾。通过创新的“借地建港”模式，玉林与北海、北部湾港务集团等合作建设了玉林海港码头，已于2023年12
 
 ## 正文
 
-来源：红星新闻 原标题：男子称提前还贷发现贷款利率8.7%而非3.8%，又有两人反映有相同遭遇，“投诉后银行承诺降低利率”，银行客服：正抓紧核实 据荔枝新闻报道，江苏的王先生在常熟农商银行办理住房抵押贷款，误以为按3.8%年利率还款，今年打算提前还款才发现年利率为8.7%。
+开局之年看中国丨广西玉林围绕数智化书写向海新文章 5月15日上午，“开局之年看中国·共此壮美广西”网络主题宣传活动正式启动。
 
-随后，#房贷年利率3.8变8.7五年才发现#登上微博热搜，引发关注。
+央视新闻记者随采访团首站奔赴玉林调研，玉林近年围绕数智创新做强向海经济，给记者留下深刻印象。
 
-4月10日，另有两位在常熟农商银行办理住房抵押贷款者向红星新闻记者反映，他们也在常熟农商银行遭遇了与江苏王先生相同的情况。
+港湾+数智化 算力也要“向海而兴” 近海不沿海，曾是玉林的遗憾。
 
-此前，荔枝新闻报道，江苏的王先生2021年办理住房抵押贷款时，中介称常熟农商银行年利率仅3.8%，低于四大行的4.8%-5.8%，他因此选择在该行贷款68万元，十年还清，每个月连本带息还款8500元左右。
+通过创新的“借地建港”模式，玉林与北海、北部湾港务集团等合作建设了玉林海港码头，已于2023年12月开港运营，一举打通玉林乃至桂东地区的向海通道。
 
-签合同时业务经理跳过利率页让他直接签字，之后五年银行一直未提供合同，王先生误以为按3.8%还款。
+同时，玉林围绕“数智向海”布局“玉林智谷”建设，依托机制创新和“智谷”实践，深耕“北上广研发+广西集成+东盟应用”的发展路径；锚定“立足北部湾、借势大湾区、辐射东盟圈”的远景，面向东盟发力打造算力枢纽，目前累计培育智能工厂、数字化车间、智能制造标杆企业56家，成功入选全国中小企业数字化转型试点城市。
 
-今年2月他打算提前还款，才发现合同约定年利率为8.7%。
+香料+数智化 闻香识产业 来到玉林的客商们常说，这座城市蓬勃的产业脉动，离不开它独特的味道。
 
-王先生多次调解并要求查看合同未果。
+“无药不过玉林，寻香必至玉州”。
 
-值得注意的是，王先生向红星新闻记者解释，他办理的贷款是住房抵押贷款，其在购房时是一次性付款，然后“拿房子到银行做抵押”，并非大家通常所说的“房贷”。
+在这里，桂皮与八角香气萦绕，烟火在人间沉淀。
 
 ## 相关推荐
 
-- 2026-06-30 08:42 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-30 08:41 - [欧洲装一台空调有多难](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
-- 2026-06-30 08:38 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-30 08:43 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-30 08:21 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-30 08:19 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-30 08:33 - [杨紫学位证上就是杨紫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-30 08:41 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
-- 2026-06-30 08:38 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-30 08:40 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-30 08:39 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-30 08:29 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-30 08:26 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-30 08:36 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-30 08:31 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-30 08:36 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-30 08:44 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-30 08:35 - [三星投资计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-30 08:51 - [网友写差评被店家“挂”门口避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-30 08:49 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-30 08:35 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-30 08:35 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
+- 2026-06-30 08:32 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-30 08:38 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-30 08:37 - [全新问界M9现身美国街头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-30 08:42 - [德国连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:27 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/4423846651.shtml)
-- 2026-06-30 08:36 - [韩国世界杯出局是主帅一个人的锅吗](http://www.blog.kurohicncr.top/Article/details/577957.shtml)
-- 2026-06-30 08:36 - [巴拉圭率先破门](http://www.blog.minike.top/Article/details/69827327.shtml)
-- 2026-06-30 08:33 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/506334452.shtml)
-- 2026-06-30 08:26 - [巴西2比1日本](https://www.blog.minike.top/Article/details/95115462404.shtml)
-- 2026-06-30 08:29 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/070780.shtml)
-- 2026-06-30 08:47 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/011531.shtml)
-- 2026-06-30 08:21 - [急先锋](http://www.share.minike.top/Article/details/904984687602.shtml)
-- 2026-06-30 08:38 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/812125036.shtml)
-- 2026-06-30 08:23 - [穆祉丞年度人气艺人](https://www.share.kurohicncr.top/Article/details/35646945756.shtml)
-- 2026-06-30 08:21 - [日本五次世界杯淘汰赛全败](https://www.blog.minike.top/Article/details/561168981062.shtml)
-- 2026-06-30 08:39 - [刘宇宁高情商化解谁站C位](http://www.share.minike.top/Article/details/1733879382.shtml)
-- 2026-06-30 08:20 - [卡塞米罗头球破门 巴西扳平日本](http://www.blog.minike.top/Article/details/53564747.shtml)
-- 2026-06-30 08:35 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/902773.shtml)
-- 2026-06-30 08:41 - [毒液2](http://www.blog.kurohicncr.top/Article/details/85036638.shtml)
+- 2026-06-30 08:34 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/018599.shtml)
+- 2026-06-30 08:32 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.minike.top/Article/details/1439495861.shtml)
+- 2026-06-30 08:44 - [《名肘探科比》：科比大战裂口女](https://www.share.kurohicncr.top/Article/details/22737802.shtml)
+- 2026-06-30 08:52 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/075466742144.shtml)
+- 2026-06-30 08:34 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/468432.shtml)
+- 2026-06-30 08:49 - [网红峡谷5人溺亡 有人提醒会下雨](https://www.blog.kurohicncr.top/Article/details/838738146392.shtml)
+- 2026-06-30 08:45 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/49986292748.shtml)
+- 2026-06-30 08:35 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/46801.shtml)
+- 2026-06-30 08:40 - [有什么好的高中网课推荐吗？](https://www.blog.minike.top/Article/details/480260.shtml)
+- 2026-06-30 08:37 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/666524.shtml)
+- 2026-06-30 08:50 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.minike.top/Article/details/01872203.shtml)
+- 2026-06-30 08:44 - [索马里女大使：想和中国一起搞事业](https://www.blog.kurohicncr.top/Article/details/833719375398.shtml)
+- 2026-06-30 08:51 - [曝老詹对自由市场态度与以往截然不同](http://www.blog.kurohicncr.top/Article/details/1181674755.shtml)
+- 2026-06-30 08:52 - [哈弗茨头球破门](http://www.blog.kurohicncr.top/Article/details/9816389114.shtml)
+- 2026-06-30 08:29 - [张帅晋级温网次轮](http://www.share.minike.top/Article/details/168471.shtml)

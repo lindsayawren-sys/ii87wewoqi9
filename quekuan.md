@@ -1,60 +1,52 @@
-# 港股主题基金发行热潮：46只新品抢滩，ETF细分赛道扩容
+# 加力促就业 《稳岗扩容提质行动方案》发布
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-来源：财闻 年内新成立港股主题ETF及其联接基金共25只，涉及医疗、汽车、信息技术、生物科技、互联网等领域，细分赛道产品进一步扩容。 4月13日，博时恒生港股通科技主题ETF、国联恒生港股通科技ETF、银华中证港股通医疗主题ETF正式开启发行。这也是年内港股主题基金发行热潮的一个缩影。 今年以来，公募机构加速布局港股市场，掀起新一轮产品发行热潮。数据显示，截至4月12日，年内新
+新华社权威快报｜加力促就业 《稳岗扩容提质行动方案》发布 国务院就业促进和劳动保护工作领导小组印发的《稳岗扩容提质行动方案》5月18日对外发布，围绕重点行业用工、挖掘就业潜力、提升就业质量等方面提出政策举措。 全力稳定重点行业用工方面，将因地制宜发展制造业吸纳就业，强化建筑、住宿餐饮等行业支持挖潜就业空间，稳定政策性岗位招录规模。 全力挖掘各渠道各领域就业潜力方面，将拓展消费领
 
 ## 正文
 
-来源：财闻 年内新成立港股主题ETF及其联接基金共25只，涉及医疗、汽车、信息技术、生物科技、互联网等领域，细分赛道产品进一步扩容。
+新华社权威快报｜加力促就业 《稳岗扩容提质行动方案》发布 国务院就业促进和劳动保护工作领导小组印发的《稳岗扩容提质行动方案》5月18日对外发布，围绕重点行业用工、挖掘就业潜力、提升就业质量等方面提出政策举措。
 
-4月13日，博时恒生港股通科技主题ETF、国联恒生港股通科技ETF、银华中证港股通医疗主题ETF正式开启发行。
+全力稳定重点行业用工方面，将因地制宜发展制造业吸纳就业，强化建筑、住宿餐饮等行业支持挖潜就业空间，稳定政策性岗位招录规模。
 
-这也是年内港股主题基金发行热潮的一个缩影。
+全力挖掘各渠道各领域就业潜力方面，将拓展消费领域就业空间，加力投资项目建设带动就业，发展新质生产力创造就业，扩大民生服务领域就业容量，提升城乡区域协调发展就业承载力，有效激发创业带动就业效能。
 
-今年以来，公募机构加速布局港股市场，掀起新一轮产品发行热潮。
+全力提升就业质量方面，将着力推动职业技能提升、优化高品质服务供给、保障劳动者权益、推动就业观念转变。
 
-数据显示，截至4月12日，年内新成立港股主题基金已达46只，相较于去年同期的23只实现数量翻倍。
-
-在年内新成立的港股主题基金中，ETF成为机构布局港股的核心工具。
-
-年内新成立港股主题ETF及其联接基金共25只，涉及医疗、汽车、信息技术、生物科技、互联网等领域，细分赛道产品进一步扩容。
-
-同时，部分公募机构通过布局指数增强基金以挖掘更多超额收益。
+记者：张晓洁 海报制作：张晓洁 新华社国内部出品
 
 ## 相关推荐
 
-- 2026-06-30 08:19 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
-- 2026-06-30 08:31 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-30 08:43 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-30 08:35 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
-- 2026-06-30 08:20 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-30 08:23 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
-- 2026-06-30 08:21 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
-- 2026-06-30 08:36 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-30 08:29 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-30 08:22 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-30 08:25 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-30 08:29 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-30 08:40 - [点球大战 残酷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-30 08:36 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
+- 2026-06-30 08:26 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-30 08:50 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-30 08:38 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-30 08:46 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-30 08:27 - [郑钦文温网一轮游](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-30 08:30 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-30 08:37 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
+- 2026-06-30 08:47 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-30 08:49 - [自然光｜papi酱&窦文涛：驴与跑步机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
+- 2026-06-30 08:50 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-30 08:28 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-30 08:26 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:42 - [郑钦文温网一轮游](https://www.share.kurohicncr.top/Article/details/7056578926.shtml)
-- 2026-06-30 08:21 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/1630949195.shtml)
-- 2026-06-30 08:20 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/455036.shtml)
-- 2026-06-30 08:19 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/219258251.shtml)
-- 2026-06-30 08:47 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.share.minike.top/Article/details/2852826661.shtml)
-- 2026-06-30 08:35 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/6880463497.shtml)
-- 2026-06-30 08:36 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.blog.kurohicncr.top/Article/details/9393561899.shtml)
-- 2026-06-30 08:34 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/139579.shtml)
-- 2026-06-30 08:25 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/394920142.shtml)
-- 2026-06-30 08:30 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/29785825.shtml)
-- 2026-06-30 08:35 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/767569372094.shtml)
-- 2026-06-30 08:28 - [爆冷出局！德国点球大战不敌巴拉圭](https://www.blog.minike.top/Article/details/558551.shtml)
-- 2026-06-30 08:28 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/02604351.shtml)
-- 2026-06-30 08:44 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/273712815.shtml)
-- 2026-06-30 08:37 - [勇士续约波尔津吉斯](http://www.share.minike.top/Article/details/5406258.shtml)
+- 2026-06-30 08:43 - [女子遭下药退赔偿拟追刑责](http://www.blog.kurohicncr.top/Article/details/799821443.shtml)
+- 2026-06-30 08:27 - [莫兰特被交易到开拓者](http://www.share.kurohicncr.top/Article/details/32926.shtml)
+- 2026-06-30 08:46 - [刘必安等16人非法集资案二审宣判](http://www.share.minike.top/Article/details/0747525221.shtml)
+- 2026-06-30 08:35 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/5006814.shtml)
+- 2026-06-30 08:25 - [MSI应援曲 如果季中成回忆](http://www.blog.kurohicncr.top/Article/details/41935299.shtml)
+- 2026-06-30 08:38 - [德国队世界杯点球大战首败](http://www.blog.kurohicncr.top/Article/details/134074673.shtml)
+- 2026-06-30 08:34 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](http://www.blog.minike.top/Article/details/270068493.shtml)
+- 2026-06-30 08:35 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/850961814.shtml)
+- 2026-06-30 08:43 - [王濛回复黄灿灿](https://www.share.minike.top/Article/details/580921471.shtml)
+- 2026-06-30 08:41 - [点球大战 残酷](http://www.blog.kurohicncr.top/Article/details/88437125.shtml)
+- 2026-06-30 08:29 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/91352.shtml)
+- 2026-06-30 08:38 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/45064.shtml)
+- 2026-06-30 08:36 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/412379468.shtml)
+- 2026-06-30 08:46 - [韩国世界杯出局是主帅一个人的锅吗](http://www.share.kurohicncr.top/Article/details/85121131638.shtml)
+- 2026-06-30 08:25 - [《共患难》](http://www.blog.minike.top/Article/details/81979.shtml)

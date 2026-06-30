@@ -1,47 +1,51 @@
-# 多位院士共话具身智能：技术、产业与安全需协同并进
+# 湖南、广东迎强降雨 自然资源部对两省启动地质灾害防御Ⅳ级响应
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月12日 16:14 来源：中国新闻网 第三届中国具身智能大会4月10日至12日在安徽合肥举行，多位院士专家齐聚，共同探讨人工智能与机器人深度融合的前沿趋势。具身智能，作为培育新质生产力的核心引擎之一，正从技术研发走向产业应用的关键阶段。(储玮玮 刘怡果 刘永 安徽合肥报道） 责任编辑：【卢岩】
+中新网5月18日电 据自然资源部微信公众号消息，据气象部门预报，未来三天，湖南、广东等地部分地区有大到暴雨过程，局地有大暴雨。自然资源部地质灾害技术指导中心研判，湖南西部、广东西南部发生地质灾害的风险较高。根据《自然资源部地质灾害防御响应工作方案》，自然资源部于5月18日11时对湖南、广东启动地质灾害防御Ⅳ级响应。 自然资源部要求，湖南、广东省自然资源厅增强风险意识和忧患意识，
 
 ## 正文
 
-发布时间：2026年04月12日 16:14 来源：中国新闻网 第三届中国具身智能大会4月10日至12日在安徽合肥举行，多位院士专家齐聚，共同探讨人工智能与机器人深度融合的前沿趋势。
+中新网5月18日电 据自然资源部微信公众号消息，据气象部门预报，未来三天，湖南、广东等地部分地区有大到暴雨过程，局地有大暴雨。
 
-具身智能，作为培育新质生产力的核心引擎之一，正从技术研发走向产业应用的关键阶段。
+自然资源部地质灾害技术指导中心研判，湖南西部、广东西南部发生地质灾害的风险较高。
 
-(储玮玮 刘怡果 刘永 安徽合肥报道） 责任编辑：【卢岩】
+根据《自然资源部地质灾害防御响应工作方案》，自然资源部于5月18日11时对湖南、广东启动地质灾害防御Ⅳ级响应。
+
+自然资源部要求，湖南、广东省自然资源厅增强风险意识和忧患意识，强化底线思维和极限思维，高度重视强降雨引发地质灾害防范应对，及时组织开展巡查排查，切实做好监测预警、会商研判、灾情险情处置和值班值守、信息报送等工作；中国地质调查局、自然资源部地质灾害技术指导中心加强会商研判和驻守专家调度，全力协助地方做好地质灾害防御工作。
 
 ## 相关推荐
 
-- 2026-06-30 08:27 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-30 08:40 - [亚洲球队全部出局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
-- 2026-06-30 08:31 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-30 08:28 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
-- 2026-06-30 08:29 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-30 08:21 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-30 08:25 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-30 08:26 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
-- 2026-06-30 08:22 - [穆祉丞回应获年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
-- 2026-06-30 08:32 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
-- 2026-06-30 08:41 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-30 08:47 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-30 08:35 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-30 08:32 - [德国队世界杯点球大战首败](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-30 08:35 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-30 08:49 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
+- 2026-06-30 08:44 - [金鹰奖视后提名预测](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-30 08:35 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-30 08:45 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-30 08:41 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-30 08:53 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-30 08:30 - [日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-30 08:35 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-30 08:45 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:25 - [输球后日本球迷被强行披上巴西国旗](https://www.share.kurohicncr.top/Article/details/10972501.shtml)
-- 2026-06-30 08:33 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.minike.top/Article/details/0999854332.shtml)
-- 2026-06-30 08:19 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.kurohicncr.top/Article/details/42780982653.shtml)
-- 2026-06-30 08:22 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.blog.minike.top/Article/details/31911549.shtml)
-- 2026-06-30 08:22 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/98472370705.shtml)
-- 2026-06-30 08:20 - [媒体：手机测评该挤挤水分了](http://www.blog.minike.top/Article/details/20666081.shtml)
-- 2026-06-30 08:41 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.minike.top/Article/details/315341.shtml)
-- 2026-06-30 08:44 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/90547294.shtml)
-- 2026-06-30 08:23 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.minike.top/Article/details/60736836270.shtml)
-- 2026-06-30 08:25 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/89410639.shtml)
-- 2026-06-30 08:26 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/30910.shtml)
-- 2026-06-30 08:31 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/2793276.shtml)
-- 2026-06-30 08:21 - [补时绝杀 巴西2-1淘汰日本](https://www.share.kurohicncr.top/Article/details/133232985.shtml)
-- 2026-06-30 08:21 - [库尼亚赛后伸五指嘲讽日本](http://www.share.kurohicncr.top/Article/details/700100.shtml)
-- 2026-06-30 08:42 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://www.blog.minike.top/Article/details/61876.shtml)
+- 2026-06-30 08:36 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/00794857694.shtml)
+- 2026-06-30 08:49 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/214431836356.shtml)
+- 2026-06-30 08:52 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/887382146781.shtml)
+- 2026-06-30 08:32 - [人类...完蛋了...](https://www.blog.minike.top/Article/details/27741013.shtml)
+- 2026-06-30 08:40 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/862199367.shtml)
+- 2026-06-30 08:49 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/8312282604.shtml)
+- 2026-06-30 08:30 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/3060480535.shtml)
+- 2026-06-30 08:51 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/881987225615.shtml)
+- 2026-06-30 08:35 - [佐野海舟远射破门](https://www.share.minike.top/Article/details/937211.shtml)
+- 2026-06-30 08:52 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/0569129904.shtml)
+- 2026-06-30 08:38 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](http://www.share.minike.top/Article/details/540366933444.shtml)
+- 2026-06-30 08:47 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/605826.shtml)
+- 2026-06-30 08:46 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/75409.shtml)
+- 2026-06-30 08:30 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/740587019.shtml)
+- 2026-06-30 08:29 - [德国爆冷点球大战不敌巴拉圭](http://www.blog.kurohicncr.top/Article/details/552804971869.shtml)

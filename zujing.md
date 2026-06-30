@@ -1,61 +1,56 @@
-# 监管出手！一日内，3家A股公司收警示函！
+# 外交部介绍俄罗斯总统普京访华安排
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！监管重拳出击，直指各类财务违规。 4月10日晚间，国网信通、新里程、捷成股份三家公司因会计核算不规范问题收到监管警示函，涉及收入确认、在建工程、影视剧业务等多个核心领域，凸显监管层对上市公司财务信息披露真实性的从严监管。 国网信通贸易业务核算违规，跨三年财务
+新华社北京5月18日电(记者温馨、吴梦桐)应国家主席习近平邀请，俄罗斯总统普京将于5月19日至20日对中国进行国事访问。外交部发言人郭嘉昆18日在例行记者会上介绍了普京此访安排和中方期待。 “这将是普京总统第25次到访中国。访问期间，两国元首将就双边关系、各领域合作以及共同关心的国际地区问题交换意见。”郭嘉昆说，近年来，在习近平主席和普京总统战略引领下，中俄新时代全面战略协作伙
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+新华社北京5月18日电(记者温馨、吴梦桐)应国家主席习近平邀请，俄罗斯总统普京将于5月19日至20日对中国进行国事访问。
 
-监管重拳出击，直指各类财务违规。
+外交部发言人郭嘉昆18日在例行记者会上介绍了普京此访安排和中方期待。
 
-4月10日晚间，国网信通、新里程、捷成股份三家公司因会计核算不规范问题收到监管警示函，涉及收入确认、在建工程、影视剧业务等多个核心领域，凸显监管层对上市公司财务信息披露真实性的从严监管。
+“这将是普京总统第25次到访中国。
 
-国网信通贸易业务核算违规，跨三年财务错报 国网信通公告，公司及4名时任高管收到四川证监局警示函，因2022—2024年部分贸易业务会计核算不规范，未按业务实质采用净额法确认收入，导致连续三年财报存在错报。
+访问期间，两国元首将就双边关系、各领域合作以及共同关心的国际地区问题交换意见。
 
-监管决定对公司及时任董事长、总经理、财务总监出具警示函，相关记录计入证券期货市场诚信档案。
+”郭嘉昆说，近年来，在习近平主席和普京总统战略引领下，中俄新时代全面战略协作伙伴关系健康、稳定、深入发展，各领域合作不断拓展，为两国和两国人民带来实实在在的利益，也为维护全球战略稳定和国际公平正义作出重要贡献。
 
-此前国网信通发布2025年业绩快报，上市公司2025年预计实现营业收入106.28亿元，同比增长1.99%；归母净利润6.78亿元，同比下降16.91%，主要系信用减值损失和所得税费用增加所致，2025年公司预计计提各类资产减值损失合计1.11亿元。
+郭嘉昆说，今年是中俄战略协作伙伴关系建立30周年、《中俄睦邻友好合作条约》签署25周年和“中俄教育年”启动之年。
 
-新里程子公司核算混乱，多期数据失真 新里程同日收到甘肃证监局警示函，经查，其子公司盱眙恒山中医医院有限公司财务会计核算不规范，导致2023年年报利润总额多计195.64万元，占当期利润总额的19.07%；2025年半年报净利润少计215.57万元，占当期净利润的30.62%；2025年三季报利润总额少计285.7万元，占当期利润总额绝对值的23.43%。
-
-公司董事长林杨林、财务总监刘军因未勤勉尽责被追责，监管部门对上市公司采取责令改正并出具警示函的行政监管措施，对林杨林、刘军采取监管谈话并出具警示函的行政监管措施，同时记入证券期货市场诚信档案。
+双方将以此为契机，继续推动中俄关系向更深层次、更高水平发展，为世界注入更多稳定性和正能量。
 
 ## 相关推荐
 
-- 2026-06-30 08:27 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-30 08:43 - [世界杯欧洲队7战南美仅1胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
-- 2026-06-30 08:37 - [高质量发展看新疆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
-- 2026-06-30 08:36 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-30 08:30 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-30 08:26 - [自然光｜papi酱&窦文涛：驴与跑步机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
-- 2026-06-30 08:27 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-30 08:25 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-30 08:47 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
-- 2026-06-30 08:33 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-30 08:27 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-30 08:42 - [德国进球被吹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
-- 2026-06-30 08:39 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-30 08:44 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-30 08:38 - [存储芯片龙头提示风险](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-30 08:25 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-30 08:46 - [德国 传控](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-30 08:41 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-30 08:51 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-30 08:25 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-30 08:44 - [泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-30 08:35 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-30 08:37 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-30 08:53 - [如果有二次元高中是什么样子的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-30 08:44 - [张雪的一句“是我们”引发岛内热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-30 08:34 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-30 08:31 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:36 - [好像看到了人类带孩子崩溃的样子](https://www.share.minike.top/Article/details/14189441751.shtml)
-- 2026-06-30 08:21 - [刘宇宁高情商化解谁站C位](http://www.share.minike.top/Article/details/54655256.shtml)
-- 2026-06-30 08:45 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/096052264788.shtml)
-- 2026-06-30 08:37 - [马耳他著名拱门坍塌致一中国男子身亡](http://www.share.kurohicncr.top/Article/details/051093742.shtml)
-- 2026-06-30 08:32 - [王健林甩卖超80座万达广场](https://www.blog.minike.top/Article/details/22810.shtml)
-- 2026-06-30 08:31 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/80532369.shtml)
-- 2026-06-30 08:31 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/304514.shtml)
-- 2026-06-30 08:40 - [周生如故](https://www.share.minike.top/Article/details/57479.shtml)
-- 2026-06-30 08:44 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/2689523764.shtml)
-- 2026-06-30 08:26 - [日本将帅赛后采访纷纷哽咽落泪](http://www.share.minike.top/Article/details/73643.shtml)
-- 2026-06-30 08:20 - [日本球员说被绝杀非常不甘心](http://www.share.minike.top/Article/details/15791.shtml)
-- 2026-06-30 08:37 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.minike.top/Article/details/897964969.shtml)
-- 2026-06-30 08:41 - [日本进球](https://www.share.kurohicncr.top/Article/details/898538612.shtml)
-- 2026-06-30 08:21 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.minike.top/Article/details/7548253112.shtml)
-- 2026-06-30 08:33 - [董路：谁赢谁是“正路子”](https://www.blog.minike.top/Article/details/48535179.shtml)
+- 2026-06-30 08:40 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/962112.shtml)
+- 2026-06-30 08:52 - [日本反击率先破门](https://www.blog.minike.top/Article/details/6054816507.shtml)
+- 2026-06-30 08:35 - [曝詹姆斯即将与勇士会面](http://www.share.kurohicncr.top/Article/details/472748009140.shtml)
+- 2026-06-30 08:38 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.kurohicncr.top/Article/details/8254613.shtml)
+- 2026-06-30 08:26 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/27009992.shtml)
+- 2026-06-30 08:32 - [网瘾賊大的阿嬷](https://www.share.kurohicncr.top/Article/details/0727008753.shtml)
+- 2026-06-30 08:38 - [巴拉圭率先破门](https://www.blog.kurohicncr.top/Article/details/033533932.shtml)
+- 2026-06-30 08:34 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/459234308.shtml)
+- 2026-06-30 08:29 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/719370458.shtml)
+- 2026-06-30 08:36 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/35394.shtml)
+- 2026-06-30 08:29 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/91582633815.shtml)
+- 2026-06-30 08:38 - [请回答王牌2019](https://www.share.minike.top/Article/details/133075386.shtml)
+- 2026-06-30 08:34 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/86883.shtml)
+- 2026-06-30 08:39 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/72065365744.shtml)
+- 2026-06-30 08:32 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/51980458.shtml)

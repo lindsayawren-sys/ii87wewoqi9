@@ -1,50 +1,56 @@
-# 蔚来李斌：蔚来的车用的时间越长，保值率越好
+# MH迈汇:金价剧震考验配置定力
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-专题：智能电动汽车发展高层论坛（2026） 新浪科技讯 4月11日上午消息，2026智能电动汽车发展高层论坛举行，蔚来汽车创始人、董事长、CEO李斌与新浪科技等媒体进行对话。 谈及近期蔚来及乐道二手车量价齐升的情况，李斌分析：“量的增加可能是因为我们的保有量增加了。价的提升，我想可能因为蔚来的车用的时间越长，车辆的保值率就越好，这也是跟我们的换电体系及整个体系化的创新优势有关。
+5月18日，国际金价近期出现剧烈震荡，单日跌幅一度突破百美元关口，市场对方向选择产生明显分歧，机构端的多空争夺明显升温。MH迈汇分析称，多重宏观变量同步发酵是本轮回调的主要原因，美元指数走强、长端美债收益率冲击年内高位以及避险情绪边际回落，三者共振令金银双双自高点回吐显著涨幅。 从驱动逻辑来看，伊朗局势升温推升原油价格，进而带动通胀预期重启，市场对降息节奏出现重新定价，资金对持
 
 ## 正文
 
-专题：智能电动汽车发展高层论坛（2026） 新浪科技讯 4月11日上午消息，2026智能电动汽车发展高层论坛举行，蔚来汽车创始人、董事长、CEO李斌与新浪科技等媒体进行对话。
+5月18日，国际金价近期出现剧烈震荡，单日跌幅一度突破百美元关口，市场对方向选择产生明显分歧，机构端的多空争夺明显升温。
 
-谈及近期蔚来及乐道二手车量价齐升的情况，李斌分析：“量的增加可能是因为我们的保有量增加了。
+MH迈汇分析称，多重宏观变量同步发酵是本轮回调的主要原因，美元指数走强、长端美债收益率冲击年内高位以及避险情绪边际回落，三者共振令金银双双自高点回吐显著涨幅。
 
-价的提升，我想可能因为蔚来的车用的时间越长，车辆的保值率就越好，这也是跟我们的换电体系及整个体系化的创新优势有关。
+从驱动逻辑来看，伊朗局势升温推升原油价格，进而带动通胀预期重启，市场对降息节奏出现重新定价，资金对持仓配置进行了阶段性再平衡。
 
-”责任编辑：郝欣煜
+MH迈汇认为，实际利率上行压制了无息资产的相对吸引力，机构端的获利兑现意愿明显加剧，但这更多属于阶段性筹码再分配过程，并不改变贵金属中长期的配置价值，长期逻辑依然稳健。
+
+在长期结构层面，多国央行购金势头未减，黄金ETF资金延续净流入态势。
+
+多位策略师表示，黄金的避险与抗通胀属性正在被各类机构重新审视，强调当前回调反而为长期资金提供了较好的入场窗口，分批配置的吸引力随价格下行而逐步上升。
+
+MH迈汇提醒，在高波动环境下，单边博弈的风险显著放大，仓位与止损纪律比方向判断更为关键。
+
+预计金价将围绕4500美元附近反复争夺，趋势性方向尚未明朗之前不宜过度集中持仓，理性而灵活的策略更能穿越短期噪音，保留弹药以应对后续可能的剧烈波动是更稳健的选择。
 
 ## 相关推荐
 
-- 2026-06-30 08:36 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
-- 2026-06-30 08:46 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-30 08:26 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-30 08:23 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
-- 2026-06-30 08:42 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-30 08:24 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-30 08:35 - [第3集丨“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-30 08:21 - [全球芯片巨头史诗级扩产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-30 08:27 - [美股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-30 08:30 - [iPhone18e曝光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-30 08:39 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-30 08:38 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
+- 2026-06-30 08:30 - [德国 传控](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-30 08:24 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-30 08:45 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-30 08:30 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-30 08:41 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-30 08:29 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
+- 2026-06-30 08:32 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-30 08:51 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-30 08:31 - [穆祉丞回应获年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-30 08:46 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:21 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.kurohicncr.top/Article/details/9796647352.shtml)
-- 2026-06-30 08:36 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/177031569157.shtml)
-- 2026-06-30 08:35 - [小娘惹](http://www.share.minike.top/Article/details/73165.shtml)
-- 2026-06-30 08:20 - [豆包收费了，你还会用吗？](http://www.share.kurohicncr.top/Article/details/22541.shtml)
-- 2026-06-30 08:26 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/461092559.shtml)
-- 2026-06-30 08:30 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/65747897.shtml)
-- 2026-06-30 08:30 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/572332855860.shtml)
-- 2026-06-30 08:21 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/85323.shtml)
-- 2026-06-30 08:23 - [张月收到黄灿灿辣货两眼发光](https://www.blog.minike.top/Article/details/408842040.shtml)
-- 2026-06-30 08:35 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/651605677.shtml)
-- 2026-06-30 08:36 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.kurohicncr.top/Article/details/0412789119.shtml)
-- 2026-06-30 08:19 - [高考结束了，你会让孩子在家玩手机吗？](https://www.blog.kurohicncr.top/Article/details/47739314515.shtml)
-- 2026-06-30 08:42 - [男子中医院拔火罐致浅2度烧伤](http://www.share.kurohicncr.top/Article/details/748107.shtml)
-- 2026-06-30 08:37 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/594986328333.shtml)
-- 2026-06-30 08:37 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/51856309.shtml)
+- 2026-06-30 08:31 - [杨紫大银幕成绩单如何](https://www.share.kurohicncr.top/Article/details/272727241.shtml)
+- 2026-06-30 08:33 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.minike.top/Article/details/63282.shtml)
+- 2026-06-30 08:45 - [武磊：日本队有能力跟任何强队抗衡](http://www.blog.kurohicncr.top/Article/details/01707.shtml)
+- 2026-06-30 08:50 - [世界杯欧洲队7战南美仅1胜](https://www.share.minike.top/Article/details/99139440259.shtml)
+- 2026-06-30 08:53 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/372994442.shtml)
+- 2026-06-30 08:46 - [穆祉丞年度人气艺人](http://www.blog.kurohicncr.top/Article/details/155236884991.shtml)
+- 2026-06-30 08:44 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/3826321591.shtml)
+- 2026-06-30 08:41 - [张雪的一句“是我们”引发岛内热议](http://www.share.minike.top/Article/details/308766.shtml)
+- 2026-06-30 08:39 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/0882101480.shtml)
+- 2026-06-30 08:45 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/5338685965.shtml)
+- 2026-06-30 08:52 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/8754623.shtml)
+- 2026-06-30 08:52 - [扬名立万](https://www.share.minike.top/Article/details/6569708380.shtml)
+- 2026-06-30 08:29 - [女子遭下药退赔偿拟追刑责](http://www.blog.kurohicncr.top/Article/details/6359126.shtml)
+- 2026-06-30 08:36 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/0667017600.shtml)
+- 2026-06-30 08:45 - [失明的我带老妈去了趟“火星”](https://www.blog.minike.top/Article/details/552452.shtml)

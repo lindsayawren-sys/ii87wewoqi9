@@ -1,50 +1,56 @@
-# 晨讯科技3月收入为2580万港元 环比减少29.5%
+# 长岛铁路罢工致纽约通勤瘫痪
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-晨讯科技（02000）发布公告，于2026年3月，本集团主营业务的收入为2290万港元，环比减少32.1%，同比减少40.4%；非主营业务的收入为290万港元，环比增长0.5%；集团的未经审核收入为2580万港元，环比减少29.5%。 由于本集团的客户对其采购单的提货时间作出调整，本集团2026年3月份的主营业务出货和收入均比2026年2月份的减少。非主营业务收入主要是租金收入
+由于多工会联合罢工，长岛铁路持续停运，联邦调解员已重启谈判。在公交运力有限的情况下，政府官员呼吁民众远程办公。为缓解通勤压力，网约车公司Lyft已准备增加司机运力。此次罢工发生在早高峰时段，数十万通勤者被迫寻找替代出行方案，部分桥梁和隧道入口出现严重拥堵。州长表示已增派摆渡车和渡轮服务，但仍无法完全弥补铁路停运造成的运力缺口。劳资双方在养老金和排班制度上的分歧仍是谈判的主要障碍
 
 ## 正文
 
-晨讯科技（02000）发布公告，于2026年3月，本集团主营业务的收入为2290万港元，环比减少32.1%，同比减少40.4%；非主营业务的收入为290万港元，环比增长0.5%；集团的未经审核收入为2580万港元，环比减少29.5%。
+由于多工会联合罢工，长岛铁路持续停运，联邦调解员已重启谈判。
 
-由于本集团的客户对其采购单的提货时间作出调整，本集团2026年3月份的主营业务出货和收入均比2026年2月份的减少。
+在公交运力有限的情况下，政府官员呼吁民众远程办公。
 
-非主营业务收入主要是租金收入。
+为缓解通勤压力，网约车公司Lyft已准备增加司机运力。
 
-2026年3月份的非主营业务收入与2026年2月份的大致相约。
+此次罢工发生在早高峰时段，数十万通勤者被迫寻找替代出行方案，部分桥梁和隧道入口出现严重拥堵。
 
-责任编辑：卢昱君
+州长表示已增派摆渡车和渡轮服务，但仍无法完全弥补铁路停运造成的运力缺口。
+
+劳资双方在养老金和排班制度上的分歧仍是谈判的主要障碍。
+
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-30 08:45 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-30 08:35 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-30 08:37 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-30 08:44 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-30 08:24 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-30 08:38 - [莫兰特转投开拓者效力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-30 08:44 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-30 08:38 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-30 08:28 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-30 08:44 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-30 08:32 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-30 08:49 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-30 08:53 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-30 08:50 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-30 08:40 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-30 08:46 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-30 08:32 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-30 08:42 - [诺伊尔尽力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-30 08:32 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-30 08:43 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-30 08:25 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
+- 2026-06-30 08:36 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:39 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/49607.shtml)
-- 2026-06-30 08:38 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/252677214.shtml)
-- 2026-06-30 08:20 - [一生一世](https://www.blog.minike.top/Article/details/88048904402.shtml)
-- 2026-06-30 08:23 - [卡塞米罗头球破门](https://www.blog.minike.top/Article/details/393301409.shtml)
-- 2026-06-30 08:33 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/230640.shtml)
-- 2026-06-30 08:28 - [泰山建135公里刀片刺绳隔离网](http://www.share.minike.top/Article/details/64041620.shtml)
-- 2026-06-30 08:26 - [输球后日本球迷被强行披上巴西国旗](http://www.blog.kurohicncr.top/Article/details/491368.shtml)
-- 2026-06-30 08:32 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/416215731.shtml)
-- 2026-06-30 08:41 - [极限挑战第一季](http://www.share.minike.top/Article/details/79945.shtml)
-- 2026-06-30 08:19 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/457742739145.shtml)
-- 2026-06-30 08:42 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/73290908831.shtml)
-- 2026-06-30 08:26 - [德国连续三届世界杯无缘16强](http://www.blog.kurohicncr.top/Article/details/7966602473.shtml)
-- 2026-06-30 08:23 - [孙兴慜发长文致歉](https://www.share.kurohicncr.top/Article/details/22981403610.shtml)
-- 2026-06-30 08:25 - [人类...完蛋了...](http://www.share.minike.top/Article/details/749362.shtml)
-- 2026-06-30 08:43 - [女子清吧被陌生人投放伟哥](http://www.blog.minike.top/Article/details/632425486101.shtml)
+- 2026-06-30 08:45 - [沉睡花园](http://www.share.minike.top/Article/details/0273872.shtml)
+- 2026-06-30 08:25 - [好像看到了人类带孩子崩溃的样子](https://www.share.minike.top/Article/details/709500440.shtml)
+- 2026-06-30 08:35 - [高质量发展看新疆](http://www.blog.minike.top/Article/details/99588.shtml)
+- 2026-06-30 08:45 - [媒体：手机测评该挤挤水分了](https://www.blog.kurohicncr.top/Article/details/6627539813.shtml)
+- 2026-06-30 08:37 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/7658004251.shtml)
+- 2026-06-30 08:47 - [真实感受到千香是积压剧了](https://www.share.kurohicncr.top/Article/details/375383812.shtml)
+- 2026-06-30 08:49 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/05741.shtml)
+- 2026-06-30 08:24 - [现在叛逆期的孩子最怕的是什么？](https://www.share.kurohicncr.top/Article/details/70639.shtml)
+- 2026-06-30 08:39 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/75901.shtml)
+- 2026-06-30 08:39 - [巴西醒醒 这是淘汰赛](http://www.blog.kurohicncr.top/Article/details/60646895.shtml)
+- 2026-06-30 08:45 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/208324.shtml)
+- 2026-06-30 08:46 - [穆祉丞年度人气艺人](http://www.share.minike.top/Article/details/005194066300.shtml)
+- 2026-06-30 08:38 - [明星大侦探第四季](http://www.share.minike.top/Article/details/98453.shtml)
+- 2026-06-30 08:26 - [孙兴慜道歉](http://www.share.minike.top/Article/details/29580175.shtml)
+- 2026-06-30 08:50 - [欧洲民众抢购空调降温](https://www.share.kurohicncr.top/Article/details/101955.shtml)

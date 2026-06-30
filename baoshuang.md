@@ -1,56 +1,46 @@
-# 澳大利亚总理访问新加坡 聚焦能源安全议题
+# 罗湖海关查获进境旅客腿部绑藏旧手机摄像头1378个
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-中新社悉尼4月10日电 澳大利亚总理阿尔巴尼斯与新加坡总理黄循财10日发表联合声明称，双方将加强能源安全合作，保障燃料等关键物资稳定流通。 黄循财当天在新加坡与到访的阿尔巴尼斯举行会谈并召开联合记者会。黄循财表示，中东冲突扰乱全球供应链和能源市场，新加坡和澳大利亚均承受压力，双方有必要加强合作，共同应对挑战。阿尔巴尼斯表示，加强合作有助于保障两国能源安全、增强经济韧性。 双方当
+中新网5月19日电 据“海关发布”微信公众号消息，近日，罗湖海关查获进境旅客腿部绑藏旧手机摄像头1378个。 海关关员在对进境旅客进行监管时，发现一名男性旅客进入海关监管区未向海关申报，其身着宽松牛仔裤，但腿部有异常凸起，步态也很僵硬，海关关员随即对其进行拦截检查。 经进一步检查，海关关员在该旅客的右侧小腿发现用透明胶带缠绕捆绑的旧手机摄像头679个，在其左侧小腿发现同样用透明
 
 ## 正文
 
-中新社悉尼4月10日电 澳大利亚总理阿尔巴尼斯与新加坡总理黄循财10日发表联合声明称，双方将加强能源安全合作，保障燃料等关键物资稳定流通。
+中新网5月19日电 据“海关发布”微信公众号消息，近日，罗湖海关查获进境旅客腿部绑藏旧手机摄像头1378个。
 
-黄循财当天在新加坡与到访的阿尔巴尼斯举行会谈并召开联合记者会。
+海关关员在对进境旅客进行监管时，发现一名男性旅客进入海关监管区未向海关申报，其身着宽松牛仔裤，但腿部有异常凸起，步态也很僵硬，海关关员随即对其进行拦截检查。
 
-黄循财表示，中东冲突扰乱全球供应链和能源市场，新加坡和澳大利亚均承受压力，双方有必要加强合作，共同应对挑战。
-
-阿尔巴尼斯表示，加强合作有助于保障两国能源安全、增强经济韧性。
-
-双方当天签署一份联合声明，表示将“尽最大努力”满足彼此能源安全需求，应对当前能源冲击。
-
-声明称，双方将支持包括石油产品和液化天然气在内的关键物资流通，并通过强化协调、提高边境及港口通关效率等方式，促进货物和关键物资及时流通。
-
-新加坡是亚洲主要炼油中心。
-
-阿尔巴尼斯9日抵达新加坡后向媒体表示，澳大利亚约26%的成品油来自新加坡，新加坡约32%的液化天然气来自澳大利亚。
+经进一步检查，海关关员在该旅客的右侧小腿发现用透明胶带缠绕捆绑的旧手机摄像头679个，在其左侧小腿发现同样用透明胶带缠绕捆绑的旧手机摄像头699个，共计1378个。
 
 ## 相关推荐
 
-- 2026-06-30 08:26 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-30 08:20 - [郑钦文温网一轮游](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-30 08:20 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-30 08:43 - [德国爆冷点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
-- 2026-06-30 08:36 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
-- 2026-06-30 08:47 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
-- 2026-06-30 08:37 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-30 08:45 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-30 08:33 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-30 08:33 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-30 08:53 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
+- 2026-06-30 08:36 - [日本球员说被绝杀非常不甘心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-30 08:44 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
+- 2026-06-30 08:41 - [现在叛逆期的孩子最怕的是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-30 08:52 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-30 08:40 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-30 08:34 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-30 08:32 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
+- 2026-06-30 08:35 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-30 08:29 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:30 - [小娘惹](http://www.share.kurohicncr.top/Article/details/727253706.shtml)
-- 2026-06-30 08:21 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.kurohicncr.top/Article/details/06306863.shtml)
-- 2026-06-30 08:20 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.minike.top/Article/details/1252858.shtml)
-- 2026-06-30 08:22 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/89214.shtml)
-- 2026-06-30 08:34 - [曝詹姆斯即将与勇士会面](https://www.blog.kurohicncr.top/Article/details/946396390.shtml)
-- 2026-06-30 08:29 - [绘画区你赢了](http://www.share.minike.top/Article/details/53286163.shtml)
-- 2026-06-30 08:18 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/97488953821.shtml)
-- 2026-06-30 08:46 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/633257.shtml)
-- 2026-06-30 08:44 - [德国vs巴拉圭](https://www.share.minike.top/Article/details/26677129415.shtml)
-- 2026-06-30 08:34 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/19163307.shtml)
-- 2026-06-30 08:46 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.blog.kurohicncr.top/Article/details/465113.shtml)
-- 2026-06-30 08:18 - [武磊：巴西队赢的并不轻松](https://www.share.kurohicncr.top/Article/details/387827856487.shtml)
-- 2026-06-30 08:25 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/8327866056.shtml)
-- 2026-06-30 08:40 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/8946622.shtml)
-- 2026-06-30 08:39 - [三星投资计划](https://www.blog.kurohicncr.top/Article/details/230603679.shtml)
+- 2026-06-30 08:42 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/6015910.shtml)
+- 2026-06-30 08:47 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.kurohicncr.top/Article/details/2414765.shtml)
+- 2026-06-30 08:28 - [泰山建135公里刀片刺绳隔离网](https://www.share.kurohicncr.top/Article/details/3934978.shtml)
+- 2026-06-30 08:42 - [感动全网的699分女生想报考清华](https://www.blog.minike.top/Article/details/07906.shtml)
+- 2026-06-30 08:40 - [德国巴拉圭进入点球大战](https://www.blog.kurohicncr.top/Article/details/86352581.shtml)
+- 2026-06-30 08:41 - [沉睡花园](http://www.blog.minike.top/Article/details/9051233.shtml)
+- 2026-06-30 08:52 - [博世们还在犹豫 美的们已经卖断货](http://www.share.kurohicncr.top/Article/details/896773003.shtml)
+- 2026-06-30 08:24 - [苗族银饰](https://www.share.kurohicncr.top/Article/details/60832275609.shtml)
+- 2026-06-30 08:48 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.kurohicncr.top/Article/details/022825616.shtml)
+- 2026-06-30 08:36 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/341400.shtml)
+- 2026-06-30 08:41 - [内马尔替补](http://www.blog.kurohicncr.top/Article/details/2985907.shtml)
+- 2026-06-30 08:31 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/03664.shtml)
+- 2026-06-30 08:36 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/649851810614.shtml)
+- 2026-06-30 08:25 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/155151739191.shtml)
+- 2026-06-30 08:41 - [莫兰特被交易到开拓者](https://www.blog.minike.top/Article/details/455078730.shtml)

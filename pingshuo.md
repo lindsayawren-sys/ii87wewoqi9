@@ -1,60 +1,56 @@
-# 晋商银行：容常青获批担任董事及副董事长
+# 习近平主席贺信为中俄各领域合作走深走实注入强劲动力
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-4月10日金融一线消息，晋商银行今日发布公告称，该行已于近日收到《山西监管局关于容常青晋商银行股份有限公司董事任职资格的批复》（晋金管复\[2026\]36号），容常青担任董事及董事会副董事长的任职资格已获山西监管局核准。容常青担任非执行董事、董事会副董事长及董事会审计委员会成员的任期自2026年4月8日起生效，直至第七届董事会任期（自2025年12月19日起三年）届满之日止。 公
+原标题：更好促进两国经济社会发展 持续增进人民福祉——习近平主席贺信为中俄各领域合作不断走深走实注入强劲动力 5月17日，国家主席习近平向第十届中俄博览会致贺信，引发中俄各界人士热烈反响。大家表示，习近平主席的贺信充分肯定两国各领域合作的丰硕成果，为双方进一步增进互信、密切交流、深化合作指明了前进方向，为推动中俄新时代全面战略协作伙伴关系行稳致远注入强劲动力。 中俄博览会是促进
 
 ## 正文
 
-4月10日金融一线消息，晋商银行今日发布公告称，该行已于近日收到《山西监管局关于容常青晋商银行股份有限公司董事任职资格的批复》（晋金管复\[2026\]36号），容常青担任董事及董事会副董事长的任职资格已获山西监管局核准。
+原标题：更好促进两国经济社会发展 持续增进人民福祉——习近平主席贺信为中俄各领域合作不断走深走实注入强劲动力 5月17日，国家主席习近平向第十届中俄博览会致贺信，引发中俄各界人士热烈反响。
 
-容常青担任非执行董事、董事会副董事长及董事会审计委员会成员的任期自2026年4月8日起生效，直至第七届董事会任期（自2025年12月19日起三年）届满之日止。
+大家表示，习近平主席的贺信充分肯定两国各领域合作的丰硕成果，为双方进一步增进互信、密切交流、深化合作指明了前进方向，为推动中俄新时代全面战略协作伙伴关系行稳致远注入强劲动力。
 
-公开资料显示，容常青，男，1970年1月生，管理学硕士研究生学历。
+中俄博览会是促进两国经贸合作层次最高、规模最大的综合性展会，一直得到两国元首的高度关注和亲自指导。
 
-1991年获武汉大学经济学学士学位，2002年获中南财经政法大学管理学硕士学位，2005年评定为高级审计师，2009年取得企业法律顾问资格。
+习近平主席曾于2024年向第八届中俄博览会致贺信，普京总统曾出席第八届中俄博览会开幕式并向本届博览会致贺信。
 
-容常青于1991年起任职于审计署武汉特派办，后曾在京东方科技集团股份有限公司移动数码事业部、北京荣泰恒嘉房地产开发有限公司及北京万东医疗装备股份有限公司担任财务、审计及管理职务。
+“今年是中俄战略协作伙伴关系建立30周年和《中俄睦邻友好合作条约》签署25周年。
 
-2004年6月至2018年历任华能资本服务有限公司审计监察部主管及副处长、总经理工作部副处长及副经理、风险控制部经理及总法律顾问。
+”站在重要历史节点，本届中俄博览会更承载着丰富内涵和不凡意义。
 
-他于2018年9月起任晋商银行执行董事，同年12月起出任副行长，负责法律合规部、零售银行部、个人信贷资产部、信用卡业务部、资产管理部及小企业金融部。
+习近平主席在贺信中指出，“在双方共同努力下，中俄各领域合作不断走深走实，取得丰硕成果。
 
-2020年11月因工作调动辞任后，于2021年1月被永诚财产保险股份有限公司聘任为公司总裁，但其任职资格并未获批。
+” 俄罗斯副总理兼总统驻远东联邦区全权代表特鲁特涅夫表示，习近平主席胸怀全局、高瞻远瞩，同普京总统一道为两国长远发展擘画蓝图、明确航向，指引双方合作行稳致远。
 
 ## 相关推荐
 
-- 2026-06-30 08:27 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
-- 2026-06-30 08:27 - [为什么会有「念旧」的心理？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-30 08:28 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-30 08:30 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-30 08:37 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-30 08:31 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-30 08:45 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-30 08:22 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-30 08:40 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-30 08:29 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-30 08:27 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-30 08:28 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-30 08:43 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-30 08:37 - [杨紫肖战余生请多指教拍立得](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-30 08:45 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-30 08:34 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-30 08:40 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
+- 2026-06-30 08:43 - [巴西vs日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-30 08:52 - [日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-30 08:39 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-30 08:48 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-30 08:45 - [德国淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-30 08:28 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-30 08:29 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:28 - [德国爆冷点球大战不敌巴拉圭](https://www.share.minike.top/Article/details/04076296670.shtml)
-- 2026-06-30 08:46 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.minike.top/Article/details/72625.shtml)
-- 2026-06-30 08:22 - [巴西绝杀](https://www.blog.minike.top/Article/details/12031860597.shtml)
-- 2026-06-30 08:46 - [张月收到黄灿灿辣货两眼发光](https://www.blog.kurohicncr.top/Article/details/7657607.shtml)
-- 2026-06-30 08:20 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/0588652.shtml)
-- 2026-06-30 08:37 - [锐评T1战胜KC](https://www.share.minike.top/Article/details/0818889861.shtml)
-- 2026-06-30 08:24 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/22330015.shtml)
-- 2026-06-30 08:29 - [女子清吧被陌生人投放伟哥](https://www.blog.minike.top/Article/details/4324997.shtml)
-- 2026-06-30 08:39 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/622074168.shtml)
-- 2026-06-30 08:42 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/258403.shtml)
-- 2026-06-30 08:25 - [日本淘汰](https://www.blog.minike.top/Article/details/908737.shtml)
-- 2026-06-30 08:32 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.minike.top/Article/details/7038539444.shtml)
-- 2026-06-30 08:35 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/588438763.shtml)
-- 2026-06-30 08:28 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/873192552635.shtml)
-- 2026-06-30 08:20 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/51844211916.shtml)
+- 2026-06-30 08:42 - [《贺子珍》](https://www.blog.minike.top/Article/details/396025428.shtml)
+- 2026-06-30 08:26 - [世界杯](https://www.share.minike.top/Article/details/17406.shtml)
+- 2026-06-30 08:42 - [世界杯巴拉圭点球淘汰德国](http://www.blog.minike.top/Article/details/87169.shtml)
+- 2026-06-30 08:52 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/062921929922.shtml)
+- 2026-06-30 08:30 - [如何评价杨紫白玉兰获奖](http://www.blog.minike.top/Article/details/1670524823.shtml)
+- 2026-06-30 08:27 - [男子中医院拔火罐致浅2度烧伤](http://www.share.minike.top/Article/details/35103.shtml)
+- 2026-06-30 08:51 - [曝詹姆斯即将与勇士会面](http://www.blog.minike.top/Article/details/415331.shtml)
+- 2026-06-30 08:36 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/27916404.shtml)
+- 2026-06-30 08:51 - [德国巴拉圭 折磨](https://www.share.kurohicncr.top/Article/details/6346970370.shtml)
+- 2026-06-30 08:46 - [巴西绝杀日本：漫画般结局换了主角](https://www.blog.minike.top/Article/details/940386.shtml)
+- 2026-06-30 08:37 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/90422582491.shtml)
+- 2026-06-30 08:46 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/104778284.shtml)
+- 2026-06-30 08:35 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/055009.shtml)
+- 2026-06-30 08:38 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/9700161.shtml)
+- 2026-06-30 08:35 - [曝iPhone18Pro机密文件现身暗网](https://www.blog.kurohicncr.top/Article/details/01939.shtml)

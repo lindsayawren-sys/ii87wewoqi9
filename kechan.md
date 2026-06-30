@@ -1,57 +1,61 @@
-# 广州清明祭扫再迎高峰 无烟祭扫预约量逐年攀升
+# 来这个国际交易中心“买买买”，真香！
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-中新网广州4月13日电 (记者 蔡敏婕)清明时节，追思悠悠。广州市民政局13日发布消息称，上周末(11日至12日)广州清明拜祭迎来了第二波小高峰，全市各拜祭场所接待民众68.6万人次、车辆10.7万辆次。 从焚香烧纸到鲜花追忆、电子香炉寄托哀思，清明祭扫方式正在悄然变化。绿色、文明、低碳，如今成为越来越多广州市民的选择。 广州市持续深化绿色殡葬理念，引导各拜祭场所设置无烟祭扫区
+开局之年看中国丨来这个国际交易中心“买买买”，真香！ 人民网玉林5月16日电 (韦欢、覃心、梁章晖)在广西，有一个“喷香扑鼻”的地方——玉林福达国际香料交易中心。每天，一车又一车的货物从东南亚国家进口，在这中转后发往全国，登上消费者的餐桌；中东、欧美等地的客商也会来此地采购，将广西生产的香料带向世界。 5月15日，“开局之年看中国·共此壮美广西”网络主题宣传活动媒体采风团走进玉
 
 ## 正文
 
-中新网广州4月13日电 (记者 蔡敏婕)清明时节，追思悠悠。
+开局之年看中国丨来这个国际交易中心“买买买”，真香！
 
-广州市民政局13日发布消息称，上周末(11日至12日)广州清明拜祭迎来了第二波小高峰，全市各拜祭场所接待民众68.6万人次、车辆10.7万辆次。
+人民网玉林5月16日电 (韦欢、覃心、梁章晖)在广西，有一个“喷香扑鼻”的地方——玉林福达国际香料交易中心。
 
-从焚香烧纸到鲜花追忆、电子香炉寄托哀思，清明祭扫方式正在悄然变化。
+每天，一车又一车的货物从东南亚国家进口，在这中转后发往全国，登上消费者的餐桌；中东、欧美等地的客商也会来此地采购，将广西生产的香料带向世界。
 
-绿色、文明、低碳，如今成为越来越多广州市民的选择。
+5月15日，“开局之年看中国·共此壮美广西”网络主题宣传活动媒体采风团走进玉林福达国际香料交易中心。
 
-广州市持续深化绿色殡葬理念，引导各拜祭场所设置无烟祭扫区，推广鲜花祭扫、天堂信箱等环保祭拜方式。
+作为“买全球、卖全球”的香料集散中心，八角、肉桂、花椒、沙姜……福达有超过160种香料可供客商“一站式”购齐，年交易额达350亿，相当于每日约有一个亿的交易额在这里发生。
 
-广州市殡葬服务中心优化铭恩园无烟拜祭区，将怀恩广场设为无烟区，免费提供电子香炉，设置生态安葬宣传栏及祈福设施，开展亲情寄语、天堂信箱等免费追思服务。
+“玉林，就是中国香料届的‘义乌’！
 
-今年，无烟拜祭区面积扩大一倍至2400平方米，共82张拜祭台，清明节当天(4月5日)全部约满。
+你想买的香料，我们都可以找到。
 
-“能把想说的话写下来寄出去，真的很好。
+”本地经营户韦丹迪笑着说道。
 
 ## 相关推荐
 
-- 2026-06-30 08:41 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-30 08:28 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
-- 2026-06-30 08:23 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
-- 2026-06-30 08:30 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-30 08:47 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-30 08:45 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-30 08:21 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-30 08:29 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-30 08:44 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
-- 2026-06-30 08:36 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-30 08:30 - [媒体：手机测评该挤挤水分了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-30 08:29 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-30 08:34 - [王楚钦说配合稍微有些陌生感](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-30 08:42 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-30 08:52 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-30 08:51 - [巴西足球能否再现昔日荣光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-30 08:36 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-30 08:51 - [日本进球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-30 08:50 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
+- 2026-06-30 08:52 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-30 08:43 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-30 08:32 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-30 08:45 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-30 08:37 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-30 08:41 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
+- 2026-06-30 08:28 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:19 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/900784366.shtml)
-- 2026-06-30 08:43 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/88541511.shtml)
-- 2026-06-30 08:47 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/637870455501.shtml)
-- 2026-06-30 08:46 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/7392126036.shtml)
-- 2026-06-30 08:18 - [巴西2比1日本](https://www.share.kurohicncr.top/Article/details/103145.shtml)
-- 2026-06-30 08:38 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/634989.shtml)
-- 2026-06-30 08:26 - [DeepSeek V4正式版要来了](http://www.share.kurohicncr.top/Article/details/608294889625.shtml)
-- 2026-06-30 08:25 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/50296383631.shtml)
-- 2026-06-30 08:32 - [王健林甩卖超80座万达广场](http://www.blog.minike.top/Article/details/28901644.shtml)
-- 2026-06-30 08:27 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/0186747.shtml)
-- 2026-06-30 08:39 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/235965181624.shtml)
-- 2026-06-30 08:24 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/539941.shtml)
-- 2026-06-30 08:31 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/27165691903.shtml)
-- 2026-06-30 08:18 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/7098555.shtml)
-- 2026-06-30 08:47 - [巴西2-1绝杀日本](http://www.share.kurohicncr.top/Article/details/15631242.shtml)
+- 2026-06-30 08:53 - [流金岁月](http://www.share.minike.top/Article/details/7404723.shtml)
+- 2026-06-30 08:33 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.kurohicncr.top/Article/details/9879135552.shtml)
+- 2026-06-30 08:28 - [韩国球迷凌晨4点接机怒骂主教练](http://www.blog.kurohicncr.top/Article/details/190458872704.shtml)
+- 2026-06-30 08:24 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/47272.shtml)
+- 2026-06-30 08:41 - [吴易昺不敌德约科维奇 止步温网首轮](http://www.blog.kurohicncr.top/Article/details/23923563.shtml)
+- 2026-06-30 08:26 - [点球大战 残酷](http://www.share.minike.top/Article/details/50148195.shtml)
+- 2026-06-30 08:28 - [日本队主帅道歉](https://www.share.kurohicncr.top/Article/details/76007.shtml)
+- 2026-06-30 08:53 - [第一次对自信的力量有了实感](https://www.blog.kurohicncr.top/Article/details/79649629244.shtml)
+- 2026-06-30 08:28 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/05854.shtml)
+- 2026-06-30 08:32 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/2363031.shtml)
+- 2026-06-30 08:45 - [F1奥地利站赛后复盘](http://www.blog.minike.top/Article/details/822919696.shtml)
+- 2026-06-30 08:28 - [泰山建135公里刀片刺绳隔离网](http://www.blog.minike.top/Article/details/85025610570.shtml)
+- 2026-06-30 08:48 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/82307.shtml)
+- 2026-06-30 08:52 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/010386261946.shtml)
+- 2026-06-30 08:53 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/6450005.shtml)

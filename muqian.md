@@ -1,61 +1,48 @@
-# 以色列为何最不愿意停止战争
+# 05月18日冷轧板3887.50元/吨 30天上涨3.94%
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-“ 美方尚未与伊朗达成共识。”这是美国副总统万斯在巴基斯坦举行的新闻发布会上的最新表态。 万斯说，美方已展现出“相当的灵活与诚意”，但伊方“选择不接受”；伊方则表示， “美国的过分要求阻碍了共同框架和协议的达成”。 除了谈判的变数，在美伊宣布停火后不到 24小时，以色列对黎巴嫩发动了开战以来最大规模空袭，10分钟袭击100个目标，造成上千人死伤，黎巴嫩全国哀悼。 围绕停火范围是
+据生意社监测，冷轧板05月18日最新价格3887.50元/吨，最近30天上涨3.94%。相关生产商有：河钢股份(000709)本钢板材(000761)太钢不锈(000825)鞍钢股份(000898)华菱钢铁(000932)首钢股份(000959)包钢股份(600010)宝钢股份(600019)山东钢铁(600022)杭钢股份(600126)酒钢宏兴(600307)安阳钢铁(60
 
 ## 正文
 
-“ 美方尚未与伊朗达成共识。
+据生意社监测，冷轧板05月18日最新价格3887.50元/吨，最近30天上涨3.94%。
 
-”这是美国副总统万斯在巴基斯坦举行的新闻发布会上的最新表态。
-
-万斯说，美方已展现出“相当的灵活与诚意”，但伊方“选择不接受”；伊方则表示， “美国的过分要求阻碍了共同框架和协议的达成”。
-
-除了谈判的变数，在美伊宣布停火后不到 24小时，以色列对黎巴嫩发动了开战以来最大规模空袭，10分钟袭击100个目标，造成上千人死伤，黎巴嫩全国哀悼。
-
-围绕停火范围是否包括黎巴嫩，交战各方各执一词；本就脆弱的临时停火协议，也被炸出深深裂痕。
-
-世界关心的真问题是：在美伊至少存有谈判意向之际，以色列为何看上去仍不愿收手？
-
-一 在这场战事中，以色列似乎始终是最 “上头”的一方。
-
-战前，极力鼓动美国对伊动手（美国前国务卿克里透露，以方已持续数十年游说美国总统对伊动武，只不过前几任都拒绝了）；美对伊设定 “最后期限”后，以试图说服美国“再打一个月”；美伊宣布临时停火两周，以表面上声称“将尊重与伊朗的停火”，转头便猛烈轰炸黎巴嫩。
+相关生产商有：河钢股份(000709)本钢板材(000761)太钢不锈(000825)鞍钢股份(000898)华菱钢铁(000932)首钢股份(000959)包钢股份(600010)宝钢股份(600019)山东钢铁(600022)杭钢股份(600126)酒钢宏兴(600307)安阳钢铁(600569)*ST八钢（维权）(600581)新钢股份(600782)马钢股份(600808)柳钢股份(601003)重庆钢铁(601005)等。
 
 ## 相关推荐
 
-- 2026-06-30 08:20 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-30 08:21 - [板面：为什么那么多人爱吃？？！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
-- 2026-06-30 08:28 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-30 08:28 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
-- 2026-06-30 08:36 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
-- 2026-06-30 08:42 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-30 08:37 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-30 08:46 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-30 08:28 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
-- 2026-06-30 08:25 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-30 08:44 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
-- 2026-06-30 08:45 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
-- 2026-06-30 08:32 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-30 08:47 - [德国淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
-- 2026-06-30 08:28 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-30 08:53 - [大蒜晒外面被路过女子连盆端走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-30 08:35 - [高质量发展看新疆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
+- 2026-06-30 08:25 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-30 08:43 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-30 08:37 - [日本将帅赛后采访纷纷哽咽落泪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-30 08:52 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-30 08:24 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-30 08:42 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-30 08:43 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-30 08:24 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
+- 2026-06-30 08:52 - [杨紫学位证上就是杨紫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-30 08:51 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-30 08:36 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-30 08:27 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:23 - [如何改变自己太负责任的性格?](https://www.blog.kurohicncr.top/Article/details/5160663.shtml)
-- 2026-06-30 08:42 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/3825281636.shtml)
-- 2026-06-30 08:26 - [日本反击率先破门](https://www.blog.minike.top/Article/details/0652876810.shtml)
-- 2026-06-30 08:35 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/5530496774.shtml)
-- 2026-06-30 08:34 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/362440.shtml)
-- 2026-06-30 08:29 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/88350.shtml)
-- 2026-06-30 08:38 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.minike.top/Article/details/14244857.shtml)
-- 2026-06-30 08:29 - [美股](http://www.blog.minike.top/Article/details/80311497613.shtml)
-- 2026-06-30 08:41 - [起风了](https://www.blog.kurohicncr.top/Article/details/483425765.shtml)
-- 2026-06-30 08:26 - [我觉得你是在无中生友](http://www.share.minike.top/Article/details/398485302383.shtml)
-- 2026-06-30 08:47 - [急先锋](https://www.blog.minike.top/Article/details/675867.shtml)
-- 2026-06-30 08:32 - [DeepSeek V4正式版要来了](https://www.blog.minike.top/Article/details/294952.shtml)
-- 2026-06-30 08:26 - [莫兰特被交易到开拓者](https://www.blog.minike.top/Article/details/26320792.shtml)
-- 2026-06-30 08:37 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/075836056558.shtml)
-- 2026-06-30 08:40 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/222603158845.shtml)
+- 2026-06-30 08:36 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/28037.shtml)
+- 2026-06-30 08:49 - [存储芯片龙头提示风险](https://www.share.kurohicncr.top/Article/details/166067689836.shtml)
+- 2026-06-30 08:28 - [斗破苍穹](https://www.share.minike.top/Article/details/756012432.shtml)
+- 2026-06-30 08:30 - [董卿父亲在报纸上发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/902056535044.shtml)
+- 2026-06-30 08:39 - [日本 高位逼抢](https://www.blog.kurohicncr.top/Article/details/061207297685.shtml)
+- 2026-06-30 08:35 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/909866010.shtml)
+- 2026-06-30 08:35 - [网友写差评被店家“挂”门口避雷](https://www.blog.minike.top/Article/details/73531201.shtml)
+- 2026-06-30 08:46 - [《共患难》](https://www.share.minike.top/Article/details/042171.shtml)
+- 2026-06-30 08:47 - [杨紫大银幕成绩单如何](https://www.share.minike.top/Article/details/907782250383.shtml)
+- 2026-06-30 08:27 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/662953.shtml)
+- 2026-06-30 08:29 - [日本反击率先破门](https://www.blog.minike.top/Article/details/30230886.shtml)
+- 2026-06-30 08:39 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/084008753.shtml)
+- 2026-06-30 08:26 - [恋与深空道歉声明](http://www.share.kurohicncr.top/Article/details/0524494550.shtml)
+- 2026-06-30 08:50 - [世界杯巴拉圭点球淘汰德国](https://www.share.minike.top/Article/details/428548920.shtml)
+- 2026-06-30 08:36 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.minike.top/Article/details/95169868.shtml)

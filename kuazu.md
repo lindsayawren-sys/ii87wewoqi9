@@ -1,58 +1,61 @@
-# 书写山火救援与生态复绿 长篇小说《城头有座山》出版
+# 外媒持续关注普京访华 认为中俄双方将推动双边关系进一步发展
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-中新网重庆4月12日电 (记者 钟旖)由重庆市江津区作协副主席徐华亮创作的长篇小说《城头有座山》，近期正式出版发行。小说以重庆北碚山火救援及后续缙云山生态重建为背景，讲述生态复绿、情感复绿和生命复绿的动人故事。 12日，在重庆自然博物馆举行的“如果生命是一片森林——长篇小说《城头有座山》新书发布暨广播剧《琼楠树下》演播推广会”上，记者获悉前述消息。 据介绍，新书《城头有座山》由
+全球媒体聚焦｜外媒持续关注普京访华 认为中俄双方将推动双边关系进一步发展 俄罗斯总统普京将于5月19日至20日对中国进行国事访问。多家外媒近日对此持续关注。 路透社5月18日的报道，援引克里姆林宫的表态说，俄罗斯对普京总统本周访华寄予厚望，俄中双方将利用此次访问进一步发展两国新时代全面战略协作伙伴关系。 据俄罗斯总统新闻秘书佩斯科夫介绍，俄罗斯代表团成员将包括副总理、政府部长和
 
 ## 正文
 
-中新网重庆4月12日电 (记者 钟旖)由重庆市江津区作协副主席徐华亮创作的长篇小说《城头有座山》，近期正式出版发行。
+全球媒体聚焦｜外媒持续关注普京访华 认为中俄双方将推动双边关系进一步发展 俄罗斯总统普京将于5月19日至20日对中国进行国事访问。
 
-小说以重庆北碚山火救援及后续缙云山生态重建为背景，讲述生态复绿、情感复绿和生命复绿的动人故事。
+多家外媒近日对此持续关注。
 
-12日，在重庆自然博物馆举行的“如果生命是一片森林——长篇小说《城头有座山》新书发布暨广播剧《琼楠树下》演播推广会”上，记者获悉前述消息。
+路透社5月18日的报道，援引克里姆林宫的表态说，俄罗斯对普京总统本周访华寄予厚望，俄中双方将利用此次访问进一步发展两国新时代全面战略协作伙伴关系。
 
-据介绍，新书《城头有座山》由中国言实出版社出版，系徐华亮首部长篇小说。
+据俄罗斯总统新闻秘书佩斯科夫介绍，俄罗斯代表团成员将包括副总理、政府部长和企业负责人。
 
-小说结合“救灾与复绿”“城市精神传承”双线叙事，通过一对摩托车志愿者恋人曹天生、丁小渝在灾难磨砺中的成长变化，聚焦一群志愿者的命运轨迹，勾勒出大时代里平民英雄的群像。
+土耳其阿纳多卢通讯社的报道说，此次俄罗斯总统普京访华旨在纪念具有里程碑意义的《中俄睦邻友好合作条约》签署25周年。
 
-小说用市井烟火气包裹宏大命题，不仅着墨山火救援，也关注生态建设“后半篇文章”，同时刻画出重庆人在时代大背景下经烈火淬炼，展现出的忠勇之魂、坚韧之志。
+报道援引佩斯科夫的介绍说，普京总统访华议程将涵盖双边关系的全方位合作：“首要议题自然是双边关系——这种特殊的新时代全面战略协作伙伴关系。
 
-“这部作品是对山火志愿者最真诚的致敬，是对缙云山重生的深情记录，是对重庆城市精神的生动诠释，更是当代文学扎根现实、回应时代的一次精彩实践。
+双方贸易额已稳定突破2000亿美元大关。
 
-”中国少数民族作家学会会长冉冉评价称，山火救援是刻在重庆人血脉里的特殊记忆，这部作品写得真、写得深、写得美，不只是一本文学著作，更是一部有温度、有筋骨、有力量的城市英雄史诗，做到了思想性与艺术性相融、生活质感与精神高度统一。
+当然，国际事务也将是重要讨论内容。
 
 ## 相关推荐
 
-- 2026-06-30 08:24 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-30 08:36 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
-- 2026-06-30 08:19 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-30 08:29 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
-- 2026-06-30 08:46 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-30 08:40 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-30 08:46 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-30 08:45 - [巴西绝杀日本：漫画般结局换了主角](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-30 08:38 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-30 08:41 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-30 08:35 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-30 08:46 - [武磊：巴西队赢的并不轻松](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-30 08:26 - [感动全网的699分女生想报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-30 08:35 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-30 08:48 - [德国 传控](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-30 08:29 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
+- 2026-06-30 08:32 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
+- 2026-06-30 08:34 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-30 08:37 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-30 08:52 - [郑钦文温网首轮出局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-30 08:41 - [媒体：手机测评该挤挤水分了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-30 08:51 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-30 08:45 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-30 08:31 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
+- 2026-06-30 08:47 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-30 08:41 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-30 08:48 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:43 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.kurohicncr.top/Article/details/1202786.shtml)
-- 2026-06-30 08:26 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/79642.shtml)
-- 2026-06-30 08:34 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.minike.top/Article/details/793382383.shtml)
-- 2026-06-30 08:45 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/5798764.shtml)
-- 2026-06-30 08:28 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/345468027729.shtml)
-- 2026-06-30 08:29 - [德国罚丢3粒点球](https://www.share.kurohicncr.top/Article/details/06828643.shtml)
-- 2026-06-30 08:29 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/81171052.shtml)
-- 2026-06-30 08:23 - [王欣瑜2-1击败科恰雷托](https://www.share.kurohicncr.top/Article/details/85486487.shtml)
-- 2026-06-30 08:30 - [曝iPhone18Pro机密文件现身暗网](http://www.blog.kurohicncr.top/Article/details/84195775280.shtml)
-- 2026-06-30 08:47 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.kurohicncr.top/Article/details/191499960.shtml)
-- 2026-06-30 08:29 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/382091560.shtml)
-- 2026-06-30 08:35 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/9501890.shtml)
-- 2026-06-30 08:30 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/9419959998.shtml)
-- 2026-06-30 08:23 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/65579793.shtml)
-- 2026-06-30 08:41 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/89255984482.shtml)
+- 2026-06-30 08:42 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/2448132.shtml)
+- 2026-06-30 08:32 - [美股](https://www.share.kurohicncr.top/Article/details/04022658993.shtml)
+- 2026-06-30 08:25 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/6995700267.shtml)
+- 2026-06-30 08:54 - [德国进球被吹](http://www.blog.kurohicncr.top/Article/details/259214.shtml)
+- 2026-06-30 08:27 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/94600.shtml)
+- 2026-06-30 08:27 - [《共患难》](https://www.blog.kurohicncr.top/Article/details/15637435851.shtml)
+- 2026-06-30 08:49 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/934439.shtml)
+- 2026-06-30 08:40 - [为什么小组赛出局会让韩国人破防](https://www.share.minike.top/Article/details/04170471504.shtml)
+- 2026-06-30 08:53 - [存储芯片龙头提示风险](http://www.blog.kurohicncr.top/Article/details/1238680094.shtml)
+- 2026-06-30 08:52 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.kurohicncr.top/Article/details/088816.shtml)
+- 2026-06-30 08:49 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/24169.shtml)
+- 2026-06-30 08:24 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/659244.shtml)
+- 2026-06-30 08:36 - [委内瑞拉地震死亡人数升至1719人](http://www.blog.kurohicncr.top/Article/details/6634666809.shtml)
+- 2026-06-30 08:47 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.kurohicncr.top/Article/details/288113.shtml)
+- 2026-06-30 08:42 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/916542196.shtml)

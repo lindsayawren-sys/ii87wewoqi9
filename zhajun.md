@@ -1,58 +1,60 @@
-# 跟“潮汐”抢时间 浙江舟山提升效率释放港口产能
+# “有粉丝翻进院走到房间，吓死了！”诗人余秀华报警，律师解读
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-中新网舟山4月11日电 (刘子琳 骆泽明)“我们是在跟‘潮汐’抢时间。”11日，在浙江舟山鼠浪湖码头，舟山出入境边防检查站执勤二队副队长张培说。 10日晚，随着潮水上涨，一艘货轮缓缓靠近码头，靠泊作业后，舟山边检站执勤民警随即登船进行检查。 “大型船舶受潮汐影响明显，往往需要在夜间高水位时段靠泊。”张培说，为此，执勤点前移至码头一线，实行7×24小时驻点保障，实现“潮来即靠、靠
+中新网北京5月18日电(记者 张曦)5月18日，诗人余秀华发布视频称自己遭遇“粉丝霸凌”，她透露近日有粉丝到自己家拜访，更翻进院子，走到了自己房间。 余秀华说报警之后，那几位女粉丝就跑了，没有被抓住。在她看来，未经自己允许的探访不仅是冒犯、打扰，还是霸凌。“他们怎么不去找别人，找余华找苏童？因为他们不敢去，只能来找我。” 此外，对于自己拿棍子驱逐粉丝一事，余秀华解释，“我不开门
 
 ## 正文
 
-中新网舟山4月11日电 (刘子琳 骆泽明)“我们是在跟‘潮汐’抢时间。
+中新网北京5月18日电(记者 张曦)5月18日，诗人余秀华发布视频称自己遭遇“粉丝霸凌”，她透露近日有粉丝到自己家拜访，更翻进院子，走到了自己房间。
 
-”11日，在浙江舟山鼠浪湖码头，舟山出入境边防检查站执勤二队副队长张培说。
+余秀华说报警之后，那几位女粉丝就跑了，没有被抓住。
 
-10日晚，随着潮水上涨，一艘货轮缓缓靠近码头，靠泊作业后，舟山边检站执勤民警随即登船进行检查。
+在她看来，未经自己允许的探访不仅是冒犯、打扰，还是霸凌。
 
-“大型船舶受潮汐影响明显，往往需要在夜间高水位时段靠泊。
+“他们怎么不去找别人，找余华找苏童？
 
-”张培说，为此，执勤点前移至码头一线，实行7×24小时驻点保障，实现“潮来即靠、靠即检查”。
+因为他们不敢去，只能来找我。
 
-今年以来，已保障73批次夜间潮水高峰勤务，确保船舶到港即可投入作业。
+” 此外，对于自己拿棍子驱逐粉丝一事，余秀华解释，“我不开门的情况下，他就拿着手机对着我的大门直播……我就去驱赶他，驱赶不走，就可能拿个棍子稍微动了他一下。
 
-为了助力这个40万吨级的大码头释放“硬核”产能，边检机关围绕通关效率持续优化流程。
+” 余秀华表示，不懂这些人为什么要这样对她，“我就是个农村的人，我写诗写得好不好，我做人做得好不好，和他们没有任何关系。
 
-“我们通过数字化手段让通关‘跑’起来，这不仅节省时间，也提升了泊位周转效率。
+我不需要任何人教我去做人，教我写诗。
 
 ## 相关推荐
 
-- 2026-06-30 08:35 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
-- 2026-06-30 08:18 - [三星投资计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-30 08:29 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-30 08:31 - [日本队5进世界杯淘汰赛0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
-- 2026-06-30 08:28 - [现在叛逆期的孩子最怕的是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-30 08:29 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-30 08:29 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-30 08:38 - [Melo向柳智敏张元英道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-30 08:22 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
-- 2026-06-30 08:24 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-30 08:34 - [泰山景区回应修建刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-30 08:36 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
+- 2026-06-30 08:53 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-30 08:33 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
+- 2026-06-30 08:25 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-30 08:32 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-30 08:24 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-30 08:26 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-30 08:48 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-30 08:40 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-30 08:42 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-30 08:51 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-30 08:43 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-30 08:45 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-30 08:24 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-30 08:51 - [张雪的一句“是我们”引发岛内热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:47 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/525714.shtml)
-- 2026-06-30 08:41 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.kurohicncr.top/Article/details/115370262.shtml)
-- 2026-06-30 08:28 - [张帅时隔四年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/3142238873.shtml)
-- 2026-06-30 08:26 - [DeepSeek V4正式版要来了](http://www.blog.kurohicncr.top/Article/details/754496.shtml)
-- 2026-06-30 08:45 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/8545968419.shtml)
-- 2026-06-30 08:41 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/4095158.shtml)
-- 2026-06-30 08:22 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/47800825038.shtml)
-- 2026-06-30 08:29 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/04076581720.shtml)
-- 2026-06-30 08:42 - [张雪的一句“是我们”引发岛内热议](https://www.share.kurohicncr.top/Article/details/66730807138.shtml)
-- 2026-06-30 08:43 - [极限挑战第一季](https://www.blog.minike.top/Article/details/04542994.shtml)
-- 2026-06-30 08:20 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/4741930.shtml)
-- 2026-06-30 08:35 - [网友写差评被店家“挂”门口避雷](http://www.blog.kurohicncr.top/Article/details/127279622386.shtml)
-- 2026-06-30 08:32 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.kurohicncr.top/Article/details/52222168382.shtml)
-- 2026-06-30 08:20 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/6462164.shtml)
-- 2026-06-30 08:21 - [杨紫学位证上就是杨紫](https://www.blog.kurohicncr.top/Article/details/1468338664.shtml)
+- 2026-06-30 08:30 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/903462545825.shtml)
+- 2026-06-30 08:41 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.blog.minike.top/Article/details/61180607408.shtml)
+- 2026-06-30 08:52 - [一见倾心](https://www.blog.minike.top/Article/details/911686232479.shtml)
+- 2026-06-30 08:29 - [美股深夜大反弹 特斯拉飙涨8%](http://www.blog.kurohicncr.top/Article/details/465309366.shtml)
+- 2026-06-30 08:27 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/6807837789.shtml)
+- 2026-06-30 08:33 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.minike.top/Article/details/20748754.shtml)
+- 2026-06-30 08:49 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/2801499154.shtml)
+- 2026-06-30 08:38 - [锐评T1战胜KC](https://www.blog.minike.top/Article/details/680380.shtml)
+- 2026-06-30 08:26 - [杨紫学位证上就是杨紫](http://www.blog.kurohicncr.top/Article/details/925214985.shtml)
+- 2026-06-30 08:37 - [巴西把自己踢晕了](https://www.blog.kurohicncr.top/Article/details/780845.shtml)
+- 2026-06-30 08:36 - [森保一致歉：世界第一目标没能实现](http://www.share.minike.top/Article/details/1899312.shtml)
+- 2026-06-30 08:53 - [又一家县级医院关停门诊输液大厅](http://www.blog.minike.top/Article/details/4892314.shtml)
+- 2026-06-30 08:44 - [毒液2](http://www.blog.kurohicncr.top/Article/details/01653027128.shtml)
+- 2026-06-30 08:33 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/85504023.shtml)
+- 2026-06-30 08:25 - [王欣瑜2-1击败科恰雷托](http://www.share.minike.top/Article/details/183903378.shtml)

@@ -1,57 +1,61 @@
-# 4月10日股票ETF整体净流出231.9亿元
+# 国际博物馆日北京地区百余家博物馆正常开放
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国基金报 记者：王思文 上周五（4月10日），A股三大指数集体收涨。上证指数涨0.51%，报收于3986.22点，盘中一度突破4000点整数关口；深证成指涨2.24%，创业板指涨3.78%，创2021年12月以来收盘新高。盘面上，券商、电工电网等行业板块涨幅居前，动力电池产业链概念股爆发。 在三大指
+中新网北京5月18日电(记者 徐婧)5月18日(周一)是国际博物馆日，今年的主题为“博物馆：联结世界的桥梁”。当天，包括中国国家博物馆、中国人民革命军事博物馆、中国考古博物馆、首都博物馆、国家自然博物馆、北京大运河博物馆等在内的北京地区百余家博物馆正常开放，让市民畅享优质文博资源。 多个精品展览集中亮相。首都博物馆“世界文明交流互鉴”系列展览迎来重磅之作，“玉米·黄金·美洲豹—
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网北京5月18日电(记者 徐婧)5月18日(周一)是国际博物馆日，今年的主题为“博物馆：联结世界的桥梁”。
 
-来源：中国基金报 记者：王思文 上周五（4月10日），A股三大指数集体收涨。
+当天，包括中国国家博物馆、中国人民革命军事博物馆、中国考古博物馆、首都博物馆、国家自然博物馆、北京大运河博物馆等在内的北京地区百余家博物馆正常开放，让市民畅享优质文博资源。
 
-上证指数涨0.51%，报收于3986.22点，盘中一度突破4000点整数关口；深证成指涨2.24%，创业板指涨3.78%，创2021年12月以来收盘新高。
+多个精品展览集中亮相。
 
-盘面上，券商、电工电网等行业板块涨幅居前，动力电池产业链概念股爆发。
+首都博物馆“世界文明交流互鉴”系列展览迎来重磅之作，“玉米·黄金·美洲豹——玛雅与安第斯古代文明大展”18日对公众开放，约800件展品跨越3000年历史长河，为观众展现玛雅与安第斯文明的精神与文化内核。
 
-在三大指数集体上涨情况下，ETF市场资金选择“落袋为安”。
+同日，北京艺术博物馆“宸光映物：乾隆时期文物精品展”开展，甄选馆藏精品文物百余套，多角度呈现展品独特的艺术风格与审美意趣。
 
-4月10日，股票ETF资金净流出231.9亿元，与此同时，商品ETF与债券ETF资金净流入居前。
+此外，北京汽车博物馆、永定河文化博物馆、北京月宸扬琴博物馆等均有新展开幕或对外开放，邀请市民到馆观展。
 
-值得注意的是，各类宽基ETF资金流向分化显著。
+5月18日，北京多家博物馆策划了公益讲解、主题讲座、非遗体验、主题演出等学术和趣味活动。
 
-中证500ETF获得资金青睐，而沪深300ETF资金净流出明显；热门赛道证券板块、半导体板块、人工智能板块也成为资金流出“大户”。
+孔庙和国子监博物馆、中国考古博物馆、北京奥运博物馆、周口店北京人遗址博物馆等馆举办的学术讲座和科普课堂，为文博爱好者搭建学习交流的平台；北京宣南文化博物馆发布研学探索线路，同步推出沉浸式研学体验剧；民族文化宫博物馆、大钟寺古钟博物馆、北京民俗博物馆等场馆提供公益讲解服务。
 
 ## 相关推荐
 
-- 2026-06-30 08:44 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-30 08:19 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-30 08:18 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-30 08:26 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-30 08:31 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-30 08:42 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
-- 2026-06-30 08:33 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-30 08:44 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-30 08:25 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-30 08:46 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
-- 2026-06-30 08:31 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-30 08:32 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
+- 2026-06-30 08:52 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-30 08:39 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-30 08:24 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-30 08:30 - [泰山景区回应修建刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-30 08:28 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-30 08:36 - [女子遭下药退赔偿拟追刑责](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-30 08:43 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-30 08:37 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-30 08:25 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-30 08:45 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-30 08:47 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-30 08:26 - [张雪的一句“是我们”引发岛内热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-30 08:39 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
+- 2026-06-30 08:47 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:18 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/830139.shtml)
-- 2026-06-30 08:46 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/567275271.shtml)
-- 2026-06-30 08:34 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/47908392591.shtml)
-- 2026-06-30 08:32 - [德国连续三届世界杯无缘16强](https://www.share.minike.top/Article/details/87016256.shtml)
-- 2026-06-30 08:40 - [被巴西绝杀后 日球员田中碧跪地痛哭](http://www.share.minike.top/Article/details/491554214770.shtml)
-- 2026-06-30 08:20 - [巴西足球能否再现昔日荣光](https://www.blog.minike.top/Article/details/870744.shtml)
-- 2026-06-30 08:23 - [存储芯片龙头提示风险](https://www.share.kurohicncr.top/Article/details/19279586802.shtml)
-- 2026-06-30 08:29 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/998971491165.shtml)
-- 2026-06-30 08:21 - [王源近几年没有路演了](https://www.share.kurohicncr.top/Article/details/4634546.shtml)
-- 2026-06-30 08:40 - [王源近几年没有路演了](http://www.blog.minike.top/Article/details/238976735184.shtml)
-- 2026-06-30 08:39 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/13011096.shtml)
-- 2026-06-30 08:18 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.minike.top/Article/details/6990972635.shtml)
-- 2026-06-30 08:37 - [一生一世](http://www.share.minike.top/Article/details/34731999.shtml)
-- 2026-06-30 08:44 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/64989538.shtml)
-- 2026-06-30 08:30 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/887622.shtml)
+- 2026-06-30 08:34 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.minike.top/Article/details/6744856583.shtml)
+- 2026-06-30 08:31 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/971278280.shtml)
+- 2026-06-30 08:47 - [张雪的一句“是我们”引发岛内热议](https://www.share.kurohicncr.top/Article/details/36159078.shtml)
+- 2026-06-30 08:46 - [感动全网的699分女生想报考清华](http://www.blog.minike.top/Article/details/29388208.shtml)
+- 2026-06-30 08:26 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/726478973922.shtml)
+- 2026-06-30 08:32 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/3152858130.shtml)
+- 2026-06-30 08:40 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/907106209387.shtml)
+- 2026-06-30 08:38 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/22046.shtml)
+- 2026-06-30 08:25 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/5429473.shtml)
+- 2026-06-30 08:36 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/41409961099.shtml)
+- 2026-06-30 08:44 - [我觉得你是在无中生友](http://www.blog.minike.top/Article/details/67286181603.shtml)
+- 2026-06-30 08:44 - [斛珠夫人](https://www.blog.minike.top/Article/details/819109296.shtml)
+- 2026-06-30 08:44 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/528984.shtml)
+- 2026-06-30 08:40 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.minike.top/Article/details/135660494.shtml)
+- 2026-06-30 08:31 - [人类...完蛋了...](https://www.share.minike.top/Article/details/20293953.shtml)

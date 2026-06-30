@@ -1,59 +1,46 @@
-# 内蒙古巴林草原上有一支“马背护鸟队”
+# 拱北海关2026年7月政府采购意向
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-中新网赤峰4月10日电 题：内蒙古巴林草原上有一支“马背护鸟队” 作者 奥蓝 吴景然 4月的风，吹过内蒙古自治区赤峰市巴林右旗查干诺尔镇，空气中还带着丝丝凉意。西拉沐沦河与查干沐沦河交汇的湿地里，成群的候鸟循着迁徙轨迹陆续归来。 这也是巴林草原“马背护鸟队”最忙碌的时候。这是一支由当地牧民、派出所民警自发组织的队伍，大家分组轮班、全天值守，每天两班轮换，每班3至4人在岗。 每天
+为便于供应商及时了解政府采购信息，根据《财政部关于开展政府采购意向公开工作的通知》(财库〔2020〕10号)等有关规定，现将拱北海关2026年7月采购意向公开如下： 本次公开的采购意向是本单位政府采购工作的初步安排，具体采购项目情况以相关采购公告和采购文件为准。 拱北海关 2026年5月18日
 
 ## 正文
 
-中新网赤峰4月10日电 题：内蒙古巴林草原上有一支“马背护鸟队” 作者 奥蓝 吴景然 4月的风，吹过内蒙古自治区赤峰市巴林右旗查干诺尔镇，空气中还带着丝丝凉意。
+为便于供应商及时了解政府采购信息，根据《财政部关于开展政府采购意向公开工作的通知》(财库〔2020〕10号)等有关规定，现将拱北海关2026年7月采购意向公开如下： 本次公开的采购意向是本单位政府采购工作的初步安排，具体采购项目情况以相关采购公告和采购文件为准。
 
-西拉沐沦河与查干沐沦河交汇的湿地里，成群的候鸟循着迁徙轨迹陆续归来。
-
-这也是巴林草原“马背护鸟队”最忙碌的时候。
-
-这是一支由当地牧民、派出所民警自发组织的队伍，大家分组轮班、全天值守，每天两班轮换，每班3至4人在岗。
-
-每天清晨6点，早班队员就出发了，大家骑马沿浅滩湿地安静缓行，眼睛时刻盯着水面和芦苇丛。
-
-水壶和自制的奶食品、肉干等食物是随身标配，马鞍上除了望远镜，还挂着急救包和帆布绳。
-
-早些年，这片湿地环境并不好，一度萎缩的河水、淤塞的河道留不住过路的候鸟。
-
-2020年起，当地持续加大生态环境保护力度，实施“河湖长制”、禁牧休牧、水源涵养等一系列举措，来此栖息的候鸟也越来越多。
+拱北海关 2026年5月18日
 
 ## 相关推荐
 
-- 2026-06-30 08:20 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-30 08:19 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-30 08:18 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
-- 2026-06-30 08:35 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-30 08:47 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-30 08:30 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-30 08:28 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-30 08:20 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-30 08:40 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-30 08:21 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-30 08:34 - [高质量发展看新疆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-30 08:32 - [德国进球被吹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-30 08:41 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-30 08:25 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-30 08:30 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-30 08:31 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-30 08:52 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-30 08:51 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
+- 2026-06-30 08:43 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-30 08:30 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-30 08:53 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-30 08:25 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-30 08:28 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-30 08:44 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-30 08:31 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:42 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/1810396169.shtml)
-- 2026-06-30 08:39 - [世界杯](https://www.blog.kurohicncr.top/Article/details/9803381.shtml)
-- 2026-06-30 08:41 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/1711707656.shtml)
-- 2026-06-30 08:34 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/469948.shtml)
-- 2026-06-30 08:25 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.kurohicncr.top/Article/details/1885872.shtml)
-- 2026-06-30 08:46 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/9532468449.shtml)
-- 2026-06-30 08:30 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/303058024.shtml)
-- 2026-06-30 08:31 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/478167.shtml)
-- 2026-06-30 08:21 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/2070889049.shtml)
-- 2026-06-30 08:45 - [美人鱼](http://www.share.kurohicncr.top/Article/details/4827862.shtml)
-- 2026-06-30 08:46 - [上市央企地产商 两年换了三任董事长](https://www.share.kurohicncr.top/Article/details/6435777.shtml)
-- 2026-06-30 08:41 - [千与千寻](https://www.share.minike.top/Article/details/1353133.shtml)
-- 2026-06-30 08:30 - [巴西绝杀](https://www.blog.kurohicncr.top/Article/details/205245093994.shtml)
-- 2026-06-30 08:42 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/29859196425.shtml)
-- 2026-06-30 08:42 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/00904567626.shtml)
+- 2026-06-30 08:37 - [勇敢的心第二部](https://www.share.minike.top/Article/details/5054589.shtml)
+- 2026-06-30 08:40 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/29689650.shtml)
+- 2026-06-30 08:31 - [日本将帅赛后采访纷纷哽咽落泪](https://www.share.minike.top/Article/details/88108686.shtml)
+- 2026-06-30 08:30 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/31869.shtml)
+- 2026-06-30 08:31 - [输球后日本球迷被强行披上巴西国旗](https://www.share.minike.top/Article/details/6858365505.shtml)
+- 2026-06-30 08:39 - [卡塞米罗头球破门 巴西扳平日本](https://www.share.minike.top/Article/details/30888549.shtml)
+- 2026-06-30 08:44 - [F1奥地利站赛后复盘](http://www.share.kurohicncr.top/Article/details/49811689.shtml)
+- 2026-06-30 08:33 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/2369453.shtml)
+- 2026-06-30 08:39 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/80361117880.shtml)
+- 2026-06-30 08:52 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/45320825302.shtml)
+- 2026-06-30 08:32 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](http://www.share.kurohicncr.top/Article/details/88356051567.shtml)
+- 2026-06-30 08:39 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/226194307.shtml)
+- 2026-06-30 08:49 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/3141113.shtml)
+- 2026-06-30 08:26 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/444192995564.shtml)
+- 2026-06-30 08:26 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/09390134091.shtml)

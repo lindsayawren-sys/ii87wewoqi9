@@ -1,61 +1,54 @@
-# 游戏IP跨界出版见成效 专家：数字内容实体化潜力持续释放
+# 时隔三年，瑞幸正式“卖酒”
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-中新网上海4月11日电 (记者 许婧)从“小众出版物”到行业融合创新的“新引擎”，游戏IP正向出版行业持续释放其价值潜力。上海社会科学院信息研究所科技创新研究室主任王兴全指出，近年来“数字内容实体化”案例不断涌现，游戏IP持续赋能传统实体经济。他认为，年轻一代文化消费习惯已改变，既享受数字内容的便捷，也愿为“可触摸、有收藏价值”的实体产品投入，这种需求是长期趋势，“只要头部IP
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月18日，瑞幸咖啡于全国门店正式推出两款含酒精的特调饮品，分别为“绯色月光”与“可可维也纳”，容量为400ml中杯规格，售价均为15.9元/杯。 目前，仅“绯色月光”可选择添加伦敦干味金酒，酒精度明确标注为 >0.5%vol。依据国家《饮料酒术语和分类》（GB/T 17204 - 2021）标准，酒精度在
 
 ## 正文
 
-中新网上海4月11日电 (记者 许婧)从“小众出版物”到行业融合创新的“新引擎”，游戏IP正向出版行业持续释放其价值潜力。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-上海社会科学院信息研究所科技创新研究室主任王兴全指出，近年来“数字内容实体化”案例不断涌现，游戏IP持续赋能传统实体经济。
+5月18日，瑞幸咖啡于全国门店正式推出两款含酒精的特调饮品，分别为“绯色月光”与“可可维也纳”，容量为400ml中杯规格，售价均为15.9元/杯。
 
-他认为，年轻一代文化消费习惯已改变，既享受数字内容的便捷，也愿为“可触摸、有收藏价值”的实体产品投入，这种需求是长期趋势，“只要头部IP持续产出优质内容、维系用户情感，‘数字内容实体化’将成为实体经济不容忽视的增长极”。
+目前，仅“绯色月光”可选择添加伦敦干味金酒，酒精度明确标注为 >0.5%vol。
 
-王兴全表示，“数字内容实体化”的核心是将线上IP流量与情感认同，转化为线下实体购买力，对实体经济形成三重赋能：拉动产业链产能、推动企业技术升级、实现品牌价值溢出。
+依据国家《饮料酒术语和分类》（GB/T 17204 - 2021）标准，酒精度在0.5%vol以上的酒精饮料属于“饮料酒”。
 
-他强调，IP走通这条路的关键是长期经营用户信任，让衍生形态贴合IP特质与用户画像，实现双向赋能。
+值得注意的是，2023年瑞幸曾与茅台联名推出过酱香拿铁咖啡，但由于酒精度低于0.5%vol，因此并未作为酒类管理，此后瑞幸一直没有推出含酒饮品。
 
-4月10日，米哈游旗下游戏《崩坏：星穹铁道》官宣将免费送出240万册游戏纪念画册，这也是该游戏连续第二年开展大规模画册派送活动，受到广大用户关注。
-
-王兴全称，此类百万量级订单能切实助力上下游产能，且数字用户对品质的高要求，会推动实体供应商提升工艺、优化供应链。
-
-该案例更体现文化消费从“流量”向“精品”转变，用户不再满足于“看过玩过”，更追求“拥有收藏”，线上线下体验形成互补。
+责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-30 08:25 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-30 08:24 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
-- 2026-06-30 08:18 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
-- 2026-06-30 08:27 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-30 08:19 - [金鹰奖视后提名预测](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
-- 2026-06-30 08:41 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-30 08:45 - [库尼亚赛后伸五指嘲讽日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-30 08:43 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
-- 2026-06-30 08:46 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-30 08:25 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
-- 2026-06-30 08:27 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-30 08:18 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-30 08:41 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-30 08:39 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
-- 2026-06-30 08:27 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-30 08:53 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-30 08:42 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-30 08:52 - [陈幸同晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-30 08:43 - [媒体：手机测评该挤挤水分了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-30 08:45 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-30 08:51 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-30 08:25 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-30 08:46 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-30 08:47 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-30 08:37 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
+- 2026-06-30 08:44 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-30 08:36 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:35 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/86510396893.shtml)
-- 2026-06-30 08:34 - [周冬雨多次说演不了话剧文城](https://www.blog.minike.top/Article/details/93281.shtml)
-- 2026-06-30 08:39 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](http://www.blog.minike.top/Article/details/903020136006.shtml)
-- 2026-06-30 08:22 - [豆包收费了，你还会用吗？](http://www.share.minike.top/Article/details/17833.shtml)
-- 2026-06-30 08:30 - [佐野海舟远射破门](https://www.blog.kurohicncr.top/Article/details/751156000.shtml)
-- 2026-06-30 08:44 - [武磊：巴西队赢的并不轻松](https://www.blog.minike.top/Article/details/31667.shtml)
-- 2026-06-30 08:24 - [王楚钦孙颖莎晋级混双八强](http://www.blog.minike.top/Article/details/023864028372.shtml)
-- 2026-06-30 08:44 - [委内瑞拉地震死亡人数升至1719人](http://www.share.kurohicncr.top/Article/details/21341626.shtml)
-- 2026-06-30 08:23 - [日本五次世界杯淘汰赛全败](https://www.share.minike.top/Article/details/27311.shtml)
-- 2026-06-30 08:21 - [自然光｜papi酱&窦文涛：驴与跑步机](http://www.blog.minike.top/Article/details/25729180593.shtml)
-- 2026-06-30 08:43 - [恋与深空制作组回应近期争议](https://www.blog.minike.top/Article/details/9954312292.shtml)
-- 2026-06-30 08:23 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/5429570.shtml)
-- 2026-06-30 08:43 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/24167.shtml)
-- 2026-06-30 08:26 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/723821093596.shtml)
-- 2026-06-30 08:38 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.minike.top/Article/details/291232.shtml)
+- 2026-06-30 08:45 - [DeepSeek V4正式版要来了](http://www.share.kurohicncr.top/Article/details/888005789.shtml)
+- 2026-06-30 08:37 - [巴西足球能否再现昔日荣光](https://www.blog.kurohicncr.top/Article/details/966866123903.shtml)
+- 2026-06-30 08:43 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/713597317538.shtml)
+- 2026-06-30 08:53 - [时光音乐会](https://www.share.minike.top/Article/details/86670883.shtml)
+- 2026-06-30 08:41 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/62816830658.shtml)
+- 2026-06-30 08:52 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.minike.top/Article/details/87453497286.shtml)
+- 2026-06-30 08:24 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/7803624892.shtml)
+- 2026-06-30 08:44 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/727376.shtml)
+- 2026-06-30 08:27 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.blog.minike.top/Article/details/334054487.shtml)
+- 2026-06-30 08:39 - [金鹰奖视后提名预测](https://www.share.minike.top/Article/details/866283.shtml)
+- 2026-06-30 08:46 - [湖南祁东原文化馆被指贱卖](http://www.blog.kurohicncr.top/Article/details/3508267.shtml)
+- 2026-06-30 08:51 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/79747709.shtml)
+- 2026-06-30 08:35 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/604692374070.shtml)
+- 2026-06-30 08:36 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/141723119470.shtml)
+- 2026-06-30 08:44 - [点球大战](https://www.blog.minike.top/Article/details/002258069.shtml)

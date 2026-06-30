@@ -1,50 +1,59 @@
-# 全国爱鼻日：孩子打鼾要重视 但也不要着急做手术
+# 家政服务经理人：从“有名”到“有为”
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月11日 20:23 来源：中国新闻网 4月11日是第26个全国爱鼻日，主题为“关爱鼻腔健康，畅享清新呼吸”。中国医科大学附属盛京医院第二耳鼻咽喉头颈外科鼻科病房副教授于晓峰提示，家中孩子张嘴睡觉、打呼噜，需要引起重视。建议家长不要急于为孩子进行手术治疗，可先采取药物干预。(记者 禹瑞斋) 责任编辑：【罗攀】
+本报记者 韩丹东 山东烟台的王娟从事家政服务介绍工作至今已有6年。 在工作的第5个年头，王娟的职业有了名字——家政服务经理人。2025年7月，家政服务经理人被正式纳入新职业。根据官方定义，家政服务经理人是在家政服务相关组织机构中，从事家政业务管理、企业组织运营等工作的人员，主要工作任务包括挖掘潜在客户需求，制定家政业务派单、回访、投诉处理等标准化服务流程，负责家政服务人员的岗前
 
 ## 正文
 
-发布时间：2026年04月11日 20:23 来源：中国新闻网 4月11日是第26个全国爱鼻日，主题为“关爱鼻腔健康，畅享清新呼吸”。
+本报记者 韩丹东 山东烟台的王娟从事家政服务介绍工作至今已有6年。
 
-中国医科大学附属盛京医院第二耳鼻咽喉头颈外科鼻科病房副教授于晓峰提示，家中孩子张嘴睡觉、打呼噜，需要引起重视。
+在工作的第5个年头，王娟的职业有了名字——家政服务经理人。
 
-建议家长不要急于为孩子进行手术治疗，可先采取药物干预。
+2025年7月，家政服务经理人被正式纳入新职业。
 
-(记者 禹瑞斋) 责任编辑：【罗攀】
+根据官方定义，家政服务经理人是在家政服务相关组织机构中，从事家政业务管理、企业组织运营等工作的人员，主要工作任务包括挖掘潜在客户需求，制定家政业务派单、回访、投诉处理等标准化服务流程，负责家政服务人员的岗前培训等，是连接家政企业、家政服务人员与终端客户的枢纽，也是推动行业升级的关键力量。
+
+近日，《法治日报》记者走近家政服务经理人这一群体，聆听他们的新职业故事，从他们的讲述中透视行业生态。
+
+在诉求中找到平衡 “家政服务经理人不是简单地‘介绍阿姨’。
+
+”王娟告诉记者，作为家政服务经理人，自己的首要任务是完成精准的对接匹配服务。
+
+日常工作中，她会接到各类客户需求，她要做的，是对接客户的家政服务需求，从中梳理出服务时长、服务内容、对家政服务员从业经验的要求等核心内容，再对公司内现有家政服务员的技能、薪资诉求与相关短板进行摸排，最终，依据双方实际情况进行匹配。
 
 ## 相关推荐
 
-- 2026-06-30 08:22 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-30 08:36 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-30 08:38 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-30 08:22 - [锐评T1战胜KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-30 08:20 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
-- 2026-06-30 08:31 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-30 08:23 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
-- 2026-06-30 08:30 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-30 08:30 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
-- 2026-06-30 08:26 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
-- 2026-06-30 08:35 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
-- 2026-06-30 08:31 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-30 08:46 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-30 08:33 - [日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-30 08:34 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-30 08:36 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-30 08:26 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-30 08:31 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-30 08:40 - [德国 传控](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
+- 2026-06-30 08:43 - [哈弗茨头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-30 08:36 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-30 08:41 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
+- 2026-06-30 08:32 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-30 08:28 - [杨紫学位证上就是杨紫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-30 08:31 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:46 - [德国巴拉圭进入点球大战](https://www.blog.kurohicncr.top/Article/details/2428035.shtml)
-- 2026-06-30 08:44 - [亚洲球队全部出局](https://www.share.minike.top/Article/details/3948600.shtml)
-- 2026-06-30 08:28 - [日本五次世界杯淘汰赛全败](https://www.share.minike.top/Article/details/74645.shtml)
-- 2026-06-30 08:39 - [世界杯](https://www.share.kurohicncr.top/Article/details/671678143.shtml)
-- 2026-06-30 08:36 - [本科毕业生为何涌入专科学校](http://www.blog.kurohicncr.top/Article/details/2076989572.shtml)
-- 2026-06-30 08:42 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/23779.shtml)
-- 2026-06-30 08:19 - [德国罚丢3粒点球](http://www.share.minike.top/Article/details/15895860939.shtml)
-- 2026-06-30 08:43 - [世界杯欧洲队7战南美仅1胜](http://www.blog.minike.top/Article/details/68131.shtml)
-- 2026-06-30 08:45 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/4426480698.shtml)
-- 2026-06-30 08:25 - [日本反击率先破门](http://www.share.minike.top/Article/details/29531.shtml)
-- 2026-06-30 08:18 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.minike.top/Article/details/59161498556.shtml)
-- 2026-06-30 08:22 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/29795.shtml)
-- 2026-06-30 08:20 - [F1奥地利站赛后复盘](https://www.share.minike.top/Article/details/481271470.shtml)
-- 2026-06-30 08:37 - [韩乔生吐槽世界杯扩军](http://www.share.kurohicncr.top/Article/details/41179222422.shtml)
-- 2026-06-30 08:43 - [锐评T1战胜KC](http://www.blog.minike.top/Article/details/585774.shtml)
+- 2026-06-30 08:26 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/339604966.shtml)
+- 2026-06-30 08:51 - [天道](https://www.share.minike.top/Article/details/502500.shtml)
+- 2026-06-30 08:50 - [建议不要突然完全停止喝咖啡](http://www.blog.kurohicncr.top/Article/details/8417314.shtml)
+- 2026-06-30 08:37 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/525988655722.shtml)
+- 2026-06-30 08:29 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/720211.shtml)
+- 2026-06-30 08:52 - [韩国球迷凌晨4点接机怒骂主教练](https://www.blog.minike.top/Article/details/2763846.shtml)
+- 2026-06-30 08:48 - [巴西扳平比分](https://www.blog.minike.top/Article/details/704979605297.shtml)
+- 2026-06-30 08:51 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.share.minike.top/Article/details/219778.shtml)
+- 2026-06-30 08:29 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/90864.shtml)
+- 2026-06-30 08:35 - [欧洲民众抢购空调降温](https://www.blog.kurohicncr.top/Article/details/126171.shtml)
+- 2026-06-30 08:53 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/266863231123.shtml)
+- 2026-06-30 08:29 - [城市规划有可能成为「屎山代码」吗？](https://www.blog.kurohicncr.top/Article/details/456081418508.shtml)
+- 2026-06-30 08:25 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/38856281307.shtml)
+- 2026-06-30 08:53 - [马耳他著名拱门坍塌致一中国男子身亡](http://www.blog.minike.top/Article/details/17879688979.shtml)
+- 2026-06-30 08:33 - [马耳他著名拱门坍塌致中国男子身亡](https://www.share.minike.top/Article/details/92330228.shtml)

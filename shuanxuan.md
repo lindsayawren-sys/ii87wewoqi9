@@ -1,58 +1,61 @@
-# 甘肃发布百条研学线路
+# 外交部：台湾当局派人四处“蹭会”刷存在感 无异于跳梁小丑 只能是自取其辱
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-中新社兰州4月11日电 (记者 闫姣)甘肃11日对外发布“十大主题、百条线路、千堂课程”研学产品体系，重点涉及丝路游、石窟游、黄河游、非遗游四条线路，吸引海内外研学机构共谋丝路研学合作。 甘肃省2026年研学资源对接大会暨研学旅游产品展示活动(兰州站)当日举办，来自中国近20个省(区、市)的120余家研学机构、研学基地、旅行商代表参加。 丝绸之路有1600多公里在甘肃境内绵延。
+5月18日，外交部发言人郭嘉昆主持例行记者会。有记者问：有媒体报道称，台湾的林佳龙正身处日内瓦，将出席与世界卫生大会同期举行的各项活动。中国已向瑞士方面就台湾地区参与这些活动事宜进行了接洽。请问发言人有何评论？郭嘉昆表示，我们此前已经阐明了中方的严正立场，世界上只有一个中国，台湾是中国领土不可分割的一部分，中华人民共和国政府是代表全中国的唯一合法政府，世界卫生组织等国际组织处理
 
 ## 正文
 
-中新社兰州4月11日电 (记者 闫姣)甘肃11日对外发布“十大主题、百条线路、千堂课程”研学产品体系，重点涉及丝路游、石窟游、黄河游、非遗游四条线路，吸引海内外研学机构共谋丝路研学合作。
+5月18日，外交部发言人郭嘉昆主持例行记者会。
 
-甘肃省2026年研学资源对接大会暨研学旅游产品展示活动(兰州站)当日举办，来自中国近20个省(区、市)的120余家研学机构、研学基地、旅行商代表参加。
+有记者问：有媒体报道称，台湾的林佳龙正身处日内瓦，将出席与世界卫生大会同期举行的各项活动。
 
-丝绸之路有1600多公里在甘肃境内绵延。
+中国已向瑞士方面就台湾地区参与这些活动事宜进行了接洽。
 
-近年来，甘肃持续推进研学课程创新升级，融入实景模拟、VR体验、非遗实操、科技探究等互动形式，依托黄河文化、丝路文明、工业遗产、非遗技艺、自然生态等资源优势，构建覆盖全域、特色鲜明的研学资源体系。
+请问发言人有何评论？
 
-“羌笛何须怨杨柳，春风不度玉门关”“劝君更尽一杯酒，西出阳关无故人”……这些流传千年的诗句，带领游客走进丝路主题之旅，倾听世界四大文明交流互鉴的“交响曲”；百里画卷·石窟走廊主题研学游让参与者领略享誉世界的石窟艺术与建筑集群。
+郭嘉昆表示，我们此前已经阐明了中方的严正立场，世界上只有一个中国，台湾是中国领土不可分割的一部分，中华人民共和国政府是代表全中国的唯一合法政府，世界卫生组织等国际组织处理涉台问题，必须按照一个中国原则来处理。
 
-甘肃省文旅厅表示，此次推出的研学线路并非简单的景点串联，而是课程化、主题化、体验化的研学旅游产品体系，有效破解“游大于研”痛点。
+这也是联合国大会第2758号决议和世界卫生大会25.1号决议确认的根本原则。
 
-“我们决定将新疆研学和甘肃研学有机结合，打造丝绸之路研学项目。
+中方一贯坚决反对建交国同中国台湾地区开展任何形式的官方往来，坚决反对为“台独”分裂活动提供平台。
 
-”新疆九洲国际旅行社总经理张刚在兰州接受中新社记者采访时说。
+台湾当局派人四处“蹭会”刷存在感，无异于跳梁小丑，只能是自取其辱，注定失败。
 
 ## 相关推荐
 
-- 2026-06-30 08:24 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-30 08:35 - [杨紫学位证上就是杨紫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-30 08:25 - [亚洲球队全部出局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-30 08:46 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-30 08:28 - [德国进球被吹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-30 08:21 - [世界杯巴拉圭点球淘汰德国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
-- 2026-06-30 08:31 - [日本将帅赛后采访纷纷哽咽落泪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
-- 2026-06-30 08:36 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
-- 2026-06-30 08:22 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
-- 2026-06-30 08:20 - [德国淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-30 08:27 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-30 08:22 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-30 08:43 - [日本博主：日本足球真的垃圾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-30 08:46 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-30 08:52 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-30 08:37 - [日本队主帅道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-30 08:28 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-30 08:50 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
+- 2026-06-30 08:47 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-30 08:51 - [张月收到黄灿灿辣货两眼发光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-30 08:26 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-30 08:31 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-30 08:53 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-30 08:36 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-30 08:28 - [德国爆冷点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
+- 2026-06-30 08:41 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-30 08:30 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:41 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/392755949879.shtml)
-- 2026-06-30 08:20 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/32770071068.shtml)
-- 2026-06-30 08:19 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/49672.shtml)
-- 2026-06-30 08:21 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/7826540.shtml)
-- 2026-06-30 08:38 - [曝老詹对自由市场态度与以往截然不同](http://www.blog.kurohicncr.top/Article/details/72996200558.shtml)
-- 2026-06-30 08:37 - [马耳他著名拱门坍塌致一中国男子身亡](http://www.share.kurohicncr.top/Article/details/138418018101.shtml)
-- 2026-06-30 08:26 - [送你一朵小红花](http://www.share.minike.top/Article/details/223207862947.shtml)
-- 2026-06-30 08:22 - [小娘惹](https://www.share.kurohicncr.top/Article/details/50530.shtml)
-- 2026-06-30 08:44 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/9842681.shtml)
-- 2026-06-30 08:19 - [男生180+，有腹肌是什么体验？](https://www.share.kurohicncr.top/Article/details/845304261071.shtml)
-- 2026-06-30 08:27 - [苗族银饰](http://www.share.kurohicncr.top/Article/details/7083218.shtml)
-- 2026-06-30 08:41 - [吴易昺不敌德约科维奇 止步温网首轮](https://www.share.minike.top/Article/details/92119.shtml)
-- 2026-06-30 08:18 - [杨紫肖战余生请多指教拍立得](http://www.share.minike.top/Article/details/001374144.shtml)
-- 2026-06-30 08:41 - [巴西绝杀日本：漫画般结局换了主角](https://www.share.kurohicncr.top/Article/details/24166.shtml)
-- 2026-06-30 08:19 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/202674.shtml)
+- 2026-06-30 08:51 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.minike.top/Article/details/50745717.shtml)
+- 2026-06-30 08:33 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://www.blog.minike.top/Article/details/2270847.shtml)
+- 2026-06-30 08:39 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/3395226.shtml)
+- 2026-06-30 08:50 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](http://www.blog.minike.top/Article/details/526052024697.shtml)
+- 2026-06-30 08:25 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/4213903.shtml)
+- 2026-06-30 08:45 - [点球大战](http://www.share.kurohicncr.top/Article/details/22445711.shtml)
+- 2026-06-30 08:48 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/150788648.shtml)
+- 2026-06-30 08:41 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/483107319098.shtml)
+- 2026-06-30 08:24 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/50245438057.shtml)
+- 2026-06-30 08:47 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.minike.top/Article/details/634961562566.shtml)
+- 2026-06-30 08:52 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/74987060.shtml)
+- 2026-06-30 08:31 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/82741770.shtml)
+- 2026-06-30 08:41 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/35851464647.shtml)
+- 2026-06-30 08:49 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/0743466.shtml)
+- 2026-06-30 08:48 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.minike.top/Article/details/19365808208.shtml)

@@ -1,58 +1,59 @@
-# 美国威胁封锁霍尔木兹海峡，伊朗议长：很快你们就会怀念4-5美元的油价
+# 辛纳获罗马大师赛冠军 成史上最年轻“金大师”
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-伊朗议会议长穆罕默德·巴格尔·加利巴夫周日警告称，美国封锁伊朗港口将导致油价大幅上涨，而目前的汽油价格在事后看来将显得非常便宜。 美国中央司令部表示，封锁将于美国东部时间4月13日上午10点开始，适用于所有进出伊朗港口的船只，但前往非伊朗港口的船只仍可通行霍尔木兹海峡。 加利巴夫在社交平台上发布了一张华盛顿地区汽油价格地图的截图，并写道：“好好享受现在的油价吧。随着所谓的‘封锁
+中新社北京5月18日电 当地时间17日进行的男子职业网球选手协会(ATP)1000罗马大师赛男单决赛中，意大利名将、世界排名第一的辛纳以2:0战胜赛会23号种子、挪威选手鲁德，首夺赛会冠军，并成为历史上最年轻获得“金大师”(即职业生涯集齐全部九站ATP1000大师赛冠军)荣誉的球员。辛纳和鲁德此前交手四次，辛纳均直落两盘获胜。本次比赛，鲁德开局即通过多拍回合以及放小球与辛纳展开
 
 ## 正文
 
-伊朗议会议长穆罕默德·巴格尔·加利巴夫周日警告称，美国封锁伊朗港口将导致油价大幅上涨，而目前的汽油价格在事后看来将显得非常便宜。
+中新社北京5月18日电 当地时间17日进行的男子职业网球选手协会(ATP)1000罗马大师赛男单决赛中，意大利名将、世界排名第一的辛纳以2:0战胜赛会23号种子、挪威选手鲁德，首夺赛会冠军，并成为历史上最年轻获得“金大师”(即职业生涯集齐全部九站ATP1000大师赛冠军)荣誉的球员。
 
-美国中央司令部表示，封锁将于美国东部时间4月13日上午10点开始，适用于所有进出伊朗港口的船只，但前往非伊朗港口的船只仍可通行霍尔木兹海峡。
+辛纳和鲁德此前交手四次，辛纳均直落两盘获胜。
 
-加利巴夫在社交平台上发布了一张华盛顿地区汽油价格地图的截图，并写道：“好好享受现在的油价吧。
+本次比赛，鲁德开局即通过多拍回合以及放小球与辛纳展开对抗，在第二局率先破发，辛纳随之回破。
 
-随着所谓的‘封锁’，很快你们就会怀念 4-5 美元（每加仑）的汽油了。
+双方战至4:4平后，辛纳在第九局凭借精准放小球成功兑现第二个破发点，之后顺势保发，以6:4拿下首盘。
 
-” 他还使用了“ΔO_BSOH>0 ⇒ f（f（O））>f（O）”这种符号，这是一种网络迷因式的数学简写，暗示封锁海峡造成的石油冲击会像滚雪球一样越滚越大，而不是像以往那样出现一次性的暴涨。
+第二盘，辛纳率先破发，尽管在第八局因为高压球失误送出破发点，但在关键时刻凭借强势发球顽强保发，以6:4获胜。
 
-在特朗普表示美国将采取行动封锁与伊朗相关的船只通行，加利巴夫发表了上述言论。
+凭借罗马大师赛的冠军，辛纳豪取ATP1000大师赛34连胜，斩获职业生涯巡回赛第29个冠军。
 
-此前，美国副总统万斯警告称谈判已经失败，而美伊谈判代表离开伊斯兰堡时，并未就伊朗核计划和霍尔木兹海峡问题达成协议。
+他成为继24个大满贯冠军德约科维奇之后，历史上第二位集齐全部九站大师赛冠军的“金大师”，也是史上首位连续夺得六站大师赛冠军的选手。
 
-美国汽车协会（AAA）公布的数据显示，截至4月12日，美国普通汽油的平均价格为每加仑4.125美元，其中加州为每加仑5.894美元，华盛顿州为每加仑5.390美元，而俄勒冈州和内华达州的价格则略低于每加仑5美元。
+此外，2001年出生的辛纳还是1976年后首位夺得赛会单打冠军的意大利本土选手。
 
 ## 相关推荐
 
-- 2026-06-30 08:39 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-30 08:40 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-30 08:18 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-30 08:43 - [巴西绝杀日本：漫画般结局换了主角](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-30 08:30 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
-- 2026-06-30 08:45 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-30 08:39 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-30 08:36 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-30 08:26 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-30 08:37 - [男子在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-30 08:20 - [巴拉圭进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
-- 2026-06-30 08:19 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-30 08:25 - [马耳他著名拱门坍塌致中国男子身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
+- 2026-06-30 08:34 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-30 08:28 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-30 08:34 - [欧洲民众抢购空调降温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-30 08:46 - [世界杯欧洲队7战南美仅1胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-30 08:40 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-30 08:45 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-30 08:29 - [世界杯欧洲队7战南美仅1胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
+- 2026-06-30 08:49 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
+- 2026-06-30 08:46 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-30 08:47 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-30 08:50 - [郑钦文温网首轮出局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-30 08:53 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:30 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.minike.top/Article/details/865118039273.shtml)
-- 2026-06-30 08:20 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/830688890984.shtml)
-- 2026-06-30 08:39 - [失明的我带老妈去了趟“火星”](https://www.blog.minike.top/Article/details/3605119859.shtml)
-- 2026-06-30 08:18 - [王楚钦孙颖莎晋级混双八强](http://www.blog.minike.top/Article/details/169076589.shtml)
-- 2026-06-30 08:19 - [世界杯](https://www.blog.minike.top/Article/details/805956.shtml)
-- 2026-06-30 08:29 - [巴西替补奇兵读秒绝杀](https://www.share.minike.top/Article/details/68156685.shtml)
-- 2026-06-30 08:28 - [男生180+，有腹肌是什么体验？](https://www.share.kurohicncr.top/Article/details/90534397.shtml)
-- 2026-06-30 08:25 - [拆解FIFA和世界杯的暗面](https://www.blog.minike.top/Article/details/4296332.shtml)
-- 2026-06-30 08:31 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/790660173384.shtml)
-- 2026-06-30 08:46 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/6823112.shtml)
-- 2026-06-30 08:39 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/276157.shtml)
-- 2026-06-30 08:36 - [媒体：手机测评该挤挤水分了](https://www.blog.kurohicncr.top/Article/details/334837859.shtml)
-- 2026-06-30 08:47 - [全球芯片巨头史诗级扩产](https://www.blog.minike.top/Article/details/1204741610.shtml)
-- 2026-06-30 08:34 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/7703175.shtml)
-- 2026-06-30 08:25 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/730217548842.shtml)
+- 2026-06-30 08:31 - [刘必安等16人非法集资案二审宣判](https://www.share.minike.top/Article/details/3277711273.shtml)
+- 2026-06-30 08:54 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://www.share.minike.top/Article/details/233984743571.shtml)
+- 2026-06-30 08:44 - [周冬雨多次说演不了话剧文城](http://www.share.minike.top/Article/details/4984262533.shtml)
+- 2026-06-30 08:45 - [《共患难》](https://www.share.minike.top/Article/details/58855528.shtml)
+- 2026-06-30 08:25 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.minike.top/Article/details/3131483.shtml)
+- 2026-06-30 08:45 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/70455796.shtml)
+- 2026-06-30 08:43 - [日本五次世界杯淘汰赛全败](http://www.share.minike.top/Article/details/91198720.shtml)
+- 2026-06-30 08:40 - [王楚钦说配合稍微有些陌生感](http://www.share.minike.top/Article/details/42369469462.shtml)
+- 2026-06-30 08:43 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/989096458.shtml)
+- 2026-06-30 08:37 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://www.share.minike.top/Article/details/175475.shtml)
+- 2026-06-30 08:24 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/30754361054.shtml)
+- 2026-06-30 08:25 - [金鹰奖视后提名预测](http://www.blog.minike.top/Article/details/79847486.shtml)
+- 2026-06-30 08:39 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/8279650336.shtml)
+- 2026-06-30 08:37 - [逃狱兄弟](http://www.share.minike.top/Article/details/263434119.shtml)
+- 2026-06-30 08:38 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.kurohicncr.top/Article/details/5257846.shtml)

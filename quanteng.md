@@ -1,56 +1,46 @@
-# 2026年巴黎马拉松赛举行 意大利选手夺得男子组冠军
+# 探访博物馆里傅山医学的当代印记
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-中新网巴黎4月13日电 2026年巴黎马拉松赛当地时间12日举行，意大利选手夺得男子组冠军，埃塞俄比亚选手夺得女子组冠军。 现年29岁的意大利选手叶马内伯汉·克里帕(Yemaneberhan Crippa)夺得男子组冠军。他以2小时5分19秒完成比赛。这是他取得的马拉松赛个人最好成绩。克里帕表示在比赛进程中已经感觉到自己将会夺冠。当他看到其他选手已经开始疲倦时，他就开始发力，以
+发布时间：2026年05月19日 09:45 来源：中国新闻网 傅山，山西太原人，明末清初思想家、书法家、诗人，亦精通内、外、妇科，其所著《傅青主女科》被誉为中医妇科经典。 傅山医学手抄草书册页、国内现存最早最完整的《傅青主女科》版本、清同治二年的《傅青主男科》……国际博物馆日之际，记者走进山西中医药大学中医药博物馆，于泛黄纸页间，寻访这位明末清初奇人留下的“傅山印记”。(记者
 
 ## 正文
 
-中新网巴黎4月13日电 2026年巴黎马拉松赛当地时间12日举行，意大利选手夺得男子组冠军，埃塞俄比亚选手夺得女子组冠军。
+发布时间：2026年05月19日 09:45 来源：中国新闻网 傅山，山西太原人，明末清初思想家、书法家、诗人，亦精通内、外、妇科，其所著《傅青主女科》被誉为中医妇科经典。
 
-现年29岁的意大利选手叶马内伯汉·克里帕(Yemaneberhan Crippa)夺得男子组冠军。
+傅山医学手抄草书册页、国内现存最早最完整的《傅青主女科》版本、清同治二年的《傅青主男科》……国际博物馆日之际，记者走进山西中医药大学中医药博物馆，于泛黄纸页间，寻访这位明末清初奇人留下的“傅山印记”。
 
-他以2小时5分19秒完成比赛。
-
-这是他取得的马拉松赛个人最好成绩。
-
-克里帕表示在比赛进程中已经感觉到自己将会夺冠。
-
-当他看到其他选手已经开始疲倦时，他就开始发力，以拉大领先优势。
-
-来自埃塞俄比亚的30岁选手舒尔·德米塞(Shure Demise)以2小时18分34秒的成绩赢得女子组冠军，并打破了巴黎马拉松赛的女子组纪录。
-
-她在赛后表示，在比赛期间没有得到有关赛事纪录的信息，在终点线时得知自己打破纪录。
+(记者 张立程 范丽芳 山西太原报道） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-30 08:33 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-30 08:19 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
-- 2026-06-30 08:28 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-30 08:46 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-30 08:37 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-30 08:30 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-30 08:30 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-30 08:21 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-30 08:45 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-30 08:21 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-30 08:40 - [追梦拒绝2770万美元球员选项](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-30 08:42 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-30 08:53 - [点球大战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-30 08:38 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-30 08:50 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-30 08:51 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-30 08:39 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-30 08:47 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-30 08:35 - [点球大战 残酷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-30 08:44 - [点球大战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:40 - [恋与深空制作组回应近期争议](https://www.share.minike.top/Article/details/8449215420.shtml)
-- 2026-06-30 08:42 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/873780.shtml)
-- 2026-06-30 08:31 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.share.minike.top/Article/details/45357.shtml)
-- 2026-06-30 08:38 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](http://www.share.minike.top/Article/details/18924608517.shtml)
-- 2026-06-30 08:41 - [莫兰特被交易到开拓者](https://www.share.kurohicncr.top/Article/details/18478432230.shtml)
-- 2026-06-30 08:34 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/4039608.shtml)
-- 2026-06-30 08:41 - [德国巴拉圭 折磨](http://www.blog.kurohicncr.top/Article/details/757228.shtml)
-- 2026-06-30 08:40 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/73829046840.shtml)
-- 2026-06-30 08:29 - [一见倾心](https://www.share.minike.top/Article/details/013493.shtml)
-- 2026-06-30 08:24 - [巴西扳平比分](https://www.blog.minike.top/Article/details/07013.shtml)
-- 2026-06-30 08:43 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/22031.shtml)
-- 2026-06-30 08:23 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/69313.shtml)
-- 2026-06-30 08:39 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://www.share.minike.top/Article/details/04237191.shtml)
-- 2026-06-30 08:29 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/704953570.shtml)
-- 2026-06-30 08:19 - [极限挑战第一季](http://www.blog.minike.top/Article/details/48024710665.shtml)
+- 2026-06-30 08:42 - [这一刀 会很帅](http://www.share.minike.top/Article/details/10980080872.shtml)
+- 2026-06-30 08:39 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/0833131.shtml)
+- 2026-06-30 08:39 - [巴西在进攻三区完成210脚传球](https://www.blog.minike.top/Article/details/42180861.shtml)
+- 2026-06-30 08:44 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.kurohicncr.top/Article/details/88706984623.shtml)
+- 2026-06-30 08:29 - [武磊：巴西队赢的并不轻松](https://www.blog.kurohicncr.top/Article/details/23354.shtml)
+- 2026-06-30 08:47 - [巴西绝杀](https://www.blog.minike.top/Article/details/5120583.shtml)
+- 2026-06-30 08:45 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/5157177.shtml)
+- 2026-06-30 08:34 - [日本五次世界杯淘汰赛全败](http://www.share.minike.top/Article/details/489456633454.shtml)
+- 2026-06-30 08:43 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.minike.top/Article/details/8529062506.shtml)
+- 2026-06-30 08:42 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/82387.shtml)
+- 2026-06-30 08:36 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/4537839172.shtml)
+- 2026-06-30 08:38 - [莫兰特转投开拓者效力](https://www.blog.kurohicncr.top/Article/details/815155118053.shtml)
+- 2026-06-30 08:24 - [马耳他著名拱门坍塌致一中国男子身亡](http://www.blog.kurohicncr.top/Article/details/4804661440.shtml)
+- 2026-06-30 08:35 - [巴西绝杀](https://www.blog.minike.top/Article/details/1009319.shtml)
+- 2026-06-30 08:30 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/1463260.shtml)

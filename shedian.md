@@ -1,56 +1,60 @@
-# 大商所发布《服务实体经济白皮书（2025）》
+# 北京开展网络食品虚假宣传专项整治 食品广告不得涉及疾病治疗功能
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-4月13日，大连商品交易所（下称大商所）发布《服务实体经济白皮书（2025）》（下称白皮书），这是大商所连续第三年发布该白皮书。 白皮书共分为7个章节，从“拓展全产业链品种布局，丰富实体企业避险手段”“坚持问题导向因品施策，助力提升产业安全韧性”“深化产业企业培育服务，夯实服务实体经济根基”“创新发挥场外业务优势，提升期现市场融合深度”“持续开展‘农保计划’，提升服务‘三农’质
+北京开展网络食品虚假宣传专项整治 划定三大类行为红线 食品广告不得涉及疾病治疗功能 本报讯(记者 王薇)北京青年报记者昨日从北京市市场监管局获悉，近日全市启动网络食品销售虚假宣传专项整治行动，聚焦网络食品销售全链条，严厉打击各类虚假宣传违法行为，进一步规范网络食品经营市场秩序。 此次专项整治明确划定虚假商业营销、虚假违法广告、平台及直播相关违法行为三大类行为红线，整治范围覆盖第
 
 ## 正文
 
-4月13日，大连商品交易所（下称大商所）发布《服务实体经济白皮书（2025）》（下称白皮书），这是大商所连续第三年发布该白皮书。
+北京开展网络食品虚假宣传专项整治 划定三大类行为红线 食品广告不得涉及疾病治疗功能 本报讯(记者 王薇)北京青年报记者昨日从北京市市场监管局获悉，近日全市启动网络食品销售虚假宣传专项整治行动，聚焦网络食品销售全链条，严厉打击各类虚假宣传违法行为，进一步规范网络食品经营市场秩序。
 
-白皮书共分为7个章节，从“拓展全产业链品种布局，丰富实体企业避险手段”“坚持问题导向因品施策，助力提升产业安全韧性”“深化产业企业培育服务，夯实服务实体经济根基”“创新发挥场外业务优势，提升期现市场融合深度”“持续开展‘农保计划’，提升服务‘三农’质效”“对外开放业务扩围提质，增强期货价格境外认同”“丰富投资者教育与服务，加强期货市场功能宣传”等方面，全面总结了2025年大商所在服务实体经济方面的工作与成效，旨在为进一步发挥期货市场功能、更好服务实体经济高质量发展，积累宝贵经验、提供有益借鉴。
+此次专项整治明确划定虚假商业营销、虚假违法广告、平台及直播相关违法行为三大类行为红线，整治范围覆盖第三方电商平台、社交平台、直播平台、短视频平台、自建网站、小程序、应用程序等各类网络经营主体。
 
-2025年是“十四五”收官之年、“十五五”谋划之年。
+同时压紧压实平台企业、入网食品销售者、直播间运营者、直播营销人员及服务机构、广告主、广告经营者、广告发布者、广告代言人等全链条各环节主体责任，要求各类经营主体严守法律法规，坚决不触碰法律红线。
 
-作为国家重要金融基础设施，大商所深入贯彻落实中央关于金融工作的部署要求，锚定防风险、强监管、促高质量发展的目标稳步前行，围绕产品供给、规则优化、产业服务、对外开放、投资者保护等维度精准发力、久久为功，持续提升服务实体经济的专业化水平和综合能力。
+专项整治将重点打击网络食品销售虚假商业营销行为，明确禁止普通食品和保健食品宣称疾病预防、治疗功能，普通食品不得宣称保健功能；严禁将普通食品、保健食品与药品相互混淆，使用医疗用语进行营销。
 
-一是顺利上市纯苯期货及期权，创新推出化工品月均价期货合约，持续丰富风险管理工具供给，为实体企业规避价格波动风险提供更全面的支撑。
+同时，对食品及原料的商标、成分、功能、适用人群等作虚假或者引人误解的商业宣传，虚构食品原产地、有机认证等资质，利用科研机构、行业协会、医疗机构及医护、营养等专业人员名义或形象作虚假推荐证明，发布篡改、伪造的食品安全检验数据，以及采用虚假交易、技术手段营造虚假人气等行为，均在重点查处之列。
 
-二是深化“一品一策”，持续优化合约规则设计，不断增强品种与产业需求的适配性，推动品种运行质量显著提升。
+针对网络食品虚假违法广告问题，专项整治明确要求，食品广告不得涉及疾病治疗功能，不得使用医疗用语或者易使商品与药品、医疗器械相混淆的用语，不得明示或者暗示食品为保障健康所必需。
 
-三是深耕产业服务领域，扎实推进产业客户培育，持续发挥“保险+期货”支农惠农作用，推广“银期保”模式至全国，切实助力传统产业提质与乡村全面振兴。
+保健食品广告严禁利用广告代言人做推荐、证明，且必须显著标明“本品不能代替药物”或“保健食品不是药物，不能替代药物治疗疾病”等警示用语，未按规定标注的将依法严肃查处。
 
-四是主动融入高水平对外开放大局，面向合格境外投资者新增开放聚丙烯等能源化工品种，合格境外投资者可参与交易品种由14个拓展至27个，持续提升市场国际化水平与价格影响力。
+专项整治还将严厉查处平台经营者食品安全管理制度不健全、落实不到位，对平台内经营者、直播间运营者审核查验不严，发现食品安全违法行为未及时制止并报告等问题。
 
 ## 相关推荐
 
-- 2026-06-30 08:19 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-30 08:20 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-30 08:45 - [日本16强魔咒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-30 08:28 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-30 08:30 - [中国新一轮出口管制直指日本命脉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
-- 2026-06-30 08:32 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
-- 2026-06-30 08:18 - [巴西绝杀日本：漫画般结局换了主角](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-30 08:23 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-30 08:39 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-30 08:35 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-30 08:51 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-30 08:50 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-30 08:53 - [张雪的一句“是我们”引发岛内热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-30 08:38 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-30 08:34 - [库尼亚赛后伸五指嘲讽日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-30 08:38 - [泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-30 08:29 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-30 08:46 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-30 08:44 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-30 08:44 - [苗族银饰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-30 08:28 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-30 08:51 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
+- 2026-06-30 08:25 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-30 08:35 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:30 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/35904419881.shtml)
-- 2026-06-30 08:41 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/34782881602.shtml)
-- 2026-06-30 08:41 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/0377540034.shtml)
-- 2026-06-30 08:46 - [莫兰特转投开拓者效力](https://www.share.minike.top/Article/details/628781374.shtml)
-- 2026-06-30 08:21 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/87185.shtml)
-- 2026-06-30 08:47 - [沙丘](http://www.blog.minike.top/Article/details/1731918680.shtml)
-- 2026-06-30 08:27 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/66364182965.shtml)
-- 2026-06-30 08:45 - [第一炉香](http://www.blog.minike.top/Article/details/1275310.shtml)
-- 2026-06-30 08:23 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.minike.top/Article/details/262222.shtml)
-- 2026-06-30 08:33 - [森保一致歉：世界第一目标没能实现](https://www.blog.kurohicncr.top/Article/details/30924124.shtml)
-- 2026-06-30 08:18 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/836127743.shtml)
-- 2026-06-30 08:37 - [输球后日本球迷被强行披上巴西国旗](http://www.share.minike.top/Article/details/12227395304.shtml)
-- 2026-06-30 08:38 - [莫兰特转投开拓者效力](http://www.share.minike.top/Article/details/0302240.shtml)
-- 2026-06-30 08:20 - [亚洲球队全部出局](http://www.share.kurohicncr.top/Article/details/454547534198.shtml)
-- 2026-06-30 08:45 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/033996250460.shtml)
+- 2026-06-30 08:35 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/357737683.shtml)
+- 2026-06-30 08:42 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.minike.top/Article/details/6473879.shtml)
+- 2026-06-30 08:31 - [泰山建135公里刀片刺绳隔离网](https://www.blog.kurohicncr.top/Article/details/08395984.shtml)
+- 2026-06-30 08:46 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/80878367191.shtml)
+- 2026-06-30 08:25 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.blog.minike.top/Article/details/74514551.shtml)
+- 2026-06-30 08:46 - [泰山建135公里刀片刺绳隔离网](https://www.share.minike.top/Article/details/0916566046.shtml)
+- 2026-06-30 08:38 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/85128329.shtml)
+- 2026-06-30 08:42 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/25638.shtml)
+- 2026-06-30 08:52 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/4674704.shtml)
+- 2026-06-30 08:29 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/282210.shtml)
+- 2026-06-30 08:36 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.minike.top/Article/details/565561.shtml)
+- 2026-06-30 08:53 - [日本队5进世界杯淘汰赛0胜](https://www.share.kurohicncr.top/Article/details/14203.shtml)
+- 2026-06-30 08:35 - [张雪的一句“是我们”引发岛内热议](http://www.share.kurohicncr.top/Article/details/820759.shtml)
+- 2026-06-30 08:33 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.kurohicncr.top/Article/details/0880341.shtml)
+- 2026-06-30 08:45 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/58576970.shtml)

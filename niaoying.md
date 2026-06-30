@@ -1,58 +1,51 @@
-# 中国建材午后逆市涨逾7% 机构看好公司高性能电子布持续放量
+# 金螳螂：崩完老头，今天就跌停了！被精神小妹崩的老头也不可怜！
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-中国建材（03323）午后逆市上涨6.96%，现报5.38港元，成交额3.17亿港元。 据证券时报报道，2025年我国玻璃纤维行业整体运行较前两年已有所改善。国盛证券指出，截至3月30日至4月3日，各类电子纱/布价格再度上涨，G75纱新月报价涨幅500-1000元/吨不等，配套7628电子布价格上调0.5元/米，高端品种价格涨幅亦突出。当前供不应求局面推动下新价落实进程预计将加
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：国际投行研究报告 一、核心定调 纯题材妖股炒作，无实质业绩支撑，73 名核心员工高位集体清仓套现，题材证伪 + 筹码出逃双重暴击，直接一字跌停，标准高位收割行情。 不过，参与的老头也不可怜，精神小妹给你很多希望呢！ 二、炒作起源（起势） 主业：传统建筑装饰，地产链弱势，近年营收、净利持续下滑，基本面疲
 
 ## 正文
 
-中国建材（03323）午后逆市上涨6.96%，现报5.38港元，成交额3.17亿港元。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-据证券时报报道，2025年我国玻璃纤维行业整体运行较前两年已有所改善。
+来源：国际投行研究报告 一、核心定调 纯题材妖股炒作，无实质业绩支撑，73 名核心员工高位集体清仓套现，题材证伪 + 筹码出逃双重暴击，直接一字跌停，标准高位收割行情。
 
-国盛证券指出，截至3月30日至4月3日，各类电子纱/布价格再度上涨，G75纱新月报价涨幅500-1000元/吨不等，配套7628电子布价格上调0.5元/米，高端品种价格涨幅亦突出。
+不过，参与的老头也不可怜，精神小妹给你很多希望呢！
 
-当前供不应求局面推动下新价落实进程预计将加快。
-
-下游CCL订单饱满，供应端产量增速依旧缓慢，库存低位延续，多数货源紧俏度暂难缓解。
-
-华泰证券表示，中国建材2025全年新材料板块收入555.57亿元，同比+14.4%，营业利润62.58亿元，同比+11.8%。
-
-分产品看，玻纤销量/均价分别同比+3.1%/+12.8%，实现量价齐升，普通及高性能电子布有望打开玻纤板块新成长空间。
-
-该行认为，随着全球首个零碳智能制造玻纤基地建成，高性能电子布持续放量，预计26年公司新材料业务盈利能力有望持续改善。
+二、炒作起源（起势） 主业：传统建筑装饰，地产链弱势，近年营收、净利持续下滑，基本面疲软，存在大额坏账压力 炒作噱头：仅承接商业航天基地、数据中心洁净室配套装修工程，无核心技术、无相关主业 公司官方明确澄清：相关业务营收占比不足 1%，不涉及航天、算力核心产业 行情走势：短期暴力连板拉升，股价从 3 元区间直冲 8.46 元阶段高点，短期翻倍暴涨 三、致命导火索：内部人精准高位清仓（核心杀跌根源） 持股主体：2024 年度员工持股计划，73 名公司中高层、核心骨干 持仓成本：仅1.78 元 / 股，极低内部福利价 解禁节点：5 月 8 日恰逢股价历史高位区间 减持动作：5.8-5.13 三日全部清仓完毕 减持数据 减持总量：2693.7 万股 成交均价：7.47 元 总套现金额：约1.65 亿元 人均获利：超 220 万元 整体收益率：超 340%
 
 ## 相关推荐
 
-- 2026-06-30 08:20 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
-- 2026-06-30 08:47 - [德国罚丢3粒点球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-30 08:20 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-30 08:25 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-30 08:39 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-30 08:47 - [田中碧失误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
-- 2026-06-30 08:36 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-30 08:47 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-30 08:20 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-30 08:35 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
-- 2026-06-30 08:26 - [陈幸同晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-30 08:34 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-30 08:29 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-30 08:37 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-30 08:40 - [德国队世界杯点球大战首败](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-30 08:26 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
+- 2026-06-30 08:27 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-30 08:45 - [为什么会有「念旧」的心理？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-30 08:38 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-30 08:50 - [恋与深空道歉声明](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-30 08:46 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
+- 2026-06-30 08:36 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
+- 2026-06-30 08:39 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-30 08:37 - [日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-30 08:48 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:25 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/2133243.shtml)
-- 2026-06-30 08:28 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/73666369.shtml)
-- 2026-06-30 08:27 - [金刚川](http://www.blog.minike.top/Article/details/3842545240.shtml)
-- 2026-06-30 08:40 - [郑钦文 四年一轮游](http://www.blog.kurohicncr.top/Article/details/43887480047.shtml)
-- 2026-06-30 08:38 - [巴拉圭进球](https://www.blog.kurohicncr.top/Article/details/9648321.shtml)
-- 2026-06-30 08:33 - [德国巴拉圭 折磨](http://www.share.kurohicncr.top/Article/details/1455598797.shtml)
-- 2026-06-30 08:28 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.minike.top/Article/details/42787.shtml)
-- 2026-06-30 08:43 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/49650240089.shtml)
-- 2026-06-30 08:31 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/49973118192.shtml)
-- 2026-06-30 08:38 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/75868423497.shtml)
-- 2026-06-30 08:36 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/374572519435.shtml)
-- 2026-06-30 08:41 - [巴西扳平比分](https://www.share.minike.top/Article/details/3473526000.shtml)
-- 2026-06-30 08:35 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/7221300240.shtml)
-- 2026-06-30 08:23 - [孙兴慜发长文致歉](http://www.share.kurohicncr.top/Article/details/51987449.shtml)
-- 2026-06-30 08:36 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/416685459.shtml)
+- 2026-06-30 08:46 - [陈幸同晋级WTT美国大满贯女单32强](https://www.blog.kurohicncr.top/Article/details/78398.shtml)
+- 2026-06-30 08:36 - [世界杯欧洲队7战南美仅1胜](http://www.share.kurohicncr.top/Article/details/92420134303.shtml)
+- 2026-06-30 08:28 - [千万不要随便扣肚脐](https://www.share.kurohicncr.top/Article/details/85454.shtml)
+- 2026-06-30 08:42 - [泰山景区回应修建刀片刺绳隔离网](https://www.share.minike.top/Article/details/92069849.shtml)
+- 2026-06-30 08:26 - [日本队5进世界杯淘汰赛0胜](http://www.blog.kurohicncr.top/Article/details/4751099488.shtml)
+- 2026-06-30 08:44 - [韩国世界杯出局是主帅一个人的锅吗](http://www.blog.minike.top/Article/details/0897560.shtml)
+- 2026-06-30 08:25 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.minike.top/Article/details/75243242042.shtml)
+- 2026-06-30 08:40 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/351638241.shtml)
+- 2026-06-30 08:27 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/217590.shtml)
+- 2026-06-30 08:39 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/14470477.shtml)
+- 2026-06-30 08:34 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.minike.top/Article/details/44415629.shtml)
+- 2026-06-30 08:39 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/62930567.shtml)
+- 2026-06-30 08:43 - [安切洛蒂 换人](http://www.share.minike.top/Article/details/43794818923.shtml)
+- 2026-06-30 08:25 - [一见倾心](https://www.share.minike.top/Article/details/07258.shtml)
+- 2026-06-30 08:27 - [巴拉圭先进球了](http://www.share.minike.top/Article/details/22403.shtml)

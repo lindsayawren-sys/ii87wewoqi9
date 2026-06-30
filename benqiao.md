@@ -1,48 +1,60 @@
-# A股周一开盘：超3900只个股飘绿，三大指数集体低开，油气板块领涨
+# 大和：华虹半导体首季盈利符预期 重申“买入”评级
 
-> 更新时间：2026-06-30 08:48:03 UTC+8
+> 更新时间：2026-06-30 08:54:02 UTC+8
 
 ## 摘要
 
-13日，A股三大指数集体低开。Wind数据显示，上证指数低开0.38%，深证成指低开0.53%，创业板指低开0.42%。全市超3900只个股飘绿。 板块方面，油气板块领涨，贵金属、铜箔/覆铜板、CPO等板块指数跌幅居前。
+大和发布研报称，华虹半导体（01347）于第一季录得净利润2，100万美元，同比大幅增长4.6倍，因低基数效应，符合该行预期，重申“买入”评级。2026年第一季毛利率稳定，第二季预计扩张。第一季收入同比增长22%、按季持平，至6.61亿美元。收入同比增长主要由出货量同比增长18%及平均售价上升4%所带动。 按季来看，尽管受农历新年假期影响，出货量及平均售价均维持平稳，显示客户需
 
 ## 正文
 
-13日，A股三大指数集体低开。
+大和发布研报称，华虹半导体（01347）于第一季录得净利润2，100万美元，同比大幅增长4.6倍，因低基数效应，符合该行预期，重申“买入”评级。
 
-Wind数据显示，上证指数低开0.38%，深证成指低开0.53%，创业板指低开0.42%。
+2026年第一季毛利率稳定，第二季预计扩张。
 
-全市超3900只个股飘绿。
+第一季收入同比增长22%、按季持平，至6.61亿美元。
 
-板块方面，油气板块领涨，贵金属、铜箔/覆铜板、CPO等板块指数跌幅居前。
+收入同比增长主要由出货量同比增长18%及平均售价上升4%所带动。
+
+按季来看，尽管受农历新年假期影响，出货量及平均售价均维持平稳，显示客户需求强劲。
+
+毛利率为13%，同比提升4个百分点，按季持平。
+
+管理层指引2026年第二季收入为6.9-7亿美元，按季增长4-6%，由平均售价及出货量共同推动。
+
+毛利率则指引为14-16%，高于第一季的13%。
 
 ## 相关推荐
 
-- 2026-06-30 08:35 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-30 08:25 - [如果有二次元高中是什么样子的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
-- 2026-06-30 08:27 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-30 08:21 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-30 08:37 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
-- 2026-06-30 08:27 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-30 08:41 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-30 08:43 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-30 08:31 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
-- 2026-06-30 08:20 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
+- 2026-06-30 08:35 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-30 08:45 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-30 08:52 - [板面：为什么那么多人爱吃？？！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-30 08:29 - [世界杯巴拉圭点球淘汰德国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
+- 2026-06-30 08:26 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-30 08:51 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-30 08:37 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-30 08:28 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
+- 2026-06-30 08:49 - [马耳他著名拱门坍塌致一中国男子身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
+- 2026-06-30 08:52 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-30 08:42 - [存储芯片龙头提示风险](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-30 08:48 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-30 08:43 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-30 08:25 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:28 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.kurohicncr.top/Article/details/45054987.shtml)
-- 2026-06-30 08:41 - [爆冷出局！德国点球大战不敌巴拉圭](https://www.blog.kurohicncr.top/Article/details/050640101.shtml)
-- 2026-06-30 08:37 - [董卿父亲报纸上发文悼念亡妻](https://www.blog.minike.top/Article/details/74986715827.shtml)
-- 2026-06-30 08:32 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/7215449160.shtml)
-- 2026-06-30 08:25 - [“柠檬茶能换怀表？”](http://www.share.kurohicncr.top/Article/details/78918963.shtml)
-- 2026-06-30 08:30 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/29038.shtml)
-- 2026-06-30 08:35 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/537761.shtml)
-- 2026-06-30 08:31 - [爱很美味](http://www.share.kurohicncr.top/Article/details/548721.shtml)
-- 2026-06-30 08:23 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/6068335.shtml)
-- 2026-06-30 08:21 - [问心2神一集鬼三集](https://www.share.minike.top/Article/details/4792138.shtml)
-- 2026-06-30 08:26 - [小娘惹](http://www.share.minike.top/Article/details/173964524.shtml)
-- 2026-06-30 08:26 - [巴西vs日本](http://www.blog.kurohicncr.top/Article/details/635251334176.shtml)
-- 2026-06-30 08:18 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/36983334704.shtml)
-- 2026-06-30 08:33 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/1837436833.shtml)
-- 2026-06-30 08:28 - [韩国道歉完日本道歉](https://www.share.kurohicncr.top/Article/details/399388791.shtml)
+- 2026-06-30 08:37 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/130202546.shtml)
+- 2026-06-30 08:47 - [金刚川](https://www.blog.kurohicncr.top/Article/details/0537227504.shtml)
+- 2026-06-30 08:25 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.kurohicncr.top/Article/details/04592606.shtml)
+- 2026-06-30 08:48 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.kurohicncr.top/Article/details/714858995460.shtml)
+- 2026-06-30 08:24 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/79659.shtml)
+- 2026-06-30 08:30 - [“柠檬茶能换怀表？”](http://www.blog.minike.top/Article/details/8220963626.shtml)
+- 2026-06-30 08:47 - [巴西足球能否再现昔日荣光](https://www.share.minike.top/Article/details/643271982.shtml)
+- 2026-06-30 08:28 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](https://www.blog.minike.top/Article/details/05197160879.shtml)
+- 2026-06-30 08:51 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/46130462.shtml)
+- 2026-06-30 08:53 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/51072649.shtml)
+- 2026-06-30 08:45 - [王楚钦孙颖莎晋级混双八强](https://www.share.kurohicncr.top/Article/details/113716349.shtml)
+- 2026-06-30 08:45 - [金鹰奖视后提名预测](http://www.blog.kurohicncr.top/Article/details/844676750547.shtml)
+- 2026-06-30 08:30 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/571044.shtml)
+- 2026-06-30 08:40 - [浪姐成团夜爆笑吐槽](http://www.blog.kurohicncr.top/Article/details/66577778.shtml)
+- 2026-06-30 08:36 - [IGN评测电影版后室](http://www.blog.minike.top/Article/details/36588.shtml)
