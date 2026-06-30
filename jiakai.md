@@ -1,59 +1,57 @@
-# 嘉利高：印度2026/27榨季不太可能恢复食糖出口
+# Rokos基金考虑从外部搜集选股思路 效仿部分同行的做法
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-来源：泛糖科技 核心洞察 印度政府已暂停2025/26年度剩余时间的食糖出口，此举源于食糖产量低于预期及2026年厄尔尼诺现象的预报。若食糖产量再迎一个歉收年，政府可能将面临在制糖与制乙醇之间做出抉择。 综合来看，印度禁止食糖出口是产量危机+季风风险+能源战略+通胀防控四重因素叠加的结果。即便2026/27年度禁令可能形式上解除，只要国内供需紧平衡格局不变，实际出口量也将极为有
+知情人士称，由Chris Rokos创立的基金公司正在考虑从外部吸收选股情报，加入Marshall Wace和城堡等一批同行的行列。 知情人士表示，Rokos Capital Management正考虑建立一项所谓“阿尔法捕捉”计划，从卖方信息提供者那里获取有关股票的思路。其中一人称，相关讨论仍处于早期阶段，计划可能有变。 业内一些大型机构已经或正在考虑建立所谓“阿尔法捕捉”计
 
 ## 正文
 
-来源：泛糖科技 核心洞察 印度政府已暂停2025/26年度剩余时间的食糖出口，此举源于食糖产量低于预期及2026年厄尔尼诺现象的预报。
+知情人士称，由Chris Rokos创立的基金公司正在考虑从外部吸收选股情报，加入Marshall Wace和城堡等一批同行的行列。
 
-若食糖产量再迎一个歉收年，政府可能将面临在制糖与制乙醇之间做出抉择。
+知情人士表示，Rokos Capital Management正考虑建立一项所谓“阿尔法捕捉”计划，从卖方信息提供者那里获取有关股票的思路。
 
-综合来看，印度禁止食糖出口是产量危机+季风风险+能源战略+通胀防控四重因素叠加的结果。
+其中一人称，相关讨论仍处于早期阶段，计划可能有变。
 
-即便2026/27年度禁令可能形式上解除，只要国内供需紧平衡格局不变，实际出口量也将极为有限。
+业内一些大型机构已经或正在考虑建立所谓“阿尔法捕捉”计划，支付一定费用来从外部搜集交易数据或想法。
 
-印度的优先顺序已然明确：保国内供给、保乙醇产能、控食品通胀——食糖出口，暂时靠后。
+Marshall Wace二十多年前率先采用这一模式，传统上主要接收卖方市场参与者提供的观点，例如银行分析师的看法，并基于海量数据生成交易信号。
 
-近10个榨季印度糖产量及消费量 印度政府暂停食糖出口 上周，印度政府宣布将暂停本榨季（即截至2026年9月30日）剩余时间的食糖出口。
+近来，这类项目也演变为吸纳买方机构观点的模式。
 
-此决定是在2025/26榨季甘蔗压榨迅速结束之后做出的，该榨季马邦和卡邦的甘蔗因过早开花而受损，同时大量甘蔗被转用于生产粗糖。
+肯·格里芬旗下城堡正准备推出一项新计划，从其他对冲基金收集交易洞见，以用于自身量化策略；Point72 Asset Management也在考虑采取类似举措。
 
-政府做出此决定背后有诸多因素。
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-30 09:10 - 国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md
-- 2026-06-30 09:16 - 马耳他著名拱门坍塌致中国男子身亡<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md
-- 2026-06-30 09:07 - 男子诋毁袁隆平科研成果被刑拘<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md
-- 2026-06-30 08:59 - 一切民族英雄都是中华民族的脊梁<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md
-- 2026-06-30 08:58 - 巴西绝杀日本<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md
-- 2026-06-30 08:58 - 日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md
-- 2026-06-30 08:57 - 德国队世界杯点球大战首败<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md
-- 2026-06-30 09:08 - 杨紫大银幕成绩单如何<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md
-- 2026-06-30 09:01 - 美媒：美军第五舰队司令部已无法使用<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md
-- 2026-06-30 09:03 - 起风了<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md
-- 2026-06-30 08:59 - 日本反击率先破门<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md
-- 2026-06-30 08:58 - 为什么很多企业推行“扁平化管理”后，效率反而下降了？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md
-- 2026-06-30 09:02 - 这一刀 会很帅<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md
+- 2026-06-30 09:12 - 中国代表在联合国点名日本所犯罪行<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md
+- 2026-06-30 09:27 - 德国淘汰<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md
+- 2026-06-30 09:19 - 未来的飞机可能会用电吗？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md
+- 2026-06-30 09:18 - ASMR 千禧年百货大楼初代柜姐给你化大头贴妆<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md
+- 2026-06-30 09:05 - 为什么很多企业推行“扁平化管理”后，效率反而下降了？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md
+- 2026-06-30 09:02 - 《贺子珍》<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md
+- 2026-06-30 09:26 - 电子游戏中有哪些关于武器的“刻板印象”？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md
+- 2026-06-30 09:19 - 德国 传控<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md
+- 2026-06-30 09:10 - 日本球迷被强行披上巴西国旗<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md
+- 2026-06-30 09:08 - 重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md
+- 2026-06-30 09:14 - 想问一下学日语的大佬，自学日语要怎么学？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:56 - GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？<br><br> | ??:http://www.blog.minike.top/Article/details/435170.shtml
-- 2026-06-30 09:06 - 如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/1243801.shtml
-- 2026-06-30 09:09 - 穆祉丞回应获年度人气艺人<br><br> | ??:https://www.blog.minike.top/Article/details/64731405.shtml
-- 2026-06-30 09:09 - 日本队主帅道歉<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/30520681.shtml
-- 2026-06-30 09:19 - 《虎吹最难绷の一集》<br><br> | ??:http://www.share.minike.top/Article/details/4920685.shtml
-- 2026-06-30 08:56 - FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/788828758.shtml
-- 2026-06-30 09:13 - 妻子撞死家暴丈夫案二审案情反转<br><br> | ??:http://www.blog.minike.top/Article/details/61590035.shtml
-- 2026-06-30 09:00 - 内马尔未登场 安切洛蒂赛后回应<br><br> | ??:https://www.blog.minike.top/Article/details/7065017.shtml
-- 2026-06-30 09:19 - 7月1日起 一批新规即将落地<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/67061321311.shtml
-- 2026-06-30 08:59 - 名记：灰熊将莫兰特交易至开拓者<br><br> | ??:http://www.share.minike.top/Article/details/77864211.shtml
-- 2026-06-30 09:01 - 日本将帅赛后采访纷纷哽咽落泪<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/34831.shtml
-- 2026-06-30 09:05 - 女子健身不当 居然“脑子漏水”了<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/3560955.shtml
-- 2026-06-30 09:08 - 男子中医院拔火罐致浅2度烧伤<br><br> | ??:http://www.blog.minike.top/Article/details/078363977.shtml
-- 2026-06-30 08:55 - 巴拉圭门将<br><br> | ??:http://www.share.minike.top/Article/details/0983642717.shtml
-- 2026-06-30 09:04 - 法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/20853729.shtml
+- 2026-06-30 09:22 - 名记：灰熊将莫兰特交易至开拓者<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/9287189316.shtml
+- 2026-06-30 09:25 - 国务院：鼓励行业龙头企业举办职校<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/8207179.shtml
+- 2026-06-30 09:00 - 首届《哈基米歌王争霸赛》总决赛<br><br> | ??:http://www.share.minike.top/Article/details/24169245724.shtml
+- 2026-06-30 09:06 - IGN评测电影版后室<br><br> | ??:https://www.share.kurohicncr.top/Article/details/68071.shtml
+- 2026-06-30 09:16 - 沉睡花园<br><br> | ??:http://www.share.minike.top/Article/details/793475575682.shtml
+- 2026-06-30 09:21 - 日本队主帅道歉<br><br> | ??:http://www.share.minike.top/Article/details/623405779359.shtml
+- 2026-06-30 09:07 - 库尼亚赛后伸五指嘲讽日本<br><br> | ??:http://www.share.minike.top/Article/details/691279091.shtml
+- 2026-06-30 09:03 - 小娘惹<br><br> | ??:http://www.share.minike.top/Article/details/516457351.shtml
+- 2026-06-30 09:16 - 人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？<br><br> | ??:http://www.blog.minike.top/Article/details/2268305563.shtml
+- 2026-06-30 09:18 - 内马尔中场休息积极鼓励队友<br><br> | ??:http://www.blog.minike.top/Article/details/412918014281.shtml
+- 2026-06-30 09:30 - 极限挑战第一季<br><br> | ??:https://www.blog.minike.top/Article/details/41360504.shtml
+- 2026-06-30 09:22 - 这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆<br><br> | ??:http://www.share.minike.top/Article/details/0661005253.shtml
+- 2026-06-30 09:19 - 王曼昱被突如其来的话筒逗笑了<br><br> | ??:http://www.blog.minike.top/Article/details/191646948.shtml
+- 2026-06-30 09:00 - 德国罚丢3粒点球<br><br> | ??:http://www.share.kurohicncr.top/Article/details/15424733690.shtml
+- 2026-06-30 09:23 - 网瘾賊大的阿嬷<br><br> | ??:https://www.share.kurohicncr.top/Article/details/73723940856.shtml

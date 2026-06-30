@@ -1,43 +1,47 @@
-# 现场画面 靳东带队下矿
+# 北京君正：公司在积极关注行业动态，也会在公司适配领域进行布局
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月25日 13:10 来源：中国新闻网 现场画面 靳东带队下矿 责任编辑：【翟璐】
+证券日报网讯6月18日，北京君正在互动平台回答投资者提问时表示，公司在积极关注行业动态，也会在公司适配领域进行布局。
 
 ## 正文
 
-发布时间：2026年06月25日 13:10 来源：中国新闻网 现场画面 靳东带队下矿 责任编辑：【翟璐】
+证券日报网讯6月18日，北京君正在互动平台回答投资者提问时表示，公司在积极关注行业动态，也会在公司适配领域进行布局。
 
 ## 相关推荐
 
-- 2026-06-30 09:19 - FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md
-- 2026-06-30 09:12 - 王欣瑜连续4年晋级温网第二轮<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md
-- 2026-06-30 09:12 - 马杜罗账号在纽约发文致谢各国援助<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md
-- 2026-06-30 08:55 - 青春环游记第三季<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md
-- 2026-06-30 09:08 - 国务院：鼓励行业龙头企业举办职校<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md
-- 2026-06-30 09:11 - 恋与深空道歉声明<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md
-- 2026-06-30 09:02 - 人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md
-- 2026-06-30 09:15 - 谢依霖说杨幂是聚会第一把张罗手<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md
-- 2026-06-30 09:11 - 科学备孕男女都要上心<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md
-- 2026-06-30 09:12 - 青春环游记第三季<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md
-- 2026-06-30 09:16 - 女心理师<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md
+- 2026-06-30 09:26 - 德国队连续三届世界杯无缘16强<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md
+- 2026-06-30 09:04 - 找到了10年前跪舔b站的视频<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md
+- 2026-06-30 09:10 - 补时绝杀 巴西2-1淘汰日本<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md
+- 2026-06-30 09:19 - 巴西在进攻三区完成210脚传球<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md
+- 2026-06-30 09:24 - 陈幸同晋级WTT美国大满贯女单32强<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md
+- 2026-06-30 09:13 - 4种红薯的满分吃法！有手就会…但能让你大为震撼！<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md
+- 2026-06-30 09:29 - 我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md
+- 2026-06-30 09:18 - 球评巴西绝杀逆转日本<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md
+- 2026-06-30 09:19 - F1奥地利站赛后复盘<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md
+- 2026-06-30 09:05 - 美团、淘宝闪购、京东外卖达成共识<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md
+- 2026-06-30 09:02 - 毕业以后，你最怀念的大学记忆是什么？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md
+- 2026-06-30 09:16 - 哈弗茨头球破门<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md
+- 2026-06-30 09:21 - 武磊：巴西队赢的并不轻松<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md
+- 2026-06-30 09:12 - 如何改变自己太负责任的性格?<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md
+- 2026-06-30 09:21 - 第3集丨“柠檬茶能换怀表？”<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:14 - 王菲谢霆锋十指紧扣好甜<br><br> | ??:https://www.blog.minike.top/Article/details/078840467387.shtml
-- 2026-06-30 09:22 - 未来五年，教育强国这样建设<br><br> | ??:http://www.blog.minike.top/Article/details/58238243072.shtml
-- 2026-06-30 09:18 - 4种红薯的满分吃法！有手就会…但能让你大为震撼！<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/80368822858.shtml
-- 2026-06-30 09:18 - 李在明90度鞠躬感谢韩国两大财阀<br><br> | ??:https://www.share.kurohicncr.top/Article/details/408187119.shtml
-- 2026-06-30 09:19 - 日本进球<br><br> | ??:https://www.share.minike.top/Article/details/5468915153.shtml
-- 2026-06-30 08:55 - 宜宾地震食客避难后折返 无人逃单<br><br> | ??:https://www.share.minike.top/Article/details/04160893754.shtml
-- 2026-06-30 08:57 - 【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】<br><br> | ??:http://www.blog.minike.top/Article/details/84177.shtml
-- 2026-06-30 09:03 - F1奥地利站赛后复盘<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/984276348.shtml
-- 2026-06-30 09:02 - 中国对日本再出重拳<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/90666883.shtml
-- 2026-06-30 09:12 - 斛珠夫人<br><br> | ??:http://www.share.minike.top/Article/details/317302998.shtml
-- 2026-06-30 09:19 - 如何把斧兵改造成精英怪？提高攻速移速！！！<br><br> | ??:https://www.blog.minike.top/Article/details/00332149.shtml
-- 2026-06-30 08:55 - 高考结束了，你会让孩子在家玩手机吗？<br><br> | ??:https://www.share.minike.top/Article/details/34123.shtml
-- 2026-06-30 09:04 - 日本将帅赛后采访纷纷哽咽落泪<br><br> | ??:https://www.share.minike.top/Article/details/91578367.shtml
-- 2026-06-30 08:57 - 德国队世界杯点球大战首败<br><br> | ??:http://www.share.kurohicncr.top/Article/details/5467005095.shtml
-- 2026-06-30 09:17 - 韩国世界杯出局是主帅一个人的锅吗<br><br> | ??:https://www.share.minike.top/Article/details/39361177.shtml
+- 2026-06-30 09:07 - 老人卖菜获博主帮助后遇车祸去世<br><br> | ??:https://www.share.kurohicncr.top/Article/details/66908.shtml
+- 2026-06-30 09:03 - 我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎<br><br> | ??:https://www.blog.minike.top/Article/details/5433421.shtml
+- 2026-06-30 09:21 - 第3集丨“柠檬茶能换怀表？”<br><br> | ??:http://www.share.kurohicncr.top/Article/details/925776907100.shtml
+- 2026-06-30 09:26 - 德国队回应爆冷淘汰<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/172674.shtml
+- 2026-06-30 09:11 - 健全中小学教师工资长效联动机制<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/61209.shtml
+- 2026-06-30 09:02 - 一见倾心<br><br> | ??:http://www.share.minike.top/Article/details/597051255689.shtml
+- 2026-06-30 09:27 - 孙兴慜道歉<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/062291.shtml
+- 2026-06-30 09:15 - 古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/92099569.shtml
+- 2026-06-30 09:19 - 日本五次世界杯淘汰赛全败<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/72028590666.shtml
+- 2026-06-30 09:01 - 全球芯片巨头史诗级扩产<br><br> | ??:https://www.blog.minike.top/Article/details/6157001464.shtml
+- 2026-06-30 09:07 - 王曼昱被突如其来的话筒逗笑了<br><br> | ??:https://www.share.minike.top/Article/details/80253.shtml
+- 2026-06-30 09:20 - 巴拉圭进球<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/055698920.shtml
+- 2026-06-30 09:21 - 美团、淘宝闪购、京东外卖达成共识<br><br> | ??:https://www.blog.minike.top/Article/details/78017040332.shtml
+- 2026-06-30 09:23 - 手底下人带不动怎么办？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/708274426464.shtml
+- 2026-06-30 09:11 - 高考结束了，你会让孩子在家玩手机吗？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/6950329.shtml

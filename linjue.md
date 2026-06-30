@@ -1,61 +1,58 @@
-# 军工巨头KNDS计划登陆巴黎、法兰克福两地交易所上市
+# 龙舟竞渡齐奋进 粽叶飘香情谊浓 新疆各地多彩活动庆端午
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-核心要点 欧洲军工巨头 KNDS 于本周三正式公布 IPO 计划，拟在巴黎与法兰克福两地交易所挂牌上市。 该企业是欧洲顶尖军工装备生产商之一，主营装甲车、弹药等军工产品，其产品已投入乌克兰战场使用。当下欧洲多国大力推进军备扩充，莱茵金属、萨博、BAE 系统等军工企业均借此迎来业绩增长，而 KNDS 被视作欧洲军备复兴进程中的核心企业。 本次上市将由现有股东出售公司至多 20%
+粽香漫染天山阔，各族同心庆端阳。 今年端午节，为弘扬中华优秀传统文化，丰富群众精神文化生活，营造欢乐祥和的节日氛围，铸牢中华民族共同体意识，我区各地开展了一系列主题鲜明、形式多样的群众文化活动，各族群众在尽享“端午文化大餐”的同时，感受到了优秀传统文化的软实力、同心筑梦的聚合力、乡村振兴的新活力。 端午节的重要文化习俗活动中，赛龙舟是最具视觉冲击力与精神凝聚力的项目之一。与往年
 
 ## 正文
 
-核心要点 欧洲军工巨头 KNDS 于本周三正式公布 IPO 计划，拟在巴黎与法兰克福两地交易所挂牌上市。
+粽香漫染天山阔，各族同心庆端阳。
 
-该企业是欧洲顶尖军工装备生产商之一，主营装甲车、弹药等军工产品，其产品已投入乌克兰战场使用。
+今年端午节，为弘扬中华优秀传统文化，丰富群众精神文化生活，营造欢乐祥和的节日氛围，铸牢中华民族共同体意识，我区各地开展了一系列主题鲜明、形式多样的群众文化活动，各族群众在尽享“端午文化大餐”的同时，感受到了优秀传统文化的软实力、同心筑梦的聚合力、乡村振兴的新活力。
 
-当下欧洲多国大力推进军备扩充，莱茵金属、萨博、BAE 系统等军工企业均借此迎来业绩增长，而 KNDS 被视作欧洲军备复兴进程中的核心企业。
+端午节的重要文化习俗活动中，赛龙舟是最具视觉冲击力与精神凝聚力的项目之一。
 
-本次上市将由现有股东出售公司至多 20% 的存量股份，两大股东分别为法国国有控股企业法国地面武器工业集团（GIAT Industries）以及德国私人控股企业韦格曼公司。
+与往年不同的是，在人们印象中缺水的新疆，很多地方的旱龙舟变成了水龙舟，且龙舟赛规模在变大。
 
-本次发行仅面向机构投资者配售，不面向普通个人投资者公开发行。
+“以前我从来没有想过，在我们家门口就能看到像电视里才有的龙舟赛。
 
-作为豹 2 系列主战坦克等多款军用装备的制造商，KNDS 同时在本周三披露，德国政府已与韦格曼公司达成协议，将收购该公司 40% 的普通股股权。
+”6月19日端午节当天，沙雅县沙雅镇团结社区居民古丽皮耶·麦麦提，和家人聊起两天前在沙雅县举办的2026年阿克苏地区“托峰杯”全疆龙舟邀请赛时，心情依然激动。
 
-KNDS 首席执行官让 - 保罗・阿拉里在 IPO 发布会上表示，欧洲正迈入国防安全新时代，各国军队正加速装备现代化升级、重建关键陆上防御力量。
+这场龙舟邀请赛，由阿克苏地区及新疆生产建设兵团第一师阿拉尔市、新疆理工学院的十余支龙舟队参加。
 
-责任编辑：郭明煜
+古丽皮耶看到，在平静的金雁河‌水域，随着发令声响，每一艘龙舟都像离弦的箭往前冲，龙舟上不同民族的划手随着铿锵鼓点奋力挥桨，鼓声、号子声以及岸上的加油声交织在一起，整齐而有力。
 
 ## 相关推荐
 
-- 2026-06-30 09:17 - 这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md
-- 2026-06-30 09:16 - 把毒品藏在哪里，60秒内不会被发现？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md
-- 2026-06-30 09:19 - 男子造谣东鹏老板不喝自家饮料被拘<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md
-- 2026-06-30 09:03 - 致敬！中国首批缉毒警已全体退休<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md
-- 2026-06-30 09:01 - 为什么香港的冲厕水是咸的？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md
-- 2026-06-30 09:15 - 恋与深空道歉声明<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md
-- 2026-06-30 09:00 - 曝iPhone18Pro机密文件现身暗网<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md
-- 2026-06-30 09:09 - 一切民族英雄都是中华民族的脊梁<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md
-- 2026-06-30 08:58 - 7月1日起 一批新规即将落地<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md
-- 2026-06-30 08:54 - 城市规划有可能成为「屎山代码」吗？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md
-- 2026-06-30 09:19 - 日耳曼拖拉机<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md
-- 2026-06-30 08:54 - 全网说丑的格力玫瑰空调卖了5万台<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md
-- 2026-06-30 08:56 - 女儿从清华毕业 爸爸晒出17年对比照<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md
-- 2026-06-30 08:57 - 吴启华卖肖像权拍AI电影<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md
-- 2026-06-30 09:02 - 檀健次王楚然吻戏看热了<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md
+- 2026-06-30 09:02 - 全新问界M9现身美国街头<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md
+- 2026-06-30 09:26 - 城市规划有可能成为「屎山代码」吗？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md
+- 2026-06-30 09:01 - 2021江苏卫视跨年演唱会<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md
+- 2026-06-30 09:04 - 巴拉圭门将<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md
+- 2026-06-30 09:14 - 日本主帅：未能夺冠深感抱歉<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md
+- 2026-06-30 09:18 - 陈小春人老了干什么也不心酸<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md
+- 2026-06-30 09:17 - 高考填志愿父亲和女儿产生分歧<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md
+- 2026-06-30 09:16 - 古代人对纳妾的态度是什么样的？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md
+- 2026-06-30 09:19 - 国务院：稳步推进研究生考试招生改革<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md
+- 2026-06-30 09:02 - 现在叛逆期的孩子最怕的是什么？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md
+- 2026-06-30 09:22 - 天道<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md
+- 2026-06-30 09:15 - 7月1日起 一批新规即将落地<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:22 - 被巴西绝杀后 日球员田中碧跪地痛哭<br><br> | ??:https://www.blog.minike.top/Article/details/9370710.shtml
-- 2026-06-30 09:08 - 巴西替补奇兵读秒绝杀<br><br> | ??:https://www.blog.minike.top/Article/details/6370182910.shtml
-- 2026-06-30 09:13 - 我设置了全宇宙最安全的密码<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/9899559004.shtml
-- 2026-06-30 09:19 - 世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？<br><br> | ??:http://www.share.minike.top/Article/details/33117081095.shtml
-- 2026-06-30 08:54 - 金鹰奖视后提名预测<br><br> | ??:http://www.share.minike.top/Article/details/103783789.shtml
-- 2026-06-30 09:21 - 日本队主帅道歉<br><br> | ??:http://www.share.minike.top/Article/details/21703017.shtml
-- 2026-06-30 09:09 - 恋与深空已删除锅里洗澡文案<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/681904030662.shtml
-- 2026-06-30 09:05 - 为什么纣王似乎对周文王的扩张完全无动于衷？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/5610591.shtml
-- 2026-06-30 08:55 - 斗破苍穹<br><br> | ??:http://www.share.minike.top/Article/details/770581931.shtml
-- 2026-06-30 08:54 - 王楚钦说配合稍微有些陌生感<br><br> | ??:https://www.share.minike.top/Article/details/510928120.shtml
-- 2026-06-30 09:01 - 我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/760790651069.shtml
-- 2026-06-30 09:03 - 2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/6202838675.shtml
-- 2026-06-30 08:59 - 女儿从清华毕业 爸爸晒出17年对比照<br><br> | ??:http://www.share.kurohicncr.top/Article/details/5494651.shtml
-- 2026-06-30 08:55 - 《恋与深空》被指触碰民族伤痛红线<br><br> | ??:http://www.share.minike.top/Article/details/291193.shtml
-- 2026-06-30 09:13 - 巴西绝杀<br><br> | ??:http://www.blog.minike.top/Article/details/032927368.shtml
+- 2026-06-30 09:10 - 齐思钧回复张月<br><br> | ??:http://www.blog.minike.top/Article/details/961485137.shtml
+- 2026-06-30 09:16 - 点球大战 残酷<br><br> | ??:https://www.share.kurohicncr.top/Article/details/360560536602.shtml
+- 2026-06-30 09:02 - 曝灰熊将莫兰特交易至开拓者<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/39650.shtml
+- 2026-06-30 09:23 - “荒唐”背后的韩国足球<br><br> | ??:https://www.share.minike.top/Article/details/83208837.shtml
+- 2026-06-30 09:27 - 周冬雨多次说演不了话剧文城<br><br> | ??:https://www.blog.minike.top/Article/details/4566555.shtml
+- 2026-06-30 09:23 - 警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/4635650.shtml
+- 2026-06-30 09:14 - 我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎<br><br> | ??:https://www.share.kurohicncr.top/Article/details/46117838.shtml
+- 2026-06-30 09:19 - 日本将帅赛后采访纷纷哽咽落泪<br><br> | ??:https://www.share.minike.top/Article/details/82968196.shtml
+- 2026-06-30 09:12 - 如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/288074921494.shtml
+- 2026-06-30 09:29 - 被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】<br><br> | ??:http://www.share.kurohicncr.top/Article/details/39797739.shtml
+- 2026-06-30 09:20 - 欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？<br><br> | ??:https://www.share.minike.top/Article/details/52405355.shtml
+- 2026-06-30 09:08 - 马宁怒怼巴拉圭教练组<br><br> | ??:http://www.share.minike.top/Article/details/715574.shtml
+- 2026-06-30 09:27 - 男子在非洲务工死亡 公司不认可工亡<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/19781204.shtml
+- 2026-06-30 09:21 - 韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/8475067.shtml
+- 2026-06-30 09:15 - 德国巴拉圭进入点球大战<br><br> | ??:http://www.share.minike.top/Article/details/8292813.shtml

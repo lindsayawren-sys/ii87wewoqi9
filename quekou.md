@@ -1,59 +1,60 @@
-# 迷因股大军的怀旧情怀发酵 美国老牌汉堡店股价单日飙涨26%
+# 南京12岁足球小将海外夺冠走红：如何培育更多“孟新艺”？
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-专题：A股或回归多主线 下半年关注三大方向 迷因股大军正在声援另一家陷入低潮的美国经典品牌 Wendy’s Co．，这家快餐连锁店以甜品Frosty、Dave’s Triple汉堡等闻名。 该公司股价在过去三年持续下跌，周三收盘上涨26%，创下自2021年6月以来的最大涨幅，此前一度飙升42%。 这波涨势背后并没有任何重大消息公告。但该股在Stocktwits排行榜上的排名却一
+中新网南京6月19日电 题：南京12岁足球小将海外夺冠走红：如何培育更多“孟新艺”？ 作者 王晓燕 朱晓颖 因在意大利国际青少年杯赛(SIGISMONDI Cup)决赛中点球绝杀夺冠、以空翻动作庆祝胜利，江苏南京的12岁“空翻少年”孟新艺火了。如何客观看待国际赛场荣誉？未来足球青训要如何发展得更稳更好？近日南京市多位业界人士就此话题进行探讨。 流量是把双刃剑 在意大利夺冠之后，
 
 ## 正文
 
-专题：A股或回归多主线 下半年关注三大方向 迷因股大军正在声援另一家陷入低潮的美国经典品牌 Wendy’s Co．，这家快餐连锁店以甜品Frosty、Dave’s Triple汉堡等闻名。
+中新网南京6月19日电 题：南京12岁足球小将海外夺冠走红：如何培育更多“孟新艺”？
 
-该公司股价在过去三年持续下跌，周三收盘上涨26%，创下自2021年6月以来的最大涨幅，此前一度飙升42%。
+作者 王晓燕 朱晓颖 因在意大利国际青少年杯赛(SIGISMONDI Cup)决赛中点球绝杀夺冠、以空翻动作庆祝胜利，江苏南京的12岁“空翻少年”孟新艺火了。
 
-这波涨势背后并没有任何重大消息公告。
+如何客观看待国际赛场荣誉？
 
-但该股在Stocktwits排行榜上的排名却一路攀升，位居其热门页面的榜首。
+未来足球青训要如何发展得更稳更好？
 
-原因似乎与Reddit Inc．旗下知名的WallStreetBets上一篇贴文有关，其内容呼吁社群成员“在为时已晚前抢救 Wendy’s”，但该文稍后遭到删除。
+近日南京市多位业界人士就此话题进行探讨。
 
-这家汉堡连锁店符合散户会追捧的股票特征。
+流量是把双刃剑 在意大利夺冠之后，国际荣誉给孟新艺及其母校带来了流量。
 
-自2023年中以来，其股价已下跌超过70%。
+从国外返回南京后，孟新艺不断被路人认出并要求合影。
 
-卖空者纷至沓来，大量借出股票卖出，使得该股容易出现轧空行情。
+一夜之间，孟新艺父亲孟庆华“涨粉”14万，收到1000多条信息，接到许多贺喜和商业合作的电话、电邮。
 
 ## 相关推荐
 
-- 2026-06-30 09:21 - 媒体：手机测评该挤挤水分了<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md
-- 2026-06-30 09:22 - 披荆斩棘的哥哥<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md
-- 2026-06-30 08:57 - 欧洲民众抢购空调降温<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md
-- 2026-06-30 08:57 - 欧洲家电巨头为何输掉了这个夏天<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md
-- 2026-06-30 09:14 - 男生180+，有腹肌是什么体验？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md
-- 2026-06-30 09:20 - 国务院：鼓励行业龙头企业举办职校<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md
-- 2026-06-30 09:11 - 杨紫被质疑未使用原名<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md
-- 2026-06-30 09:23 - 日本反击率先破门<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md
-- 2026-06-30 09:21 - 泰山景区回应修建刀片刺绳隔离网<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md
-- 2026-06-30 09:19 - 卡塞米罗头球破门<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md
-- 2026-06-30 08:56 - 檀健次王楚然吻戏看热了<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md
-- 2026-06-30 09:16 - 美股<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md
-- 2026-06-30 09:17 - 为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md
+- 2026-06-30 09:17 - 德国身价是巴拉圭6倍<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md
+- 2026-06-30 09:11 - 你的妻子大喷菇—《植物娘大战僵尸》特别篇<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md
+- 2026-06-30 09:19 - 租房时你会更看重「住得舒服」，还是「每天通勤更方便」？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md
+- 2026-06-30 09:17 - 电子游戏中有哪些关于武器的“刻板印象”？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md
+- 2026-06-30 09:13 - 高考结束，该不该外出打工体验？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md
+- 2026-06-30 09:20 - 王灿兮被烫伤两年后维权成功<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md
+- 2026-06-30 09:23 - 豆包收费了，你还会用吗？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md
+- 2026-06-30 09:20 - 逃狱兄弟<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md
+- 2026-06-30 09:20 - 美人鱼<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md
+- 2026-06-30 09:11 - 黄晓明夸昆凌引杨颖对比<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md
+- 2026-06-30 09:16 - 董卿父亲在报纸上发文悼念亡妻<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md
+- 2026-06-30 09:01 - 「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md
+- 2026-06-30 09:17 - 手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md
+- 2026-06-30 09:10 - 金牌调解<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:10 - “草莓月亮”浪漫现身<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/62683.shtml
-- 2026-06-30 09:18 - 健全中小学教师工资长效联动机制<br><br> | ??:https://www.blog.minike.top/Article/details/170946.shtml
-- 2026-06-30 09:21 - 商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？<br><br> | ??:https://www.blog.minike.top/Article/details/1218070436.shtml
-- 2026-06-30 09:11 - 我设置了全宇宙最安全的密码<br><br> | ??:https://www.share.kurohicncr.top/Article/details/03429062020.shtml
-- 2026-06-30 09:07 - 世界杯<br><br> | ??:https://www.share.kurohicncr.top/Article/details/3429294294.shtml
-- 2026-06-30 09:11 - 内马尔中场休息积极鼓励队友<br><br> | ??:http://www.share.kurohicncr.top/Article/details/093242633302.shtml
-- 2026-06-30 09:04 - 一直以为方便面汤是要倒掉的<br><br> | ??:https://www.share.kurohicncr.top/Article/details/4346149876.shtml
-- 2026-06-30 09:07 - 第3集丨“柠檬茶能换怀表？”<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/3722785647.shtml
-- 2026-06-30 09:13 - 人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？<br><br> | ??:https://www.blog.minike.top/Article/details/84859167748.shtml
-- 2026-06-30 08:59 - 德国队连续三届世界杯无缘16强<br><br> | ??:http://www.blog.minike.top/Article/details/25496.shtml
-- 2026-06-30 09:05 - 曝娱乐圈大部分明星失业<br><br> | ??:https://www.share.kurohicncr.top/Article/details/353936653.shtml
-- 2026-06-30 08:54 - 男子在京东买到“同仁堂”假药<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/049087.shtml
-- 2026-06-30 09:10 - 安切洛蒂 换人<br><br> | ??:https://www.blog.minike.top/Article/details/819513290148.shtml
-- 2026-06-30 08:57 - 未来五年，教育强国这样建设<br><br> | ??:https://www.share.kurohicncr.top/Article/details/851812267.shtml
-- 2026-06-30 09:09 - 好像看到了人类带孩子崩溃的样子<br><br> | ??:http://www.blog.minike.top/Article/details/14211.shtml
+- 2026-06-30 09:02 - 男子诋毁袁隆平科研成果被刑拘<br><br> | ??:http://www.blog.minike.top/Article/details/1536117238.shtml
+- 2026-06-30 09:02 - 韩国球迷凌晨4点接机怒骂主教练<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/507578161054.shtml
+- 2026-06-30 09:22 - 点球大战 残酷<br><br> | ??:https://www.blog.minike.top/Article/details/74822.shtml
+- 2026-06-30 09:11 - 【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】<br><br> | ??:http://www.share.minike.top/Article/details/7211746.shtml
+- 2026-06-30 09:25 - 郑钦文温网一轮游<br><br> | ??:https://www.blog.minike.top/Article/details/83077621030.shtml
+- 2026-06-30 09:23 - 2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？<br><br> | ??:https://www.blog.minike.top/Article/details/304520420744.shtml
+- 2026-06-30 09:25 - 荀彧和曹操反目成仇的根本原因是什么？<br><br> | ??:https://www.blog.minike.top/Article/details/50560127.shtml
+- 2026-06-30 09:05 - 逃狱兄弟<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/53806064.shtml
+- 2026-06-30 09:12 - 为什么会有「念旧」的心理？<br><br> | ??:https://www.blog.minike.top/Article/details/05263757.shtml
+- 2026-06-30 09:26 - 本科毕业生为何涌入专科学校<br><br> | ??:http://www.share.minike.top/Article/details/0016731.shtml
+- 2026-06-30 09:18 - 李在明90度鞠躬感谢韩国两大财阀<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/89125810491.shtml
+- 2026-06-30 09:18 - 诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天<br><br> | ??:https://www.share.minike.top/Article/details/2267032.shtml
+- 2026-06-30 09:06 - 李在明向韩国两大财阀90度鞠躬<br><br> | ??:http://www.share.kurohicncr.top/Article/details/4664187.shtml
+- 2026-06-30 09:18 - 网瘾賊大的阿嬷<br><br> | ??:http://www.blog.minike.top/Article/details/37238.shtml
+- 2026-06-30 09:15 - 对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/49121.shtml

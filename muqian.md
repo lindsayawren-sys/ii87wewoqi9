@@ -1,56 +1,58 @@
-# AI算力硬件仍是最强共识！半导体+PCB走强，跑赢科创50的“宽基”科技ETF继续冲高，3天吸金2亿元
+# 人民论坛网评 | 让田埂上的“村播”持续火下去
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-6月24日盘中，科技龙头反包上攻，国内首只*科技龙头先锋——科技ETF华宝（515000）场内冲高近2%，逼近前期历史高点，资金近3日连续加仓，累计净流入超2亿元。 成份股方面，AI算力方向继续强势，存储龙头兆易创新涨超4%，协创数据大涨超11%；PCB板块重启升势，生益电子大涨超7%，生益科技涨超5%；半导体产业链走强，士兰微涨超7%，通富微电、华天科技涨超5%。 中信建投证
+在浙江瑞安，庄文雅扎根乡村一线，创办草根工社，把农田变成直播间，为农村电商注入可持续生命力；在湖北武汉江夏，高亚文返乡养鸡创业，通过直播实现自家鸡场扭亏为盈，帮村民解决农货滞销难题。随着乡村全面振兴深入推进，一部手机、一个支架、一方直播间，越来越多的“村播”活跃在互联网上。近日，国务院印发《加快农业农村现代化“十五五”规划》(以下简称《规划》)。《规划》提出，实施农村电商高质量
 
 ## 正文
 
-6月24日盘中，科技龙头反包上攻，国内首只*科技龙头先锋——科技ETF华宝（515000）场内冲高近2%，逼近前期历史高点，资金近3日连续加仓，累计净流入超2亿元。
+在浙江瑞安，庄文雅扎根乡村一线，创办草根工社，把农田变成直播间，为农村电商注入可持续生命力；在湖北武汉江夏，高亚文返乡养鸡创业，通过直播实现自家鸡场扭亏为盈，帮村民解决农货滞销难题。
 
-成份股方面，AI算力方向继续强势，存储龙头兆易创新涨超4%，协创数据大涨超11%；PCB板块重启升势，生益电子大涨超7%，生益科技涨超5%；半导体产业链走强，士兰微涨超7%，通富微电、华天科技涨超5%。
+随着乡村全面振兴深入推进，一部手机、一个支架、一方直播间，越来越多的“村播”活跃在互联网上。
 
-中信建投证券表示，在全球AI算力产业蓬勃发展，泛AI行业和传统产业景气分化加剧的当下，我们继续看好AI算力作为本轮牛市中长期核心主线的后续表现。
+近日，国务院印发《加快农业农村现代化“十五五”规划》(以下简称《规划》)。
 
-从短期来看，陆家嘴金融论坛等国内政策红利有望继续推动双创板块上涨，美联储加息预期也未阻挡全球科技股上行，预计创业板和科创板将继续保持强势。
+《规划》提出，实施农村电商高质量发展工程，加快农村电商迭代升级，规范发展农产品直播带货，开展“数商兴农”。
 
-兴业证券指出，政策上，宏观审慎、聚焦科技创新的导向进一步明确。
+商务部数据显示，截至2025年底，全国农村网商数为2007.4万家，同比增长4.6%；全国农村“直播+社交”网商数为747.7万家，同比增长5.1%。
 
-近期的分化本质上是资金聚焦基本面优势、政策确定性的自然选择，率先把握能看得到的确定性定价。
+数字的背后，是一批爱农村、懂电商的“新农人”扎根田野，用镜头把优质农产品带出大山、推向全国。
 
-配置上，景气的相对强弱、业绩的相对变化依然是核心线索。
+“村播”入门不难，难在长足发展。
 
-景气共识依然高度集中，AI算力硬件仍是最强共识，部分先进制造板块景气预期也有上修。
+如何把手机“新农具”用好，把直播“新农活”干好？
 
 ## 相关推荐
 
-- 2026-06-30 09:08 - 日本队被绝杀后鞠躬致谢观众<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md
-- 2026-06-30 09:11 - 媒体：手机测评该挤挤水分了<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md
-- 2026-06-30 09:02 - 如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md
-- 2026-06-30 08:55 - 千香<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md
-- 2026-06-30 09:04 - 五哈和他们的朋友<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md
-- 2026-06-30 09:09 - 毕业以后，你最怀念的大学记忆是什么？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md
-- 2026-06-30 08:59 - 妻子撞死家暴丈夫案二审案情反转<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md
-- 2026-06-30 08:59 - 急先锋<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md
-- 2026-06-30 09:23 - 韩国球迷凌晨4点接机怒骂主教练<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md
-- 2026-06-30 09:20 - 老外对中国cosplay竟这样评价…<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md
+- 2026-06-30 09:15 - 【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md
+- 2026-06-30 09:07 - 英语考了145的人竟然教数学<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md
+- 2026-06-30 09:24 - 田中碧失误<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md
+- 2026-06-30 09:11 - 张月收到黄灿灿辣货两眼发光<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md
+- 2026-06-30 09:00 - 领克900大型SUV值得购买吗?<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md
+- 2026-06-30 09:20 - IGN评测电影版后室<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md
+- 2026-06-30 09:26 - 《虎吹最难绷の一集》<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md
+- 2026-06-30 09:17 - 四川凉山落石砸毁车辆 3人遇难<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md
+- 2026-06-30 09:21 - 巴西足球能否再现昔日荣光<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md
+- 2026-06-30 09:28 - 韩国道歉完日本道歉<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md
+- 2026-06-30 09:27 - 为什么会有「念旧」的心理？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md
+- 2026-06-30 09:13 - 承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:55 - 国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？<br><br> | ??:http://www.blog.minike.top/Article/details/11247.shtml
-- 2026-06-30 09:06 - 世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？<br><br> | ??:http://www.share.minike.top/Article/details/385358995861.shtml
-- 2026-06-30 09:09 - 我把队友的7连跪剪成了艺术<br><br> | ??:https://www.share.minike.top/Article/details/55004.shtml
-- 2026-06-30 09:14 - 泰山景区建135公里刀片刺绳隔离网<br><br> | ??:http://www.share.minike.top/Article/details/933860987.shtml
-- 2026-06-30 08:56 - 2021江苏卫视跨年演唱会<br><br> | ??:https://www.blog.minike.top/Article/details/620791845.shtml
-- 2026-06-30 09:20 - 女心理师<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/5327474.shtml
-- 2026-06-30 09:15 - 奔跑吧·黄河篇第二季<br><br> | ??:https://www.blog.minike.top/Article/details/642399255.shtml
-- 2026-06-30 09:20 - 法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？<br><br> | ??:http://www.blog.minike.top/Article/details/02959016.shtml
-- 2026-06-30 09:06 - 男子在非洲务工死亡 公司不认可工亡<br><br> | ??:https://www.blog.minike.top/Article/details/6731474143.shtml
-- 2026-06-30 09:02 - 把毒品藏在哪里，60秒内不会被发现？<br><br> | ??:https://www.share.minike.top/Article/details/941405443.shtml
-- 2026-06-30 09:00 - 外国游客开始涌入中国农村<br><br> | ??:http://www.blog.minike.top/Article/details/528722608940.shtml
-- 2026-06-30 09:12 - 日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？<br><br> | ??:http://www.blog.minike.top/Article/details/386775032.shtml
-- 2026-06-30 08:54 - 世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？<br><br> | ??:https://www.share.minike.top/Article/details/96839.shtml
-- 2026-06-30 09:16 - 张月收到黄灿灿辣货两眼发光<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/4109283.shtml
-- 2026-06-30 09:19 - 一生一世<br><br> | ??:https://www.blog.minike.top/Article/details/648488253430.shtml
+- 2026-06-30 09:27 - 为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/2905472312.shtml
+- 2026-06-30 09:20 - 杨紫大银幕成绩单如何<br><br> | ??:https://www.share.kurohicncr.top/Article/details/42012148.shtml
+- 2026-06-30 09:02 - 庆祝中国共产党成立105周年大会将举行<br><br> | ??:https://www.share.kurohicncr.top/Article/details/99427161.shtml
+- 2026-06-30 09:05 - 逃狱兄弟<br><br> | ??:http://www.blog.minike.top/Article/details/12987376.shtml
+- 2026-06-30 09:15 - 第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！<br><br> | ??:http://www.share.kurohicncr.top/Article/details/571669769.shtml
+- 2026-06-30 09:05 - 扬名立万<br><br> | ??:http://www.blog.minike.top/Article/details/79138889440.shtml
+- 2026-06-30 09:28 - 田中碧失误<br><br> | ??:https://www.share.kurohicncr.top/Article/details/4783672.shtml
+- 2026-06-30 09:18 - 周冬雨多次说演不了话剧文城<br><br> | ??:http://www.share.kurohicncr.top/Article/details/528228961054.shtml
+- 2026-06-30 09:25 - 诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天<br><br> | ??:https://www.share.minike.top/Article/details/21657.shtml
+- 2026-06-30 09:15 - 张雪的一句“是我们”引发岛内热议<br><br> | ??:http://www.blog.minike.top/Article/details/197460718.shtml
+- 2026-06-30 09:01 - FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/1793401.shtml
+- 2026-06-30 09:10 - 莫兰特转投开拓者效力<br><br> | ??:http://www.blog.minike.top/Article/details/55617.shtml
+- 2026-06-30 09:22 - 我觉得你是在无中生友<br><br> | ??:https://www.blog.minike.top/Article/details/522080220.shtml
+- 2026-06-30 09:03 - 人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？<br><br> | ??:https://www.blog.minike.top/Article/details/337208778185.shtml
+- 2026-06-30 09:00 - 王楚钦说配合稍微有些陌生感<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/444549.shtml

@@ -1,58 +1,59 @@
-# 邦达亚洲:华尔街投行下调金价预期 黄金刷新8日低位
+# 莫斯科遭受大规模无人机袭击，侨胞直击现场
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-6月24日，德意志银行在最新发布的报告中，将黄金价格预测大幅下调了多达 32%。德意志银行研究分析师Michael Hsueh发布的报告，第三季度金价预测从原先的水平下调逾五分之一至每盎司4300美元，第四季度目标价下调17%至4800美元。更令人警惕的是下行风险的量化评估。Hsueh进一步警告，如果美联储加息三到四次，金价可能跌至每盎司3800美元左右——这意味着从1月底的历
+发布时间：2026年06月19日 11:19 来源：中国新闻网 俄罗斯首都莫斯科6月18日清晨遭无人机袭击，一家购物中心和一家炼油厂受损，无人员伤亡报告。这是近两年莫斯科遭遇的规模最大的无人机袭击之一。 俄罗斯侨胞李女士工作地点萨达沃，距离受损炼油厂不远。从当地时间清晨6点左右，无人机袭击的声音不断。 “感觉挺无奈的，挺无力的，因为什么都做不了。” 李女士接受中国侨网记者采访时
 
 ## 正文
 
-6月24日，德意志银行在最新发布的报告中，将黄金价格预测大幅下调了多达 32%。
+发布时间：2026年06月19日 11:19 来源：中国新闻网 俄罗斯首都莫斯科6月18日清晨遭无人机袭击，一家购物中心和一家炼油厂受损，无人员伤亡报告。
 
-德意志银行研究分析师Michael Hsueh发布的报告，第三季度金价预测从原先的水平下调逾五分之一至每盎司4300美元，第四季度目标价下调17%至4800美元。
+这是近两年莫斯科遭遇的规模最大的无人机袭击之一。
 
-更令人警惕的是下行风险的量化评估。
+俄罗斯侨胞李女士工作地点萨达沃，距离受损炼油厂不远。
 
-Hsueh进一步警告，如果美联储加息三到四次，金价可能跌至每盎司3800美元左右——这意味着从1月底的历史高点5600美元计算，潜在跌幅可能高达32%。
+从当地时间清晨6点左右，无人机袭击的声音不断。
 
-另外，标普全球周二公布的最新调查显示，美国6月商业活动扩张速度升至近五个月来最快水平，其中制造业需求显著回暖，推动整体经济活动持续增长。
+“感觉挺无奈的，挺无力的，因为什么都做不了。
 
-不过，企业仍面临成本压力、供应链紧张以及消费者信心疲弱等挑战。
+” 李女士接受中国侨网记者采访时说，近期莫斯科遭受无人机袭击不断，当地侨胞只能尽量保护好自身安全，多加留意各类信息。
 
-数据显示，美国6月Markit综合采购经理人指数（PMI）初值升至52.2，高于前值。
+目前，市场内的工作人员已得到疏散，炼油厂火势得到控制。
 
-PMI高于50意味着经济活动处于扩张状态。
+(记者 刘洋） 责任编辑：【孙静波】
 
 ## 相关推荐
 
-- 2026-06-30 09:05 - 消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md
-- 2026-06-30 08:54 - 日本进球<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md
-- 2026-06-30 09:00 - 尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md
-- 2026-06-30 09:10 - 荷兰vs摩洛哥<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md
-- 2026-06-30 08:54 - 郑钦文温网三连败西尼亚科娃<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md
-- 2026-06-30 08:55 - 疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md
-- 2026-06-30 09:00 - 德国巴拉圭进入点球大战<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md
-- 2026-06-30 09:14 - Melo向柳智敏张元英道歉<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md
-- 2026-06-30 09:14 - 阿娇瘦了10斤<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md
-- 2026-06-30 09:20 - 《赛博朋克：边缘行者 2》｜官方预告片<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md
-- 2026-06-30 09:03 - 速度与激情9<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md
-- 2026-06-30 09:00 - 李在明向韩国两大财阀90度鞠躬<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md
+- 2026-06-30 09:14 - 送你一朵小红花<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md
+- 2026-06-30 09:16 - 第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md
+- 2026-06-30 09:26 - “荒唐”背后的韩国足球<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md
+- 2026-06-30 09:27 - 马航MH370传来最新消息<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md
+- 2026-06-30 09:12 - 美人鱼<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md
+- 2026-06-30 09:08 - 沙丘<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md
+- 2026-06-30 09:28 - 日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md
+- 2026-06-30 09:10 - 荷兰VS摩洛哥<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md
+- 2026-06-30 09:07 - 卢卡申科发布解放军仪仗队视频<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md
+- 2026-06-30 09:28 - 董卿母亲癌症去世<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md
+- 2026-06-30 09:02 - 未来五年，教育强国这样建设<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md
+- 2026-06-30 09:03 - IGN评测电影版后室<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md
+- 2026-06-30 09:18 - 日本16强魔咒<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:05 - 世界杯巴拉圭点球淘汰德国<br><br> | ??:https://www.share.minike.top/Article/details/9826730383.shtml
-- 2026-06-30 09:21 - 12人以护剧为名敲诈剧组艺人被抓<br><br> | ??:https://www.share.kurohicncr.top/Article/details/45014066.shtml
-- 2026-06-30 09:06 - 蜘蛛侠:英雄归来<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/83452705.shtml
-- 2026-06-30 09:09 - 巴拉圭门将<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/8233888.shtml
-- 2026-06-30 08:58 - 中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？<br><br> | ??:http://www.blog.minike.top/Article/details/08054471724.shtml
-- 2026-06-30 08:59 - 巴西把自己踢晕了<br><br> | ??:http://www.share.minike.top/Article/details/164941471.shtml
-- 2026-06-30 08:54 - 科学备孕男女都要上心<br><br> | ??:http://www.blog.minike.top/Article/details/23593879252.shtml
-- 2026-06-30 09:10 - 失明的我带老妈去了趟“火星”<br><br> | ??:https://www.share.kurohicncr.top/Article/details/604952033114.shtml
-- 2026-06-30 09:04 - 世界杯欧洲队7战南美仅1胜<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/2143925230.shtml
-- 2026-06-30 09:05 - 内马尔未登场 安切洛蒂赛后回应<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/46434959.shtml
-- 2026-06-30 09:00 - 考入南大计算机，复读考清北值吗？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/81527.shtml
-- 2026-06-30 09:02 - 森保一致歉：世界第一目标没能实现<br><br> | ??:https://www.share.minike.top/Article/details/704403896272.shtml
-- 2026-06-30 09:13 - 男子在非洲务工死亡 公司不认可工亡<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/18711174813.shtml
-- 2026-06-30 08:55 - 怕iPhone涨价的用户已紧急换新<br><br> | ??:http://www.share.kurohicncr.top/Article/details/5298190.shtml
-- 2026-06-30 09:11 - 点球大战 残酷<br><br> | ??:http://www.blog.minike.top/Article/details/24899.shtml
+- 2026-06-30 09:08 - 第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！<br><br> | ??:http://www.share.kurohicncr.top/Article/details/27555.shtml
+- 2026-06-30 09:18 - 任素汐舞台上唱《王招君》<br><br> | ??:https://www.blog.minike.top/Article/details/561529.shtml
+- 2026-06-30 09:17 - 2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？<br><br> | ??:https://www.blog.minike.top/Article/details/61263573017.shtml
+- 2026-06-30 09:24 - 世界杯欧洲队7战南美仅1胜<br><br> | ??:http://www.share.minike.top/Article/details/46814.shtml
+- 2026-06-30 09:04 - 德国罚丢3粒点球<br><br> | ??:http://www.blog.minike.top/Article/details/08509256.shtml
+- 2026-06-30 09:02 - 男子醉酒溺水获救后同行人拒协助抬人<br><br> | ??:http://www.share.minike.top/Article/details/757544.shtml
+- 2026-06-30 09:03 - 斛珠夫人<br><br> | ??:http://www.blog.minike.top/Article/details/46118.shtml
+- 2026-06-30 09:03 - 韩国球迷凌晨4点接机怒骂主教练<br><br> | ??:https://www.blog.minike.top/Article/details/0075086.shtml
+- 2026-06-30 09:27 - 巴西替补奇兵读秒绝杀<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/43347.shtml
+- 2026-06-30 09:07 - 这种关系可能正在悄悄“催老”你<br><br> | ??:http://www.share.minike.top/Article/details/51711.shtml
+- 2026-06-30 09:24 - 网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/14836129.shtml
+- 2026-06-30 09:21 - 酒店推行“24小时退房”引热议<br><br> | ??:https://www.share.minike.top/Article/details/9987137.shtml
+- 2026-06-30 09:29 - 如何把斧兵改造成精英怪？提高攻速移速！！！<br><br> | ??:https://www.share.kurohicncr.top/Article/details/421686793.shtml
+- 2026-06-30 09:15 - “荒唐”背后的韩国足球<br><br> | ??:https://www.blog.minike.top/Article/details/277739826790.shtml
+- 2026-06-30 09:21 - 收到补税提醒尽快办理 明起有滞纳金<br><br> | ??:https://www.share.minike.top/Article/details/075461.shtml

@@ -1,55 +1,47 @@
-# 业内预计三星HBM4全年销售额有望冲击100亿美元
+# 水利部：全国14条中小河流发生超警洪水
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-三星电子第六代高带宽内存产品HBM4自今年2月量产以来，仅用时约130天，销售额便突破10亿美元（约合1.54万亿韩元），业内预计该产品全年销售额有望冲击100亿美元。 为此，三星电子会长李在镕亲自前往位于韩国忠清南道的天安HBM生产基地视察，实地考察产能及品质竞争力，释放出公司将大力扩张该业务的信号。 业内23日消息显示，受HBM4市场需求暴涨拉动，三星近期交出了上述亮眼业绩
+记者从水利部了解到，受降雨影响，昨天到今天，贵州红水河支流六硐河、柳江支流古宾河，云南南盘江支流巴江，广西红水河支流洪龙河、柳江支流西河、贺江支流都江河、北流河，广东北江支流绥江，安徽沿江支流秋浦河，河南淮河支流史河，黑龙江呼兰河支流克音河等14条中小河流发生超警洪水，最大超警幅度1.22米。目前上述河流大部已出峰回落。 (总台央视记者 梁丽娟 李洁)
 
 ## 正文
 
-三星电子第六代高带宽内存产品HBM4自今年2月量产以来，仅用时约130天，销售额便突破10亿美元（约合1.54万亿韩元），业内预计该产品全年销售额有望冲击100亿美元。
+记者从水利部了解到，受降雨影响，昨天到今天，贵州红水河支流六硐河、柳江支流古宾河，云南南盘江支流巴江，广西红水河支流洪龙河、柳江支流西河、贺江支流都江河、北流河，广东北江支流绥江，安徽沿江支流秋浦河，河南淮河支流史河，黑龙江呼兰河支流克音河等14条中小河流发生超警洪水，最大超警幅度1.22米。
 
-为此，三星电子会长李在镕亲自前往位于韩国忠清南道的天安HBM生产基地视察，实地考察产能及品质竞争力，释放出公司将大力扩张该业务的信号。
+目前上述河流大部已出峰回落。
 
-业内23日消息显示，受HBM4市场需求暴涨拉动，三星近期交出了上述亮眼业绩。
-
-按照当前市场走势测算，该产品截至6月末的累计销售额预计将达到12亿美元，全年销售额有望突破100亿美元。
-
-责任编辑：陈钰嘉
+(总台央视记者 梁丽娟 李洁)
 
 ## 相关推荐
 
-- 2026-06-30 08:59 - GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md
-- 2026-06-30 08:57 - 卖菜老人获博主帮助后遇车祸去世<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md
-- 2026-06-30 09:16 - 世界杯巴拉圭点球淘汰德国<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md
-- 2026-06-30 09:06 - "超算小姐，这一次，我一定要带你出去..."<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md
-- 2026-06-30 09:22 - 大货车掉落螺丝扎进骑手护目镜<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md
-- 2026-06-30 09:01 - 周生如故<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md
-- 2026-06-30 09:04 - 这几秒成世界杯最值钱广告位<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md
-- 2026-06-30 09:24 - 人类...完蛋了...<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md
-- 2026-06-30 08:57 - 马杜罗账号在纽约发文致谢各国援助<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md
-- 2026-06-30 09:15 - 电影抓特务上映11天破亿<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md
-- 2026-06-30 08:55 - 巴拉圭率先破门<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md
-- 2026-06-30 09:20 - 木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md
-- 2026-06-30 09:11 - 美加墨世界杯：亚洲足球的得意与失意<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md
-- 2026-06-30 09:09 - 世界杯名画巴拉圭钢铁防线<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md
-- 2026-06-30 08:58 - “中国养猪场都用上空调了”！这是真的吗？【主播说三农】<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md
+- 2026-06-30 09:22 - 梅德韦杰夫列举俄罗斯面临的七大挑战<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md
+- 2026-06-30 09:25 - 高考结束，该不该外出打工体验？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md
+- 2026-06-30 09:24 - 贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md
+- 2026-06-30 09:26 - 请回答王牌2019<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md
+- 2026-06-30 09:02 - Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md
+- 2026-06-30 09:18 - 致敬！中国首批缉毒警已全体退休<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md
+- 2026-06-30 09:26 - 我和我的家乡<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md
+- 2026-06-30 09:22 - 点球大战<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md
+- 2026-06-30 09:20 - 欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md
+- 2026-06-30 09:22 - 佐野海舟远射破门<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md
+- 2026-06-30 09:20 - 我和我的家乡<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:04 - 被巴西绝杀后 日球员田中碧跪地痛哭<br><br> | ??:https://www.share.minike.top/Article/details/84076013600.shtml
-- 2026-06-30 08:56 - 全球芯片巨头史诗级扩产<br><br> | ??:https://www.blog.minike.top/Article/details/59674443.shtml
-- 2026-06-30 08:56 - FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/306277727.shtml
-- 2026-06-30 09:22 - 韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/7164323010.shtml
-- 2026-06-30 09:16 - 健全中小学教师工资长效联动机制<br><br> | ??:https://www.blog.minike.top/Article/details/829283.shtml
-- 2026-06-30 09:05 - 吴启华卖肖像权拍AI电影<br><br> | ??:https://www.blog.minike.top/Article/details/80133.shtml
-- 2026-06-30 09:05 - 李在明向韩国两大财阀90度鞠躬<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/54352.shtml
-- 2026-06-30 09:02 - 内马尔安慰日本球员<br><br> | ??:http://www.share.minike.top/Article/details/881088.shtml
-- 2026-06-30 09:21 - 第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！<br><br> | ??:https://www.share.minike.top/Article/details/35099694.shtml
-- 2026-06-30 09:11 - 《共患难》<br><br> | ??:https://www.share.kurohicncr.top/Article/details/856643371319.shtml
-- 2026-06-30 08:58 - 武磊：日本队有能力跟任何强队抗衡<br><br> | ??:http://www.share.minike.top/Article/details/093451397.shtml
-- 2026-06-30 09:18 - 千香<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/58968033.shtml
-- 2026-06-30 09:07 - 输球后日本球迷被强行披上巴西国旗<br><br> | ??:http://www.blog.minike.top/Article/details/17563.shtml
-- 2026-06-30 09:11 - 科学备孕男女都要上心<br><br> | ??:http://www.blog.minike.top/Article/details/25139758.shtml
-- 2026-06-30 08:57 - 苗族银饰<br><br> | ??:http://www.share.minike.top/Article/details/090668334.shtml
+- 2026-06-30 09:23 - 卢卡申科发布解放军仪仗队视频<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/6511057665.shtml
+- 2026-06-30 09:15 - 热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/632991.shtml
+- 2026-06-30 09:03 - 领克07GT搭载超跑同源MRC悬架<br><br> | ??:http://www.blog.minike.top/Article/details/443228.shtml
+- 2026-06-30 09:10 - 诺伊尔尽力了<br><br> | ??:https://www.blog.minike.top/Article/details/4578765274.shtml
+- 2026-06-30 09:22 - 《虎吹最难绷の一集》<br><br> | ??:http://www.blog.minike.top/Article/details/645836034861.shtml
+- 2026-06-30 09:19 - 【硬核拆解】汽车人到底离我们有多远？<br><br> | ??:http://www.blog.minike.top/Article/details/5378865.shtml
+- 2026-06-30 09:14 - “中国养猪场都用上空调了”！这是真的吗？【主播说三农】<br><br> | ??:https://www.share.minike.top/Article/details/636541.shtml
+- 2026-06-30 09:08 - 世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/9605911615.shtml
+- 2026-06-30 09:11 - 杨紫大银幕成绩单<br><br> | ??:https://www.share.kurohicncr.top/Article/details/30798169.shtml
+- 2026-06-30 09:00 - 一直以为方便面汤是要倒掉的<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/7625526469.shtml
+- 2026-06-30 09:16 - 深扒韩国队淘汰背后原因<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/9047676643.shtml
+- 2026-06-30 09:02 - 人民锐评网红诋毁袁隆平造谣企业家<br><br> | ??:http://www.share.minike.top/Article/details/7511130086.shtml
+- 2026-06-30 09:11 - 宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/828958026655.shtml
+- 2026-06-30 09:00 - 这些7月新规影响你我<br><br> | ??:http://www.blog.minike.top/Article/details/8113326034.shtml
+- 2026-06-30 09:04 - 高考结束了，你会让孩子在家玩手机吗？<br><br> | ??:http://www.share.minike.top/Article/details/6417862539.shtml

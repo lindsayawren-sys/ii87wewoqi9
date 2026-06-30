@@ -1,61 +1,56 @@
-# 长江有色: 强美元、加息及地缘出清交织共振施压 25日铝价或大跌
+# 人民锐评：新能源车太“胖”、token太“耗”？盲目堆料不如更聪明地创造
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-长江有色金属网 长江铝价alu.ccmn.cn短评：美元探至新高叠加美联储年内加息预期升温，隔夜伦铝暴跌超4%创四月低点；地缘溢价出清叠加全球产能修复，内外铝价同步走弱，今现铝或大跌。 【铝期货市场】：美元探至新高叠加美联储年内加息预期升温，隔夜伦铝重挫，价格重心大幅下移至2026年2月25日以来新低点，最新收盘报价3115美元/吨，收跌145美元，跌幅4.43%，成交量515
+来源：人民锐评 当前，新兴产业发展中的两类现象引发热议。一是新能源车越造越“重”、越造越“胖”。二是国内外不少科技企业堆算力、拼token消耗，以此作为衡量AI能力的重要指标。 偏离真正的价值和需求，容易衍生“内卷”新变种，负外部性正在显现。新能源车“肥胖症”导致车宽超过标准停车位，停车难、开门难；车重导致路面损耗加剧，道路养护成本上升。而AI界的“token通胀”，并未带来实
 
 ## 正文
 
-长江有色金属网 长江铝价alu.ccmn.cn短评：美元探至新高叠加美联储年内加息预期升温，隔夜伦铝暴跌超4%创四月低点；地缘溢价出清叠加全球产能修复，内外铝价同步走弱，今现铝或大跌。
+来源：人民锐评 当前，新兴产业发展中的两类现象引发热议。
 
-【铝期货市场】：美元探至新高叠加美联储年内加息预期升温，隔夜伦铝重挫，价格重心大幅下移至2026年2月25日以来新低点，最新收盘报价3115美元/吨，收跌145美元，跌幅4.43%，成交量51598手增加312手，持仓量616931手增加3127手。
+一是新能源车越造越“重”、越造越“胖”。
 
-晚间沪铝震荡摸底，价格重心跌破2.3万；主力月2608合约最新收盘价报22970元/吨，跌500元，跌幅2.13%。
+二是国内外不少科技企业堆算力、拼token消耗，以此作为衡量AI能力的重要指标。
 
-伦敦金属交易所（LME）6月24日伦铝最新库存量报310225吨，较上个交易日下降1500吨，跌幅0.48%。
+偏离真正的价值和需求，容易衍生“内卷”新变种，负外部性正在显现。
 
-长江铝业网讯：6月24日现货铝价，长江现货A00铝锭价报23470元/吨，跌330元；广东现货A00铝锭价报23450元/吨，跌330元。
+新能源车“肥胖症”导致车宽超过标准停车位，停车难、开门难；车重导致路面损耗加剧，道路养护成本上升。
 
-宏观层面，特朗普宣称伊朗同意长期接受最高级别涉核检查，美方允许霍尔木兹海峡保持开放并发放60天伊朗石油销售许可，解冻资金专用于采购美国农产品与医疗物资，但伊朗外交部强调资金使用不受限制、依国家利益决定——这属典型“执行层面默契、文本各说各话”，实质推进了海峡重开与战事降温。
+而AI界的“token通胀”，并未带来实际生产力提升；算力资源虚耗惊人，带来电力等能源大量浪费。
 
-阿曼与IMO协调开辟临时航道。
+好在行业开始“刹车”。
 
-美元指数受美联储加息预期升温推动触及13个月高位，压制美元计价工业金属估值。
+汽车业呼吁“减肥”，有关部门也通过标准、规范性文件等引导企业把握好“大”与“好”、“重”与“优”的关系，更加注重技术创新和差异化发展。
 
 ## 相关推荐
 
-- 2026-06-30 09:13 - 道友？你来真的啊？【凡人官方二创大会】<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md
-- 2026-06-30 09:10 - FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md
-- 2026-06-30 08:58 - 蜘蛛侠:英雄归来<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md
-- 2026-06-30 08:55 - 【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md
-- 2026-06-30 09:16 - 歌剧老师锐评歌手第6期<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md
-- 2026-06-30 08:54 - 承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md
-- 2026-06-30 09:12 - 球评巴西绝杀逆转日本<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md
-- 2026-06-30 09:17 - 花少8要去世界杯举办国<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md
-- 2026-06-30 09:02 - 人可以极简主义到什么程度？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md
-- 2026-06-30 09:22 - Melo向柳智敏张元英道歉<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md
-- 2026-06-30 08:54 - 穆祉丞回应获年度人气艺人<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md
-- 2026-06-30 09:12 - 周冬雨多次说演不了话剧文城<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md
-- 2026-06-30 09:15 - 天道<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md
-- 2026-06-30 08:55 - “中国养猪场都用上空调了”！这是真的吗？【主播说三农】<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md
-- 2026-06-30 09:17 - 豆包收费了，你还会用吗？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md
+- 2026-06-30 09:26 - 女儿从清华毕业 爸爸晒出17年对比照<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md
+- 2026-06-30 09:19 - 斛珠夫人<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md
+- 2026-06-30 09:12 - 国务院：稳步推进研究生考试招生改革<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md
+- 2026-06-30 09:11 - 健全中小学教师工资长效联动机制<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md
+- 2026-06-30 09:26 - 2021江苏卫视跨年演唱会<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md
+- 2026-06-30 09:14 - 领克07GT搭载超跑同源MRC悬架<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md
+- 2026-06-30 09:02 - 尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md
+- 2026-06-30 09:16 - 杨紫获白玉兰视后为何争议难平<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md
+- 2026-06-30 09:02 - 爱直接对嘴喝饮料的人天塌了<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md
+- 2026-06-30 09:06 - 高考结束了，你会让孩子在家玩手机吗？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:19 - 有人见过武则天的画像吗，非常好奇？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/47946843.shtml
-- 2026-06-30 08:54 - 覃予萱晋级WTT美国大满贯女单32强<br><br> | ??:http://www.share.minike.top/Article/details/4806969570.shtml
-- 2026-06-30 08:58 - “柠檬茶能换怀表？”<br><br> | ??:http://www.share.minike.top/Article/details/829153.shtml
-- 2026-06-30 08:55 - "超算小姐，这一次，我一定要带你出去..."<br><br> | ??:https://www.share.minike.top/Article/details/3819396.shtml
-- 2026-06-30 09:22 - 如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/9950229.shtml
-- 2026-06-30 09:05 - 恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/5437367694.shtml
-- 2026-06-30 09:07 - 马航370搜寻最新消息<br><br> | ??:http://www.blog.minike.top/Article/details/68589432239.shtml
-- 2026-06-30 09:11 - 电影抓特务上映11天破亿<br><br> | ??:http://www.blog.minike.top/Article/details/278707.shtml
-- 2026-06-30 09:14 - 王菲谢霆锋十指紧扣好甜<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/809616.shtml
-- 2026-06-30 09:11 - 马航370搜寻最新消息<br><br> | ??:http://www.share.kurohicncr.top/Article/details/57536418486.shtml
-- 2026-06-30 09:06 - “以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》<br><br> | ??:http://www.blog.minike.top/Article/details/87685572.shtml
-- 2026-06-30 09:21 - 国务院：探索延长义务教育年限<br><br> | ??:http://www.blog.minike.top/Article/details/741952.shtml
-- 2026-06-30 09:06 - 未来五年，教育强国这样建设<br><br> | ??:https://www.share.kurohicncr.top/Article/details/29145016.shtml
-- 2026-06-30 09:13 - 这些7月新规影响你我<br><br> | ??:http://www.share.minike.top/Article/details/24793148.shtml
-- 2026-06-30 08:55 - 点球淘汰德国 巴拉圭首都陷入疯狂<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/8542722965.shtml
+- 2026-06-30 09:21 - 披荆斩棘的哥哥<br><br> | ??:https://www.share.kurohicncr.top/Article/details/967039084135.shtml
+- 2026-06-30 09:26 - 孙兴慜发长文致歉<br><br> | ??:http://www.blog.minike.top/Article/details/68997.shtml
+- 2026-06-30 09:04 - 巴西把自己踢晕了<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/54105639226.shtml
+- 2026-06-30 09:24 - 网红峡谷5人溺亡 有人提醒会下雨<br><br> | ??:https://www.share.minike.top/Article/details/81803.shtml
+- 2026-06-30 09:24 - 德国 传控<br><br> | ??:https://www.blog.minike.top/Article/details/3730280428.shtml
+- 2026-06-30 09:20 - 巴西把自己踢晕了<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/1916306.shtml
+- 2026-06-30 09:13 - “柠檬茶能换怀表？”<br><br> | ??:https://www.blog.minike.top/Article/details/2840620.shtml
+- 2026-06-30 09:23 - 2026年WTT美国大满贯，国乒自带球桌是真实的吗？<br><br> | ??:http://www.share.minike.top/Article/details/67078.shtml
+- 2026-06-30 09:28 - 花少8要去世界杯举办国<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/14236405.shtml
+- 2026-06-30 09:22 - 为什么会有「念旧」的心理？<br><br> | ??:http://www.share.minike.top/Article/details/901963759.shtml
+- 2026-06-30 09:05 - 王楚钦孙颖莎晋级混双八强<br><br> | ??:http://www.share.minike.top/Article/details/63304837800.shtml
+- 2026-06-30 09:11 - 国内最大沙漠发洪水意味着什么<br><br> | ??:https://www.blog.minike.top/Article/details/5543858715.shtml
+- 2026-06-30 09:13 - 超神人辉夜姬 第二集<br><br> | ??:https://www.blog.minike.top/Article/details/920889637.shtml
+- 2026-06-30 09:18 - 三星投资计划<br><br> | ??:https://www.share.minike.top/Article/details/538168799.shtml
+- 2026-06-30 09:28 - 为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/78764755.shtml

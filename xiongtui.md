@@ -1,56 +1,56 @@
-# 云南玉溪警方通报“未牵绳犬只扑抱小孩”
+# 巧手匠心融两岸 “闽台疆”三地青年木垒制作新疆小羊寄深情
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-中新网6月24日电 据“红塔警方”微信公众号消息，云南玉溪市公安局红塔分局24日发布警情通报称，6月22日19时许，玉溪市公安局红塔分局接到詹某冬(女，33岁)报警称，其小孩被一只未牵绳的黑色犬扑抱。接警后，民警迅速赶到现场处置，犬只主人曹某欣(女，22岁)向詹某冬道歉，随后双方被劝离。6月23日0时许，曹某欣的哥哥曹某田(男，27岁)向公安机关反映，其家人在6月22日遛狗期间
+发布时间：2026年06月20日 16:30 来源：中国新闻网 6月18日，“石榴花开·三山青年同心行” 文化交流活动中，两岸青年在新疆木垒县体验手工制作新疆小羊，以创意巧手传递心意，尽显两岸温情与文化乐趣。 活动现场，台湾青年们兴致勃勃地装饰小羊，尽情发挥创意。有人将亮钻点缀羊角，戏称给小羊戴上同款耳环；有人偏爱紫色，搭配同色系服饰精心装扮；还有人独创 “台湾杰克版小羊”，赋
 
 ## 正文
 
-中新网6月24日电 据“红塔警方”微信公众号消息，云南玉溪市公安局红塔分局24日发布警情通报称，6月22日19时许，玉溪市公安局红塔分局接到詹某冬(女，33岁)报警称，其小孩被一只未牵绳的黑色犬扑抱。
+发布时间：2026年06月20日 16:30 来源：中国新闻网 6月18日，“石榴花开·三山青年同心行” 文化交流活动中，两岸青年在新疆木垒县体验手工制作新疆小羊，以创意巧手传递心意，尽显两岸温情与文化乐趣。
 
-接警后，民警迅速赶到现场处置，犬只主人曹某欣(女，22岁)向詹某冬道歉，随后双方被劝离。
+活动现场，台湾青年们兴致勃勃地装饰小羊，尽情发挥创意。
 
-6月23日0时许，曹某欣的哥哥曹某田(男，27岁)向公安机关反映，其家人在6月22日遛狗期间与他人产生纠纷的视频被发到网上，侵犯其家人权利。
+有人将亮钻点缀羊角，戏称给小羊戴上同款耳环；有人偏爱紫色，搭配同色系服饰精心装扮；还有人独创 “台湾杰克版小羊”，赋予其 “突飞猛进” 的美好寓意，更借大红大紫的配色送上祝福，趣味十足。
 
-公安机关随即开展调查核查。
+大家随心创作、欢声笑语不断，亲手打造的小羊各具特色、可爱灵动。
 
-经全面调查，双方当事人行为分别违反《中华人民共和国治安管理处罚法》第八十九条第一款、第五十条第一款第二项规定。
+不少青年表示，要将这份专属手工礼物带回台湾，送给母亲和好友，把在新疆的美好体验与真挚心意一同传递。
 
-鉴于情节轻微、未造成严重后果，符合治安调解适用条件，公安机关根据双方当事人提出的书面调解申请，依法组织调解。
+此次手工体验，让两岸青年在动手创作中拉近距离，以小小萌羊为媒，架起温情交流的桥梁，尽显同心相融的美好情谊。
 
-目前，双方已自愿达成调解协议。
-
-请广大网友不造谣、不信谣、不传谣，共同构建和谐清朗的网络空间和文明和谐的社会环境。
+(储旭 左丹丹 制作 侯诗蕊) 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-30 09:01 - 有人见过武则天的画像吗，非常好奇？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md
-- 2026-06-30 08:55 - 极端热浪席卷欧洲多国，热一热百姓让领导先凉快？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md
-- 2026-06-30 09:22 - 阿娇瘦了10斤<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md
-- 2026-06-30 09:04 - F1奥地利站赛后复盘<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md
-- 2026-06-30 09:14 - 你人生中最艰难的时候是怎么熬过来的？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md
-- 2026-06-30 09:06 - 81岁老人被男子买光菜回家车祸去世<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md
-- 2026-06-30 09:17 - 蔚来回应高压水枪洗车掉漆<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md
-- 2026-06-30 09:17 - 亚洲球队全部告别世界杯<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md
-- 2026-06-30 09:13 - “中国养猪场都用上空调了”！这是真的吗？【主播说三农】<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md
-- 2026-06-30 08:58 - 欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md
+- 2026-06-30 09:03 - 人可以极简主义到什么程度？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md
+- 2026-06-30 09:27 - 金牌调解<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md
+- 2026-06-30 09:16 - 哪部作品、哪本书、哪首歌，值得被一直传下去？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md
+- 2026-06-30 09:07 - 荷兰vs摩洛哥<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md
+- 2026-06-30 09:12 - FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md
+- 2026-06-30 09:15 - 消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md
+- 2026-06-30 09:03 - iPhone18e曝光<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md
+- 2026-06-30 09:29 - 教育部披露：高考生篡改7名同学志愿<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md
+- 2026-06-30 09:05 - 卡塞米罗头球破门<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md
+- 2026-06-30 09:15 - 国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md
+- 2026-06-30 09:06 - “荒唐”背后的韩国足球<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md
+- 2026-06-30 09:17 - 王源近几年没有路演了<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:04 - 日本球员说被绝杀非常不甘心<br><br> | ??:https://www.share.minike.top/Article/details/7087904.shtml
-- 2026-06-30 09:15 - 第一次对自信的力量有了实感<br><br> | ??:https://www.share.kurohicncr.top/Article/details/338654446170.shtml
-- 2026-06-30 09:17 - 《贺子珍》<br><br> | ??:https://www.share.kurohicncr.top/Article/details/25952.shtml
-- 2026-06-30 09:00 - 主人解开狗绳2只狗将路人撕咬致死<br><br> | ??:https://www.share.minike.top/Article/details/91516458907.shtml
-- 2026-06-30 08:55 - 起风了<br><br> | ??:http://www.share.minike.top/Article/details/196963269385.shtml
-- 2026-06-30 09:09 - 你的妻子大喷菇—《植物娘大战僵尸》特别篇<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/2023126585.shtml
-- 2026-06-30 09:09 - 尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」<br><br> | ??:http://www.blog.minike.top/Article/details/448871344362.shtml
-- 2026-06-30 09:01 - 杨紫学位证上就是杨紫<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/51138376183.shtml
-- 2026-06-30 09:09 - 女子清吧被陌生人投放伟哥<br><br> | ??:https://www.share.kurohicncr.top/Article/details/3825291647.shtml
-- 2026-06-30 09:05 - 马耳他著名拱门坍塌致中国男子身亡<br><br> | ??:http://www.share.minike.top/Article/details/695351.shtml
-- 2026-06-30 09:15 - 郑钦文温网一轮游<br><br> | ??:http://www.blog.minike.top/Article/details/1323295902.shtml
-- 2026-06-30 09:10 - 日耳曼拖拉机<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/6422825293.shtml
-- 2026-06-30 09:04 - 日本队主帅道歉<br><br> | ??:http://www.blog.minike.top/Article/details/53462946.shtml
-- 2026-06-30 09:12 - 卡塞米罗头球破门<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/347631960.shtml
-- 2026-06-30 08:56 - 男子醉酒溺水获救后同行人拒协助抬人<br><br> | ??:http://www.share.minike.top/Article/details/639567450.shtml
+- 2026-06-30 09:07 - 花少8要去世界杯举办国<br><br> | ??:http://www.share.kurohicncr.top/Article/details/75072262.shtml
+- 2026-06-30 09:03 - 4种红薯的满分吃法！有手就会…但能让你大为震撼！<br><br> | ??:https://www.share.minike.top/Article/details/0862386.shtml
+- 2026-06-30 09:27 - 终于把好哥们处成了情侣!<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/464988.shtml
+- 2026-06-30 09:01 - 有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？<br><br> | ??:https://www.share.minike.top/Article/details/788736.shtml
+- 2026-06-30 09:08 - 亚洲球队全部出局<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/82460.shtml
+- 2026-06-30 09:07 - 外国游客开始涌入中国农村<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/2528861.shtml
+- 2026-06-30 09:23 - 贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/383475663720.shtml
+- 2026-06-30 09:27 - 网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？<br><br> | ??:http://www.share.minike.top/Article/details/9683634.shtml
+- 2026-06-30 09:25 - 日本五次世界杯淘汰赛全败<br><br> | ??:http://www.blog.minike.top/Article/details/99343600.shtml
+- 2026-06-30 09:23 - 歌剧老师锐评歌手第6期<br><br> | ??:https://www.blog.minike.top/Article/details/008625.shtml
+- 2026-06-30 09:28 - 古代时期普通老百姓能喝上酒吗？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/57187050.shtml
+- 2026-06-30 09:02 - 王菲谢霆锋十指紧扣好甜<br><br> | ??:http://www.share.minike.top/Article/details/1981370172.shtml
+- 2026-06-30 09:14 - “中国养猪场都用上空调了”！这是真的吗？【主播说三农】<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/373287836127.shtml
+- 2026-06-30 09:01 - 现在叛逆期的孩子最怕的是什么？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/828414446.shtml
+- 2026-06-30 09:14 - 美加墨世界杯：亚洲足球的得意与失意<br><br> | ??:https://www.share.kurohicncr.top/Article/details/7795286799.shtml

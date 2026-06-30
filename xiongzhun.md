@@ -1,59 +1,61 @@
-# 金价震荡！工行、建行公告：即将关闭，尽快卖出或平仓
+# 中信银行“稳稳+族”添新品，绩优“固收+” 景顺长城景颐裕利入选
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-来源：中国经营报 6月25日下午，现货黄金短线拉升至4000美元/盎司，随后有所回落，现报3982.718美元/盎司，跌0.23%；现货白银现报57.206美元/盎司，跌0.29%。 国内金饰价持续下调。6月25日，部分品牌克价距离年初高点跌近500元，跌幅超28%。老凤祥报价1215元/克，较前一日下降26元，克价距离年初高点跌498元；周生生报价1221元/克，较前一日下降
+近年来，市场利率持续走弱，存款等传统理财收益普遍下行，而权益市场主要表现为结构性机会，单边投资难度上升。而“固收+”这类配置型产品，一方面以波动较小的债券作为底仓，同时再搭配小部分权益资产捕捉市场机会，能够较好地满足普通投资者的配置需求。对于这一市场趋势，中信银行整合多方优质资源，推出全新“稳稳+族”财富产品系列，依靠分层清晰的产品矩阵，为普通投资者打造了一站式资产配置解决方案
 
 ## 正文
 
-来源：中国经营报 6月25日下午，现货黄金短线拉升至4000美元/盎司，随后有所回落，现报3982.718美元/盎司，跌0.23%；现货白银现报57.206美元/盎司，跌0.29%。
+近年来，市场利率持续走弱，存款等传统理财收益普遍下行，而权益市场主要表现为结构性机会，单边投资难度上升。
 
-国内金饰价持续下调。
+而“固收+”这类配置型产品，一方面以波动较小的债券作为底仓，同时再搭配小部分权益资产捕捉市场机会，能够较好地满足普通投资者的配置需求。
 
-6月25日，部分品牌克价距离年初高点跌近500元，跌幅超28%。
+对于这一市场趋势，中信银行整合多方优质资源，推出全新“稳稳+族”财富产品系列，依靠分层清晰的产品矩阵，为普通投资者打造了一站式资产配置解决方案。
 
-老凤祥报价1215元/克，较前一日下降26元，克价距离年初高点跌498元；周生生报价1221元/克，较前一日下降19元，克价距离年初高点跌487元；周大福、六福分别报价1222元/克、1220元/克，较前一日均下降16元，克价距离年初高点分别跌约478元、480元。
+据介绍，中信银行“稳稳+族”产品系列有两大核心板块：首个“稳”对应银行理财赛道的稳睿+系列，第二个“稳”对应基金赛道的稳盈、稳进系列，理财、基金双赛道协同发力，形成层次分明、攻守均衡的一体化配置体系。
 
-近日，在部分银行大幅上调代理上海黄金交易所个人贵金属交易延期合约保证金比例后，有银行宣布将关闭相关业务。
+作为优秀“固收+”基金，景顺长城景颐裕利入选了基金赛道中的稳进-低波系列。
 
-6月25日，建设银行发布《关于代理上海黄金交易所个人贵金属交易业务近期安排的公告》。
+Wind数据显示，景顺长城景颐裕利为二级债基，由景顺长城副总经理毛从容与团队成员陈莹、汪澳共同管理。
 
-公告称，建设银行将于7月24日日终清算时起关闭代理上海黄金交易所个人贵金属交易业务功能。
+作为景顺长城固收领军人物，毛从容投资经验超20年，擅长从宏观运行趋势和相对估值中把握大类资产配置方向；陈莹善于捕捉信用债的交易机会，以及把握股票行业轮动的机会；汪澳则精通结合组合负债端特点，调节组合风险与收益特征。
 
-关闭的业务品种包括：Au99.99、Au100g、PGC30g、Au、mAu、Ag等。
+业绩表现上，Wind数据显示，截至6月11日，景顺长城景颐裕利近六个月、近一年、近两年的回报分别为3.33%、7.80%、12.40%，同基基准分别为1.75%、3.01%、9.71%，超额收益明显。
 
 ## 相关推荐
 
-- 2026-06-30 09:02 - 蔚来回应高压水枪洗车掉漆<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md
-- 2026-06-30 09:00 - 未来的飞机可能会用电吗？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md
-- 2026-06-30 08:57 - 这一刀 会很帅<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md
-- 2026-06-30 09:19 - MSI应援曲 如果季中成回忆<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md
-- 2026-06-30 08:56 - 为什么很多企业推行“扁平化管理”后，效率反而下降了？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md
-- 2026-06-30 09:05 - 妻子撞死家暴丈夫案二审案情反转<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md
-- 2026-06-30 09:09 - 【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md
-- 2026-06-30 09:20 - 如何评价《龙之家族》第三季第二集？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md
-- 2026-06-30 09:08 - 内马尔安慰日本球员<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md
-- 2026-06-30 09:24 - 马宁怒怼巴拉圭教练组<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md
-- 2026-06-30 09:06 - 时光音乐会<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md
-- 2026-06-30 09:20 - 7月1日起 一批新规即将落地<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md
-- 2026-06-30 09:14 - HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md
+- 2026-06-30 09:28 - 未来五年，教育强国这样建设<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md
+- 2026-06-30 09:07 - 发明linux、python、redis、nginx、sqlite的人算不算天才？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md
+- 2026-06-30 09:04 - 李准基参加文彩元婚礼<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md
+- 2026-06-30 09:25 - 巴拉圭先进球了<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md
+- 2026-06-30 09:08 - 世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md
+- 2026-06-30 09:01 - 国务院：稳步推进研究生考试招生改革<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md
+- 2026-06-30 09:10 - 手底下人带不动怎么办？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md
+- 2026-06-30 09:07 - 德国 传控<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md
+- 2026-06-30 09:08 - 孙兴慜道歉<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md
+- 2026-06-30 09:10 - AI手机进入Agent时代<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md
+- 2026-06-30 09:00 - 为什么小组赛出局会让韩国人破防<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md
+- 2026-06-30 09:05 - 4000美元是黄金新一轮下跌的开始吗<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md
+- 2026-06-30 09:26 - 国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md
+- 2026-06-30 09:24 - 美加墨世界杯：亚洲足球的得意与失意<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md
+- 2026-06-30 09:09 - 王濛回复黄灿灿<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:59 - 男子中医院拔火罐致浅2度烧伤<br><br> | ??:https://www.share.kurohicncr.top/Article/details/21242871826.shtml
-- 2026-06-30 09:05 - 我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎<br><br> | ??:https://www.share.kurohicncr.top/Article/details/38786142895.shtml
-- 2026-06-30 09:21 - 卡塞米罗头球破门<br><br> | ??:https://www.share.kurohicncr.top/Article/details/21118.shtml
-- 2026-06-30 08:54 - 外国游客开始涌入中国农村<br><br> | ??:https://www.share.minike.top/Article/details/982229886522.shtml
-- 2026-06-30 08:59 - 第一次对自信的力量有了实感<br><br> | ??:https://www.blog.minike.top/Article/details/01258.shtml
-- 2026-06-30 09:01 - 警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？<br><br> | ??:http://www.share.minike.top/Article/details/38655650.shtml
-- 2026-06-30 09:00 - 电影抓特务上映11天破亿<br><br> | ??:http://www.blog.minike.top/Article/details/2842008698.shtml
-- 2026-06-30 08:54 - 为什么香港的冲厕水是咸的？<br><br> | ??:http://www.share.minike.top/Article/details/91672850269.shtml
-- 2026-06-30 08:57 - 我把队友的7连跪剪成了艺术<br><br> | ??:http://www.share.kurohicncr.top/Article/details/35795203839.shtml
-- 2026-06-30 09:01 - 【硬核拆解】汽车人到底离我们有多远？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/05393401.shtml
-- 2026-06-30 09:07 - 免费试吃发差评被店家挂店门避雷<br><br> | ??:https://www.share.minike.top/Article/details/67151931.shtml
-- 2026-06-30 09:23 - 第3集丨“柠檬茶能换怀表？”<br><br> | ??:http://www.share.minike.top/Article/details/65220.shtml
-- 2026-06-30 09:18 - 欧洲空调卖疯了 下一个爆款是储能吗<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/15077391.shtml
-- 2026-06-30 09:19 - 普京为何将俄乌谈判时间表与伊朗挂钩<br><br> | ??:http://www.share.kurohicncr.top/Article/details/20941397.shtml
-- 2026-06-30 09:10 - 马宁怒怼巴拉圭教练组<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/024762.shtml
+- 2026-06-30 09:13 - 四川宜宾地震瞬间鱼群乱跳<br><br> | ??:http://www.blog.minike.top/Article/details/60158.shtml
+- 2026-06-30 09:21 - 泰山景区建135公里刀片刺绳隔离网<br><br> | ??:http://www.share.minike.top/Article/details/2360883998.shtml
+- 2026-06-30 09:17 - 王欣瑜连续4年晋级温网第二轮<br><br> | ??:http://www.share.minike.top/Article/details/133791.shtml
+- 2026-06-30 09:24 - 王楚钦孙颖莎混双对手产生<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/2901171.shtml
+- 2026-06-30 09:03 - 日本主帅：未能夺冠深感抱歉<br><br> | ??:https://www.share.minike.top/Article/details/93104910.shtml
+- 2026-06-30 09:05 - 电影抓特务上映11天破亿<br><br> | ??:https://www.share.minike.top/Article/details/067696853652.shtml
+- 2026-06-30 09:01 - 啊啊啊<br><br> | ??:https://www.share.kurohicncr.top/Article/details/05058.shtml
+- 2026-06-30 09:07 - 亚洲球队全部出局<br><br> | ??:https://www.blog.minike.top/Article/details/96510444.shtml
+- 2026-06-30 09:00 - 浪姐成团夜爆笑吐槽<br><br> | ??:https://www.share.minike.top/Article/details/9250769.shtml
+- 2026-06-30 09:27 - 恋与深空道歉声明<br><br> | ??:http://www.share.minike.top/Article/details/57439.shtml
+- 2026-06-30 09:27 - 房价什么时候能涨<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/48089307264.shtml
+- 2026-06-30 09:26 - 领克900大型SUV值得购买吗?<br><br> | ??:http://www.blog.minike.top/Article/details/46903.shtml
+- 2026-06-30 09:28 - 把毒品藏在哪里，60秒内不会被发现？<br><br> | ??:https://www.share.minike.top/Article/details/97214838164.shtml
+- 2026-06-30 09:26 - 巴拉圭门将<br><br> | ??:https://www.blog.minike.top/Article/details/260831058283.shtml
+- 2026-06-30 09:16 - 泰山景区建135公里刀片刺绳隔离网<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/972739631707.shtml

@@ -1,58 +1,60 @@
-# “买车要趁早，涨价是大概率的事” 岚图董事长卢放：有些品牌发布会，把行业风气都破坏了
+# 逼空式暴涨！寒武纪猛攻14%望向万亿市值，10余股历史新高，费率较低的科创芯片ETF华宝（589190）再涨4.46%
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-专题：2026第十七届夏季达沃斯论坛 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！文 | 新浪财经 刘丽丽 在世界经济论坛第十七届新领军者年会期间，新浪财经对话岚图汽车董事长、党委书记卢放。 对于汽车圈“不服就直播”的风气，卢放认为，这是好现象。部分汽车品牌合成视频、夸大宣传是欺骗消费者。针对车市价格战，他提醒，在原材料普涨背景下，汽车涨价是大概率事
+6月18日，科创芯片上演极限逼空行情，9000亿巨头寒武纪放量猛攻，涨幅最高超16%，收涨逾14%，股价站上1500元新高，收盘市值近9500亿元，距离“万亿俱乐部”仅一步之遥。华虹宏力盘中涨超12%收涨逾6%；海光信息涨超6%，中芯国际、佰维存储涨超4%。华虹宏力、佰维存储、中船特气、杰华特等10余股批量新高。 全“芯”布局芯片产业、成份股更硬核的科创芯片ETF华宝（5891
 
 ## 正文
 
-专题：2026第十七届夏季达沃斯论坛 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+6月18日，科创芯片上演极限逼空行情，9000亿巨头寒武纪放量猛攻，涨幅最高超16%，收涨逾14%，股价站上1500元新高，收盘市值近9500亿元，距离“万亿俱乐部”仅一步之遥。
 
-文 | 新浪财经 刘丽丽 在世界经济论坛第十七届新领军者年会期间，新浪财经对话岚图汽车董事长、党委书记卢放。
+华虹宏力盘中涨超12%收涨逾6%；海光信息涨超6%，中芯国际、佰维存储涨超4%。
 
-对于汽车圈“不服就直播”的风气，卢放认为，这是好现象。
+华虹宏力、佰维存储、中船特气、杰华特等10余股批量新高。
 
-部分汽车品牌合成视频、夸大宣传是欺骗消费者。
+全“芯”布局芯片产业、成份股更硬核的科创芯片ETF华宝（589190）场内价格一度涨超5%，收涨4.46%，连续刷新上市以来新高！
 
-针对车市价格战，他提醒，在原材料普涨背景下，汽车涨价是大概率事件，建议消费者买车趁早。
+值得一提的是，在今年以来的芯片半导体行情中，科创芯片表现出不俗的上涨进攻性。
 
-同时他表示，现在有些品牌的发布会，“虚假夸大博眼球搞噱头，把行业风气搞坏了”。
+上证科创板芯片指数年内累计上涨76.55%，在同类半导体芯片指数中表现较优。
 
-“有些品牌发布会虚假夸大，风气都搞坏了” 近日有车企董事长表示，汽车行业进入了一个“不服就直播”的状态，对此卢放表示，这是个好现象。
+注：上证科创板芯片指数近5个完整年度涨跌幅为2021年 6.87%，2022年 -33.69%，2023年 7.26%，2024年 34.52%，2025年 61.33%，指数成份股构成根据该指数编制规则适时调整，其回测历史业绩不预示指数未来表现。
 
-卢放直言，过去行业里一些产品宣传里存在合成的内容，一些企业会过度宣传、夸张宣传，甚至用AI合成视频或者剪辑来完成，“那是虚假宣传，实际上是对消费者的欺骗，不诚实不真诚。
+行情驱动上，头部云厂商正在加量采购国产芯片。
 
 ## 相关推荐
 
-- 2026-06-30 09:15 - 81岁老人被男子买光菜回家车祸去世<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md
-- 2026-06-30 09:03 - 四川凉山落石砸毁车辆 3人遇难<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md
-- 2026-06-30 08:55 - 曝詹姆斯即将与勇士会面<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md
-- 2026-06-30 09:23 - 王楚钦孙颖莎vs皮斯特耶库库洛娃<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md
-- 2026-06-30 09:05 - 诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md
-- 2026-06-30 09:21 - 你这一辈子有没有为进山姆拼过命？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md
-- 2026-06-30 09:21 - 世界杯：荷兰vs摩洛哥<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md
-- 2026-06-30 09:14 - 大蒜晒外面被路过女子连盆端走<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md
-- 2026-06-30 09:23 - 美团、淘宝闪购、京东外卖达成共识<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md
-- 2026-06-30 08:55 - 谢依霖说杨幂是聚会第一把张罗手<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md
-- 2026-06-30 09:15 - 被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md
-- 2026-06-30 09:10 - 勇士续约波尔津吉斯<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md
+- 2026-06-30 09:09 - F1奥地利站赛后复盘<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md
+- 2026-06-30 09:29 - 速度与激情9<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md
+- 2026-06-30 09:04 - 蜘蛛侠:英雄归来<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md
+- 2026-06-30 09:11 - 恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md
+- 2026-06-30 09:23 - 荷兰vs摩洛哥<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md
+- 2026-06-30 09:22 - 如何看待武亮说大学生生活费1500就够用这一言论？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md
+- 2026-06-30 09:12 - 考入南大计算机，复读考清北值吗？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md
+- 2026-06-30 09:11 - 金刚川<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md
+- 2026-06-30 09:00 - 德国队世界杯点球大战首败<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md
+- 2026-06-30 09:11 - 【大鸣王潮1566】真拿你没办法<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md
+- 2026-06-30 09:19 - 房价什么时候能涨<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md
+- 2026-06-30 09:11 - 流金岁月<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md
+- 2026-06-30 09:21 - 《虎吹最难绷の一集》<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md
+- 2026-06-30 09:09 - 世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:10 - iPhone18e曝光<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/92644630.shtml
-- 2026-06-30 09:18 - 2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/483360351311.shtml
-- 2026-06-30 09:20 - 德国 传控<br><br> | ??:https://www.blog.minike.top/Article/details/802031.shtml
-- 2026-06-30 08:58 - 挪威国家队紧急从本土订购大批海鲜<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/45687.shtml
-- 2026-06-30 09:13 - 吴启华卖肖像权拍AI电影<br><br> | ??:https://www.share.minike.top/Article/details/356417378.shtml
-- 2026-06-30 09:03 - 吴启华卖肖像权拍AI电影<br><br> | ??:https://www.share.kurohicncr.top/Article/details/0822057726.shtml
-- 2026-06-30 09:07 - 杨紫学位证上就是杨紫<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/335687.shtml
-- 2026-06-30 09:02 - 上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/388837218122.shtml
-- 2026-06-30 09:10 - 董路：谁赢谁是“正路子”<br><br> | ??:https://www.blog.minike.top/Article/details/06275373858.shtml
-- 2026-06-30 08:57 - 日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？<br><br> | ??:http://www.blog.minike.top/Article/details/0612073877.shtml
-- 2026-06-30 08:56 - 佐野海舟远射破门<br><br> | ??:http://www.share.kurohicncr.top/Article/details/9468924214.shtml
-- 2026-06-30 09:03 - 莫兰特转投开拓者效力<br><br> | ??:https://www.share.minike.top/Article/details/90616916.shtml
-- 2026-06-30 09:04 - 已经看完《三国第一部：争洛阳》的人，如何评价这部电影？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/906616146917.shtml
-- 2026-06-30 08:59 - 恋与深空<br><br> | ??:https://www.share.kurohicncr.top/Article/details/8313641587.shtml
-- 2026-06-30 09:13 - 《共患难》<br><br> | ??:https://www.share.kurohicncr.top/Article/details/61178.shtml
+- 2026-06-30 09:25 - 斛珠夫人<br><br> | ??:https://www.share.kurohicncr.top/Article/details/71337401436.shtml
+- 2026-06-30 09:01 - 武磊：巴西队赢的并不轻松<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/703225087.shtml
+- 2026-06-30 09:10 - “以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》<br><br> | ??:https://www.share.kurohicncr.top/Article/details/24981.shtml
+- 2026-06-30 09:16 - 领克07GT搭载超跑同源MRC悬架<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/1585971207.shtml
+- 2026-06-30 09:05 - 4种红薯的满分吃法！有手就会…但能让你大为震撼！<br><br> | ??:http://www.share.minike.top/Article/details/816241503383.shtml
+- 2026-06-30 09:05 - 道友？你来真的啊？【凡人官方二创大会】<br><br> | ??:https://www.share.minike.top/Article/details/21735.shtml
+- 2026-06-30 09:00 - 沙丘<br><br> | ??:http://www.share.minike.top/Article/details/950222780.shtml
+- 2026-06-30 09:17 - 沙丘<br><br> | ??:https://www.share.kurohicncr.top/Article/details/6354077413.shtml
+- 2026-06-30 09:07 - 马耳他著名拱门坍塌致中国男子身亡<br><br> | ??:https://www.share.kurohicncr.top/Article/details/45555054217.shtml
+- 2026-06-30 09:01 - 有哪些值得一提的生活窍门？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/710798882814.shtml
+- 2026-06-30 09:25 - 中国代表在联合国点名日本所犯罪行<br><br> | ??:https://www.share.kurohicncr.top/Article/details/9192880578.shtml
+- 2026-06-30 09:03 - 被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】<br><br> | ??:http://www.blog.minike.top/Article/details/5322227.shtml
+- 2026-06-30 09:21 - 德国爆冷点球大战不敌巴拉圭<br><br> | ??:http://www.share.kurohicncr.top/Article/details/792327099665.shtml
+- 2026-06-30 09:26 - 一生一世<br><br> | ??:https://www.share.minike.top/Article/details/32793.shtml
+- 2026-06-30 09:09 - 网红峡谷5人溺亡 有人提醒会下雨<br><br> | ??:https://www.share.kurohicncr.top/Article/details/781158.shtml

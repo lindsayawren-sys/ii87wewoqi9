@@ -1,56 +1,56 @@
-# 百余所高校在沪直面考生家庭答疑 助力考生科学填报高考志愿
+# 美、伊、巴三方谈判代表均已抵达瑞士
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-中新网上海6月24日电(记者 许婧)6月23日，2026年上海高考放榜。知分知位后，如何填报志愿？6月24日，上海市普通高校志愿填报咨询会在上海杉达学院金海校区举办。活动吸引近8000组考生家庭近2万人预约参与，全国124所本科高校的招生工作人员面对面为考生和家长答疑。 据了解，本次咨询会汇集了包括复旦大学、上海交通大学、同济大学、中国科学技术大学、浙江大学、武汉大学等全国12
+当地时间21日，综合多方消息，伊朗谈判代表团、美国副总统万斯、巴基斯坦总理等三方代表均已抵达瑞士，准备开启技术性谈判。 △瑞士外交部发布的美国代表团车队照片 瑞士外交部在社交媒体上表示，美国代表团正在前往比尔根山的途中。 根据此前消息，万斯称美伊谈判重点为核问题与黎巴嫩停火；伊朗官员表示，结束黎巴嫩冲突是伊朗代表团此次议程中最重要的事项。 当地时间6月20日，巴基斯坦外交部宣布
 
 ## 正文
 
-中新网上海6月24日电(记者 许婧)6月23日，2026年上海高考放榜。
+当地时间21日，综合多方消息，伊朗谈判代表团、美国副总统万斯、巴基斯坦总理等三方代表均已抵达瑞士，准备开启技术性谈判。
 
-知分知位后，如何填报志愿？
+△瑞士外交部发布的美国代表团车队照片 瑞士外交部在社交媒体上表示，美国代表团正在前往比尔根山的途中。
 
-6月24日，上海市普通高校志愿填报咨询会在上海杉达学院金海校区举办。
+根据此前消息，万斯称美伊谈判重点为核问题与黎巴嫩停火；伊朗官员表示，结束黎巴嫩冲突是伊朗代表团此次议程中最重要的事项。
 
-活动吸引近8000组考生家庭近2万人预约参与，全国124所本科高校的招生工作人员面对面为考生和家长答疑。
+当地时间6月20日，巴基斯坦外交部宣布，根据美伊谅解备忘录的后续安排，技术层级会谈将于21日在瑞士举行。
 
-据了解，本次咨询会汇集了包括复旦大学、上海交通大学、同济大学、中国科学技术大学、浙江大学、武汉大学等全国124所本科高校。
+本次谈判地点在比尔根山度假村，由巴基斯坦、卡塔尔、美国和伊朗共同提议。
 
-上海市教育考试院专家也来到现场，与考生及家长面对面交流。
-
-活动还特邀权威专家提供免费“一对一”个性化志愿填报服务，上海市教育考试院原高招办主任及部分区教育考试中心资深专家针对性地为考生分析院校选择、志愿结构等问题。
-
-同时，哈尔滨工业大学、东华大学、华东理工大学、北京航空航天大学等16所高校举行了专场宣讲。
+（总台记者 易歆） 责任编辑：韦子蓉
 
 ## 相关推荐
 
-- 2026-06-30 08:54 - 李在明向韩国两大财阀90度鞠躬<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md
-- 2026-06-30 08:58 - 有什么好的高中网课推荐吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md
-- 2026-06-30 09:23 - 扬名立万<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md
-- 2026-06-30 09:14 - 莫兰特转投开拓者效力<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md
-- 2026-06-30 08:59 - 发明linux、python、redis、nginx、sqlite的人算不算天才？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md
-- 2026-06-30 09:00 - 沙丘<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md
-- 2026-06-30 08:57 - 巴西若输日本将创36年最差纪录<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md
-- 2026-06-30 09:04 - 怕iPhone涨价的用户已紧急换新<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md
-- 2026-06-30 09:08 - 湖北云南的这些涉汛信息都是假的<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md
-- 2026-06-30 09:05 - 我和我的家乡<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md
+- 2026-06-30 09:21 - 怕iPhone涨价的用户已紧急换新<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md
+- 2026-06-30 09:01 - 赛博朋克边缘行者2预告片<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md
+- 2026-06-30 09:28 - 老外对中国cosplay竟这样评价…<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md
+- 2026-06-30 09:09 - 花少8要去世界杯举办国<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md
+- 2026-06-30 09:04 - 科学备孕男女都要上心<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md
+- 2026-06-30 09:22 - 【硬核拆解】汽车人到底离我们有多远？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md
+- 2026-06-30 09:29 - iPhone18e曝光<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md
+- 2026-06-30 09:10 - 一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md
+- 2026-06-30 09:16 - 豆包收费了，你还会用吗？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md
+- 2026-06-30 09:06 - 如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md
+- 2026-06-30 09:04 - 委内瑞拉地震死亡人数升至1719人<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md
+- 2026-06-30 09:22 - “中国养猪场都用上空调了”！这是真的吗？【主播说三农】<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md
+- 2026-06-30 09:06 - 美股深夜大反弹 特斯拉飙涨8%<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md
+- 2026-06-30 09:21 - 美股收盘 热门中概股普涨<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:56 - 酒店推行“24小时退房”引热议<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/859211.shtml
-- 2026-06-30 08:59 - 董卿父亲报纸上发文悼念亡妻<br><br> | ??:https://www.share.kurohicncr.top/Article/details/67874227.shtml
-- 2026-06-30 09:00 - 法总统候选人：拒绝与中国激烈对抗<br><br> | ??:https://www.share.minike.top/Article/details/05840565487.shtml
-- 2026-06-30 09:13 - Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？<br><br> | ??:https://www.share.minike.top/Article/details/6645082985.shtml
-- 2026-06-30 09:17 - 国务院：鼓励行业龙头企业举办职校<br><br> | ??:http://www.blog.minike.top/Article/details/056115710.shtml
-- 2026-06-30 09:09 - 租房时你会更看重「住得舒服」，还是「每天通勤更方便」？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/7112595038.shtml
-- 2026-06-30 09:10 - 为什么小组赛出局会让韩国人破防<br><br> | ??:https://www.share.kurohicncr.top/Article/details/77595.shtml
-- 2026-06-30 09:23 - 日本队5进世界杯淘汰赛0胜<br><br> | ??:http://www.blog.minike.top/Article/details/735272547991.shtml
-- 2026-06-30 09:16 - Melo向柳智敏张元英道歉<br><br> | ??:https://www.share.kurohicncr.top/Article/details/691759231391.shtml
-- 2026-06-30 09:05 - "超算小姐，这一次，我一定要带你出去..."<br><br> | ??:http://www.share.minike.top/Article/details/22599712956.shtml
-- 2026-06-30 09:04 - 天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】<br><br> | ??:http://www.share.minike.top/Article/details/57447880668.shtml
-- 2026-06-30 08:57 - 湖北云南的这些涉汛信息都是假的<br><br> | ??:https://www.share.minike.top/Article/details/628294.shtml
-- 2026-06-30 09:22 - 「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/66316036589.shtml
-- 2026-06-30 09:05 - 对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来<br><br> | ??:https://www.share.kurohicncr.top/Article/details/768184.shtml
-- 2026-06-30 09:00 - 上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶<br><br> | ??:http://www.blog.minike.top/Article/details/31312875.shtml
+- 2026-06-30 09:12 - 大学生遇地震裹被子从5楼冲下<br><br> | ??:http://www.blog.minike.top/Article/details/31901973930.shtml
+- 2026-06-30 09:03 - 热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/01876222.shtml
+- 2026-06-30 09:23 - 李在明90度鞠躬感谢韩国两大财阀<br><br> | ??:http://www.share.kurohicncr.top/Article/details/1493462999.shtml
+- 2026-06-30 09:26 - 英语考了145的人竟然教数学<br><br> | ??:http://www.share.minike.top/Article/details/2019351.shtml
+- 2026-06-30 09:11 - 德国淘汰<br><br> | ??:https://www.share.kurohicncr.top/Article/details/79423.shtml
+- 2026-06-30 09:21 - 王菲谢霆锋十指紧扣好甜<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/4702651.shtml
+- 2026-06-30 09:08 - 本届世界杯已有5名球员被控强奸<br><br> | ??:https://www.share.kurohicncr.top/Article/details/886386.shtml
+- 2026-06-30 09:16 - 古代人对纳妾的态度是什么样的？<br><br> | ??:https://www.share.minike.top/Article/details/582330511.shtml
+- 2026-06-30 09:16 - hanser X 赖美云《室内系的Track Maker》<br><br> | ??:http://www.share.kurohicncr.top/Article/details/3207398813.shtml
+- 2026-06-30 09:22 - 杨紫被质疑未使用原名<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/65911334524.shtml
+- 2026-06-30 09:13 - hanser X 赖美云《室内系的Track Maker》<br><br> | ??:http://www.share.minike.top/Article/details/51354480294.shtml
+- 2026-06-30 09:15 - 巴西绝杀日本：漫画般结局换了主角<br><br> | ??:http://www.share.minike.top/Article/details/364983953.shtml
+- 2026-06-30 09:05 - 森保一致歉：世界第一目标没能实现<br><br> | ??:http://www.blog.minike.top/Article/details/966426945537.shtml
+- 2026-06-30 09:26 - 【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】<br><br> | ??:http://www.blog.minike.top/Article/details/096738932804.shtml
+- 2026-06-30 09:26 - 如何评价杨紫白玉兰获奖<br><br> | ??:https://www.share.kurohicncr.top/Article/details/966010660.shtml

@@ -1,59 +1,60 @@
-# 中美农业贸易互补性强，做大做稳符合双方利益
+# 纪念中国前驻法大使吴建民逝世十周年研讨会在巴黎举办
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-中新网北京6月25日电 农业贸易是中美经贸关系的重要组成部分，也是两国合作中基础最为扎实、需求最为稳定、互补性最为突出的领域之一。长期以来，美国是全球重要农产品出口国，中国是全球重要农产品进口国。美国农业规模化、机械化、商品化优势突出，中国市场容量大、消费层次丰富、进口需求多元。双方在大豆、玉米、棉花、肉类、乳制品、水产品等领域形成了较强互补关系。农业贸易既是中美经贸关系的“基
+中新网巴黎6月20日电 当地时间6月17日，为纪念中国前驻法国大使吴建民逝世十周年，法国“吴建民之友”协会、法国中法友谊互助协会在巴黎索邦大学共同举办“吴建民大使与我们”专题研讨会，中法各界逾百人出席。 法国前总理拉法兰、前外长韦德里纳、前驻华大使白林，法国文化部文化事务督察员鲁丽杰等分别在研讨会上致辞。吴建民女儿吴捷出席研讨会。 拉法兰表示，通过吴建民，让我们看到外交的真正本
 
 ## 正文
 
-中新网北京6月25日电 农业贸易是中美经贸关系的重要组成部分，也是两国合作中基础最为扎实、需求最为稳定、互补性最为突出的领域之一。
+中新网巴黎6月20日电 当地时间6月17日，为纪念中国前驻法国大使吴建民逝世十周年，法国“吴建民之友”协会、法国中法友谊互助协会在巴黎索邦大学共同举办“吴建民大使与我们”专题研讨会，中法各界逾百人出席。
 
-长期以来，美国是全球重要农产品出口国，中国是全球重要农产品进口国。
+法国前总理拉法兰、前外长韦德里纳、前驻华大使白林，法国文化部文化事务督察员鲁丽杰等分别在研讨会上致辞。
 
-美国农业规模化、机械化、商品化优势突出，中国市场容量大、消费层次丰富、进口需求多元。
+吴建民女儿吴捷出席研讨会。
 
-双方在大豆、玉米、棉花、肉类、乳制品、水产品等领域形成了较强互补关系。
+拉法兰表示，通过吴建民，让我们看到外交的真正本源。
 
-农业贸易既是中美经贸关系的“基本盘”，也是观察两国合作潜力的重要窗口。
+他始终践行通过对话促进和平的理念。
 
-5月13日，中美经贸双方牵头人在韩国举行经贸磋商，就解决彼此关注的经贸问题和进一步拓展务实合作进行了坦诚、深入、建设性的交流。
+韦德里纳表示，吴建民离开我们十年，世界已发生巨大变化，但他的思想依然具有现实意义。
 
-据了解，本次磋商在乳制品、水产品等农业贸易相关领域达成积极共识，解决了部分双方关注的问题，并就推动解决其他问题形成了明确方向。
+白林认为，吴建民具有非凡的倾听能力和与法国各界人士沟通的能力。
 
-这再次表明，只要双方坚持平等对话、相向而行，就能够在务实层面不断积累成果，为中美经贸关系稳定发展注入确定性。
+中国前外交官汪华，法国展望与创新基金会副主席卡泽纳夫，“吴建民中法青年创新创业奖学金”获得者、巴黎市议员陈家辉等与会者回顾了吴建民在推动中法文化交流、经贸合作和青年交往等方面所作努力，认为其倡导的开放包容、对话协商与合作共赢精神，对当前国际社会增进理解互信、促进共同发展仍具有重要启示意义。
 
 ## 相关推荐
 
-- 2026-06-30 09:18 - F1奥地利站赛后复盘<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md
-- 2026-06-30 09:08 - 我吃遍了西安最強的街頭小吃，第九家強得離譜！<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md
-- 2026-06-30 09:12 - 点球淘汰德国 巴拉圭首都陷入疯狂<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md
-- 2026-06-30 09:07 - AI手机进入Agent时代<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md
-- 2026-06-30 08:58 - 日本反击率先破门<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md
-- 2026-06-30 08:58 - 法媒点赞中国小区楼顶“人工降雨”<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md
-- 2026-06-30 08:57 - 王菲谢霆锋十指紧扣好甜<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md
-- 2026-06-30 09:18 - 世界杯<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md
-- 2026-06-30 09:00 - 女儿从清华毕业 爸爸晒出17年对比照<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md
-- 2026-06-30 09:01 - 道友？你来真的啊？【凡人官方二创大会】<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md
-- 2026-06-30 09:14 - 谢依霖说杨幂是聚会第一把张罗手<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md
-- 2026-06-30 08:57 - 一生一世<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md
-- 2026-06-30 09:18 - 4种红薯的满分吃法！有手就会…但能让你大为震撼！<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md
+- 2026-06-30 09:06 - 全网说丑的玫瑰空调卖了5万台<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md
+- 2026-06-30 09:28 - 这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md
+- 2026-06-30 09:29 - 这些7月新规影响你我<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md
+- 2026-06-30 09:26 - 男子中医院拔火罐致浅2度烧伤<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md
+- 2026-06-30 09:07 - 【硬核拆解】汽车人到底离我们有多远？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md
+- 2026-06-30 09:21 - 送你一朵小红花<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md
+- 2026-06-30 09:13 - 欧洲装一台空调有多难<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md
+- 2026-06-30 09:11 - 穆祉丞回应获年度人气艺人<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md
+- 2026-06-30 09:10 - 德国爆冷点球大战不敌巴拉圭<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md
+- 2026-06-30 09:02 - 首届《哈基米歌王争霸赛》总决赛<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md
+- 2026-06-30 09:12 - 郑钦文温网一轮游<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md
+- 2026-06-30 09:28 - 恋与深空<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md
+- 2026-06-30 09:02 - 《共患难》<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md
+- 2026-06-30 09:01 - 德国 传控<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:54 - 你这一辈子有没有为进山姆拼过命？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/08443642358.shtml
-- 2026-06-30 09:06 - 日本队被绝杀后鞠躬致谢观众<br><br> | ??:http://www.share.minike.top/Article/details/2430593.shtml
-- 2026-06-30 08:55 - 欧洲空调卖疯了 下一个爆款是储能吗<br><br> | ??:https://www.share.minike.top/Article/details/57873150642.shtml
-- 2026-06-30 09:09 - 现在叛逆期的孩子最怕的是什么？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/961323759829.shtml
-- 2026-06-30 09:01 - 深扒韩国队淘汰背后原因<br><br> | ??:http://www.share.kurohicncr.top/Article/details/0406262.shtml
-- 2026-06-30 09:19 - 点球淘汰德国 巴拉圭首都陷入疯狂<br><br> | ??:http://www.share.minike.top/Article/details/50953.shtml
-- 2026-06-30 09:02 - 可以细成这样？1600万预算，颠覆我认知的改造！<br><br> | ??:http://www.share.kurohicncr.top/Article/details/294516087.shtml
-- 2026-06-30 09:07 - 藤森庆子赢得秘鲁总统选举<br><br> | ??:https://www.share.kurohicncr.top/Article/details/37938647975.shtml
-- 2026-06-30 08:55 - 女儿从清华毕业 爸爸晒出17年对比照<br><br> | ??:https://www.share.kurohicncr.top/Article/details/757339431592.shtml
-- 2026-06-30 08:54 - 第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/378205865.shtml
-- 2026-06-30 09:19 - 女子健身不当 居然“脑子漏水”了<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/5166242.shtml
-- 2026-06-30 09:12 - 全新问界M9现身美国街头<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/60232766346.shtml
-- 2026-06-30 09:23 - 致敬！中国首批缉毒警已全体退休<br><br> | ??:https://www.share.kurohicncr.top/Article/details/44706.shtml
-- 2026-06-30 08:57 - 欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/9166229414.shtml
-- 2026-06-30 09:00 - 起风了<br><br> | ??:https://www.blog.minike.top/Article/details/2173781851.shtml
+- 2026-06-30 09:05 - 日本淘汰<br><br> | ??:http://www.blog.minike.top/Article/details/82811904.shtml
+- 2026-06-30 09:25 - 奔跑吧·黄河篇第二季<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/207764291523.shtml
+- 2026-06-30 09:20 - 德国队回应爆冷淘汰<br><br> | ??:http://www.blog.minike.top/Article/details/105434756779.shtml
+- 2026-06-30 09:12 - 大学生遇地震裹被子从5楼冲下<br><br> | ??:http://www.share.minike.top/Article/details/01164910.shtml
+- 2026-06-30 09:22 - 第一次对自信的力量有了实感<br><br> | ??:https://www.share.kurohicncr.top/Article/details/883406.shtml
+- 2026-06-30 09:02 - 2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？<br><br> | ??:https://www.blog.minike.top/Article/details/781541368242.shtml
+- 2026-06-30 09:04 - 刘宇宁高情商化解谁站C位<br><br> | ??:http://www.blog.minike.top/Article/details/40989.shtml
+- 2026-06-30 09:03 - 网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？<br><br> | ??:http://www.blog.minike.top/Article/details/975991016691.shtml
+- 2026-06-30 09:05 - 世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/9299639.shtml
+- 2026-06-30 09:04 - 杨紫大银幕成绩单<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/363247714.shtml
+- 2026-06-30 09:15 - 欧洲民众抢购空调降温<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/57684697808.shtml
+- 2026-06-30 09:00 - 美股<br><br> | ??:https://www.blog.minike.top/Article/details/24213310387.shtml
+- 2026-06-30 09:29 - 全网说丑的格力玫瑰空调卖了5万台<br><br> | ??:https://www.blog.minike.top/Article/details/819342736151.shtml
+- 2026-06-30 09:22 - 董卿父亲报纸上发文悼念亡妻<br><br> | ??:http://www.blog.minike.top/Article/details/725258.shtml
+- 2026-06-30 09:21 - 杨紫大银幕成绩单如何<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/817426.shtml

@@ -1,59 +1,50 @@
-# 传音控股港股IPO三重压力？巨头环伺净利腰斩现金流恶化 控股股东套现机构被套
+# 美国和伊朗将于周五会晤 就协议执行进行初步磋商
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-出品：新浪财经上市公司研究院 文/夏虫工作室 核心观点：传音控股二次港股上市是否需要新叙事？一方面，公司遭巨头环伺竞争激烈，出货量增速出现显著落后竞品现象；另一方面，随着存储上游成本持续上涨，公司盈利或也遭上游成本挤压。随着行业竞争加剧及上游成本传导等冲击，公司的手机硬件赛道相关叙事是否具有想象力？值得注意的是，控股股东减持套现找机构接盘，部分机构或已被深套。 近日，传音控股港
+瑞士外交部在声明中表示，美国和伊朗将在巴基斯坦和卡塔尔等调解人以及其他相关国家的参与下，于周五在Bürgenstock会晤，就落实该协议进行初步磋商。 瑞士外交部未提供会议议程和详情等资讯。责任编辑：刘明亮
 
 ## 正文
 
-出品：新浪财经上市公司研究院 文/夏虫工作室 核心观点：传音控股二次港股上市是否需要新叙事？
+瑞士外交部在声明中表示，美国和伊朗将在巴基斯坦和卡塔尔等调解人以及其他相关国家的参与下，于周五在Bürgenstock会晤，就落实该协议进行初步磋商。
 
-一方面，公司遭巨头环伺竞争激烈，出货量增速出现显著落后竞品现象；另一方面，随着存储上游成本持续上涨，公司盈利或也遭上游成本挤压。
+瑞士外交部未提供会议议程和详情等资讯。
 
-随着行业竞争加剧及上游成本传导等冲击，公司的手机硬件赛道相关叙事是否具有想象力？
-
-值得注意的是，控股股东减持套现找机构接盘，部分机构或已被深套。
-
-近日，传音控股港股上市再次递表。
-
-6月22日，传音控股发布重新向香港联交所递交H股发行上市的申请并刊发申请资料的公告。
-
-公告显示，公司已于2026年6月18日向香港联交所重新提交了本次发行上市的申请，并于同日在香港联交所网站刊登了本次发行上市的申请资料。
-
-截止一季报末，公司货币资金与交易性金融资产合计超过194亿元，而有息债务规模未超过55亿元。
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-30 08:56 - 宜宾地震食客避难后折返 无人逃单<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md
-- 2026-06-30 09:10 - 《贺子珍》<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md
-- 2026-06-30 09:01 - 庆祝中国共产党成立105周年大会将举行<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md
-- 2026-06-30 09:09 - 未来五年，教育强国这样建设<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md
-- 2026-06-30 09:18 - 大学生遇地震裹被子从5楼冲下<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md
-- 2026-06-30 09:19 - 《我落泪情绪零碎》<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md
-- 2026-06-30 08:57 - 梅德韦杰夫列举俄罗斯面临的七大挑战<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md
-- 2026-06-30 09:02 - 武磊：巴西队赢的并不轻松<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md
-- 2026-06-30 09:21 - 王楚钦说配合稍微有些陌生感<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md
-- 2026-06-30 09:12 - 点球淘汰德国 巴拉圭首都陷入疯狂<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md
-- 2026-06-30 09:08 - 如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md
-- 2026-06-30 09:00 - 德国vs巴拉圭<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md
-- 2026-06-30 08:57 - 我设置了全宇宙最安全的密码<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md
+- 2026-06-30 09:17 - 我觉得你是在无中生友<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md
+- 2026-06-30 09:28 - 重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md
+- 2026-06-30 09:03 - 杨紫大银幕成绩单如何<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md
+- 2026-06-30 09:28 - 领克900大型SUV值得购买吗?<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md
+- 2026-06-30 09:22 - 卢卡申科发布解放军仪仗队视频<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md
+- 2026-06-30 09:01 - 巴西2比1日本<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md
+- 2026-06-30 09:20 - 如何看待武亮说大学生生活费1500就够用这一言论？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md
+- 2026-06-30 09:09 - 张月收到黄灿灿辣货两眼发光<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md
+- 2026-06-30 09:11 - 安切洛蒂 换人<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md
+- 2026-06-30 09:21 - 上市央企地产商 两年换了三任董事长<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md
+- 2026-06-30 09:08 - 韩国球迷凌晨4点接机怒骂主教练<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md
+- 2026-06-30 09:20 - 第一次对自信的力量有了实感<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md
+- 2026-06-30 09:28 - 董卿父亲在报纸上发文悼念亡妻<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md
+- 2026-06-30 09:05 - 商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:11 - 王源近几年没有路演了<br><br> | ??:https://www.blog.minike.top/Article/details/6995633.shtml
-- 2026-06-30 08:55 - 王楚钦孙颖莎混双对手产生<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/389786863.shtml
-- 2026-06-30 08:56 - 可以细成这样？1600万预算，颠覆我认知的改造！<br><br> | ??:https://www.blog.minike.top/Article/details/48338318687.shtml
-- 2026-06-30 09:09 - 请回答王牌2019<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/507973575203.shtml
-- 2026-06-30 09:06 - 王健林甩卖超80座万达广场<br><br> | ??:http://www.share.kurohicncr.top/Article/details/8974378.shtml
-- 2026-06-30 09:00 - 重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！<br><br> | ??:http://www.blog.minike.top/Article/details/79481.shtml
-- 2026-06-30 08:56 - 王濛回复黄灿灿<br><br> | ??:https://www.blog.minike.top/Article/details/72859.shtml
-- 2026-06-30 09:06 - 沉睡花园<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/76678864540.shtml
-- 2026-06-30 09:09 - 武磊：日本队有能力跟任何强队抗衡<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/397305422.shtml
-- 2026-06-30 09:08 - 未来的飞机可能会用电吗？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/81148888992.shtml
-- 2026-06-30 09:05 - 《贺子珍》<br><br> | ??:https://www.share.minike.top/Article/details/879216653.shtml
-- 2026-06-30 09:21 - 现在叛逆期的孩子最怕的是什么？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/204596.shtml
-- 2026-06-30 09:13 - 穆祉丞回应获年度人气艺人<br><br> | ??:https://www.share.minike.top/Article/details/89066245.shtml
-- 2026-06-30 09:22 - 日本球迷输球后集体捡垃圾<br><br> | ??:http://www.blog.minike.top/Article/details/596184446.shtml
-- 2026-06-30 09:19 - 人民锐评网红诋毁袁隆平造谣企业家<br><br> | ??:http://www.share.minike.top/Article/details/30168769.shtml
+- 2026-06-30 09:17 - HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/30880230.shtml
+- 2026-06-30 09:26 - 法媒点赞中国小区楼顶“人工降雨”<br><br> | ??:http://www.share.minike.top/Article/details/16374566485.shtml
+- 2026-06-30 09:14 - 急先锋<br><br> | ??:https://www.blog.minike.top/Article/details/76379995431.shtml
+- 2026-06-30 09:25 - 赛博朋克边缘行者2预告片<br><br> | ??:https://www.share.minike.top/Article/details/66140517498.shtml
+- 2026-06-30 09:14 - 高考结束，该不该外出打工体验？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/642761.shtml
+- 2026-06-30 09:23 - 《共患难》<br><br> | ??:http://www.share.kurohicncr.top/Article/details/80335690.shtml
+- 2026-06-30 09:01 - 全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」<br><br> | ??:https://www.share.kurohicncr.top/Article/details/74491.shtml
+- 2026-06-30 09:04 - 美股深夜大反弹 特斯拉飙涨8%<br><br> | ??:http://www.share.minike.top/Article/details/17266198.shtml
+- 2026-06-30 09:17 - 杨紫被质疑未使用原名<br><br> | ??:http://www.share.kurohicncr.top/Article/details/132820.shtml
+- 2026-06-30 09:09 - 泰山建135公里刀片刺绳隔离网<br><br> | ??:https://www.blog.minike.top/Article/details/837329912.shtml
+- 2026-06-30 09:19 - 恋与深空道歉声明<br><br> | ??:https://www.share.minike.top/Article/details/284453.shtml
+- 2026-06-30 09:29 - 收到补税提醒尽快办理 明起有滞纳金<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/6616493267.shtml
+- 2026-06-30 09:21 - 咕嘎万能小摊1：沉浸式制作惠灵顿牛排<br><br> | ??:https://www.share.kurohicncr.top/Article/details/00970.shtml
+- 2026-06-30 09:20 - 未来的飞机可能会用电吗？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/837486510.shtml
+- 2026-06-30 09:09 - 大蒜晒外面被路过女子连盆端走<br><br> | ??:http://www.blog.minike.top/Article/details/9470262049.shtml

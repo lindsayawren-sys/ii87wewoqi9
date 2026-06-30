@@ -1,61 +1,60 @@
-# 世界杯早知道丨瑞士2-1加拿大小组第一出线 波黑3-1卡塔尔
+# 财信宏观丨点阵图偏鹰，但短期观望为主—美联储6月议息会议解读
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-北京时间6月25日，2026美加墨世界杯小组赛B组第三轮中，瑞士2-1战胜加拿大，小组第一出线。 上半场，双方0-0互交白卷。 下半场，瑞士率先打入两球，随后加拿大扳回一球。最终，瑞士2-1战胜加拿大，以小组第一的成绩进入淘汰赛。 波黑3-1战胜卡塔尔B组第三轮另一场比赛，波黑对阵卡塔尔同时开赛。上半场，波黑2-1领先一球。 下半场，波黑再进一球。最终，波黑3-1战胜卡塔尔。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：明察宏观 文财信研究院宏观团队 胡文艳、伍超明 事件 6月18日凌晨，美联储公布6月份议息会议纪要。 一、会议要点、经济预测与点阵图 （一）会议声明：全票通过维持利率不变，重心转向通胀目标，删去前瞻性指引 政策决议方面：利率政策上，美联储货币政策委员会以12：0全票通过，维持联邦基金目标利率区间在3.
 
 ## 正文
 
-北京时间6月25日，2026美加墨世界杯小组赛B组第三轮中，瑞士2-1战胜加拿大，小组第一出线。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-上半场，双方0-0互交白卷。
+来源：明察宏观 文财信研究院宏观团队 胡文艳、伍超明 事件 6月18日凌晨，美联储公布6月份议息会议纪要。
 
-下半场，瑞士率先打入两球，随后加拿大扳回一球。
+一、会议要点、经济预测与点阵图 （一）会议声明：全票通过维持利率不变，重心转向通胀目标，删去前瞻性指引 政策决议方面：利率政策上，美联储货币政策委员会以12：0全票通过，维持联邦基金目标利率区间在3.50-3.75%不变，为连续四次会议维持利率不变，符合市场一致预期。
 
-最终，瑞士2-1战胜加拿大，以小组第一的成绩进入淘汰赛。
+缩表上，委员会重申在银行体系中维持充裕准备金的政策，打消市场对短期内激进缩表的担忧。
 
-波黑3-1战胜卡塔尔B组第三轮另一场比赛，波黑对阵卡塔尔同时开赛。
+经济表述方面（见表1）：会议对经济增长与就业的判断，较4月明显更加乐观，最突出的变化是新增“生产力增长与资本投资强劲”内容；同时，对通胀的担忧犹存，认为通胀仍然偏高，能源等行业的供给冲击是主要推动因素。
 
-上半场，波黑2-1领先一球。
+此外，在阐述政策目标时，会议删去“致力于支持充分就业”表述，只保留“全力实现物价稳定”，进一步反映出当前联储政策重心已向价格目标倾斜。
 
-下半场，波黑再进一球。
+前瞻指引方面：会议直接删去了全部篇幅，不仅删去“考虑进一步调整联邦基金利率目标区间的幅度和时机时”，这一4月份曾被解读为降息窗口未关闭的鸽派表述；同时将“仔细评估即将公布的数据、不断变化的经济前景以及风险平衡情况”等提法全部去掉。
 
-最终，波黑3-1战胜卡塔尔。
+这一变化或直接体现出沃什弱化“依赖数据”决策，更强调前瞻性应对经济变化的政策改革思路，同时也反映出其减少频繁的前瞻指引、增加政策灵活性的想法。
 
 ## 相关推荐
 
-- 2026-06-30 09:01 - 扫黑风暴<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md
-- 2026-06-30 08:56 - 《贺子珍》<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md
-- 2026-06-30 09:16 - 超神人辉夜姬 第二集<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md
-- 2026-06-30 09:23 - 古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md
-- 2026-06-30 09:21 - 《虎吹最难绷の一集》<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md
-- 2026-06-30 08:54 - 女儿从清华毕业 爸爸晒出17年对比照<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md
-- 2026-06-30 09:19 - 杨紫获白玉兰视后为何争议难平<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md
-- 2026-06-30 09:22 - 王欣瑜连续4年晋级温网第二轮<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md
-- 2026-06-30 09:21 - 谢依霖说杨幂是聚会第一把张罗手<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md
-- 2026-06-30 08:57 - 女子遭下药退赔偿拟追刑责<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md
-- 2026-06-30 09:01 - 美加墨世界杯：亚洲足球的得意与失意<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md
-- 2026-06-30 08:56 - 巴西2-1绝杀日本<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md
-- 2026-06-30 09:09 - FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md
-- 2026-06-30 08:59 - 租房时你会更看重「住得舒服」，还是「每天通勤更方便」？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md
-- 2026-06-30 09:22 - 赵今麦因“瘦而不柴”的体态出圈<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md
+- 2026-06-30 09:28 - 法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md
+- 2026-06-30 09:21 - 王楚钦孙颖莎vs皮斯特耶库库洛娃<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md
+- 2026-06-30 09:02 - GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md
+- 2026-06-30 09:20 - 《恋与深空》被指触碰民族伤痛红线<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md
+- 2026-06-30 09:17 - 一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md
+- 2026-06-30 09:15 - 高考结束，该不该外出打工体验？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md
+- 2026-06-30 09:19 - 黄晓明夸昆凌引杨颖对比<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md
+- 2026-06-30 09:27 - 毕业以后，你最怀念的大学记忆是什么？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md
+- 2026-06-30 09:24 - 巴西2-1绝杀日本<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md
+- 2026-06-30 09:03 - IGN评测电影版后室<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md
+- 2026-06-30 09:09 - 急先锋<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md
+- 2026-06-30 09:08 - 87克大金链到老庙黄金维修少了11克<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md
+- 2026-06-30 09:07 - 大货车掉落螺丝扎进骑手护目镜<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md
+- 2026-06-30 09:19 - 千香<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:19 - 曝iPhone18Pro机密文件现身暗网<br><br> | ??:http://www.share.minike.top/Article/details/445641644.shtml
-- 2026-06-30 09:08 - 2021江苏卫视跨年演唱会<br><br> | ??:http://www.share.kurohicncr.top/Article/details/50026.shtml
-- 2026-06-30 08:54 - 「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/40676.shtml
-- 2026-06-30 08:54 - 欧洲空调卖疯了 下一个爆款是储能吗<br><br> | ??:https://www.share.minike.top/Article/details/837266329.shtml
-- 2026-06-30 09:00 - 如果有二次元高中是什么样子的？<br><br> | ??:http://www.share.minike.top/Article/details/764724246121.shtml
-- 2026-06-30 09:22 - 金刚川<br><br> | ??:https://www.share.minike.top/Article/details/480931.shtml
-- 2026-06-30 08:55 - 黄晓明夸昆凌引杨颖对比<br><br> | ??:https://www.share.minike.top/Article/details/31177913946.shtml
-- 2026-06-30 09:01 - 我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......<br><br> | ??:http://www.share.kurohicncr.top/Article/details/070320773487.shtml
-- 2026-06-30 09:15 - 峡谷事故团队组队时有人提醒会下雨<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/340157094151.shtml
-- 2026-06-30 09:09 - 收到补税提醒尽快办理 明起有滞纳金<br><br> | ??:https://www.share.minike.top/Article/details/3793419591.shtml
-- 2026-06-30 09:11 - 武磊：日本队有能力跟任何强队抗衡<br><br> | ??:http://www.share.kurohicncr.top/Article/details/60969816.shtml
-- 2026-06-30 09:19 - F1奥地利站赛后复盘<br><br> | ??:http://www.share.minike.top/Article/details/8600800844.shtml
-- 2026-06-30 08:58 - 深扒韩国队淘汰背后原因<br><br> | ??:https://www.share.kurohicncr.top/Article/details/10849132896.shtml
-- 2026-06-30 09:07 - 我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？<br><br> | ??:http://www.blog.minike.top/Article/details/420658.shtml
-- 2026-06-30 09:17 - 一直以为方便面汤是要倒掉的<br><br> | ??:http://www.share.minike.top/Article/details/785370739794.shtml
+- 2026-06-30 09:26 - 德国进球被吹<br><br> | ??:https://www.blog.minike.top/Article/details/538725.shtml
+- 2026-06-30 09:21 - 速度与激情9<br><br> | ??:http://www.blog.minike.top/Article/details/33928.shtml
+- 2026-06-30 09:15 - 奔跑吧·黄河篇第二季<br><br> | ??:https://www.blog.minike.top/Article/details/232805546.shtml
+- 2026-06-30 09:09 - 男子在京东买到“同仁堂”假药<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/361700.shtml
+- 2026-06-30 09:16 - 巴西绝杀日本<br><br> | ??:https://www.share.kurohicncr.top/Article/details/9651479.shtml
+- 2026-06-30 09:29 - 为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？<br><br> | ??:http://www.share.minike.top/Article/details/88003.shtml
+- 2026-06-30 09:10 - 低智商犯罪三江口团建来了<br><br> | ??:https://www.blog.minike.top/Article/details/861146.shtml
+- 2026-06-30 09:22 - 中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/34934556783.shtml
+- 2026-06-30 09:29 - 为什么小组赛出局会让韩国人破防<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/43458825.shtml
+- 2026-06-30 09:20 - 《贺子珍》<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/60936075.shtml
+- 2026-06-30 09:03 - 佐野海舟远射破门<br><br> | ??:https://www.blog.minike.top/Article/details/37872396.shtml
+- 2026-06-30 09:18 - 三星投资计划<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/428360.shtml
+- 2026-06-30 09:23 - 一切民族英雄都是中华民族的脊梁<br><br> | ??:https://www.share.kurohicncr.top/Article/details/3381114585.shtml
+- 2026-06-30 09:21 - 为什么会有「念旧」的心理？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/185835.shtml
+- 2026-06-30 09:00 - 【大鸣王潮1566】真拿你没办法<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/7476886158.shtml

@@ -1,54 +1,59 @@
-# 《传承与弘扬——从伟大建党精神到长征精神》座谈会在京举行
+# 长江中下游降雨频繁明起雨势再增强 华南一带高温天气迅速发展
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-中新网北京6月24日电 (记者 高凯)北京师范大学中共党史党建研究院院长王炳林新作《传承与弘扬——从伟大建党精神到长征精神》近期由首都文化科技集团北京人民出版社策划出版，相关研讨会于日前在京举办。 来自中央党史和文献研究院、清华大学、北京大学、中国人民大学、北京师范大学、中国社会科学院、前线杂志社、香山革命纪念馆等单位的数位专家学者围绕《传承与弘扬——从伟大建党精神到长征精神》
+中国天气网讯 端午假期后两天(6月20日至21日)，南方大部和东北地区降雨仍然较多，其中长江中下游明天雨势较强，多地将现暴雨到大暴雨。此外，今天起江南南部和华南一带的高温闷热天气将快速发展，福州、广州、海口将现连续高温天气，需注意防暑。 长江中下游明起降雨再度增强 东北地区多雷阵雨 昨天，长江中下游雨势仍然较强，同时华南一带也有强降雨现身；此外，华北多地出现明显降雨。监测显示，
 
 ## 正文
 
-中新网北京6月24日电 (记者 高凯)北京师范大学中共党史党建研究院院长王炳林新作《传承与弘扬——从伟大建党精神到长征精神》近期由首都文化科技集团北京人民出版社策划出版，相关研讨会于日前在京举办。
+中国天气网讯 端午假期后两天(6月20日至21日)，南方大部和东北地区降雨仍然较多，其中长江中下游明天雨势较强，多地将现暴雨到大暴雨。
 
-来自中央党史和文献研究院、清华大学、北京大学、中国人民大学、北京师范大学、中国社会科学院、前线杂志社、香山革命纪念馆等单位的数位专家学者围绕《传承与弘扬——从伟大建党精神到长征精神》一书的学术价值、理论创新与现实意义进行了深入研讨。
+此外，今天起江南南部和华南一带的高温闷热天气将快速发展，福州、广州、海口将现连续高温天气，需注意防暑。
 
-中央党史和文献研究院原院务委员陈晋认为，该书将伟大建党精神与长征精神联系起来，并充分阐释了二者的内在联系与学理内涵，史论结合、论从史出，让宏大的革命精神具象可感。
+长江中下游明起降雨再度增强 东北地区多雷阵雨 昨天，长江中下游雨势仍然较强，同时华南一带也有强降雨现身；此外，华北多地出现明显降雨。
 
-包括清华大学中共党史党建研究院院长欧阳军喜，香山革命纪念馆馆长杨家毅，中国人民大学中共党史党建研究院副院长耿化敏，北京大学马克思主义学院教授林绪武，中国社会科学院马克思主义研究院研究员方涛等在内的与会者一致认为，该书不仅厘清了伟大建党精神与长征精神“源与流”的辩证关系，还深入阐释了二者的学理内涵及其与马克思主义、中华优秀传统文化的内在关联。
+监测显示，昨日8时至今日6时，江苏中部、安徽中南部、江西北部、广西北部、广东西部及河北北部、北京、内蒙古东部、黑龙江中部等地部分地区出现暴雨或大暴雨，安徽黄山、广西桂林局地特大暴雨。
 
-同时，立足历史、贴合现实，明确新时代传承弘扬长征精神的实践路径，为长征精神研究宣传、红色教育宣讲提供了全新视角。
+今天，南方降雨将有所减弱，尤其是华南强降雨会明显减少，长江中下游的强降雨也将向西缩减。
 
-(完)
+明天，西南地区东部到长江中下游一带的降雨会再度增强，多地将现暴雨到大暴雨。
+
+在北方，未来五天东北等地仍将多阵雨和雷阵雨天气，大部地区以小到中雨为主，部分地区有大到暴雨，并伴有短时强降水、雷暴大风或冰雹等强对流天气。
+
+华北今明两天降雨则整体较少，下周起降雨将再度增多。
 
 ## 相关推荐
 
-- 2026-06-30 09:17 - 世界杯欧洲队7战南美仅1胜<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md
-- 2026-06-30 09:00 - 陈小春人老了干什么也不心酸<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md
-- 2026-06-30 08:57 - 为什么香港的冲厕水是咸的？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md
-- 2026-06-30 09:15 - 女子遭下药退赔偿拟追刑责<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md
-- 2026-06-30 09:21 - 佐野海舟远射破门<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md
-- 2026-06-30 08:58 - 恋与深空回应争议<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md
-- 2026-06-30 08:56 - 收到补税提醒尽快办理 明起有滞纳金<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md
-- 2026-06-30 09:21 - 王楚钦孙颖莎混双对手产生<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md
-- 2026-06-30 09:08 - 金牌调解<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md
-- 2026-06-30 09:00 - 建议不要突然完全停止喝咖啡<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md
-- 2026-06-30 08:58 - 领克07GT搭载超跑同源MRC悬架<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md
-- 2026-06-30 08:57 - 千与千寻<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md
+- 2026-06-30 09:02 - 男生180+，有腹肌是什么体验？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md
+- 2026-06-30 09:15 - 德国队连续三届世界杯无缘16强<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md
+- 2026-06-30 09:01 - 科学备孕男女都要上心<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md
+- 2026-06-30 09:11 - 普京为何将俄乌谈判时间表与伊朗挂钩<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md
+- 2026-06-30 09:27 - 一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md
+- 2026-06-30 09:05 - 内马尔安慰日本球员<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md
+- 2026-06-30 09:14 - 巴西2-1绝杀日本<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md
+- 2026-06-30 09:19 - 日本反击率先破门<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md
+- 2026-06-30 09:01 - 《恋与深空》被指触碰民族伤痛红线<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md
+- 2026-06-30 09:02 - 王曼昱被突如其来的话筒逗笑了<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md
+- 2026-06-30 09:17 - 乔家的儿女<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md
+- 2026-06-30 09:00 - 电影抓特务上映11天破亿<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md
+- 2026-06-30 09:03 - 女子遭家暴逃跑致丈夫身亡二审细节<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:15 - 《我落泪情绪零碎》<br><br> | ??:https://www.share.minike.top/Article/details/998639089684.shtml
-- 2026-06-30 09:11 - 赛博朋克边缘行者2预告片<br><br> | ??:https://www.share.minike.top/Article/details/836359989719.shtml
-- 2026-06-30 09:04 - 日本将帅赛后采访纷纷哽咽落泪<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/617330936.shtml
-- 2026-06-30 09:00 - 内马尔未登场 安切洛蒂赛后回应<br><br> | ??:http://www.share.minike.top/Article/details/99945.shtml
-- 2026-06-30 09:20 - 第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！<br><br> | ??:http://www.share.minike.top/Article/details/17695.shtml
-- 2026-06-30 08:57 - 巴西绝杀<br><br> | ??:https://www.share.kurohicncr.top/Article/details/10886242.shtml
-- 2026-06-30 09:19 - 杨紫大银幕成绩单<br><br> | ??:http://www.share.minike.top/Article/details/74247469.shtml
-- 2026-06-30 09:05 - 穆祉丞回应获年度人气艺人<br><br> | ??:https://www.share.minike.top/Article/details/032680593445.shtml
-- 2026-06-30 09:02 - 荷兰VS摩洛哥<br><br> | ??:http://www.share.minike.top/Article/details/7750066.shtml
-- 2026-06-30 09:11 - 极端热浪席卷欧洲多国，热一热百姓让领导先凉快？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/6138516.shtml
-- 2026-06-30 09:18 - 日耳曼拖拉机<br><br> | ??:http://www.blog.minike.top/Article/details/881634.shtml
-- 2026-06-30 09:10 - 齐思钧回复张月<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/4646317769.shtml
-- 2026-06-30 08:57 - 宜宾地震食客避难后折返 无人逃单<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/998299154.shtml
-- 2026-06-30 08:59 - 世界杯巴拉圭点球淘汰德国<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/9256495.shtml
-- 2026-06-30 08:55 - 荀彧和曹操反目成仇的根本原因是什么？<br><br> | ??:https://www.blog.minike.top/Article/details/654450521.shtml
+- 2026-06-30 09:18 - 黄晓明晒和周杰伦的合照<br><br> | ??:http://www.share.minike.top/Article/details/64794853.shtml
+- 2026-06-30 09:26 - 恋与深空回应争议<br><br> | ??:https://www.share.minike.top/Article/details/90717403.shtml
+- 2026-06-30 09:14 - 中国新一轮出口管制直指日本命脉<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/5063289070.shtml
+- 2026-06-30 09:24 - 这一刀 会很帅<br><br> | ??:http://www.blog.minike.top/Article/details/08378163.shtml
+- 2026-06-30 09:01 - 被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/037456573.shtml
+- 2026-06-30 09:16 - 失明的我带老妈去了趟“火星”<br><br> | ??:http://www.share.minike.top/Article/details/3799221.shtml
+- 2026-06-30 09:16 - 日本反击率先破门<br><br> | ??:http://www.share.minike.top/Article/details/94190383199.shtml
+- 2026-06-30 09:19 - 马耳他著名拱门坍塌致中国男子身亡<br><br> | ??:https://www.share.minike.top/Article/details/73350.shtml
+- 2026-06-30 09:23 - 韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/9654991.shtml
+- 2026-06-30 09:03 - 黄晓明夸昆凌引杨颖对比<br><br> | ??:http://www.blog.minike.top/Article/details/181338.shtml
+- 2026-06-30 09:22 - 我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎<br><br> | ??:https://www.share.kurohicncr.top/Article/details/3814265.shtml
+- 2026-06-30 09:05 - 首届《哈基米歌王争霸赛》总决赛<br><br> | ??:https://www.share.minike.top/Article/details/9092234665.shtml
+- 2026-06-30 09:01 - 我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？<br><br> | ??:http://www.blog.minike.top/Article/details/0933283.shtml
+- 2026-06-30 09:21 - 德国队世界杯点球大战首败<br><br> | ??:http://www.share.minike.top/Article/details/714231289.shtml
+- 2026-06-30 09:28 - 马杜罗账号在纽约发文致谢各国援助<br><br> | ??:http://www.share.kurohicncr.top/Article/details/89272.shtml

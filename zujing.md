@@ -1,59 +1,59 @@
-# 美联储加息预期升温削弱避险需求，黄金跌破4100美元创阶段新低
+# （寻味中华丨节令）食面尝新祈丰岁 日长之至盛夏始
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-汇通财经APP讯——国际黄金市场周三延续弱势运行，现货黄金（XAU/USD）亚洲交易时段回落至4086美元附近，较此前高位进一步下滑。随着中东地缘风险降温以及市场重新评估美联储货币政策前景，黄金近期面临明显抛售压力。 自2月底美国与伊朗冲突爆发以来，黄金曾凭借避险需求快速攀升，并一度刷新历史高位。然而随着近期双方达成阶段性协议，市场对于能源供应中断和地区局势恶化的担忧明显缓解。
+中新社成都6月21日电 题：食面尝新祈丰岁 日长之至盛夏始 作者 袁牟知博 “鹿角解，蝉始鸣，半夏生，木堇(槿)荣。”6月21日是夏至，中国古籍《礼记·月令》这样描述这个节气的物候刻度。太阳在这一天几乎直射北回归线，北半球迎来白昼最长的一天。 夏至是最早被中国先民测定的节气之一，“至”有“极致”之义，此时，万物充盈向上，生长繁盛到达一个极点。 夏至，农人更加忙碌：华北忙着晒冬小
 
 ## 正文
 
-汇通财经APP讯——国际黄金市场周三延续弱势运行，现货黄金（XAU/USD）亚洲交易时段回落至4086美元附近，较此前高位进一步下滑。
+中新社成都6月21日电 题：食面尝新祈丰岁 日长之至盛夏始 作者 袁牟知博 “鹿角解，蝉始鸣，半夏生，木堇(槿)荣。
 
-随着中东地缘风险降温以及市场重新评估美联储货币政策前景，黄金近期面临明显抛售压力。
+”6月21日是夏至，中国古籍《礼记·月令》这样描述这个节气的物候刻度。
 
-自2月底美国与伊朗冲突爆发以来，黄金曾凭借避险需求快速攀升，并一度刷新历史高位。
+太阳在这一天几乎直射北回归线，北半球迎来白昼最长的一天。
 
-然而随着近期双方达成阶段性协议，市场对于能源供应中断和地区局势恶化的担忧明显缓解。
+夏至是最早被中国先民测定的节气之一，“至”有“极致”之义，此时，万物充盈向上，生长繁盛到达一个极点。
 
-原油价格持续回落，全球金融市场风险偏好有所改善，使部分资金逐步撤离黄金市场。
+夏至，农人更加忙碌：华北忙着晒冬小麦，东北夏播接近尾声，高原牧区迎来畜牧旺季。
 
-尽管能源价格有所回落，但此前油价大幅上涨带来的通胀影响仍未完全消散。
+在成都平原，岷江水滋养的万顷稻田上正除去杂草；川北丘陵，冬小麦刚收镰，玉米、红薯的夏管接踵而至。
 
-市场普遍认为，能源成本传导效应将在未来数月继续反映在美国通胀数据之中，从而增加美联储维持紧缩政策的必要性。
+成都市蒲江县农技员王建华说，“夏至不锄根边草，如同养下毒蛇咬”这句农谚，至今是庄稼人的铁律。
 
-上周由美联储主席凯文·沃什主持的利率会议成为近期市场关注焦点。
+“随着社会发展，更科学的方式逐渐代替人工，但乡土记忆一直在。
 
 ## 相关推荐
 
-- 2026-06-30 09:18 - 央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md
-- 2026-06-30 08:54 - 为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md
-- 2026-06-30 09:11 - hanser X 赖美云《室内系的Track Maker》<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md
-- 2026-06-30 09:04 - 锐评：网红不能困在无底线逐利里<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md
-- 2026-06-30 09:09 - 英语考了145的人竟然教数学<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md
-- 2026-06-30 08:54 - 萨内 看笑了<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md
-- 2026-06-30 09:15 - 日本将帅赛后采访纷纷哽咽落泪<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md
-- 2026-06-30 09:23 - 千香<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md
-- 2026-06-30 09:05 - 李准基参加文彩元婚礼<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md
-- 2026-06-30 09:03 - 如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md
-- 2026-06-30 08:57 - 莫兰特被交易到开拓者<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md
-- 2026-06-30 09:12 - 日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md
-- 2026-06-30 09:07 - 健全中小学教师工资长效联动机制<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md
+- 2026-06-30 09:26 - 王楚钦说配合稍微有些陌生感<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md
+- 2026-06-30 09:17 - 小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md
+- 2026-06-30 09:05 - 87克大金链到老庙黄金维修少了11克<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md
+- 2026-06-30 09:03 - 斗破苍穹<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md
+- 2026-06-30 09:23 - 德国队连续三届世界杯无缘16强<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md
+- 2026-06-30 09:06 - 德国罚丢3粒点球<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md
+- 2026-06-30 09:16 - 【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md
+- 2026-06-30 09:26 - 泰山建135公里刀片刺绳隔离网<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md
+- 2026-06-30 09:13 - 道友？你来真的啊？【凡人官方二创大会】<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md
+- 2026-06-30 09:21 - 这几秒成世界杯最值钱广告位<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md
+- 2026-06-30 09:14 - 4000美元是黄金新一轮下跌的开始吗<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md
+- 2026-06-30 09:17 - 勇士续约波尔津吉斯<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md
+- 2026-06-30 09:01 - 齐思钧回复张月<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:15 - 国务院：探索延长义务教育年限<br><br> | ??:https://www.blog.minike.top/Article/details/78462929.shtml
-- 2026-06-30 08:59 - 《名肘探科比》：科比大战裂口女<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/88003.shtml
-- 2026-06-30 08:54 - 一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？<br><br> | ??:https://www.share.minike.top/Article/details/59256676.shtml
-- 2026-06-30 09:22 - 这种关系可能正在悄悄“催老”你<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/1511659.shtml
-- 2026-06-30 09:08 - 巴西若输日本将创36年最差纪录<br><br> | ??:https://www.share.minike.top/Article/details/67836.shtml
-- 2026-06-30 09:19 - 沙丘<br><br> | ??:https://www.share.minike.top/Article/details/41287502894.shtml
-- 2026-06-30 08:56 - 王濛回复黄灿灿<br><br> | ??:https://www.share.minike.top/Article/details/380662645.shtml
-- 2026-06-30 09:00 - 主人解开狗绳2只狗将路人撕咬致死<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/36367811.shtml
-- 2026-06-30 09:09 - 小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？<br><br> | ??:https://www.blog.minike.top/Article/details/537503.shtml
-- 2026-06-30 09:04 - 法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？<br><br> | ??:http://www.blog.minike.top/Article/details/908219042.shtml
-- 2026-06-30 09:01 - 日本将帅赛后采访纷纷哽咽落泪<br><br> | ??:https://www.share.minike.top/Article/details/4756138.shtml
-- 2026-06-30 09:01 - 巴西醒醒 这是淘汰赛<br><br> | ??:http://www.share.kurohicncr.top/Article/details/343000467968.shtml
-- 2026-06-30 08:58 - 【Reaction】女生最少的5款游戏<br><br> | ??:http://www.blog.minike.top/Article/details/54164.shtml
-- 2026-06-30 09:13 - 木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？<br><br> | ??:http://www.share.minike.top/Article/details/646743959475.shtml
-- 2026-06-30 09:05 - 【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】<br><br> | ??:http://www.share.kurohicncr.top/Article/details/2965321239.shtml
+- 2026-06-30 09:08 - 一直以为方便面汤是要倒掉的<br><br> | ??:https://www.share.minike.top/Article/details/68346782772.shtml
+- 2026-06-30 09:15 - 【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/969056.shtml
+- 2026-06-30 09:01 - 有哪些值得一提的生活窍门？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/37866572.shtml
+- 2026-06-30 09:19 - 德国连续三届世界杯无缘16强<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/54325658.shtml
+- 2026-06-30 09:12 - 你这一辈子有没有为进山姆拼过命？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/005395.shtml
+- 2026-06-30 09:11 - 球评巴西绝杀逆转日本<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/4815572844.shtml
+- 2026-06-30 09:02 - 郑钦文 四年一轮游<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/8780863.shtml
+- 2026-06-30 09:14 - 大学生遇地震裹被子从5楼冲下<br><br> | ??:https://www.share.minike.top/Article/details/90538229.shtml
+- 2026-06-30 09:03 - 毒液2<br><br> | ??:http://www.share.kurohicncr.top/Article/details/11294910127.shtml
+- 2026-06-30 09:19 - 爱直接对嘴喝饮料的人天塌了<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/7222839884.shtml
+- 2026-06-30 09:21 - 董卿父亲报纸上发文悼念亡妻<br><br> | ??:https://www.share.minike.top/Article/details/436885253580.shtml
+- 2026-06-30 09:04 - 电影抓特务上映11天破亿<br><br> | ??:http://www.share.kurohicncr.top/Article/details/3428592814.shtml
+- 2026-06-30 09:10 - 国内最大沙漠发洪水意味着什么<br><br> | ??:http://www.share.minike.top/Article/details/84493052366.shtml
+- 2026-06-30 09:03 - 全网说丑的玫瑰空调卖了5万台<br><br> | ??:https://www.share.kurohicncr.top/Article/details/1561682621.shtml
+- 2026-06-30 09:18 - 穆祉丞回应获年度人气艺人<br><br> | ??:http://www.share.kurohicncr.top/Article/details/729955.shtml

@@ -1,53 +1,57 @@
-# 日本岩手县近海发生6.9级地震
+# 供应链公司：已向苹果首款折叠屏iPhone小批量供货
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-东京时间25日早上7时30分左右，岩手县近海发生里氏6.9级地震，最大震感为震度6强。日本首都东京有明显震感。（总台记者 何欣蕾 李卫兵） ©2026中央广播电视总台版权所有。未经许可，请勿转载使用。 责任编辑：李桐
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！日前，中国证券报记者从一家苹果供应链公司独家获悉，该公司已于近期开始向首款折叠屏iPhone小批量供货。按照公司收到的目标指引，该款产品将于9月发布。 近日，有消息称苹果首款折叠屏iPhone已从原定的2026年秋季推迟至2027年初上市发售。对此，一位苹果供应链公司人士对记者表示，截至目前，其得到的目标指
 
 ## 正文
 
-东京时间25日早上7时30分左右，岩手县近海发生里氏6.9级地震，最大震感为震度6强。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-日本首都东京有明显震感。
+日前，中国证券报记者从一家苹果供应链公司独家获悉，该公司已于近期开始向首款折叠屏iPhone小批量供货。
 
-（总台记者 何欣蕾 李卫兵） ©2026中央广播电视总台版权所有。
+按照公司收到的目标指引，该款产品将于9月发布。
 
-未经许可，请勿转载使用。
+近日，有消息称苹果首款折叠屏iPhone已从原定的2026年秋季推迟至2027年初上市发售。
 
-责任编辑：李桐
+对此，一位苹果供应链公司人士对记者表示，截至目前，其得到的目标指引是，首款折叠屏iPhone将于2026年秋季发布。
+
+对于首款折叠屏iPhone具体发布时间，截至记者发稿，苹果方面暂无公开回应。
+
+今年4月初，本报曾独家报道，富士康正试产折叠屏iPhone手机。
+
+详见文章：独家！
 
 ## 相关推荐
 
-- 2026-06-30 09:21 - 周冬雨多次说演不了话剧文城<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md
-- 2026-06-30 09:19 - 如何把斧兵改造成精英怪？提高攻速移速！！！<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md
-- 2026-06-30 09:06 - 我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md
-- 2026-06-30 09:05 - 2021江苏卫视跨年演唱会<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md
-- 2026-06-30 08:57 - 德国vs巴拉圭<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md
-- 2026-06-30 09:15 - 张碧晨一开口梦回逐玉<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md
-- 2026-06-30 09:04 - 如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md
-- 2026-06-30 09:06 - 不开心就去看三年前的购物订单<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md
-- 2026-06-30 09:17 - 高考结束，该不该外出打工体验？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md
-- 2026-06-30 09:08 - 电影抓特务上映11天破亿<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md
-- 2026-06-30 09:15 - 如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md
-- 2026-06-30 09:17 - 国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md
-- 2026-06-30 09:08 - 赵今麦因“瘦而不柴”的体态出圈<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md
+- 2026-06-30 09:05 - 如果有二次元高中是什么样子的？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md
+- 2026-06-30 09:00 - 媒体评泰山建135公里刀片刺绳隔离网<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md
+- 2026-06-30 09:02 - 德国队世界杯点球大战首败<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md
+- 2026-06-30 09:12 - 勇敢的心第二部<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md
+- 2026-06-30 09:06 - 莫兰特被交易到开拓者<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md
+- 2026-06-30 09:17 - 莫兰特被交易到开拓者<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md
+- 2026-06-30 09:24 - 韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md
+- 2026-06-30 09:08 - 美媒：美军第五舰队司令部已无法使用<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md
+- 2026-06-30 09:18 - “荒唐”背后的韩国足球<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md
+- 2026-06-30 09:24 - 金价跳水 水贝市场显现出“两重天”<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md
+- 2026-06-30 09:09 - 日本球员说被绝杀非常不甘心<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:10 - 第一次对自信的力量有了实感<br><br> | ??:http://www.blog.minike.top/Article/details/3855584.shtml
-- 2026-06-30 09:13 - 2021江苏卫视跨年演唱会<br><br> | ??:https://www.share.minike.top/Article/details/1434862.shtml
-- 2026-06-30 09:03 - 人可以极简主义到什么程度？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/249578692.shtml
-- 2026-06-30 08:57 - 如何评价《龙之家族》第三季第二集？<br><br> | ??:http://www.share.minike.top/Article/details/62733.shtml
-- 2026-06-30 09:20 - HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/42906.shtml
-- 2026-06-30 08:56 - 【大鸣王潮1566】真拿你没办法<br><br> | ??:https://www.share.kurohicncr.top/Article/details/0155004911.shtml
-- 2026-06-30 09:02 - 马宁怒怼巴拉圭教练组<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/3283213.shtml
-- 2026-06-30 08:54 - 德国巴拉圭进入点球大战<br><br> | ??:https://www.share.minike.top/Article/details/3844838.shtml
-- 2026-06-30 09:04 - 疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！<br><br> | ??:https://www.share.kurohicncr.top/Article/details/811724113.shtml
-- 2026-06-30 09:13 - 黄晓明夸昆凌引杨颖对比<br><br> | ??:http://www.blog.minike.top/Article/details/203894439.shtml
-- 2026-06-30 08:58 - 杨紫获白玉兰视后争议不止<br><br> | ??:http://www.share.kurohicncr.top/Article/details/41638155151.shtml
-- 2026-06-30 08:56 - 当我知道豆包有后台审核人员<br><br> | ??:https://www.share.kurohicncr.top/Article/details/1162240727.shtml
-- 2026-06-30 08:56 - 为什么会有「念旧」的心理？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/9344897318.shtml
-- 2026-06-30 09:06 - 把毒品藏在哪里，60秒内不会被发现？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/245267281162.shtml
-- 2026-06-30 09:21 - 泰山景区回应修建刀片刺绳隔离网<br><br> | ??:http://www.share.minike.top/Article/details/17253.shtml
+- 2026-06-30 09:24 - 法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/535728646.shtml
+- 2026-06-30 09:28 - 世界杯巴拉圭点球淘汰德国<br><br> | ??:http://www.blog.minike.top/Article/details/790500757.shtml
+- 2026-06-30 09:21 - 曝iPhone18Pro机密文件现身暗网<br><br> | ??:https://www.share.kurohicncr.top/Article/details/311274037660.shtml
+- 2026-06-30 09:14 - 啊啊啊<br><br> | ??:https://www.share.kurohicncr.top/Article/details/5776712.shtml
+- 2026-06-30 09:08 - GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？<br><br> | ??:https://www.blog.minike.top/Article/details/51598.shtml
+- 2026-06-30 09:01 - 人可以极简主义到什么程度？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/5470771.shtml
+- 2026-06-30 09:07 - 送你一朵小红花<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/9989821.shtml
+- 2026-06-30 09:10 - 亚洲球队全部出局<br><br> | ??:https://www.blog.minike.top/Article/details/531439.shtml
+- 2026-06-30 09:16 - 《名肘探科比》：科比大战裂口女<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/694844938.shtml
+- 2026-06-30 09:26 - 一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？<br><br> | ??:http://www.blog.minike.top/Article/details/054526693.shtml
+- 2026-06-30 09:04 - 王楚钦孙颖莎混双对手产生<br><br> | ??:https://www.blog.minike.top/Article/details/633840.shtml
+- 2026-06-30 09:09 - 本届世界杯已有5名球员被控强奸<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/80741793.shtml
+- 2026-06-30 09:14 - 李准基参加文彩元婚礼<br><br> | ??:https://www.share.kurohicncr.top/Article/details/097796087709.shtml
+- 2026-06-30 09:10 - 如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/209379641.shtml
+- 2026-06-30 09:06 - 王菲谢霆锋十指紧扣好甜<br><br> | ??:http://www.blog.minike.top/Article/details/9948210804.shtml

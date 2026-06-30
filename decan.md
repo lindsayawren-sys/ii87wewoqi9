@@ -1,55 +1,57 @@
-# 特朗普取消签署两党住房法案，要求加入选民身份认证相关条款
+# 中外选手南宁邕江竞渡迎端午
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-美国总统唐纳德・特朗普于本周三在其个人社交平台 “真实社交” 上宣布，取消原定在国会山举行的一项里程碑式两党住房法案签署仪式。这份法案此前曾被两党领导人共同称作一次重大立法成果。 特朗普在距离原定前往国会签署该法案、将其正式立法仅剩一小时出头时发布了这条帖子：“现取消本次住房法案新闻发布会及签署仪式，直至国会通过亟需落地的《拯救美国法案》为止，我将该法案的立法事宜视作一项国家紧
+中新网南宁6月20日电(记者 黄艳梅)“龙舟是一项很好玩的运动。通过比赛我体会到了同舟共济、团结拼搏的精神，我喜欢划龙舟。”广西交通职业技术学院刚果(金)籍留学生包爽19日接受中新网记者采访时说。 2026年南宁龙舟公开赛当日在广西南宁“母亲河”邕江擂鼓开赛，来自海内外的48支龙舟队伍劈波斩浪，让民众在端午佳节近距离感受传统龙舟的速度与激情。 南宁龙舟赛始于1978年。本届赛事
 
 ## 正文
 
-美国总统唐纳德・特朗普于本周三在其个人社交平台 “真实社交” 上宣布，取消原定在国会山举行的一项里程碑式两党住房法案签署仪式。
+中新网南宁6月20日电(记者 黄艳梅)“龙舟是一项很好玩的运动。
 
-这份法案此前曾被两党领导人共同称作一次重大立法成果。
+通过比赛我体会到了同舟共济、团结拼搏的精神，我喜欢划龙舟。
 
-特朗普在距离原定前往国会签署该法案、将其正式立法仅剩一小时出头时发布了这条帖子：“现取消本次住房法案新闻发布会及签署仪式，直至国会通过亟需落地的《拯救美国法案》为止，我将该法案的立法事宜视作一项国家紧急事务。
+”广西交通职业技术学院刚果(金)籍留学生包爽19日接受中新网记者采访时说。
 
-感谢各方对此事的关注。
+2026年南宁龙舟公开赛当日在广西南宁“母亲河”邕江擂鼓开赛，来自海内外的48支龙舟队伍劈波斩浪，让民众在端午佳节近距离感受传统龙舟的速度与激情。
 
-”责任编辑：郭明煜
+南宁龙舟赛始于1978年。
+
+本届赛事设公开组22人龙舟、公开组12人龙舟和校园U18组12人龙舟三个大组，均进行200米直道赛和300米直道赛。
+
+本届赛事，青年群体表现活跃，35岁及以下人群占比近六成，让传统民俗在青春力量的加入中焕发新的活力。
+
+当日正值中国端午节，南宁围绕“龙舟竞渡、文旅融合、消费惠民”推出系列文旅体商活动，覆盖非遗展演、文艺演出、文旅体验等。
 
 ## 相关推荐
 
-- 2026-06-30 09:21 - 曝iPhone18Pro机密文件现身暗网<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md
-- 2026-06-30 09:22 - 一见倾心<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md
-- 2026-06-30 09:05 - 青春环游记第三季<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md
-- 2026-06-30 09:08 - 为什么很多企业推行“扁平化管理”后，效率反而下降了？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md
-- 2026-06-30 08:59 - 美人鱼<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md
-- 2026-06-30 09:02 - 全球最火存储ETF纳入兆易创新<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md
-- 2026-06-30 09:21 - 诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md
-- 2026-06-30 09:18 - 亚洲球队全部告别世界杯<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md
-- 2026-06-30 09:11 - 马耳他著名拱门坍塌致中国男子身亡<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md
-- 2026-06-30 09:09 - 马耳他著名拱门坍塌致一中国男子身亡<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md
-- 2026-06-30 09:08 - 极端热浪席卷欧洲多国，热一热百姓让领导先凉快？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md
-- 2026-06-30 08:59 - 覃予萱晋级WTT美国大满贯女单32强<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md
-- 2026-06-30 09:09 - 你的妻子大喷菇—《植物娘大战僵尸》特别篇<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md
-- 2026-06-30 09:19 - 赵今麦因“瘦而不柴”的体态出圈<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md
-- 2026-06-30 08:54 - 送你一朵小红花<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md
+- 2026-06-30 09:12 - 明星大侦探第一季<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md
+- 2026-06-30 09:29 - 媒体评泰山建135公里刀片刺绳隔离网<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md
+- 2026-06-30 09:27 - 千万不要随便扣肚脐<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md
+- 2026-06-30 09:12 - 杨紫被质疑未使用原名纯属误解<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md
+- 2026-06-30 09:22 - 中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md
+- 2026-06-30 09:07 - 被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md
+- 2026-06-30 09:09 - 王源近几年没有路演了<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md
+- 2026-06-30 09:16 - “草莓月亮”浪漫现身<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md
+- 2026-06-30 09:04 - 日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md
+- 2026-06-30 09:22 - 补时绝杀 巴西2-1淘汰日本<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md
+- 2026-06-30 09:12 - 【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:59 - 佐野海舟远射破门<br><br> | ??:http://www.blog.minike.top/Article/details/86217.shtml
-- 2026-06-30 09:06 - 扫黑风暴<br><br> | ??:https://www.share.minike.top/Article/details/016553663608.shtml
-- 2026-06-30 09:13 - 如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/036385.shtml
-- 2026-06-30 09:15 - 4000美元是黄金新一轮下跌的开始吗<br><br> | ??:https://www.blog.minike.top/Article/details/17908782.shtml
-- 2026-06-30 09:03 - 王欣瑜连续4年晋级温网第二轮<br><br> | ??:http://www.blog.minike.top/Article/details/34865.shtml
-- 2026-06-30 09:04 - 商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/147187.shtml
-- 2026-06-30 09:13 - 法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/6742120.shtml
-- 2026-06-30 09:11 - 恋与深空回应争议<br><br> | ??:http://www.blog.minike.top/Article/details/13029242020.shtml
-- 2026-06-30 09:22 - 木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？<br><br> | ??:https://www.blog.minike.top/Article/details/965981711.shtml
-- 2026-06-30 08:55 - 德国巴拉圭 折磨<br><br> | ??:http://www.share.minike.top/Article/details/517170709.shtml
-- 2026-06-30 09:06 - 补时绝杀 巴西2-1淘汰日本<br><br> | ??:http://www.share.kurohicncr.top/Article/details/114498774.shtml
-- 2026-06-30 09:08 - 2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？<br><br> | ??:http://www.share.minike.top/Article/details/9210636.shtml
-- 2026-06-30 08:54 - 锐评：网红不能困在无底线逐利里<br><br> | ??:http://www.blog.minike.top/Article/details/0749358.shtml
-- 2026-06-30 09:01 - 《虎吹最难绷の一集》<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/054476628646.shtml
-- 2026-06-30 09:07 - 老人卖菜获博主帮助后遇车祸去世<br><br> | ??:https://www.share.minike.top/Article/details/626351226.shtml
+- 2026-06-30 09:04 - 德国 传控<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/2674497797.shtml
+- 2026-06-30 09:15 - 把毒品藏在哪里，60秒内不会被发现？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/65013213024.shtml
+- 2026-06-30 09:12 - 恋与深空已删除锅里洗澡文案<br><br> | ??:http://www.share.kurohicncr.top/Article/details/767213.shtml
+- 2026-06-30 09:01 - 王楚钦孙颖莎晋级混双八强<br><br> | ??:http://www.share.minike.top/Article/details/313879.shtml
+- 2026-06-30 09:00 - 齐思钧回复张月<br><br> | ??:http://www.blog.minike.top/Article/details/67362.shtml
+- 2026-06-30 09:27 - 浪姐成团夜爆笑吐槽<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/565912556.shtml
+- 2026-06-30 09:02 - 网瘾賊大的阿嬷<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/600566.shtml
+- 2026-06-30 09:29 - 人民锐评网红诋毁袁隆平造谣企业家<br><br> | ??:https://www.share.minike.top/Article/details/95310.shtml
+- 2026-06-30 09:12 - 王菲谢霆锋十指紧扣好甜<br><br> | ??:http://www.blog.minike.top/Article/details/4489871.shtml
+- 2026-06-30 09:27 - 酒店推行“24小时退房”引热议<br><br> | ??:http://www.share.kurohicncr.top/Article/details/85590923.shtml
+- 2026-06-30 09:13 - 世界杯<br><br> | ??:https://www.share.kurohicncr.top/Article/details/61999246.shtml
+- 2026-06-30 09:22 - 我觉得你是在无中生友<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/2863654.shtml
+- 2026-06-30 09:18 - 佐野海舟远射破门<br><br> | ??:http://www.blog.minike.top/Article/details/80422827.shtml
+- 2026-06-30 09:15 - 郑钦文温网一轮游<br><br> | ??:https://www.share.minike.top/Article/details/9368025595.shtml
+- 2026-06-30 09:16 - 张雪的一句“是我们”引发岛内热议<br><br> | ??:http://www.blog.minike.top/Article/details/74971.shtml

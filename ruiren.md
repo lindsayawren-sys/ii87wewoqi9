@@ -1,53 +1,60 @@
-# 国台办：民进党当局已沦为外部势力侵害中华民族整体利益的帮凶
+# 船东谨慎避险 周五霍尔木兹海峡航运流量锐减
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-中新网6月24日电 6月24日，国务院台办举行例行新闻发布会。有记者就赖清德借日菲侵权行径散播“台独”分裂谬论一事提问。 发言人张晗表示，日、菲宣布的拟划界海域位于台湾岛以东，中国在上述海域拥有专属经济区和大陆架。日菲绕开中方擅自启动所谓海域划界谈判，严重违反包括《联合国海洋公约》在内的国际法和国际关系基本准则，严重侵害中国海洋权益。大陆有关部门在相关海域依法开展执法巡查正当必
+就在美伊承诺解除双向封锁、海峡油运一度激增的次日，周五早间霍尔木兹海峡通航量大幅回落。 周五上午暂无油轮驶出波斯湾，但一艘超大型原油运输船出现在阿曼首都马斯喀特近海，说明该船已完成海峡过境；一艘关联伊朗的液化石油气运输船与一艘挪威籍成品油轮驶入波斯湾。 与此同时，四艘满载原油、此前滞留在波斯湾内的超大型油轮正驶向海峡。两艘印度相关超大型油轮周五启程朝海峡航行，另有两艘在湾内向东
 
 ## 正文
 
-中新网6月24日电 6月24日，国务院台办举行例行新闻发布会。
+就在美伊承诺解除双向封锁、海峡油运一度激增的次日，周五早间霍尔木兹海峡通航量大幅回落。
 
-有记者就赖清德借日菲侵权行径散播“台独”分裂谬论一事提问。
+周五上午暂无油轮驶出波斯湾，但一艘超大型原油运输船出现在阿曼首都马斯喀特近海，说明该船已完成海峡过境；一艘关联伊朗的液化石油气运输船与一艘挪威籍成品油轮驶入波斯湾。
 
-发言人张晗表示，日、菲宣布的拟划界海域位于台湾岛以东，中国在上述海域拥有专属经济区和大陆架。
+与此同时，四艘满载原油、此前滞留在波斯湾内的超大型油轮正驶向海峡。
 
-日菲绕开中方擅自启动所谓海域划界谈判，严重违反包括《联合国海洋公约》在内的国际法和国际关系基本准则，严重侵害中国海洋权益。
+两艘印度相关超大型油轮周五启程朝海峡航行，另有两艘在湾内向东航行，缩短与海峡的距离。
 
-大陆有关部门在相关海域依法开展执法巡查正当必要，是维护国家主权和海洋权益的正义之举。
+海峡短暂归于平静之际，市场开始质疑美伊能否在60天窗口期内敲定谅解备忘录里争议条款。
 
-张晗指出，民进党当局对日菲侵权行径装聋作哑、视而不见，却借机大肆散播“台独”分裂谬论，煽动“反中抗中”，已经沦为外部势力侵害中华民族整体利益的帮凶，卑劣无耻，必遭清算。
+双方瑞士会晤计划已取消；尽管美国发出劝阻，以色列军方仍对黎巴嫩南部实施打击。
+
+海洋风险咨询公司Marisks周五向客户发布研报称：“首轮计划谈判直接取消，给地区维稳进程造成挫折。
+
+若外交对话无法重启，海上安全局势或将持续动荡，航运相关各方仍将深陷不确定性。
 
 ## 相关推荐
 
-- 2026-06-30 09:17 - 女子清吧被陌生人投放伟哥<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md
-- 2026-06-30 09:07 - 男子中医院拔火罐致浅2度烧伤<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md
-- 2026-06-30 09:12 - 索马里女大使：想和中国一起搞事业<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md
-- 2026-06-30 09:03 - 德国爆冷点球大战不敌巴拉圭<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md
-- 2026-06-30 09:22 - 日本反击率先破门<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md
-- 2026-06-30 09:22 - 安切洛蒂 换人<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md
-- 2026-06-30 09:17 - Melo向柳智敏张元英道歉<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md
-- 2026-06-30 09:09 - 斛珠夫人<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md
-- 2026-06-30 08:59 - 《名肘探科比》：科比大战裂口女<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md
-- 2026-06-30 09:02 - 我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md
-- 2026-06-30 09:07 - 《恋与深空》被指触碰民族伤痛红线<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md
+- 2026-06-30 09:16 - 第3集丨“柠檬茶能换怀表？”<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md
+- 2026-06-30 09:18 - 第3集丨“柠檬茶能换怀表？”<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md
+- 2026-06-30 09:04 - 巴拉圭进球<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md
+- 2026-06-30 09:08 - 送你一朵小红花<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md
+- 2026-06-30 09:18 - 曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md
+- 2026-06-30 09:06 - 美股深夜大反弹 特斯拉飙涨8%<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md
+- 2026-06-30 09:06 - 扫黑风暴<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md
+- 2026-06-30 09:09 - 美加墨世界杯：亚洲足球的得意与失意<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md
+- 2026-06-30 09:15 - 板面：为什么那么多人爱吃？？！<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md
+- 2026-06-30 09:06 - 法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md
+- 2026-06-30 09:23 - 点球淘汰德国 巴拉圭首都陷入疯狂<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md
+- 2026-06-30 09:21 - 男子中医院拔火罐致浅2度烧伤<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md
+- 2026-06-30 09:12 - 杨紫肖战余生请多指教拍立得<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md
+- 2026-06-30 09:29 - 张碧晨一开口梦回逐玉<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:06 - 古代人对纳妾的态度是什么样的？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/509769120.shtml
-- 2026-06-30 09:03 - 啊啊啊<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/092340.shtml
-- 2026-06-30 08:56 - “以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/54318836928.shtml
-- 2026-06-30 09:18 - 国务院：稳步推进研究生考试招生改革<br><br> | ??:https://www.blog.minike.top/Article/details/63138697354.shtml
-- 2026-06-30 08:54 - 中国对日本再出重拳<br><br> | ??:https://www.blog.minike.top/Article/details/8418327.shtml
-- 2026-06-30 09:01 - 主人解开狗绳2只狗将路人撕咬致死<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/31610.shtml
-- 2026-06-30 09:16 - 泰山景区建135公里刀片刺绳隔离网<br><br> | ??:https://www.blog.minike.top/Article/details/5984713576.shtml
-- 2026-06-30 09:01 - 诺伊尔尽力了<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/966179386301.shtml
-- 2026-06-30 09:01 - 老人卖菜获博主帮助后遇车祸去世<br><br> | ??:https://www.blog.minike.top/Article/details/169683783706.shtml
-- 2026-06-30 09:21 - 巴拉圭点球大战淘汰德国进16强<br><br> | ??:http://www.share.minike.top/Article/details/10409728.shtml
-- 2026-06-30 09:09 - 87克大金链到老庙黄金维修少了11克<br><br> | ??:http://www.blog.minike.top/Article/details/6433464.shtml
-- 2026-06-30 09:12 - 古代人对纳妾的态度是什么样的？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/53122.shtml
-- 2026-06-30 08:57 - 古代时期普通老百姓能喝上酒吗？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/71593652.shtml
-- 2026-06-30 08:59 - 巴西足球能否再现昔日荣光<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/51910579.shtml
-- 2026-06-30 08:55 - 杨某诋毁袁隆平院士科研成果被刑拘<br><br> | ??:http://www.blog.minike.top/Article/details/0660012890.shtml
+- 2026-06-30 09:19 - 欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/08204583381.shtml
+- 2026-06-30 09:28 - 领克900大型SUV值得购买吗?<br><br> | ??:http://www.share.minike.top/Article/details/9684674.shtml
+- 2026-06-30 09:17 - 欧洲民众抢购空调降温<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/07896.shtml
+- 2026-06-30 09:01 - 齐思钧回复张月<br><br> | ??:https://www.blog.minike.top/Article/details/02099331.shtml
+- 2026-06-30 09:22 - 覃予萱晋级WTT美国大满贯女单32强<br><br> | ??:http://www.share.kurohicncr.top/Article/details/27940265.shtml
+- 2026-06-30 09:21 - 如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/3530266566.shtml
+- 2026-06-30 09:06 - 有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/593072390920.shtml
+- 2026-06-30 09:20 - 王健林甩卖超80座万达广场<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/3847274136.shtml
+- 2026-06-30 09:18 - “荒唐”背后的韩国足球<br><br> | ??:http://www.share.minike.top/Article/details/652992769.shtml
+- 2026-06-30 09:08 - 如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/98622971067.shtml
+- 2026-06-30 09:20 - 四川凉山落石砸毁车辆 3人遇难<br><br> | ??:https://www.blog.minike.top/Article/details/279494921114.shtml
+- 2026-06-30 09:13 - 索马里女大使：想和中国一起搞事业<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/82863869.shtml
+- 2026-06-30 09:15 - 女子遭家暴逃跑致丈夫身亡二审细节<br><br> | ??:http://www.share.minike.top/Article/details/962447.shtml
+- 2026-06-30 09:07 - 人类...完蛋了...<br><br> | ??:http://www.blog.minike.top/Article/details/427866466.shtml
+- 2026-06-30 09:09 - 《恋与深空》被指触碰民族伤痛红线<br><br> | ??:http://www.share.minike.top/Article/details/68469381433.shtml

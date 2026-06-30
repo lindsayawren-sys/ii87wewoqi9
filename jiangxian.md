@@ -1,57 +1,50 @@
-# 美国财长贝森特：沃什对通胀态度强硬 特朗普允许美联储自主决策
+# 北京利尔调整定向增发预案 拟募资规模下调至不超10.25亿元
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-美国财政部长斯科特·贝森特表达了对新任美联储主席凯文·沃什的信心，并称总统特朗普给予了沃什自主决策的空间。 “他谈论通胀问题时态度强硬，”贝森特周三在节目中说。他表示，相信沃什“将找到一条能兼顾通胀和经济的最佳途径”。 当被问及是否与特朗普讨论过当前并非合适降息时机（特朗普长期以来一直呼吁降息）时，贝森特表示，特朗普“无论在公开场合还是私下里，都表示对凯文·沃什充满信心”。 贝
+6月21日，北京利尔（002392.SZ）披露修订后的2026年度向特定对象发行A股股票预案，拟募资总额由原计划的不超过10.34亿元调整为不超过10.25亿元。本次募资额调整的原因是公司新增对共青城鼎新未来创业投资合伙企业（有限合伙）的901万元投资，该笔投资属于财务性投资，将从此次拟使用募集资金投资金额中扣减。（文章来源：央广财经）
 
 ## 正文
 
-美国财政部长斯科特·贝森特表达了对新任美联储主席凯文·沃什的信心，并称总统特朗普给予了沃什自主决策的空间。
+6月21日，北京利尔（002392.SZ）披露修订后的2026年度向特定对象发行A股股票预案，拟募资总额由原计划的不超过10.34亿元调整为不超过10.25亿元。
 
-“他谈论通胀问题时态度强硬，”贝森特周三在节目中说。
+本次募资额调整的原因是公司新增对共青城鼎新未来创业投资合伙企业（有限合伙）的901万元投资，该笔投资属于财务性投资，将从此次拟使用募集资金投资金额中扣减。
 
-他表示，相信沃什“将找到一条能兼顾通胀和经济的最佳途径”。
-
-当被问及是否与特朗普讨论过当前并非合适降息时机（特朗普长期以来一直呼吁降息）时，贝森特表示，特朗普“无论在公开场合还是私下里，都表示对凯文·沃什充满信心”。
-
-贝森特预测，在今年余下时间里，美国经济将在不引发通胀的情况下加速增长。
-
-在周二晚些时候的另一次讲话中，他还预测，随着伊朗冲突的缓和，物价涨幅将会回落。
-
-沃什上周主持了他任内的首次美联储政策会议，尽管特朗普极力呼吁降息，但他仍与联邦公开市场委员会的其他成员一道投票维持利率不变。
-
-由于通胀卷土重来，美联储决策者逐渐改变了降息倾向，许多人现在认为有理由在2026年提高借贷成本。
+（文章来源：央广财经）
 
 ## 相关推荐
 
-- 2026-06-30 09:08 - 请回答王牌2019<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md
-- 2026-06-30 09:01 - 爱直接对嘴喝饮料的人天塌了<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md
-- 2026-06-30 09:08 - 大蒜晒外面被路过女子连盆端走<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md
-- 2026-06-30 08:54 - 日本将帅赛后采访纷纷哽咽落泪<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md
-- 2026-06-30 09:20 - 俄乌双方伤亡近180万人<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md
-- 2026-06-30 09:23 - 时光音乐会<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md
-- 2026-06-30 09:00 - 【涤墨作战7人870】望：我从地狱杀回来了！<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md
-- 2026-06-30 09:11 - 妻子撞死家暴丈夫案二审案情反转<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md
-- 2026-06-30 09:19 - 高考结束，该不该外出打工体验？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md
-- 2026-06-30 09:09 - 有什么好的高中网课推荐吗？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md
-- 2026-06-30 09:01 - 四川宜宾地震为何震感明显<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md
+- 2026-06-30 09:01 - 日本队5进世界杯淘汰赛0胜<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md
+- 2026-06-30 09:24 - 补时绝杀 巴西2-1淘汰日本<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md
+- 2026-06-30 09:10 - 索马里女大使：想和中国一起搞事业<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md
+- 2026-06-30 09:19 - 巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md
+- 2026-06-30 09:25 - 一见倾心<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md
+- 2026-06-30 09:26 - 【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md
+- 2026-06-30 09:05 - 天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md
+- 2026-06-30 09:06 - 阿娇瘦了10斤<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md
+- 2026-06-30 09:17 - 德国队世界杯点球大战首败<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md
+- 2026-06-30 09:28 - 曝灰熊将莫兰特交易至开拓者<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md
+- 2026-06-30 09:24 - 郑钦文温网一轮游<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md
+- 2026-06-30 09:13 - 王楚钦孙颖莎混双对手产生<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md
+- 2026-06-30 09:09 - 城市规划有可能成为「屎山代码」吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md
+- 2026-06-30 09:25 - 要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:02 - 勇士续约波尔津吉斯<br><br> | ??:http://www.blog.minike.top/Article/details/954414850.shtml
-- 2026-06-30 08:58 - 2021湖南卫视跨年演唱会<br><br> | ??:https://www.share.minike.top/Article/details/12631753548.shtml
-- 2026-06-30 09:06 - 有哪些值得一提的生活窍门？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/7176474.shtml
-- 2026-06-30 09:10 - 莫兰特转投开拓者效力<br><br> | ??:http://www.share.kurohicncr.top/Article/details/7525156.shtml
-- 2026-06-30 09:01 - 湖北云南的这些涉汛信息都是假的<br><br> | ??:http://www.blog.minike.top/Article/details/891199423299.shtml
-- 2026-06-30 09:15 - 曝娱乐圈大部分明星失业<br><br> | ??:http://www.share.minike.top/Article/details/44838.shtml
-- 2026-06-30 09:18 - 韩国道歉完日本道歉<br><br> | ??:https://www.share.kurohicncr.top/Article/details/20411530.shtml
-- 2026-06-30 08:56 - 又一家县级医院关停门诊输液大厅<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/51559918157.shtml
-- 2026-06-30 08:58 - 欧洲装一台空调有多难<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/00584623.shtml
-- 2026-06-30 09:04 - Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？<br><br> | ??:http://www.share.minike.top/Article/details/98896.shtml
-- 2026-06-30 09:09 - 田中碧失误<br><br> | ??:http://www.blog.minike.top/Article/details/4211806.shtml
-- 2026-06-30 09:07 - 德国巴拉圭 折磨<br><br> | ??:https://www.share.kurohicncr.top/Article/details/65150032973.shtml
-- 2026-06-30 08:55 - 天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/8502413.shtml
-- 2026-06-30 09:02 - 金刚川<br><br> | ??:http://www.share.minike.top/Article/details/75877670.shtml
-- 2026-06-30 09:13 - 国内最大沙漠发洪水意味着什么<br><br> | ??:http://www.blog.minike.top/Article/details/20524.shtml
+- 2026-06-30 09:20 - 你人生中最艰难的时候是怎么熬过来的？<br><br> | ??:https://www.share.minike.top/Article/details/662239.shtml
+- 2026-06-30 09:17 - "超算小姐，这一次，我一定要带你出去..."<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/53107713.shtml
+- 2026-06-30 09:19 - 日本淘汰<br><br> | ??:https://www.blog.minike.top/Article/details/855344376766.shtml
+- 2026-06-30 09:19 - Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/05644891103.shtml
+- 2026-06-30 09:24 - 【涤墨作战7人870】望：我从地狱杀回来了！<br><br> | ??:https://www.blog.minike.top/Article/details/618654242276.shtml
+- 2026-06-30 09:27 - 郑钦文温网首轮出局<br><br> | ??:http://www.blog.minike.top/Article/details/522068135.shtml
+- 2026-06-30 09:25 - “草莓月亮”浪漫现身<br><br> | ??:http://www.share.minike.top/Article/details/4180499.shtml
+- 2026-06-30 09:28 - 古代人对纳妾的态度是什么样的？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/571161307.shtml
+- 2026-06-30 09:27 - 欧洲民众抢购空调降温<br><br> | ??:http://www.share.kurohicncr.top/Article/details/36090863084.shtml
+- 2026-06-30 09:03 - 杨紫大银幕成绩单如何<br><br> | ??:https://www.share.minike.top/Article/details/539125682.shtml
+- 2026-06-30 09:01 - 陈幸同晋级WTT美国大满贯女单32强<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/607859466.shtml
+- 2026-06-30 09:20 - 德国 传控<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/09999065.shtml
+- 2026-06-30 09:07 - 主人解开狗绳2只狗将路人撕咬致死<br><br> | ??:https://www.blog.minike.top/Article/details/631541.shtml
+- 2026-06-30 09:29 - 【硬核拆解】汽车人到底离我们有多远？<br><br> | ??:https://www.share.minike.top/Article/details/184014725772.shtml
+- 2026-06-30 09:15 - 孙颖莎王楚钦晋级8强<br><br> | ??:http://www.share.kurohicncr.top/Article/details/637366488.shtml

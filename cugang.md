@@ -1,59 +1,60 @@
-# 针对中国公民的电信网络诈骗案件多发，驻荷兰使馆发布提醒
+# 埃及前总理：中国治理经验为全球南方提供宝贵借鉴
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-中新网6月24日电 据中国驻荷兰大使馆微信公众号消息，近期，针对在荷中国公民的电信网络诈骗案件多发。不法分子伪装成使馆工作人员或国内公安，谎称当事人涉嫌刑事犯罪，以限制出入境、冻结个人账户为由诱骗缴纳保证金；或以超低价格售卖商品、提供优惠换汇服务，诱导受害者脱离正规平台私下转账。中国驻荷兰大使馆在此提醒广大在荷中国公民务必提高警惕、加强甄别，切记以下三点： 一、提高防范意识。使
+新华社开罗6月20日电 题：埃及前总理：中国治理经验为全球南方提供宝贵借鉴 新华社记者黄爱萍 姚兵 埃及前总理、“一带一路”国际合作高峰论坛咨询委员会委员埃萨姆·谢拉夫日前接受新华社记者采访时表示，中国实现全面和可持续的发展，形成了一套符合自身实际、高效运行的国家治理体系。中国的治理经验为阿拉伯国家以及广大全球南方国家发展提供了宝贵借鉴。 自2005年以来，谢拉夫多次到访中国，
 
 ## 正文
 
-中新网6月24日电 据中国驻荷兰大使馆微信公众号消息，近期，针对在荷中国公民的电信网络诈骗案件多发。
+新华社开罗6月20日电 题：埃及前总理：中国治理经验为全球南方提供宝贵借鉴 新华社记者黄爱萍 姚兵 埃及前总理、“一带一路”国际合作高峰论坛咨询委员会委员埃萨姆·谢拉夫日前接受新华社记者采访时表示，中国实现全面和可持续的发展，形成了一套符合自身实际、高效运行的国家治理体系。
 
-不法分子伪装成使馆工作人员或国内公安，谎称当事人涉嫌刑事犯罪，以限制出入境、冻结个人账户为由诱骗缴纳保证金；或以超低价格售卖商品、提供优惠换汇服务，诱导受害者脱离正规平台私下转账。
+中国的治理经验为阿拉伯国家以及广大全球南方国家发展提供了宝贵借鉴。
 
-中国驻荷兰大使馆在此提醒广大在荷中国公民务必提高警惕、加强甄别，切记以下三点： 一、提高防范意识。
+自2005年以来，谢拉夫多次到访中国，亲眼见证了中国的发展变化。
 
-使馆或国内单位不会以电话方式通知中国公民处理任何司法案件，不会为当事人转接所谓“国内公检法机关”，更不会索要银行账户、验证码、保证金等。
+在他看来，中国经济体量不断扩大、基础设施持续升级、科技实力稳步提升，进而切实提高人民群众生活水平，真正凝聚起强大民意。
 
-日常购物或换汇坚守正规平台，拒绝私下交易，切勿点开陌生邮件与网页链接。
+谢拉夫认为，中国能够实现持续全面发展至少源于4个关键支撑：立足长远的发展规划、持续推进的综合改革、注重质量的发展路径以及不断扩大的高水平开放。
 
-二、核实来电信息。
+谢拉夫十分认同中国以人民为中心的发展思想。
 
-若无法辨别是否为诈骗电话，可礼貌挂断，及时联系使馆或外交部全球领事保护与服务应急热线(+86-10-12308/+86-10-65612308)予以核实。
+他表示，中国始终把人民福祉和需求放在首位。
 
-同时，及时关注使馆发布的反诈提醒和《海外防范电信网络诈骗宣传手册》。
+这一发展思路，正在被越来越多发展中国家学习和借鉴。
 
 ## 相关推荐
 
-- 2026-06-30 09:02 - 古代人对纳妾的态度是什么样的？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md
-- 2026-06-30 09:07 - 德国 传控<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md
-- 2026-06-30 09:18 - 巴拉圭率先破门<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md
-- 2026-06-30 09:08 - 《共患难》<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md
-- 2026-06-30 09:16 - 德国进球被吹<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md
-- 2026-06-30 09:00 - 荷兰VS摩洛哥<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md
-- 2026-06-30 09:14 - 亚洲球队全部告别世界杯<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md
-- 2026-06-30 09:12 - 峡谷事故团队组队时有人提醒会下雨<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md
-- 2026-06-30 09:03 - 德国巴拉圭进入点球大战<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md
-- 2026-06-30 09:13 - 韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md
-- 2026-06-30 08:54 - 中国新一轮出口管制直指日本命脉<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md
-- 2026-06-30 09:19 - “荒唐”背后的韩国足球<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md
-- 2026-06-30 09:12 - 荷兰VS摩洛哥<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md
+- 2026-06-30 09:21 - 张月收到黄灿灿辣货两眼发光<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md
+- 2026-06-30 09:20 - 收到补税提醒尽快办理 明起有滞纳金<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md
+- 2026-06-30 09:27 - 第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md
+- 2026-06-30 09:27 - 咕嘎万能小摊1：沉浸式制作惠灵顿牛排<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md
+- 2026-06-30 09:01 - 古代人对纳妾的态度是什么样的？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md
+- 2026-06-30 09:25 - GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md
+- 2026-06-30 09:18 - 杨紫大银幕成绩单如何<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md
+- 2026-06-30 09:03 - 日本主帅赛后回应淘汰出局<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md
+- 2026-06-30 09:29 - 巴西vs日本<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md
+- 2026-06-30 09:28 - 德国队连续三届世界杯无缘16强<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md
+- 2026-06-30 09:11 - 董卿父亲在报纸上发文悼念亡妻<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md
+- 2026-06-30 09:12 - 世界杯：荷兰vs摩洛哥<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md
+- 2026-06-30 09:18 - 这几秒成世界杯最值钱广告位<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md
+- 2026-06-30 09:06 - 爱很美味<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:03 - 为什么会有「念旧」的心理？<br><br> | ??:https://www.blog.minike.top/Article/details/06861540521.shtml
-- 2026-06-30 08:59 - 大学生遇地震裹被子从5楼冲下<br><br> | ??:http://www.share.minike.top/Article/details/9795155.shtml
-- 2026-06-30 08:59 - 千万不要随便扣肚脐<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/489566.shtml
-- 2026-06-30 09:23 - 恋与深空<br><br> | ??:https://www.blog.minike.top/Article/details/35368889.shtml
-- 2026-06-30 08:55 - 《鸣潮》玄方主题曲 MV | 定玄<br><br> | ??:http://www.share.minike.top/Article/details/43850152.shtml
-- 2026-06-30 09:15 - 领克07GT搭载超跑同源MRC悬架<br><br> | ??:http://www.share.kurohicncr.top/Article/details/50348583.shtml
-- 2026-06-30 08:56 - 如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？<br><br> | ??:http://www.blog.minike.top/Article/details/20101367.shtml
-- 2026-06-30 09:09 - 这些7月新规影响你我<br><br> | ??:http://www.share.kurohicncr.top/Article/details/392004.shtml
-- 2026-06-30 09:02 - 中国新一轮出口管制直指日本命脉<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/8038302.shtml
-- 2026-06-30 09:21 - 我觉得你是在无中生友<br><br> | ??:http://www.blog.minike.top/Article/details/01000029.shtml
-- 2026-06-30 09:13 - 日本队被绝杀后鞠躬致谢观众<br><br> | ??:https://www.share.kurohicncr.top/Article/details/3742331.shtml
-- 2026-06-30 09:05 - 女子健身不当 居然“脑子漏水”了<br><br> | ??:https://www.share.minike.top/Article/details/5621065901.shtml
-- 2026-06-30 09:00 - 恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？<br><br> | ??:https://www.share.minike.top/Article/details/19688798.shtml
-- 2026-06-30 09:20 - 穆祉丞回应获年度人气艺人<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/83924711670.shtml
-- 2026-06-30 09:15 - 荷兰VS摩洛哥<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/23489.shtml
+- 2026-06-30 09:27 - 恋与深空已删除锅里洗澡文案<br><br> | ??:https://www.share.kurohicncr.top/Article/details/3892764320.shtml
+- 2026-06-30 09:04 - 张月收到黄灿灿辣货两眼发光<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/487479881.shtml
+- 2026-06-30 09:12 - 锐评T1战胜KC<br><br> | ??:https://www.share.minike.top/Article/details/73935719633.shtml
+- 2026-06-30 09:06 - 王健林甩卖超80座万达广场<br><br> | ??:https://www.share.kurohicncr.top/Article/details/156885462999.shtml
+- 2026-06-30 09:06 - 央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/562522317821.shtml
+- 2026-06-30 09:16 - 高考结束，该不该外出打工体验？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/21646366569.shtml
+- 2026-06-30 09:07 - 美媒：美军第五舰队司令部已无法使用<br><br> | ??:http://www.share.kurohicncr.top/Article/details/27535.shtml
+- 2026-06-30 09:05 - 郑钦文温网首轮出局<br><br> | ??:http://www.share.minike.top/Article/details/455798575.shtml
+- 2026-06-30 09:27 - 如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？<br><br> | ??:http://www.share.minike.top/Article/details/51648.shtml
+- 2026-06-30 09:04 - 开电动汽车真的很省钱吗？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/652579457.shtml
+- 2026-06-30 09:22 - 卢卡申科发布解放军仪仗队视频<br><br> | ??:http://www.blog.minike.top/Article/details/848665903.shtml
+- 2026-06-30 09:13 - 陈小春人老了干什么也不心酸<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/67727235.shtml
+- 2026-06-30 09:10 - 【硬核拆解】汽车人到底离我们有多远？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/366635329.shtml
+- 2026-06-30 09:15 - 左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？<br><br> | ??:https://www.blog.minike.top/Article/details/41448.shtml
+- 2026-06-30 09:23 - 王楚钦孙颖莎vs皮斯特耶库库洛娃<br><br> | ??:http://www.share.minike.top/Article/details/838926.shtml

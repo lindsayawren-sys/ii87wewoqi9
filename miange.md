@@ -1,60 +1,57 @@
-# 创新药再陷调整！场内唯一药ETF止步四连涨，港股通创新药大面积飘绿，520880跌逾2.5%
+# 五角大楼或需800亿美元为伊朗战事“埋单”
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-6月25日，AH创新药再陷调整，重仓A股创新药的药ETF华宝（562050）、满仓港药的港股通创新药ETF华宝（520880）盘中一度双双跌超2%。 A股制药板块普跌，核心权重股恒瑞医药跌1.5%，新和成、复星医药跌3%，场内唯一表征制药板块的药ETF华宝（562050）止步四连阳。值得关注的是，562050近日频获资金增仓，近10日吸金超千万元。 港股通创新药低开低走，100
+当地时间18日，美国知情人士称，美国国防部向国会提出，国防部需要800亿美元来“填平”伊朗战事成本和其他相关费用。 消息援引多名匿名美国国会议员说法称，美国防部副部长斯蒂芬·范伯格本周在电话中告知他们这一数字。与此同时，国防部长赫格塞思本周与国会共和党资深参议员会面，谈及额外增加防务拨款事宜。 美国防部官员称，如果不增加拨款，美军今夏开展军事行动的资金可能告罄。 美国和以色列2
 
 ## 正文
 
-6月25日，AH创新药再陷调整，重仓A股创新药的药ETF华宝（562050）、满仓港药的港股通创新药ETF华宝（520880）盘中一度双双跌超2%。
+当地时间18日，美国知情人士称，美国国防部向国会提出，国防部需要800亿美元来“填平”伊朗战事成本和其他相关费用。
 
-A股制药板块普跌，核心权重股恒瑞医药跌1.5%，新和成、复星医药跌3%，场内唯一表征制药板块的药ETF华宝（562050）止步四连阳。
+消息援引多名匿名美国国会议员说法称，美国防部副部长斯蒂芬·范伯格本周在电话中告知他们这一数字。
 
-值得关注的是，562050近日频获资金增仓，近10日吸金超千万元。
+与此同时，国防部长赫格塞思本周与国会共和党资深参议员会面，谈及额外增加防务拨款事宜。
 
-港股通创新药低开低走，100%创新药研发标的——港股通创新药ETF华宝（520880）尽吐昨日涨幅，权重龙头尽墨，信达生物跌超2%，石药集团、康方生物、中国生物制药齐跌逾3%。
+美国防部官员称，如果不增加拨款，美军今夏开展军事行动的资金可能告罄。
 
-分析指出，当前市场仍呈分化局面，以AI为代表的科技公司吸收了大量流动性，而部分基本面扎实、成长前景较好的创新药公司股价持续承压，股价与基本面出现背离。
+美国和以色列2月底对伊朗发起军事打击。
 
-在产业趋势持续向上背景下，极致分化或为参与优质创新药公司投资提供了更好机会。
+美国总统特朗普3月19日证实，国防部向国会申请追加约2000亿美元预算，用以支持对伊朗的军事行动。
 
-需要特别提醒的是，尽管当前AH创新药均已调整至阶段底部区域，但短期波动仍较高，看好创新药中长期投资价值的投资者须警惕风险，切勿盲目梭哈“抄底”，或可考虑逢跌分批吸筹或采用网格交易策略。
+不过，该申请随即遭到一些国会议员强烈反对。
 
-低位吸纳创新药核心资产，关注两大投资利器： 投纯正创新药，认准港股通创新药ETF华宝（520880），100%布局创新药研发类公司，前十大权重股占比超七成，龙头属性突出，底层资产是港股，高弹性、T+0。
+消息称，美国国会议员一直向政府施压，要求其就伊朗战事成本提供具体数字。
 
 ## 相关推荐
 
-- 2026-06-30 09:05 - 田中碧失误<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md
-- 2026-06-30 08:55 - 时光音乐会<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md
-- 2026-06-30 09:20 - 如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md
-- 2026-06-30 09:17 - 日本队被绝杀后鞠躬致谢观众<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md
-- 2026-06-30 09:22 - 花少8要去世界杯举办国<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md
-- 2026-06-30 09:13 - 陈小春人老了干什么也不心酸<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md
-- 2026-06-30 09:08 - 致敬！中国首批缉毒警已全体退休<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md
-- 2026-06-30 09:15 - 可以细成这样？1600万预算，颠覆我认知的改造！<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md
-- 2026-06-30 09:18 - 刘宇宁高情商化解谁站C位<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md
-- 2026-06-30 08:58 - 毕业以后，你最怀念的大学记忆是什么？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md
-- 2026-06-30 09:22 - 韩国世界杯出局是主帅一个人的锅吗<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md
-- 2026-06-30 09:09 - 湖北云南这些涉汛信息都是假的<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md
-- 2026-06-30 09:22 - 韩国道歉完日本道歉<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md
-- 2026-06-30 09:00 - 网友写差评被店家“挂”门口避雷<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md
+- 2026-06-30 09:25 - 木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md
+- 2026-06-30 09:14 - “草莓月亮”浪漫现身<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md
+- 2026-06-30 09:02 - 男子醉酒溺水获救后同行人拒协助抬人<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md
+- 2026-06-30 09:18 - 2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md
+- 2026-06-30 09:17 - 2021湖南卫视跨年演唱会<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md
+- 2026-06-30 09:04 - 梅德韦杰夫列举俄罗斯面临的七大挑战<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md
+- 2026-06-30 09:13 - 热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md
+- 2026-06-30 09:21 - 如何评价《龙之家族》第三季第二集？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md
+- 2026-06-30 09:18 - 德国队回应爆冷淘汰<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md
+- 2026-06-30 09:02 - 李准基参加文彩元婚礼<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md
+- 2026-06-30 09:14 - Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:15 - 请回答王牌2019<br><br> | ??:http://www.share.minike.top/Article/details/9672391.shtml
-- 2026-06-30 09:19 - 如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？<br><br> | ??:http://www.share.minike.top/Article/details/048726555038.shtml
-- 2026-06-30 09:10 - 欧洲空调卖疯了 下一个爆款是储能吗<br><br> | ??:https://www.share.minike.top/Article/details/523682794458.shtml
-- 2026-06-30 09:02 - 德国爆冷点球大战不敌巴拉圭<br><br> | ??:https://www.blog.minike.top/Article/details/4975821925.shtml
-- 2026-06-30 09:20 - 荷兰VS摩洛哥<br><br> | ??:http://www.share.minike.top/Article/details/765792.shtml
-- 2026-06-30 09:04 - 欧洲装一台空调有多难<br><br> | ??:http://www.share.minike.top/Article/details/6752133141.shtml
-- 2026-06-30 09:17 - 媒体：手机测评该挤挤水分了<br><br> | ??:https://www.blog.minike.top/Article/details/719379239.shtml
-- 2026-06-30 09:03 - 莫兰特被交易到开拓者<br><br> | ??:http://www.share.kurohicncr.top/Article/details/3345031276.shtml
-- 2026-06-30 09:11 - 德国4比5巴拉圭<br><br> | ??:http://www.blog.minike.top/Article/details/96313012.shtml
-- 2026-06-30 08:54 - 孙颖莎王楚钦晋级8强<br><br> | ??:https://www.share.kurohicncr.top/Article/details/194984124.shtml
-- 2026-06-30 08:58 - 日本球员说被绝杀非常不甘心<br><br> | ??:https://www.blog.minike.top/Article/details/936952096111.shtml
-- 2026-06-30 09:07 - 峡谷事故团队组队时有人提醒会下雨<br><br> | ??:http://www.share.kurohicncr.top/Article/details/33794020677.shtml
-- 2026-06-30 09:09 - 世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？<br><br> | ??:https://www.share.minike.top/Article/details/286988.shtml
-- 2026-06-30 09:06 - 李在明90度鞠躬感谢韩国两大财阀<br><br> | ??:http://www.share.minike.top/Article/details/69322.shtml
-- 2026-06-30 09:22 - 我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......<br><br> | ??:https://www.share.kurohicncr.top/Article/details/81332769.shtml
+- 2026-06-30 09:23 - 女心理师<br><br> | ??:https://www.share.kurohicncr.top/Article/details/6930007026.shtml
+- 2026-06-30 09:00 - 诺伊尔尽力了<br><br> | ??:http://www.share.kurohicncr.top/Article/details/02786.shtml
+- 2026-06-30 09:15 - 点球大战<br><br> | ??:http://www.blog.minike.top/Article/details/8545970050.shtml
+- 2026-06-30 09:21 - 租房时你会更看重「住得舒服」，还是「每天通勤更方便」？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/68932278.shtml
+- 2026-06-30 09:14 - 三星投资计划<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/283962228468.shtml
+- 2026-06-30 09:16 - 曝娱乐圈大部分明星失业<br><br> | ??:http://www.share.minike.top/Article/details/90889751221.shtml
+- 2026-06-30 09:15 - 如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？<br><br> | ??:https://www.share.minike.top/Article/details/915660.shtml
+- 2026-06-30 09:15 - 爱直接对嘴喝饮料的人天塌了<br><br> | ??:https://www.blog.minike.top/Article/details/933531.shtml
+- 2026-06-30 09:29 - 如何看待武亮说大学生生活费1500就够用这一言论？<br><br> | ??:http://www.blog.minike.top/Article/details/692833.shtml
+- 2026-06-30 09:16 - 杨紫肖战余生请多指教拍立得<br><br> | ??:http://www.share.minike.top/Article/details/959558.shtml
+- 2026-06-30 09:29 - 宜宾地震食客避难后折返 无人逃单<br><br> | ??:http://www.share.kurohicncr.top/Article/details/32607924297.shtml
+- 2026-06-30 09:08 - 美人鱼<br><br> | ??:http://www.share.minike.top/Article/details/897448.shtml
+- 2026-06-30 09:18 - 失明的我带老妈去了趟“火星”<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/7318292401.shtml
+- 2026-06-30 09:06 - 全球芯片巨头史诗级扩产<br><br> | ??:https://www.share.kurohicncr.top/Article/details/233031353885.shtml
+- 2026-06-30 09:26 - 男子在京东买到“同仁堂”假药<br><br> | ??:https://www.share.minike.top/Article/details/5990359316.shtml

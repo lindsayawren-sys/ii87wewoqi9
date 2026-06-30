@@ -1,54 +1,50 @@
-# 品尝“真理的味道” 坚定“心中的信仰”
+# 封关半年，海南按下开放“加速键”
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-视频：品尝“真理的味道” 坚定“心中的信仰”来源：新华社 2012年11月，习近平总书记在参观《复兴之路》展览时，生动讲述了“真理的味道”的故事。故事主人公是《共产党宣言》首个中文全译本的翻译者——陈望道。 理想信念就是共产党人精神上的“钙”，没有理想信念，理想信念不坚定，精神上就会“缺钙”。在新时代新征程上，要继续把坚定理想信念作为党的思想建设的首要任务，引导党员干部坚定对马
+发布时间：2026年06月18日 18:15 来源：三里河 封关运作后，海南自贸港开放成果密集落地：首批“零关税”游艇入境，累计减免税款超2700万元；免签入境外籍旅客同比增长超五成，86国游客“说走就走”；超千家外资企业注册落地，多功能自由贸易账户业务量达5820亿元；口岸货物申报简化超六成，低风险货物“秒速放行”。当全球保护主义抬头，海南用一项项可感政策，跑出开放加速度。
 
 ## 正文
 
-视频：品尝“真理的味道” 坚定“心中的信仰”来源：新华社 2012年11月，习近平总书记在参观《复兴之路》展览时，生动讲述了“真理的味道”的故事。
+发布时间：2026年06月18日 18:15 来源：三里河 封关运作后，海南自贸港开放成果密集落地：首批“零关税”游艇入境，累计减免税款超2700万元；免签入境外籍旅客同比增长超五成，86国游客“说走就走”；超千家外资企业注册落地，多功能自由贸易账户业务量达5820亿元；口岸货物申报简化超六成，低风险货物“秒速放行”。
 
-故事主人公是《共产党宣言》首个中文全译本的翻译者——陈望道。
+当全球保护主义抬头，海南用一项项可感政策，跑出开放加速度。
 
-理想信念就是共产党人精神上的“钙”，没有理想信念，理想信念不坚定，精神上就会“缺钙”。
-
-在新时代新征程上，要继续把坚定理想信念作为党的思想建设的首要任务，引导党员干部坚定对马克思主义的信仰、对中国特色社会主义的信念、对实现中华民族伟大复兴中国梦的信心，不断夺取新时代中国特色社会主义新胜利。
-
-统筹：韩珅、王志斌 编导：姬杨 记者：狄春、王怿文、宋立峰、李涛、刘铭翔 配音：王帅龙 新华社音视频部制作
+责任编辑：【张舰元】
 
 ## 相关推荐
 
-- 2026-06-30 08:57 - DeepSeek启动成立来最大规模招聘<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md
-- 2026-06-30 09:04 - 2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md
-- 2026-06-30 09:09 - 首届《哈基米歌王争霸赛》总决赛<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md
-- 2026-06-30 09:13 - 扬名立万<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md
-- 2026-06-30 09:22 - 欧洲装一台空调有多难<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md
-- 2026-06-30 09:20 - 杨紫获白玉兰视后争议不止<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md
-- 2026-06-30 08:54 - 三星投资计划<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md
-- 2026-06-30 08:56 - 对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md
-- 2026-06-30 09:08 - 欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md
-- 2026-06-30 08:58 - 周冬雨多次说演不了话剧文城<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md
-- 2026-06-30 09:18 - 高考结束，该不该外出打工体验？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md
-- 2026-06-30 09:23 - 国务院：鼓励行业龙头企业举办职校<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md
-- 2026-06-30 09:07 - 如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md
-- 2026-06-30 09:23 - 想问一下学日语的大佬，自学日语要怎么学？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md
+- 2026-06-30 09:10 - 恋与深空回应争议<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md
+- 2026-06-30 09:15 - 本科毕业生为何涌入专科学校<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md
+- 2026-06-30 09:11 - 黄晓明晒和周杰伦的合照<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md
+- 2026-06-30 09:13 - 网瘾賊大的阿嬷<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md
+- 2026-06-30 09:16 - 收到补税提醒尽快办理 明起有滞纳金<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md
+- 2026-06-30 09:05 - 沉睡花园<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md
+- 2026-06-30 09:17 - 不开心就去看三年前的购物订单<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md
+- 2026-06-30 09:02 - 老外对中国cosplay竟这样评价…<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md
+- 2026-06-30 09:06 - 日本队被绝杀后鞠躬致谢观众<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md
+- 2026-06-30 09:04 - 日耳曼拖拉机<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md
+- 2026-06-30 09:26 - 王欣瑜连续4年晋级温网第二轮<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md
+- 2026-06-30 09:01 - 日耳曼拖拉机<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md
+- 2026-06-30 09:29 - 阿娇瘦了10斤<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md
+- 2026-06-30 09:22 - 德国队世界杯点球大战首败<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:04 - 如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？<br><br> | ??:http://www.blog.minike.top/Article/details/7338635.shtml
-- 2026-06-30 09:03 - 你人生中最艰难的时候是怎么熬过来的？<br><br> | ??:http://www.share.minike.top/Article/details/516561609.shtml
-- 2026-06-30 09:18 - 刘宇宁是去进货了吗<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/550141990.shtml
-- 2026-06-30 09:09 - 名记：灰熊将莫兰特交易至开拓者<br><br> | ??:https://www.share.minike.top/Article/details/659473394753.shtml
-- 2026-06-30 09:12 - 王楚钦孙颖莎混双对手产生<br><br> | ??:https://www.share.minike.top/Article/details/95933417427.shtml
-- 2026-06-30 09:09 - 董卿母亲癌症去世<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/505356242.shtml
-- 2026-06-30 09:00 - 2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/5691451.shtml
-- 2026-06-30 09:22 - 扬名立万<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/366012.shtml
-- 2026-06-30 08:57 - 孙兴慜道歉<br><br> | ??:https://www.share.minike.top/Article/details/6417242646.shtml
-- 2026-06-30 09:12 - 国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/013395844.shtml
-- 2026-06-30 09:16 - 啥比桑吉尔夫排位练蓝防（最不抽象的一集）<br><br> | ??:http://www.blog.minike.top/Article/details/94385016487.shtml
-- 2026-06-30 09:03 - 感动全网的699分女生想报考清华<br><br> | ??:http://www.share.minike.top/Article/details/55183345630.shtml
-- 2026-06-30 09:23 - 开电动汽车真的很省钱吗？<br><br> | ??:http://www.blog.minike.top/Article/details/1112173785.shtml
-- 2026-06-30 08:55 - 4000美元是黄金新一轮下跌的开始吗<br><br> | ??:http://www.blog.minike.top/Article/details/0196646.shtml
-- 2026-06-30 09:23 - 莫兰特转投开拓者效力<br><br> | ??:http://www.blog.minike.top/Article/details/06796211781.shtml
+- 2026-06-30 09:21 - 逃狱兄弟<br><br> | ??:http://www.blog.minike.top/Article/details/6032921.shtml
+- 2026-06-30 09:00 - 泰山景区建135公里刀片刺绳隔离网<br><br> | ??:https://www.blog.minike.top/Article/details/54265.shtml
+- 2026-06-30 09:03 - 网友写差评被店家“挂”门口避雷<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/912702.shtml
+- 2026-06-30 09:29 - 女子健身不当 居然“脑子漏水”了<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/326154.shtml
+- 2026-06-30 09:07 - 流金岁月<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/6414729.shtml
+- 2026-06-30 09:11 - 小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？<br><br> | ??:http://www.blog.minike.top/Article/details/84800898249.shtml
+- 2026-06-30 09:09 - 日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？<br><br> | ??:https://www.blog.minike.top/Article/details/7229802.shtml
+- 2026-06-30 09:28 - 日耳曼拖拉机<br><br> | ??:http://www.blog.minike.top/Article/details/323809665.shtml
+- 2026-06-30 09:01 - 美股收盘 热门中概股普涨<br><br> | ??:https://www.blog.minike.top/Article/details/45620.shtml
+- 2026-06-30 09:27 - 高考结束，该不该外出打工体验？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/64244357187.shtml
+- 2026-06-30 09:28 - 第一炉香<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/14803991824.shtml
+- 2026-06-30 09:13 - 勇敢的心第二部<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/48544870.shtml
+- 2026-06-30 09:27 - 【涤墨作战7人870】望：我从地狱杀回来了！<br><br> | ??:http://www.blog.minike.top/Article/details/2282936.shtml
+- 2026-06-30 09:01 - 勇士续约波尔津吉斯<br><br> | ??:http://www.blog.minike.top/Article/details/95555498.shtml
+- 2026-06-30 09:14 - 我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？<br><br> | ??:https://www.share.minike.top/Article/details/27684141.shtml

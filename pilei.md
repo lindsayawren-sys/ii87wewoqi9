@@ -1,47 +1,56 @@
-# 美伊围绕核问题和解冻资产用途说法不一
+# 云南彝良通报县医院女职工生育津贴未及时发放情况：成立调查组进驻相关部门
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月24日 09:02 来源：央视新闻 责任编辑：【王祎】
+中新网昆明6月18日电 (王临梓)云南省彝良县人民政府新闻办公室17日晚发布，针对国家医保局通报的“云南省昭通市彝良县人民医院女职工生育津贴申领超一年未发放”问题，彝良县由纪委监委牵头成立调查组，进驻相关部门开展调查。 此前，国家医保局《用人单位未及时发放生育津贴典型案例》指出，近期，国家医保局通过信访渠道收到“云南省昭通市彝良县人民医院女职工生育津贴申领超一年未发放”的网民留
 
 ## 正文
 
-发布时间：2026年06月24日 09:02 来源：央视新闻 责任编辑：【王祎】
+中新网昆明6月18日电 (王临梓)云南省彝良县人民政府新闻办公室17日晚发布，针对国家医保局通报的“云南省昭通市彝良县人民医院女职工生育津贴申领超一年未发放”问题，彝良县由纪委监委牵头成立调查组，进驻相关部门开展调查。
+
+此前，国家医保局《用人单位未及时发放生育津贴典型案例》指出，近期，国家医保局通过信访渠道收到“云南省昭通市彝良县人民医院女职工生育津贴申领超一年未发放”的网民留言后，立即启动快核快反。
+
+经彝良县医保部门核实，留言人为彝良县人民医院职工，正常参加职工基本医疗保险及生育保险。
+
+2025年5月19日，彝良县人民医院向彝良县医保局提交留言人的生育津贴报销材料；2025年5月23日，彝良县医保局将留言人的生育津贴25158.87元全额拨付至彝良县人民医院医保代管资金专户，但医院未及时发放。
+
+核查中发现，彝良县人民医院存在未及时足额发放其他12人生育津贴问题。
+
+经医保部门督促指导，该院已于2026年4月9日将13人生育津贴共计200672.7元全额发放至职工个人。
+
+彝良县人民政府新闻办公室表示，该县将在全县范围内举一反三全面排查，对涉及的违法违规问题，将依法依规严肃处理，后续情况会及时公布。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 09:10 - 妻子撞死家暴丈夫案二审案情反转<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md
-- 2026-06-30 08:57 - 重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md
-- 2026-06-30 08:54 - 法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md
-- 2026-06-30 09:16 - 拆解FIFA和世界杯的暗面<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md
-- 2026-06-30 09:00 - 这几秒成世界杯最值钱广告位<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md
-- 2026-06-30 09:05 - 疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md
-- 2026-06-30 09:00 - 世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md
-- 2026-06-30 08:55 - 巴西醒醒 这是淘汰赛<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md
-- 2026-06-30 09:13 - 上市央企地产商 两年换了三任董事长<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md
-- 2026-06-30 09:16 - Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md
-- 2026-06-30 09:00 - 金鹰奖视后提名预测<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md
-- 2026-06-30 08:56 - 董卿父亲在报纸上发文悼念亡妻<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md
-- 2026-06-30 08:55 - 韩国人为什么这么在乎输赢<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md
-- 2026-06-30 08:59 - 收到补税提醒尽快办理 明起有滞纳金<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md
-- 2026-06-30 09:20 - 佐野海舟远射破门<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md
+- 2026-06-30 09:27 - 德国队连续三届世界杯无缘16强<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md
+- 2026-06-30 09:02 - 巴西在进攻三区完成210脚传球<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md
+- 2026-06-30 09:28 - 一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md
+- 2026-06-30 09:30 - 全网说丑的玫瑰空调卖了5万台<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md
+- 2026-06-30 09:14 - 《鸣潮》玄方主题曲 MV | 定玄<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md
+- 2026-06-30 09:27 - 爆冷出局！德国点球大战不敌巴拉圭<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md
+- 2026-06-30 09:02 - 爆冷出局！德国点球大战不敌巴拉圭<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md
+- 2026-06-30 09:23 - 周生如故<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md
+- 2026-06-30 09:02 - 德国北部枪击事件致5死<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md
+- 2026-06-30 09:14 - 巴西绝杀<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:22 - 女子发现孩子非现任亲生状告前任索赔<br><br> | ??:https://www.share.minike.top/Article/details/09967548297.shtml
-- 2026-06-30 09:13 - 本届世界杯已有5名球员被控强奸<br><br> | ??:https://www.share.kurohicncr.top/Article/details/03677.shtml
-- 2026-06-30 08:55 - 博世们还在犹豫 美的们已经卖断货<br><br> | ??:https://www.share.kurohicncr.top/Article/details/149226962.shtml
-- 2026-06-30 09:03 - 五哈和他们的朋友<br><br> | ??:https://www.blog.minike.top/Article/details/54356.shtml
-- 2026-06-30 09:11 - 如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？<br><br> | ??:https://www.share.minike.top/Article/details/906940.shtml
-- 2026-06-30 09:14 - 法总统候选人：拒绝与中国激烈对抗<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/3774265.shtml
-- 2026-06-30 09:14 - 巴拉圭点球大战淘汰德国进16强<br><br> | ??:https://www.share.kurohicncr.top/Article/details/46771.shtml
-- 2026-06-30 09:04 - 输球后日本球迷被强行披上巴西国旗<br><br> | ??:http://www.share.minike.top/Article/details/98824303972.shtml
-- 2026-06-30 09:06 - 德国巴拉圭加时<br><br> | ??:https://www.share.minike.top/Article/details/50970625919.shtml
-- 2026-06-30 09:05 - 有什么好的高中网课推荐吗？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/2696537.shtml
-- 2026-06-30 09:21 - “以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》<br><br> | ??:https://www.share.kurohicncr.top/Article/details/824952231.shtml
-- 2026-06-30 09:02 - 德国巴拉圭加时<br><br> | ??:http://www.share.kurohicncr.top/Article/details/221915620.shtml
-- 2026-06-30 09:18 - 俄乌双方伤亡近180万人<br><br> | ??:http://www.blog.minike.top/Article/details/501290708992.shtml
-- 2026-06-30 08:58 - 卖菜老人获博主帮助后遇车祸去世<br><br> | ??:http://www.share.kurohicncr.top/Article/details/75842.shtml
-- 2026-06-30 09:17 - 武磊：日本队有能力跟任何强队抗衡<br><br> | ??:http://www.blog.minike.top/Article/details/2506003.shtml
+- 2026-06-30 09:06 - 一见倾心<br><br> | ??:https://www.share.kurohicncr.top/Article/details/0965803641.shtml
+- 2026-06-30 09:28 - 商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/21066550.shtml
+- 2026-06-30 09:20 - 电影抓特务上映11天破亿<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/7976174657.shtml
+- 2026-06-30 09:08 - AI手机进入Agent时代<br><br> | ??:https://www.share.minike.top/Article/details/722945203136.shtml
+- 2026-06-30 09:04 - 有人见过武则天的画像吗，非常好奇？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/525579134692.shtml
+- 2026-06-30 09:27 - 巴西在进攻三区完成210脚传球<br><br> | ??:http://www.blog.minike.top/Article/details/93834206314.shtml
+- 2026-06-30 09:10 - 男生180+，有腹肌是什么体验？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/00297591383.shtml
+- 2026-06-30 09:25 - 周生如故<br><br> | ??:http://www.blog.minike.top/Article/details/487614806.shtml
+- 2026-06-30 09:13 - 詹姆斯 勇士<br><br> | ??:https://www.share.kurohicncr.top/Article/details/424439.shtml
+- 2026-06-30 09:04 - 巴西足球能否再现昔日荣光<br><br> | ??:https://www.share.minike.top/Article/details/6239237.shtml
+- 2026-06-30 09:22 - 你的妻子大喷菇—《植物娘大战僵尸》特别篇<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/99536715053.shtml
+- 2026-06-30 09:12 - 内马尔中场休息积极鼓励队友<br><br> | ??:https://www.share.minike.top/Article/details/09760782550.shtml
+- 2026-06-30 09:24 - 如何评价《龙之家族》第三季第二集？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/263171.shtml
+- 2026-06-30 09:19 - 锐评T1战胜KC<br><br> | ??:http://www.blog.minike.top/Article/details/69942344.shtml
+- 2026-06-30 09:29 - 板面：为什么那么多人爱吃？？！<br><br> | ??:http://www.blog.minike.top/Article/details/09090062.shtml

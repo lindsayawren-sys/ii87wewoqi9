@@ -1,57 +1,56 @@
-# 中国央行将开展5000亿元MLF操作
+# 在对新兴市场作出裁决之前，MSCI对印尼的透明度问题提出了新的担忧
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-中新社北京6月24日电 (陶思阅)中国央行24日发布公告称，为保持银行体系流动性充裕，将于6月25日以固定数量、利率招标、多重价位中标方式开展5000亿元(人民币，下同)MLF(中期借贷便利)操作，期限为1年期。 数据显示，6月有3000亿元MLF到期，这意味着此次操作加量2000亿元，加量规模较上月扩大1000亿元，符合市场预期。结合其他操作来看，6月5日，3个月期买断式逆回
+指数提供商MSCI周四进一步对印尼的投资吸引力表示担忧，指出其股权结构透明度有限且存在协同交易行为，这对全球表现最差的主要股市而言又是一记重击。 这一警告发布之际，MSCI将于下周决定是否将印尼的市场分类从“新兴市场”下调至“前沿市场”，此举可能引发高达130亿美元的资金外流。 自今年1月MSCI指出的透明度问题并警告可能将其市场分类下调至前沿市场以来，印尼资本市场便一路暴跌。
 
 ## 正文
 
-中新社北京6月24日电 (陶思阅)中国央行24日发布公告称，为保持银行体系流动性充裕，将于6月25日以固定数量、利率招标、多重价位中标方式开展5000亿元(人民币，下同)MLF(中期借贷便利)操作，期限为1年期。
+指数提供商MSCI周四进一步对印尼的投资吸引力表示担忧，指出其股权结构透明度有限且存在协同交易行为，这对全球表现最差的主要股市而言又是一记重击。
 
-数据显示，6月有3000亿元MLF到期，这意味着此次操作加量2000亿元，加量规模较上月扩大1000亿元，符合市场预期。
+这一警告发布之际，MSCI将于下周决定是否将印尼的市场分类从“新兴市场”下调至“前沿市场”，此举可能引发高达130亿美元的资金外流。
 
-结合其他操作来看，6月5日，3个月期买断式逆回购缩量3000亿元；6月15日，6个月期买断式逆回购等量续作；6月25日，1年期MLF加量2000亿元。
+自今年1月MSCI指出的透明度问题并警告可能将其市场分类下调至前沿市场以来，印尼资本市场便一路暴跌。
 
-由此，本月中期流动性操作经历了一个“前收后放”的过程。
+在周四发布的市场可进入性评估报告中，MSCI将印尼的信息流通标准下调至“负面”，这反映出股权数据和市场活动的不透明性，这种不透明性不仅阻碍了合理的价格形成，也限制了全球投资者评估企业真实流通股的能力。
 
-东方金诚研究团队分析，MLF加量续作，能够满足金融机构较长期限资金需求，支持政府债券顺利发行及银行加大信贷投放力度，体现了货币金融在支持实体经济方面适时、精准发力。
+1月份的警告促使当局推出了一系列改革措施，包括将上市公司的最低流通股比例提高一倍至15%，而交易所和监管机构的高层管理人员也在1月的一个下午集体辞职。
 
-分析还认为，考虑到当前短端市场利率已回升至政策利率之上，加之季末银行考核时点临近，以及7月政府债券发行节奏有望加快等因素，本月底前央行公开市场操作可能持续处于较大规模的净投放状态，市场利率持续向上大幅偏离政策利率的可能性不大。
+4月，MSCI延长了对印尼市场的审查，并于5月将其指数中剔除了六家公司，其中大多数与大亨有关，导致股价再次大幅下跌。
 
-(完)
+作为全球最大的市场指数提供商之一，MSCI的降级决定将迫使被动型投资基金抛售股票，并给以MSCI指数为基准的主动型基金经理带来降低持仓的压力。
+
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 08:54 - 田中碧失误<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md
-- 2026-06-30 09:08 - 全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md
-- 2026-06-30 08:56 - 本届世界杯已有5名球员被控强奸<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md
-- 2026-06-30 09:17 - 恋与深空回应争议<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md
-- 2026-06-30 09:01 - 美人鱼<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md
-- 2026-06-30 09:17 - 德国淘汰<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md
-- 2026-06-30 09:14 - 法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md
-- 2026-06-30 09:06 - 马航MH370传来最新消息<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md
-- 2026-06-30 09:18 - 女子发现孩子非现任亲生状告前任索赔<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md
-- 2026-06-30 08:57 - 81岁老人被男子买光菜回家车祸去世<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md
-- 2026-06-30 09:22 - 网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md
-- 2026-06-30 09:07 - 如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md
-- 2026-06-30 09:09 - 李准基参加文彩元婚礼<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md
+- 2026-06-30 09:18 - 被巴西绝杀后 日球员田中碧跪地痛哭<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md
+- 2026-06-30 09:19 - 【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md
+- 2026-06-30 09:13 - 安切洛蒂 换人<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md
+- 2026-06-30 09:22 - 你这一辈子有没有为进山姆拼过命？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md
+- 2026-06-30 09:24 - 贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md
+- 2026-06-30 09:03 - “以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md
+- 2026-06-30 09:12 - 巴西把自己踢晕了<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md
+- 2026-06-30 09:27 - 【Reaction】女生最少的5款游戏<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md
+- 2026-06-30 09:27 - 刘宇宁是去进货了吗<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md
+- 2026-06-30 09:28 - 啥比桑吉尔夫排位练蓝防（最不抽象的一集）<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:11 - 曝老詹对自由市场态度与以往截然不同<br><br> | ??:http://www.share.minike.top/Article/details/3991021828.shtml
-- 2026-06-30 08:58 - 哪部作品、哪本书、哪首歌，值得被一直传下去？<br><br> | ??:https://www.blog.minike.top/Article/details/4045365.shtml
-- 2026-06-30 09:22 - 巴西绝杀日本：漫画般结局换了主角<br><br> | ??:http://www.share.kurohicncr.top/Article/details/27814520.shtml
-- 2026-06-30 09:01 - 杨紫被质疑未使用原名<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/91209778525.shtml
-- 2026-06-30 08:55 - 第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！<br><br> | ??:https://www.blog.minike.top/Article/details/83480465.shtml
-- 2026-06-30 09:00 - 王曼昱被突如其来的话筒逗笑了<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/67685.shtml
-- 2026-06-30 09:23 - 有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/76005293.shtml
-- 2026-06-30 08:56 - 莫兰特转投开拓者效力<br><br> | ??:http://www.share.minike.top/Article/details/70799642145.shtml
-- 2026-06-30 09:05 - 建议不要突然完全停止喝咖啡<br><br> | ??:https://www.share.kurohicncr.top/Article/details/356591339778.shtml
-- 2026-06-30 08:55 - 韩国道歉完日本道歉<br><br> | ??:https://www.share.kurohicncr.top/Article/details/8149072.shtml
-- 2026-06-30 09:12 - 德国vs巴拉圭<br><br> | ??:https://www.share.kurohicncr.top/Article/details/23021.shtml
-- 2026-06-30 08:59 - 高考结束了，你会让孩子在家玩手机吗？<br><br> | ??:http://www.share.minike.top/Article/details/138152795127.shtml
-- 2026-06-30 09:09 - 日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？<br><br> | ??:http://www.blog.minike.top/Article/details/458513763653.shtml
-- 2026-06-30 08:57 - 4000美元是黄金新一轮下跌的开始吗<br><br> | ??:http://www.blog.minike.top/Article/details/38867221.shtml
-- 2026-06-30 09:21 - 有人见过武则天的画像吗，非常好奇？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/611601305.shtml
+- 2026-06-30 09:02 - 美媒：美军第五舰队司令部已无法使用<br><br> | ??:http://www.share.kurohicncr.top/Article/details/0192885.shtml
+- 2026-06-30 09:03 - 感动全网的699分女生想报考清华<br><br> | ??:https://www.blog.minike.top/Article/details/03773045177.shtml
+- 2026-06-30 09:18 - 日耳曼拖拉机<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/11971601.shtml
+- 2026-06-30 09:29 - 又一家县级医院关停门诊输液大厅<br><br> | ??:https://www.share.minike.top/Article/details/794279.shtml
+- 2026-06-30 09:16 - 这一刀 会很帅<br><br> | ??:https://www.blog.minike.top/Article/details/031482096137.shtml
+- 2026-06-30 09:20 - 千与千寻<br><br> | ??:http://www.blog.minike.top/Article/details/749203302276.shtml
+- 2026-06-30 09:09 - 齐思钧回复张月<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/76522741728.shtml
+- 2026-06-30 09:20 - 考入南大计算机，复读考清北值吗？<br><br> | ??:http://www.blog.minike.top/Article/details/186473368362.shtml
+- 2026-06-30 09:28 - HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/3621688177.shtml
+- 2026-06-30 09:06 - 我和我的家乡<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/34950873142.shtml
+- 2026-06-30 09:03 - 2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/69090807.shtml
+- 2026-06-30 09:13 - 湖北云南的这些涉汛信息都是假的<br><br> | ??:https://www.share.minike.top/Article/details/857741.shtml
+- 2026-06-30 09:07 - 武磊：日本队有能力跟任何强队抗衡<br><br> | ??:https://www.share.kurohicncr.top/Article/details/56927.shtml
+- 2026-06-30 09:10 - 巴西醒醒 这是淘汰赛<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/52018717680.shtml
+- 2026-06-30 09:07 - 乔家的儿女<br><br> | ??:https://www.share.kurohicncr.top/Article/details/0961189.shtml

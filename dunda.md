@@ -1,52 +1,57 @@
-# 海南陵水国际影视基地近两年拍摄约140部短剧 多部发行海外
+# 下周一停牌！又一家公司“摘星脱帽”
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月24日 11:57 来源：中国新闻网 6月23日，来自12个国家的媒体人走进海南陵水的海风国际影视基地。 据该影视基地品牌宣传部经理刘禾介绍，海风国际影视基地2024年8月正式对外运行以来，已拍摄近140部短剧，其中由外籍演员出演的海外短剧近20部；由国内演员出演制作，且发行到国外的短剧近10部。海外发行多在美国、英国、新加坡、泰国。 俄罗斯《龙报》社
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！*ST新潮（维权）6月18日晚间公告称，公司股票将于2026年6月22日停牌一天，自2026年6月23日起复牌并撤销退市风险警示及其他风险警示。撤销后，公司A股简称由“*ST新潮”变更为“新潮能源”，股票代码不变，日涨跌幅限制由5%变为10%。 近期，多家上市公司迎来“摘星脱帽”。6月17日晚间，*ST金比
 
 ## 正文
 
-发布时间：2026年06月24日 11:57 来源：中国新闻网 6月23日，来自12个国家的媒体人走进海南陵水的海风国际影视基地。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-据该影视基地品牌宣传部经理刘禾介绍，海风国际影视基地2024年8月正式对外运行以来，已拍摄近140部短剧，其中由外籍演员出演的海外短剧近20部；由国内演员出演制作，且发行到国外的短剧近10部。
+*ST新潮（维权）6月18日晚间公告称，公司股票将于2026年6月22日停牌一天，自2026年6月23日起复牌并撤销退市风险警示及其他风险警示。
 
-海外发行多在美国、英国、新加坡、泰国。
+撤销后，公司A股简称由“*ST新潮”变更为“新潮能源”，股票代码不变，日涨跌幅限制由5%变为10%。
 
-俄罗斯《龙报》社国际合作部总经理林喆参观后表示，该影视基地多种场景让自己感觉很穿越，不到半小时，体验了不同的人生。
+近期，多家上市公司迎来“摘星脱帽”。
 
-林喆觉得俄罗斯市场对短剧会感兴趣，希望以后有机会推荐俄罗斯演员到该影视基地拍摄，影视公司也可尝试将短剧发行到俄罗斯。
+6月17日晚间，*ST金比、*ST新研、*ST天山、*ST星光（维权）均公告将撤销退市风险警示。
 
-(记者 李宇凡 林士杰) 责任编辑：【李季】
+6月16日，*ST兰黄、*ST立航、*ST原尚公告撤销退市风险警示。
+
+6月15日，*ST海源、*ST威尔公告撤销退市风险警示。
+
+分析人士表示，随着最新财务数据的出炉，一批ST公司借并购、大股东“输血”等方式，实现净资产转正或成功扭亏，从而脱离退市边缘。
 
 ## 相关推荐
 
-- 2026-06-30 09:17 - 如何看待武亮说大学生生活费1500就够用这一言论？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md
-- 2026-06-30 09:18 - 安切洛蒂 换人<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md
-- 2026-06-30 09:00 - 曝娱乐圈大部分明星失业<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md
-- 2026-06-30 09:02 - 重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md
-- 2026-06-30 09:14 - 如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md
-- 2026-06-30 09:02 - 曝老詹对自由市场态度与以往截然不同<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md
-- 2026-06-30 09:11 - 巴拉圭门将<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md
-- 2026-06-30 09:01 - 《鸣潮》玄方主题曲 MV | 定玄<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md
-- 2026-06-30 09:11 - 巴拉圭门将<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md
-- 2026-06-30 08:54 - 德国巴拉圭 折磨<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md
+- 2026-06-30 09:06 - 男子在京东买到“同仁堂”假药<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md
+- 2026-06-30 09:02 - 一直以为方便面汤是要倒掉的<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md
+- 2026-06-30 09:25 - 现在叛逆期的孩子最怕的是什么？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md
+- 2026-06-30 09:26 - 明星大侦探第一季<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md
+- 2026-06-30 09:28 - 【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md
+- 2026-06-30 09:17 - 千与千寻<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md
+- 2026-06-30 09:18 - 警方介入洪明甫死亡威胁<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md
+- 2026-06-30 09:03 - 网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md
+- 2026-06-30 09:14 - 巴西vs日本<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md
+- 2026-06-30 09:16 - 马宁怒怼巴拉圭教练组<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md
+- 2026-06-30 09:01 - 日本遭读秒绝杀 森保一：我水平不够<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:57 - 失明的我带老妈去了趟“火星”<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/377412256642.shtml
-- 2026-06-30 09:00 - 美加墨世界杯：亚洲足球的得意与失意<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/47017962.shtml
-- 2026-06-30 09:03 - 恋与深空已删除锅里洗澡文案<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/14004693633.shtml
-- 2026-06-30 09:13 - 世界杯：荷兰vs摩洛哥<br><br> | ??:http://www.share.minike.top/Article/details/68039976262.shtml
-- 2026-06-30 09:02 - 森保一致歉：世界第一目标没能实现<br><br> | ??:http://www.blog.minike.top/Article/details/78793382.shtml
-- 2026-06-30 09:16 - 日本队5进世界杯淘汰赛0胜<br><br> | ??:https://www.share.minike.top/Article/details/32491238.shtml
-- 2026-06-30 09:10 - 考入南大计算机，复读考清北值吗？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/3083497326.shtml
-- 2026-06-30 09:06 - 王楚钦孙颖莎混双对手产生<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/6719961455.shtml
-- 2026-06-30 09:22 - 莫兰特被交易到开拓者<br><br> | ??:http://www.share.kurohicncr.top/Article/details/82119211.shtml
-- 2026-06-30 09:24 - 承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/41316.shtml
-- 2026-06-30 09:13 - 荀彧和曹操反目成仇的根本原因是什么？<br><br> | ??:https://www.blog.minike.top/Article/details/392103784994.shtml
-- 2026-06-30 08:54 - 德国进球被吹<br><br> | ??:http://www.share.minike.top/Article/details/017457.shtml
-- 2026-06-30 09:06 - 勇士续约波尔津吉斯<br><br> | ??:http://www.share.kurohicncr.top/Article/details/467874995.shtml
-- 2026-06-30 09:23 - 可以细成这样？1600万预算，颠覆我认知的改造！<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/484575893.shtml
-- 2026-06-30 09:01 - 韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/589007.shtml
+- 2026-06-30 09:28 - 金刚川<br><br> | ??:https://www.blog.minike.top/Article/details/6652736.shtml
+- 2026-06-30 09:05 - 为什么小组赛出局会让韩国人破防<br><br> | ??:http://www.share.kurohicncr.top/Article/details/48235186108.shtml
+- 2026-06-30 09:29 - 内马尔替补<br><br> | ??:https://www.blog.minike.top/Article/details/39206397432.shtml
+- 2026-06-30 09:12 - 荀彧和曹操反目成仇的根本原因是什么？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/050584651.shtml
+- 2026-06-30 09:16 - 【涤墨作战7人870】望：我从地狱杀回来了！<br><br> | ??:https://www.share.kurohicncr.top/Article/details/223802434452.shtml
+- 2026-06-30 09:20 - 日本球迷输球后集体捡垃圾<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/532396085.shtml
+- 2026-06-30 09:19 - 杨紫大银幕成绩单<br><br> | ??:http://www.share.kurohicncr.top/Article/details/06925440.shtml
+- 2026-06-30 09:22 - 徐亮怒斥世界杯踢假球<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/251496427002.shtml
+- 2026-06-30 09:08 - 马耳他著名拱门坍塌致中国男子身亡<br><br> | ??:https://www.share.kurohicncr.top/Article/details/07238272696.shtml
+- 2026-06-30 09:09 - hanser X 赖美云《室内系的Track Maker》<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/50153900.shtml
+- 2026-06-30 09:05 - 斗破苍穹<br><br> | ??:https://www.blog.minike.top/Article/details/01856821.shtml
+- 2026-06-30 09:04 - 2021湖南卫视跨年演唱会<br><br> | ??:http://www.share.kurohicncr.top/Article/details/459441.shtml
+- 2026-06-30 09:09 - 内马尔中场休息积极鼓励队友<br><br> | ??:https://www.share.minike.top/Article/details/2913847.shtml
+- 2026-06-30 09:05 - 曝娱乐圈大部分明星失业<br><br> | ??:https://www.share.kurohicncr.top/Article/details/195450568020.shtml
+- 2026-06-30 09:27 - 王欣瑜连续4年晋级温网第二轮<br><br> | ??:https://www.blog.minike.top/Article/details/94452520806.shtml

@@ -1,61 +1,56 @@
-# 韩国央行警告：杠杆投资增加对金融稳定构成威胁
+# 以色列继续在黎巴嫩发动袭击 美以裂痕进一步加深
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-韩国央行周三表示，韩国金融体系依然稳定，但房价上涨和股市上涨带动杠杆投资增加，可能加剧金融失衡。 韩国央行在其金融稳定报告中指出：“尽管存在国内外不确定性，但韩国金融体系总体上被评估为稳定，这得益于实体经济的持续增长、金融机构的稳健韧性以及国家外部偿付能力。” “然而，鉴于国内金融和外汇市场波动性显著加剧，潜在风险仍然是潜在的不稳定因素，需要密切关注。” 韩国央行表示，潜在风险
+中新网6月18日电 综合外媒报道，当地时间18日，在美国和伊朗签署临时停火协议之后，以色列继续对黎巴嫩真主党发动袭击，并造成多人死亡。以色列军方公布了一份最新地图，并表示现阶段不会从黎巴嫩撤军。 以色列袭击黎巴嫩南部 造成3人死亡 据卡塔尔半岛新闻网报道，美国总统特朗普与伊朗总统佩泽希齐扬已电子签署了一份谅解备忘录，以结束美国及以色列对伊朗的军事行动。当地时间18日，瑞士政府表
 
 ## 正文
 
-韩国央行周三表示，韩国金融体系依然稳定，但房价上涨和股市上涨带动杠杆投资增加，可能加剧金融失衡。
+中新网6月18日电 综合外媒报道，当地时间18日，在美国和伊朗签署临时停火协议之后，以色列继续对黎巴嫩真主党发动袭击，并造成多人死亡。
 
-韩国央行在其金融稳定报告中指出：“尽管存在国内外不确定性，但韩国金融体系总体上被评估为稳定，这得益于实体经济的持续增长、金融机构的稳健韧性以及国家外部偿付能力。
+以色列军方公布了一份最新地图，并表示现阶段不会从黎巴嫩撤军。
 
-” “然而，鉴于国内金融和外汇市场波动性显著加剧，潜在风险仍然是潜在的不稳定因素，需要密切关注。
+以色列袭击黎巴嫩南部 造成3人死亡 据卡塔尔半岛新闻网报道，美国总统特朗普与伊朗总统佩泽希齐扬已电子签署了一份谅解备忘录，以结束美国及以色列对伊朗的军事行动。
 
-” 韩国央行表示，潜在风险包括首尔及其他地区房价再度飙升导致的金融失衡加剧、杠杆投资增加以及脆弱行业不良贷款蔓延的担忧。
+当地时间18日，瑞士政府表示，美国与伊朗计划于当地时间6月19日，在瑞士的比尔根山举行初步会谈。
 
-韩国第一季度家庭贷款同比增长3.5%，达到1993.1万亿韩元（约合1.3万亿美元），增速较为温和。
+尽管美伊临时协议中包含了结束以色列对黎巴嫩军事行动的内容，以色列仍继续在黎巴嫩南部开展军事行动。
 
-但近几个月来，受首尔地区房价上涨的影响，家庭贷款月度增速有所加快。
+黎巴嫩国家通讯社报道，以色列18日的袭击造成黎巴嫩3人死亡，其中一次袭击是对当地一辆汽车发动无人机袭击，造成2人死亡；另一次袭击则在该国兹布丁镇造成1人死亡。
 
-韩国央行表示：“家庭信贷增速再次加快，值得注意的是，对于部分行业的弱势家庭借款人和企业而言，信贷风险依然较高。
+卡塔尔半岛新闻网指出，自3月2日以来，以色列的袭击已导致黎巴嫩至少3900人死亡，另有数千人受伤。
 
-” 报告指出，受韩元贬值和外资净流出的影响，韩国金融市场上半年波动剧烈。
+以军公布最新地图 称现阶段不会撤军 以色列军方表示，尽管美国施压要求其改变策略，其在黎巴嫩南部的部队仍将继续展开军事行动。
 
 ## 相关推荐
 
-- 2026-06-30 09:22 - 日本16强魔咒<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md
-- 2026-06-30 09:05 - 日本队被绝杀后鞠躬致谢观众<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md
-- 2026-06-30 09:13 - 刘宇宁高情商化解谁站C位<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md
-- 2026-06-30 09:05 - 大货车掉落螺丝扎进骑手护目镜<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md
-- 2026-06-30 09:20 - 深扒韩国队淘汰背后原因<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md
-- 2026-06-30 08:55 - 我觉得你是在无中生友<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md
-- 2026-06-30 09:12 - 免费试吃发差评被店家挂店门避雷<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md
-- 2026-06-30 08:58 - 巴西醒醒 这是淘汰赛<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md
-- 2026-06-30 09:11 - 美加墨世界杯：亚洲足球的得意与失意<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md
-- 2026-06-30 09:03 - 乔家的儿女<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md
-- 2026-06-30 09:01 - 峡谷事故团队组队时有人提醒会下雨<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md
-- 2026-06-30 09:23 - 道友？你来真的啊？【凡人官方二创大会】<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md
-- 2026-06-30 09:01 - 杨紫被质疑未使用原名纯属误解<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md
-- 2026-06-30 09:16 - 找到了10年前跪舔b站的视频<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md
-- 2026-06-30 09:14 - 诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md
+- 2026-06-30 09:14 - 如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md
+- 2026-06-30 09:06 - AI手机进入Agent时代<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md
+- 2026-06-30 09:23 - 森保一致歉：世界第一目标没能实现<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md
+- 2026-06-30 09:01 - 中国对日本再出重拳<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md
+- 2026-06-30 09:13 - 德国进球被吹<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md
+- 2026-06-30 09:08 - 杨紫被质疑未使用原名<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md
+- 2026-06-30 09:18 - 国务院：稳步推进研究生考试招生改革<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md
+- 2026-06-30 09:17 - 【大鸣王潮1566】真拿你没办法<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md
+- 2026-06-30 09:24 - 吴启华卖肖像权拍AI电影<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md
+- 2026-06-30 09:00 - 巴西vs日本<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:22 - 小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？<br><br> | ??:https://www.blog.minike.top/Article/details/745324257643.shtml
-- 2026-06-30 09:00 - FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？<br><br> | ??:http://www.share.minike.top/Article/details/797682977989.shtml
-- 2026-06-30 08:56 - 曝iPhone18Pro机密文件现身暗网<br><br> | ??:https://www.blog.minike.top/Article/details/328478232785.shtml
-- 2026-06-30 09:03 - 李在明向韩国两大财阀90度鞠躬<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/89620725906.shtml
-- 2026-06-30 09:01 - 王健林甩卖超80座万达广场<br><br> | ??:https://www.share.minike.top/Article/details/08599.shtml
-- 2026-06-30 08:54 - 韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/563840023.shtml
-- 2026-06-30 09:07 - 卢卡申科发布解放军仪仗队视频<br><br> | ??:http://www.share.kurohicncr.top/Article/details/26345589998.shtml
-- 2026-06-30 08:55 - 日本球迷被强行披上巴西国旗<br><br> | ??:https://www.share.kurohicncr.top/Article/details/039950226711.shtml
-- 2026-06-30 09:05 - 自然光｜papi酱&窦文涛：驴与跑步机<br><br> | ??:https://www.share.minike.top/Article/details/653830607786.shtml
-- 2026-06-30 09:15 - 泰山建135公里刀片刺绳隔离网<br><br> | ??:https://www.share.kurohicncr.top/Article/details/84097167296.shtml
-- 2026-06-30 09:15 - 本科毕业生为何涌入专科学校<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/1140023.shtml
-- 2026-06-30 08:54 - 第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！<br><br> | ??:http://www.share.minike.top/Article/details/62437.shtml
-- 2026-06-30 09:13 - 租房时你会更看重「住得舒服」，还是「每天通勤更方便」？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/617913.shtml
-- 2026-06-30 09:09 - 一切民族英雄都是中华民族的脊梁<br><br> | ??:https://www.share.kurohicncr.top/Article/details/51364409517.shtml
-- 2026-06-30 09:23 - 有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？<br><br> | ??:http://www.blog.minike.top/Article/details/421613813560.shtml
+- 2026-06-30 09:20 - 如何评价DeepSeek 提出的 DSpark 推理加速方案？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/380523542992.shtml
+- 2026-06-30 09:19 - 国内最大沙漠发洪水意味着什么<br><br> | ??:https://www.share.kurohicncr.top/Article/details/0304606.shtml
+- 2026-06-30 09:09 - 韩国世界杯出局是主帅一个人的锅吗<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/304756422.shtml
+- 2026-06-30 09:16 - 韩国世界杯出局是主帅一个人的锅吗<br><br> | ??:https://www.blog.minike.top/Article/details/63037650.shtml
+- 2026-06-30 09:11 - 全球芯片巨头史诗级扩产<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/62977347.shtml
+- 2026-06-30 09:16 - iPhone18e曝光<br><br> | ??:https://www.blog.minike.top/Article/details/24131446.shtml
+- 2026-06-30 09:08 - 租房时你会更看重「住得舒服」，还是「每天通勤更方便」？<br><br> | ??:http://www.blog.minike.top/Article/details/442614839.shtml
+- 2026-06-30 09:14 - 女儿从清华毕业 爸爸晒出17年对比照<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/247460.shtml
+- 2026-06-30 09:12 - “柠檬茶能换怀表？”<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/555216600460.shtml
+- 2026-06-30 09:24 - 德国队连续三届世界杯无缘16强<br><br> | ??:https://www.share.kurohicncr.top/Article/details/19673707923.shtml
+- 2026-06-30 09:25 - 国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/27274715.shtml
+- 2026-06-30 09:09 - 马航370搜寻最新消息<br><br> | ??:https://www.share.kurohicncr.top/Article/details/811953770379.shtml
+- 2026-06-30 09:28 - 有人见过武则天的画像吗，非常好奇？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/6236623471.shtml
+- 2026-06-30 09:02 - 有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？<br><br> | ??:https://www.blog.minike.top/Article/details/5237950.shtml
+- 2026-06-30 09:20 - 本科毕业生为何涌入专科学校<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/88210440430.shtml

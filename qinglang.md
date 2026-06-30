@@ -1,48 +1,61 @@
-# “数爱无疆”数字公益故事展播 | “瞳聚”智能平台：人工角膜与角膜捐献的生命接力
+# 首届“同心圆梦·欧华和声”高峰论坛在巴黎举办
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月25日 12:06 来源：中国新闻网 2025年11月起，中国网络社会组织联合会携手中国互联网发展基金会、中国新闻网组织开展2025“数爱无疆”数字公益故事征集展播活动，爱尔眼科申报视频作品“‘瞳聚’智能平台：人工角膜与角膜捐献的生命接力”参与征集展播。 责任编辑：【李季】
+中新网巴黎6月18日电 首届“同心圆梦·欧华和声”高峰论坛当地时间17日在法国巴黎举行。来自中国和平统一促进会代表团、欧洲26国的中国和平统一促进会代表以及法国侨界代表等200余人参会。 本次论坛由法国中国和平统一促进会与欧洲各国的中国和平统一促进会主办。与会代表围绕促进祖国和平统一、加强欧洲统促组织协作、推动中欧民间友好往来等议题交流研讨。 论坛期间发布《巴黎宣言》，呼吁坚持
 
 ## 正文
 
-发布时间：2026年06月25日 12:06 来源：中国新闻网 2025年11月起，中国网络社会组织联合会携手中国互联网发展基金会、中国新闻网组织开展2025“数爱无疆”数字公益故事征集展播活动，爱尔眼科申报视频作品“‘瞳聚’智能平台：人工角膜与角膜捐献的生命接力”参与征集展播。
+中新网巴黎6月18日电 首届“同心圆梦·欧华和声”高峰论坛当地时间17日在法国巴黎举行。
 
-责任编辑：【李季】
+来自中国和平统一促进会代表团、欧洲26国的中国和平统一促进会代表以及法国侨界代表等200余人参会。
+
+本次论坛由法国中国和平统一促进会与欧洲各国的中国和平统一促进会主办。
+
+与会代表围绕促进祖国和平统一、加强欧洲统促组织协作、推动中欧民间友好往来等议题交流研讨。
+
+论坛期间发布《巴黎宣言》，呼吁坚持一个中国原则，反对“台独”分裂活动，推动欧洲统促力量深化交流合作。
+
+中国和平统一促进会副秘书长许友滋在致辞中呼吁欧洲统促力量做好民间使者。
+
+他表示，实现两岸和平统一不仅是中华民族和中国人民之福，也是国际社会和世界人民之福。
+
+中国驻法国大使馆公使沈钢表示，实现祖国完全统一，是包括海外华侨华人在内的全体中华儿女的共同愿望，希望法国及欧洲各国和平统一促进会广泛团结凝聚海外爱国友好力量，为实现中华民族伟大复兴的中国梦作出新的更大贡献。
 
 ## 相关推荐
 
-- 2026-06-30 09:04 - 哈弗茨头球破门<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md
-- 2026-06-30 09:11 - 可以细成这样？1600万预算，颠覆我认知的改造！<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md
-- 2026-06-30 09:13 - 女心理师<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md
-- 2026-06-30 09:14 - 詹姆斯 勇士<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md
-- 2026-06-30 08:58 - 佐野海舟远射破门<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md
-- 2026-06-30 09:02 - 莫兰特转投开拓者效力<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md
-- 2026-06-30 08:55 - AI手机进入Agent时代<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md
-- 2026-06-30 09:20 - 12人以护剧为名敲诈剧组艺人被抓<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md
-- 2026-06-30 09:17 - 锐评：网红不能困在无底线逐利里<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md
-- 2026-06-30 08:54 - 普京为何将俄乌谈判时间表与伊朗挂钩<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md
-- 2026-06-30 09:15 - 为什么纣王似乎对周文王的扩张完全无动于衷？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md
-- 2026-06-30 09:13 - 为什么纣王似乎对周文王的扩张完全无动于衷？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md
-- 2026-06-30 09:14 - 武磊：日本队有能力跟任何强队抗衡<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md
-- 2026-06-30 09:21 - 媒体：手机测评该挤挤水分了<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md
+- 2026-06-30 09:00 - 郑钦文温网一轮游<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md
+- 2026-06-30 09:02 - 人类...完蛋了...<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md
+- 2026-06-30 09:28 - 商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md
+- 2026-06-30 09:01 - 如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md
+- 2026-06-30 09:11 - 12人以护剧为名敲诈剧组艺人被抓<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md
+- 2026-06-30 09:08 - 欧盟分楼层开空调惹争议<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md
+- 2026-06-30 09:12 - 亚洲球队全部告别世界杯<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md
+- 2026-06-30 09:21 - 全网说丑的格力玫瑰空调卖了5万台<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md
+- 2026-06-30 09:16 - 当我知道豆包有后台审核人员<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md
+- 2026-06-30 09:11 - 人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md
+- 2026-06-30 09:20 - iPhoneUltra黑色机模<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md
+- 2026-06-30 09:06 - 未来五年，教育强国这样建设<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md
+- 2026-06-30 09:05 - 曝娱乐圈大部分明星失业<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md
+- 2026-06-30 09:25 - HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md
+- 2026-06-30 09:25 - 【涤墨作战7人870】望：我从地狱杀回来了！<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:07 - 租房时你会更看重「住得舒服」，还是「每天通勤更方便」？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/741863826116.shtml
-- 2026-06-30 09:12 - 世界杯巴拉圭点球淘汰德国<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/600392.shtml
-- 2026-06-30 09:05 - 人民锐评网红诋毁袁隆平造谣企业家<br><br> | ??:http://www.share.minike.top/Article/details/79665033.shtml
-- 2026-06-30 09:02 - 马杜罗账号在纽约发文致谢各国援助<br><br> | ??:http://www.share.kurohicncr.top/Article/details/41912645.shtml
-- 2026-06-30 09:23 - 一切民族英雄都是中华民族的脊梁<br><br> | ??:https://www.blog.minike.top/Article/details/0550506.shtml
-- 2026-06-30 09:02 - 吴易昺不敌德约科维奇 止步温网首轮<br><br> | ??:http://www.share.minike.top/Article/details/531079.shtml
-- 2026-06-30 08:54 - 荷兰vs摩洛哥<br><br> | ??:http://www.share.minike.top/Article/details/32814.shtml
-- 2026-06-30 09:02 - 欧洲家电巨头为何输掉了这个夏天<br><br> | ??:https://www.share.kurohicncr.top/Article/details/93396.shtml
-- 2026-06-30 09:02 - 董卿父亲报纸上发文悼念亡妻<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/3594670.shtml
-- 2026-06-30 08:55 - 王楚钦说配合稍微有些陌生感<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/257788805.shtml
-- 2026-06-30 09:04 - 德国淘汰<br><br> | ??:http://www.share.kurohicncr.top/Article/details/7224987062.shtml
-- 2026-06-30 08:57 - 日本16强魔咒<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/287480051614.shtml
-- 2026-06-30 09:20 - 如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/4359926.shtml
-- 2026-06-30 09:11 - 王欣瑜连续4年晋级温网第二轮<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/691648161.shtml
-- 2026-06-30 09:15 - Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？<br><br> | ??:https://www.share.minike.top/Article/details/2169470.shtml
+- 2026-06-30 09:08 - 王楚钦孙颖莎晋级混双八强<br><br> | ??:https://www.share.minike.top/Article/details/3242707863.shtml
+- 2026-06-30 09:15 - 日本博主：日本足球真的垃圾<br><br> | ??:http://www.share.kurohicncr.top/Article/details/771867165.shtml
+- 2026-06-30 09:09 - 四川凉山落石砸毁车辆 3人遇难<br><br> | ??:https://www.blog.minike.top/Article/details/10613846.shtml
+- 2026-06-30 09:29 - 女子用家人生日买彩票中1032万<br><br> | ??:http://www.share.kurohicncr.top/Article/details/62350.shtml
+- 2026-06-30 09:22 - 谢依霖说杨幂是聚会第一把张罗手<br><br> | ??:http://www.share.kurohicncr.top/Article/details/58025.shtml
+- 2026-06-30 09:21 - 武磊：巴西队赢的并不轻松<br><br> | ??:https://www.share.kurohicncr.top/Article/details/214150.shtml
+- 2026-06-30 09:02 - 请回答王牌2019<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/901585822743.shtml
+- 2026-06-30 09:12 - 上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶<br><br> | ??:https://www.blog.minike.top/Article/details/01875471471.shtml
+- 2026-06-30 09:06 - 消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/68419549.shtml
+- 2026-06-30 09:03 - 《贺子珍》<br><br> | ??:http://www.blog.minike.top/Article/details/5011636.shtml
+- 2026-06-30 09:26 - 为什么纣王似乎对周文王的扩张完全无动于衷？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/301026516381.shtml
+- 2026-06-30 09:16 - 人类...完蛋了...<br><br> | ??:http://www.share.minike.top/Article/details/24993408.shtml
+- 2026-06-30 09:24 - HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/8516005695.shtml
+- 2026-06-30 09:15 - 失明的我带老妈去了趟“火星”<br><br> | ??:https://www.blog.minike.top/Article/details/55441389555.shtml
+- 2026-06-30 09:04 - 女儿从清华毕业 爸爸晒出17年对比照<br><br> | ??:https://www.share.kurohicncr.top/Article/details/833919085.shtml

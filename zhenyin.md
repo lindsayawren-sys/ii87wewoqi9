@@ -1,60 +1,57 @@
-# 日方用“阴谋论”抹黑中国国防开支掩饰其“再军事化”
+# CBCX:金银承压关注美元走向
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-记者：据报道，在今年3月中方反驳日方炒作中国国防支出一事后，日本防卫大臣近期再次公开质疑中国国防费透明度，同时声称“日本将以透明的方式投资于无人机和人工智能等新型作战手段，以适应不断变化的冲突性质”。请问对此有何评论？ 张晓刚：中国的国防费公开透明，每年都依法公开国防支出预算总额及其规模、结构、用途等信息，积极参加联合国军费透明制度，2008年以来每年都向联合国提交上一财政年度
+6月19日，美元维持强势、市场继续消化美联储偏紧信号之际，金银价格在周四再度走弱。CBCX表示，现货黄金一度回落至每盎司4214美元附近，白银跌幅更深，说明非收益资产短线仍在承受利率预期和汇率波动的双重压力。 从盘面联动看，美股在震荡后出现修复，但贵金属并未同步回暖。CBCX认为，这种分化反映出资金当前更看重利率路径与美元位置，尤其是在市场重新评估未来降息节奏后，黄金上方阻力仍
 
 ## 正文
 
-记者：据报道，在今年3月中方反驳日方炒作中国国防支出一事后，日本防卫大臣近期再次公开质疑中国国防费透明度，同时声称“日本将以透明的方式投资于无人机和人工智能等新型作战手段，以适应不断变化的冲突性质”。
+6月19日，美元维持强势、市场继续消化美联储偏紧信号之际，金银价格在周四再度走弱。
 
-请问对此有何评论？
+CBCX表示，现货黄金一度回落至每盎司4214美元附近，白银跌幅更深，说明非收益资产短线仍在承受利率预期和汇率波动的双重压力。
 
-张晓刚：中国的国防费公开透明，每年都依法公开国防支出预算总额及其规模、结构、用途等信息，积极参加联合国军费透明制度，2008年以来每年都向联合国提交上一财政年度军事开支报告。
+从盘面联动看，美股在震荡后出现修复，但贵金属并未同步回暖。
 
-中国国防支出一贯坚持合理、适度、克制，占GDP的比重长期低于1.5%。
+CBCX认为，这种分化反映出资金当前更看重利率路径与美元位置，尤其是在市场重新评估未来降息节奏后，黄金上方阻力仍然较为明显。
 
-反观日本，作为二战战败国，防卫预算连续14年快速增长，防卫支出占GDP比重飙升至2%，甚至还要进一步提升至3.5%，人均防卫支出是中国的3倍多。
+如果后续油价继续回落，通胀预期可能边际放缓，这会给贵金属带来一定缓冲；但在实际利率没有明显下行之前，金价想要迅速收复关键关口并不轻松。
 
-清者自清，浊者自浊。
+白银由于波动更大，短线可能继续放大市场情绪变化。
 
-日方用“阴谋论”抹黑中国国防开支，妄想转移视线、误导舆论，掩饰其“再军事化”野心和举动。
+后市来看，CBCX预计贵金属交易仍会围绕美元强弱、联储表态和资金风险偏好展开，投资者更需要留意价格在关键支撑位附近的承接情况，以及黄金与白银之间的强弱转换是否进一步扩大。
 
-真正应该向世界讲清楚的是日本：“新型军国主义”成势为患，意欲何为？
+风险提示：本文仅为资讯分享，不构成投资建议。
 
 ## 相关推荐
 
-- 2026-06-30 09:17 - Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md
-- 2026-06-30 09:22 - 毕业以后，你最怀念的大学记忆是什么？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md
-- 2026-06-30 08:56 - 莫兰特转投开拓者效力<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md
-- 2026-06-30 09:10 - 歌剧老师锐评歌手第6期<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md
-- 2026-06-30 09:16 - 为什么很多企业推行“扁平化管理”后，效率反而下降了？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md
-- 2026-06-30 09:08 - 杨紫大银幕成绩单如何<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md
-- 2026-06-30 09:02 - 郑钦文温网三连败西尼亚科娃<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md
-- 2026-06-30 09:02 - 郑钦文温网一轮游<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md
-- 2026-06-30 09:21 - 董卿父亲报纸上发文悼念亡妻<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md
-- 2026-06-30 09:07 - 《名肘探科比》：科比大战裂口女<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md
-- 2026-06-30 09:20 - 现在叛逆期的孩子最怕的是什么？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md
-- 2026-06-30 09:18 - 董卿父亲报纸上发文悼念亡妻<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md
-- 2026-06-30 09:21 - 一直以为方便面汤是要倒掉的<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md
-- 2026-06-30 09:15 - 覃予萱晋级WTT美国大满贯女单32强<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md
+- 2026-06-30 09:12 - 德国巴拉圭加时<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md
+- 2026-06-30 09:02 - 内马尔替补<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md
+- 2026-06-30 09:26 - 全网说丑的格力玫瑰空调卖了5万台<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md
+- 2026-06-30 09:29 - 日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md
+- 2026-06-30 09:08 - 恋与深空回应争议<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md
+- 2026-06-30 09:01 - 2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md
+- 2026-06-30 09:10 - 有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md
+- 2026-06-30 09:28 - 女子清吧被陌生人投放伟哥<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md
+- 2026-06-30 09:09 - 深扒韩国队淘汰背后原因<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md
+- 2026-06-30 09:27 - 斗破苍穹<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md
+- 2026-06-30 09:20 - 《赛博朋克：边缘行者 2》｜官方预告片<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:09 - 老外对中国cosplay竟这样评价…<br><br> | ??:https://www.share.minike.top/Article/details/7620700.shtml
-- 2026-06-30 09:10 - 建议不要突然完全停止喝咖啡<br><br> | ??:http://www.share.kurohicncr.top/Article/details/919061.shtml
-- 2026-06-30 09:07 - 网友写差评被店家“挂”门口避雷<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/69850699.shtml
-- 2026-06-30 09:06 - 一直以为方便面汤是要倒掉的<br><br> | ??:http://www.share.kurohicncr.top/Article/details/8081892.shtml
-- 2026-06-30 09:01 - 黄晓明夸昆凌引杨颖对比<br><br> | ??:http://www.share.minike.top/Article/details/35070.shtml
-- 2026-06-30 09:19 - 蜘蛛侠:英雄归来<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/93329.shtml
-- 2026-06-30 09:12 - 12人以护剧为名敲诈剧组艺人被抓<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/108649766.shtml
-- 2026-06-30 09:22 - 如何评价杨紫白玉兰获奖<br><br> | ??:https://www.share.kurohicncr.top/Article/details/075048.shtml
-- 2026-06-30 09:18 - 7月1日起 一批新规即将落地<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/091791546.shtml
-- 2026-06-30 08:58 - 日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/299893.shtml
-- 2026-06-30 09:15 - 日本五次世界杯淘汰赛全败<br><br> | ??:http://www.blog.minike.top/Article/details/590510568805.shtml
-- 2026-06-30 09:16 - 巴拉圭进球<br><br> | ??:https://www.share.minike.top/Article/details/263018.shtml
-- 2026-06-30 09:16 - 重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！<br><br> | ??:https://www.blog.minike.top/Article/details/203309.shtml
-- 2026-06-30 08:54 - 梅德韦杰夫列举俄罗斯面临的七大挑战<br><br> | ??:http://www.blog.minike.top/Article/details/3293190.shtml
-- 2026-06-30 09:07 - 世界杯<br><br> | ??:http://www.blog.minike.top/Article/details/362235459113.shtml
+- 2026-06-30 09:07 - 妻子撞死家暴丈夫案二审案情反转<br><br> | ??:https://www.blog.minike.top/Article/details/11714.shtml
+- 2026-06-30 09:18 - 热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/9668624.shtml
+- 2026-06-30 09:17 - 领克07GT搭载超跑同源MRC悬架<br><br> | ??:https://www.share.kurohicncr.top/Article/details/68758473765.shtml
+- 2026-06-30 09:23 - 宜宾地震食客避难后折返 无人逃单<br><br> | ??:http://www.share.minike.top/Article/details/58713.shtml
+- 2026-06-30 09:22 - 卢卡申科发布解放军仪仗队视频<br><br> | ??:http://www.share.minike.top/Article/details/2438138.shtml
+- 2026-06-30 09:16 - 想问一下学日语的大佬，自学日语要怎么学？<br><br> | ??:http://www.share.minike.top/Article/details/997180127376.shtml
+- 2026-06-30 09:21 - 德国队回应爆冷淘汰<br><br> | ??:https://www.share.kurohicncr.top/Article/details/27100093461.shtml
+- 2026-06-30 09:13 - 德国巴拉圭加时<br><br> | ??:http://www.share.minike.top/Article/details/397839.shtml
+- 2026-06-30 09:12 - 泰山景区回应修建刀片刺绳隔离网<br><br> | ??:http://www.share.minike.top/Article/details/205634.shtml
+- 2026-06-30 09:22 - 德国4比5巴拉圭<br><br> | ??:http://www.share.kurohicncr.top/Article/details/04127512.shtml
+- 2026-06-30 09:05 - 如何评价《龙之家族》第三季第二集？<br><br> | ??:https://www.blog.minike.top/Article/details/044831740242.shtml
+- 2026-06-30 09:16 - 齐思钧回复张月<br><br> | ??:http://www.blog.minike.top/Article/details/82643.shtml
+- 2026-06-30 09:23 - 失明的我带老妈去了趟“火星”<br><br> | ??:https://www.share.kurohicncr.top/Article/details/136212940.shtml
+- 2026-06-30 09:15 - 德国爆冷点球大战不敌巴拉圭<br><br> | ??:https://www.share.kurohicncr.top/Article/details/4390205641.shtml
+- 2026-06-30 09:01 - 庆祝中国共产党成立105周年大会将举行<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/7681251.shtml

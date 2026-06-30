@@ -1,61 +1,58 @@
-# 2026年“一带一路”贸易投资论坛在京举行
+# 斯塔默誓言不会退缩后 英国10年期国债收益率升至一周高点
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-中新网北京6月24日电 (尹倩芸 陶思阅)在第四届中国国际供应链促进博览会期间，2026年“一带一路”贸易投资论坛在北京举行。本次论坛由中国国际商会主办，主题为“链接开放新格局共筑丝路新未来”。来自共建国家政府部门代表、工商界领袖、国际组织负责人、专家学者等200余名代表出席论坛。 中国贸促会会长任鸿斌在论坛致辞中建议，企业要深耕经贸合作，共享发展硕果；政商界坚守多边共识，共筑
+英国国债全线扩大跌幅，此前首相基尔·斯塔默表示，如果出现党内领导权之争，他将参选。市场认为这一表态可能延长政治和财政政策方面的不确定性。 英国10年期国债收益率上涨7个基点至4.83%；掉期市场显示，投资者目前预计英国央行今年将累计加息35个基点，周四预期30个基点。 斯塔默发表上述言论之前，安迪·伯纳姆在补选中获胜。外界普遍认为，伯纳姆是目前对斯塔默领导地位威胁最大的潜在挑战
 
 ## 正文
 
-中新网北京6月24日电 (尹倩芸 陶思阅)在第四届中国国际供应链促进博览会期间，2026年“一带一路”贸易投资论坛在北京举行。
+英国国债全线扩大跌幅，此前首相基尔·斯塔默表示，如果出现党内领导权之争，他将参选。
 
-本次论坛由中国国际商会主办，主题为“链接开放新格局共筑丝路新未来”。
+市场认为这一表态可能延长政治和财政政策方面的不确定性。
 
-来自共建国家政府部门代表、工商界领袖、国际组织负责人、专家学者等200余名代表出席论坛。
+英国10年期国债收益率上涨7个基点至4.83%；掉期市场显示，投资者目前预计英国央行今年将累计加息35个基点，周四预期30个基点。
 
-中国贸促会会长任鸿斌在论坛致辞中建议，企业要深耕经贸合作，共享发展硕果；政商界坚守多边共识，共筑开放格局；各方畅通运行脉络，共促产业融合。
+斯塔默发表上述言论之前，安迪·伯纳姆在补选中获胜。
 
-中国贸促会、中国国际商会将进一步发挥桥梁纽带作用，搭建链博会等高质量平台，丰富服务供给，助力企业在共建“一带一路”合作中开拓发展空间。
+外界普遍认为，伯纳姆是目前对斯塔默领导地位威胁最大的潜在挑战者。
 
-丝绸之路商务理事会中国委员会主席单位、中国交通建设集团有限公司董事长宋海良表示，将立足共建“一带一路”新方位，从互联互通、产业融合、科技创新、绿色发展四大维度拓宽合作新空间，聚力当好互联互通示范者、产业交融引领者、科创驱动先行者、绿色发展践行者。
+德国10年期国债收益率上涨4个基点至2.97%。
 
-“中国和南亚多年来共同建立了信任、互联互通和坚实的友谊，双边经贸合作保持强劲增长势头。
-
-”南亚联盟工商会主席钱迪·拉吉·达卡尔提出，深化本地化的产业合作、升级机械贸易为全链条产业协作、打造互补型区域价值链，依托丝路平台共同开辟产业、就业、创新协同发展的全新路径。
+推进阅读：伯纳姆赢得英国议会空缺席位 为挑战首相斯塔默铺平道路责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-30 09:00 - 日本球迷被强行披上巴西国旗<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md
-- 2026-06-30 09:23 - 2021江苏卫视跨年演唱会<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md
-- 2026-06-30 09:11 - 本科毕业生为何涌入专科学校<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md
-- 2026-06-30 09:12 - 中国猪圈装空调让欧洲网友破防<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md
-- 2026-06-30 09:04 - 佐野海舟远射破门<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md
-- 2026-06-30 09:21 - 巴西2-1绝杀日本<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md
-- 2026-06-30 09:07 - 千与千寻<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md
-- 2026-06-30 09:04 - 赵今麦因“瘦而不柴”的体态出圈<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md
-- 2026-06-30 09:13 - 曝詹姆斯即将与勇士会面<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md
-- 2026-06-30 09:21 - 《鸣潮》玄方主题曲 MV | 定玄<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md
-- 2026-06-30 09:14 - 德国队世界杯点球大战首败<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md
-- 2026-06-30 09:22 - 未来的飞机可能会用电吗？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md
-- 2026-06-30 08:56 - 小娘惹<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md
-- 2026-06-30 08:57 - 詹姆斯 勇士<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md
-- 2026-06-30 09:17 - 急先锋<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md
+- 2026-06-30 09:07 - 男子醉酒溺水获救后同行人拒协助抬人<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md
+- 2026-06-30 09:06 - 杨紫获白玉兰视后争议不止<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md
+- 2026-06-30 09:00 - 拆解FIFA和世界杯的暗面<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md
+- 2026-06-30 09:03 - 啥比桑吉尔夫排位练蓝防（最不抽象的一集）<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md
+- 2026-06-30 09:28 - 媒体：手机测评该挤挤水分了<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md
+- 2026-06-30 09:11 - 莫兰特转投开拓者效力<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md
+- 2026-06-30 09:15 - 2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md
+- 2026-06-30 09:14 - 法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md
+- 2026-06-30 09:13 - 你这一辈子有没有为进山姆拼过命？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md
+- 2026-06-30 09:21 - 想问一下学日语的大佬，自学日语要怎么学？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md
+- 2026-06-30 09:13 - 2021湖南卫视跨年演唱会<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md
+- 2026-06-30 09:08 - 为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md
+- 2026-06-30 09:09 - 周冬雨多次说演不了话剧文城<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md
+- 2026-06-30 09:13 - 国务院：探索延长义务教育年限<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:17 - 有哪些值得一提的生活窍门？<br><br> | ??:https://www.blog.minike.top/Article/details/6116883886.shtml
-- 2026-06-30 09:07 - 扬名立万<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/4257230586.shtml
-- 2026-06-30 09:03 - 急先锋<br><br> | ??:https://www.share.kurohicncr.top/Article/details/9745994788.shtml
-- 2026-06-30 09:05 - 杨某诋毁袁隆平院士科研成果被刑拘<br><br> | ??:https://www.share.kurohicncr.top/Article/details/4349542.shtml
-- 2026-06-30 09:16 - 为什么很多企业推行“扁平化管理”后，效率反而下降了？<br><br> | ??:http://www.blog.minike.top/Article/details/97569189.shtml
-- 2026-06-30 09:04 - 自然光｜papi酱&窦文涛：驴与跑步机<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/21044818.shtml
-- 2026-06-30 09:16 - 男子造谣东鹏老板不喝自家饮料被拘<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/998785400408.shtml
-- 2026-06-30 09:11 - 想问一下学日语的大佬，自学日语要怎么学？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/84773938.shtml
-- 2026-06-30 09:15 - 欧洲空调卖疯了 下一个爆款是储能吗<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/72403.shtml
-- 2026-06-30 09:12 - 追梦拒绝2770万美元球员选项<br><br> | ??:https://www.blog.minike.top/Article/details/6140698.shtml
-- 2026-06-30 09:03 - 爆冷出局！德国点球大战不敌巴拉圭<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/64849494.shtml
-- 2026-06-30 08:55 - 高考结束，该不该外出打工体验？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/5758441.shtml
-- 2026-06-30 09:15 - 赵今麦因“瘦而不柴”的体态出圈<br><br> | ??:https://www.blog.minike.top/Article/details/7783175425.shtml
-- 2026-06-30 09:22 - 孙兴慜道歉<br><br> | ??:https://www.blog.minike.top/Article/details/47601.shtml
-- 2026-06-30 09:17 - 泰山景区建135公里刀片刺绳隔离网<br><br> | ??:http://www.blog.minike.top/Article/details/276517971642.shtml
+- 2026-06-30 09:25 - 张碧晨一开口梦回逐玉<br><br> | ??:http://www.share.kurohicncr.top/Article/details/76108.shtml
+- 2026-06-30 09:08 - 找到了10年前跪舔b站的视频<br><br> | ??:https://www.share.kurohicncr.top/Article/details/680034669112.shtml
+- 2026-06-30 09:08 - 点球大战和诺伊尔都救不回德国队<br><br> | ??:https://www.share.kurohicncr.top/Article/details/9118752047.shtml
+- 2026-06-30 09:20 - 日本队主帅道歉<br><br> | ??:https://www.share.kurohicncr.top/Article/details/592588.shtml
+- 2026-06-30 09:29 - 【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/77708.shtml
+- 2026-06-30 09:27 - 藤森庆子赢得秘鲁总统选举<br><br> | ??:http://www.blog.minike.top/Article/details/44721.shtml
+- 2026-06-30 09:01 - 赛博朋克边缘行者2预告片<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/023049185604.shtml
+- 2026-06-30 09:24 - 勇敢的心第二部<br><br> | ??:http://www.share.kurohicncr.top/Article/details/39087016.shtml
+- 2026-06-30 09:17 - 泰山建135公里刀片刺绳隔离网<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/0600299.shtml
+- 2026-06-30 09:09 - 浪姐成团夜爆笑吐槽<br><br> | ??:http://www.blog.minike.top/Article/details/27914513.shtml
+- 2026-06-30 09:27 - 日本16强魔咒<br><br> | ??:http://www.share.minike.top/Article/details/30708843.shtml
+- 2026-06-30 09:26 - 国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/961987918655.shtml
+- 2026-06-30 09:07 - 终于把好哥们处成了情侣!<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/317795.shtml
+- 2026-06-30 09:02 - 这一刀 会很帅<br><br> | ??:https://www.share.kurohicncr.top/Article/details/428198.shtml
+- 2026-06-30 09:27 - DeepSeek启动成立来最大规模招聘<br><br> | ??:https://www.blog.minike.top/Article/details/848648.shtml

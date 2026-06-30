@@ -1,58 +1,57 @@
-# “站在光里”的热门基金，开始限购了
+# 贵阳银行：3.15亿元债权执行程序终结，此前已全额计提减值
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-“站在光里”，成了光通信强势行情的“热门梗”。而随着行情持续演绎，不少重仓相关标的的基金陆续开启限购。 据统计，截至6月25日，仅以业绩排名前30的产品为例，已有超半数产品开启限购，业绩前十产品全部暂停大额申购。这些基金普遍重仓参与光通信产业链相关板块。6月以来，频频出现相关基金宣告限购或进一步降低单日申购金额上限。 例如，6月25日起，基金经理郑希管理的易方达信息产业混合、易
+6月18日金融一线消息，贵阳银行公告称，公司收到贵阳市中级人民法院《执行裁定书》（（2025）黔01执恢78号之一），就公司与贵州九州名城房地产开发有限公司等的合同纠纷一案，法院裁定终结本次执行程序。该案债权投资本金为315，429，534.07元及按合同约定计算的利息、复利、罚息等。 因九州名城等未按生效判决履行义务，公司于2023年6月30日申请强制执行。法院经调查认为，除
 
 ## 正文
 
-“站在光里”，成了光通信强势行情的“热门梗”。
+6月18日金融一线消息，贵阳银行公告称，公司收到贵阳市中级人民法院《执行裁定书》（（2025）黔01执恢78号之一），就公司与贵州九州名城房地产开发有限公司等的合同纠纷一案，法院裁定终结本次执行程序。
 
-而随着行情持续演绎，不少重仓相关标的的基金陆续开启限购。
+该案债权投资本金为315，429，534.07元及按合同约定计算的利息、复利、罚息等。
 
-据统计，截至6月25日，仅以业绩排名前30的产品为例，已有超半数产品开启限购，业绩前十产品全部暂停大额申购。
+因九州名城等未按生效判决履行义务，公司于2023年6月30日申请强制执行。
 
-这些基金普遍重仓参与光通信产业链相关板块。
+法院经调查认为，除已释明及处置的财产外，未发现其他可供执行财产，遂裁定终结本次执行。
 
-6月以来，频频出现相关基金宣告限购或进一步降低单日申购金额上限。
+公司发现被执行人有可供执行财产的，可申请恢复执行，不受时效限制。
 
-例如，6月25日起，基金经理郑希管理的易方达信息产业混合、易方达信息行业精选股票均把申购金额上限降低至1万元。
+贵阳银行表示，已于以前年度对该笔债权本金全额计提减值准备，本次诉讼事项不会对本期利润或期后利润产生重大影响。
 
-此前2只基金的申购金额上限分别为10万元、50万元。
+公司将积极采取各项措施保全权益。
 
-这两只基金一季度末前三大重仓股为新易盛、中际旭创、源杰科技——均为光通信赛道热门标的。
+责任编辑：李琳琳
 
 ## 相关推荐
 
-- 2026-06-30 09:11 - 妻子撞死家暴丈夫案二审案情反转<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md
-- 2026-06-30 09:12 - 内马尔未登场 安切洛蒂赛后回应<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md
-- 2026-06-30 09:08 - 日本反击率先破门<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md
-- 2026-06-30 09:01 - 亚洲球队全部出局<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md
-- 2026-06-30 09:02 - 87克大金链到老庙黄金维修少了11克<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md
-- 2026-06-30 09:13 - 王楚钦孙颖莎晋级混双八强<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md
-- 2026-06-30 09:20 - 荷兰VS摩洛哥<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md
-- 2026-06-30 08:57 - 好像看到了人类带孩子崩溃的样子<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md
-- 2026-06-30 08:57 - 日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md
-- 2026-06-30 09:19 - 国务院：鼓励行业龙头企业举办职校<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md
-- 2026-06-30 09:15 - 马宁怒怼巴拉圭教练组<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md
-- 2026-06-30 09:13 - 欧洲装一台空调有多难<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md
+- 2026-06-30 09:17 - 内马尔安慰日本球员<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md
+- 2026-06-30 09:05 - 欧洲空调卖疯了 下一个爆款是储能吗<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md
+- 2026-06-30 09:16 - 全新问界M9现身美国街头<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md
+- 2026-06-30 09:04 - 这几秒成世界杯最值钱广告位<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md
+- 2026-06-30 09:09 - 亚洲球队全部告别世界杯<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md
+- 2026-06-30 09:29 - 欧洲民众抢购空调降温<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md
+- 2026-06-30 09:00 - 被巴西绝杀后 日球员田中碧跪地痛哭<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md
+- 2026-06-30 09:01 - 81岁老人被男子买光菜回家车祸去世<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md
+- 2026-06-30 09:05 - 输球后日本球迷被强行披上巴西国旗<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md
+- 2026-06-30 09:26 - 2021江苏卫视跨年演唱会<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md
+- 2026-06-30 09:18 - 日本队主帅道歉<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:00 - 这种关系可能正在悄悄“催老”你<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/382963710.shtml
-- 2026-06-30 08:58 - 日本队5进世界杯淘汰赛0胜<br><br> | ??:https://www.share.minike.top/Article/details/52999261.shtml
-- 2026-06-30 08:54 - 内马尔安慰日本球员<br><br> | ??:http://www.blog.minike.top/Article/details/647750228000.shtml
-- 2026-06-30 09:06 - 董卿父亲在报纸上发文悼念亡妻<br><br> | ??:http://www.blog.minike.top/Article/details/5774797238.shtml
-- 2026-06-30 09:07 - 时光音乐会<br><br> | ??:https://www.blog.minike.top/Article/details/620265.shtml
-- 2026-06-30 08:59 - 【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】<br><br> | ??:https://www.share.kurohicncr.top/Article/details/8500519.shtml
-- 2026-06-30 09:03 - 我和我的家乡<br><br> | ??:http://www.share.kurohicncr.top/Article/details/225719675343.shtml
-- 2026-06-30 09:08 - 挪威国家队紧急从本土订购大批海鲜<br><br> | ??:http://www.share.kurohicncr.top/Article/details/138256576337.shtml
-- 2026-06-30 09:03 - 贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？<br><br> | ??:https://www.blog.minike.top/Article/details/13857.shtml
-- 2026-06-30 09:09 - 全球最火存储ETF纳入兆易创新<br><br> | ??:http://www.blog.minike.top/Article/details/2952926352.shtml
-- 2026-06-30 09:09 - 金牌调解<br><br> | ??:https://www.share.kurohicncr.top/Article/details/5872855608.shtml
-- 2026-06-30 09:19 - 韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？<br><br> | ??:http://www.share.minike.top/Article/details/29594.shtml
-- 2026-06-30 09:00 - 怕iPhone涨价的用户已紧急换新<br><br> | ??:https://www.share.minike.top/Article/details/31008938.shtml
-- 2026-06-30 08:57 - 世界杯<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/50606979.shtml
-- 2026-06-30 09:10 - 挪威国家队紧急从本土订购大批海鲜<br><br> | ??:http://www.share.kurohicncr.top/Article/details/36678.shtml
+- 2026-06-30 09:01 - 乔家的儿女<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/337693.shtml
+- 2026-06-30 09:05 - 人民锐评：网红不能困在无底线逐利里<br><br> | ??:https://www.share.kurohicncr.top/Article/details/0549498.shtml
+- 2026-06-30 09:29 - 莫兰特转投开拓者效力<br><br> | ??:http://www.share.minike.top/Article/details/947212.shtml
+- 2026-06-30 09:18 - 这几秒成世界杯最值钱广告位<br><br> | ??:http://www.share.kurohicncr.top/Article/details/238277022022.shtml
+- 2026-06-30 09:06 - 第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！<br><br> | ??:https://www.share.kurohicncr.top/Article/details/148985.shtml
+- 2026-06-30 09:26 - 德国爆冷点球大战不敌巴拉圭<br><br> | ??:https://www.blog.minike.top/Article/details/7180461.shtml
+- 2026-06-30 09:03 - 金鹰奖视后提名预测<br><br> | ??:https://www.share.kurohicncr.top/Article/details/620569381.shtml
+- 2026-06-30 09:02 - 输球后日本球迷被强行披上巴西国旗<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/485940364.shtml
+- 2026-06-30 09:16 - 如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/379875889.shtml
+- 2026-06-30 09:28 - 张雪的一句“是我们”引发岛内热议<br><br> | ??:http://www.share.kurohicncr.top/Article/details/6455189.shtml
+- 2026-06-30 09:13 - 王源近几年没有路演了<br><br> | ??:http://www.share.kurohicncr.top/Article/details/6176635687.shtml
+- 2026-06-30 09:30 - 安切洛蒂 换人<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/409029616.shtml
+- 2026-06-30 09:13 - 如果有二次元高中是什么样子的？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/13913349.shtml
+- 2026-06-30 09:14 - 如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/82486.shtml
+- 2026-06-30 09:15 - 输球后日本球迷被强行披上巴西国旗<br><br> | ??:http://www.share.minike.top/Article/details/97801656823.shtml

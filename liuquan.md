@@ -1,57 +1,58 @@
-# “车电分离”保险加速探路，重塑新能源车险定价逻辑
+# 【讲习所】跨越山海的牵挂
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-来源：北京商报 政策指引下，新能源车险市场加速谋变。6月23日，商务部等9部门联合印发《关于培育壮大汽车后市场消费若干措施的通知》，其中提到，进一步提升车险保障能力和服务水平，建立保险车型综合分级制度。创新优化车险产品供给，提供“基本+变动”的组合产品，探索“车电分离”保险模式。 当前，新能源车险面临“车主喊贵，险企叫亏”的难题，而“车电分离”模式的汽车商业车险，被视为重塑新能
+“在世界各地有几千万海外侨胞，大家都是中华大家庭的成员。”长期以来，中共中央总书记、国家主席习近平一直心系海外华侨华人。无论是在地方，还是到了中央，习近平对海外华侨华人的关心、帮助与惦念，跨越山海，成为人们心中温暖感怀的美好记忆。 “我到福建16年，工作中都有一个‘侨’字” 福建是著名侨乡，如今，约有2000万闽籍华侨华人，遍布世界190多个国家和地区。 在闽工作期间，习近平高
 
 ## 正文
 
-来源：北京商报 政策指引下，新能源车险市场加速谋变。
+“在世界各地有几千万海外侨胞，大家都是中华大家庭的成员。
 
-6月23日，商务部等9部门联合印发《关于培育壮大汽车后市场消费若干措施的通知》，其中提到，进一步提升车险保障能力和服务水平，建立保险车型综合分级制度。
+”长期以来，中共中央总书记、国家主席习近平一直心系海外华侨华人。
 
-创新优化车险产品供给，提供“基本+变动”的组合产品，探索“车电分离”保险模式。
+无论是在地方，还是到了中央，习近平对海外华侨华人的关心、帮助与惦念，跨越山海，成为人们心中温暖感怀的美好记忆。
 
-当前，新能源车险面临“车主喊贵，险企叫亏”的难题，而“车电分离”模式的汽车商业车险，被视为重塑新能源车险定价逻辑的模式之一。
+“我到福建16年，工作中都有一个‘侨’字” 福建是著名侨乡，如今，约有2000万闽籍华侨华人，遍布世界190多个国家和地区。
 
-在业内看来，“车电分离”模式为行业破局与消费者减负提供了一条新路径，通过将车辆与动力电池作为独立标的物进行销售与承保，能够使车险定价更精细、更公平。
+在闽工作期间，习近平高度重视“引侨、引台、引外”工作。
 
-“车电分离”模式提供新思路 自2021年底我国推出新能源汽车专属保险以来，新能源车险保费持续高速增长。
+1990年10月底，离乡多年的侨领林绍良率队来闽进行经济考察，在福州受到时任福州市委书记习近平的热情接待。
 
-然而，受出险率高、社会维修体系不完善等多重因素影响，新能源车险“车主喊贵、险企喊亏”的现象较为普遍。
+林绍良表达了自己的期待，希望福建改革开放方面的政策更加健全些。
 
-从消费者角度来看，动力电池高昂的维修成本与较快的残值衰减，直接推高了整车投保价格，加重了用车负担。
+1991年8月，习近平带领考察组访问印度尼西亚，专程拜访了林绍良。
 
 ## 相关推荐
 
-- 2026-06-30 09:09 - 起风了<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md
-- 2026-06-30 08:59 - 高考结束，该不该外出打工体验？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md
-- 2026-06-30 09:03 - 人可以极简主义到什么程度？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md
-- 2026-06-30 09:18 - 大货车掉落螺丝扎进骑手护目镜<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md
-- 2026-06-30 09:19 - 天道<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md
-- 2026-06-30 09:11 - 人可以极简主义到什么程度？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md
-- 2026-06-30 08:57 - 英语考了145的人竟然教数学<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md
-- 2026-06-30 09:02 - 法总统候选人：拒绝与中国激烈对抗<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md
-- 2026-06-30 09:22 - 如何改变自己太负责任的性格?<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md
-- 2026-06-30 09:05 - 蜘蛛侠:英雄归来<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md
-- 2026-06-30 09:12 - 巴西在进攻三区完成210脚传球<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md
+- 2026-06-30 09:08 - 第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md
+- 2026-06-30 09:17 - 世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md
+- 2026-06-30 09:08 - iPhoneUltra黑色机模<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md
+- 2026-06-30 09:17 - 上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md
+- 2026-06-30 09:28 - 逃狱兄弟<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md
+- 2026-06-30 09:13 - 全新问界M9现身美国街头<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md
+- 2026-06-30 09:08 - 刘宇宁高情商化解谁站C位<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md
+- 2026-06-30 09:26 - 陈幸同晋级WTT美国大满贯女单32强<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md
+- 2026-06-30 09:11 - “柠檬茶能换怀表？”<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md
+- 2026-06-30 09:20 - 深扒韩国队淘汰背后原因<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md
+- 2026-06-30 09:17 - 古代时期普通老百姓能喝上酒吗？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md
+- 2026-06-30 09:20 - 德国北部枪击事件致5死<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:57 - 我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/07542426.shtml
-- 2026-06-30 09:07 - 美股收盘 热门中概股普涨<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/746949.shtml
-- 2026-06-30 08:59 - 美人鱼<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/198842169046.shtml
-- 2026-06-30 09:20 - 【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸<br><br> | ??:http://www.share.minike.top/Article/details/160505.shtml
-- 2026-06-30 09:21 - 吴易昺不敌德约科维奇 止步温网首轮<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/48216860072.shtml
-- 2026-06-30 09:23 - 健全中小学教师工资长效联动机制<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/68319689.shtml
-- 2026-06-30 09:14 - 收到补税提醒尽快办理 明起有滞纳金<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/658567.shtml
-- 2026-06-30 09:02 - 挪威国家队紧急从本土订购大批海鲜<br><br> | ??:http://www.blog.minike.top/Article/details/291214885566.shtml
-- 2026-06-30 09:14 - 荷兰VS摩洛哥<br><br> | ??:http://www.share.minike.top/Article/details/0247455.shtml
-- 2026-06-30 09:17 - 诺伊尔尽力了<br><br> | ??:https://www.share.minike.top/Article/details/6228029799.shtml
-- 2026-06-30 09:02 - 杨紫大银幕成绩单<br><br> | ??:https://www.share.kurohicncr.top/Article/details/621238261628.shtml
-- 2026-06-30 09:20 - 李在明向韩国两大财阀90度鞠躬<br><br> | ??:https://www.share.minike.top/Article/details/957850082.shtml
-- 2026-06-30 09:08 - 极限挑战第一季<br><br> | ??:https://www.share.minike.top/Article/details/1860024087.shtml
-- 2026-06-30 09:19 - 阿娇瘦了10斤<br><br> | ??:http://www.blog.minike.top/Article/details/7361251.shtml
-- 2026-06-30 08:55 - 这些7月新规影响你我<br><br> | ??:http://www.share.kurohicncr.top/Article/details/10963.shtml
+- 2026-06-30 09:06 - 如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/5807196956.shtml
+- 2026-06-30 09:17 - 我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？<br><br> | ??:https://www.share.minike.top/Article/details/0795470.shtml
+- 2026-06-30 09:07 - “错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】<br><br> | ??:https://www.share.kurohicncr.top/Article/details/0987867.shtml
+- 2026-06-30 09:26 - 美股<br><br> | ??:https://www.share.kurohicncr.top/Article/details/12326637.shtml
+- 2026-06-30 09:14 - 内马尔未登场 安切洛蒂赛后回应<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/967792248348.shtml
+- 2026-06-30 09:07 - 【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/64387122.shtml
+- 2026-06-30 09:03 - 男生180+，有腹肌是什么体验？<br><br> | ??:https://www.blog.minike.top/Article/details/58754.shtml
+- 2026-06-30 09:14 - 王欣瑜连续4年晋级温网第二轮<br><br> | ??:http://www.blog.minike.top/Article/details/532135.shtml
+- 2026-06-30 09:18 - 杨紫大银幕成绩单如何<br><br> | ??:http://www.share.minike.top/Article/details/3643696.shtml
+- 2026-06-30 09:02 - 极限挑战第一季<br><br> | ??:https://www.blog.minike.top/Article/details/870527.shtml
+- 2026-06-30 09:25 - 日本队主帅道歉<br><br> | ??:http://www.blog.minike.top/Article/details/008844.shtml
+- 2026-06-30 09:10 - 杨紫大银幕成绩单如何<br><br> | ??:http://www.share.minike.top/Article/details/1677395791.shtml
+- 2026-06-30 09:06 - 《共患难》<br><br> | ??:http://www.blog.minike.top/Article/details/568461387.shtml
+- 2026-06-30 09:18 - 补时绝杀 巴西2-1淘汰日本<br><br> | ??:https://www.blog.minike.top/Article/details/381141137143.shtml
+- 2026-06-30 09:21 - 曝老詹对自由市场态度与以往截然不同<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/55613262.shtml

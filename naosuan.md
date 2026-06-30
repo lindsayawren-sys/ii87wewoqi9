@@ -1,61 +1,51 @@
-# 消费者“吐槽”不断 女装“超长预售”该改改了
+# 兴业科技拟斥资5500万元收购磷化铟衬底相关业务资产
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-“6·18”大促期间，多地消协发布消费提醒，“超长预售”被点名—— 女装“超长预售”该改改了 “春天买的夏装，夏天快过半了还没发货”“买的衣服里有预售商品，退货都没法退”——社交平台上，电商女装的超长预售期引发不少网购消费者“吐槽”。 今年“6·18”，多地发布消费提醒，特别指出“部分服装类商家将预售期拉长至30天、50天甚至更长”的问题。有平台明确此次“6·18”取消沿用多年
+6月21日，兴业科技（002674.SZ）发布公告称，公司已与青岛立昂晶电半导体科技有限公司签署框架协议，拟以现金方式出资5500万元收购青岛立昂旗下磷化铟衬底及半导体电子材料业务相关资产，涵盖该业务线全部资产、运营团队、知识产权等。本次收购目前仅为意向性约定，后续尚需提交公司董事会审议，预计不会对公司当期业绩产生实质性影响。（文章来源：央广财经）
 
 ## 正文
 
-“6·18”大促期间，多地消协发布消费提醒，“超长预售”被点名—— 女装“超长预售”该改改了 “春天买的夏装，夏天快过半了还没发货”“买的衣服里有预售商品，退货都没法退”——社交平台上，电商女装的超长预售期引发不少网购消费者“吐槽”。
+6月21日，兴业科技（002674.SZ）发布公告称，公司已与青岛立昂晶电半导体科技有限公司签署框架协议，拟以现金方式出资5500万元收购青岛立昂旗下磷化铟衬底及半导体电子材料业务相关资产，涵盖该业务线全部资产、运营团队、知识产权等。
 
-今年“6·18”，多地发布消费提醒，特别指出“部分服装类商家将预售期拉长至30天、50天甚至更长”的问题。
+本次收购目前仅为意向性约定，后续尚需提交公司董事会审议，预计不会对公司当期业绩产生实质性影响。
 
-有平台明确此次“6·18”取消沿用多年的预售环节，改为现货开卖；部分平台则规定将商品预售时长最长限定为15天。
-
-女装预售周期为何这么长？
-
-消费者和商家怎么看？
-
-预售成常态，消费者“吐槽”不断 在北京一家互联网公司工作的滕菲经常网购，她告诉记者，如果一件衣服标注了预售，除非特别喜欢，否则不会下单。
-
-“我遇到过这样的情况：想买几件衣服对比一下留一件，结果有一件是预售，其他的就都先不能退，要等好久。
-
-”滕菲说，一些独立设计师品牌兴起后，预售期变得越来越长，“虽然我确实挺爱买这些牌子的，但一般只买现货。
+（文章来源：央广财经）
 
 ## 相关推荐
 
-- 2026-06-30 09:12 - 千香<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md
-- 2026-06-30 09:00 - 千香<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md
-- 2026-06-30 08:55 - 我把队友的7连跪剪成了艺术<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md
-- 2026-06-30 09:07 - 日本球迷被强行披上巴西国旗<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md
-- 2026-06-30 08:54 - Melo向柳智敏张元英道歉<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md
-- 2026-06-30 09:10 - 马宁怒怼巴拉圭教练组<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md
-- 2026-06-30 09:11 - 国务院：稳步推进研究生考试招生改革<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md
-- 2026-06-30 09:16 - 韩国道歉完日本道歉<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md
-- 2026-06-30 08:54 - 杨紫获白玉兰视后为何争议难平<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md
-- 2026-06-30 09:22 - 为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md
-- 2026-06-30 08:57 - 《虎吹最难绷の一集》<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md
-- 2026-06-30 08:59 - 12人以护剧为名敲诈剧组艺人被抓<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md
-- 2026-06-30 09:22 - 曝娱乐圈大部分明星失业<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md
-- 2026-06-30 08:54 - 如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md
-- 2026-06-30 09:11 - 欧洲装一台空调有多难<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md
+- 2026-06-30 09:01 - 【Reaction】女生最少的5款游戏<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md
+- 2026-06-30 09:27 - 世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md
+- 2026-06-30 09:14 - 内马尔未登场 安切洛蒂赛后回应<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md
+- 2026-06-30 09:17 - 男生180+，有腹肌是什么体验？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md
+- 2026-06-30 09:21 - 我觉得你是在无中生友<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md
+- 2026-06-30 09:14 - 《赛博朋克：边缘行者 2》｜官方预告片<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md
+- 2026-06-30 09:11 - hanser X 赖美云《室内系的Track Maker》<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md
+- 2026-06-30 09:05 - 郑钦文 四年一轮游<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md
+- 2026-06-30 09:21 - 「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md
+- 2026-06-30 09:27 - 周冬雨多次说演不了话剧文城<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md
+- 2026-06-30 09:12 - MSI应援曲 如果季中成回忆<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md
+- 2026-06-30 09:11 - 流金岁月<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md
+- 2026-06-30 09:13 - 四川凉山落石砸毁车辆 3人遇难<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md
+- 2026-06-30 09:29 - 杨紫大银幕成绩单<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md
+- 2026-06-30 09:05 - 泰山景区建135公里刀片刺绳隔离网<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:14 - 王欣瑜连续4年晋级温网第二轮<br><br> | ??:https://www.share.minike.top/Article/details/99097.shtml
-- 2026-06-30 08:58 - 四川宜宾地震瞬间鱼群乱跳<br><br> | ??:http://www.blog.minike.top/Article/details/20010.shtml
-- 2026-06-30 09:18 - 小娘惹<br><br> | ??:https://www.share.minike.top/Article/details/29695661250.shtml
-- 2026-06-30 08:56 - 博世们还在犹豫 美的们已经卖断货<br><br> | ??:https://www.share.kurohicncr.top/Article/details/26164442219.shtml
-- 2026-06-30 09:21 - 女儿从清华毕业 爸爸晒出17年对比照<br><br> | ??:https://www.share.kurohicncr.top/Article/details/11152619075.shtml
-- 2026-06-30 09:10 - 韩国球迷凌晨4点接机怒骂主教练<br><br> | ??:http://www.blog.minike.top/Article/details/744729839.shtml
-- 2026-06-30 09:06 - 要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活<br><br> | ??:http://www.share.kurohicncr.top/Article/details/40856294.shtml
-- 2026-06-30 09:21 - DeepSeek启动成立来最大规模招聘<br><br> | ??:http://www.share.kurohicncr.top/Article/details/893600.shtml
-- 2026-06-30 09:03 - 自然光｜papi酱&窦文涛：驴与跑步机<br><br> | ??:http://www.share.minike.top/Article/details/49452.shtml
-- 2026-06-30 09:07 - 这一刀 会很帅<br><br> | ??:https://www.share.kurohicncr.top/Article/details/23819956415.shtml
-- 2026-06-30 09:19 - 如何评价DeepSeek 提出的 DSpark 推理加速方案？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/9050172.shtml
-- 2026-06-30 09:20 - 房价什么时候能涨<br><br> | ??:https://www.blog.minike.top/Article/details/6075371444.shtml
-- 2026-06-30 09:11 - 中国新一轮出口管制直指日本命脉<br><br> | ??:https://www.blog.minike.top/Article/details/59547510.shtml
-- 2026-06-30 09:01 - 古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/485009.shtml
-- 2026-06-30 09:00 - 中国对日本再出重拳<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/78205285665.shtml
+- 2026-06-30 09:18 - 千与千寻<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/777730014388.shtml
+- 2026-06-30 09:21 - 送你一朵小红花<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/116933.shtml
+- 2026-06-30 09:14 - 一直以为方便面汤是要倒掉的<br><br> | ??:http://www.blog.minike.top/Article/details/8056890600.shtml
+- 2026-06-30 09:27 - 吴易昺不敌德约科维奇 止步温网首轮<br><br> | ??:http://www.share.kurohicncr.top/Article/details/70381.shtml
+- 2026-06-30 09:14 - 电影抓特务上映11天破亿<br><br> | ??:http://www.share.minike.top/Article/details/36260013.shtml
+- 2026-06-30 09:21 - 明星大侦探第一季<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/579781.shtml
+- 2026-06-30 09:04 - 有哪些值得一提的生活窍门？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/05579.shtml
+- 2026-06-30 09:06 - 被巴西绝杀后 日球员田中碧跪地痛哭<br><br> | ??:http://www.share.minike.top/Article/details/9826562.shtml
+- 2026-06-30 09:08 - 法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/4183620617.shtml
+- 2026-06-30 09:29 - 中国代表在联合国点名日本所犯罪行<br><br> | ??:http://www.share.kurohicncr.top/Article/details/9659963.shtml
+- 2026-06-30 09:16 - 普京为何将俄乌谈判时间表与伊朗挂钩<br><br> | ??:https://www.share.kurohicncr.top/Article/details/84526.shtml
+- 2026-06-30 09:28 - 美股<br><br> | ??:https://www.share.kurohicncr.top/Article/details/407575.shtml
+- 2026-06-30 09:06 - 王楚钦孙颖莎晋级混双八强<br><br> | ??:https://www.blog.minike.top/Article/details/3340138497.shtml
+- 2026-06-30 09:19 - 五哈和他们的朋友<br><br> | ??:http://www.blog.minike.top/Article/details/6019397.shtml
+- 2026-06-30 09:02 - 挪威国家队紧急从本土订购大批海鲜<br><br> | ??:https://www.share.minike.top/Article/details/207004722339.shtml

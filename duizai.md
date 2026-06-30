@@ -1,57 +1,44 @@
-# 莎莎国际发布年度业绩 股东应占溢利2.005亿港元同比增长160.47%
+# 智谱盘中总市值突破1万亿港元
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-莎莎国际（00178）发布截至2026年3月31日止年度业绩，持续经营业务营业额43.83亿港元，同比增长14.16%；股东应占溢利2.005亿港元，同比增长160.47%；每股基本盈利6.5港仙。拟派发每股3.4港仙的末期股息，以及每股1.9港仙的末期特别股息。 各地区营运效益持续改善，年内集团盈利按年升160.5%：集团在中国香港及澳门（港澳）业务稳健增长的基础下，关闭中国
+6月22日消息，港股智谱盘中总市值突破1万亿港元，年内涨超1900%，现涨超13%。
 
 ## 正文
 
-莎莎国际（00178）发布截至2026年3月31日止年度业绩，持续经营业务营业额43.83亿港元，同比增长14.16%；股东应占溢利2.005亿港元，同比增长160.47%；每股基本盈利6.5港仙。
-
-拟派发每股3.4港仙的末期股息，以及每股1.9港仙的末期特别股息。
-
-各地区营运效益持续改善，年内集团盈利按年升160.5%：集团在中国香港及澳门（港澳）业务稳健增长的基础下，关闭中国内地实体店，令当地线上业务的盈利得以释放。
-
-年内集团盈利按年升160.5%，至2.005亿港元。
-
-集团营业额及毛利显著提升：集团总营业额按年上升14.2%至43.83亿港元，毛利亦按年升10.5%至16.75亿港元，符合集团在本财政年度起始订下的战略目标。
-
-港澳核心市场全面增长：港澳营业额、同店销售、交易宗数、每宗交易平均金额及每宗交易货品件数均录得按年升幅。
-
-集团在2026/27财政年度第一季度保持强劲增长，且增速加快，并将继续拓展店铺网络，预计新财政年度上半年，港澳开设六至七间新店，应付市场需求。
-
-责任编辑：卢昱君
+6月22日消息，港股智谱盘中总市值突破1万亿港元，年内涨超1900%，现涨超13%。
 
 ## 相关推荐
 
-- 2026-06-30 09:14 - 美加墨世界杯：亚洲足球的得意与失意<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md
-- 2026-06-30 09:14 - 豆包收费了，你还会用吗？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md
-- 2026-06-30 09:01 - 世界杯<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md
-- 2026-06-30 09:00 - 马航MH370传来最新消息<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md
-- 2026-06-30 09:24 - 上市央企地产商 两年换了三任董事长<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md
-- 2026-06-30 09:05 - 金鹰奖视后提名预测<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md
-- 2026-06-30 09:12 - 德国身价是巴拉圭6倍<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md
-- 2026-06-30 09:16 - 快递到家不能这样拆<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md
-- 2026-06-30 09:16 - 全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md
-- 2026-06-30 09:23 - 郑钦文温网首轮出局<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md
-- 2026-06-30 09:18 - 挪威国家队紧急从本土订购大批海鲜<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md
+- 2026-06-30 09:12 - 中国对日本再出重拳<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md
+- 2026-06-30 09:12 - 【硬核拆解】汽车人到底离我们有多远？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md
+- 2026-06-30 09:05 - 奔跑吧·黄河篇第二季<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md
+- 2026-06-30 09:16 - 女子用家人生日买彩票中1032万<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md
+- 2026-06-30 09:25 - 詹姆斯 勇士<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md
+- 2026-06-30 09:09 - 湖北云南的这些涉汛信息都是假的<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md
+- 2026-06-30 09:15 - 找到了10年前跪舔b站的视频<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md
+- 2026-06-30 09:12 - 德国巴拉圭进入点球大战<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md
+- 2026-06-30 09:02 - 商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md
+- 2026-06-30 09:06 - 致敬！中国首批缉毒警已全体退休<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md
+- 2026-06-30 09:25 - 全网说丑的格力玫瑰空调卖了5万台<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md
+- 2026-06-30 09:22 - 女心理师<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:16 - 自然光｜papi酱&窦文涛：驴与跑步机<br><br> | ??:https://www.share.minike.top/Article/details/640497342742.shtml
-- 2026-06-30 09:16 - 【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/420548918304.shtml
-- 2026-06-30 09:19 - 毕业以后，你最怀念的大学记忆是什么？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/587158.shtml
-- 2026-06-30 09:21 - 为什么很多企业推行“扁平化管理”后，效率反而下降了？<br><br> | ??:http://www.share.minike.top/Article/details/5515322771.shtml
-- 2026-06-30 08:59 - 人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/8269414.shtml
-- 2026-06-30 08:59 - 杨紫肖战余生请多指教拍立得<br><br> | ??:https://www.share.minike.top/Article/details/55187176.shtml
-- 2026-06-30 09:02 - 世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？<br><br> | ??:http://www.share.minike.top/Article/details/05339.shtml
-- 2026-06-30 09:17 - 有哪些被认为是现代才有的东西其实古代就有了？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/628181191927.shtml
-- 2026-06-30 09:08 - 如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/803282103.shtml
-- 2026-06-30 09:03 - 男子诋毁袁隆平科研成果被刑拘<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/35034494771.shtml
-- 2026-06-30 09:23 - 董卿父亲报纸上发文悼念亡妻<br><br> | ??:https://www.blog.minike.top/Article/details/43755145.shtml
-- 2026-06-30 09:20 - 赵今麦因“瘦而不柴”的体态出圈<br><br> | ??:https://www.share.minike.top/Article/details/935759354.shtml
-- 2026-06-30 09:03 - 吴启华卖肖像权拍AI电影<br><br> | ??:http://www.share.minike.top/Article/details/093308.shtml
-- 2026-06-30 09:20 - 韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？<br><br> | ??:http://www.share.minike.top/Article/details/91285857.shtml
-- 2026-06-30 09:01 - 央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/8965387.shtml
+- 2026-06-30 09:29 - 为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？<br><br> | ??:https://www.blog.minike.top/Article/details/67506105.shtml
+- 2026-06-30 09:27 - 有什么好的高中网课推荐吗？<br><br> | ??:http://www.share.minike.top/Article/details/69819291.shtml
+- 2026-06-30 09:11 - 小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？<br><br> | ??:http://www.share.minike.top/Article/details/602187470.shtml
+- 2026-06-30 09:25 - “以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》<br><br> | ??:http://www.share.kurohicncr.top/Article/details/756011116.shtml
+- 2026-06-30 09:28 - 曝iPhone18Pro机密文件现身暗网<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/85937174.shtml
+- 2026-06-30 09:28 - 法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？<br><br> | ??:http://www.share.minike.top/Article/details/156383894890.shtml
+- 2026-06-30 09:14 - 奔跑吧·黄河篇第二季<br><br> | ??:https://www.blog.minike.top/Article/details/852512046933.shtml
+- 2026-06-30 09:28 - 豆包收费了，你还会用吗？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/3156656870.shtml
+- 2026-06-30 09:07 - 郑钦文温网三连败西尼亚科娃<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/1530442807.shtml
+- 2026-06-30 09:12 - 女心理师<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/655168.shtml
+- 2026-06-30 09:24 - 世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/05368.shtml
+- 2026-06-30 09:11 - 亚洲球队全部出局<br><br> | ??:http://www.share.minike.top/Article/details/89891390.shtml
+- 2026-06-30 09:09 - 马耳他著名拱门坍塌致一中国男子身亡<br><br> | ??:http://www.share.minike.top/Article/details/65458165.shtml
+- 2026-06-30 09:25 - 免费试吃发差评被店家挂店门避雷<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/7502610.shtml
+- 2026-06-30 09:27 - 巴拉圭进球<br><br> | ??:http://www.share.minike.top/Article/details/464408175407.shtml

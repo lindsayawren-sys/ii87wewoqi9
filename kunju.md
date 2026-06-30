@@ -1,56 +1,47 @@
-# 消费者曝江边城外烤鱼吃出烟头？门店回应：正在调查，市场监管部门已介入
+# 初灵信息：今年重点建设线上企业销售团队，以及华东、华南、山东、西南的线下地市级销售团队
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月24日下午消息，据媒体报道，6月23日，有消费者前往江边城外烤全鱼上海合生汇店用餐，就餐时在烤鱼里吃出烟头。事发后消费者十分震惊，当即找来店长反映问题，可店长仅平淡提出更换一份菜品，全程未表达歉意。消费者对此处理方式难以接受，认为门店食品安全存在严重隐患，主张十倍赔偿。目前消费者已携相关证据向市场监管部
+证券日报网6月18日讯，初灵信息（维权）在接受调研者提问时表示，今年重点建设线上企业销售团队，以及华东、华南、山东、西南的线下地市级销售团队，目前已开始招人并进行培训打磨。今年投入约20%-30%的资源(含渠道、销售、服务及产品团队)用于企业侧市场开拓，明年将进一步加大投入。
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+证券日报网6月18日讯，初灵信息（维权）在接受调研者提问时表示，今年重点建设线上企业销售团队，以及华东、华南、山东、西南的线下地市级销售团队，目前已开始招人并进行培训打磨。
 
-6月24日下午消息，据媒体报道，6月23日，有消费者前往江边城外烤全鱼上海合生汇店用餐，就餐时在烤鱼里吃出烟头。
-
-事发后消费者十分震惊，当即找来店长反映问题，可店长仅平淡提出更换一份菜品，全程未表达歉意。
-
-消费者对此处理方式难以接受，认为门店食品安全存在严重隐患，主张十倍赔偿。
-
-目前消费者已携相关证据向市场监管部门提交投诉。
-
-对于此事，门店工作人员表示，公司已经在排查，商场及属地市场监督部门也在协查，具体事由及排查结果有待进一步公布。
-
-在大众点评上，门店回应表示，“关于您提到的烟头问题，这也是我们所不想看到的，当时致歉并想办法解决了，不过您并不满意，事情既已经发生，我们非常重视，并会立即进行内部调查。
-
-我们承诺所有食材均为每日新鲜采购，并严格遵守食品安全法规。
+今年投入约20%-30%的资源(含渠道、销售、服务及产品团队)用于企业侧市场开拓，明年将进一步加大投入。
 
 ## 相关推荐
 
-- 2026-06-30 09:23 - 巴西绝杀<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md
-- 2026-06-30 08:57 - 陈幸同晋级WTT美国大满贯女单32强<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md
-- 2026-06-30 09:08 - 2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md
-- 2026-06-30 09:19 - 陈小春人老了干什么也不心酸<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md
-- 2026-06-30 09:22 - 日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md
-- 2026-06-30 09:18 - 普京为何将俄乌谈判时间表与伊朗挂钩<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md
-- 2026-06-30 09:00 - 锐评：网红不能困在无底线逐利里<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md
-- 2026-06-30 09:22 - F1奥地利站赛后复盘<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md
-- 2026-06-30 09:05 - 警方介入洪明甫死亡威胁<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md
-- 2026-06-30 09:14 - 日本16强魔咒<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md
+- 2026-06-30 09:18 - “以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md
+- 2026-06-30 09:08 - 又一家县级医院关停门诊输液大厅<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md
+- 2026-06-30 09:01 - 巴西醒醒 这是淘汰赛<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md
+- 2026-06-30 09:28 - 男子诋毁袁隆平科研成果被刑拘<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md
+- 2026-06-30 09:05 - 起风了<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md
+- 2026-06-30 09:10 - 《我落泪情绪零碎》<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md
+- 2026-06-30 09:10 - 想问一下学日语的大佬，自学日语要怎么学？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md
+- 2026-06-30 09:26 - 欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md
+- 2026-06-30 09:12 - 《我落泪情绪零碎》<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md
+- 2026-06-30 09:13 - 被巴西绝杀后 日球员田中碧跪地痛哭<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md
+- 2026-06-30 09:25 - 87克大金链到老庙黄金维修少了11克<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md
+- 2026-06-30 09:16 - 【硬核拆解】汽车人到底离我们有多远？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md
+- 2026-06-30 09:03 - 金鹰奖视后提名预测<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:59 - 苗族银饰<br><br> | ??:https://www.blog.minike.top/Article/details/00961.shtml
-- 2026-06-30 09:15 - 韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？<br><br> | ??:https://www.blog.minike.top/Article/details/31822379812.shtml
-- 2026-06-30 09:14 - “错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】<br><br> | ??:https://www.blog.minike.top/Article/details/9758026337.shtml
-- 2026-06-30 09:23 - 世界杯巴拉圭点球淘汰德国<br><br> | ??:http://www.blog.minike.top/Article/details/373317543769.shtml
-- 2026-06-30 09:02 - 黄晓明晒和周杰伦的合照<br><br> | ??:http://www.blog.minike.top/Article/details/6420858.shtml
-- 2026-06-30 09:21 - 《我落泪情绪零碎》<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/58959.shtml
-- 2026-06-30 08:56 - 日本进球<br><br> | ??:http://www.share.kurohicncr.top/Article/details/34611506823.shtml
-- 2026-06-30 09:02 - 德国队世界杯点球大战首败<br><br> | ??:https://www.blog.minike.top/Article/details/95442776780.shtml
-- 2026-06-30 09:10 - 卖菜老人获博主帮助后遇车祸去世<br><br> | ??:https://www.share.minike.top/Article/details/69682.shtml
-- 2026-06-30 09:23 - 怕iPhone涨价的用户已紧急换新<br><br> | ??:https://www.share.kurohicncr.top/Article/details/275697726.shtml
-- 2026-06-30 08:54 - iPhoneUltra黑色机模<br><br> | ??:http://www.share.kurohicncr.top/Article/details/8155967144.shtml
-- 2026-06-30 09:03 - 美股<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/992038076146.shtml
-- 2026-06-30 09:12 - 王濛回复黄灿灿<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/116040359.shtml
-- 2026-06-30 09:11 - 宜宾地震食客避难后折返 无人逃单<br><br> | ??:http://www.share.kurohicncr.top/Article/details/7680250.shtml
-- 2026-06-30 09:12 - 泰山建135公里刀片刺绳隔离网<br><br> | ??:http://www.share.kurohicncr.top/Article/details/46377104285.shtml
+- 2026-06-30 09:14 - 如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/562082.shtml
+- 2026-06-30 09:06 - 人民锐评：网红不能困在无底线逐利里<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/99382.shtml
+- 2026-06-30 09:29 - 想问一下学日语的大佬，自学日语要怎么学？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/6361508.shtml
+- 2026-06-30 09:14 - 美媒：美军第五舰队司令部已无法使用<br><br> | ??:http://www.share.kurohicncr.top/Article/details/3920720670.shtml
+- 2026-06-30 09:28 - 古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/9655441.shtml
+- 2026-06-30 09:09 - 荀彧和曹操反目成仇的根本原因是什么？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/50784.shtml
+- 2026-06-30 09:06 - 一见倾心<br><br> | ??:http://www.blog.minike.top/Article/details/1709642345.shtml
+- 2026-06-30 09:17 - 这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/44043.shtml
+- 2026-06-30 09:20 - 披荆斩棘的哥哥<br><br> | ??:https://www.share.kurohicncr.top/Article/details/58656496.shtml
+- 2026-06-30 09:01 - 疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！<br><br> | ??:http://www.share.minike.top/Article/details/37975425993.shtml
+- 2026-06-30 09:27 - 巴拉圭率先破门<br><br> | ??:https://www.share.kurohicncr.top/Article/details/911749.shtml
+- 2026-06-30 09:10 - ASMR 千禧年百货大楼初代柜姐给你化大头贴妆<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/21263169.shtml
+- 2026-06-30 09:09 - 《名肘探科比》：科比大战裂口女<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/2420883378.shtml
+- 2026-06-30 09:02 - 韩国道歉完日本道歉<br><br> | ??:https://www.share.kurohicncr.top/Article/details/54972198815.shtml
+- 2026-06-30 09:09 - 如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？<br><br> | ??:http://www.share.minike.top/Article/details/519292623.shtml

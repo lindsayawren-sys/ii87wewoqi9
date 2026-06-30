@@ -1,42 +1,58 @@
-# 镜头捕捉三趾翠鸟 溪畔沐浴温馨投喂
+# 拨康视云-B拟向Abraham Dominguez Cinta发行认购股份
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月25日 09:08 来源：央视新闻 责任编辑：【王祎】
+拨康视云-B（02592）发布公告，于2026年6月18日（交易时段后），本公司与投资者ARC Group International Limited订立股份认购协议，本公司有权（受限于股份认购协议的条款）不时向投资者配发及发行股份，而投资者则须向本公司认购最多1500万美元（相当于约1.17亿港元）的股份。 据悉，ARC Group International Limited
 
 ## 正文
 
-发布时间：2026年06月25日 09:08 来源：央视新闻 责任编辑：【王祎】
+拨康视云-B（02592）发布公告，于2026年6月18日（交易时段后），本公司与投资者ARC Group International Limited订立股份认购协议，本公司有权（受限于股份认购协议的条款）不时向投资者配发及发行股份，而投资者则须向本公司认购最多1500万美元（相当于约1.17亿港元）的股份。
+
+据悉，ARC Group International Limited是一间于香港注册成立的有限责任公司，为ARC Group Limited的直接全资附属公司。
+
+ARC Group Limited是一间深根于亚洲的全球金融服务及顾问公司，十多年来在投资银行、资产管理、财富管理及管理注询等领域表现卓越。
+
+投资者的最终实益拥有人为Abraham Dominguez Cinta先生。
+
+董事认为，认购事项乃透过减少本集团的负债、提供额外营运资金以应对未来发展及履行义务，以及扩大股东基础，从而强化本集团的财务状况的机会。
+
+本公司已探讨多个筹资方案，并认为于本公告日期，认购事项是本公司进一步支持本集团持续发展及业务增长的最合适且最高效的融资选择。
+
+董事认为，股份认购协议乃参考市场状况及现行市场而厘定，并由本公司与投资者按公平基准及一般商业条款订立，且该协议的条款（包括但不限于认购价及承诺费）属公平合理，并符合本公司及股东的整体利益。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 09:01 - 豆包收费了，你还会用吗？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md
-- 2026-06-30 08:54 - 电影抓特务上映11天破亿<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md
-- 2026-06-30 09:20 - 巴西把自己踢晕了<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md
-- 2026-06-30 08:57 - 这种关系可能正在悄悄“催老”你<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md
-- 2026-06-30 08:58 - 为什么小组赛出局会让韩国人破防<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md
-- 2026-06-30 08:55 - 古代时期普通老百姓能喝上酒吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md
-- 2026-06-30 09:06 - 补时绝杀 巴西2-1淘汰日本<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md
-- 2026-06-30 09:17 - 商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md
-- 2026-06-30 09:23 - 教育部披露：高考生篡改7名同学志愿<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md
-- 2026-06-30 09:24 - 首届《哈基米歌王争霸赛》总决赛<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md
+- 2026-06-30 09:24 - 日本反击率先破门<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md
+- 2026-06-30 09:12 - 中国代表在联合国点名日本所犯罪行<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md
+- 2026-06-30 09:14 - 乔家的儿女<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md
+- 2026-06-30 09:25 - 网瘾賊大的阿嬷<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md
+- 2026-06-30 09:28 - 如果有二次元高中是什么样子的？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md
+- 2026-06-30 09:07 - 有人见过武则天的画像吗，非常好奇？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md
+- 2026-06-30 09:12 - 7月1日起 一批新规即将落地<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md
+- 2026-06-30 09:14 - 木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md
+- 2026-06-30 09:06 - 杨紫大银幕成绩单<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md
+- 2026-06-30 09:28 - 有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md
+- 2026-06-30 09:19 - 人类...完蛋了...<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md
+- 2026-06-30 09:06 - 12人以护剧为名敲诈剧组艺人被抓<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:58 - 德国队连续三届世界杯无缘16强<br><br> | ??:http://www.share.minike.top/Article/details/8179582753.shtml
-- 2026-06-30 08:55 - 人类...完蛋了...<br><br> | ??:http://www.share.minike.top/Article/details/0845533093.shtml
-- 2026-06-30 09:18 - 小娘惹<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/30651694.shtml
-- 2026-06-30 09:16 - 81岁老人被男子买光菜回家车祸去世<br><br> | ??:https://www.share.kurohicncr.top/Article/details/0539050.shtml
-- 2026-06-30 09:21 - 如何评价杨紫白玉兰获奖<br><br> | ??:http://www.blog.minike.top/Article/details/0216538.shtml
-- 2026-06-30 09:07 - Melo向柳智敏张元英道歉<br><br> | ??:http://www.share.minike.top/Article/details/4095005.shtml
-- 2026-06-30 09:08 - 如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/7306114859.shtml
-- 2026-06-30 08:57 - 中国新一轮出口管制直指日本命脉<br><br> | ??:http://www.share.kurohicncr.top/Article/details/009848.shtml
-- 2026-06-30 09:18 - 致敬！中国首批缉毒警已全体退休<br><br> | ??:http://www.share.kurohicncr.top/Article/details/235937119719.shtml
-- 2026-06-30 09:16 - 日本进球<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/95093355058.shtml
-- 2026-06-30 09:19 - 拆解FIFA和世界杯的暗面<br><br> | ??:http://www.blog.minike.top/Article/details/5667398.shtml
-- 2026-06-30 09:00 - 热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/8123085.shtml
-- 2026-06-30 09:23 - 巴拉圭门将<br><br> | ??:http://www.share.kurohicncr.top/Article/details/591544830.shtml
-- 2026-06-30 09:09 - 欧洲家电巨头为何输掉了这个夏天<br><br> | ??:http://www.share.kurohicncr.top/Article/details/418815483387.shtml
-- 2026-06-30 09:11 - 要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活<br><br> | ??:https://www.blog.minike.top/Article/details/288095262216.shtml
+- 2026-06-30 09:20 - 日本球员说被绝杀非常不甘心<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/27476743596.shtml
+- 2026-06-30 09:06 - 我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/8652671090.shtml
+- 2026-06-30 09:29 - 毒液2<br><br> | ??:https://www.blog.minike.top/Article/details/869965671.shtml
+- 2026-06-30 09:21 - 男子醉酒溺水获救后同行人拒协助抬人<br><br> | ??:https://www.share.minike.top/Article/details/52124696.shtml
+- 2026-06-30 09:23 - 巴西2-1绝杀日本<br><br> | ??:http://www.share.minike.top/Article/details/62840142293.shtml
+- 2026-06-30 09:21 - 要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活<br><br> | ??:https://www.share.minike.top/Article/details/975852405.shtml
+- 2026-06-30 09:29 - 马宁怒怼巴拉圭教练组<br><br> | ??:https://www.blog.minike.top/Article/details/15623718741.shtml
+- 2026-06-30 09:18 - 如何看待武亮说大学生生活费1500就够用这一言论？<br><br> | ??:https://www.share.minike.top/Article/details/4328789.shtml
+- 2026-06-30 09:09 - 德国淘汰<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/252704628753.shtml
+- 2026-06-30 09:29 - 教育部披露：高考生篡改7名同学志愿<br><br> | ??:https://www.share.minike.top/Article/details/8987141730.shtml
+- 2026-06-30 09:12 - 萨内 看笑了<br><br> | ??:http://www.blog.minike.top/Article/details/9149676.shtml
+- 2026-06-30 09:05 - 老人卖菜获博主帮助后遇车祸去世<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/63145167.shtml
+- 2026-06-30 09:18 - 【Reaction】女生最少的5款游戏<br><br> | ??:http://www.share.kurohicncr.top/Article/details/666270.shtml
+- 2026-06-30 09:02 - 金价跳水 水贝市场显现出“两重天”<br><br> | ??:http://www.share.kurohicncr.top/Article/details/836706.shtml
+- 2026-06-30 09:16 - 这一刀 会很帅<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/6674393.shtml

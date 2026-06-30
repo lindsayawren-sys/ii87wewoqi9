@@ -1,43 +1,52 @@
-# 重庆开州：男子采菇摔伤困深山 公安消防合力救援
+# 习言道｜爱国是本分，也是职责
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月24日 11:02 来源：央视新闻 责任编辑：【王祎】
+发布时间：2026年06月19日 11:44 来源：中国新闻网 爱国，是中华儿女最自然、最朴素的情感，深深植根于中华民族血脉之中。端午节，体现了中华民族深厚的家国情怀。习近平总书记高度重视家国情怀的传承和弘扬，曾多次对爱国主义作出重要论述。今天，和总书记一起感悟家国情怀。 责任编辑：【任帅】
 
 ## 正文
 
-发布时间：2026年06月24日 11:02 来源：央视新闻 责任编辑：【王祎】
+发布时间：2026年06月19日 11:44 来源：中国新闻网 爱国，是中华儿女最自然、最朴素的情感，深深植根于中华民族血脉之中。
+
+端午节，体现了中华民族深厚的家国情怀。
+
+习近平总书记高度重视家国情怀的传承和弘扬，曾多次对爱国主义作出重要论述。
+
+今天，和总书记一起感悟家国情怀。
+
+责任编辑：【任帅】
 
 ## 相关推荐
 
-- 2026-06-30 09:08 - 内马尔替补<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md
-- 2026-06-30 09:19 - 【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md
-- 2026-06-30 09:17 - 库尼亚赛后伸五指嘲讽日本<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md
-- 2026-06-30 09:09 - 小娘惹<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md
-- 2026-06-30 09:11 - 未来五年，教育强国这样建设<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md
-- 2026-06-30 09:14 - 《赛博朋克：边缘行者 2》｜官方预告片<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md
-- 2026-06-30 09:18 - Melo向柳智敏张元英道歉<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md
-- 2026-06-30 09:09 - 发明linux、python、redis、nginx、sqlite的人算不算天才？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md
-- 2026-06-30 09:03 - 媒体：手机测评该挤挤水分了<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md
-- 2026-06-30 09:09 - 时光音乐会<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md
-- 2026-06-30 09:17 - 郑钦文温网三连败西尼亚科娃<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md
+- 2026-06-30 09:29 - 媒体评泰山建135公里刀片刺绳隔离网<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md
+- 2026-06-30 09:20 - 大蒜晒外面被路过女子连盆端走<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md
+- 2026-06-30 09:18 - GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md
+- 2026-06-30 09:14 - 蜘蛛侠:平行宇宙<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md
+- 2026-06-30 09:24 - 81岁老人被男子买光菜回家车祸去世<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md
+- 2026-06-30 09:13 - 藤森庆子赢得秘鲁总统选举<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md
+- 2026-06-30 09:20 - 哈弗茨头球破门<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md
+- 2026-06-30 09:23 - 《名肘探科比》：科比大战裂口女<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md
+- 2026-06-30 09:05 - 韩国道歉完日本道歉<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md
+- 2026-06-30 09:13 - 首届《哈基米歌王争霸赛》总决赛<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md
+- 2026-06-30 09:22 - 欧洲民众抢购空调降温<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md
+- 2026-06-30 09:23 - 韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:58 - 法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？<br><br> | ??:http://www.share.minike.top/Article/details/6865003697.shtml
-- 2026-06-30 09:10 - 国务院：探索延长义务教育年限<br><br> | ??:https://www.blog.minike.top/Article/details/95782630.shtml
-- 2026-06-30 09:13 - 王菲谢霆锋十指紧扣好甜<br><br> | ??:http://www.share.kurohicncr.top/Article/details/67839.shtml
-- 2026-06-30 09:16 - MSI应援曲 如果季中成回忆<br><br> | ??:http://www.share.minike.top/Article/details/010813389.shtml
-- 2026-06-30 09:11 - 内马尔未登场 安切洛蒂赛后回应<br><br> | ??:http://www.share.kurohicncr.top/Article/details/3292319607.shtml
-- 2026-06-30 09:10 - 王曼昱被突如其来的话筒逗笑了<br><br> | ??:https://www.blog.minike.top/Article/details/0896611900.shtml
-- 2026-06-30 09:22 - 日本博主：日本足球真的垃圾<br><br> | ??:https://www.share.minike.top/Article/details/28318.shtml
-- 2026-06-30 09:02 - 有哪些被认为是现代才有的东西其实古代就有了？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/93075723526.shtml
-- 2026-06-30 09:19 - “错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】<br><br> | ??:https://www.share.minike.top/Article/details/62678564198.shtml
-- 2026-06-30 09:06 - 峡谷事故团队组队时有人提醒会下雨<br><br> | ??:https://www.share.kurohicncr.top/Article/details/6223931.shtml
-- 2026-06-30 09:22 - 媒体：手机测评该挤挤水分了<br><br> | ??:https://www.blog.minike.top/Article/details/067230419173.shtml
-- 2026-06-30 09:10 - 补时绝杀 巴西2-1淘汰日本<br><br> | ??:https://www.blog.minike.top/Article/details/2270337914.shtml
-- 2026-06-30 09:21 - 曝老詹对自由市场态度与以往截然不同<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/0860301594.shtml
-- 2026-06-30 09:18 - 如何评价杨紫白玉兰获奖<br><br> | ??:http://www.share.kurohicncr.top/Article/details/713309904.shtml
-- 2026-06-30 09:12 - 酒店推行“24小时退房”引热议<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/868560.shtml
+- 2026-06-30 09:17 - 人民锐评：网红不能困在无底线逐利里<br><br> | ??:https://www.share.kurohicncr.top/Article/details/47260.shtml
+- 2026-06-30 09:14 - 妻子撞死家暴丈夫案二审案情反转<br><br> | ??:http://www.share.minike.top/Article/details/748317711380.shtml
+- 2026-06-30 09:16 - 杨紫获白玉兰视后争议不止<br><br> | ??:http://www.blog.minike.top/Article/details/6883734.shtml
+- 2026-06-30 09:23 - 不开心就去看三年前的购物订单<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/548309391466.shtml
+- 2026-06-30 09:22 - 如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？<br><br> | ??:https://www.blog.minike.top/Article/details/6722549080.shtml
+- 2026-06-30 09:25 - 上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶<br><br> | ??:http://www.share.minike.top/Article/details/07819573.shtml
+- 2026-06-30 09:11 - 世界杯：荷兰vs摩洛哥<br><br> | ??:http://www.share.minike.top/Article/details/21357070.shtml
+- 2026-06-30 09:28 - 酒店推行“24小时退房”引热议<br><br> | ??:http://www.share.kurohicncr.top/Article/details/68602393.shtml
+- 2026-06-30 09:06 - 你的妻子大喷菇—《植物娘大战僵尸》特别篇<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/77354761.shtml
+- 2026-06-30 09:20 - 啊啊啊<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/581389012.shtml
+- 2026-06-30 09:06 - 【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】<br><br> | ??:http://www.blog.minike.top/Article/details/02951211.shtml
+- 2026-06-30 09:29 - 巴拉圭率先破门<br><br> | ??:https://www.share.kurohicncr.top/Article/details/5290979.shtml
+- 2026-06-30 09:13 - 赵今麦因“瘦而不柴”的体态出圈<br><br> | ??:https://www.share.minike.top/Article/details/08094.shtml
+- 2026-06-30 09:29 - 点球大战和诺伊尔都救不回德国队<br><br> | ??:https://www.blog.minike.top/Article/details/27113043790.shtml
+- 2026-06-30 09:02 - 日本淘汰<br><br> | ??:http://www.share.kurohicncr.top/Article/details/4850740654.shtml

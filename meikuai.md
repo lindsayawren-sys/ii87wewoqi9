@@ -1,57 +1,60 @@
-# 美股科技股承压，纳指三连阴，美光盘后大涨12%，国际油价大跌，金银暴跌
+# 乒乓球世界冠军刘国正×京东健康溯源新西兰：用冠军标准验证一瓶MitoQ的“真营养”
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-2026.06．25 作者 | 第一财经 樊志菁 周三美股涨跌互现，纳斯达克、标普500指数下跌，科技股因市场持续担忧板块估值过高遭到拖累，但国际原油价格大幅走低利好航空、旅游板块，道琼斯工业平均指数上涨。截至收盘，道指涨182.06点，涨幅0.35%，报51848.90点，纳斯达克综合指数跌0.43%，报25476.64点，标普500指数下跌0.10%，报7358.22点。
+继首期义乌保税仓溯源行动收获全网好评、重塑跨境消费信任之后，京东健康自主打造的溯源IP“地球online”重磅开启第二期品质溯源之旅。本次，京东健康青春采销主播戚戚携手乒乓球世界冠军刘国正、知名体育解说周冠达，远赴新西兰奥克兰，以冠军级严苛品质标准，对高端跨境营养品牌MitoQ展开全维度实地溯源。依托京东健康成熟的跨境溯源体系，实地验证MitoQ正品真身、硬核真营养配方与跨境新
 
 ## 正文
 
-2026.06．25 作者 | 第一财经 樊志菁 周三美股涨跌互现，纳斯达克、标普500指数下跌，科技股因市场持续担忧板块估值过高遭到拖累，但国际原油价格大幅走低利好航空、旅游板块，道琼斯工业平均指数上涨。
+继首期义乌保税仓溯源行动收获全网好评、重塑跨境消费信任之后，京东健康自主打造的溯源IP“地球online”重磅开启第二期品质溯源之旅。
 
-截至收盘，道指涨182.06点，涨幅0.35%，报51848.90点，纳斯达克综合指数跌0.43%，报25476.64点，标普500指数下跌0.10%，报7358.22点。
+本次，京东健康青春采销主播戚戚携手乒乓球世界冠军刘国正、知名体育解说周冠达，远赴新西兰奥克兰，以冠军级严苛品质标准，对高端跨境营养品牌MitoQ展开全维度实地溯源。
 
-美光业绩爆表 美光科技周三公布财报，受益于人工智能浪潮催生的存储芯片需求暴涨，公司2026财年第三季度业绩大幅增长，盘后股价大涨超12%。
+依托京东健康成熟的跨境溯源体系，实地验证MitoQ正品真身、硬核真营养配方与跨境新鲜品质，为国内消费者击穿“假洋牌”乱象，守护跨境保健品消费安心。
 
-美光在公告中表示，三季度总营收414.6亿美元，市场预期358.4亿美元，去年同期93亿美元，毛利率大幅跳升，达84.9%，上一财季为74.9%，去年同期仅39%，大幅超出分析师预期。
+区别于常规品牌溯源直奔工厂的模式，本次京东健康青春采销团队率先深入奥克兰街头，以随机街访的真实视角，核验MitoQ的本土真实口碑，杜绝“网红假洋牌”营销套路。
 
-本财季净利润282.4亿美元，每股收益24.46美元；对比去年同期净利润18.9亿美元、每股1.68美元。
+溯源过程中，团队随机采访了新西兰本地居民、奥克兰大学师生及华人留学生群体，收获了高度统一的正向评价。
 
-调整后每股收益（EPS）25.11美元，市场预期20.78美元。
+无论是深耕本地的原住民，还是长期生活于此的华人群体，均对MitoQ耳熟能详。
 
-公司四大业务板块营收均实现数倍增长，其中核心数据中心业务增长最为迅猛：营收从去年同期15.3亿美元飙升7倍以上，至115亿美元。
+一个品牌能扎根海外本土、收获全民认可，靠的不是营销造势，而是长期沉淀的品质与信任，这些来自普通消费者的真实口碑，是最有说服力的品质证明。
 
-云端存储业务营收暴涨超300%，达137.7美元。
+这也是京东健康始终坚守的选品逻辑——摒弃流量噱头，以真实市场反馈、大众实际体验，为消费者筛选真正靠谱的跨境好物。
 
 ## 相关推荐
 
-- 2026-06-30 08:54 - 一直以为方便面汤是要倒掉的<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md
-- 2026-06-30 09:02 - 警方介入洪明甫死亡威胁<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md
-- 2026-06-30 09:04 - 周生如故<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md
-- 2026-06-30 09:07 - 急先锋<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md
-- 2026-06-30 09:03 - 国务院：稳步推进研究生考试招生改革<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md
-- 2026-06-30 09:21 - 为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md
-- 2026-06-30 09:22 - 央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md
-- 2026-06-30 09:23 - 陈幸同晋级WTT美国大满贯女单32强<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md
-- 2026-06-30 08:54 - AI手机进入Agent时代<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md
-- 2026-06-30 09:03 - 郑钦文温网首轮出局<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md
-- 2026-06-30 09:19 - 日本球迷被强行披上巴西国旗<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md
+- 2026-06-30 09:29 - HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md
+- 2026-06-30 09:01 - 欧洲装一台空调有多难<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md
+- 2026-06-30 09:06 - 警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md
+- 2026-06-30 09:13 - 明星大侦探第四季<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md
+- 2026-06-30 09:02 - 承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md
+- 2026-06-30 09:01 - 田中碧失误<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md
+- 2026-06-30 09:09 - 千香<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md
+- 2026-06-30 09:09 - 你这一辈子有没有为进山姆拼过命？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md
+- 2026-06-30 09:12 - 男子醉酒溺水获救后同行人拒协助抬人<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md
+- 2026-06-30 09:29 - 刘宇宁是去进货了吗<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md
+- 2026-06-30 09:13 - 杨紫被质疑未使用原名<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md
+- 2026-06-30 09:14 - 一见倾心<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md
+- 2026-06-30 09:14 - 黄晓明晒和周杰伦的合照<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md
+- 2026-06-30 09:04 - 【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:13 - 网红不能困在无底线逐利里<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/60442.shtml
-- 2026-06-30 09:07 - 世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？<br><br> | ??:http://www.blog.minike.top/Article/details/595227.shtml
-- 2026-06-30 09:11 - 明星大侦探第四季<br><br> | ??:https://www.blog.minike.top/Article/details/1980124704.shtml
-- 2026-06-30 09:16 - 董路：谁赢谁是“正路子”<br><br> | ??:http://www.share.kurohicncr.top/Article/details/68358440679.shtml
-- 2026-06-30 08:57 - 全球芯片巨头史诗级扩产<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/243562.shtml
-- 2026-06-30 09:16 - 刘宇宁高情商化解谁站C位<br><br> | ??:https://www.blog.minike.top/Article/details/97592.shtml
-- 2026-06-30 08:58 - 金牌调解<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/903240941886.shtml
-- 2026-06-30 09:01 - 日本进球<br><br> | ??:https://www.blog.minike.top/Article/details/81799248.shtml
-- 2026-06-30 08:57 - 手底下人带不动怎么办？<br><br> | ??:http://www.blog.minike.top/Article/details/08760.shtml
-- 2026-06-30 09:15 - 【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸<br><br> | ??:https://www.share.minike.top/Article/details/79326.shtml
-- 2026-06-30 09:24 - 媒体：手机测评该挤挤水分了<br><br> | ??:https://www.share.minike.top/Article/details/385024.shtml
-- 2026-06-30 08:54 - 全网说丑的格力玫瑰空调卖了5万台<br><br> | ??:https://www.share.minike.top/Article/details/526216.shtml
-- 2026-06-30 09:18 - 孙颖莎王楚钦晋级8强<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/688448.shtml
-- 2026-06-30 09:06 - 你的妻子大喷菇—《植物娘大战僵尸》特别篇<br><br> | ??:http://www.share.kurohicncr.top/Article/details/2960877406.shtml
-- 2026-06-30 09:15 - 有人见过武则天的画像吗，非常好奇？<br><br> | ??:https://www.blog.minike.top/Article/details/43003.shtml
+- 2026-06-30 09:07 - 请回答王牌2019<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/7111829.shtml
+- 2026-06-30 09:10 - AI手机进入Agent时代<br><br> | ??:https://www.share.minike.top/Article/details/8760053.shtml
+- 2026-06-30 09:22 - 对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来<br><br> | ??:http://www.share.kurohicncr.top/Article/details/8392684210.shtml
+- 2026-06-30 09:17 - 内马尔替补<br><br> | ??:http://www.share.minike.top/Article/details/898161.shtml
+- 2026-06-30 09:11 - 泰山景区建135公里刀片刺绳隔离网<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/7466799.shtml
+- 2026-06-30 09:27 - 为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？<br><br> | ??:http://www.blog.minike.top/Article/details/023293.shtml
+- 2026-06-30 09:26 - 世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/6403847.shtml
+- 2026-06-30 09:27 - 国务院：稳步推进研究生考试招生改革<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/08167069434.shtml
+- 2026-06-30 09:15 - 吴启华卖肖像权拍AI电影<br><br> | ??:https://www.share.minike.top/Article/details/627836094.shtml
+- 2026-06-30 09:13 - 法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？<br><br> | ??:http://www.blog.minike.top/Article/details/90175.shtml
+- 2026-06-30 09:04 - 有哪些被认为是现代才有的东西其实古代就有了？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/23479.shtml
+- 2026-06-30 09:09 - 日本球迷被强行披上巴西国旗<br><br> | ??:https://www.blog.minike.top/Article/details/2969094278.shtml
+- 2026-06-30 09:25 - 美团、淘宝闪购、京东外卖达成共识<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/86443615.shtml
+- 2026-06-30 09:07 - 巴西绝杀<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/95572524787.shtml
+- 2026-06-30 09:10 - 如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/6435958.shtml

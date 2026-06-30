@@ -1,56 +1,59 @@
-# （美加墨世界杯）C罗“双响”助葡萄牙大胜 英格兰意外战平加纳
+# 柏林中国文化中心举办端午节主题系列活动
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-中新社休斯敦/波士顿6月23日电 当地时间23日进行的两场2026年美加墨世界杯小组赛第二轮比赛中，K组的葡萄牙队以5:0大胜世界杯新军乌兹别克斯坦队，队中头号球星克·罗纳尔多(C罗)梅开二度。L组的夺冠热门英格兰队以0:0战平加纳队。首轮面对非洲“黑马”刚果(金)队，赛前被寄予厚望的葡萄牙队意外以1:1战平，未能进球的C罗也面临了巨大的舆论压力。尽管首轮以1:3负于南美劲旅哥
+中新网柏林6月20日电 正值中国传统节日端午节，柏林中国文化中心教学部19日举办丰富多彩的端午节主题活动。 活动旨在弘扬中华优秀传统文化，增进德国民众对中国节日文化的了解与体验。通过汉语和烹饪两大特色课程，学员们在浓浓粽香中感受中华文化独特魅力。 在儿童汉语课堂上，中心汉语教师娄琳姗以生动有趣的方式为孩子们讲述了端午节的由来，介绍了赛龙舟、吃粽子、挂艾草、佩香囊等传统习俗。她还
 
 ## 正文
 
-中新社休斯敦/波士顿6月23日电 当地时间23日进行的两场2026年美加墨世界杯小组赛第二轮比赛中，K组的葡萄牙队以5:0大胜世界杯新军乌兹别克斯坦队，队中头号球星克·罗纳尔多(C罗)梅开二度。
+中新网柏林6月20日电 正值中国传统节日端午节，柏林中国文化中心教学部19日举办丰富多彩的端午节主题活动。
 
-L组的夺冠热门英格兰队以0:0战平加纳队。
+活动旨在弘扬中华优秀传统文化，增进德国民众对中国节日文化的了解与体验。
 
-首轮面对非洲“黑马”刚果(金)队，赛前被寄予厚望的葡萄牙队意外以1:1战平，未能进球的C罗也面临了巨大的舆论压力。
+通过汉语和烹饪两大特色课程，学员们在浓浓粽香中感受中华文化独特魅力。
 
-尽管首轮以1:3负于南美劲旅哥伦比亚队，但首次跻身世界杯决赛圈的乌兹别克斯坦队打入队史世界杯首球，已取得历史性突破。
+在儿童汉语课堂上，中心汉语教师娄琳姗以生动有趣的方式为孩子们讲述了端午节的由来，介绍了赛龙舟、吃粽子、挂艾草、佩香囊等传统习俗。
 
-在休斯敦体育场进行的比赛中，葡萄牙队发起大举进攻，第6分钟，C罗接坎塞洛传中，抢前点破门得分，由此成为首位连续六届世界杯均有进球的球员。
+她还特意带来了艾草，并向小朋友赠送了香囊和自己亲手包的粽子，让孩子们感受到浓浓的端午节日氛围。
 
-第17分钟，门德斯任意球破门。
+在端午知识竞猜环节，孩子们踊跃举手、积极抢答；在手工环节，大家认真折叠色彩缤纷的纸粽子；与此同时，孩子们还学习书写“端午节”“粽子”“龙舟”等汉字，在寓教于乐中感受汉语和中国文化魅力。
 
-第39分钟，布鲁诺·费尔南德斯(B费)传球，C罗推射破门，成为世界杯史上最年长的单场进两球球员。
+烹饪课作为中心的知名品牌课程，在柏林乃至周边地区拥有广泛影响力和良好口碑，深受当地民众喜爱。
 
-易边再战，乌兹别克斯坦队门将内马托夫造成乌龙，葡萄牙队以4:0领先。
+本次端午节主题烹饪课延续了一贯的高人气，活动信息一经发布，名额便迅速报满。
 
 ## 相关推荐
 
-- 2026-06-30 08:55 - 12人以护剧为名敲诈剧组艺人被抓<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md
-- 2026-06-30 09:17 - 全网说丑的格力玫瑰空调卖了5万台<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md
-- 2026-06-30 09:20 - 内马尔安慰日本球员<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md
-- 2026-06-30 09:12 - 郑钦文温网三连败西尼亚科娃<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md
-- 2026-06-30 09:22 - 赵今麦因“瘦而不柴”的体态出圈<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md
-- 2026-06-30 09:00 - 女子遭家暴逃跑致丈夫身亡二审细节<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md
-- 2026-06-30 09:17 - 网瘾賊大的阿嬷<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md
-- 2026-06-30 08:59 - 黄晓明晒和周杰伦的合照<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md
-- 2026-06-30 09:18 - 【大鸣王潮1566】真拿你没办法<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md
-- 2026-06-30 09:06 - 男子中医院拔火罐致浅2度烧伤<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md
+- 2026-06-30 09:15 - GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md
+- 2026-06-30 09:16 - 王楚钦孙颖莎混双对手产生<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md
+- 2026-06-30 09:12 - 哪部作品、哪本书、哪首歌，值得被一直传下去？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md
+- 2026-06-30 09:02 - 徐亮怒斥世界杯踢假球<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md
+- 2026-06-30 09:11 - “荒唐”背后的韩国足球<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md
+- 2026-06-30 09:18 - 巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md
+- 2026-06-30 09:10 - 已经看完《三国第一部：争洛阳》的人，如何评价这部电影？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md
+- 2026-06-30 09:03 - 卡塞米罗头球破门<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md
+- 2026-06-30 09:20 - 免费试吃发差评被店家挂店门避雷<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md
+- 2026-06-30 09:25 - 如何看待武亮说大学生生活费1500就够用这一言论？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md
+- 2026-06-30 09:15 - 卢卡申科发布解放军仪仗队视频<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md
+- 2026-06-30 09:15 - 日本球迷输球后集体捡垃圾<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md
+- 2026-06-30 09:12 - 泰山建135公里刀片刺绳隔离网<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:21 - 第一次对自信的力量有了实感<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/5915065252.shtml
-- 2026-06-30 09:19 - 日本球员说被绝杀非常不甘心<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/5143394419.shtml
-- 2026-06-30 09:20 - 人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/08157815.shtml
-- 2026-06-30 09:20 - 对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来<br><br> | ??:http://www.share.minike.top/Article/details/301106755264.shtml
-- 2026-06-30 08:58 - 失明的我带老妈去了趟“火星”<br><br> | ??:http://www.blog.minike.top/Article/details/328087.shtml
-- 2026-06-30 09:12 - 为什么纣王似乎对周文王的扩张完全无动于衷？<br><br> | ??:http://www.blog.minike.top/Article/details/282724.shtml
-- 2026-06-30 09:02 - 覃予萱晋级WTT美国大满贯女单32强<br><br> | ??:https://www.share.kurohicncr.top/Article/details/1265875592.shtml
-- 2026-06-30 09:01 - 【Reaction】女生最少的5款游戏<br><br> | ??:http://www.share.minike.top/Article/details/6846836.shtml
-- 2026-06-30 08:55 - 有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/3207149.shtml
-- 2026-06-30 09:08 - 日本五次世界杯淘汰赛全败<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/02937492901.shtml
-- 2026-06-30 09:19 - 韩国人为什么这么在乎输赢<br><br> | ??:https://www.share.minike.top/Article/details/247469.shtml
-- 2026-06-30 09:22 - 陈小春人老了干什么也不心酸<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/649973871100.shtml
-- 2026-06-30 08:55 - 马航MH370传来最新消息<br><br> | ??:http://www.share.kurohicncr.top/Article/details/590182606.shtml
-- 2026-06-30 09:04 - 黄晓明夸昆凌引杨颖对比<br><br> | ??:http://www.share.minike.top/Article/details/556099.shtml
-- 2026-06-30 08:55 - 勇敢的心第二部<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/7824785.shtml
+- 2026-06-30 09:09 - 王曼昱被突如其来的话筒逗笑了<br><br> | ??:http://www.blog.minike.top/Article/details/710813992818.shtml
+- 2026-06-30 09:21 - 赛博朋克边缘行者2预告片<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/836161322.shtml
+- 2026-06-30 09:06 - 这一刀 会很帅<br><br> | ??:https://www.share.kurohicncr.top/Article/details/472334.shtml
+- 2026-06-30 09:17 - 国务院：探索延长义务教育年限<br><br> | ??:http://www.share.minike.top/Article/details/5660096.shtml
+- 2026-06-30 09:24 - 德国身价是巴拉圭6倍<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/552068.shtml
+- 2026-06-30 09:15 - 荷兰VS摩洛哥<br><br> | ??:https://www.share.minike.top/Article/details/747532265.shtml
+- 2026-06-30 09:20 - 杨紫肖战余生请多指教拍立得<br><br> | ??:http://www.share.kurohicncr.top/Article/details/18729.shtml
+- 2026-06-30 09:06 - 不开心就去看三年前的购物订单<br><br> | ??:https://www.blog.minike.top/Article/details/252099237692.shtml
+- 2026-06-30 09:29 - 急先锋<br><br> | ??:http://www.blog.minike.top/Article/details/93586.shtml
+- 2026-06-30 09:05 - 致敬！中国首批缉毒警已全体退休<br><br> | ??:https://www.share.kurohicncr.top/Article/details/13308509111.shtml
+- 2026-06-30 09:16 - 房价什么时候能涨<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/47212049.shtml
+- 2026-06-30 09:10 - 日本主帅：未能夺冠深感抱歉<br><br> | ??:https://www.share.kurohicncr.top/Article/details/92209439717.shtml
+- 2026-06-30 09:15 - 警方介入洪明甫死亡威胁<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/287072712324.shtml
+- 2026-06-30 09:12 - 《我落泪情绪零碎》<br><br> | ??:https://www.share.kurohicncr.top/Article/details/59292508540.shtml
+- 2026-06-30 09:20 - 日本淘汰<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/88302190.shtml

@@ -1,60 +1,60 @@
-# 重压之下一战创两项纪录，C罗赛后回应质疑
+# 美伊局势缓和推低油价 押注供应过剩的交易再度活跃
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-中新网北京6月24日电 北京时间24日，在2026美加墨世界杯小组赛第二轮比赛中，葡萄牙队5比0大胜乌兹别克斯坦队。C罗本场独中两元，达成连续六届世界杯破门的里程碑，同时成为葡萄牙队史世界杯射手王。 拿下这场大胜后，葡萄牙取得一胜一平积4分，小组出线前景向好。C罗在赛后接受采访时坦言，打破纪录的感觉很棒，但自己眼前的目标是帮助国家队出线，他对晋级形势持乐观态度。 小组赛首轮，葡
+随着美伊达成谅解备忘录后原油期货大跌，一批几乎被遗忘、押注原油供应过剩的小众期权头寸又重新活跃起来。 在美国对伊朗发动军事行动之前，一些交易员曾押注原油供应过剩将导致近月价格跌破远月期货价格，这种市场结构也被称为升水。然而，袭击发生后，对供应短缺的担忧推动即期价格飙升。4月下旬，8月交割的WTI原油期货一度较9月合约高出每桶5美元，而9月合约又比10月合约高出4美元。 油价大涨
 
 ## 正文
 
-中新网北京6月24日电 北京时间24日，在2026美加墨世界杯小组赛第二轮比赛中，葡萄牙队5比0大胜乌兹别克斯坦队。
+随着美伊达成谅解备忘录后原油期货大跌，一批几乎被遗忘、押注原油供应过剩的小众期权头寸又重新活跃起来。
 
-C罗本场独中两元，达成连续六届世界杯破门的里程碑，同时成为葡萄牙队史世界杯射手王。
+在美国对伊朗发动军事行动之前，一些交易员曾押注原油供应过剩将导致近月价格跌破远月期货价格，这种市场结构也被称为升水。
 
-拿下这场大胜后，葡萄牙取得一胜一平积4分，小组出线前景向好。
+然而，袭击发生后，对供应短缺的担忧推动即期价格飙升。
 
-C罗在赛后接受采访时坦言，打破纪录的感觉很棒，但自己眼前的目标是帮助国家队出线，他对晋级形势持乐观态度。
+4月下旬，8月交割的WTI原油期货一度较9月合约高出每桶5美元，而9月合约又比10月合约高出4美元。
 
-小组赛首轮，葡萄牙队意外被刚果(金)队逼平，C罗全场发挥未能达到外界预期。
+油价大涨意味着，超过2万份（相当于每月2000万桶）押注这些价差将跌破零的看跌期权合约，变得几乎一文不值。
 
-同期梅西、姆巴佩、哈兰德、凯恩等一众顶级前锋纷纷斩获进球，多重舆论声音涌向C罗，让他承受了不小压力。
+如今，随着价差回到1美元以下，这些期权再次变得具有意义。
 
-因此有C罗球迷今日在社交平台上调侃：我都一个星期没敢说话了，现在终于能说话了。
+当然，如果和平协议破裂，油价可能会再度反弹。
 
-面对外界的质疑声，C罗作出回应：“不少人觉得我已经该退役了，但我依然站在赛场上。
+霍尔木兹海峡的船舶通行量可能需要一段时间才能恢复到正常水平，而且也无法立即填满过去几个月被抽干的储油罐，这或许能遏制油价下行空间。
 
 ## 相关推荐
 
-- 2026-06-30 08:54 - 2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md
-- 2026-06-30 09:18 - 挪威国家队紧急从本土订购大批海鲜<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md
-- 2026-06-30 09:16 - 人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md
-- 2026-06-30 09:08 - 电子游戏中有哪些关于武器的“刻板印象”？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md
-- 2026-06-30 09:10 - 首届《哈基米歌王争霸赛》总决赛<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md
-- 2026-06-30 09:20 - 板面：为什么那么多人爱吃？？！<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md
-- 2026-06-30 09:00 - 大货车掉落螺丝扎进骑手护目镜<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md
-- 2026-06-30 09:08 - 天道<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md
-- 2026-06-30 09:03 - 超神人辉夜姬 第二集<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md
-- 2026-06-30 09:22 - 峡谷事故团队组队时有人提醒会下雨<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md
-- 2026-06-30 09:19 - 王濛回复黄灿灿<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md
-- 2026-06-30 08:54 - 我设置了全宇宙最安全的密码<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md
-- 2026-06-30 09:19 - "超算小姐，这一次，我一定要带你出去..."<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md
-- 2026-06-30 09:17 - 高考结束，该不该外出打工体验？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md
+- 2026-06-30 09:15 - 中国对日本再出重拳<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md
+- 2026-06-30 09:28 - 手底下人带不动怎么办？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md
+- 2026-06-30 09:00 - 为什么香港的冲厕水是咸的？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md
+- 2026-06-30 09:26 - 美团、淘宝闪购、京东外卖达成共识<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md
+- 2026-06-30 09:14 - 庆祝建党105周年特别节目<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md
+- 2026-06-30 09:05 - 媒体评泰山建135公里刀片刺绳隔离网<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md
+- 2026-06-30 09:08 - 为什么会有「念旧」的心理？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md
+- 2026-06-30 09:05 - 德国连续三届世界杯无缘16强<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md
+- 2026-06-30 09:28 - 板面：为什么那么多人爱吃？？！<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md
+- 2026-06-30 09:12 - 日本队5进世界杯淘汰赛0胜<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md
+- 2026-06-30 09:18 - 千与千寻<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md
+- 2026-06-30 09:20 - 点球大战 残酷<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md
+- 2026-06-30 09:10 - 我把队友的7连跪剪成了艺术<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md
+- 2026-06-30 09:20 - 这一刀 会很帅<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:56 - 锐评：网红不能困在无底线逐利里<br><br> | ??:http://www.share.kurohicncr.top/Article/details/79738535.shtml
-- 2026-06-30 08:55 - 董卿父亲报纸上发文悼念亡妻<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/170200.shtml
-- 2026-06-30 09:04 - 陈小春人老了干什么也不心酸<br><br> | ??:https://www.share.kurohicncr.top/Article/details/837329927.shtml
-- 2026-06-30 09:10 - 森保一致歉：世界第一目标没能实现<br><br> | ??:http://www.share.minike.top/Article/details/137769298773.shtml
-- 2026-06-30 08:55 - 电影抓特务上映11天破亿<br><br> | ??:http://www.blog.minike.top/Article/details/81437.shtml
-- 2026-06-30 09:20 - 媒体：手机测评该挤挤水分了<br><br> | ??:http://www.blog.minike.top/Article/details/120762786.shtml
-- 2026-06-30 09:09 - 法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？<br><br> | ??:http://www.share.minike.top/Article/details/7091429045.shtml
-- 2026-06-30 09:06 - 王楚钦孙颖莎混双对手产生<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/50732.shtml
-- 2026-06-30 09:11 - 租房时你会更看重「住得舒服」，还是「每天通勤更方便」？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/65365411.shtml
-- 2026-06-30 09:15 - 你人生中最艰难的时候是怎么熬过来的？<br><br> | ??:https://www.blog.minike.top/Article/details/191318033684.shtml
-- 2026-06-30 09:02 - 点球大战 残酷<br><br> | ??:http://www.blog.minike.top/Article/details/0540725.shtml
-- 2026-06-30 09:04 - 齐思钧回复张月<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/082564.shtml
-- 2026-06-30 09:11 - 致敬！中国首批缉毒警已全体退休<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/61878.shtml
-- 2026-06-30 09:09 - 如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/69267774.shtml
-- 2026-06-30 09:16 - 【Reaction】女生最少的5款游戏<br><br> | ??:http://www.share.kurohicncr.top/Article/details/555041026.shtml
+- 2026-06-30 09:20 - 有人见过武则天的画像吗，非常好奇？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/080772879443.shtml
+- 2026-06-30 09:23 - 被巴西绝杀后 日球员田中碧跪地痛哭<br><br> | ??:https://www.share.minike.top/Article/details/921018.shtml
+- 2026-06-30 09:24 - 日本球迷输球后集体捡垃圾<br><br> | ??:https://www.share.kurohicncr.top/Article/details/23970577003.shtml
+- 2026-06-30 09:24 - 巴西绝杀<br><br> | ??:http://www.share.minike.top/Article/details/92631775.shtml
+- 2026-06-30 09:27 - 好像看到了人类带孩子崩溃的样子<br><br> | ??:https://www.share.kurohicncr.top/Article/details/52853131951.shtml
+- 2026-06-30 09:21 - 手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】<br><br> | ??:http://www.share.kurohicncr.top/Article/details/1123942714.shtml
+- 2026-06-30 09:08 - 2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？<br><br> | ??:http://www.share.minike.top/Article/details/041850068916.shtml
+- 2026-06-30 09:21 - 德国连续三届世界杯无缘16强<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/6436818.shtml
+- 2026-06-30 09:03 - 索马里女大使：想和中国一起搞事业<br><br> | ??:http://www.share.minike.top/Article/details/6130741136.shtml
+- 2026-06-30 09:09 - 徐亮怒斥世界杯踢假球<br><br> | ??:http://www.blog.minike.top/Article/details/50641.shtml
+- 2026-06-30 09:24 - 外国游客开始涌入中国农村<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/47839.shtml
+- 2026-06-30 09:16 - 尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」<br><br> | ??:https://www.blog.minike.top/Article/details/4757632717.shtml
+- 2026-06-30 09:17 - 金刚川<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/404972669.shtml
+- 2026-06-30 09:29 - 王楚钦说配合稍微有些陌生感<br><br> | ??:https://www.share.kurohicncr.top/Article/details/048254.shtml
+- 2026-06-30 09:17 - 未来的飞机可能会用电吗？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/1257046847.shtml

@@ -1,61 +1,56 @@
-# TCL李东生：在供应链体系建设当中，AI技术是未来
+# 巴西反超德国登顶世界杯进球榜 土耳其61次射门进0球出局
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-专题：2026第十七届夏季达沃斯论坛 2026年6月23日至25日，2026大连夏季达沃斯论坛，即世界经济论坛第十七届新领军者年会在中国辽宁省大连市举办。TCL创始人、董事长李东生出席“重构供应链？”论坛并演讲。 谈及AI在供应链领域的应用时，李东生表示，AI是一个热门概念，全球股市一大半的价值来自AI企业，但在供应链体系中，AI未来能在哪些方面实现革命性突破，仍在探索中。 李
+中新网6月20日电 北京时间20日，美加墨世界杯共进行了四场小组赛争夺。C组，苏格兰队0比1不敌摩洛哥队，巴西队在3比0完胜海地队后反超德国队成为世界杯历史进球最多的队伍。D组，美国队2比0击败澳大利亚队，土耳其队0比1负于巴拉圭队。 土耳其队本场射门数多达31次，但未能转化为进球，提前一轮无缘小组出线。上场比赛，他们在澳大利亚队面前完成30次攻门，同样颗粒无收，最终落败。(完
 
 ## 正文
 
-专题：2026第十七届夏季达沃斯论坛 2026年6月23日至25日，2026大连夏季达沃斯论坛，即世界经济论坛第十七届新领军者年会在中国辽宁省大连市举办。
+中新网6月20日电 北京时间20日，美加墨世界杯共进行了四场小组赛争夺。
 
-TCL创始人、董事长李东生出席“重构供应链？
+C组，苏格兰队0比1不敌摩洛哥队，巴西队在3比0完胜海地队后反超德国队成为世界杯历史进球最多的队伍。
 
-”论坛并演讲。
+D组，美国队2比0击败澳大利亚队，土耳其队0比1负于巴拉圭队。
 
-谈及AI在供应链领域的应用时，李东生表示，AI是一个热门概念，全球股市一大半的价值来自AI企业，但在供应链体系中，AI未来能在哪些方面实现革命性突破，仍在探索中。
+土耳其队本场射门数多达31次，但未能转化为进球，提前一轮无缘小组出线。
 
-李东生回顾到，过去十多年，TCL从自动化到智能化，企业建立数字化管理系统的工作一直在持续推进。
+上场比赛，他们在澳大利亚队面前完成30次攻门，同样颗粒无收，最终落败。
 
-但他也坦诚，当下人们谈论AI时，往往会把智能化要做的事情都套到AI概念上。
-
-“这样讲也没有错，但真正基于大模型的AI应用，在供应链环节目前还没有太多实质的应用落地。
-
-” 不过他认为，这确实是一个方向。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 09:08 - 全球芯片巨头史诗级扩产<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md
-- 2026-06-30 09:15 - 男子造谣东鹏老板不喝自家饮料被拘<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md
-- 2026-06-30 09:00 - 急先锋<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md
-- 2026-06-30 09:22 - 如何评价杨紫白玉兰获奖<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md
-- 2026-06-30 09:08 - 日本将帅赛后采访纷纷哽咽落泪<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md
-- 2026-06-30 09:11 - “错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md
-- 2026-06-30 09:17 - 巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md
-- 2026-06-30 09:21 - 曝iPhone18Pro机密文件现身暗网<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md
-- 2026-06-30 09:10 - 恋与深空已删除锅里洗澡文案<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md
-- 2026-06-30 08:55 - 我设置了全宇宙最安全的密码<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md
-- 2026-06-30 09:13 - 蔚来回应高压水枪洗车掉漆<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md
-- 2026-06-30 08:56 - 杨紫肖战余生请多指教拍立得<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md
-- 2026-06-30 09:16 - 「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md
-- 2026-06-30 09:00 - 极限挑战第一季<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md
-- 2026-06-30 09:13 - 《贺子珍》<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md
+- 2026-06-30 09:29 - 任素汐舞台上唱《王招君》<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md
+- 2026-06-30 09:03 - 教育部披露：高考生篡改7名同学志愿<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md
+- 2026-06-30 09:15 - 曝詹姆斯即将与勇士会面<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md
+- 2026-06-30 09:23 - 《贺子珍》<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md
+- 2026-06-30 09:16 - 为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md
+- 2026-06-30 09:16 - 王源近几年没有路演了<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md
+- 2026-06-30 09:24 - 马航370搜寻最新消息<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md
+- 2026-06-30 09:03 - 如果有二次元高中是什么样子的？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md
+- 2026-06-30 09:23 - 领克07GT搭载超跑同源MRC悬架<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md
+- 2026-06-30 09:01 - 梅德韦杰夫列举俄罗斯面临的七大挑战<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md
+- 2026-06-30 09:17 - 你这一辈子有没有为进山姆拼过命？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md
+- 2026-06-30 09:27 - 世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md
+- 2026-06-30 09:08 - 董卿父亲在报纸上发文悼念亡妻<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md
+- 2026-06-30 09:04 - 《赛博朋克：边缘行者 2》｜官方预告片<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:20 - 韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？<br><br> | ??:https://www.share.minike.top/Article/details/73796944609.shtml
-- 2026-06-30 09:16 - 金鹰奖视后提名预测<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/235053246749.shtml
-- 2026-06-30 09:18 - 巴西足球能否再现昔日荣光<br><br> | ??:https://www.share.kurohicncr.top/Article/details/3843997255.shtml
-- 2026-06-30 09:03 - 男子在京东买到“同仁堂”假药<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/846589378.shtml
-- 2026-06-30 08:58 - 泰山建135公里刀片刺绳隔离网<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/770152571692.shtml
-- 2026-06-30 09:13 - 王健林甩卖超80座万达广场<br><br> | ??:https://www.share.kurohicncr.top/Article/details/02809242619.shtml
-- 2026-06-30 09:03 - 领克07GT搭载超跑同源MRC悬架<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/69793.shtml
-- 2026-06-30 09:03 - 爱直接对嘴喝饮料的人天塌了<br><br> | ??:http://www.blog.minike.top/Article/details/575349.shtml
-- 2026-06-30 09:05 - 巴西绝杀日本：漫画般结局换了主角<br><br> | ??:http://www.share.kurohicncr.top/Article/details/6629574972.shtml
-- 2026-06-30 09:00 - 庆祝中国共产党成立105周年大会将举行<br><br> | ??:http://www.share.kurohicncr.top/Article/details/05633079232.shtml
-- 2026-06-30 08:55 - 商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？<br><br> | ??:http://www.blog.minike.top/Article/details/9889584.shtml
-- 2026-06-30 09:15 - 董路：谁赢谁是“正路子”<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/3308066554.shtml
-- 2026-06-30 09:11 - 穆祉丞回应获年度人气艺人<br><br> | ??:https://www.share.kurohicncr.top/Article/details/78020.shtml
-- 2026-06-30 09:21 - 卢卡申科发布解放军仪仗队视频<br><br> | ??:https://www.blog.minike.top/Article/details/715520.shtml
-- 2026-06-30 09:18 - 库尼亚赛后伸五指嘲讽日本<br><br> | ??:https://www.share.kurohicncr.top/Article/details/902812224.shtml
+- 2026-06-30 09:12 - 男生180+，有腹肌是什么体验？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/881924.shtml
+- 2026-06-30 09:14 - 欧洲装一台空调有多难<br><br> | ??:http://www.share.kurohicncr.top/Article/details/783926176.shtml
+- 2026-06-30 09:10 - 美股<br><br> | ??:https://www.share.kurohicncr.top/Article/details/126353.shtml
+- 2026-06-30 09:12 - 时光音乐会<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/912793566.shtml
+- 2026-06-30 09:17 - 【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/81166204.shtml
+- 2026-06-30 09:11 - 疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！<br><br> | ??:https://www.share.kurohicncr.top/Article/details/51627.shtml
+- 2026-06-30 09:06 - 世界杯巴拉圭点球淘汰德国<br><br> | ??:https://www.share.kurohicncr.top/Article/details/33806135393.shtml
+- 2026-06-30 09:23 - 日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？<br><br> | ??:http://www.blog.minike.top/Article/details/272934.shtml
+- 2026-06-30 09:03 - 巴西醒醒 这是淘汰赛<br><br> | ??:https://www.share.minike.top/Article/details/7462924886.shtml
+- 2026-06-30 09:11 - 莫兰特被交易到开拓者<br><br> | ??:https://www.share.minike.top/Article/details/473836.shtml
+- 2026-06-30 09:01 - 董路：谁赢谁是“正路子”<br><br> | ??:https://www.share.minike.top/Article/details/69175764514.shtml
+- 2026-06-30 09:25 - 巴西在进攻三区完成210脚传球<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/581772715524.shtml
+- 2026-06-30 09:15 - 恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？<br><br> | ??:https://www.share.minike.top/Article/details/12534220.shtml
+- 2026-06-30 09:12 - 《虎吹最难绷の一集》<br><br> | ??:http://www.blog.minike.top/Article/details/1400931994.shtml
+- 2026-06-30 09:28 - 张碧晨一开口梦回逐玉<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/627994176.shtml

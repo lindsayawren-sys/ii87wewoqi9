@@ -1,59 +1,55 @@
-# 美方人士：美中人文交流不是可选项，而是必选项
+# 探访内蒙古首家OPC社区：归乡逐潮 轻装启航
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-中新社浙江温州6月24日电 (黄钰钦 周昕)美中教育基金会执行董事卢晓玫(Rosie Levine)24日在第十届中美民间和平论坛期间接受中新社记者采访时表示，美中人文交流不是可选项，而是必选项。唯有双方都拥有一批真正理解彼此的群体，美中关系才能实现长远良性发展。她指出，回顾历史可以发现，教育与人文交流多次成为美中关系的重要纽带。从20世纪70年代以来，人文交流不仅配合了高层交
+发布时间：2026年06月19日 19:22 来源：中国新闻网 仲夏时节，“草原云谷”人才大厦内一派忙碌景象，创业者们分坐共享工位，来往交流，朝气满满。6月初，内蒙古首家OPC(一人公司)社区——云谷OPC社区，在中国(内蒙古)自由贸易试验区呼和浩特片区和林格尔区块正式投入运营。近日，记者实地探访时，已有30多家企业完成入驻。 OPC是One Person Company的缩写
 
 ## 正文
 
-中新社浙江温州6月24日电 (黄钰钦 周昕)美中教育基金会执行董事卢晓玫(Rosie Levine)24日在第十届中美民间和平论坛期间接受中新社记者采访时表示，美中人文交流不是可选项，而是必选项。
+发布时间：2026年06月19日 19:22 来源：中国新闻网 仲夏时节，“草原云谷”人才大厦内一派忙碌景象，创业者们分坐共享工位，来往交流，朝气满满。
 
-唯有双方都拥有一批真正理解彼此的群体，美中关系才能实现长远良性发展。
+6月初，内蒙古首家OPC(一人公司)社区——云谷OPC社区，在中国(内蒙古)自由贸易试验区呼和浩特片区和林格尔区块正式投入运营。
 
-她指出，回顾历史可以发现，教育与人文交流多次成为美中关系的重要纽带。
+近日，记者实地探访时，已有30多家企业完成入驻。
 
-从20世纪70年代以来，人文交流不仅配合了高层交往，更通过教育、体育、文化等领域的合作为双边关系注入稳定力量。
+OPC是One Person Company的缩写，译为“一人公司”，指依托计算机与AI工具，由单人或小型团队运营的新型企业形态。
 
-“当两国关系出现紧张时，人文交流能够提醒双方公众，美中之间仍有许多共同利益和共同关切。
+2026年4月，中国(内蒙古)自由贸易试验区正式揭牌，作为国家向北开放的重要支点，这里迎来了高水平对外开放的历史性机遇。
 
-”卢晓玫说。
+紧随自贸区建设步伐，OPC社区应运而生，成为中国首个“自贸区+绿色算力+OPC业态”三位一体创业集聚平台。
 
-她认为，当前最重要的任务之一，是培养新一代沟通桥梁搭建者。
-
-面对气候变化等全球性挑战，没有任何国家能够独善其身，而这些议题也为两国青年交流提供了重要抓手。
+(崔博群 尚虹波 内蒙古呼和浩特报道)） 责任编辑：【孙静波】
 
 ## 相关推荐
 
-- 2026-06-30 08:58 - 日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md
-- 2026-06-30 09:08 - 赵今麦因“瘦而不柴”的体态出圈<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md
-- 2026-06-30 09:12 - 曝娱乐圈大部分明星失业<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md
-- 2026-06-30 09:23 - 徐亮怒斥世界杯踢假球<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md
-- 2026-06-30 09:15 - 四川宜宾地震为何震感明显<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md
-- 2026-06-30 08:59 - 起风了<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md
-- 2026-06-30 08:55 - 男子诋毁袁隆平科研成果被刑拘<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md
-- 2026-06-30 08:56 - 把毒品藏在哪里，60秒内不会被发现？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md
-- 2026-06-30 09:21 - 日本五次世界杯淘汰赛全败<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md
-- 2026-06-30 09:16 - 日本反击率先破门<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md
-- 2026-06-30 08:55 - 为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md
-- 2026-06-30 09:04 - 【大鸣王潮1566】真拿你没办法<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md
-- 2026-06-30 09:01 - 韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md
+- 2026-06-30 09:27 - 贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md
+- 2026-06-30 09:27 - 王濛回复黄灿灿<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md
+- 2026-06-30 09:04 - 为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md
+- 2026-06-30 09:01 - 宜宾地震食客避难后折返 无人逃单<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md
+- 2026-06-30 09:16 - 《恋与深空》被指触碰民族伤痛红线<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md
+- 2026-06-30 09:05 - 速度与激情9<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md
+- 2026-06-30 09:09 - 披荆斩棘的哥哥<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md
+- 2026-06-30 09:29 - 健全中小学教师工资长效联动机制<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md
+- 2026-06-30 09:00 - 韩国道歉完日本道歉<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md
+- 2026-06-30 09:09 - 电子游戏中有哪些关于武器的“刻板印象”？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md
+- 2026-06-30 09:06 - 巴拉圭门将<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:06 - 宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/3541668668.shtml
-- 2026-06-30 09:15 - 巴西vs日本<br><br> | ??:https://www.blog.minike.top/Article/details/317549710.shtml
-- 2026-06-30 09:07 - 手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/305827506054.shtml
-- 2026-06-30 09:00 - 马航370搜寻最新消息<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/0548472915.shtml
-- 2026-06-30 09:21 - 巴西绝杀<br><br> | ??:https://www.blog.minike.top/Article/details/2146484.shtml
-- 2026-06-30 09:03 - 德国身价是巴拉圭6倍<br><br> | ??:https://www.share.minike.top/Article/details/72884151.shtml
-- 2026-06-30 09:10 - 库尼亚赛后伸五指嘲讽日本<br><br> | ??:http://www.blog.minike.top/Article/details/958951430.shtml
-- 2026-06-30 09:17 - 泰山景区建135公里刀片刺绳隔离网<br><br> | ??:https://www.share.kurohicncr.top/Article/details/6477160958.shtml
-- 2026-06-30 09:10 - 全网说丑的格力玫瑰空调卖了5万台<br><br> | ??:http://www.share.minike.top/Article/details/78116.shtml
-- 2026-06-30 08:59 - 任素汐舞台上唱《王招君》<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/9426298916.shtml
-- 2026-06-30 09:20 - 已经看完《三国第一部：争洛阳》的人，如何评价这部电影？<br><br> | ??:https://www.blog.minike.top/Article/details/17582695.shtml
-- 2026-06-30 09:15 - 媒体评泰山建135公里刀片刺绳隔离网<br><br> | ??:https://www.share.kurohicncr.top/Article/details/3644418.shtml
-- 2026-06-30 09:19 - 男子诋毁袁隆平科研成果被刑拘<br><br> | ??:http://www.share.minike.top/Article/details/78497227.shtml
-- 2026-06-30 08:54 - 本科毕业生为何涌入专科学校<br><br> | ??:https://www.share.minike.top/Article/details/227460294212.shtml
-- 2026-06-30 09:20 - 锐评：网红不能困在无底线逐利里<br><br> | ??:http://www.blog.minike.top/Article/details/72230.shtml
+- 2026-06-30 09:07 - 德国巴拉圭加时<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/387147.shtml
+- 2026-06-30 09:03 - 古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?<br><br> | ??:http://www.share.minike.top/Article/details/69751.shtml
+- 2026-06-30 09:11 - 恋与深空道歉声明<br><br> | ??:http://www.blog.minike.top/Article/details/42732.shtml
+- 2026-06-30 09:05 - 德国巴拉圭 折磨<br><br> | ??:http://www.share.kurohicncr.top/Article/details/9239112.shtml
+- 2026-06-30 09:09 - “错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】<br><br> | ??:https://www.share.kurohicncr.top/Article/details/91964165696.shtml
+- 2026-06-30 09:09 - 网友写差评被店家“挂”门口避雷<br><br> | ??:https://www.share.kurohicncr.top/Article/details/57122.shtml
+- 2026-06-30 09:11 - 巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？<br><br> | ??:https://www.share.minike.top/Article/details/54178858850.shtml
+- 2026-06-30 09:17 - 森保一致歉：世界第一目标没能实现<br><br> | ??:https://www.share.kurohicncr.top/Article/details/413349081.shtml
+- 2026-06-30 09:07 - 4种红薯的满分吃法！有手就会…但能让你大为震撼！<br><br> | ??:https://www.blog.minike.top/Article/details/628543538.shtml
+- 2026-06-30 09:24 - 速度与激情9<br><br> | ??:https://www.share.minike.top/Article/details/16721759944.shtml
+- 2026-06-30 09:03 - 五哈和他们的朋友<br><br> | ??:https://www.share.kurohicncr.top/Article/details/78812807452.shtml
+- 2026-06-30 09:22 - 央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？<br><br> | ??:https://www.blog.minike.top/Article/details/08315998.shtml
+- 2026-06-30 09:02 - 【Reaction】女生最少的5款游戏<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/853278952.shtml
+- 2026-06-30 09:14 - 我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/9906291.shtml
+- 2026-06-30 09:22 - 德国队回应爆冷淘汰<br><br> | ??:http://www.blog.minike.top/Article/details/67819226.shtml

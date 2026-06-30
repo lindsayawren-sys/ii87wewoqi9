@@ -1,56 +1,58 @@
-# 清华大学张亚勤：未来80%基础模型将开源，这恰恰是中国优势
+# 长城脚下过端午 北京延庆将举办百余场特色文旅活动
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-专题：2026第十七届夏季达沃斯论坛 6月23日，世界经济论坛第十七届新领军者年会（2026大连夏季达沃斯论坛）在大连举行。清华大学智能产业研究院院长、中国工程院外籍院士张亚勤出席“中国创新模式如何行稳致远？”论坛并演讲。 张亚勤指出，中美AI的一大区别在于开源。从长远看，美国模型虽然领先，但未来80%的基础模型都可能采用开源模式，这恰恰是中国的一大优势。 他提到，DeepSe
+中新网北京6月20日电 (记者 陈杭)19日，第十八届北京端午文化节暨“长城脚下过端午”主题系列活动在北京世园国际旅游度假区启幕。端午音乐会、缝制艾草香包、编织五彩绳、手绘戏曲脸谱……北京市延庆区将上演百余场特色文旅活动，让市民游客在妫川山水间沉浸式邂逅古韵端午。 当天，位于北京世园国际旅游度假区的主会场内，国风科技主题巡游开展，智能机器人、机器狗创意方阵与身着华美汉服的演员队
 
 ## 正文
 
-专题：2026第十七届夏季达沃斯论坛 6月23日，世界经济论坛第十七届新领军者年会（2026大连夏季达沃斯论坛）在大连举行。
+中新网北京6月20日电 (记者 陈杭)19日，第十八届北京端午文化节暨“长城脚下过端午”主题系列活动在北京世园国际旅游度假区启幕。
 
-清华大学智能产业研究院院长、中国工程院外籍院士张亚勤出席“中国创新模式如何行稳致远？
+端午音乐会、缝制艾草香包、编织五彩绳、手绘戏曲脸谱……北京市延庆区将上演百余场特色文旅活动，让市民游客在妫川山水间沉浸式邂逅古韵端午。
 
-”论坛并演讲。
+当天，位于北京世园国际旅游度假区的主会场内，国风科技主题巡游开展，智能机器人、机器狗创意方阵与身着华美汉服的演员队伍联袂前行，机器狗舞狮、机器人舞蹈等新潮快闪轮番上演，古今碰撞的新奇表演引得游客纷纷驻足喝彩。
 
-张亚勤指出，中美AI的一大区别在于开源。
+“第一次看到机器人舞狮、国风巡游结合科技元素，特别震撼！
 
-从长远看，美国模型虽然领先，但未来80%的基础模型都可能采用开源模式，这恰恰是中国的一大优势。
+既有古风韵味，又有现代新意，带孩子过节既热闹又有意义。
 
-他提到，DeepSeek、智谱、Kimi等中国模型都是开源的，其开放度和业务模式构成了中国AI的独特竞争力。
+”来自北京市通州区的游客高颖杰全程看完巡游，对新颖创意赞不绝口。
 
-另一方面，中国的“词元经济学”在效率上具备全球优势。
+除了视听盛宴，世园公园为游客提供可参与、可体验的民俗互动。
 
-他以电力成本为例指出，中国的电价大约是美国的一半，而且更加绿色。
+国际馆门前，端午非遗民俗工坊人头攒动，游客有序体验包粽子、缝制艾草香包、编织五彩绳、手绘戏曲脸谱等传统项目，近距离感受节日传统习俗。
 
 ## 相关推荐
 
-- 2026-06-30 09:06 - 世界杯名画巴拉圭钢铁防线<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md
-- 2026-06-30 09:14 - 欧洲家电巨头为何输掉了这个夏天<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md
-- 2026-06-30 09:01 - 莫兰特转投开拓者效力<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md
-- 2026-06-30 08:57 - 森保一致歉：世界第一目标没能实现<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md
-- 2026-06-30 09:04 - 领克900大型SUV值得购买吗?<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md
-- 2026-06-30 09:23 - 【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md
-- 2026-06-30 08:56 - 谢依霖说杨幂是聚会第一把张罗手<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md
-- 2026-06-30 09:08 - 世界杯名画巴拉圭钢铁防线<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md
-- 2026-06-30 09:07 - 女子清吧被陌生人投放伟哥<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md
-- 2026-06-30 09:06 - 人类...完蛋了...<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md
+- 2026-06-30 09:01 - 日本队被绝杀后鞠躬致谢观众<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md
+- 2026-06-30 09:25 - 当我知道豆包有后台审核人员<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md
+- 2026-06-30 09:11 - 吴启华卖肖像权拍AI电影<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md
+- 2026-06-30 09:21 - 张雪的一句“是我们”引发岛内热议<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md
+- 2026-06-30 09:08 - 曝灰熊将莫兰特交易至开拓者<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md
+- 2026-06-30 09:13 - 重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md
+- 2026-06-30 09:26 - 马宁怒怼巴拉圭教练组<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md
+- 2026-06-30 09:23 - 87克大金链到老庙黄金维修少了11克<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md
+- 2026-06-30 09:11 - 委内瑞拉地震死亡人数升至1719人<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md
+- 2026-06-30 09:16 - 杨紫大银幕成绩单如何<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md
+- 2026-06-30 09:23 - 曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md
+- 2026-06-30 09:01 - 巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:17 - 浪姐成团夜爆笑吐槽<br><br> | ??:http://www.share.kurohicncr.top/Article/details/3183881.shtml
-- 2026-06-30 09:22 - 木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/460442.shtml
-- 2026-06-30 09:08 - hanser X 赖美云《室内系的Track Maker》<br><br> | ??:http://www.share.kurohicncr.top/Article/details/531693.shtml
-- 2026-06-30 09:02 - 警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？<br><br> | ??:https://www.blog.minike.top/Article/details/322182.shtml
-- 2026-06-30 09:07 - 奔跑吧·黄河篇第二季<br><br> | ??:https://www.share.kurohicncr.top/Article/details/470427.shtml
-- 2026-06-30 09:21 - 极端热浪席卷欧洲多国，热一热百姓让领导先凉快？<br><br> | ??:http://www.share.minike.top/Article/details/735617873723.shtml
-- 2026-06-30 09:06 - 如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？<br><br> | ??:https://www.share.minike.top/Article/details/789848527994.shtml
-- 2026-06-30 09:16 - 蜘蛛侠:平行宇宙<br><br> | ??:http://www.share.minike.top/Article/details/68367802675.shtml
-- 2026-06-30 08:54 - 第一次对自信的力量有了实感<br><br> | ??:https://www.share.minike.top/Article/details/14979247.shtml
-- 2026-06-30 09:10 - IGN评测电影版后室<br><br> | ??:https://www.share.kurohicncr.top/Article/details/689599519021.shtml
-- 2026-06-30 09:23 - 德国队连续三届世界杯无缘16强<br><br> | ??:https://www.share.kurohicncr.top/Article/details/32939.shtml
-- 2026-06-30 09:02 - 金牌调解<br><br> | ??:https://www.share.minike.top/Article/details/544062.shtml
-- 2026-06-30 09:07 - 低智商犯罪三江口团建来了<br><br> | ??:http://www.share.kurohicncr.top/Article/details/994264046.shtml
-- 2026-06-30 09:16 - 现在叛逆期的孩子最怕的是什么？<br><br> | ??:http://www.share.minike.top/Article/details/71927301.shtml
-- 2026-06-30 09:04 - 莫兰特转投开拓者效力<br><br> | ??:http://www.share.minike.top/Article/details/760204559.shtml
+- 2026-06-30 09:03 - 索马里女大使：想和中国一起搞事业<br><br> | ??:https://www.share.kurohicncr.top/Article/details/359113.shtml
+- 2026-06-30 09:06 - 浪姐成团夜爆笑吐槽<br><br> | ??:https://www.blog.minike.top/Article/details/20366643.shtml
+- 2026-06-30 09:03 - 德国4比5巴拉圭<br><br> | ??:https://www.share.minike.top/Article/details/08785.shtml
+- 2026-06-30 09:19 - 赛博朋克边缘行者2预告片<br><br> | ??:http://www.share.kurohicncr.top/Article/details/028027.shtml
+- 2026-06-30 09:00 - 孙颖莎王楚钦晋级8强<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/713702.shtml
+- 2026-06-30 09:05 - 大学生遇地震裹被子从5楼冲下<br><br> | ??:https://www.blog.minike.top/Article/details/176282347041.shtml
+- 2026-06-30 09:29 - 王楚钦说配合稍微有些陌生感<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/587557618792.shtml
+- 2026-06-30 09:03 - 81岁老人被男子买光菜回家车祸去世<br><br> | ??:https://www.share.kurohicncr.top/Article/details/198835739435.shtml
+- 2026-06-30 09:17 - 有哪些值得一提的生活窍门？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/085215.shtml
+- 2026-06-30 09:07 - 美团、淘宝闪购、京东外卖达成共识<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/6127701.shtml
+- 2026-06-30 09:01 - 道友？你来真的啊？【凡人官方二创大会】<br><br> | ??:http://www.blog.minike.top/Article/details/823008759.shtml
+- 2026-06-30 09:06 - 巴拉圭门将<br><br> | ??:https://www.blog.minike.top/Article/details/53390077.shtml
+- 2026-06-30 09:25 - 老人卖菜获博主帮助后遇车祸去世<br><br> | ??:http://www.blog.minike.top/Article/details/962463.shtml
+- 2026-06-30 09:23 - 吴易昺不敌德约科维奇 止步温网首轮<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/56259734.shtml
+- 2026-06-30 09:11 - 如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？<br><br> | ??:http://www.share.minike.top/Article/details/55301.shtml

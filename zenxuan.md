@@ -1,60 +1,60 @@
-# 时政微纪录丨习近平总书记德州行
+# 操盘必读：影响股市利好或利空消息_2026年6月22日_财经新闻
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-仲夏时节，习近平总书记来到山东省德州市考察。 视频：时政微纪录丨习近平总书记德州行来源：央视新闻客户端 24日上午，习近平来到德州市陵城区边临镇东于架村，听取当地“三夏”生产工作汇报，了解小麦收成、玉米种植、农资供应等情况，来到农田灌渠边察看水肥一体化设施，同种粮大户、农机手、农技人员亲切交流。 之后，习近平来到邻近的“全国文明村”西于架村考察。他走进村党群服务中心，细致询问村
+宏观新闻 1、为推动外汇市场双向开放，促进在岸和离岸市场融合，日前，中国人民银行行长潘功胜在2026陆家嘴论坛上宣布，授权工行、农行、中行、建行、交行、中信银行等6家银行，在上海自贸区开展离岸人民币外汇交易试点。截至目前， 工行、农行、中行、建行、交行均已宣布落地离岸人民币外汇试点交易。 2、《新闻联播》6月20日报道称，今年以来，我国制度型开放持续推进，为深耕中国的跨国企业带
 
 ## 正文
 
-仲夏时节，习近平总书记来到山东省德州市考察。
+宏观新闻 1、为推动外汇市场双向开放，促进在岸和离岸市场融合，日前，中国人民银行行长潘功胜在2026陆家嘴论坛上宣布，授权工行、农行、中行、建行、交行、中信银行等6家银行，在上海自贸区开展离岸人民币外汇交易试点。
 
-视频：时政微纪录丨习近平总书记德州行来源：央视新闻客户端 24日上午，习近平来到德州市陵城区边临镇东于架村，听取当地“三夏”生产工作汇报，了解小麦收成、玉米种植、农资供应等情况，来到农田灌渠边察看水肥一体化设施，同种粮大户、农机手、农技人员亲切交流。
+截至目前， 工行、农行、中行、建行、交行均已宣布落地离岸人民币外汇试点交易。
 
-之后，习近平来到邻近的“全国文明村”西于架村考察。
+2、《新闻联播》6月20日报道称，今年以来，我国制度型开放持续推进，为深耕中国的跨国企业带来更多机遇。
 
-他走进村党群服务中心，细致询问村党组织建设和开展便民服务等情况，了解当地探索片区化推进乡村振兴的做法，并察看农副产品展示。
+就在前两天举行的陆家嘴论坛上，多位外国嘉宾表示，在当前世界充满不确定性的大背景下，中国经济持续向好，让深耕中国市场的外资企业信心倍增。
 
-在村民于鑫辉家，习近平同一家人围坐一起拉家常，关切询问就业收入、老人健康、孩子学习等情况，详细了解党的“三农”政策是不是全部落实到位。
+3、当地时间21日，在瑞士举行的伊美谈判第一轮已结束。
 
-离开村子时，村民们热情欢送总书记。
+消息称，在首轮会谈中并没有讨论伊朗核计划问题。
 
-习近平祝愿乡亲们在党的领导下把家园建设得越来越美，把日子过得越来越好。
+本轮谈判重点集中在落实谅解备忘录第13条，并优先处理与黎巴嫩相关的议题。
 
-总监制丨申勇 监制丨龚雪辉 制片人丨李晓周 编辑丨许永松 摄影丨李铮 张晓鹏 石伟明 马超 李辉 段德文 钟锐 郭鸿 程铖 范一鸣 航拍丨韩森 刘岳 范凯 录音丨程爱华
+4、伊朗方面发布消息称，一名接近谈判团队的消息人士透露，伊朗谈判代表团因抗议特朗普的威胁言论，已离开谈判地点。
 
 ## 相关推荐
 
-- 2026-06-30 09:10 - GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md
-- 2026-06-30 09:07 - 董卿母亲癌症去世<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md
-- 2026-06-30 08:55 - 德国爆冷点球大战不敌巴拉圭<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md
-- 2026-06-30 08:58 - 湖北云南这些涉汛信息都是假的<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md
-- 2026-06-30 08:59 - 为什么小组赛出局会让韩国人破防<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md
-- 2026-06-30 09:13 - 吴启华卖肖像权拍AI电影<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md
-- 2026-06-30 09:05 - 美媒：美军第五舰队司令部已无法使用<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md
-- 2026-06-30 08:59 - 四川宜宾地震瞬间鱼群乱跳<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md
-- 2026-06-30 09:05 - 周生如故<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md
-- 2026-06-30 08:56 - 泰山建135公里刀片刺绳隔离网<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md
-- 2026-06-30 09:09 - 上市央企地产商 两年换了三任董事长<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md
-- 2026-06-30 09:06 - 国务院：稳步推进研究生考试招生改革<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md
-- 2026-06-30 09:22 - 美股深夜大反弹 特斯拉飙涨8%<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md
-- 2026-06-30 08:56 - 7月1日起 一批新规即将落地<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md
+- 2026-06-30 09:09 - 杨紫获白玉兰视后为何争议难平<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md
+- 2026-06-30 09:07 - 有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md
+- 2026-06-30 09:06 - 我和我的家乡<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md
+- 2026-06-30 09:22 - 爱很美味<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md
+- 2026-06-30 09:22 - 恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md
+- 2026-06-30 09:10 - 明星大侦探第四季<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md
+- 2026-06-30 09:23 - 有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md
+- 2026-06-30 09:24 - 点球大战和诺伊尔都救不回德国队<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md
+- 2026-06-30 09:30 - 超神人辉夜姬 第二集<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md
+- 2026-06-30 09:03 - 巴拉圭先进球了<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md
+- 2026-06-30 09:14 - 好像看到了人类带孩子崩溃的样子<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md
+- 2026-06-30 09:10 - 马航370搜寻最新消息<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md
+- 2026-06-30 09:02 - 这一刀 会很帅<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md
+- 2026-06-30 09:01 - 如何评价DeepSeek 提出的 DSpark 推理加速方案？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:01 - 一见倾心<br><br> | ??:http://www.blog.minike.top/Article/details/386628.shtml
-- 2026-06-30 09:16 - 巴拉圭点球大战淘汰德国进16强<br><br> | ??:https://www.share.kurohicncr.top/Article/details/9045410.shtml
-- 2026-06-30 08:55 - 法媒点赞中国小区楼顶“人工降雨”<br><br> | ??:http://www.share.kurohicncr.top/Article/details/4381066.shtml
-- 2026-06-30 09:12 - 男子中医院拔火罐致浅2度烧伤<br><br> | ??:http://www.share.kurohicncr.top/Article/details/1913901.shtml
-- 2026-06-30 08:55 - 德国巴拉圭进入点球大战<br><br> | ??:http://www.share.minike.top/Article/details/147679792.shtml
-- 2026-06-30 09:23 - 老外对中国cosplay竟这样评价…<br><br> | ??:http://www.blog.minike.top/Article/details/16557412465.shtml
-- 2026-06-30 09:19 - 未来五年，教育强国这样建设<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/142786936396.shtml
-- 2026-06-30 09:10 - 2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？<br><br> | ??:https://www.share.minike.top/Article/details/304592292.shtml
-- 2026-06-30 08:54 - 深扒韩国队淘汰背后原因<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/59674903100.shtml
-- 2026-06-30 09:12 - 点球大战<br><br> | ??:https://www.share.minike.top/Article/details/4757149.shtml
-- 2026-06-30 08:58 - 欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？<br><br> | ??:https://www.blog.minike.top/Article/details/646582413126.shtml
-- 2026-06-30 09:21 - 杨紫学位证上就是杨紫<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/0780219.shtml
-- 2026-06-30 09:23 - 蜘蛛侠:平行宇宙<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/33059950802.shtml
-- 2026-06-30 09:14 - 古代时期普通老百姓能喝上酒吗？<br><br> | ??:https://www.blog.minike.top/Article/details/573358757995.shtml
-- 2026-06-30 08:57 - 啊啊啊<br><br> | ??:https://www.share.minike.top/Article/details/20710.shtml
+- 2026-06-30 09:17 - 周生如故<br><br> | ??:http://www.share.kurohicncr.top/Article/details/758399691808.shtml
+- 2026-06-30 09:20 - 如何看待武亮说大学生生活费1500就够用这一言论？<br><br> | ??:http://www.blog.minike.top/Article/details/88995106.shtml
+- 2026-06-30 09:22 - 荷兰VS摩洛哥<br><br> | ??:https://www.share.minike.top/Article/details/10735708.shtml
+- 2026-06-30 09:02 - 「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/11160.shtml
+- 2026-06-30 09:24 - 高质量发展看新疆<br><br> | ??:http://www.blog.minike.top/Article/details/398438.shtml
+- 2026-06-30 09:21 - 董卿父亲在报纸上发文悼念亡妻<br><br> | ??:https://www.share.minike.top/Article/details/44267393.shtml
+- 2026-06-30 09:27 - 咕嘎万能小摊1：沉浸式制作惠灵顿牛排<br><br> | ??:https://www.blog.minike.top/Article/details/82893.shtml
+- 2026-06-30 09:08 - 萨内 看笑了<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/9439418307.shtml
+- 2026-06-30 09:23 - 女子发现孩子非现任亲生状告前任索赔<br><br> | ??:http://www.share.kurohicncr.top/Article/details/18574782.shtml
+- 2026-06-30 09:12 - 日本博主：日本足球真的垃圾<br><br> | ??:https://www.blog.minike.top/Article/details/14313.shtml
+- 2026-06-30 09:14 - 如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？<br><br> | ??:https://www.share.minike.top/Article/details/323050750.shtml
+- 2026-06-30 09:21 - 本科毕业生为何涌入专科学校<br><br> | ??:http://www.share.minike.top/Article/details/71839616.shtml
+- 2026-06-30 09:18 - 考入南大计算机，复读考清北值吗？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/737668.shtml
+- 2026-06-30 09:29 - 【硬核拆解】汽车人到底离我们有多远？<br><br> | ??:https://www.blog.minike.top/Article/details/76990270.shtml
+- 2026-06-30 09:24 - 英语考了145的人竟然教数学<br><br> | ??:https://www.blog.minike.top/Article/details/915833.shtml

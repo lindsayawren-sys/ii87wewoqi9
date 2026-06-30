@@ -1,56 +1,60 @@
-# 南方两轮强降雨“无缝衔接”，这些灾害前兆学会识别
+# 牢记初心使命 奋进复兴征程丨绿色从柯柯牙萌发，铺展天山南北
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-6月中旬起，南方进入降水集中期，江南南部至华南地区强降雨持续，面临今年“龙舟水”最强降雨过程的挑战。接下来，又将面临“七下八上”防汛关键期。那么，哪些地区需重点防范？公众如何做好避险？ 两轮强降雨落区高度重叠，致灾可能性加大 长江中下游及珠江流域进入防汛关键期。广西柳江已发生2026年主要江河第1号洪水，这是今年主要江河首次编号洪水。18日至22日、22日至26日的两场降雨几乎
+从阿克苏地区柯柯牙纪念馆的瞭望塔上望去，托木尔峰下，百万亩林海郁郁葱葱，绵延至天际。谁能想到，40年前，这里黄沙蔽日、寸草不生。 柯柯牙是阿克苏地区风沙危害的主要策源地，风沙肆虐严重影响了当地的生产生活。40年里，数代人接力，硬是在茫茫黄沙间筑起一道“绿色长城”，创造了绿色奇迹。 风沙逼城：打响生存之战 20世纪80年代，柯柯牙年降水量仅为60毫米左右，蒸发量却高达2600毫米
 
 ## 正文
 
-6月中旬起，南方进入降水集中期，江南南部至华南地区强降雨持续，面临今年“龙舟水”最强降雨过程的挑战。
+从阿克苏地区柯柯牙纪念馆的瞭望塔上望去，托木尔峰下，百万亩林海郁郁葱葱，绵延至天际。
 
-接下来，又将面临“七下八上”防汛关键期。
+谁能想到，40年前，这里黄沙蔽日、寸草不生。
 
-那么，哪些地区需重点防范？
+柯柯牙是阿克苏地区风沙危害的主要策源地，风沙肆虐严重影响了当地的生产生活。
 
-公众如何做好避险？
+40年里，数代人接力，硬是在茫茫黄沙间筑起一道“绿色长城”，创造了绿色奇迹。
 
-两轮强降雨落区高度重叠，致灾可能性加大 长江中下游及珠江流域进入防汛关键期。
+风沙逼城：打响生存之战 20世纪80年代，柯柯牙年降水量仅为60毫米左右，蒸发量却高达2600毫米。
 
-广西柳江已发生2026年主要江河第1号洪水，这是今年主要江河首次编号洪水。
+阿克苏市和温宿县被沙漠戈壁包围，更为棘手的，是沙漠距城市最近处只有6公里，并且以每年5米的速度逼近城市。
 
-18日至22日、22日至26日的两场降雨几乎无缝衔接，降雨落区在珠江流域西江上中游、长江中下游干流及洞庭湖、鄱阳湖流域北部等地高度重叠。
+当地群众一年中有近100天要在黄沙弥漫中度过。
 
-受其影响，西江干流及支流柳江、桂江，长江中下游干流及洞庭湖水系、鄱阳湖水系等多条河流，将出现明显涨水过程。
+生活在沙区周边的村民回忆：“风一来，天就黑了，房子里的灯要点一整天。
 
 ## 相关推荐
 
-- 2026-06-30 08:54 - 李在明向韩国两大财阀90度鞠躬<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md
-- 2026-06-30 09:04 - 挪威国家队紧急从本土订购大批海鲜<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md
-- 2026-06-30 09:15 - 城市规划有可能成为「屎山代码」吗？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md
-- 2026-06-30 09:10 - 啊啊啊<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md
-- 2026-06-30 09:18 - 恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md
-- 2026-06-30 09:20 - 全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md
-- 2026-06-30 09:13 - 被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md
-- 2026-06-30 08:58 - 商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md
-- 2026-06-30 09:07 - 日本16强魔咒<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md
-- 2026-06-30 09:14 - 泰山景区回应修建刀片刺绳隔离网<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md
+- 2026-06-30 09:24 - 可以细成这样？1600万预算，颠覆我认知的改造！<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md
+- 2026-06-30 09:12 - 高质量发展看新疆<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md
+- 2026-06-30 09:16 - 德国巴拉圭 折磨<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md
+- 2026-06-30 09:07 - 【硬核拆解】汽车人到底离我们有多远？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md
+- 2026-06-30 09:03 - 金鹰奖视后提名预测<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md
+- 2026-06-30 09:14 - 法总统候选人：拒绝与中国激烈对抗<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md
+- 2026-06-30 09:13 - 国务院：稳步推进研究生考试招生改革<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md
+- 2026-06-30 09:25 - 男子造谣东鹏老板不喝自家饮料被拘<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md
+- 2026-06-30 09:17 - 第3集丨“柠檬茶能换怀表？”<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md
+- 2026-06-30 09:27 - 恐怖世界 第三集 埃温霍姆村<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md
+- 2026-06-30 09:16 - 卡塞米罗头球破门<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md
+- 2026-06-30 09:08 - 张月收到黄灿灿辣货两眼发光<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md
+- 2026-06-30 09:16 - 花少8要去世界杯举办国<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md
+- 2026-06-30 09:15 - 考入南大计算机，复读考清北值吗？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:20 - 欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？<br><br> | ??:http://www.blog.minike.top/Article/details/7126001291.shtml
-- 2026-06-30 08:55 - 韩国球迷凌晨4点接机怒骂主教练<br><br> | ??:https://www.share.minike.top/Article/details/416685170485.shtml
-- 2026-06-30 08:54 - 我觉得你是在无中生友<br><br> | ??:https://www.share.minike.top/Article/details/41131686179.shtml
-- 2026-06-30 09:11 - 王源近几年没有路演了<br><br> | ??:https://www.blog.minike.top/Article/details/246843350633.shtml
-- 2026-06-30 09:22 - 勇敢的心第二部<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/690212054480.shtml
-- 2026-06-30 08:59 - 佐野海舟远射破门<br><br> | ??:https://www.blog.minike.top/Article/details/050526.shtml
-- 2026-06-30 09:20 - 起风了<br><br> | ??:http://www.share.minike.top/Article/details/670794224.shtml
-- 2026-06-30 09:14 - 爆冷出局！德国点球大战不敌巴拉圭<br><br> | ??:http://www.share.minike.top/Article/details/805048.shtml
-- 2026-06-30 09:12 - 有什么好的高中网课推荐吗？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/377351.shtml
-- 2026-06-30 09:08 - 未来的飞机可能会用电吗？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/4296929850.shtml
-- 2026-06-30 09:04 - 要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/2379114.shtml
-- 2026-06-30 09:09 - 全新问界M9现身美国街头<br><br> | ??:http://www.share.minike.top/Article/details/0113603712.shtml
-- 2026-06-30 09:07 - 德国巴拉圭进入点球大战<br><br> | ??:https://www.share.kurohicncr.top/Article/details/513227597.shtml
-- 2026-06-30 09:01 - 女子遭下药退赔偿拟追刑责<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/065429644.shtml
-- 2026-06-30 09:18 - 齐思钧回复张月<br><br> | ??:http://www.share.minike.top/Article/details/391297243.shtml
+- 2026-06-30 09:18 - 萨内 看笑了<br><br> | ??:http://www.share.minike.top/Article/details/1268980.shtml
+- 2026-06-30 09:04 - 德国罚丢3粒点球<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/9952388.shtml
+- 2026-06-30 09:23 - 四川宜宾地震瞬间鱼群乱跳<br><br> | ??:https://www.share.minike.top/Article/details/092247.shtml
+- 2026-06-30 09:02 - 王楚钦孙颖莎晋级混双八强<br><br> | ??:https://www.share.kurohicncr.top/Article/details/8268761.shtml
+- 2026-06-30 09:27 - 为什么香港的冲厕水是咸的？<br><br> | ??:http://www.blog.minike.top/Article/details/35889515311.shtml
+- 2026-06-30 09:06 - 《共患难》<br><br> | ??:http://www.share.kurohicncr.top/Article/details/587403.shtml
+- 2026-06-30 09:08 - 披荆斩棘的哥哥<br><br> | ??:https://www.share.minike.top/Article/details/63909296.shtml
+- 2026-06-30 09:23 - 女子遭下药退赔偿拟追刑责<br><br> | ??:http://www.share.kurohicncr.top/Article/details/0792945.shtml
+- 2026-06-30 09:06 - 有什么好的高中网课推荐吗？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/5088160027.shtml
+- 2026-06-30 09:20 - 2026年WTT美国大满贯，国乒自带球桌是真实的吗？<br><br> | ??:http://www.share.minike.top/Article/details/5754401.shtml
+- 2026-06-30 09:27 - 城市规划有可能成为「屎山代码」吗？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/3760481.shtml
+- 2026-06-30 09:25 - 内马尔安慰日本球员<br><br> | ??:https://www.share.kurohicncr.top/Article/details/0850829214.shtml
+- 2026-06-30 09:11 - 【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸<br><br> | ??:http://www.share.minike.top/Article/details/9327231.shtml
+- 2026-06-30 09:29 - 曝娱乐圈大部分明星失业<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/952521.shtml
+- 2026-06-30 09:10 - HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/760803118966.shtml

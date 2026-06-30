@@ -1,47 +1,56 @@
-# 贝森特称如果301关税推进 关税收入只会略有下降
+# 全城皆是舞台 2026南京艺术节打造全民共享文化空间
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-美国财政部长斯科特·贝森特表示，假设301调查得以推进，2026财年关税收入预期将仅出现微不足道的下降。 贝森特在接受采访时作出上述表示。责任编辑：江学思
+中新网南京6月20日电(记者 泱波)19日晚，2026南京艺术节闭幕式暨大众文化“创享”项目发布活动在南京保利大剧院举办，南京市越剧团建团70周年新创大戏《虎踞龙盘》作为闭幕剧目精彩上演。 为期一个月的2026南京艺术节以“文化赋能城市，艺术融入生活”为主题，设置七大板块、百余场活动，打通专业剧场与城市街巷边界，推动艺术从殿堂走向百姓生活。活动期间引进6部国内外高水平剧目，推出
 
 ## 正文
 
-美国财政部长斯科特·贝森特表示，假设301调查得以推进，2026财年关税收入预期将仅出现微不足道的下降。
+中新网南京6月20日电(记者 泱波)19日晚，2026南京艺术节闭幕式暨大众文化“创享”项目发布活动在南京保利大剧院举办，南京市越剧团建团70周年新创大戏《虎踞龙盘》作为闭幕剧目精彩上演。
 
-贝森特在接受采访时作出上述表示。
+为期一个月的2026南京艺术节以“文化赋能城市，艺术融入生活”为主题，设置七大板块、百余场活动，打通专业剧场与城市街巷边界，推动艺术从殿堂走向百姓生活。
 
-责任编辑：江学思
+活动期间引进6部国内外高水平剧目，推出6部本土原创精品剧目，10所高校带来10部原创戏剧作品。
+
+10处城市地标落地沉浸式互动演出，带动商圈客流提升30%，发放万余张文旅消费券，实现以文促旅、以旅兴商。
+
+从紫金山麓、秦淮河畔到明城墙下、新街口商圈，南京整座城市变身开放式流动剧场，NPC实景演绎、街区即兴表演、街巷城市微展、高校博物馆联展、青少年导览体验等多元形式让市民从文艺看客变身参与者、共创者。
+
+艺术节升级“长江民乐汇”城市文化品牌，融合专业院团底蕴与国风乐团年轻化表达，兼顾传统文化底色与当代大众审美。
+
+依托南京50余所高校、众多校园戏剧社团的青年文艺资源，闭幕式发布三项举措，搭建人才、空间、内容一体化体系，构筑青年戏剧生态闭环。
+
+南京大学生戏剧联盟正式成立，统筹高校戏剧社团资源，实现人才系统化培育；打造新街口小剧场集聚区，整合商圈核心演艺空间，让戏剧融入日常消费场景；启动“剧·金陵”原创戏剧展演品牌，搭建全国剧目孵化平台，为创作者提供资金、场地、宣发全链条支持。
 
 ## 相关推荐
 
-- 2026-06-30 08:55 - 媒体：手机测评该挤挤水分了<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md
-- 2026-06-30 08:56 - 李准基参加文彩元婚礼<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md
-- 2026-06-30 08:57 - 毒液2<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md
-- 2026-06-30 08:58 - 欧洲装一台空调有多难<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md
-- 2026-06-30 09:07 - 王欣瑜连续4年晋级温网第二轮<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md
-- 2026-06-30 09:18 - 央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md
-- 2026-06-30 09:05 - 四川宜宾地震为何震感明显<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md
-- 2026-06-30 09:18 - 对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md
-- 2026-06-30 09:18 - 这几秒成世界杯最值钱广告位<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md
-- 2026-06-30 09:14 - 为什么小组赛出局会让韩国人破防<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md
-- 2026-06-30 09:11 - 领克900大型SUV值得购买吗?<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md
+- 2026-06-30 09:29 - 世界杯：荷兰vs摩洛哥<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md
+- 2026-06-30 09:04 - 如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md
+- 2026-06-30 09:18 - 杨紫被质疑未使用原名<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md
+- 2026-06-30 09:17 - 尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md
+- 2026-06-30 09:20 - 德国队连续三届世界杯无缘16强<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md
+- 2026-06-30 09:23 - 人可以极简主义到什么程度？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md
+- 2026-06-30 09:03 - 我们看到的星星是不是有些已经不存在了？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md
+- 2026-06-30 09:13 - 巴西替补奇兵读秒绝杀<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md
+- 2026-06-30 09:13 - 黄晓明晒和周杰伦的合照<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md
+- 2026-06-30 09:24 - 法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:17 - iPhoneUltra黑色机模<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/9530618567.shtml
-- 2026-06-30 09:23 - 韩国球迷凌晨4点接机怒骂主教练<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/599118831.shtml
-- 2026-06-30 08:59 - 全球最火存储ETF纳入兆易创新<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/4829458.shtml
-- 2026-06-30 09:16 - 法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/371612.shtml
-- 2026-06-30 09:14 - 锐评：网红不能困在无底线逐利里<br><br> | ??:https://www.blog.minike.top/Article/details/665090.shtml
-- 2026-06-30 09:17 - 上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶<br><br> | ??:http://www.share.kurohicncr.top/Article/details/58194.shtml
-- 2026-06-30 08:58 - 如果有二次元高中是什么样子的？<br><br> | ??:https://www.share.minike.top/Article/details/9985185.shtml
-- 2026-06-30 09:07 - 恋与深空已删除锅里洗澡文案<br><br> | ??:https://www.share.minike.top/Article/details/046900470283.shtml
-- 2026-06-30 09:13 - 王曼昱被突如其来的话筒逗笑了<br><br> | ??:http://www.share.kurohicncr.top/Article/details/204033264932.shtml
-- 2026-06-30 09:16 - 有什么好的高中网课推荐吗？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/74180575790.shtml
-- 2026-06-30 09:12 - 赵丽颖风吹半夏含金量还在上升<br><br> | ??:https://www.share.minike.top/Article/details/4457860491.shtml
-- 2026-06-30 09:23 - 佐野海舟远射破门<br><br> | ??:https://www.blog.minike.top/Article/details/76516826.shtml
-- 2026-06-30 09:09 - 蜘蛛侠:平行宇宙<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/16520059.shtml
-- 2026-06-30 09:01 - 木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/434236278.shtml
-- 2026-06-30 09:22 - 巴拉圭门将<br><br> | ??:https://www.blog.minike.top/Article/details/5008095843.shtml
+- 2026-06-30 09:07 - 速度与激情9<br><br> | ??:http://www.share.minike.top/Article/details/7956133.shtml
+- 2026-06-30 09:18 - 《恋与深空》被指触碰民族伤痛红线<br><br> | ??:http://www.blog.minike.top/Article/details/744476.shtml
+- 2026-06-30 09:29 - 把毒品藏在哪里，60秒内不会被发现？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/010343998139.shtml
+- 2026-06-30 09:09 - 杨紫大银幕成绩单<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/209735691.shtml
+- 2026-06-30 09:25 - 送你一朵小红花<br><br> | ??:https://www.share.minike.top/Article/details/48462317.shtml
+- 2026-06-30 09:29 - 韩国道歉完日本道歉<br><br> | ??:https://www.blog.minike.top/Article/details/65894462961.shtml
+- 2026-06-30 09:00 - 董路：谁赢谁是“正路子”<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/881463305.shtml
+- 2026-06-30 09:22 - 亚洲球队全部告别世界杯<br><br> | ??:http://www.share.kurohicncr.top/Article/details/64716.shtml
+- 2026-06-30 09:00 - 致敬！中国首批缉毒警已全体退休<br><br> | ??:http://www.share.kurohicncr.top/Article/details/25030203.shtml
+- 2026-06-30 09:06 - 网红不能困在无底线逐利里<br><br> | ??:http://www.blog.minike.top/Article/details/53240609185.shtml
+- 2026-06-30 09:25 - 要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/48100078.shtml
+- 2026-06-30 09:14 - 人民锐评网红诋毁袁隆平造谣企业家<br><br> | ??:http://www.share.kurohicncr.top/Article/details/10334294781.shtml
+- 2026-06-30 09:10 - 把毒品藏在哪里，60秒内不会被发现？<br><br> | ??:https://www.blog.minike.top/Article/details/34368.shtml
+- 2026-06-30 09:04 - 如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？<br><br> | ??:http://www.blog.minike.top/Article/details/81014.shtml
+- 2026-06-30 09:09 - 王濛回复黄灿灿<br><br> | ??:https://www.share.kurohicncr.top/Article/details/4061207.shtml

@@ -1,59 +1,45 @@
-# 特朗普过去24小时都忙了什么？（2026-06-24）
+# 伯纳姆赢得议会补选 或将挑战英首相职位
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：金十数据 1． 将出席世界杯决赛并颁奖——国际足联主席称，美国总特朗普将出席7月19日在新泽西纽约体育场举行的世界杯大决赛，并会向冠军球队颁发奖杯。 2． 称致力于与伊朗达成公平协议——特朗普表示，美国正致力于与伊朗达成一项公平的协议，以结束霍尔木兹海峡的冲突。他称，仅在前一天（6月22日），就有19
+当地时间6月19日，英国大曼彻斯特市长安迪·伯纳姆赢得马克菲尔德选区下院议员补选，将重返议会下院，从而具备参与工党党魁竞争、进而角逐首相职位的条件。
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
-
-来源：金十数据 1． 将出席世界杯决赛并颁奖——国际足联主席称，美国总特朗普将出席7月19日在新泽西纽约体育场举行的世界杯大决赛，并会向冠军球队颁发奖杯。
-
-2． 称致力于与伊朗达成公平协议——特朗普表示，美国正致力于与伊朗达成一项公平的协议，以结束霍尔木兹海峡的冲突。
-
-他称，仅在前一天（6月22日），就有1900万桶石油通过海峡。
-
-特朗普再次强调称“伊朗不能拥有核武器”。
-
-3． 炮轰参议院限制总统战争权力——特朗普发文称，他将伊朗逼至绝境并赢得尊重，但参议院却在不当时机通过《战争权力法》投票，向伊朗释放软弱信号，特朗普称该行为是给伊朗“送安慰”，让谈判更艰难。
-
-4． 指控石油公司“宰客”，下令司法部介入——特朗普发文称，大型石油公司在加油站的降价幅度，并未与它们所支付的、已大幅下降的石油价格同步。
-
-顾客正在被“宰割”。
+当地时间6月19日，英国大曼彻斯特市长安迪·伯纳姆赢得马克菲尔德选区下院议员补选，将重返议会下院，从而具备参与工党党魁竞争、进而角逐首相职位的条件。
 
 ## 相关推荐
 
-- 2026-06-30 08:59 - 老人卖菜获博主帮助后遇车祸去世<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md
-- 2026-06-30 09:13 - 一见倾心<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md
-- 2026-06-30 09:15 - 蔚来回应高压水枪洗车掉漆<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md
-- 2026-06-30 09:10 - 勇敢的心第二部<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md
-- 2026-06-30 08:57 - 覃予萱晋级WTT美国大满贯女单32强<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md
-- 2026-06-30 09:19 - 刘宇宁是去进货了吗<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md
-- 2026-06-30 09:10 - 世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md
-- 2026-06-30 08:57 - GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md
-- 2026-06-30 09:14 - 日本主帅赛后回应淘汰出局<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md
-- 2026-06-30 09:03 - 87克大金链到老庙黄金维修少了11克<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md
-- 2026-06-30 09:20 - 上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md
-- 2026-06-30 09:13 - 外国游客开始涌入中国农村<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md
-- 2026-06-30 09:07 - 孙颖莎王楚钦晋级8强<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md
+- 2026-06-30 09:20 - hanser X 赖美云《室内系的Track Maker》<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md
+- 2026-06-30 09:09 - 武磊：巴西队赢的并不轻松<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md
+- 2026-06-30 09:01 - 蜘蛛侠:英雄归来<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md
+- 2026-06-30 09:16 - 勇士续约波尔津吉斯<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md
+- 2026-06-30 09:18 - 【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md
+- 2026-06-30 09:17 - 国务院：探索延长义务教育年限<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md
+- 2026-06-30 09:21 - 法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md
+- 2026-06-30 09:12 - 尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md
+- 2026-06-30 09:01 - 道友？你来真的啊？【凡人官方二创大会】<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md
+- 2026-06-30 09:07 - 日本主帅赛后回应淘汰出局<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md
+- 2026-06-30 09:05 - 英语考了145的人竟然教数学<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md
+- 2026-06-30 09:10 - 警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md
+- 2026-06-30 09:04 - 武磊：日本队有能力跟任何强队抗衡<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:55 - 日本队5进世界杯淘汰赛0胜<br><br> | ??:https://www.share.minike.top/Article/details/57521793946.shtml
-- 2026-06-30 08:58 - 输球后日本球迷被强行披上巴西国旗<br><br> | ??:http://www.share.kurohicncr.top/Article/details/108121.shtml
-- 2026-06-30 09:18 - 宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/378673320.shtml
-- 2026-06-30 08:59 - 锐评T1战胜KC<br><br> | ??:http://www.blog.minike.top/Article/details/67450182.shtml
-- 2026-06-30 09:14 - “柠檬茶能换怀表？”<br><br> | ??:https://www.share.kurohicncr.top/Article/details/6414793.shtml
-- 2026-06-30 09:22 - 《贺子珍》<br><br> | ??:http://www.blog.minike.top/Article/details/860377124754.shtml
-- 2026-06-30 09:08 - 世界杯名画巴拉圭钢铁防线<br><br> | ??:http://www.share.kurohicncr.top/Article/details/6918757.shtml
-- 2026-06-30 08:54 - 佐野海舟远射破门<br><br> | ??:http://www.blog.minike.top/Article/details/36186.shtml
-- 2026-06-30 09:12 - 世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/32837458186.shtml
-- 2026-06-30 08:59 - 你人生中最艰难的时候是怎么熬过来的？<br><br> | ??:http://www.blog.minike.top/Article/details/98097671356.shtml
-- 2026-06-30 09:03 - 巴西2-1绝杀日本<br><br> | ??:http://www.blog.minike.top/Article/details/464231015.shtml
-- 2026-06-30 09:03 - 电子游戏中有哪些关于武器的“刻板印象”？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/7624805.shtml
-- 2026-06-30 09:22 - 俄乌双方伤亡近180万人<br><br> | ??:https://www.share.kurohicncr.top/Article/details/041425380793.shtml
-- 2026-06-30 09:14 - 女心理师<br><br> | ??:http://www.blog.minike.top/Article/details/063644884.shtml
-- 2026-06-30 09:02 - 为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/0304362191.shtml
+- 2026-06-30 09:11 - 不开心就去看三年前的购物订单<br><br> | ??:https://www.share.minike.top/Article/details/03772.shtml
+- 2026-06-30 09:04 - 又一家县级医院关停门诊输液大厅<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/8987263747.shtml
+- 2026-06-30 09:27 - 法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/5845744264.shtml
+- 2026-06-30 09:15 - 这一刀 会很帅<br><br> | ??:http://www.blog.minike.top/Article/details/57486760077.shtml
+- 2026-06-30 09:22 - 张月收到黄灿灿辣货两眼发光<br><br> | ??:https://www.blog.minike.top/Article/details/407558.shtml
+- 2026-06-30 09:06 - 恋与深空已删除锅里洗澡文案<br><br> | ??:http://www.share.kurohicncr.top/Article/details/146600.shtml
+- 2026-06-30 09:21 - 穆祉丞回应获年度人气艺人<br><br> | ??:http://www.share.kurohicncr.top/Article/details/27627606.shtml
+- 2026-06-30 09:06 - 老人卖菜获博主帮助后遇车祸去世<br><br> | ??:https://www.blog.minike.top/Article/details/7804850.shtml
+- 2026-06-30 09:25 - 日本队5进世界杯淘汰赛0胜<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/96604943.shtml
+- 2026-06-30 09:02 - 日本博主：日本足球真的垃圾<br><br> | ??:http://www.share.minike.top/Article/details/10204116.shtml
+- 2026-06-30 09:28 - 曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/074418235.shtml
+- 2026-06-30 09:19 - 荀彧和曹操反目成仇的根本原因是什么？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/07370171.shtml
+- 2026-06-30 09:09 - 委内瑞拉地震死亡人数升至1719人<br><br> | ??:http://www.share.minike.top/Article/details/761649.shtml
+- 2026-06-30 09:01 - 金鹰奖视后提名预测<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/730702279.shtml
+- 2026-06-30 09:17 - 欧盟分楼层开空调惹争议<br><br> | ??:http://www.share.kurohicncr.top/Article/details/8647923.shtml

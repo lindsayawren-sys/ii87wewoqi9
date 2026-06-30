@@ -1,56 +1,59 @@
-# 2026 年上半年聚丙烯市场复盘：中东地缘冲突强势扭转长期宽松下行格局
+# 包粽品茗编龙舟 悉尼谊园端午味正浓
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-卓创资讯聚丙烯分析师 宁晓琴 【导语】导语：2026年上半年国内聚丙烯市场打破近年来“供需宽松、价格持续寻底”的定价逻辑，走出罕见单边逆势大涨行情，截至6月18日，国内PP拉丝市场均价达9300元/吨，较年初涨幅超四成，中东地缘冲突带来的能源风险溢价、原料成本大幅上行、国内阶段性货源收紧叠加出口需求增量，多重因素共同主导上半年市场价格走势。 2026年上半年，国内聚丙烯市场迎来
+中新社悉尼6月21日电 (记者 薄雯雯)为庆祝中国传统端午佳节，“茶和天下——悉尼端午游园会”于20日至21日在澳大利亚悉尼谊园举行，吸引超2000名当地民众和游客参与。 谊园位于悉尼市中心，全称“中国友谊花园”(Chinese Garden of Friendship)。活动期间，古色古香的园林内粽香四溢、茶香袅袅，洋溢着浓厚的节日氛围。 本次活动由悉尼中国文化中心、中国驻悉
 
 ## 正文
 
-卓创资讯聚丙烯分析师 宁晓琴 【导语】导语：2026年上半年国内聚丙烯市场打破近年来“供需宽松、价格持续寻底”的定价逻辑，走出罕见单边逆势大涨行情，截至6月18日，国内PP拉丝市场均价达9300元/吨，较年初涨幅超四成，中东地缘冲突带来的能源风险溢价、原料成本大幅上行、国内阶段性货源收紧叠加出口需求增量，多重因素共同主导上半年市场价格走势。
+中新社悉尼6月21日电 (记者 薄雯雯)为庆祝中国传统端午佳节，“茶和天下——悉尼端午游园会”于20日至21日在澳大利亚悉尼谊园举行，吸引超2000名当地民众和游客参与。
 
-2026年上半年，国内聚丙烯市场迎来强势上涨。
+谊园位于悉尼市中心，全称“中国友谊花园”(Chinese Garden of Friendship)。
 
-截至18日国内PP拉丝均价9300元/吨，较年初上涨46.47%，较2月28日上涨41.98%。
+活动期间，古色古香的园林内粽香四溢、茶香袅袅，洋溢着浓厚的节日氛围。
 
-行情呈现阶梯式上行节奏，其中3月中上旬迎来快速拉涨，单月涨幅达到37.64%，4月、5月延续偏强走势，涨幅分别为9.54%、4.6%，6月上旬价格延续高位运行，中旬在地缘溢价回落、淡季需求弱势影响下才结束偏强走势。
+本次活动由悉尼中国文化中心、中国驻悉尼旅游办事处与天津市文化和旅游局共同主办。
 
-本轮聚丙烯价格上行由成本、供给、需求三端阶段性共振驱动，各维度利好逻辑先后兑现，共同托举行情稳步走强。
+包粽子、品香茗、竹编龙舟等互动体验区前人头攒动，天津端午特色“老虎耷拉”布艺制作、天津茉莉花茶拼配工艺等非遗项目也备受欢迎。
 
-成本端：全工艺成本刚性抬升，构筑上半年价格核心支撑 受中东地缘冲突持续发酵影响，原油、丙烷、丙烯、甲醇原料价格同步大幅拉涨，四条工艺成本曲线同步陡峭上行。
+来自中国广州的刘丽君与法国籍丈夫在悉尼定居近十年。
 
-其中国内油制PP产能占比超50%，布伦特原油自2025年末59美元/桶左右最高涨至118.35美元/桶，涨幅超100%，全产业链生产成本同步上移；PDH制成本涨幅最为显著，年内峰值突破11000元/吨，甲醇制与外采丙烯制成本也同步冲高。
+得知谊园举办端午活动，她专程带着11岁的儿子刘皓俊(Clement)前来体验。
 
-成本端全面刚性支撑成为上半年聚丙烯价格初期上涨的核心逻辑，并持续锁定行情底部、托举4-5月份PP市场高价区间。
+“他只会说一点中文，但一直对中国文化很感兴趣。
 
 ## 相关推荐
 
-- 2026-06-30 09:22 - 老人卖菜获博主帮助后遇车祸去世<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md
-- 2026-06-30 09:13 - 失明的我带老妈去了趟“火星”<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md
-- 2026-06-30 08:56 - 已经看完《三国第一部：争洛阳》的人，如何评价这部电影？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md
-- 2026-06-30 09:23 - 教育部披露：高考生篡改7名同学志愿<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md
-- 2026-06-30 08:59 - 王健林甩卖超80座万达广场<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md
-- 2026-06-30 09:17 - 左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md
-- 2026-06-30 09:21 - 董卿父亲报纸上发文悼念亡妻<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md
-- 2026-06-30 08:59 - 毒液2<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md
-- 2026-06-30 08:57 - 内马尔替补<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md
-- 2026-06-30 09:17 - 第3集丨“柠檬茶能换怀表？”<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md
+- 2026-06-30 09:09 - 有哪些值得一提的生活窍门？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md
+- 2026-06-30 09:28 - 7月1日起 一批新规即将落地<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md
+- 2026-06-30 09:06 - 马杜罗账号在纽约发文致谢各国援助<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md
+- 2026-06-30 09:07 - 《恋与深空》被指触碰民族伤痛红线<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md
+- 2026-06-30 09:18 - 荀彧和曹操反目成仇的根本原因是什么？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md
+- 2026-06-30 09:18 - 如何改变自己太负责任的性格?<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md
+- 2026-06-30 09:06 - 巴拉圭先进球了<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md
+- 2026-06-30 09:29 - “以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md
+- 2026-06-30 09:14 - 7月1日起 一批新规即将落地<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md
+- 2026-06-30 09:03 - 挪威国家队紧急从本土订购大批海鲜<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md
+- 2026-06-30 09:13 - 我把队友的7连跪剪成了艺术<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md
+- 2026-06-30 09:20 - 【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md
+- 2026-06-30 09:17 - 国务院：稳步推进研究生考试招生改革<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:20 - 穆祉丞回应获年度人气艺人<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/88450429980.shtml
-- 2026-06-30 09:13 - 欧洲装一台空调有多难<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/48121405.shtml
-- 2026-06-30 09:17 - 巴西足球能否再现昔日荣光<br><br> | ??:https://www.blog.minike.top/Article/details/148072.shtml
-- 2026-06-30 08:54 - 送你一朵小红花<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/66556203826.shtml
-- 2026-06-30 08:55 - “以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》<br><br> | ??:https://www.share.kurohicncr.top/Article/details/12644631726.shtml
-- 2026-06-30 09:21 - 日本16强魔咒<br><br> | ??:https://www.share.kurohicncr.top/Article/details/530685.shtml
-- 2026-06-30 08:59 - 李在明90度鞠躬感谢韩国两大财阀<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/3478381242.shtml
-- 2026-06-30 09:20 - 泰山建135公里刀片刺绳隔离网<br><br> | ??:http://www.share.kurohicncr.top/Article/details/465223580.shtml
-- 2026-06-30 09:09 - 怕iPhone涨价的用户已紧急换新<br><br> | ??:https://www.share.kurohicncr.top/Article/details/0644463.shtml
-- 2026-06-30 09:09 - 电子游戏中有哪些关于武器的“刻板印象”？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/2330024510.shtml
-- 2026-06-30 09:13 - 安切洛蒂 换人<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/666228885.shtml
-- 2026-06-30 09:22 - 马航MH370传来最新消息<br><br> | ??:http://www.share.kurohicncr.top/Article/details/9747658.shtml
-- 2026-06-30 09:00 - 檀健次王楚然吻戏看热了<br><br> | ??:http://www.blog.minike.top/Article/details/170597447469.shtml
-- 2026-06-30 09:03 - 为什么小组赛出局会让韩国人破防<br><br> | ??:http://www.blog.minike.top/Article/details/390647362181.shtml
-- 2026-06-30 09:23 - 2026年WTT美国大满贯，国乒自带球桌是真实的吗？<br><br> | ??:http://www.blog.minike.top/Article/details/5207359767.shtml
+- 2026-06-30 09:17 - 德国爆冷点球大战不敌巴拉圭<br><br> | ??:http://www.share.minike.top/Article/details/4925681.shtml
+- 2026-06-30 09:09 - 千与千寻<br><br> | ??:https://www.blog.minike.top/Article/details/702376356.shtml
+- 2026-06-30 09:18 - 曝老詹对自由市场态度与以往截然不同<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/690239.shtml
+- 2026-06-30 09:10 - 千万不要随便扣肚脐<br><br> | ??:http://www.blog.minike.top/Article/details/803332592160.shtml
+- 2026-06-30 09:08 - 我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎<br><br> | ??:http://www.share.minike.top/Article/details/0334799025.shtml
+- 2026-06-30 09:27 - 欧盟分楼层开空调惹争议<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/5914112245.shtml
+- 2026-06-30 09:19 - 恋与深空回应争议<br><br> | ??:https://www.share.kurohicncr.top/Article/details/24354573.shtml
+- 2026-06-30 09:22 - 《共患难》<br><br> | ??:https://www.share.kurohicncr.top/Article/details/85693954899.shtml
+- 2026-06-30 09:19 - 极限挑战第一季<br><br> | ??:https://www.share.minike.top/Article/details/441028624.shtml
+- 2026-06-30 09:18 - 发明linux、python、redis、nginx、sqlite的人算不算天才？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/46925814.shtml
+- 2026-06-30 09:05 - 有哪些值得一提的生活窍门？<br><br> | ??:http://www.blog.minike.top/Article/details/666335925.shtml
+- 2026-06-30 09:04 - 感动全网的699分女生想报考清华<br><br> | ??:http://www.share.minike.top/Article/details/67116719.shtml
+- 2026-06-30 09:10 - 金牌调解<br><br> | ??:https://www.share.minike.top/Article/details/5068122.shtml
+- 2026-06-30 09:26 - 本届世界杯已有5名球员被控强奸<br><br> | ??:http://www.share.minike.top/Article/details/649806801731.shtml
+- 2026-06-30 09:20 - 人类...完蛋了...<br><br> | ??:https://www.share.kurohicncr.top/Article/details/7320357.shtml

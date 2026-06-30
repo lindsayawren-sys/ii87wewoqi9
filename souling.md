@@ -1,59 +1,58 @@
-# 光大期货：6月24日有色金属日报
+# “以茶会友”共度端午 “茶和天下·雅集”活动亮相布鲁塞尔
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-铜： （展大鹏，从业资格号：F3013795；交易咨询资格号：Z0013582） 隔夜内外铜价震荡偏弱，国内精炼铜现货进口小幅盈利。宏观方面，美国6月综合PMI初值升至52.2，高于前值51.5和预期值52.1，创五个月新高，其中美国6月制造业和服务业PMI初值均高于预期和前值，显示美国商业活动继续保持扩张。地缘政治方面，特朗普称因伊朗让步同意保持霍尔木兹海峡开放，并宣称伊朗接
+中新网布鲁塞尔6月20日电 (记者 德永健)在端午佳节到来之际，2026“茶和天下·雅集”欧洲推广活动19日亮相布鲁塞尔，“以茶会友”并与比利时民众共度端午。 当日推广活动在布鲁塞尔中国文化中心举行，当地各界友好人士等150余人出席。现场围绕茶道、茶礼、茶艺等中国茶文化体系，举行茶艺表演并展示中国名茶和传统茶器，带领观众感受中国茶文化的深厚底蕴。 活动还穿插专题讲座，解读中国茶
 
 ## 正文
 
-铜： （展大鹏，从业资格号：F3013795；交易咨询资格号：Z0013582） 隔夜内外铜价震荡偏弱，国内精炼铜现货进口小幅盈利。
+中新网布鲁塞尔6月20日电 (记者 德永健)在端午佳节到来之际，2026“茶和天下·雅集”欧洲推广活动19日亮相布鲁塞尔，“以茶会友”并与比利时民众共度端午。
 
-宏观方面，美国6月综合PMI初值升至52.2，高于前值51.5和预期值52.1，创五个月新高，其中美国6月制造业和服务业PMI初值均高于预期和前值，显示美国商业活动继续保持扩张。
+当日推广活动在布鲁塞尔中国文化中心举行，当地各界友好人士等150余人出席。
 
-地缘政治方面，特朗普称因伊朗让步同意保持霍尔木兹海峡开放，并宣称伊朗接受“最高级别”核查，这也意味着中东地缘依然朝着缓和方向演进，持续关注霍尔木兹海峡通航问题。
+现场围绕茶道、茶礼、茶艺等中国茶文化体系，举行茶艺表演并展示中国名茶和传统茶器，带领观众感受中国茶文化的深厚底蕴。
 
-需求方面，淡季渐临下游补库意愿偏弱。
+活动还穿插专题讲座，解读中国茶文化背后的历史脉络、贸易路线与文化内涵，其间祁门红茶制作技艺项目的非遗代表性传承人登台亮相，演示祁门红茶制作过程中的分筛技艺。
 
-随着海外金融市场大幅动荡，铜价维系弱势震荡行情，此前讲到美联储鹰派预期奠定了未来一两个月的利率和流动性的主基调，美伊停战倾向推动海外硫磺短缺担忧缓解，但霍尔木兹海峡通航本身也意味着全球经济将继续走向修复，加之近期LME和国内社会库存快速去化，铜走势也并未彻底转向，多空在窄幅区间内维系弱平衡，等待后续宏观或基本面影响因子进一步发酵推动。
+中国驻比利时使馆文化参赞张庆华、布鲁塞尔大区议会议员拉蒂法·艾特巴拉等嘉宾先后致辞。
 
-另外，Comex与LME价差收窄，贸易商囤货驱动下降，静待6月30日美国铜关税决议。
+张庆华表示，“茶和天下·雅集”活动核心理念在于一个“和”字。
 
-镍&不锈钢： （朱希，从业资格号：F03109968；交易咨询资格号：Z0021609） 隔夜LME镍跌2.71%报17230美元/吨，沪镍跌2.21%报131230元/吨。
+中国传统哲学讲求“和而不同”，体现了对待世界文明多样性的态度：尊重差异，包容互鉴，在交流中寻求共识，在互鉴中共同前行。
 
-库存方面，LME库存减少54至276138吨，SHFE 仓单增加499吨至94768吨。
+拉蒂法·艾特巴拉表示，茶不仅是一种饮品，也是中华文明的重要载体。
 
 ## 相关推荐
 
-- 2026-06-30 08:57 - 董卿父亲报纸上发文悼念亡妻<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md
-- 2026-06-30 09:00 - 我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md
-- 2026-06-30 09:01 - 请回答王牌2019<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md
-- 2026-06-30 09:13 - 古代人对纳妾的态度是什么样的？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md
-- 2026-06-30 08:59 - 欧洲装一台空调有多难<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md
-- 2026-06-30 09:02 - 巴西足球能否再现昔日荣光<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md
-- 2026-06-30 09:21 - 天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md
-- 2026-06-30 09:20 - 中国对日本再出重拳<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md
-- 2026-06-30 09:14 - 中国猪圈装空调让欧洲网友破防<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md
-- 2026-06-30 09:23 - 日本将帅赛后采访纷纷哽咽落泪<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md
-- 2026-06-30 09:12 - 杨紫肖战余生请多指教拍立得<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md
-- 2026-06-30 09:19 - “错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md
-- 2026-06-30 09:06 - 终于把好哥们处成了情侣!<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md
+- 2026-06-30 09:06 - 巴拉圭点球大战淘汰德国进16强<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md
+- 2026-06-30 09:04 - 媒体评泰山建135公里刀片刺绳隔离网<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md
+- 2026-06-30 09:27 - 女子遭下药退赔偿拟追刑责<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md
+- 2026-06-30 09:11 - 巴西2比1日本<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md
+- 2026-06-30 09:11 - 啊啊啊<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md
+- 2026-06-30 09:16 - 急先锋<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md
+- 2026-06-30 09:27 - 租房时你会更看重「住得舒服」，还是「每天通勤更方便」？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md
+- 2026-06-30 09:08 - 媒体评泰山建135公里刀片刺绳隔离网<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md
+- 2026-06-30 09:25 - 首届《哈基米歌王争霸赛》总决赛<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md
+- 2026-06-30 09:03 - 勇敢的心第二部<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md
+- 2026-06-30 09:19 - 男生180+，有腹肌是什么体验？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md
+- 2026-06-30 09:16 - 快递到家不能这样拆<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:18 - 女子用家人生日买彩票中1032万<br><br> | ??:http://www.share.kurohicncr.top/Article/details/46889.shtml
-- 2026-06-30 08:54 - 可以细成这样？1600万预算，颠覆我认知的改造！<br><br> | ??:https://www.share.minike.top/Article/details/01815877426.shtml
-- 2026-06-30 09:03 - 国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/248635530.shtml
-- 2026-06-30 09:21 - 湖北云南的这些涉汛信息都是假的<br><br> | ??:https://www.share.kurohicncr.top/Article/details/383389.shtml
-- 2026-06-30 09:03 - 巴拉圭点球大战淘汰德国进16强<br><br> | ??:https://www.blog.minike.top/Article/details/563080816016.shtml
-- 2026-06-30 09:22 - FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？<br><br> | ??:http://www.blog.minike.top/Article/details/699158946.shtml
-- 2026-06-30 09:07 - 《名肘探科比》：科比大战裂口女<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/82470735748.shtml
-- 2026-06-30 09:15 - “草莓月亮”浪漫现身<br><br> | ??:https://www.share.minike.top/Article/details/570429227.shtml
-- 2026-06-30 08:57 - 宜宾地震食客避难后折返 无人逃单<br><br> | ??:http://www.blog.minike.top/Article/details/03240197.shtml
-- 2026-06-30 09:07 - 杨紫肖战余生请多指教拍立得<br><br> | ??:http://www.blog.minike.top/Article/details/897237884.shtml
-- 2026-06-30 09:17 - 领克07GT搭载超跑同源MRC悬架<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/723878238686.shtml
-- 2026-06-30 09:13 - 男子造谣东鹏老板不喝自家饮料被拘<br><br> | ??:https://www.blog.minike.top/Article/details/642007.shtml
-- 2026-06-30 09:00 - 一见倾心<br><br> | ??:http://www.share.minike.top/Article/details/8130455686.shtml
-- 2026-06-30 09:20 - 披荆斩棘的哥哥<br><br> | ??:http://www.blog.minike.top/Article/details/698527615503.shtml
-- 2026-06-30 09:18 - 宜宾地震食客避难后折返 无人逃单<br><br> | ??:https://www.share.minike.top/Article/details/07899606.shtml
+- 2026-06-30 09:02 - 勇敢的心第二部<br><br> | ??:https://www.share.minike.top/Article/details/523586380.shtml
+- 2026-06-30 09:26 - 送你一朵小红花<br><br> | ??:https://www.blog.minike.top/Article/details/173062664.shtml
+- 2026-06-30 09:08 - 为什么很多企业推行“扁平化管理”后，效率反而下降了？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/03088571742.shtml
+- 2026-06-30 09:25 - 古代时期普通老百姓能喝上酒吗？<br><br> | ??:https://www.blog.minike.top/Article/details/356770685.shtml
+- 2026-06-30 09:05 - 董卿父亲报纸上发文悼念亡妻<br><br> | ??:http://www.share.minike.top/Article/details/212209276445.shtml
+- 2026-06-30 09:16 - 我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？<br><br> | ??:http://www.blog.minike.top/Article/details/02152219.shtml
+- 2026-06-30 09:21 - 董卿母亲癌症去世<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/191125.shtml
+- 2026-06-30 09:05 - 梅德韦杰夫列举俄罗斯面临的七大挑战<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/33747834.shtml
+- 2026-06-30 09:19 - 詹姆斯 勇士<br><br> | ??:http://www.share.minike.top/Article/details/48378618.shtml
+- 2026-06-30 09:22 - 这几秒成世界杯最值钱广告位<br><br> | ??:http://www.share.kurohicncr.top/Article/details/96147.shtml
+- 2026-06-30 09:22 - 高考填志愿父亲和女儿产生分歧<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/01914894.shtml
+- 2026-06-30 09:18 - 黄晓明晒和周杰伦的合照<br><br> | ??:http://www.share.minike.top/Article/details/899356642.shtml
+- 2026-06-30 09:19 - 健全中小学教师工资长效联动机制<br><br> | ??:http://www.share.minike.top/Article/details/7911644915.shtml
+- 2026-06-30 09:27 - 收到补税提醒尽快办理 明起有滞纳金<br><br> | ??:http://www.share.minike.top/Article/details/0834762.shtml
+- 2026-06-30 09:15 - 首届《哈基米歌王争霸赛》总决赛<br><br> | ??:http://www.share.minike.top/Article/details/3748293776.shtml

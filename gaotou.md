@@ -1,59 +1,56 @@
-# 广州专项整治“幽灵外卖” 下线餐饮外卖1850家
+# 华文作家戴小华携力作北京分享两岸故事
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-中新网广州6月24日电 (记者 许青青)据广州市市场监管局23日召开的治理网络餐饮食品安全问题专项整治现场会消息，今年上半年，广州市市场监管局持续加大网络餐饮日常监管力度，常态化开展线上动态监测和线下排查治理，聚焦“幽灵外卖”等突出问题开展专项整治，共下线入网餐饮服务提供者1850家，立案查处498宗。针对无资质、无固定场所的不法经营者，通过资质造假、套用许可、地址虚构等手段，
+中新社北京6月19日电 (张杨彬 姜姿屹)马来西亚华文作家戴小华19日在北京举办分享会，就其纪实作品《忽如归》与散文新作《情随心旅踏歌行》，与读者分享作品创作经历和两岸故事。 2017年，《忽如归》即已在中国大陆文学界引起关注。 戴小华祖籍河北沧州，生于台湾，定居马来西亚吉隆坡。她说，因三地都有亲人，对“家”的理解更为深刻。“家不是地域的概念，它属于精神范畴。”她认为，中华文化
 
 ## 正文
 
-中新网广州6月24日电 (记者 许青青)据广州市市场监管局23日召开的治理网络餐饮食品安全问题专项整治现场会消息，今年上半年，广州市市场监管局持续加大网络餐饮日常监管力度，常态化开展线上动态监测和线下排查治理，聚焦“幽灵外卖”等突出问题开展专项整治，共下线入网餐饮服务提供者1850家，立案查处498宗。
+中新社北京6月19日电 (张杨彬 姜姿屹)马来西亚华文作家戴小华19日在北京举办分享会，就其纪实作品《忽如归》与散文新作《情随心旅踏歌行》，与读者分享作品创作经历和两岸故事。
 
-针对无资质、无固定场所的不法经营者，通过资质造假、套用许可、地址虚构等手段，在外卖平台伪装成正规商家营业的“幽灵外卖”，该局打出源头治理“组合拳”。
+2017年，《忽如归》即已在中国大陆文学界引起关注。
 
-首先是督促外卖平台开展全面自查，并与广州市餐饮商户许可数据对接核验，主动下架违规网店超3.7万家次。
+戴小华祖籍河北沧州，生于台湾，定居马来西亚吉隆坡。
 
-各相关平台开展食品安全管理制度修订更新，明确严禁商户随意修改公示地址及证照材料。
+她说，因三地都有亲人，对“家”的理解更为深刻。
 
-在新增商户管理方面，明确要求新增入驻商户必须通过政务数据接口完成证照信息校验，合格后方可入网经营。
+“家不是地域的概念，它属于精神范畴。
 
-校验通过后，平台应即时锁定证照信息，严禁商户或客服私自篡改，从源头阻断“幽灵外卖”入网渠道。
+”她认为，中华文化是可以连结全球华人的精神纽带。
 
-每半月推送证照信息变更和证照失效商户名单，督促各平台及时核查处置。
+戴小华回忆，童年时期，母亲常与同样从大陆迁台的邻里相聚，众人凭借手中发黄的旧照片遥寄对大陆亲人的思念。
 
-此外，外卖平台间建立共享下线商户数据机制，共同清理问题商户。
+1999年母亲在台去世后，戴小华经多方努力，将她安葬于河北沧州。
 
 ## 相关推荐
 
-- 2026-06-30 08:59 - 重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md
-- 2026-06-30 08:55 - 陈幸同晋级WTT美国大满贯女单32强<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md
-- 2026-06-30 09:06 - 古代时期普通老百姓能喝上酒吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md
-- 2026-06-30 09:16 - 找到了10年前跪舔b站的视频<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md
-- 2026-06-30 09:21 - 你这一辈子有没有为进山姆拼过命？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md
-- 2026-06-30 09:22 - 老人卖菜获博主帮助后遇车祸去世<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md
-- 2026-06-30 09:15 - 德国连续三届世界杯无缘16强<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md
-- 2026-06-30 09:20 - 送你一朵小红花<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md
-- 2026-06-30 09:08 - 蔚来回应高压水枪洗车掉漆<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md
-- 2026-06-30 08:59 - 峡谷事故团队组队时有人提醒会下雨<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md
-- 2026-06-30 08:54 - 《恋与深空》被指触碰民族伤痛红线<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md
-- 2026-06-30 08:56 - 豆包收费了，你还会用吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md
-- 2026-06-30 08:58 - 日本将帅赛后采访纷纷哽咽落泪<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md
+- 2026-06-30 09:18 - 郑钦文温网三连败西尼亚科娃<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md
+- 2026-06-30 09:23 - 卡塞米罗头球破门<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md
+- 2026-06-30 09:07 - 庆祝中国共产党成立105周年大会将举行<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md
+- 2026-06-30 09:14 - GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md
+- 2026-06-30 09:06 - 收到补税提醒尽快办理 明起有滞纳金<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md
+- 2026-06-30 09:23 - 国内最大沙漠发洪水意味着什么<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md
+- 2026-06-30 09:23 - 怕iPhone涨价的用户已紧急换新<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md
+- 2026-06-30 09:08 - 安切洛蒂 换人<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md
+- 2026-06-30 09:27 - 德国队世界杯点球大战首败<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md
+- 2026-06-30 09:29 - 我设置了全宇宙最安全的密码<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:58 - 第一次对自信的力量有了实感<br><br> | ??:http://www.share.kurohicncr.top/Article/details/901627.shtml
-- 2026-06-30 09:12 - 库尼亚赛后伸五指嘲讽日本<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/7106834532.shtml
-- 2026-06-30 08:57 - 有哪些被认为是现代才有的东西其实古代就有了？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/73877.shtml
-- 2026-06-30 09:03 - 世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？<br><br> | ??:https://www.share.minike.top/Article/details/47337301.shtml
-- 2026-06-30 09:16 - 阿娇瘦了10斤<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/0705942641.shtml
-- 2026-06-30 08:55 - 要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/21447340886.shtml
-- 2026-06-30 08:54 - 点球淘汰德国 巴拉圭首都陷入疯狂<br><br> | ??:https://www.share.kurohicncr.top/Article/details/486307.shtml
-- 2026-06-30 09:24 - 日本队主帅道歉<br><br> | ??:https://www.share.minike.top/Article/details/67540.shtml
-- 2026-06-30 09:04 - 《共患难》<br><br> | ??:https://www.blog.minike.top/Article/details/597004.shtml
-- 2026-06-30 09:16 - 这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆<br><br> | ??:http://www.share.kurohicncr.top/Article/details/46839894.shtml
-- 2026-06-30 09:08 - 《贺子珍》<br><br> | ??:http://www.blog.minike.top/Article/details/42961439055.shtml
-- 2026-06-30 09:23 - 人类...完蛋了...<br><br> | ??:https://www.share.kurohicncr.top/Article/details/39406.shtml
-- 2026-06-30 09:23 - 金鹰奖视后提名预测<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/04243.shtml
-- 2026-06-30 09:05 - 斗破苍穹<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/25337.shtml
-- 2026-06-30 09:10 - 奔跑吧·黄河篇第二季<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/721482.shtml
+- 2026-06-30 09:29 - 张月收到黄灿灿辣货两眼发光<br><br> | ??:https://www.share.minike.top/Article/details/671535961.shtml
+- 2026-06-30 09:08 - 歌剧老师锐评歌手第6期<br><br> | ??:http://www.share.minike.top/Article/details/0977235585.shtml
+- 2026-06-30 09:18 - 内马尔中场休息积极鼓励队友<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/14172918996.shtml
+- 2026-06-30 09:24 - 杨紫获白玉兰视后争议不止<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/4873855.shtml
+- 2026-06-30 09:08 - 【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/47803.shtml
+- 2026-06-30 09:29 - 如何评价DeepSeek 提出的 DSpark 推理加速方案？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/0990740.shtml
+- 2026-06-30 09:09 - 三星投资计划<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/52174.shtml
+- 2026-06-30 09:28 - 【涤墨作战7人870】望：我从地狱杀回来了！<br><br> | ??:https://www.blog.minike.top/Article/details/2610985892.shtml
+- 2026-06-30 09:24 - 科学备孕男女都要上心<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/979660606.shtml
+- 2026-06-30 09:00 - 不开心就去看三年前的购物订单<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/4060006.shtml
+- 2026-06-30 09:23 - 第3集丨“柠檬茶能换怀表？”<br><br> | ??:http://www.share.kurohicncr.top/Article/details/0193433663.shtml
+- 2026-06-30 09:03 - 开电动汽车真的很省钱吗？<br><br> | ??:https://www.share.minike.top/Article/details/145259.shtml
+- 2026-06-30 09:16 - 现在叛逆期的孩子最怕的是什么？<br><br> | ??:https://www.blog.minike.top/Article/details/749316592.shtml
+- 2026-06-30 09:05 - Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/932282386302.shtml
+- 2026-06-30 09:27 - 韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？<br><br> | ??:http://www.blog.minike.top/Article/details/28444.shtml

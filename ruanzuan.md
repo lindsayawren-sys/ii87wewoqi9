@@ -1,53 +1,50 @@
-# 特朗普政府寻求6.72亿美元用于移除伊朗核材料
+# 尼泊尔古城巴德岗举行国际瑜伽日活动
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-一名白宫官员称，特朗普政府正寻求6.72亿美元的资金，用于移除伊朗核材料、开展核查与验证工作以及其他防扩散活动。 特朗普政府寻求的这笔资金是800亿美元追加拨款申请的一部分。 一名白宫官员表示，这笔资金将用于支持移除和销毁伊朗的核材料，包括高浓缩铀。 这笔资金还将用于美国在伊朗境内的核查活动，并支持国际原子能机构（IAEA）的检查工作。责任编辑：李桐
+发布时间：2026年06月22日 07:08 来源：中国新闻网 当地时间6月21日，国际瑜伽日庆祝活动在尼泊尔加德满都谷地古城巴德岗举行。 数百名尼泊尔民众及多国游客在巴德岗杜巴广场上，伴随着舒缓的音乐，在古建筑群前练习伸展、调息等瑜伽动作，共同庆祝国际瑜伽日。 第69届联合国大会于2014年通过决议，将每年6月21日设立为国际瑜伽日，旨在提高公众对瑜伽促进身心健康作用的认识。
 
 ## 正文
 
-一名白宫官员称，特朗普政府正寻求6.72亿美元的资金，用于移除伊朗核材料、开展核查与验证工作以及其他防扩散活动。
+发布时间：2026年06月22日 07:08 来源：中国新闻网 当地时间6月21日，国际瑜伽日庆祝活动在尼泊尔加德满都谷地古城巴德岗举行。
 
-特朗普政府寻求的这笔资金是800亿美元追加拨款申请的一部分。
+数百名尼泊尔民众及多国游客在巴德岗杜巴广场上，伴随着舒缓的音乐，在古建筑群前练习伸展、调息等瑜伽动作，共同庆祝国际瑜伽日。
 
-一名白宫官员表示，这笔资金将用于支持移除和销毁伊朗的核材料，包括高浓缩铀。
+第69届联合国大会于2014年通过决议，将每年6月21日设立为国际瑜伽日，旨在提高公众对瑜伽促进身心健康作用的认识。
 
-这笔资金还将用于美国在伊朗境内的核查活动，并支持国际原子能机构（IAEA）的检查工作。
-
-责任编辑：李桐
+(崔楠 普拉丹 制作 王佳琪) 责任编辑：【陈海峰】
 
 ## 相关推荐
 
-- 2026-06-30 09:07 - 男子诋毁袁隆平科研成果被刑拘<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md
-- 2026-06-30 09:05 - 有人见过武则天的画像吗，非常好奇？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md
-- 2026-06-30 09:05 - 《我落泪情绪零碎》<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md
-- 2026-06-30 09:10 - 如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md
-- 2026-06-30 09:05 - hanser X 赖美云《室内系的Track Maker》<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md
-- 2026-06-30 09:11 - 德国vs巴拉圭<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md
-- 2026-06-30 09:12 - 起风了<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md
-- 2026-06-30 09:00 - 世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md
-- 2026-06-30 09:15 - "超算小姐，这一次，我一定要带你出去..."<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md
-- 2026-06-30 09:09 - 7月1日起 一批新规即将落地<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md
-- 2026-06-30 09:23 - 《赛博朋克：边缘行者 2》｜官方预告片<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md
-- 2026-06-30 09:18 - 普京为何将俄乌谈判时间表与伊朗挂钩<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md
-- 2026-06-30 08:58 - 王楚钦说配合稍微有些陌生感<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md
+- 2026-06-30 09:02 - 如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md
+- 2026-06-30 09:21 - 12人以护剧为名敲诈剧组艺人被抓<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md
+- 2026-06-30 09:22 - 巴拉圭点球大战淘汰德国进16强<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md
+- 2026-06-30 09:08 - 如何评价DeepSeek 提出的 DSpark 推理加速方案？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md
+- 2026-06-30 09:07 - 奔跑吧·黄河篇第二季<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md
+- 2026-06-30 09:09 - 第一炉香<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md
+- 2026-06-30 09:06 - 日本队被绝杀后鞠躬致谢观众<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md
+- 2026-06-30 09:03 - 勇敢的心第二部<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md
+- 2026-06-30 09:08 - 韩国世界杯出局是主帅一个人的锅吗<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md
+- 2026-06-30 09:04 - 金鹰奖视后提名预测<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md
+- 2026-06-30 09:00 - 日本队5进世界杯淘汰赛0胜<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md
+- 2026-06-30 09:01 - 挪威国家队紧急从本土订购大批海鲜<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:59 - 致敬！中国首批缉毒警已全体退休<br><br> | ??:http://www.share.minike.top/Article/details/6499485.shtml
-- 2026-06-30 09:20 - 这一刀 会很帅<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/5040168770.shtml
-- 2026-06-30 09:10 - 巴西绝杀<br><br> | ??:http://www.blog.minike.top/Article/details/56234041176.shtml
-- 2026-06-30 09:14 - 中国对日本再出重拳<br><br> | ??:http://www.blog.minike.top/Article/details/743236117.shtml
-- 2026-06-30 09:07 - 莫兰特被交易到开拓者<br><br> | ??:http://www.share.minike.top/Article/details/228906.shtml
-- 2026-06-30 08:58 - 杨紫学位证上就是杨紫<br><br> | ??:https://www.share.kurohicncr.top/Article/details/18755849964.shtml
-- 2026-06-30 09:03 - 点球大战 残酷<br><br> | ??:https://www.blog.minike.top/Article/details/6342945.shtml
-- 2026-06-30 09:11 - 杨紫学位证上就是杨紫<br><br> | ??:http://www.blog.minike.top/Article/details/343528.shtml
-- 2026-06-30 09:07 - 人类...完蛋了...<br><br> | ??:https://www.share.kurohicncr.top/Article/details/56776747.shtml
-- 2026-06-30 09:17 - 你人生中最艰难的时候是怎么熬过来的？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/91072.shtml
-- 2026-06-30 09:12 - 荷兰VS摩洛哥<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/1727363.shtml
-- 2026-06-30 08:58 - 发明linux、python、redis、nginx、sqlite的人算不算天才？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/21841130543.shtml
-- 2026-06-30 09:16 - 板面：为什么那么多人爱吃？？！<br><br> | ??:https://www.share.kurohicncr.top/Article/details/621569962250.shtml
-- 2026-06-30 09:01 - 【涤墨作战7人870】望：我从地狱杀回来了！<br><br> | ??:http://www.share.kurohicncr.top/Article/details/0542066.shtml
-- 2026-06-30 09:00 - 女儿从清华毕业 爸爸晒出17年对比照<br><br> | ??:http://www.share.kurohicncr.top/Article/details/21381.shtml
+- 2026-06-30 09:01 - 千万不要随便扣肚脐<br><br> | ??:https://www.share.kurohicncr.top/Article/details/063162467879.shtml
+- 2026-06-30 09:16 - 失明的我带老妈去了趟“火星”<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/028807.shtml
+- 2026-06-30 09:00 - 老人卖菜获博主帮助后遇车祸去世<br><br> | ??:http://www.share.kurohicncr.top/Article/details/0890682.shtml
+- 2026-06-30 09:01 - 古代人对纳妾的态度是什么样的？<br><br> | ??:http://www.share.minike.top/Article/details/605375.shtml
+- 2026-06-30 09:03 - 有人见过武则天的画像吗，非常好奇？<br><br> | ??:https://www.share.minike.top/Article/details/27441262381.shtml
+- 2026-06-30 09:19 - 把毒品藏在哪里，60秒内不会被发现？<br><br> | ??:https://www.blog.minike.top/Article/details/6460180171.shtml
+- 2026-06-30 09:01 - 日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/872975334.shtml
+- 2026-06-30 09:29 - 金价跳水 水贝市场显现出“两重天”<br><br> | ??:https://www.share.kurohicncr.top/Article/details/3615326.shtml
+- 2026-06-30 09:07 - 高考填志愿父亲和女儿产生分歧<br><br> | ??:http://www.share.kurohicncr.top/Article/details/314229216560.shtml
+- 2026-06-30 09:17 - 速度与激情9<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/3824290746.shtml
+- 2026-06-30 09:19 - 郑钦文温网一轮游<br><br> | ??:http://www.blog.minike.top/Article/details/89613825355.shtml
+- 2026-06-30 09:24 - 国务院：探索延长义务教育年限<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/433016274607.shtml
+- 2026-06-30 09:29 - 如何改变自己太负责任的性格?<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/0494969.shtml
+- 2026-06-30 09:01 - 奔跑吧·黄河篇第二季<br><br> | ??:https://www.share.minike.top/Article/details/385991502031.shtml
+- 2026-06-30 09:28 - 电子游戏中有哪些关于武器的“刻板印象”？<br><br> | ??:http://www.blog.minike.top/Article/details/0362709.shtml

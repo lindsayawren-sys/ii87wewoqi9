@@ -1,56 +1,42 @@
-# 邦达亚洲:多重利好因素支撑 美元指数刷新13个月高位
+# 6月22日周末要闻：美伊谈判暂停 伊朗指责特朗普 油价上涨
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-6月24日，欧洲中央银行副行长鲍里斯·武伊契奇表示，鉴于通胀将在更长时间内保持在较高水平，欧洲央行加息的决定是“稳妥的”。 他周二在伦敦表示，与此同时，对未来价格上涨的大多数长期预期仍符合欧洲央行 2% 的目标，且目前的工资增长并未显示出任何连锁反应。 “总体通胀和核心通胀在更长时间内都会维持在高位——一直持续到 2027 年，”本月早些时候接替路易斯·德金多斯出任欧洲央行第二
+上周国际市场回顾 全球股市强势收官，但整体情绪谨慎 欧洲股市因伊朗推迟谈判下跌 诺和诺德股价逆势大涨 宏观 美伊开启和平谈判 特朗普扬言将打击伊朗 美股股指期货下跌 霍尔木兹海峡紧张局势持续，油价飙升、标普500股指期货下挫 特朗普言论令伊美未来的谈判走向仍不明朗 黎真主党领导人：将对以色列的任何侵犯行为作出回应 消息人士：伊朗方面并未离场，伊美之间的谈判仍在继续 伊朗谈判团队
 
 ## 正文
 
-6月24日，欧洲中央银行副行长鲍里斯·武伊契奇表示，鉴于通胀将在更长时间内保持在较高水平，欧洲央行加息的决定是“稳妥的”。
-
-他周二在伦敦表示，与此同时，对未来价格上涨的大多数长期预期仍符合欧洲央行 2% 的目标，且目前的工资增长并未显示出任何连锁反应。
-
-“总体通胀和核心通胀在更长时间内都会维持在高位——一直持续到 2027 年，”本月早些时候接替路易斯·德金多斯出任欧洲央行第二把手的武伊契奇表示。
-
-“而这基本上也是你们在上次会议上所看到的利率政策举措的潜在基础。
-
-” 另外，尽管中东战争带来的通胀上升和信心受挫对经济构成压力，但欧元区6月份商业活动萎缩幅度小于预期，这增强了市场对于该地区经济能够承受冲击的乐观情绪。
-
-标普全球周二公布的数据显示，尽管综合采购经理人指数（PMI）连续第三个月低于区分增长与萎缩的50荣枯线，但该指数从5月份的48.5升至49.5，好于分析师此前预计的49.2。
-
-具体来看，欧元区6月制造业PMI小幅降至51.3，低于5月的51.6；服务业PMI则从5月的47.7升至48.9。
-
-标普全球市场情报首席商业经济学家克里斯·威廉姆森周二在声明中表示：“欧元区经济展现出足够的韧性，勉强避免陷入衰退。
+上周国际市场回顾 全球股市强势收官，但整体情绪谨慎 欧洲股市因伊朗推迟谈判下跌 诺和诺德股价逆势大涨 宏观 美伊开启和平谈判 特朗普扬言将打击伊朗 美股股指期货下跌 霍尔木兹海峡紧张局势持续，油价飙升、标普500股指期货下挫 特朗普言论令伊美未来的谈判走向仍不明朗 黎真主党领导人：将对以色列的任何侵犯行为作出回应 消息人士：伊朗方面并未离场，伊美之间的谈判仍在继续 伊朗谈判团队成员称伊石油制裁豁免草案已敲定 抗议特朗普威胁言论 伊朗代表团离开谈判地点 真主党领导人明确拒绝以色列在黎巴嫩境内设立任何安全区 伊朗议长称不会把美国的威胁当回事 伊朗抗议特朗普近期发出的威胁 并正在考量应对举措 伊朗：若以色列不从黎巴嫩撤军，将终止与美国的谈判 以军总参谋长：在黎巴嫩军事行动仍在继续 以总理称以军将根据需要继续驻留黎巴嫩南部 美伊首轮谈判结束后 伊朗与卡塔尔进
 
 ## 相关推荐
 
-- 2026-06-30 08:56 - 这种关系可能正在悄悄“催老”你<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md
-- 2026-06-30 09:13 - 孙兴慜道歉<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md
-- 2026-06-30 09:06 - 李在明90度鞠躬感谢韩国两大财阀<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md
-- 2026-06-30 09:18 - 博世们还在犹豫 美的们已经卖断货<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md
-- 2026-06-30 09:09 - 有什么好的高中网课推荐吗？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md
-- 2026-06-30 09:04 - 2026年WTT美国大满贯，国乒自带球桌是真实的吗？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md
-- 2026-06-30 08:58 - 宜宾地震食客避难后折返 无人逃单<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md
-- 2026-06-30 08:56 - 男子醉酒溺水获救后同行人拒协助抬人<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md
-- 2026-06-30 08:59 - 穆祉丞回应获年度人气艺人<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md
-- 2026-06-30 09:23 - 孙兴慜发长文致歉<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md
+- 2026-06-30 09:25 - 为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md
+- 2026-06-30 09:08 - 任素汐舞台上唱《王招君》<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md
+- 2026-06-30 09:05 - 詹姆斯 勇士<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md
+- 2026-06-30 09:27 - 日本进球<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md
+- 2026-06-30 09:12 - 杨某诋毁袁隆平院士科研成果被刑拘<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md
+- 2026-06-30 09:01 - 萨内 看笑了<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md
+- 2026-06-30 09:12 - 女子遭家暴逃跑致丈夫身亡二审细节<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md
+- 2026-06-30 09:12 - 斗破苍穹<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md
+- 2026-06-30 09:05 - 德国北部枪击事件致5死<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md
+- 2026-06-30 09:00 - 如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:10 - 法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/16531494.shtml
-- 2026-06-30 09:13 - 法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/733489691094.shtml
-- 2026-06-30 09:13 - 武磊：巴西队赢的并不轻松<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/78591497.shtml
-- 2026-06-30 09:16 - 贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？<br><br> | ??:https://www.blog.minike.top/Article/details/23712.shtml
-- 2026-06-30 09:02 - 王楚钦孙颖莎晋级混双八强<br><br> | ??:https://www.blog.minike.top/Article/details/0089609872.shtml
-- 2026-06-30 09:14 - 重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！<br><br> | ??:http://www.share.minike.top/Article/details/1055402155.shtml
-- 2026-06-30 09:14 - 男子中医院拔火罐致浅2度烧伤<br><br> | ??:https://www.blog.minike.top/Article/details/634940819.shtml
-- 2026-06-30 08:59 - F1奥地利站赛后复盘<br><br> | ??:https://www.share.kurohicncr.top/Article/details/200095140.shtml
-- 2026-06-30 09:18 - 4种红薯的满分吃法！有手就会…但能让你大为震撼！<br><br> | ??:https://www.share.kurohicncr.top/Article/details/3469510.shtml
-- 2026-06-30 09:18 - 博世们还在犹豫 美的们已经卖断货<br><br> | ??:https://www.blog.minike.top/Article/details/123332438.shtml
-- 2026-06-30 09:12 - 欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？<br><br> | ??:http://www.blog.minike.top/Article/details/7600294638.shtml
-- 2026-06-30 09:03 - 蜘蛛侠:英雄归来<br><br> | ??:https://www.share.kurohicncr.top/Article/details/59622478993.shtml
-- 2026-06-30 09:01 - 2021湖南卫视跨年演唱会<br><br> | ??:https://www.share.minike.top/Article/details/070539421026.shtml
-- 2026-06-30 09:19 - 网红不能困在无底线逐利里<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/6460860.shtml
-- 2026-06-30 09:22 - 为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/0704121.shtml
+- 2026-06-30 09:08 - 这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆<br><br> | ??:http://www.share.kurohicncr.top/Article/details/18613.shtml
+- 2026-06-30 09:27 - 王楚钦孙颖莎vs皮斯特耶库库洛娃<br><br> | ??:https://www.blog.minike.top/Article/details/68428692.shtml
+- 2026-06-30 09:22 - 古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?<br><br> | ??:http://www.share.kurohicncr.top/Article/details/4536638.shtml
+- 2026-06-30 09:12 - GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/2212006.shtml
+- 2026-06-30 09:02 - 《共患难》<br><br> | ??:https://www.blog.minike.top/Article/details/247586649.shtml
+- 2026-06-30 09:17 - 徐亮怒斥世界杯踢假球<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/234808.shtml
+- 2026-06-30 09:09 - 王源近几年没有路演了<br><br> | ??:http://www.blog.minike.top/Article/details/7957792.shtml
+- 2026-06-30 09:02 - 锐评：网红不能困在无底线逐利里<br><br> | ??:http://www.blog.minike.top/Article/details/386063701573.shtml
+- 2026-06-30 09:16 - 巴西醒醒 这是淘汰赛<br><br> | ??:https://www.share.minike.top/Article/details/10278794.shtml
+- 2026-06-30 09:14 - 大货车掉落螺丝扎进骑手护目镜<br><br> | ??:https://www.share.minike.top/Article/details/347553550764.shtml
+- 2026-06-30 09:24 - 乔家的儿女<br><br> | ??:http://www.share.minike.top/Article/details/855868461.shtml
+- 2026-06-30 09:07 - 如何评价DeepSeek 提出的 DSpark 推理加速方案？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/55541.shtml
+- 2026-06-30 09:28 - 诺伊尔尽力了<br><br> | ??:http://www.share.kurohicncr.top/Article/details/9537911.shtml
+- 2026-06-30 09:21 - 三星投资计划<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/67628.shtml
+- 2026-06-30 09:24 - 如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/2649152890.shtml

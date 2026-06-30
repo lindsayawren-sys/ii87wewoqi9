@@ -1,49 +1,57 @@
-# 滔搏于6月25日上午起短暂停牌 待刊发内幕消息
+# 平台经济大中小企业如何“共生共赢”
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-滔搏（06110）发布公告，应公司的要求，公司的股份已由2026年6月25日（星期四）上午九时正起在香港联合交易所有限公司短暂停止买卖，以待发出有关公司内幕消息的公告。责任编辑：卢昱君
+迈向多元化、协同化发展新阶段 平台经济大中小企业如何“共生共赢” 平台经济发展迎来一个重要政策信号：促进大中小企业协同。 日前，工业和信息化部、中央网信办、市场监管总局等七部门联合印发《促进平台经济大中小企业协同发展行动方案(2026-2028年)》(以下简称“方案”)。聚焦进一步有效推动平台与中小主体协同发展，方案部署了多方面重点任务，如强化创新协同引领、健全生态协同体系、深
 
 ## 正文
 
-滔搏（06110）发布公告，应公司的要求，公司的股份已由2026年6月25日（星期四）上午九时正起在香港联合交易所有限公司短暂停止买卖，以待发出有关公司内幕消息的公告。
+迈向多元化、协同化发展新阶段 平台经济大中小企业如何“共生共赢” 平台经济发展迎来一个重要政策信号：促进大中小企业协同。
 
-责任编辑：卢昱君
+日前，工业和信息化部、中央网信办、市场监管总局等七部门联合印发《促进平台经济大中小企业协同发展行动方案(2026-2028年)》(以下简称“方案”)。
+
+聚焦进一步有效推动平台与中小主体协同发展，方案部署了多方面重点任务，如强化创新协同引领、健全生态协同体系、深化开放协同联动等。
+
+这份方案旨在积极推动“破壁垒、促开放、强协同”，构建更加公平、更有活力、更可持续的平台经济发展体系。
+
+换句话说，就是要打通大中小企业融通发展的堵点，让“大树底下好乘凉”在平台经济发展中成为常态。
+
+作为新型经济形态，平台经济以互联网平台为载体，串联起大型平台企业、海量中小商家和服务商等多元经营主体。
+
+从共享出行到跨境电商，从餐饮外卖到生鲜配送，平台经济已深入大众的日常生活。
+
+目前，国内主要平台企业的用户已超10亿人。
 
 ## 相关推荐
 
-- 2026-06-30 09:06 - 急先锋<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md
-- 2026-06-30 08:55 - 韩国人为什么这么在乎输赢<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md
-- 2026-06-30 09:00 - 有人见过武则天的画像吗，非常好奇？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md
-- 2026-06-30 08:57 - 日本球迷被强行披上巴西国旗<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md
-- 2026-06-30 09:20 - 三星投资计划<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md
-- 2026-06-30 09:12 - 英语考了145的人竟然教数学<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md
-- 2026-06-30 09:17 - 有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md
-- 2026-06-30 08:59 - 郑钦文 四年一轮游<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md
-- 2026-06-30 09:16 - 泰山景区建135公里刀片刺绳隔离网<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md
-- 2026-06-30 09:23 - 藤森庆子赢得秘鲁总统选举<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md
-- 2026-06-30 09:20 - 小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md
-- 2026-06-30 09:23 - 第3集丨“柠檬茶能换怀表？”<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md
-- 2026-06-30 08:57 - 感动全网的699分女生想报考清华<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md
-- 2026-06-30 09:23 - 网红不能困在无底线逐利里<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md
-- 2026-06-30 09:20 - 德国北部枪击事件致5死<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md
+- 2026-06-30 09:26 - 深扒韩国队淘汰背后原因<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md
+- 2026-06-30 09:04 - 欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md
+- 2026-06-30 09:18 - 明星大侦探第一季<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md
+- 2026-06-30 09:18 - 请回答王牌2019<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md
+- 2026-06-30 09:16 - 有哪些被认为是现代才有的东西其实古代就有了？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md
+- 2026-06-30 09:14 - 沙丘<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md
+- 2026-06-30 09:19 - 檀健次王楚然吻戏看热了<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md
+- 2026-06-30 09:14 - 如果有二次元高中是什么样子的？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md
+- 2026-06-30 09:13 - 人民锐评网红诋毁袁隆平造谣企业家<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md
+- 2026-06-30 09:24 - 《鸣潮》玄方主题曲 MV | 定玄<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md
+- 2026-06-30 09:27 - 男子中医院拔火罐致浅2度烧伤<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:07 - 左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？<br><br> | ??:http://www.blog.minike.top/Article/details/878418654043.shtml
-- 2026-06-30 08:59 - 泰山景区建135公里刀片刺绳隔离网<br><br> | ??:http://www.share.kurohicncr.top/Article/details/71912505331.shtml
-- 2026-06-30 09:11 - 巴拉圭门将<br><br> | ??:http://www.share.kurohicncr.top/Article/details/2772643253.shtml
-- 2026-06-30 09:13 - 荷兰VS摩洛哥<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/75492.shtml
-- 2026-06-30 09:18 - AI手机进入Agent时代<br><br> | ??:http://www.blog.minike.top/Article/details/4481979.shtml
-- 2026-06-30 09:22 - 你的妻子大喷菇—《植物娘大战僵尸》特别篇<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/730873.shtml
-- 2026-06-30 09:21 - 全球最火存储ETF纳入兆易创新<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/6774555554.shtml
-- 2026-06-30 08:55 - 拆解FIFA和世界杯的暗面<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/63124996889.shtml
-- 2026-06-30 09:13 - 日本遭读秒绝杀 森保一：我水平不够<br><br> | ??:http://www.share.kurohicncr.top/Article/details/50109223.shtml
-- 2026-06-30 09:17 - 如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/6345532.shtml
-- 2026-06-30 09:03 - 德国爆冷点球大战不敌巴拉圭<br><br> | ??:http://www.share.minike.top/Article/details/516754772125.shtml
-- 2026-06-30 09:09 - 王健林甩卖超80座万达广场<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/0562549314.shtml
-- 2026-06-30 09:22 - 这些7月新规影响你我<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/587364143505.shtml
-- 2026-06-30 09:20 - 如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/541550542.shtml
-- 2026-06-30 09:13 - 酒店推行“24小时退房”引热议<br><br> | ??:https://www.share.kurohicncr.top/Article/details/033061989.shtml
+- 2026-06-30 09:29 - HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/78365.shtml
+- 2026-06-30 09:04 - 如何看待武亮说大学生生活费1500就够用这一言论？<br><br> | ??:https://www.share.minike.top/Article/details/53082.shtml
+- 2026-06-30 09:00 - 杨某诋毁袁隆平院士科研成果被刑拘<br><br> | ??:https://www.share.kurohicncr.top/Article/details/375608597449.shtml
+- 2026-06-30 09:20 - 周生如故<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/96050.shtml
+- 2026-06-30 09:21 - 英语考了145的人竟然教数学<br><br> | ??:https://www.share.kurohicncr.top/Article/details/397507782.shtml
+- 2026-06-30 09:12 - 恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？<br><br> | ??:http://www.blog.minike.top/Article/details/9964094973.shtml
+- 2026-06-30 09:06 - 千与千寻<br><br> | ??:https://www.share.minike.top/Article/details/62750.shtml
+- 2026-06-30 09:25 - 警方介入洪明甫死亡威胁<br><br> | ??:https://www.share.minike.top/Article/details/8292305814.shtml
+- 2026-06-30 09:10 - 德国巴拉圭 折磨<br><br> | ??:http://www.share.minike.top/Article/details/5186647365.shtml
+- 2026-06-30 09:29 - 张雪的一句“是我们”引发岛内热议<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/153554.shtml
+- 2026-06-30 09:05 - 巴拉圭率先破门<br><br> | ??:https://www.share.minike.top/Article/details/71043560.shtml
+- 2026-06-30 09:12 - 如何评价杨紫白玉兰获奖<br><br> | ??:https://www.blog.minike.top/Article/details/953829.shtml
+- 2026-06-30 09:29 - 王菲谢霆锋十指紧扣好甜<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/14675.shtml
+- 2026-06-30 09:02 - ⚡逼尔摩斯教你玩球⚡<br><br> | ??:http://www.share.kurohicncr.top/Article/details/44034.shtml
+- 2026-06-30 09:13 - 如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/38248607.shtml

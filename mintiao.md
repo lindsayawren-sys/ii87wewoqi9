@@ -1,61 +1,57 @@
-# 位于波斯湾的一艘油轮已按基准运费九倍的价格被预订
+# （文化中国行）“Z世代”创客让敦煌壁画融入市井
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-一艘超级油轮已被客户按相当于基准水平近九倍的运费初步预订，用于将石油从波斯湾运往印度，这一令人咋舌的价格反映了该地区可用空船的短缺局面。 根据船舶经纪商透露，这艘能够装载约200万桶原油的超大型原油运输船将由韩国船东长锦商船提供，价格为897个Worldscale点，相当于基准价的897%，是今年以来的最高费率。因为事未公开，知情人士要求匿名。 Worldscale费率是油轮行
+中新社甘肃敦煌6月19日电 题：“Z世代”创客让敦煌壁画融入市井 作者 戴文昌 端午小长假，中国甘肃文旅持续升温，敦煌莫高窟一票难求。“很多游客想近距离接触敦煌壁画，但洞窟内却只能远观。”在敦煌汉塞壁画研习室内，1999年出生的创业者朱俊峰一边调试颜料，一边指导游客勾勒壁画线条，以临摹体验让千年壁画融入市井烟火。 自幼与壁画结缘的朱俊峰，初中便跟随本土画师研习壁画技法，大学主修
 
 ## 正文
 
-一艘超级油轮已被客户按相当于基准水平近九倍的运费初步预订，用于将石油从波斯湾运往印度，这一令人咋舌的价格反映了该地区可用空船的短缺局面。
+中新社甘肃敦煌6月19日电 题：“Z世代”创客让敦煌壁画融入市井 作者 戴文昌 端午小长假，中国甘肃文旅持续升温，敦煌莫高窟一票难求。
 
-根据船舶经纪商透露，这艘能够装载约200万桶原油的超大型原油运输船将由韩国船东长锦商船提供，价格为897个Worldscale点，相当于基准价的897%，是今年以来的最高费率。
+“很多游客想近距离接触敦煌壁画，但洞窟内却只能远观。
 
-因为事未公开，知情人士要求匿名。
+”在敦煌汉塞壁画研习室内，1999年出生的创业者朱俊峰一边调试颜料，一边指导游客勾勒壁画线条，以临摹体验让千年壁画融入市井烟火。
 
-Worldscale费率是油轮行业租赁标准指标，按具体航线每年设定，例如波斯湾至中国或新加坡的航线。
+自幼与壁画结缘的朱俊峰，初中便跟随本土画师研习壁画技法，大学主修国画专业，在校期间依托创业项目探索敦煌非遗手工落地。
 
-船舶通常按该基准费率的一定百分比（即点数）预订。
+毕业后他留在天津创业，业余时间尝试将经典壁画纹样融入DIY手工，独特的创意收获良好口碑，让他萌生了返乡创业的念头。
 
-经纪商称，此次长锦商船这笔预订以波斯湾至新加坡航线的费率为基准。
+“故土有最优质的壁画资源，与其远走他乡，不如留下来让壁画走出洞窟，走进大众生活。
 
-长锦商船没有回应致其首尔和新加坡办公室的电邮和电话。
+”朱俊峰19日接受中新社记者采访时如是说。
 
-责任编辑：江学思
+2022年，他辞掉外地工作回到敦煌，开启壁画体验门店创业之路。
 
 ## 相关推荐
 
-- 2026-06-30 09:18 - 点球大战和诺伊尔都救不回德国队<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md
-- 2026-06-30 08:55 - 马耳他著名拱门坍塌致一中国男子身亡<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md
-- 2026-06-30 09:04 - 为什么香港的冲厕水是咸的？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md
-- 2026-06-30 08:57 - 欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md
-- 2026-06-30 09:13 - 【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md
-- 2026-06-30 08:58 - 日耳曼拖拉机<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md
-- 2026-06-30 09:18 - 我设置了全宇宙最安全的密码<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md
-- 2026-06-30 08:56 - 7月1日起 一批新规即将落地<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md
-- 2026-06-30 09:21 - 黄晓明夸昆凌引杨颖对比<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md
-- 2026-06-30 09:12 - 五哈和他们的朋友<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md
-- 2026-06-30 09:11 - 如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md
-- 2026-06-30 09:19 - Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md
-- 2026-06-30 09:07 - 韩国世界杯出局是主帅一个人的锅吗<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md
-- 2026-06-30 09:20 - MSI应援曲 如果季中成回忆<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md
-- 2026-06-30 09:16 - 建议不要突然完全停止喝咖啡<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md
+- 2026-06-30 09:17 - 热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md
+- 2026-06-30 09:10 - 低智商犯罪三江口团建来了<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md
+- 2026-06-30 09:20 - 免费试吃发差评被店家挂店门避雷<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md
+- 2026-06-30 09:22 - 本科毕业生为何涌入专科学校<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md
+- 2026-06-30 09:27 - 锐评：网红不能困在无底线逐利里<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md
+- 2026-06-30 09:15 - 刘宇宁高情商化解谁站C位<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md
+- 2026-06-30 09:19 - 人民锐评：网红不能困在无底线逐利里<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md
+- 2026-06-30 09:14 - 王曼昱被突如其来的话筒逗笑了<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md
+- 2026-06-30 09:26 - 日本球员说被绝杀非常不甘心<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md
+- 2026-06-30 09:13 - 这种关系可能正在悄悄“催老”你<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md
+- 2026-06-30 09:28 - 日本反击率先破门<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:00 - 杨紫被质疑未使用原名<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/417011808997.shtml
-- 2026-06-30 09:12 - 【涤墨作战7人870】望：我从地狱杀回来了！<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/4233506.shtml
-- 2026-06-30 09:05 - 锐评：网红不能困在无底线逐利里<br><br> | ??:http://www.share.minike.top/Article/details/13929.shtml
-- 2026-06-30 09:08 - 妻子撞死家暴丈夫案二审案情反转<br><br> | ??:http://www.share.kurohicncr.top/Article/details/5305350.shtml
-- 2026-06-30 09:01 - 巴西醒醒 这是淘汰赛<br><br> | ??:https://www.blog.minike.top/Article/details/69120096.shtml
-- 2026-06-30 09:10 - 董路：谁赢谁是“正路子”<br><br> | ??:http://www.share.kurohicncr.top/Article/details/795009229471.shtml
-- 2026-06-30 09:06 - 电子游戏中有哪些关于武器的“刻板印象”？<br><br> | ??:https://www.share.minike.top/Article/details/0102467.shtml
-- 2026-06-30 09:13 - 四川宜宾地震瞬间鱼群乱跳<br><br> | ??:https://www.share.minike.top/Article/details/54013.shtml
-- 2026-06-30 08:56 - 补时绝杀 巴西2-1淘汰日本<br><br> | ??:https://www.share.kurohicncr.top/Article/details/1051884480.shtml
-- 2026-06-30 09:09 - 《名肘探科比》：科比大战裂口女<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/066366493.shtml
-- 2026-06-30 09:03 - 欧盟分楼层开空调惹争议<br><br> | ??:https://www.share.kurohicncr.top/Article/details/13095820.shtml
-- 2026-06-30 09:24 - 庆祝中国共产党成立105周年大会将举行<br><br> | ??:http://www.share.minike.top/Article/details/6857773082.shtml
-- 2026-06-30 09:10 - 高质量发展看新疆<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/382850.shtml
-- 2026-06-30 09:19 - 低智商犯罪三江口团建来了<br><br> | ??:http://www.blog.minike.top/Article/details/5569156471.shtml
-- 2026-06-30 09:04 - 爆冷出局！德国点球大战不敌巴拉圭<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/96322.shtml
+- 2026-06-30 09:02 - 曝老詹对自由市场态度与以往截然不同<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/761453462.shtml
+- 2026-06-30 09:26 - 我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......<br><br> | ??:https://www.share.kurohicncr.top/Article/details/1519291112.shtml
+- 2026-06-30 09:24 - 女子健身不当 居然“脑子漏水”了<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/17310.shtml
+- 2026-06-30 09:29 - 手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/4166403.shtml
+- 2026-06-30 09:06 - 重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！<br><br> | ??:http://www.share.kurohicncr.top/Article/details/497962562206.shtml
+- 2026-06-30 09:01 - 庆祝中国共产党成立105周年大会将举行<br><br> | ??:http://www.share.minike.top/Article/details/7436198.shtml
+- 2026-06-30 09:20 - 全新问界M9现身美国街头<br><br> | ??:https://www.share.kurohicncr.top/Article/details/38970423.shtml
+- 2026-06-30 09:09 - 时光音乐会<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/19215898084.shtml
+- 2026-06-30 09:28 - 恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/973072948.shtml
+- 2026-06-30 09:28 - 如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？<br><br> | ??:https://www.blog.minike.top/Article/details/65646923.shtml
+- 2026-06-30 09:28 - 如何改变自己太负责任的性格?<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/0115835.shtml
+- 2026-06-30 09:28 - 日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/24217686965.shtml
+- 2026-06-30 09:15 - 重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！<br><br> | ??:http://www.share.kurohicncr.top/Article/details/21312080.shtml
+- 2026-06-30 09:14 - 主人解开狗绳2只狗将路人撕咬致死<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/0101201391.shtml
+- 2026-06-30 09:20 - 高考填志愿父亲和女儿产生分歧<br><br> | ??:https://www.blog.minike.top/Article/details/362425648611.shtml

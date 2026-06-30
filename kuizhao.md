@@ -1,57 +1,60 @@
-# 委内瑞拉宣布进入紧急状态 中国使馆发布安全提醒
+# 6月20日外盘头条：美伊核谈尚未开始即因黎巴嫩问题陷入停滞 伊朗提出“保险费” 交易员提高美联储加息押注
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-中新社北京6月25日电 加拉加斯消息：当地时间24日，委内瑞拉代总统德尔西·罗德里格斯宣布该国进入紧急状态。当天，委内瑞拉遭遇两次震级超过7级的强震，已造成至少32人死亡，约700人受伤。 委内瑞拉南方电视台称，罗德里格斯在电视讲话中宣布了这项紧急决定，并强调保障公民生命安全仍是委内瑞拉的绝对优先事项。 法新社称，自24日首次地震以来，委内瑞拉已发生20多次余震。 委首都附近的
+全球财经媒体昨夜今晨共同关注的头条新闻主要有： 1、美伊核谈因黎巴嫩问题未能举行 尚未启动便陷入停滞 2、伊朗提出“保险费” 宣示对霍尔木兹海峡的控制权 3、SpaceX IPO诞生数千位百万富翁 有高管持股市值超10亿美元 4、特朗普：Anthropic曾构成国家安全威胁 5、伊朗相关忧虑和沃什鹰派立场之下 交易员提高美联储加息押注 6、机构：霍尔木兹海峡重启商业航运以来已有
 
 ## 正文
 
-中新社北京6月25日电 加拉加斯消息：当地时间24日，委内瑞拉代总统德尔西·罗德里格斯宣布该国进入紧急状态。
+全球财经媒体昨夜今晨共同关注的头条新闻主要有： 1、美伊核谈因黎巴嫩问题未能举行 尚未启动便陷入停滞 2、伊朗提出“保险费” 宣示对霍尔木兹海峡的控制权 3、SpaceX IPO诞生数千位百万富翁 有高管持股市值超10亿美元 4、特朗普：Anthropic曾构成国家安全威胁 5、伊朗相关忧虑和沃什鹰派立场之下 交易员提高美联储加息押注 6、机构：霍尔木兹海峡重启商业航运以来已有至少20艘油轮通航 美伊核谈尚未开始即因黎巴嫩问题陷入停滞 伊朗推迟与美国就持久和平协议启动谈判，此前黎巴嫩南部战事激化。
 
-当天，委内瑞拉遭遇两次震级超过7级的强震，已造成至少32人死亡，约700人受伤。
+这可能使唐纳德·特朗普结束战争、遏制德黑兰核计划的努力受挫。
 
-委内瑞拉南方电视台称，罗德里格斯在电视讲话中宣布了这项紧急决定，并强调保障公民生命安全仍是委内瑞拉的绝对优先事项。
+两位知情人士透露，原定周五在瑞士举行的谈判因以色列与伊朗支持的真主党武装之间的冲突而推迟。
 
-法新社称，自24日首次地震以来，委内瑞拉已发生20多次余震。
+一名美国官员表示，以色列和真主党周五晚些时候同意停火。
 
-委首都附近的迈克蒂亚西蒙·玻利瓦尔国际机场由于建筑结构损毁严重，现已关闭。
+双方均表示，如果对方也遵守停火，己方将承诺停火，否则将作出回应。
 
-此外，委政府下令暂时停运包括加拉加斯地铁和区域铁路网在内的公共交通系统。
+伊朗坚持要求将黎巴嫩停火纳入本周与美国敲定的临时和平协议，并因新一轮敌对行动而没有派代表团参加谈判。
 
-目前，委紧急救援部队已在加拉加斯和六个州展开大规模救援行动。
+原定代表华盛顿出席的美国副总统JD·万斯也未成行。
 
-中国驻委内瑞拉使馆微信公众号25日提醒在委中国公民密切关注当地地震预警和灾害相关信息，防范余震及地震导致的次生灾害，并提示相关地区中国公民立即远离海边，转移至安全区域避险。
+目前尚无新的磋商启动日期。
 
 ## 相关推荐
 
-- 2026-06-30 09:04 - 把毒品藏在哪里，60秒内不会被发现？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md
-- 2026-06-30 09:03 - 千万不要随便扣肚脐<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md
-- 2026-06-30 09:10 - 泰山建135公里刀片刺绳隔离网<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md
-- 2026-06-30 09:17 - 妻子撞死家暴丈夫案二审案情反转<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md
-- 2026-06-30 09:01 - 感动全网的699分女生想报考清华<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md
-- 2026-06-30 09:00 - 李准基参加文彩元婚礼<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md
-- 2026-06-30 09:03 - 日本五次世界杯淘汰赛全败<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md
-- 2026-06-30 09:11 - 央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md
-- 2026-06-30 09:08 - 如何看待武亮说大学生生活费1500就够用这一言论？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md
-- 2026-06-30 09:12 - ASMR 千禧年百货大楼初代柜姐给你化大头贴妆<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md
-- 2026-06-30 09:13 - 蜘蛛侠:平行宇宙<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md
+- 2026-06-30 09:22 - 全网说丑的格力玫瑰空调卖了5万台<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md
+- 2026-06-30 09:03 - 中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md
+- 2026-06-30 09:16 - 蔚来回应高压水枪洗车掉漆<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md
+- 2026-06-30 09:18 - 收到补税提醒尽快办理 明起有滞纳金<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md
+- 2026-06-30 09:26 - ⚡逼尔摩斯教你玩球⚡<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md
+- 2026-06-30 09:16 - 王楚钦说配合稍微有些陌生感<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md
+- 2026-06-30 09:15 - 扬名立万<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md
+- 2026-06-30 09:27 - 覃予萱晋级WTT美国大满贯女单32强<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md
+- 2026-06-30 09:22 - 如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md
+- 2026-06-30 09:12 - 韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md
+- 2026-06-30 09:15 - 《恋与深空》被指触碰民族伤痛红线<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md
+- 2026-06-30 09:16 - 这种关系可能正在悄悄“催老”你<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md
+- 2026-06-30 09:12 - 网瘾賊大的阿嬷<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md
+- 2026-06-30 09:05 - GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:20 - 乔家的儿女<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/5360384.shtml
-- 2026-06-30 09:17 - 马杜罗账号在纽约发文致谢各国援助<br><br> | ??:http://www.share.minike.top/Article/details/400377347483.shtml
-- 2026-06-30 08:57 - 黄晓明晒和周杰伦的合照<br><br> | ??:https://www.share.kurohicncr.top/Article/details/372181253.shtml
-- 2026-06-30 08:56 - 巴西2比1日本<br><br> | ??:http://www.blog.minike.top/Article/details/87059895410.shtml
-- 2026-06-30 09:13 - 四川宜宾地震瞬间鱼群乱跳<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/366216.shtml
-- 2026-06-30 09:23 - 【大鸣王潮1566】真拿你没办法<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/99465244.shtml
-- 2026-06-30 09:06 - 歌剧老师锐评歌手第6期<br><br> | ??:http://www.share.kurohicncr.top/Article/details/125304492.shtml
-- 2026-06-30 09:04 - 大学生遇地震裹被子从5楼冲下<br><br> | ??:https://www.blog.minike.top/Article/details/870458.shtml
-- 2026-06-30 08:56 - 这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆<br><br> | ??:http://www.blog.minike.top/Article/details/6338538594.shtml
-- 2026-06-30 09:15 - ASMR 千禧年百货大楼初代柜姐给你化大头贴妆<br><br> | ??:http://www.share.minike.top/Article/details/583843.shtml
-- 2026-06-30 09:19 - 齐思钧回复张月<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/09682.shtml
-- 2026-06-30 09:06 - 宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？<br><br> | ??:http://www.share.minike.top/Article/details/130837656817.shtml
-- 2026-06-30 09:06 - 女子用家人生日买彩票中1032万<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/330699003925.shtml
-- 2026-06-30 09:06 - 吴启华卖肖像权拍AI电影<br><br> | ??:https://www.share.minike.top/Article/details/31818.shtml
-- 2026-06-30 09:13 - 马耳他著名拱门坍塌致一中国男子身亡<br><br> | ??:https://www.blog.minike.top/Article/details/31111882.shtml
+- 2026-06-30 09:27 - 张月收到黄灿灿辣货两眼发光<br><br> | ??:http://www.share.minike.top/Article/details/85019364278.shtml
+- 2026-06-30 09:26 - 我和我的家乡<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/41265918547.shtml
+- 2026-06-30 09:04 - 杨紫被质疑未使用原名<br><br> | ??:https://www.share.kurohicncr.top/Article/details/59595.shtml
+- 2026-06-30 09:22 - 巴西足球能否再现昔日荣光<br><br> | ??:http://www.share.kurohicncr.top/Article/details/7223165.shtml
+- 2026-06-30 09:14 - 有什么好的高中网课推荐吗？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/4394129.shtml
+- 2026-06-30 09:22 - 泰山建135公里刀片刺绳隔离网<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/65912.shtml
+- 2026-06-30 09:08 - 杨紫大银幕成绩单如何<br><br> | ??:https://www.share.kurohicncr.top/Article/details/3341271.shtml
+- 2026-06-30 09:07 - 德国队世界杯点球大战首败<br><br> | ??:https://www.blog.minike.top/Article/details/7476749.shtml
+- 2026-06-30 09:09 - 国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/16239021471.shtml
+- 2026-06-30 09:08 - 日本将帅赛后采访纷纷哽咽落泪<br><br> | ??:http://www.share.kurohicncr.top/Article/details/17226097687.shtml
+- 2026-06-30 09:20 - 一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/1651287.shtml
+- 2026-06-30 09:10 - 被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】<br><br> | ??:http://www.blog.minike.top/Article/details/253907030326.shtml
+- 2026-06-30 09:25 - 马耳他著名拱门坍塌致一中国男子身亡<br><br> | ??:http://www.share.minike.top/Article/details/0074045.shtml
+- 2026-06-30 09:02 - 美股深夜大反弹 特斯拉飙涨8%<br><br> | ??:https://www.blog.minike.top/Article/details/30371183.shtml
+- 2026-06-30 09:25 - 吴启华卖肖像权拍AI电影<br><br> | ??:https://www.share.kurohicncr.top/Article/details/74193976130.shtml

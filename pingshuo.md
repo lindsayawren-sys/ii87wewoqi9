@@ -1,59 +1,56 @@
-# 全国工商联副主席李冰：坚守安全底线，坚持智能向善
+# 12个国产大模型猜了24场球，最后拼的不是懂球，是风险偏好
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-专题：ISC.AI2026第十四届互联网安全大会 ISC.AI2026第十四届互联网安全大会于6月24日在北京举办，主题为智能体颠覆安全。全国工商联党组成员、副主席李冰出席并致辞。 针对民营企业在人工智能时代的发展路径，李冰提出了三点意见。首先，要把握时代方向，胸怀“国之大者”，在融入国家战略中抢抓发展机遇。我国在人工智能科技创新、产业基础支撑、人才资源及应用场景等方面具备显著
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！导语：联想集团与咪咕共同发起的“世界杯预测人机大战”，迎来了小组赛第一轮24场的结束。截至目前，百度文心领跑，联想天禧AI、中移九天、腾讯混元并列第二。但这场实验真正有意思的地方，不是谁多猜中一场，而是12个大模型第一次在全民可见的场景里，同时暴露了自己的决策性格。 6月18日凌晨，乌兹别克斯坦1：3不敌哥
 
 ## 正文
 
-专题：ISC.AI2026第十四届互联网安全大会 ISC.AI2026第十四届互联网安全大会于6月24日在北京举办，主题为智能体颠覆安全。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-全国工商联党组成员、副主席李冰出席并致辞。
+导语：联想集团与咪咕共同发起的“世界杯预测人机大战”，迎来了小组赛第一轮24场的结束。
 
-针对民营企业在人工智能时代的发展路径，李冰提出了三点意见。
+截至目前，百度文心领跑，联想天禧AI、中移九天、腾讯混元并列第二。
 
-首先，要把握时代方向，胸怀“国之大者”，在融入国家战略中抢抓发展机遇。
+但这场实验真正有意思的地方，不是谁多猜中一场，而是12个大模型第一次在全民可见的场景里，同时暴露了自己的决策性格。
 
-我国在人工智能科技创新、产业基础支撑、人才资源及应用场景等方面具备显著优势，民营企业应围绕培育智能原生新模式、新业态，加快推动大模型与智能体技术的规模化落地与商业普及，助力传统产业升级，开辟未来产业新赛道，打造智能经济新生态。
+6月18日凌晨，乌兹别克斯坦1：3不敌哥伦比亚。
 
-其次，要深耕自主创新，锤炼硬实实力，在攻坚克难中筑牢发展根基。
+随着终场哨响，2026世界杯小组赛首轮24场全部结束。
 
-他指出，当前人工智能产业正处于从技术单点突破迈向全域价值释放的关键阶段。
+对于球迷来说，这是48支球队第一次亮相后的实力摸底；对于AI行业来说，它也是一场罕见的公开考试。
 
-作为贡献了70%以上技术创新成果的科技创新主体，民营企业应加大研发投入，深入与高校院所及产业链上下游企业协同联动，组建创新联合体，打通技术研发、成果转化与市场应用的全链条。
+在联想集团与咪咕视频共同发起的“世界杯预测人机大战”中，12个国内主流AI被放进同一张赛程表：联想天禧AI、DeepSeek、通义千问、百度文心、腾讯混元、Kimi、智谱、MiniMax、阶跃、讯飞星火、商汤小浣熊、中移九天，逐场给出胜平负和比分预测。
 
 ## 相关推荐
 
-- 2026-06-30 09:18 - 本届世界杯已有5名球员被控强奸<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md
-- 2026-06-30 09:03 - 杨紫获白玉兰视后为何争议难平<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md
-- 2026-06-30 08:59 - 内马尔中场休息积极鼓励队友<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md
-- 2026-06-30 09:04 - 2021江苏卫视跨年演唱会<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md
-- 2026-06-30 09:20 - 手底下人带不动怎么办？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md
-- 2026-06-30 09:12 - 黄晓明夸昆凌引杨颖对比<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md
-- 2026-06-30 09:12 - 三星投资计划<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md
-- 2026-06-30 09:20 - 为什么纣王似乎对周文王的扩张完全无动于衷？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md
-- 2026-06-30 09:14 - 深扒韩国队淘汰背后原因<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md
-- 2026-06-30 08:55 - 恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md
-- 2026-06-30 09:18 - 董卿父亲在报纸上发文悼念亡妻<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md
-- 2026-06-30 09:13 - 点球大战 残酷<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md
-- 2026-06-30 09:23 - 《共患难》<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md
+- 2026-06-30 09:23 - 董路：谁赢谁是“正路子”<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md
+- 2026-06-30 09:02 - 亚洲球队全部告别世界杯<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md
+- 2026-06-30 09:20 - 你人生中最艰难的时候是怎么熬过来的？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md
+- 2026-06-30 09:13 - 巴西醒醒 这是淘汰赛<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md
+- 2026-06-30 09:21 - 浪姐成团夜爆笑吐槽<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md
+- 2026-06-30 09:22 - 赛博朋克边缘行者2预告片<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md
+- 2026-06-30 09:09 - 日本遭读秒绝杀 森保一：我水平不够<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md
+- 2026-06-30 09:09 - 德国爆冷点球大战不敌巴拉圭<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md
+- 2026-06-30 09:04 - 现在叛逆期的孩子最怕的是什么？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md
+- 2026-06-30 09:10 - 城市规划有可能成为「屎山代码」吗？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:08 - 上市央企地产商 两年换了三任董事长<br><br> | ??:http://www.blog.minike.top/Article/details/770372.shtml
-- 2026-06-30 09:21 - 豆包收费了，你还会用吗？<br><br> | ??:https://www.blog.minike.top/Article/details/759168344582.shtml
-- 2026-06-30 09:13 - 挪威国家队紧急从本土订购大批海鲜<br><br> | ??:https://www.share.kurohicncr.top/Article/details/42149643.shtml
-- 2026-06-30 09:01 - 荷兰vs摩洛哥<br><br> | ??:http://www.share.kurohicncr.top/Article/details/047646.shtml
-- 2026-06-30 09:18 - 男子中医院拔火罐致浅2度烧伤<br><br> | ??:http://www.blog.minike.top/Article/details/12246190.shtml
-- 2026-06-30 09:10 - 第3集丨“柠檬茶能换怀表？”<br><br> | ??:http://www.share.kurohicncr.top/Article/details/971453221617.shtml
-- 2026-06-30 09:19 - 郑钦文 四年一轮游<br><br> | ??:http://www.share.kurohicncr.top/Article/details/4674159953.shtml
-- 2026-06-30 09:23 - 日本遭读秒绝杀 森保一：我水平不够<br><br> | ??:http://www.share.kurohicncr.top/Article/details/4493770.shtml
-- 2026-06-30 09:02 - 诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/94311974.shtml
-- 2026-06-30 08:54 - 如何评价《龙之家族》第三季第二集？<br><br> | ??:https://www.share.minike.top/Article/details/707826020027.shtml
-- 2026-06-30 08:57 - 庆祝中国共产党成立105周年大会将举行<br><br> | ??:http://www.share.kurohicncr.top/Article/details/819218.shtml
-- 2026-06-30 09:07 - 卢卡申科发布解放军仪仗队视频<br><br> | ??:http://www.share.minike.top/Article/details/406832.shtml
-- 2026-06-30 09:00 - 警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？<br><br> | ??:https://www.share.minike.top/Article/details/60718.shtml
-- 2026-06-30 08:57 - 勇敢的心第二部<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/05243.shtml
-- 2026-06-30 09:20 - 找到了10年前跪舔b站的视频<br><br> | ??:https://www.share.kurohicncr.top/Article/details/158109573774.shtml
+- 2026-06-30 09:22 - 男子造谣东鹏老板不喝自家饮料被拘<br><br> | ??:http://www.share.minike.top/Article/details/03650347.shtml
+- 2026-06-30 09:09 - 第一次对自信的力量有了实感<br><br> | ??:https://www.blog.minike.top/Article/details/98319240155.shtml
+- 2026-06-30 09:26 - 我们看到的星星是不是有些已经不存在了？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/31348682912.shtml
+- 2026-06-30 09:09 - 咕嘎万能小摊1：沉浸式制作惠灵顿牛排<br><br> | ??:http://www.share.kurohicncr.top/Article/details/41574.shtml
+- 2026-06-30 09:09 - 古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?<br><br> | ??:https://www.share.minike.top/Article/details/05954017410.shtml
+- 2026-06-30 09:06 - 巴拉圭先进球了<br><br> | ??:http://www.share.kurohicncr.top/Article/details/6998431349.shtml
+- 2026-06-30 09:10 - 王楚钦孙颖莎vs皮斯特耶库库洛娃<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/046915.shtml
+- 2026-06-30 09:24 - 泰山景区建135公里刀片刺绳隔离网<br><br> | ??:https://www.share.minike.top/Article/details/3793830.shtml
+- 2026-06-30 09:12 - 【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸<br><br> | ??:https://www.share.minike.top/Article/details/15850181916.shtml
+- 2026-06-30 09:12 - 补时绝杀 巴西2-1淘汰日本<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/58578804.shtml
+- 2026-06-30 09:25 - 德国淘汰<br><br> | ??:https://www.share.kurohicncr.top/Article/details/5469004273.shtml
+- 2026-06-30 09:21 - 德国身价是巴拉圭6倍<br><br> | ??:https://www.blog.minike.top/Article/details/526446457580.shtml
+- 2026-06-30 09:24 - 当我知道豆包有后台审核人员<br><br> | ??:https://www.share.minike.top/Article/details/13119288.shtml
+- 2026-06-30 09:17 - 81岁老人被男子买光菜回家车祸去世<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/312682752900.shtml
+- 2026-06-30 09:07 - 黄晓明晒和周杰伦的合照<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/9874017853.shtml

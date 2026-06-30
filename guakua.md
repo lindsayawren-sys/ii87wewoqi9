@@ -1,60 +1,61 @@
-# 哥伦比亚官方：德拉埃斯普列亚当选该国新任总统
+# 鲁政委谈“科创的春天”：中国具有从“1”到“N”的创新扩散优势
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-中新社北京6月25日电 波哥大消息：哥伦比亚全国选举委员会当地时间24日宣布，根据“正式审查计票”结果，来自极右翼政治团体“祖国捍卫者”的独立候选人阿韦拉多·德拉埃斯普列亚当选该国新任总统。 哥伦比亚21日举行总统选举第二轮投票，德拉埃斯普列亚与来自左翼执政联盟“哥伦比亚历史公约联盟”的伊万·塞佩达展开最终角逐。 综合《哥伦比亚人报》、美联社与英国《卫报》报道，在哥全国选举委员
+中新网天津6月18日电 (记者 周亚强)兴业研究2026年度中期策略会近日在天津举行，兴业银行首席经济学家鲁政委在会上以《科创的春天》为题发表主旨演讲称，中国具有从“1”到“N”的创新扩散优势，资本市场有望进入估值提升期，科技创新也将迎来繁荣的春天。 鲁政委认为，当前全球科技竞争加速演进，从硅谷发展经验看，重大科技突破离不开国家战略需求牵引、财政资金支持、产业体系承载、资本市场
 
 ## 正文
 
-中新社北京6月25日电 波哥大消息：哥伦比亚全国选举委员会当地时间24日宣布，根据“正式审查计票”结果，来自极右翼政治团体“祖国捍卫者”的独立候选人阿韦拉多·德拉埃斯普列亚当选该国新任总统。
+中新网天津6月18日电 (记者 周亚强)兴业研究2026年度中期策略会近日在天津举行，兴业银行首席经济学家鲁政委在会上以《科创的春天》为题发表主旨演讲称，中国具有从“1”到“N”的创新扩散优势，资本市场有望进入估值提升期，科技创新也将迎来繁荣的春天。
 
-哥伦比亚21日举行总统选举第二轮投票，德拉埃斯普列亚与来自左翼执政联盟“哥伦比亚历史公约联盟”的伊万·塞佩达展开最终角逐。
+鲁政委认为，当前全球科技竞争加速演进，从硅谷发展经验看，重大科技突破离不开国家战略需求牵引、财政资金支持、产业体系承载、资本市场接力等多重机制协同。
 
-综合《哥伦比亚人报》、美联社与英国《卫报》报道，在哥全国选举委员会宣布正式结果前，塞佩达已于24日承认败选，称这是出于“民主责任感”，也是为了“促进哥伦比亚人民之间的共处、和平与对话”。
+他表示，当前，中国正加速形成从储蓄到资本支持创新的闭环，通过种子基金、PE/VC、IPO快速通道、ETF和银行科创金融等共同滋养创新。
 
-他表示，接受选举结果并不意味着放弃查明真相，也不意味着“对我们认为严重并且影响本次总统选举的情况保持沉默”。
+从中国证监会释放的最新消息看，科创板方面近期将推出2项改革措施，包括扩大第五套标准适用范围至人工智能领域，积极支持优质人工智能大模型企业上市。
 
-德拉埃斯普列亚竞选团队24日发表声明，称竞选活动已经结束，“是时候团结起来应对国家面临的主要挑战”。
+同时，落实发展未来产业战略部署，支持量子科技、生物制造、具身智能等更多领域“硬科技”企业在科创板上市。
 
-47岁的德拉埃斯普列亚将于8月7日开始其为期4年的总统任期。
+近年来科创板和创业板的规模、功能和影响力持续增强，目前上市公司数量合计超过2000家、总市值超过35万亿元人民币，在新能源、集成电路、生物医药、高端装备制造等领域形成了集聚效应。
 
-根据哥伦比亚现行选举制度，选举计票采用“双轨制”。
+兴业研究宏观市场部总经理郭于玮在会上还提到，新动能欣欣向荣、旧动能转型升级是2026年宏观经济中并行的两条主线。
 
-选举日结束后，首先由哥伦比亚国家民事登记处委托的技术服务商进行“初步计票”，但该结果不具备法律效力。
+AI产业链已成为出口主引擎和盈利生成器，引领制造业上市公司进入新一轮投资扩张期。
 
 ## 相关推荐
 
-- 2026-06-30 09:18 - 赛博朋克边缘行者2预告片<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md
-- 2026-06-30 09:05 - 欧洲家电巨头为何输掉了这个夏天<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md
-- 2026-06-30 08:54 - 《贺子珍》<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md
-- 2026-06-30 09:07 - 上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md
-- 2026-06-30 09:04 - 峡谷事故团队组队时有人提醒会下雨<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md
-- 2026-06-30 09:09 - 德国巴拉圭加时<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md
-- 2026-06-30 09:05 - 扫黑风暴<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md
-- 2026-06-30 08:58 - 终于把好哥们处成了情侣!<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md
-- 2026-06-30 09:08 - 为什么很多企业推行“扁平化管理”后，效率反而下降了？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md
-- 2026-06-30 09:18 - 全网说丑的玫瑰空调卖了5万台<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md
-- 2026-06-30 09:08 - 全新问界M9现身美国街头<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md
-- 2026-06-30 08:56 - 我和我的家乡<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md
-- 2026-06-30 09:06 - 德国巴拉圭 折磨<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md
-- 2026-06-30 09:16 - 存储芯片龙头提示风险<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md
+- 2026-06-30 09:27 - 巴西绝杀日本<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md
+- 2026-06-30 09:16 - 2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md
+- 2026-06-30 09:27 - 日本淘汰<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md
+- 2026-06-30 09:06 - 网友写差评被店家“挂”门口避雷<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md
+- 2026-06-30 09:00 - 中国新一轮出口管制直指日本命脉<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md
+- 2026-06-30 09:12 - 美加墨世界杯：亚洲足球的得意与失意<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md
+- 2026-06-30 09:14 - 齐思钧回复张月<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md
+- 2026-06-30 09:20 - 曝灰熊将莫兰特交易至开拓者<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md
+- 2026-06-30 09:01 - 科学备孕男女都要上心<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md
+- 2026-06-30 09:22 - 有哪些值得一提的生活窍门？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md
+- 2026-06-30 09:18 - 德国 传控<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md
+- 2026-06-30 09:01 - 急先锋<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md
+- 2026-06-30 09:07 - 勇敢的心第二部<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md
+- 2026-06-30 09:08 - 如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md
+- 2026-06-30 09:02 - 赵今麦因“瘦而不柴”的体态出圈<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:23 - 恋与深空<br><br> | ??:http://www.share.minike.top/Article/details/59370964.shtml
-- 2026-06-30 09:06 - 为什么纣王似乎对周文王的扩张完全无动于衷？<br><br> | ??:http://www.share.minike.top/Article/details/3311931983.shtml
-- 2026-06-30 09:05 - ASMR 千禧年百货大楼初代柜姐给你化大头贴妆<br><br> | ??:http://www.share.kurohicncr.top/Article/details/7740901.shtml
-- 2026-06-30 09:00 - 挪威国家队紧急从本土订购大批海鲜<br><br> | ??:https://www.share.minike.top/Article/details/76771221970.shtml
-- 2026-06-30 09:05 - 第一次对自信的力量有了实感<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/9588241.shtml
-- 2026-06-30 09:06 - 逃狱兄弟<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/94929254443.shtml
-- 2026-06-30 09:05 - 时光音乐会<br><br> | ??:http://www.blog.minike.top/Article/details/975790.shtml
-- 2026-06-30 08:57 - 巴拉圭门将<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/77930692512.shtml
-- 2026-06-30 09:04 - 《虎吹最难绷の一集》<br><br> | ??:https://www.blog.minike.top/Article/details/015049.shtml
-- 2026-06-30 08:54 - 金牌调解<br><br> | ??:https://www.blog.minike.top/Article/details/16869029.shtml
-- 2026-06-30 08:57 - 我吃遍了西安最強的街頭小吃，第九家強得離譜！<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/27956.shtml
-- 2026-06-30 09:06 - 考入南大计算机，复读考清北值吗？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/766836.shtml
-- 2026-06-30 09:18 - 【Reaction】女生最少的5款游戏<br><br> | ??:http://www.share.minike.top/Article/details/9967740379.shtml
-- 2026-06-30 09:09 - 马杜罗账号在纽约发文致谢各国援助<br><br> | ??:https://www.blog.minike.top/Article/details/955819328.shtml
-- 2026-06-30 08:59 - 追梦拒绝2770万美元球员选项<br><br> | ??:http://www.share.minike.top/Article/details/014953704.shtml
+- 2026-06-30 09:04 - 锐评：网红不能困在无底线逐利里<br><br> | ??:https://www.share.minike.top/Article/details/3220266.shtml
+- 2026-06-30 09:10 - 杨紫被质疑未使用原名<br><br> | ??:https://www.share.kurohicncr.top/Article/details/99768298.shtml
+- 2026-06-30 09:10 - 金牌调解<br><br> | ??:https://www.share.minike.top/Article/details/123875013309.shtml
+- 2026-06-30 09:19 - 深扒韩国队淘汰背后原因<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/3262213.shtml
+- 2026-06-30 09:29 - 世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/1977698407.shtml
+- 2026-06-30 09:04 - 武磊：日本队有能力跟任何强队抗衡<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/32475487406.shtml
+- 2026-06-30 09:18 - 如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？<br><br> | ??:https://www.blog.minike.top/Article/details/4837375606.shtml
+- 2026-06-30 09:29 - 委内瑞拉地震死亡人数升至1719人<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/821418186.shtml
+- 2026-06-30 09:14 - 德国身价是巴拉圭6倍<br><br> | ??:https://www.share.kurohicncr.top/Article/details/215008988.shtml
+- 2026-06-30 09:09 - 2021江苏卫视跨年演唱会<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/99946881.shtml
+- 2026-06-30 09:18 - 曝老詹对自由市场态度与以往截然不同<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/35460.shtml
+- 2026-06-30 09:19 - 我和我的家乡<br><br> | ??:https://www.share.kurohicncr.top/Article/details/85745698.shtml
+- 2026-06-30 09:05 - 沙丘<br><br> | ??:http://www.blog.minike.top/Article/details/235130064991.shtml
+- 2026-06-30 09:00 - 日本球员说被绝杀非常不甘心<br><br> | ??:https://www.blog.minike.top/Article/details/3152133946.shtml
+- 2026-06-30 09:29 - 被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】<br><br> | ??:https://www.blog.minike.top/Article/details/743908.shtml

@@ -1,58 +1,59 @@
-# 国务院办公厅关于进一步完善大中型水库移民后期扶持政策的通知
+# “一封平安批 万里家国情” 图博会北京展区多维诠释百年侨韵
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-国务院办公厅关于进一步完善 大中型水库移民后期扶持政策的通知 国办发〔2026〕20号 各省、自治区、直辖市人民政府，国务院各部委、各直属机构：根据《国务院关于完善大中型水库移民后期扶持政策的意见》(国发〔2006〕17号)，为巩固拓展大中型水库移民后期扶持政策成果，进一步改善水库移民生产生活条件，经国务院同意，现将有关事项通知如下： 一、设置5年过渡期 对已纳入扶持范围的移民
+中新网北京6月18日电 (记者 高凯)结合热映影片《给阿嬷的情书》，联合中国华侨博物馆展出海外华侨家用侨批、抗战捐款侨批，同步展陈“五个一工程”奖获奖作品《平安批》——第三十二届北京图博会上，北京展区以多维度诠释“一封平安批 万里家国情”的深厚家国情怀，收获颇多关注。据介绍，北京展区此次以“书香京城 悦读世界”为主题，组织市属图书出版单位、属地重点网络出版企业及民营版权输出优秀
 
 ## 正文
 
-国务院办公厅关于进一步完善 大中型水库移民后期扶持政策的通知 国办发〔2026〕20号 各省、自治区、直辖市人民政府，国务院各部委、各直属机构：根据《国务院关于完善大中型水库移民后期扶持政策的意见》(国发〔2006〕17号)，为巩固拓展大中型水库移民后期扶持政策成果，进一步改善水库移民生产生活条件，经国务院同意，现将有关事项通知如下： 一、设置5年过渡期 对已纳入扶持范围的移民，扶持期限在现有基础上延长5年；对2026年6月30日以前开工在建水库的未搬迁移民和2026年7月1日之后新建水库产生的移民，纳入扶持范围的，扶持期限按25年计算。
+中新网北京6月18日电 (记者 高凯)结合热映影片《给阿嬷的情书》，联合中国华侨博物馆展出海外华侨家用侨批、抗战捐款侨批，同步展陈“五个一工程”奖获奖作品《平安批》——第三十二届北京图博会上，北京展区以多维度诠释“一封平安批 万里家国情”的深厚家国情怀，收获颇多关注。
 
-二、扶持对象、标准、方式等保持不变 扶持对象仍为大中型水库农村移民。
+据介绍，北京展区此次以“书香京城 悦读世界”为主题，组织市属图书出版单位、属地重点网络出版企业及民营版权输出优秀企业等30余家主体联合参展。
 
-扶持标准仍为每人每年600元，能够直接发放给水库移民个人的应尽量发放到个人，也可以实行项目扶持，还可以采取两者结合的方式。
+展区核心区域集中展示党的二十大以来北京市属出版单位荣获“五个一工程”奖、中国出版政府奖、茅盾文学奖等国家级奖项的原创力作，以及彰显北京古都文化、红色文化、京味文化、创新文化的重点出版物，除《北上》《宝水》《阿娜河畔》等经典作品外，《中国工农红军长征史》《曹禺全集》《国际名人看中国》等重磅图书也将集中展出。
 
-截至2026年6月30日的后期扶持人口，由水利部负责核定。
+展区创新采用立体化展陈模式，不仅陈列海外侨胞寄回故乡、维系亲情的私人家书、极具历史价值的抗战捐款侨批等，更同步推介北京十月文艺出版社出版的长篇小说精品《平安批》。
 
-2026年7月1日之后新建水库产生的需纳入扶持范围的移民，由水利部会同国家发展改革委、国家能源局等有关部门每年核定一次。
+该书以主人公郑梦梅闯荡南洋、创办批局的人生轨迹为主线，生动讲述侨商深耕侨批行业、连通山海故土的奋斗故事。
 
-三、做好水库移民扶持基金管理 大中型水库移民后期扶持基金、大中型水库库区基金的政策保持稳定，征收标准、征缴程序维持不变。
+展陈有机串联优质文学作品与私家侨批、抗战侨批实物，形成叙事上的深度互补，细腻描绘侨胞寄银报安、赡养眷属的日常图景，真实再现抗战时期海外侨胞众志成城、支援祖国的赤诚壮举。
 
-四、促进水库移民增收 在发放后期扶持资金的同时，继续运用大中型水库移民后期扶持基金、大中型水库库区基金等提升库区和移民安置区发展水平，建立水库移民公平分享产业发展收益机制，不断拓宽水库移民增收渠道，提高移民收入水平。
+版权“走出去”成果亦获重点展示，《平凡的世界》《穆斯林的葬礼》《跑步穿过中关村》《北上》《云中记》等享誉海内外的经典作品多语种版本，以及“刘慈欣科幻漫画系列”海外发行作品悉数亮相。
 
-支持库区和移民安置区立足资源禀赋和产业基础，积极发展特色种植养殖、农产品加工、生态康养、休闲旅游、农村电商等特色产业，壮大新型农村集体经济。
+据悉，展会期间，30余场文化交流活动轮番登场，覆盖版权签约、国际对谈、名家分享、非遗体验等多元类型。
 
 ## 相关推荐
 
-- 2026-06-30 08:56 - 我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md
-- 2026-06-30 09:11 - 欧洲空调卖疯了 下一个爆款是储能吗<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md
-- 2026-06-30 09:19 - 小娘惹<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md
-- 2026-06-30 09:08 - 本科毕业生为何涌入专科学校<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md
-- 2026-06-30 09:17 - 曝灰熊将莫兰特交易至开拓者<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md
-- 2026-06-30 08:57 - hanser X 赖美云《室内系的Track Maker》<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md
-- 2026-06-30 09:22 - 巴拉圭率先破门<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md
-- 2026-06-30 08:55 - 蔚来回应高压水枪洗车掉漆<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md
-- 2026-06-30 08:57 - 如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md
-- 2026-06-30 08:59 - 三星投资计划<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md
-- 2026-06-30 09:14 - 送你一朵小红花<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md
-- 2026-06-30 09:00 - 世界杯欧洲队7战南美仅1胜<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md
+- 2026-06-30 09:21 - 美团、淘宝闪购、京东外卖达成共识<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md
+- 2026-06-30 09:15 - 陈小春人老了干什么也不心酸<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md
+- 2026-06-30 09:12 - 巴西在进攻三区完成210脚传球<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md
+- 2026-06-30 09:12 - 爆冷出局！德国点球大战不敌巴拉圭<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md
+- 2026-06-30 09:24 - 马耳他著名拱门坍塌致中国男子身亡<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md
+- 2026-06-30 09:06 - 斛珠夫人<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md
+- 2026-06-30 09:16 - 欧洲空调卖疯了 下一个爆款是储能吗<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md
+- 2026-06-30 09:02 - 李在明向韩国两大财阀90度鞠躬<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md
+- 2026-06-30 09:05 - 普京为何将俄乌谈判时间表与伊朗挂钩<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md
+- 2026-06-30 09:07 - 一见倾心<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md
+- 2026-06-30 09:22 - 国内最大沙漠发洪水意味着什么<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md
+- 2026-06-30 09:12 - 庆祝中国共产党成立105周年大会将举行<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md
+- 2026-06-30 09:21 - 主人解开狗绳2只狗将路人撕咬致死<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:10 - 马航370搜寻最新消息<br><br> | ??:https://www.share.minike.top/Article/details/34915822709.shtml
-- 2026-06-30 08:58 - 巴拉圭率先破门<br><br> | ??:http://www.share.kurohicncr.top/Article/details/35147333.shtml
-- 2026-06-30 09:15 - 恐怖世界 第三集 埃温霍姆村<br><br> | ??:https://www.share.minike.top/Article/details/3382930.shtml
-- 2026-06-30 09:13 - 2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/0244819.shtml
-- 2026-06-30 09:19 - 巴拉圭进球<br><br> | ??:https://www.blog.minike.top/Article/details/70222.shtml
-- 2026-06-30 08:58 - 欧洲家电巨头为何输掉了这个夏天<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/82092596.shtml
-- 2026-06-30 09:09 - 吴易昺不敌德约科维奇 止步温网首轮<br><br> | ??:http://www.share.kurohicncr.top/Article/details/120618.shtml
-- 2026-06-30 09:01 - 这一刀 会很帅<br><br> | ??:http://www.share.minike.top/Article/details/3035574.shtml
-- 2026-06-30 09:01 - 上市央企地产商 两年换了三任董事长<br><br> | ??:http://www.blog.minike.top/Article/details/3854551333.shtml
-- 2026-06-30 09:08 - 世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？<br><br> | ??:http://www.share.minike.top/Article/details/36080198.shtml
-- 2026-06-30 09:06 - 一见倾心<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/701641458109.shtml
-- 2026-06-30 09:23 - 日本将帅赛后采访纷纷哽咽落泪<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/60612715.shtml
-- 2026-06-30 08:57 - 国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？<br><br> | ??:http://www.blog.minike.top/Article/details/39093.shtml
-- 2026-06-30 09:01 - 好像看到了人类带孩子崩溃的样子<br><br> | ??:https://www.blog.minike.top/Article/details/6205211777.shtml
-- 2026-06-30 09:06 - 被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】<br><br> | ??:https://www.share.minike.top/Article/details/58977929.shtml
+- 2026-06-30 09:00 - 巴西替补奇兵读秒绝杀<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/2196612.shtml
+- 2026-06-30 09:20 - 外国游客开始涌入中国农村<br><br> | ??:http://www.blog.minike.top/Article/details/66058.shtml
+- 2026-06-30 09:27 - 速度与激情9<br><br> | ??:https://www.blog.minike.top/Article/details/607284.shtml
+- 2026-06-30 09:04 - 董卿母亲癌症去世<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/65736.shtml
+- 2026-06-30 09:02 - 蜘蛛侠:英雄归来<br><br> | ??:http://www.share.minike.top/Article/details/59444.shtml
+- 2026-06-30 09:17 - 梅德韦杰夫列举俄罗斯面临的七大挑战<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/38874830646.shtml
+- 2026-06-30 09:14 - 世界杯巴拉圭点球淘汰德国<br><br> | ??:http://www.blog.minike.top/Article/details/427714437.shtml
+- 2026-06-30 09:13 - 明星大侦探第一季<br><br> | ??:https://www.share.kurohicncr.top/Article/details/758888467284.shtml
+- 2026-06-30 09:04 - 李在明向韩国两大财阀90度鞠躬<br><br> | ??:http://www.share.kurohicncr.top/Article/details/4061040331.shtml
+- 2026-06-30 09:04 - 扫黑风暴<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/285580207907.shtml
+- 2026-06-30 09:20 - 梅德韦杰夫列举俄罗斯面临的七大挑战<br><br> | ??:http://www.blog.minike.top/Article/details/19376332405.shtml
+- 2026-06-30 09:18 - 上市央企地产商 两年换了三任董事长<br><br> | ??:http://www.share.kurohicncr.top/Article/details/9873705415.shtml
+- 2026-06-30 09:27 - 我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......<br><br> | ??:https://www.share.minike.top/Article/details/4297397971.shtml
+- 2026-06-30 09:08 - 苗族银饰<br><br> | ??:http://www.share.minike.top/Article/details/03991537774.shtml
+- 2026-06-30 09:00 - 外国游客开始涌入中国农村<br><br> | ??:http://www.share.kurohicncr.top/Article/details/63157661705.shtml

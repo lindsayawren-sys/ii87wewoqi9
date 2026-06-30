@@ -1,56 +1,55 @@
-# 688146领衔！沪市半年报预约披露时间出炉
+# 伊朗称美国对以色列在黎巴嫩的行动负有直接责任
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月25日，沪市公司2026年半年报预约披露时间出炉。 其中，中船特气（688146）拔得头筹，将于7月18日披露半年报；海通发展将于7月21日披露半年报，龙软科技、神通科技将于7月23日披露半年报。 6月22日晚间，中船特气公告称，公司股票自2026年5月11日至6月22日期间多次触及异常波动及严重异常波
+伊朗官媒伊斯兰共和国通讯社援引该国外交部发言人Esmail Baghaei表示，美国对黎巴嫩局势以及以色列在黎巴嫩的军事行动负有“直接责任”。 伊朗强烈谴责以色列“对黎巴嫩犯下的罪行”，并警告称，以色列的军事行动将立即带来后果。 Baghaei表示，黎巴嫩停火是与美国达成的谅解备忘录不可分割的一部分。 Baghaei表示，伊朗将采取一切“必要措施”，保护其利益、安全和权利，以及
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+伊朗官媒伊斯兰共和国通讯社援引该国外交部发言人Esmail Baghaei表示，美国对黎巴嫩局势以及以色列在黎巴嫩的军事行动负有“直接责任”。
 
-6月25日，沪市公司2026年半年报预约披露时间出炉。
+伊朗强烈谴责以色列“对黎巴嫩犯下的罪行”，并警告称，以色列的军事行动将立即带来后果。
 
-其中，中船特气（688146）拔得头筹，将于7月18日披露半年报；海通发展将于7月21日披露半年报，龙软科技、神通科技将于7月23日披露半年报。
+Baghaei表示，黎巴嫩停火是与美国达成的谅解备忘录不可分割的一部分。
 
-6月22日晚间，中船特气公告称，公司股票自2026年5月11日至6月22日期间多次触及异常波动及严重异常波动，累计涨幅388.77%，市盈率显著高于行业平均水平。
+Baghaei表示，伊朗将采取一切“必要措施”，保护其利益、安全和权利，以及其盟友的利益、安全和权利。
 
-为维护投资者利益，公司股票将于6月23日开市起停牌，待披露核查公告后复牌。
-
-截至目前，中船特气报389.99元/股，总市值超2000亿元，该股今年以来大涨870%。
-
-责任编辑：刘万里 SF014
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-30 09:15 - 央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md
-- 2026-06-30 09:04 - 2026年WTT美国大满贯，国乒自带球桌是真实的吗？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md
-- 2026-06-30 09:21 - 找到了10年前跪舔b站的视频<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md
-- 2026-06-30 09:18 - 奔跑吧·黄河篇第二季<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md
-- 2026-06-30 09:06 - 【涤墨作战7人870】望：我从地狱杀回来了！<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md
-- 2026-06-30 09:18 - 有哪些被认为是现代才有的东西其实古代就有了？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md
-- 2026-06-30 09:23 - 第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md
-- 2026-06-30 09:21 - 2021江苏卫视跨年演唱会<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md
-- 2026-06-30 09:13 - 这种关系可能正在悄悄“催老”你<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md
-- 2026-06-30 09:02 - 天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md
-- 2026-06-30 09:15 - 全球芯片巨头史诗级扩产<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md
-- 2026-06-30 09:16 - 免费试吃发差评被店家挂店门避雷<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md
+- 2026-06-30 09:04 - 国务院：探索延长义务教育年限<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md
+- 2026-06-30 09:21 - 张雪的一句“是我们”引发岛内热议<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md
+- 2026-06-30 09:28 - 杨紫被质疑未使用原名<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md
+- 2026-06-30 09:16 - 美团、淘宝闪购、京东外卖达成共识<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md
+- 2026-06-30 09:14 - 左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md
+- 2026-06-30 09:02 - “错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md
+- 2026-06-30 09:26 - 媒体评泰山建135公里刀片刺绳隔离网<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md
+- 2026-06-30 09:04 - 内马尔安慰日本球员<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md
+- 2026-06-30 09:25 - 电子游戏中有哪些关于武器的“刻板印象”？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md
+- 2026-06-30 09:02 - hanser X 赖美云《室内系的Track Maker》<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md
+- 2026-06-30 09:22 - 又一家县级医院关停门诊输液大厅<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md
+- 2026-06-30 09:07 - 世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md
+- 2026-06-30 09:04 - 教育部披露：高考生篡改7名同学志愿<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md
+- 2026-06-30 09:08 - 一见倾心<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md
+- 2026-06-30 09:17 - 老人卖菜获博主帮助后遇车祸去世<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:00 - 高质量发展看新疆<br><br> | ??:https://www.blog.minike.top/Article/details/4085286397.shtml
-- 2026-06-30 08:57 - 赵丽颖风吹半夏含金量还在上升<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/3647746.shtml
-- 2026-06-30 09:20 - 索马里女大使：想和中国一起搞事业<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/98885.shtml
-- 2026-06-30 09:23 - 索马里女大使：想和中国一起搞事业<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/3908572.shtml
-- 2026-06-30 08:57 - 感动全网的699分女生想报考清华<br><br> | ??:https://www.blog.minike.top/Article/details/85882.shtml
-- 2026-06-30 09:01 - 乔家的儿女<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/1213945.shtml
-- 2026-06-30 09:08 - 美加墨世界杯：亚洲足球的得意与失意<br><br> | ??:https://www.share.kurohicncr.top/Article/details/521943986568.shtml
-- 2026-06-30 09:12 - 网红峡谷5人溺亡 有人提醒会下雨<br><br> | ??:http://www.share.minike.top/Article/details/50860.shtml
-- 2026-06-30 09:06 - 为什么纣王似乎对周文王的扩张完全无动于衷？<br><br> | ??:https://www.share.minike.top/Article/details/45417265492.shtml
-- 2026-06-30 09:05 - 警方介入洪明甫死亡威胁<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/404457276776.shtml
-- 2026-06-30 09:06 - 第一次对自信的力量有了实感<br><br> | ??:https://www.share.kurohicncr.top/Article/details/8281714712.shtml
-- 2026-06-30 09:13 - 韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/26887178.shtml
-- 2026-06-30 09:10 - 豆包收费了，你还会用吗？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/548770255.shtml
-- 2026-06-30 08:57 - 男子造谣东鹏老板不喝自家饮料被拘<br><br> | ??:http://www.blog.minike.top/Article/details/2654660164.shtml
-- 2026-06-30 09:17 - 巴西醒醒 这是淘汰赛<br><br> | ??:http://www.share.minike.top/Article/details/3448985509.shtml
+- 2026-06-30 09:16 - 黄晓明晒和周杰伦的合照<br><br> | ??:http://www.share.minike.top/Article/details/6175875.shtml
+- 2026-06-30 09:21 - 男子醉酒溺水获救后同行人拒协助抬人<br><br> | ??:https://www.share.minike.top/Article/details/250038631.shtml
+- 2026-06-30 09:17 - 已经看完《三国第一部：争洛阳》的人，如何评价这部电影？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/14298978.shtml
+- 2026-06-30 09:10 - 李在明90度鞠躬感谢韩国两大财阀<br><br> | ??:https://www.share.minike.top/Article/details/147032.shtml
+- 2026-06-30 09:06 - 毒液2<br><br> | ??:https://www.share.minike.top/Article/details/7359220.shtml
+- 2026-06-30 09:28 - 马耳他著名拱门坍塌致一中国男子身亡<br><br> | ??:https://www.share.kurohicncr.top/Article/details/49383160868.shtml
+- 2026-06-30 09:21 - 流金岁月<br><br> | ??:http://www.blog.minike.top/Article/details/623093410006.shtml
+- 2026-06-30 09:26 - 这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/2998915.shtml
+- 2026-06-30 09:23 - 武磊：日本队有能力跟任何强队抗衡<br><br> | ??:https://www.blog.minike.top/Article/details/794567783.shtml
+- 2026-06-30 09:25 - 欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/724617.shtml
+- 2026-06-30 09:27 - 俄乌双方伤亡近180万人<br><br> | ??:https://www.share.minike.top/Article/details/083779670.shtml
+- 2026-06-30 09:03 - 锐评：网红不能困在无底线逐利里<br><br> | ??:http://www.share.minike.top/Article/details/3891663.shtml
+- 2026-06-30 09:07 - 2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？<br><br> | ??:http://www.share.minike.top/Article/details/42664.shtml
+- 2026-06-30 09:24 - 杨紫被质疑未使用原名<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/04917.shtml
+- 2026-06-30 09:04 - 全网说丑的格力玫瑰空调卖了5万台<br><br> | ??:http://www.share.kurohicncr.top/Article/details/39866133.shtml

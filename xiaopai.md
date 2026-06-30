@@ -1,59 +1,52 @@
-# 随意更改效期标签、过期食材继续使用，1点点致歉
+# SpaceX获惠誉BBB+的投资级评级 展望为稳定
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-中新网北京6月24日电(记者 谢艺观)6月24日，1点点官方微博发布致歉与整改声明。 声明中称，近日，《中国食品安全报》报道公司部分门店存在食材效期管理混乱、员工操作卫生不规范及环境脏乱等问题，引发广泛关注。上述问题虽发生于个别门店，但反映出公司在日常管理执行层面仍有提升空间，个别门店在操作规范落实上存在明显偏差。 声明提到，涉事门店(温岭泽国店)立即停业，启动解约程序，绝不姑
+SpaceX获得惠誉授予的BBB+长期发行人违约评级，评级展望为“稳定”。 惠誉同时给予该公司高级无抵押循环信贷额度BBB+评级： “BBB+评级反映了SpaceX在商业发射领域的领先地位。在评级预测期内，该行业的进入壁垒实际上难以逾越。此外，公司来自卫星通信服务和地面人工智能算力业务的经常性收入正在快速增长”； “稳定展望反映了惠誉的预期，即EBITDA增长将支撑杠杆率维持在
 
 ## 正文
 
-中新网北京6月24日电(记者 谢艺观)6月24日，1点点官方微博发布致歉与整改声明。
+SpaceX获得惠誉授予的BBB+长期发行人违约评级，评级展望为“稳定”。
 
-声明中称，近日，《中国食品安全报》报道公司部分门店存在食材效期管理混乱、员工操作卫生不规范及环境脏乱等问题，引发广泛关注。
+惠誉同时给予该公司高级无抵押循环信贷额度BBB+评级： “BBB+评级反映了SpaceX在商业发射领域的领先地位。
 
-上述问题虽发生于个别门店，但反映出公司在日常管理执行层面仍有提升空间，个别门店在操作规范落实上存在明显偏差。
+在评级预测期内，该行业的进入壁垒实际上难以逾越。
 
-声明提到，涉事门店(温岭泽国店)立即停业，启动解约程序，绝不姑息；立即召开涉事区域会议，向全体伙伴重申食品安全是不可触碰的红线与底线，直面问题，严肃处理，加强稽核；立即展开全国门店稽核检查。
+此外，公司来自卫星通信服务和地面人工智能算力业务的经常性收入正在快速增长”； “稳定展望反映了惠誉的预期，即EBITDA增长将支撑杠杆率维持在管理层设定的2倍至3倍目标区间内或低于该水平”。
 
-据《中国食品安全报》近日报道，其在开展全国网络餐饮食品安全调研中发现，“1点点”奶茶门店随意更改食材效期标签，隔夜过期食材继续使用。
-
-与此同时，“1点点”奶茶门店还存在诸多食品安全问题，包括使用无厂家、无生产日期、无保质期的茶叶；一线食品操作人员全程未规范佩戴口罩、手套，佩戴首饰徒手制作饮品等问题。
-
-近些年，网红奶茶店乱象频频被曝光。
-
-2021年，上海市市场监管部门对1点点、茶百道等多个品牌奶茶店突击检查发现，食品标签不明确、冰箱内食物不加盖、操作区卫生不达标、物品与食品混放等现象普遍存在。
+责任编辑：陈钰嘉
 
 ## 相关推荐
 
-- 2026-06-30 09:19 - 巴西足球能否再现昔日荣光<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md
-- 2026-06-30 09:08 - 德国罚丢3粒点球<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md
-- 2026-06-30 09:16 - HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md
-- 2026-06-30 09:18 - 巴西若输日本将创36年最差纪录<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md
-- 2026-06-30 09:23 - 道友？你来真的啊？【凡人官方二创大会】<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md
-- 2026-06-30 09:17 - 内马尔未登场 安切洛蒂赛后回应<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md
-- 2026-06-30 09:05 - 森保一致歉：世界第一目标没能实现<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md
-- 2026-06-30 08:58 - “草莓月亮”浪漫现身<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md
-- 2026-06-30 09:09 - 日本主帅赛后回应淘汰出局<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md
-- 2026-06-30 09:14 - 大学生遇地震裹被子从5楼冲下<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md
-- 2026-06-30 09:23 - 内马尔中场休息积极鼓励队友<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md
-- 2026-06-30 09:17 - 不开心就去看三年前的购物订单<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md
-- 2026-06-30 09:01 - 《恋与深空》被指触碰民族伤痛红线<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md
+- 2026-06-30 09:22 - 中国对日本再出重拳<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md
+- 2026-06-30 09:04 - 日本五次世界杯淘汰赛全败<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md
+- 2026-06-30 09:23 - 【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md
+- 2026-06-30 09:11 - 杨紫被质疑未使用原名<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md
+- 2026-06-30 09:08 - 法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md
+- 2026-06-30 09:24 - 安切洛蒂 换人<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md
+- 2026-06-30 09:18 - 古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md
+- 2026-06-30 09:12 - 国务院：鼓励行业龙头企业举办职校<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md
+- 2026-06-30 09:16 - hanser X 赖美云《室内系的Track Maker》<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md
+- 2026-06-30 09:05 - 要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md
+- 2026-06-30 09:25 - 四川宜宾地震瞬间鱼群乱跳<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md
+- 2026-06-30 09:06 - 一切民族英雄都是中华民族的脊梁<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:17 - 《共患难》<br><br> | ??:http://www.blog.minike.top/Article/details/25300.shtml
-- 2026-06-30 09:21 - 《名肘探科比》：科比大战裂口女<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/885244.shtml
-- 2026-06-30 08:57 - 一切民族英雄都是中华民族的脊梁<br><br> | ??:https://www.share.minike.top/Article/details/925545966.shtml
-- 2026-06-30 09:15 - 德国 传控<br><br> | ??:https://www.share.minike.top/Article/details/085293107.shtml
-- 2026-06-30 09:15 - 终于把好哥们处成了情侣!<br><br> | ??:http://www.blog.minike.top/Article/details/2052069.shtml
-- 2026-06-30 09:22 - 我把队友的7连跪剪成了艺术<br><br> | ??:http://www.blog.minike.top/Article/details/18303666202.shtml
-- 2026-06-30 09:06 - ASMR 千禧年百货大楼初代柜姐给你化大头贴妆<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/007361.shtml
-- 2026-06-30 09:14 - 消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/2143868.shtml
-- 2026-06-30 09:10 - 王源近几年没有路演了<br><br> | ??:https://www.share.minike.top/Article/details/485785027435.shtml
-- 2026-06-30 09:12 - 女子用家人生日买彩票中1032万<br><br> | ??:https://www.blog.minike.top/Article/details/616488.shtml
-- 2026-06-30 09:23 - 逃狱兄弟<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/823669652956.shtml
-- 2026-06-30 08:58 - 女子发现孩子非现任亲生状告前任索赔<br><br> | ??:https://www.share.kurohicncr.top/Article/details/02621653.shtml
-- 2026-06-30 09:00 - 一生一世<br><br> | ??:http://www.share.minike.top/Article/details/58835.shtml
-- 2026-06-30 09:17 - 王濛回复黄灿灿<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/092757066021.shtml
-- 2026-06-30 08:59 - 德国连续三届世界杯无缘16强<br><br> | ??:https://www.share.kurohicncr.top/Article/details/946097746244.shtml
+- 2026-06-30 09:02 - 《赛博朋克：边缘行者 2》｜官方预告片<br><br> | ??:https://www.blog.minike.top/Article/details/0343287339.shtml
+- 2026-06-30 09:17 - 致敬！中国首批缉毒警已全体退休<br><br> | ??:http://www.share.minike.top/Article/details/34273050945.shtml
+- 2026-06-30 09:13 - 委内瑞拉地震死亡人数升至1719人<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/64926905.shtml
+- 2026-06-30 09:28 - 日本将帅赛后采访纷纷哽咽落泪<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/4004017.shtml
+- 2026-06-30 09:27 - 媒体评泰山建135公里刀片刺绳隔离网<br><br> | ??:https://www.share.minike.top/Article/details/40665428984.shtml
+- 2026-06-30 09:17 - “柠檬茶能换怀表？”<br><br> | ??:https://www.share.kurohicncr.top/Article/details/383668309.shtml
+- 2026-06-30 09:22 - 这一刀 会很帅<br><br> | ??:https://www.share.minike.top/Article/details/276832.shtml
+- 2026-06-30 09:03 - 领克07GT搭载超跑同源MRC悬架<br><br> | ??:https://www.blog.minike.top/Article/details/501688.shtml
+- 2026-06-30 09:17 - 【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】<br><br> | ??:http://www.blog.minike.top/Article/details/7884798255.shtml
+- 2026-06-30 09:06 - 青春环游记第三季<br><br> | ??:http://www.share.kurohicncr.top/Article/details/62035043.shtml
+- 2026-06-30 09:24 - 巴西绝杀<br><br> | ??:https://www.share.kurohicncr.top/Article/details/80204.shtml
+- 2026-06-30 09:21 - 全球芯片巨头史诗级扩产<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/527968.shtml
+- 2026-06-30 09:11 - 美团、淘宝闪购、京东外卖达成共识<br><br> | ??:https://www.share.kurohicncr.top/Article/details/1650145.shtml
+- 2026-06-30 09:04 - 央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？<br><br> | ??:https://www.share.minike.top/Article/details/21328733912.shtml
+- 2026-06-30 09:06 - 日本遭读秒绝杀 森保一：我水平不够<br><br> | ??:https://www.share.minike.top/Article/details/436811.shtml

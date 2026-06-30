@@ -1,56 +1,61 @@
-# 首都在线持续融资加码算力投入 何时迎来业绩拐点？
+# 哈萨克斯坦阿克托别一加气站发生火灾致3死1伤
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-出品：新浪财经上市公司研究院 作者：郝显 近日，首都在线公告拟以2.37亿元现金收购控股子公司北京中嘉和信通信技术有限公司剩余40%股权（以下简称“中嘉和信”），交易完成后将实现100% 控股。本次收购意在进一步完善IDC数据中心业务上的布局。同步推进的，还有15.87亿元的定增募资计划，全部指向智算中心建设与算力平台升级。 一边是持续四年的亏损，一边是紧锣密鼓的产能扩张，首都
+中新网阿斯塔纳6月20日电 据哈通社20日消息，哈萨克斯坦西部城市阿克托别一座加气站19日晚发生火灾，事故造成3人死亡、1人受伤。遇难者中包括2名未成年人。 哈通社援引阿克托别州紧急情况部门消息称，事发地点位于阿克托别市博根拜·巴特尔街，起火点为站内一辆汽车。消防人员赶到现场后将火势扑灭，并在车辆内发现遇难者遗体。 据阿克托别州卫生部门消息，伤者为一名1972年出生的男子，因上
 
 ## 正文
 
-出品：新浪财经上市公司研究院 作者：郝显 近日，首都在线公告拟以2.37亿元现金收购控股子公司北京中嘉和信通信技术有限公司剩余40%股权（以下简称“中嘉和信”），交易完成后将实现100% 控股。
+中新网阿斯塔纳6月20日电 据哈通社20日消息，哈萨克斯坦西部城市阿克托别一座加气站19日晚发生火灾，事故造成3人死亡、1人受伤。
 
-本次收购意在进一步完善IDC数据中心业务上的布局。
+遇难者中包括2名未成年人。
 
-同步推进的，还有15.87亿元的定增募资计划，全部指向智算中心建设与算力平台升级。
+哈通社援引阿克托别州紧急情况部门消息称，事发地点位于阿克托别市博根拜·巴特尔街，起火点为站内一辆汽车。
 
-一边是持续四年的亏损，一边是紧锣密鼓的产能扩张，首都在线持续加码算力投入之后，何时迎来业绩拐点？
+消防人员赶到现场后将火势扑灭，并在车辆内发现遇难者遗体。
 
-首都在线收购中嘉和信少数股权 本次收购标的中嘉和信，是京津冀区域深耕多年的第三方IDC服务商，核心资产为北京周边的数据中心机房资源，业务覆盖服务器托管、云网互联与行业定制化解决方案等。
+据阿克托别州卫生部门消息，伤者为一名1972年出生的男子，因上半身烧伤被送入阿克托别市医院重症监护室。
 
-从财务层面来看，2025 年中嘉和信实现营收1.52亿元，净利润 4208.24万元，净利率达 27.7%；2026 年1-4 月实现营收5861万元，净利润1464万元。
+目前，伤者情况稳定，正在接受治疗和观察。
 
-对首都在线而言，这笔收购的意义十分明确，此前公司算力业务所需的 IDC 资源多依赖外部采购，成本端话语权较弱，全资控股后可实现机房资源自主可控，控制上游采购成本，支撑智算业务的基础设施需求。
+消息称，事发后，当地出动10余台车辆和50余名工作人员参与现场处置。
 
-首都在线当前仍处亏损状态，2025 年归母净利润-1.7亿元，而中嘉和信净利润超4000万元，是公司重要的利润来源。
+目前，火灾原因正在调查中。
 
 ## 相关推荐
 
-- 2026-06-30 08:57 - 五哈和他们的朋友<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md
-- 2026-06-30 08:59 - 深扒韩国队淘汰背后原因<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md
-- 2026-06-30 08:56 - 小娘惹<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md
-- 2026-06-30 08:55 - “错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md
-- 2026-06-30 09:21 - 阿娇瘦了10斤<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md
-- 2026-06-30 09:03 - 世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md
-- 2026-06-30 09:05 - 王欣瑜连续4年晋级温网第二轮<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md
-- 2026-06-30 09:00 - 巴拉圭进球<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md
-- 2026-06-30 09:14 - 沉睡花园<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md
-- 2026-06-30 09:18 - “荒唐”背后的韩国足球<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md
+- 2026-06-30 09:16 - 巴拉圭先进球了<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md
+- 2026-06-30 09:18 - 日本淘汰<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md
+- 2026-06-30 09:10 - 名记：灰熊将莫兰特交易至开拓者<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md
+- 2026-06-30 09:27 - ASMR 千禧年百货大楼初代柜姐给你化大头贴妆<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md
+- 2026-06-30 09:15 - 首届《哈基米歌王争霸赛》总决赛<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md
+- 2026-06-30 09:16 - 德国淘汰<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md
+- 2026-06-30 09:18 - 点球大战<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md
+- 2026-06-30 09:15 - 詹姆斯 勇士<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md
+- 2026-06-30 09:11 - 未来五年，教育强国这样建设<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md
+- 2026-06-30 09:22 - 卢卡申科发布解放军仪仗队视频<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md
+- 2026-06-30 09:10 - 张月收到黄灿灿辣货两眼发光<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md
+- 2026-06-30 09:12 - 好像看到了人类带孩子崩溃的样子<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md
+- 2026-06-30 09:22 - 媒体：手机测评该挤挤水分了<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md
+- 2026-06-30 09:01 - 拆解FIFA和世界杯的暗面<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md
+- 2026-06-30 09:13 - 深扒韩国队淘汰背后原因<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:09 - 2026年WTT美国大满贯，国乒自带球桌是真实的吗？<br><br> | ??:https://www.share.minike.top/Article/details/96432609.shtml
-- 2026-06-30 09:09 - 妻子撞死家暴丈夫案二审案情反转<br><br> | ??:http://www.blog.minike.top/Article/details/546338075.shtml
-- 2026-06-30 09:01 - 尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」<br><br> | ??:http://www.share.minike.top/Article/details/61804.shtml
-- 2026-06-30 09:04 - 《贺子珍》<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/929840750.shtml
-- 2026-06-30 09:05 - 荷兰VS摩洛哥<br><br> | ??:https://www.share.kurohicncr.top/Article/details/43273.shtml
-- 2026-06-30 09:05 - 高考结束，该不该外出打工体验？<br><br> | ??:http://www.blog.minike.top/Article/details/49651498098.shtml
-- 2026-06-30 09:15 - 恋与深空<br><br> | ??:http://www.blog.minike.top/Article/details/67593935554.shtml
-- 2026-06-30 09:18 - 古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?<br><br> | ??:https://www.share.kurohicncr.top/Article/details/469817595616.shtml
-- 2026-06-30 08:55 - 有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？<br><br> | ??:https://www.share.minike.top/Article/details/213866.shtml
-- 2026-06-30 09:05 - 如何评价《龙之家族》第三季第二集？<br><br> | ??:https://www.share.minike.top/Article/details/54354.shtml
-- 2026-06-30 09:07 - 一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/540024848241.shtml
-- 2026-06-30 09:00 - 荀彧和曹操反目成仇的根本原因是什么？<br><br> | ??:https://www.blog.minike.top/Article/details/00621.shtml
-- 2026-06-30 09:16 - 诺伊尔尽力了<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/22648800.shtml
-- 2026-06-30 09:19 - 2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/58006215.shtml
-- 2026-06-30 08:55 - 曝老詹对自由市场态度与以往截然不同<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/192474.shtml
+- 2026-06-30 09:10 - 收到补税提醒尽快办理 明起有滞纳金<br><br> | ??:https://www.share.kurohicncr.top/Article/details/49923567730.shtml
+- 2026-06-30 09:03 - 巴西2比1日本<br><br> | ??:http://www.blog.minike.top/Article/details/0313152358.shtml
+- 2026-06-30 09:20 - 女子健身不当 居然“脑子漏水”了<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/233951521.shtml
+- 2026-06-30 09:29 - 王源近几年没有路演了<br><br> | ??:http://www.share.minike.top/Article/details/8607861.shtml
+- 2026-06-30 09:13 - 收到补税提醒尽快办理 明起有滞纳金<br><br> | ??:https://www.blog.minike.top/Article/details/491801269.shtml
+- 2026-06-30 09:02 - 城市规划有可能成为「屎山代码」吗？<br><br> | ??:https://www.share.minike.top/Article/details/9226273.shtml
+- 2026-06-30 09:02 - 咕嘎万能小摊1：沉浸式制作惠灵顿牛排<br><br> | ??:https://www.share.kurohicncr.top/Article/details/749738880.shtml
+- 2026-06-30 09:12 - 如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/71741646.shtml
+- 2026-06-30 09:23 - 网红峡谷5人溺亡 有人提醒会下雨<br><br> | ??:http://www.share.kurohicncr.top/Article/details/90487518.shtml
+- 2026-06-30 09:16 - 要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/52423074.shtml
+- 2026-06-30 09:12 - 存储芯片龙头提示风险<br><br> | ??:http://www.share.minike.top/Article/details/446775994.shtml
+- 2026-06-30 09:03 - “草莓月亮”浪漫现身<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/4559390832.shtml
+- 2026-06-30 09:16 - 板面：为什么那么多人爱吃？？！<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/1165521471.shtml
+- 2026-06-30 09:06 - 点球大战<br><br> | ??:https://www.blog.minike.top/Article/details/64302307.shtml
+- 2026-06-30 09:04 - 妻子撞死家暴丈夫案二审案情反转<br><br> | ??:https://www.share.minike.top/Article/details/51168745.shtml

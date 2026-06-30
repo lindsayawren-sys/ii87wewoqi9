@@ -1,46 +1,60 @@
-# 中国信通院启动“算力Token出海生态计划”
+# 河南中欧班列首发土库曼斯坦 境外直达站点增至29个
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-人民财讯6月25日电，为促进我国算力Token出海高质量、规范化发展，破解跨境合规、标准体系、生态协同等产业共性难题，中国信息通信研究院联合产业链上下游多家核心单位，共同启动“算力Token出海生态计划”。 该计划以“摸态势、聚生态、优路径”为核心方向，聚焦算力Token出海全产业链的关键环节与共性痛点，结合中国信通院在算力、数字基础设施、数据跨境合规等领域的研究积累与产业资源
+【中亚专线】河南中欧班列首发土库曼斯坦 境外直达站点增至29个 中新社郑州6月19日电 (陈贵洋)一列河南中欧班列(中亚方向)19日从郑州国际陆港经开片区驶出，经由霍尔果斯口岸出境，横跨哈萨克斯坦，驶向土库曼斯坦巴尔坎州阿加拉站。这是班列首次直达土库曼斯坦境内铁路站点，至此其境外直达站点总数增至29个。 阿加拉站紧邻跨里海国际运输走廊与中亚过境枢纽，具备向高加索等地区延伸的潜力
 
 ## 正文
 
-人民财讯6月25日电，为促进我国算力Token出海高质量、规范化发展，破解跨境合规、标准体系、生态协同等产业共性难题，中国信息通信研究院联合产业链上下游多家核心单位，共同启动“算力Token出海生态计划”。
+【中亚专线】河南中欧班列首发土库曼斯坦 境外直达站点增至29个 中新社郑州6月19日电 (陈贵洋)一列河南中欧班列(中亚方向)19日从郑州国际陆港经开片区驶出，经由霍尔果斯口岸出境，横跨哈萨克斯坦，驶向土库曼斯坦巴尔坎州阿加拉站。
 
-该计划以“摸态势、聚生态、优路径”为核心方向，聚焦算力Token出海全产业链的关键环节与共性痛点，结合中国信通院在算力、数字基础设施、数据跨境合规等领域的研究积累与产业资源，为行业提供动态更新的研究成果与公共服务，推动我国算力Token出海产业从探索起步向规范、高效、可持续的高质量发展阶段升级。
+这是班列首次直达土库曼斯坦境内铁路站点，至此其境外直达站点总数增至29个。
 
-责任编辑：石秀珍 SF183
+阿加拉站紧邻跨里海国际运输走廊与中亚过境枢纽，具备向高加索等地区延伸的潜力，为未来拓展西亚及南高加索市场预留了发展空间。
+
+这一线路的开通，也使河南优质农资、机械设备等可借此高效直达中亚新兴市场，进一步拓宽出口渠道、降低运输成本。
+
+“此前河南开行的中亚方向班列主要覆盖哈萨克斯坦和乌兹别克斯坦。
+
+”河南中豫国际港务集团有限公司相关负责人表示，阿加拉站开通后，将进一步打通中亚西部及南部腹地物流通道，与既有中吉乌铁公联运线路形成互补，织密河南在中亚地区的服务网络。
+
+今年以来，河南中欧班列先后打通德国杜伊斯堡、阿富汗海拉顿、土库曼斯坦阿加拉3个直达站点及吐尔尕特出入境口岸，已建成覆盖29个境外直达站点、10个出入境口岸的骨干物流网络，辐射欧亚40个国家140余座城市，形成多通道、多元化运行格局。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 08:58 - iPhone18e曝光<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md
-- 2026-06-30 08:55 - 巴西替补奇兵读秒绝杀<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md
-- 2026-06-30 09:06 - 疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md
-- 2026-06-30 09:24 - 警方介入洪明甫死亡威胁<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md
-- 2026-06-30 09:19 - 外国游客开始涌入中国农村<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md
-- 2026-06-30 09:17 - 曝詹姆斯即将与勇士会面<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md
-- 2026-06-30 08:58 - 卡塞米罗头球破门<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md
-- 2026-06-30 09:03 - 人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md
-- 2026-06-30 08:55 - 张月收到黄灿灿辣货两眼发光<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md
-- 2026-06-30 08:59 - 巴西绝杀日本：漫画般结局换了主角<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md
+- 2026-06-30 09:26 - 欧洲装一台空调有多难<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md
+- 2026-06-30 09:12 - 《赛博朋克：边缘行者 2》｜官方预告片<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md
+- 2026-06-30 09:13 - 为什么香港的冲厕水是咸的？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md
+- 2026-06-30 09:18 - 老外对中国cosplay竟这样评价…<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md
+- 2026-06-30 09:07 - 有哪些被认为是现代才有的东西其实古代就有了？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md
+- 2026-06-30 09:18 - 巴西足球能否再现昔日荣光<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md
+- 2026-06-30 09:20 - 热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md
+- 2026-06-30 09:22 - 《鸣潮》玄方主题曲 MV | 定玄<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md
+- 2026-06-30 09:13 - 自然光｜papi酱&窦文涛：驴与跑步机<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md
+- 2026-06-30 09:25 - 王楚钦孙颖莎混双对手产生<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md
+- 2026-06-30 09:12 - 网红峡谷5人溺亡 有人提醒会下雨<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md
+- 2026-06-30 09:17 - 拆解FIFA和世界杯的暗面<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md
+- 2026-06-30 09:13 - 欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md
+- 2026-06-30 09:28 - 这几秒成世界杯最值钱广告位<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:54 - 高考结束了，你会让孩子在家玩手机吗？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/58807775.shtml
-- 2026-06-30 08:58 - 歌剧老师锐评歌手第6期<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/7996588.shtml
-- 2026-06-30 09:18 - 小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？<br><br> | ??:https://www.blog.minike.top/Article/details/3375597985.shtml
-- 2026-06-30 09:12 - 明星大侦探第四季<br><br> | ??:https://www.blog.minike.top/Article/details/062669502068.shtml
-- 2026-06-30 09:05 - 有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/773135996716.shtml
-- 2026-06-30 09:08 - 王源近几年没有路演了<br><br> | ??:https://www.share.kurohicncr.top/Article/details/755746.shtml
-- 2026-06-30 09:01 - 网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/103601850983.shtml
-- 2026-06-30 08:59 - 孙兴慜发长文致歉<br><br> | ??:http://www.share.minike.top/Article/details/303833509386.shtml
-- 2026-06-30 09:04 - 国内最大沙漠发洪水意味着什么<br><br> | ??:http://www.share.kurohicncr.top/Article/details/43409160.shtml
-- 2026-06-30 09:24 - 要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活<br><br> | ??:https://www.blog.minike.top/Article/details/28899639307.shtml
-- 2026-06-30 08:59 - 网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？<br><br> | ??:https://www.share.minike.top/Article/details/83334987.shtml
-- 2026-06-30 09:17 - 本科毕业生为何涌入专科学校<br><br> | ??:https://www.blog.minike.top/Article/details/64005059.shtml
-- 2026-06-30 09:00 - 送你一朵小红花<br><br> | ??:https://www.share.minike.top/Article/details/7225307.shtml
-- 2026-06-30 08:55 - 女子遭家暴逃跑致丈夫身亡二审细节<br><br> | ??:https://www.share.kurohicncr.top/Article/details/60919727017.shtml
-- 2026-06-30 09:01 - 日本淘汰<br><br> | ??:http://www.share.minike.top/Article/details/507567073.shtml
+- 2026-06-30 09:08 - 库尼亚赛后伸五指嘲讽日本<br><br> | ??:http://www.blog.minike.top/Article/details/329351246509.shtml
+- 2026-06-30 09:11 - 四川凉山落石砸毁车辆 3人遇难<br><br> | ??:https://www.share.minike.top/Article/details/20745480.shtml
+- 2026-06-30 09:07 - 如何评价DeepSeek 提出的 DSpark 推理加速方案？<br><br> | ??:https://www.share.minike.top/Article/details/634385354649.shtml
+- 2026-06-30 09:25 - 曝灰熊将莫兰特交易至开拓者<br><br> | ??:http://www.share.kurohicncr.top/Article/details/21473.shtml
+- 2026-06-30 09:27 - 董卿母亲癌症去世<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/1681063.shtml
+- 2026-06-30 09:05 - 《名肘探科比》：科比大战裂口女<br><br> | ??:https://www.share.kurohicncr.top/Article/details/989149.shtml
+- 2026-06-30 09:26 - 郑钦文 四年一轮游<br><br> | ??:http://www.share.kurohicncr.top/Article/details/76501518.shtml
+- 2026-06-30 09:14 - 张月收到黄灿灿辣货两眼发光<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/67056380047.shtml
+- 2026-06-30 09:01 - 这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆<br><br> | ??:http://www.share.kurohicncr.top/Article/details/90722.shtml
+- 2026-06-30 09:15 - 2021江苏卫视跨年演唱会<br><br> | ??:https://www.share.minike.top/Article/details/364366.shtml
+- 2026-06-30 09:21 - 网红峡谷5人溺亡 有人提醒会下雨<br><br> | ??:https://www.share.kurohicncr.top/Article/details/33403632584.shtml
+- 2026-06-30 09:24 - 巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？<br><br> | ??:https://www.blog.minike.top/Article/details/724688.shtml
+- 2026-06-30 09:26 - 《赛博朋克：边缘行者 2》｜官方预告片<br><br> | ??:http://www.blog.minike.top/Article/details/4260379.shtml
+- 2026-06-30 09:27 - 巴西替补奇兵读秒绝杀<br><br> | ??:http://www.blog.minike.top/Article/details/419903.shtml
+- 2026-06-30 09:00 - 人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？<br><br> | ??:http://www.blog.minike.top/Article/details/018512782865.shtml

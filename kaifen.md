@@ -1,58 +1,60 @@
-# 重庆已有注册内河船员约11.8万人
+# 中医说夏至：养心祛湿有良方
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-中新网重庆6月25日电 (张旭)目前，重庆已有注册内河船员约11.8万人，约占长江经济带11省市总量的14.5%、全国的10.8%。重庆海事局联合多部门25日在渝举办第十六个“世界海员日”庆祝活动，并发布前述数据。 据重庆海事局介绍，2025年，重庆水路货运量达2亿吨，港口货物吞吐量2.45亿吨，均创历史新高。船员，正是水路货运的“动力之源”。 本次活动以“承天下之商，担海上之
+“东边日出西边雨，道是无晴却有晴。”高温高湿、雷雨频发的夏至节气，将于6月21日到来。天地阴阳自此迎来消长转折，人们该如何消解暑湿侵扰、安度盛夏？ 《黄帝内经》提到，“夏至四十五日，阴气微上，阳气微下”。正是在夏至这个阳气的顶点，初生的阴气开始悄然萌动，展现了大自然物极必反、生生不息的奥妙。 时序流转，人体状态亦随之改变。中国中医科学院广安门医院疼痛科副主任医师杨晓忱说，夏至时
 
 ## 正文
 
-中新网重庆6月25日电 (张旭)目前，重庆已有注册内河船员约11.8万人，约占长江经济带11省市总量的14.5%、全国的10.8%。
+“东边日出西边雨，道是无晴却有晴。
 
-重庆海事局联合多部门25日在渝举办第十六个“世界海员日”庆祝活动，并发布前述数据。
+”高温高湿、雷雨频发的夏至节气，将于6月21日到来。
 
-据重庆海事局介绍，2025年，重庆水路货运量达2亿吨，港口货物吞吐量2.45亿吨，均创历史新高。
+天地阴阳自此迎来消长转折，人们该如何消解暑湿侵扰、安度盛夏？
 
-船员，正是水路货运的“动力之源”。
+《黄帝内经》提到，“夏至四十五日，阴气微上，阳气微下”。
 
-本次活动以“承天下之商，担海上之险”为主题。
+正是在夏至这个阳气的顶点，初生的阴气开始悄然萌动，展现了大自然物极必反、生生不息的奥妙。
 
-活动当日，何章明、李坚强、王超、杨勇4名一线船长获授“安全诚信船长”称号。
+时序流转，人体状态亦随之改变。
 
-活动现场设置船员党建、海事政务、职业发展、劳资纠纷、水上治安、法律服务、健康咨询7个专业咨询台，一站式受理船员办证、职称评定、薪资工伤纠纷、水上治安、法律帮扶、健康疏导等诉求。
+中国中医科学院广安门医院疼痛科副主任医师杨晓忱说，夏至时节气温较高、湿度大，人体大量出汗，阳气外浮，中焦脾胃相对虚寒，容易诱发心脑血管疾病、中暑、胃肠道疾病及皮肤类疾病。
 
-同时，主办方协调有关单位现场开展劳动纠纷调解，维护船员合法权益。
+把握节气特点、饮食得当，便可安然度夏，为秋冬健康打下坚实基础。
 
 ## 相关推荐
 
-- 2026-06-30 09:08 - 欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md
-- 2026-06-30 09:23 - 我们看到的星星是不是有些已经不存在了？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md
-- 2026-06-30 09:15 - 欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md
-- 2026-06-30 08:55 - 日本16强魔咒<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md
-- 2026-06-30 09:01 - “柠檬茶能换怀表？”<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md
-- 2026-06-30 08:56 - 藤森庆子赢得秘鲁总统选举<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md
-- 2026-06-30 09:18 - 杨某诋毁袁隆平院士科研成果被刑拘<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md
-- 2026-06-30 09:04 - 王灿兮被烫伤两年后维权成功<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md
-- 2026-06-30 09:16 - 湖北云南这些涉汛信息都是假的<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md
-- 2026-06-30 09:07 - 杨紫被质疑未使用原名<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md
-- 2026-06-30 09:20 - 勇敢的心第二部<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md
-- 2026-06-30 09:09 - 第一炉香<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md
+- 2026-06-30 09:02 - 为什么纣王似乎对周文王的扩张完全无动于衷？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md
+- 2026-06-30 09:09 - 斗破苍穹<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md
+- 2026-06-30 09:18 - 中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md
+- 2026-06-30 09:00 - 我觉得你是在无中生友<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md
+- 2026-06-30 09:26 - 为什么会有「念旧」的心理？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md
+- 2026-06-30 09:12 - 杨紫大银幕成绩单<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md
+- 2026-06-30 09:21 - 警方介入洪明甫死亡威胁<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md
+- 2026-06-30 09:25 - 歌剧老师锐评歌手第6期<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md
+- 2026-06-30 09:28 - “以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md
+- 2026-06-30 09:09 - 一直以为方便面汤是要倒掉的<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md
+- 2026-06-30 09:10 - 男子诋毁袁隆平科研成果被刑拘<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md
+- 2026-06-30 09:29 - 如果有二次元高中是什么样子的？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md
+- 2026-06-30 09:05 - 名记：灰熊将莫兰特交易至开拓者<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md
+- 2026-06-30 09:25 - 全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:57 - 杨紫大银幕成绩单<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/667271727158.shtml
-- 2026-06-30 09:00 - 韩国球迷凌晨4点接机怒骂主教练<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/590065967.shtml
-- 2026-06-30 08:54 - 媒体：手机测评该挤挤水分了<br><br> | ??:https://www.blog.minike.top/Article/details/8234377758.shtml
-- 2026-06-30 08:56 - 【硬核拆解】汽车人到底离我们有多远？<br><br> | ??:https://www.blog.minike.top/Article/details/49713.shtml
-- 2026-06-30 09:21 - 《贺子珍》<br><br> | ??:https://www.blog.minike.top/Article/details/922501528.shtml
-- 2026-06-30 08:58 - 巴西绝杀日本：漫画般结局换了主角<br><br> | ??:http://www.blog.minike.top/Article/details/222513827049.shtml
-- 2026-06-30 09:10 - 曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？<br><br> | ??:http://www.share.minike.top/Article/details/589203217432.shtml
-- 2026-06-30 09:19 - 詹姆斯 勇士<br><br> | ??:http://www.share.minike.top/Article/details/298860077.shtml
-- 2026-06-30 09:22 - 美股<br><br> | ??:https://www.share.minike.top/Article/details/75138.shtml
-- 2026-06-30 08:57 - “错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】<br><br> | ??:http://www.blog.minike.top/Article/details/41258.shtml
-- 2026-06-30 09:14 - 古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/224716066924.shtml
-- 2026-06-30 09:21 - 卢卡申科发布解放军仪仗队视频<br><br> | ??:https://www.blog.minike.top/Article/details/31757.shtml
-- 2026-06-30 09:03 - 恋与深空道歉声明<br><br> | ??:https://www.blog.minike.top/Article/details/0244083968.shtml
-- 2026-06-30 09:21 - 人民锐评：网红不能困在无底线逐利里<br><br> | ??:https://www.blog.minike.top/Article/details/5089565.shtml
-- 2026-06-30 09:02 - 感动全网的699分女生想报考清华<br><br> | ??:http://www.share.kurohicncr.top/Article/details/88310323107.shtml
+- 2026-06-30 09:00 - 中国代表在联合国点名日本所犯罪行<br><br> | ??:http://www.share.minike.top/Article/details/460886612018.shtml
+- 2026-06-30 09:12 - 【硬核拆解】汽车人到底离我们有多远？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/6255273.shtml
+- 2026-06-30 09:18 - 警方介入洪明甫死亡威胁<br><br> | ??:https://www.share.minike.top/Article/details/675136.shtml
+- 2026-06-30 09:25 - 千与千寻<br><br> | ??:https://www.share.minike.top/Article/details/486896.shtml
+- 2026-06-30 09:23 - 沉睡花园<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/57403.shtml
+- 2026-06-30 09:17 - 檀健次王楚然吻戏看热了<br><br> | ??:https://www.blog.minike.top/Article/details/03844.shtml
+- 2026-06-30 09:16 - 如何评价DeepSeek 提出的 DSpark 推理加速方案？<br><br> | ??:http://www.blog.minike.top/Article/details/0607272.shtml
+- 2026-06-30 09:17 - 马耳他著名拱门坍塌致中国男子身亡<br><br> | ??:https://www.share.minike.top/Article/details/375575.shtml
+- 2026-06-30 09:15 - 4种红薯的满分吃法！有手就会…但能让你大为震撼！<br><br> | ??:https://www.blog.minike.top/Article/details/17716.shtml
+- 2026-06-30 09:06 - 为什么很多企业推行“扁平化管理”后，效率反而下降了？<br><br> | ??:http://www.share.minike.top/Article/details/28075.shtml
+- 2026-06-30 09:09 - “中国养猪场都用上空调了”！这是真的吗？【主播说三农】<br><br> | ??:http://www.blog.minike.top/Article/details/6036332642.shtml
+- 2026-06-30 09:16 - 时光音乐会<br><br> | ??:https://www.share.minike.top/Article/details/308073755047.shtml
+- 2026-06-30 09:21 - 披荆斩棘的哥哥<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/29300005489.shtml
+- 2026-06-30 09:24 - “柠檬茶能换怀表？”<br><br> | ??:http://www.share.kurohicncr.top/Article/details/81437908.shtml
+- 2026-06-30 09:11 - 手底下人带不动怎么办？<br><br> | ??:http://www.share.minike.top/Article/details/57227784184.shtml

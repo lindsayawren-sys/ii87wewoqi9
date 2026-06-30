@@ -1,60 +1,48 @@
-# 多地秋假时间已官宣！集中在11月中下旬，与周末相连形成5天小长假
+# 两部门联合发布红色山洪灾害气象预警
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-澎湃新闻记者 唐莹莹 暑假还没开始，多地已经宣布了秋假时间。 6月23日，无锡发布的消息显示，无锡市将于今年秋季首次实施秋假制度，今年秋假的时间为11月16日至18日，与11月14日至15日(周末)相连，共形成5天假期，享受秋假的对象为全市义务教育阶段学生。 此前的6月22日，江苏省教育厅发布消息称，江苏省教育厅印发的《关于优化中小学假期安排的通知》，明确在全省范围内推行春秋假
+中新网6月19日电 据“中国水利”微信公众号消息，水利部和中国气象局6月19日18时联合发布红色山洪灾害气象预警： 预计，6月19日20时至6月20日20时，广西北部、贵州东南部等地部分地区发生山洪灾害可能性大(橙色预警)，其中，广西北部局地发生山洪灾害可能性很大(红色预警)。其他地区也可能因局地短历时强降水引发山洪灾害，请各地注意做好实时监测、防汛预警和转移避险等防范工作。
 
 ## 正文
 
-澎湃新闻记者 唐莹莹 暑假还没开始，多地已经宣布了秋假时间。
+中新网6月19日电 据“中国水利”微信公众号消息，水利部和中国气象局6月19日18时联合发布红色山洪灾害气象预警： 预计，6月19日20时至6月20日20时，广西北部、贵州东南部等地部分地区发生山洪灾害可能性大(橙色预警)，其中，广西北部局地发生山洪灾害可能性很大(红色预警)。
 
-6月23日，无锡发布的消息显示，无锡市将于今年秋季首次实施秋假制度，今年秋假的时间为11月16日至18日，与11月14日至15日(周末)相连，共形成5天假期，享受秋假的对象为全市义务教育阶段学生。
-
-此前的6月22日，江苏省教育厅发布消息称，江苏省教育厅印发的《关于优化中小学假期安排的通知》，明确在全省范围内推行春秋假期制度。
-
-继今年春季学期首次试行春假后，秋季学期的假期安排多地现已确定。
-
-各义务教育阶段中小学可根据教学进度和季节特点，在10月至11月期间自主安排为期3天的秋假，与周末连休，秋假将再迎来5天小长假。
-
-其中，南通市已经明确，秋假与双休日连休，共5天，具体时间为11月26日—30日(其中28日—29日为双休日)。
-
-宿迁市的秋假时间为11月14日至11月18日，秋假设3天，通过与法定节假日或双休日连休，形成5天小长假。
-
-另据江苏省教育厅发布的消息，扬州市今年秋假时间优先与11月第二周周六、周日相连；南京市、苏州市、盐城市、镇江市的秋假时间将安排在10月-11月之间；徐州市、连云港市的秋假将安排在11月中下旬；淮安市的秋假将安排在11月中旬；泰州市的秋假时间安排在11月。
+其他地区也可能因局地短历时强降水引发山洪灾害，请各地注意做好实时监测、防汛预警和转移避险等防范工作。
 
 ## 相关推荐
 
-- 2026-06-30 09:14 - 巴拉圭率先破门<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md
-- 2026-06-30 09:09 - 巴西醒醒 这是淘汰赛<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md
-- 2026-06-30 09:09 - 巴西若输日本将创36年最差纪录<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md
-- 2026-06-30 09:02 - 杨紫大银幕成绩单如何<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md
-- 2026-06-30 09:13 - 内马尔中场休息积极鼓励队友<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md
-- 2026-06-30 09:04 - 恐怖世界 第三集 埃温霍姆村<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md
-- 2026-06-30 09:00 - 巴拉圭门将<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md
-- 2026-06-30 09:07 - 点球大战<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md
-- 2026-06-30 08:57 - 12人以护剧为名敲诈剧组艺人被抓<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md
-- 2026-06-30 09:07 - 媒体：手机测评该挤挤水分了<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md
-- 2026-06-30 09:01 - 我们看到的星星是不是有些已经不存在了？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md
-- 2026-06-30 08:58 - 女儿从清华毕业 爸爸晒出17年对比照<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md
-- 2026-06-30 09:07 - 李在明90度鞠躬感谢韩国两大财阀<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md
-- 2026-06-30 09:20 - 超神人辉夜姬 第二集<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md
+- 2026-06-30 09:25 - 明星大侦探第一季<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md
+- 2026-06-30 09:20 - 一切民族英雄都是中华民族的脊梁<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md
+- 2026-06-30 09:11 - 老外对中国cosplay竟这样评价…<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md
+- 2026-06-30 09:28 - 这种关系可能正在悄悄“催老”你<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md
+- 2026-06-30 09:26 - 一直以为方便面汤是要倒掉的<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md
+- 2026-06-30 09:26 - 致敬！中国首批缉毒警已全体退休<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md
+- 2026-06-30 09:25 - 租房时你会更看重「住得舒服」，还是「每天通勤更方便」？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md
+- 2026-06-30 09:16 - 美媒：美军第五舰队司令部已无法使用<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md
+- 2026-06-30 09:19 - 卢卡申科发布解放军仪仗队视频<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md
+- 2026-06-30 09:11 - 日本16强魔咒<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md
+- 2026-06-30 09:22 - 德国4比5巴拉圭<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md
+- 2026-06-30 09:25 - 女子用家人生日买彩票中1032万<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md
+- 2026-06-30 09:06 - 我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md
+- 2026-06-30 09:23 - 巴西把自己踢晕了<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:12 - 疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！<br><br> | ??:http://www.share.minike.top/Article/details/0190316.shtml
-- 2026-06-30 09:18 - 荀彧和曹操反目成仇的根本原因是什么？<br><br> | ??:http://www.blog.minike.top/Article/details/31398392240.shtml
-- 2026-06-30 09:09 - 美加墨世界杯：亚洲足球的得意与失意<br><br> | ??:https://www.blog.minike.top/Article/details/560356.shtml
-- 2026-06-30 08:57 - 男子醉酒溺水获救后同行人拒协助抬人<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/504766.shtml
-- 2026-06-30 09:21 - 日本进球<br><br> | ??:https://www.blog.minike.top/Article/details/483376675.shtml
-- 2026-06-30 09:16 - 郑钦文温网一轮游<br><br> | ??:https://www.blog.minike.top/Article/details/0391992.shtml
-- 2026-06-30 09:17 - 奔跑吧·黄河篇第二季<br><br> | ??:http://www.share.kurohicncr.top/Article/details/76389750320.shtml
-- 2026-06-30 09:15 - 高考结束了，你会让孩子在家玩手机吗？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/18699636243.shtml
-- 2026-06-30 09:15 - 乔家的儿女<br><br> | ??:https://www.share.kurohicncr.top/Article/details/266589854.shtml
-- 2026-06-30 08:56 - 巴西vs日本<br><br> | ??:https://www.blog.minike.top/Article/details/823483.shtml
-- 2026-06-30 09:15 - 男子在京东买到“同仁堂”假药<br><br> | ??:https://www.share.minike.top/Article/details/746374.shtml
-- 2026-06-30 09:00 - 巴西把自己踢晕了<br><br> | ??:http://www.share.minike.top/Article/details/0867352693.shtml
-- 2026-06-30 09:02 - 男子在非洲务工死亡 公司不认可工亡<br><br> | ??:https://www.share.kurohicncr.top/Article/details/41398.shtml
-- 2026-06-30 09:07 - 87克大金链到老庙黄金维修少了11克<br><br> | ??:https://www.share.minike.top/Article/details/4427299.shtml
-- 2026-06-30 09:15 - 日耳曼拖拉机<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/024434.shtml
+- 2026-06-30 09:18 - 孙兴慜发长文致歉<br><br> | ??:http://www.share.minike.top/Article/details/573698651.shtml
+- 2026-06-30 09:13 - 中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？<br><br> | ??:http://www.share.minike.top/Article/details/465896559287.shtml
+- 2026-06-30 09:24 - 孙兴慜道歉<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/219434411105.shtml
+- 2026-06-30 09:17 - 内马尔未登场 安切洛蒂赛后回应<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/5758154.shtml
+- 2026-06-30 09:05 - 恋与深空已删除锅里洗澡文案<br><br> | ??:https://www.blog.minike.top/Article/details/7566200.shtml
+- 2026-06-30 09:05 - 国内最大沙漠发洪水意味着什么<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/50725.shtml
+- 2026-06-30 09:05 - 这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆<br><br> | ??:https://www.blog.minike.top/Article/details/04556471.shtml
+- 2026-06-30 09:25 - 哪部作品、哪本书、哪首歌，值得被一直传下去？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/621905620.shtml
+- 2026-06-30 09:20 - 孙颖莎王楚钦晋级8强<br><br> | ??:http://www.share.kurohicncr.top/Article/details/4504389351.shtml
+- 2026-06-30 09:02 - 蜘蛛侠:英雄归来<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/00892.shtml
+- 2026-06-30 09:19 - 日本队主帅道歉<br><br> | ??:http://www.share.kurohicncr.top/Article/details/318170876.shtml
+- 2026-06-30 09:08 - 被巴西绝杀后 日球员田中碧跪地痛哭<br><br> | ??:http://www.blog.minike.top/Article/details/5569058.shtml
+- 2026-06-30 09:28 - 本科毕业生为何涌入专科学校<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/474230729.shtml
+- 2026-06-30 09:25 - 有哪些被认为是现代才有的东西其实古代就有了？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/48269667229.shtml
+- 2026-06-30 09:19 - 我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......<br><br> | ??:https://www.share.minike.top/Article/details/797757435.shtml

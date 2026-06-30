@@ -1,58 +1,58 @@
-# 海南“十五五”期间将采取四大举措做强林业特色产业
+# 端午假期来临 上海虹桥边检站全力做好口岸安全保畅工作
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-中新网海口6月25日电 (记者 符宇群)记者25日从海南省新闻办公室举办的新闻发布会获悉，“十五五”期间，海南省林业产业将紧紧围绕“向绿图强”“向种图强”， 持续深化林业改革，优化林业产业结构，不断扩大优质生态产品供给，着力提升林业科技水平和科技成果转化率，推进海南林业高质量发展。海南省林业局副局长、新闻发言人高述超当日在发布会上介绍了海南自贸港建设背景下“十五五”期间做大做强
+中新网上海6月19日电 (殷立勤 施慧)随着端午假期的来临，上海虹桥国际机场口岸出入境客流量持续高位运行。记者从虹桥边检站了解到，今年端午假期(6月19日至6月21日)，上海虹桥国际机场口岸出入境客流量预计达到3.1万人次，日均1万人次。面对出入境客流高峰，虹桥边检站持续优化边检查验流程，强化口岸通关保障，为广大出入境旅客积极营造安全、优质的通关环境，提供高效、顺畅的假期出行体
 
 ## 正文
 
-中新网海口6月25日电 (记者 符宇群)记者25日从海南省新闻办公室举办的新闻发布会获悉，“十五五”期间，海南省林业产业将紧紧围绕“向绿图强”“向种图强”， 持续深化林业改革，优化林业产业结构，不断扩大优质生态产品供给，着力提升林业科技水平和科技成果转化率，推进海南林业高质量发展。
+中新网上海6月19日电 (殷立勤 施慧)随着端午假期的来临，上海虹桥国际机场口岸出入境客流量持续高位运行。
 
-海南省林业局副局长、新闻发言人高述超当日在发布会上介绍了海南自贸港建设背景下“十五五”期间做大做强林业特色产业的四项举措。
+记者从虹桥边检站了解到，今年端午假期(6月19日至6月21日)，上海虹桥国际机场口岸出入境客流量预计达到3.1万人次，日均1万人次。
 
-——聚焦增量扩产，壮大热带特色林业种植规模。
+面对出入境客流高峰，虹桥边检站持续优化边检查验流程，强化口岸通关保障，为广大出入境旅客积极营造安全、优质的通关环境，提供高效、顺畅的假期出行体验。
 
-海南将优化树种良种选育培育技术，打造规模化、标准化林业种植基地。
+走进虹桥边检站查验大厅，现场往来旅客络绎不绝，通关秩序井然。
 
-计划到2030年，椰子、沉香、黄花梨种植面积分别达到70万亩、20万亩、16万亩以上，花卉苗木全产业链面积突破22万亩，全省林下经济发展利用总面积达500万亩。
+在边检民警的专业引导下，旅客有序分流、快速候检、顺畅通关，整体通关过程高效便捷。
 
-——聚焦提质增效，升级林产品精深加工水平。
+不少海外华侨、港澳台居民趁着端午小长假返乡团聚，口岸迎来浓厚的返乡探亲出行热潮。
 
-建立健全海南沉香等林产品分级标准体系，在海口、儋州、澄迈、屯昌、琼中等地布局建设特色林业精深加工基地与产业园区，推动特色木竹等资源集聚化、集约化加工利用。
+“趁着端午假期回来和家人团聚，好久没回来了，这次通关特别顺利，速度很快、体验很好。
 
-加大多功能高附加值衍生产品研发，拓展沉香、黄花梨、花卉在药用、香用、茶用领域应用，加强“以竹代塑”产品和技术的推广，培育竹藤产业。
+”返乡旅客冯女士向记者说道。
 
 ## 相关推荐
 
-- 2026-06-30 08:55 - 日本球员说被绝杀非常不甘心<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md
-- 2026-06-30 08:56 - 我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md
-- 2026-06-30 09:07 - 曝娱乐圈大部分明星失业<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md
-- 2026-06-30 08:57 - 国务院：探索延长义务教育年限<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md
-- 2026-06-30 09:00 - 荷兰vs摩洛哥<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md
-- 2026-06-30 09:18 - 韩国球迷凌晨4点接机怒骂主教练<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md
-- 2026-06-30 09:10 - 如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md
-- 2026-06-30 08:55 - 内马尔安慰日本球员<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md
-- 2026-06-30 08:54 - 奔跑吧·黄河篇第二季<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md
-- 2026-06-30 09:18 - 已经看完《三国第一部：争洛阳》的人，如何评价这部电影？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md
-- 2026-06-30 09:13 - 教育部披露：高考生篡改7名同学志愿<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md
-- 2026-06-30 08:59 - 歌剧老师锐评歌手第6期<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md
+- 2026-06-30 09:05 - 孙兴慜发长文致歉<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md
+- 2026-06-30 09:11 - 日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md
+- 2026-06-30 09:16 - 大货车掉落螺丝扎进骑手护目镜<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md
+- 2026-06-30 09:14 - 警方介入洪明甫死亡威胁<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md
+- 2026-06-30 09:23 - 曝灰熊将莫兰特交易至开拓者<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md
+- 2026-06-30 09:29 - 檀健次王楚然吻戏看热了<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md
+- 2026-06-30 09:02 - 如何评价DeepSeek 提出的 DSpark 推理加速方案？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md
+- 2026-06-30 09:14 - 急先锋<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md
+- 2026-06-30 09:05 - 有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md
+- 2026-06-30 09:15 - 《我落泪情绪零碎》<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md
+- 2026-06-30 09:24 - 《我落泪情绪零碎》<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md
+- 2026-06-30 09:23 - 领克900大型SUV值得购买吗?<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:59 - 青春环游记第三季<br><br> | ??:http://www.share.minike.top/Article/details/293340201.shtml
-- 2026-06-30 09:20 - 董卿母亲癌症去世<br><br> | ??:http://www.share.kurohicncr.top/Article/details/70299.shtml
-- 2026-06-30 09:07 - 杨某诋毁袁隆平院士科研成果被刑拘<br><br> | ??:http://www.share.kurohicncr.top/Article/details/859311617437.shtml
-- 2026-06-30 09:07 - 「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/859637.shtml
-- 2026-06-30 09:23 - 千香<br><br> | ??:https://www.blog.minike.top/Article/details/091382.shtml
-- 2026-06-30 09:21 - 补时绝杀 巴西2-1淘汰日本<br><br> | ??:https://www.share.kurohicncr.top/Article/details/08301715.shtml
-- 2026-06-30 09:22 - 存储芯片龙头提示风险<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/932009112375.shtml
-- 2026-06-30 08:58 - 追梦拒绝2770万美元球员选项<br><br> | ??:https://www.blog.minike.top/Article/details/392541330.shtml
-- 2026-06-30 09:11 - 国务院：探索延长义务教育年限<br><br> | ??:http://www.share.minike.top/Article/details/29999951.shtml
-- 2026-06-30 09:16 - 媒体：手机测评该挤挤水分了<br><br> | ??:https://www.share.kurohicncr.top/Article/details/70880607.shtml
-- 2026-06-30 09:18 - 萨内 看笑了<br><br> | ??:https://www.blog.minike.top/Article/details/14086702230.shtml
-- 2026-06-30 09:02 - 点球大战 残酷<br><br> | ??:http://www.share.minike.top/Article/details/20677825323.shtml
-- 2026-06-30 09:06 - 欧洲民众抢购空调降温<br><br> | ??:https://www.blog.minike.top/Article/details/00627316719.shtml
-- 2026-06-30 09:12 - 田中碧失误<br><br> | ??:http://www.share.minike.top/Article/details/52797195437.shtml
-- 2026-06-30 08:55 - 全新问界M9现身美国街头<br><br> | ??:http://www.share.kurohicncr.top/Article/details/367349432565.shtml
+- 2026-06-30 09:06 - 杨紫获白玉兰视后为何争议难平<br><br> | ??:https://www.share.minike.top/Article/details/176023752.shtml
+- 2026-06-30 09:20 - 网红峡谷5人溺亡 有人提醒会下雨<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/19356477.shtml
+- 2026-06-30 09:25 - 韩国道歉完日本道歉<br><br> | ??:https://www.blog.minike.top/Article/details/19870182.shtml
+- 2026-06-30 09:15 - 国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？<br><br> | ??:https://www.share.minike.top/Article/details/629053999737.shtml
+- 2026-06-30 09:12 - 极限挑战第一季<br><br> | ??:http://www.share.kurohicncr.top/Article/details/860906.shtml
+- 2026-06-30 09:09 - 爆冷出局！德国点球大战不敌巴拉圭<br><br> | ??:http://www.share.kurohicncr.top/Article/details/82552125842.shtml
+- 2026-06-30 09:19 - 咕嘎万能小摊1：沉浸式制作惠灵顿牛排<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/2200619.shtml
+- 2026-06-30 09:09 - 德国连续三届世界杯无缘16强<br><br> | ??:http://www.blog.minike.top/Article/details/2628882718.shtml
+- 2026-06-30 09:14 - 三星投资计划<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/852243.shtml
+- 2026-06-30 09:00 - 4000美元是黄金新一轮下跌的开始吗<br><br> | ??:https://www.blog.minike.top/Article/details/868318658.shtml
+- 2026-06-30 09:23 - 人民锐评：网红不能困在无底线逐利里<br><br> | ??:https://www.share.kurohicncr.top/Article/details/34372731763.shtml
+- 2026-06-30 09:24 - 穆祉丞回应获年度人气艺人<br><br> | ??:https://www.share.minike.top/Article/details/26261170.shtml
+- 2026-06-30 09:23 - 巴西2比1日本<br><br> | ??:https://www.blog.minike.top/Article/details/950977.shtml
+- 2026-06-30 09:28 - 把毒品藏在哪里，60秒内不会被发现？<br><br> | ??:http://www.blog.minike.top/Article/details/790599163.shtml
+- 2026-06-30 09:14 - 如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/6447448.shtml

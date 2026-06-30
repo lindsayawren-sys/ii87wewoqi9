@@ -1,59 +1,58 @@
-# 图书腰封变“妖风”，为何出版社明知虚假宣传招反感，却仍乐此不疲？
+# 山城重庆完成两江四岸低空航线验证试飞 探索三大应用场景
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-摒弃套路营销 回归阅读本真 浮夸腰封渐散 口碑才是流量底色 近日，一条图书广告语猝不及防地冲上热搜。法国作家安德烈·纪德的经典小说《窄门》，腰封上赫然印着：“纯爱之巅，虐心天花板，余华读得全身发抖。”有网友跑到余华社交账号下留言求证：“老师您真的读得全身发抖吗？”余华回复：“不可能。”随后，一段余华现场辟谣的视频也被曝光。视频中，余华一脸认真地反问：“读《窄门》谁会哭呀？”这位
+中新社重庆6月18日电 (张旭)中共重庆市委军民融合发展委员会办公室18日发布消息称，近日，山城重庆两江四岸低空航线验证试飞活动顺利完成，实现了重庆中心城区低空多元化应用场景的系统性落地探索。 据介绍，本次验证试飞航空域管控标准严苛、飞行运行要求极高。试飞航线全面覆盖解放碑、来福士、洪崖洞、江北嘴大剧院、南滨路等两江四岸核心地标集群，涉及重庆中心城区低空场景落地的重点、难点区域
 
 ## 正文
 
-摒弃套路营销 回归阅读本真 浮夸腰封渐散 口碑才是流量底色 近日，一条图书广告语猝不及防地冲上热搜。
+中新社重庆6月18日电 (张旭)中共重庆市委军民融合发展委员会办公室18日发布消息称，近日，山城重庆两江四岸低空航线验证试飞活动顺利完成，实现了重庆中心城区低空多元化应用场景的系统性落地探索。
 
-法国作家安德烈·纪德的经典小说《窄门》，腰封上赫然印着：“纯爱之巅，虐心天花板，余华读得全身发抖。
+据介绍，本次验证试飞航空域管控标准严苛、飞行运行要求极高。
 
-”有网友跑到余华社交账号下留言求证：“老师您真的读得全身发抖吗？
+试飞航线全面覆盖解放碑、来福士、洪崖洞、江北嘴大剧院、南滨路等两江四岸核心地标集群，涉及重庆中心城区低空场景落地的重点、难点区域。
 
-”余华回复：“不可能。
+试飞过程严格遵循民航飞行安全规范，圆满完成航线勘测、空域适配、飞行环境核验、运行流程测试、应急保障演练等全科目验证工作，全面摸清重庆中心城区核心区空域运行条件、飞行适配标准与场景落地可行性，所有试飞数据、运行指标均达到规范要求。
 
-”随后，一段余华现场辟谣的视频也被曝光。
+此次验证试飞由重庆文化旅游集团有限公司、重庆玖洲低空产业发展集团有限公司、甘肃航空产业投资有限公司合作完成。
 
-视频中，余华一脸认真地反问：“读《窄门》谁会哭呀？
+接下来，三方将以重庆两江四岸核心航线为载体，重点落地低空文旅观光、城市空中摆渡、应急医疗救援三大应用场景。
 
-”这位以冷幽默著称的作家，用这种特有的方式完成了一次隔空“打假”。
-
-这不过是图书营销“语不惊人死不休”的又一次翻车现场。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 09:22 - 极端热浪席卷欧洲多国，热一热百姓让领导先凉快？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md
-- 2026-06-30 09:21 - 欧洲民众抢购空调降温<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md
-- 2026-06-30 09:07 - 为什么纣王似乎对周文王的扩张完全无动于衷？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md
-- 2026-06-30 09:06 - 恋与深空回应争议<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md
-- 2026-06-30 09:10 - 要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md
-- 2026-06-30 09:09 - 世界杯巴拉圭点球淘汰德国<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md
-- 2026-06-30 09:22 - 德国身价是巴拉圭6倍<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md
-- 2026-06-30 09:08 - 大货车掉落螺丝扎进骑手护目镜<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md
-- 2026-06-30 09:12 - 德国身价是巴拉圭6倍<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md
-- 2026-06-30 09:06 - 第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md
-- 2026-06-30 08:58 - 泰山景区建135公里刀片刺绳隔离网<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md
-- 2026-06-30 09:05 - 千与千寻<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md
-- 2026-06-30 09:21 - 点球大战和诺伊尔都救不回德国队<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md
+- 2026-06-30 09:02 - 租房时你会更看重「住得舒服」，还是「每天通勤更方便」？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md
+- 2026-06-30 09:07 - 内马尔安慰日本球员<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md
+- 2026-06-30 09:09 - 马耳他著名拱门坍塌致中国男子身亡<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md
+- 2026-06-30 09:01 - 郑钦文 四年一轮游<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md
+- 2026-06-30 09:29 - 《虎吹最难绷の一集》<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md
+- 2026-06-30 09:04 - 想问一下学日语的大佬，自学日语要怎么学？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md
+- 2026-06-30 09:23 - 沙丘<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md
+- 2026-06-30 09:12 - 为什么很多企业推行“扁平化管理”后，效率反而下降了？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md
+- 2026-06-30 09:23 - 自然光｜papi酱&窦文涛：驴与跑步机<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md
+- 2026-06-30 09:01 - 爱直接对嘴喝饮料的人天塌了<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md
+- 2026-06-30 09:16 - 如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md
+- 2026-06-30 09:25 - 杨紫大银幕成绩单如何<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md
+- 2026-06-30 09:02 - 德国vs巴拉圭<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md
+- 2026-06-30 09:19 - 巴西绝杀<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:21 - 2021湖南卫视跨年演唱会<br><br> | ??:https://www.share.kurohicncr.top/Article/details/6638063.shtml
-- 2026-06-30 09:14 - 美媒：美军第五舰队司令部已无法使用<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/1092653.shtml
-- 2026-06-30 09:21 - 本科毕业生为何涌入专科学校<br><br> | ??:http://www.share.minike.top/Article/details/17113036.shtml
-- 2026-06-30 09:03 - 一生一世<br><br> | ??:http://www.share.kurohicncr.top/Article/details/552303.shtml
-- 2026-06-30 08:57 - 泰山景区建135公里刀片刺绳隔离网<br><br> | ??:http://www.share.minike.top/Article/details/424558.shtml
-- 2026-06-30 09:22 - 委内瑞拉地震死亡人数升至1719人<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/32091603.shtml
-- 2026-06-30 09:22 - 建议不要突然完全停止喝咖啡<br><br> | ??:http://www.blog.minike.top/Article/details/91994864402.shtml
-- 2026-06-30 09:17 - 宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？<br><br> | ??:http://www.share.minike.top/Article/details/721282475.shtml
-- 2026-06-30 09:10 - 现在叛逆期的孩子最怕的是什么？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/7549626.shtml
-- 2026-06-30 09:05 - 法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/68671904.shtml
-- 2026-06-30 09:23 - 贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/701257982.shtml
-- 2026-06-30 09:03 - 商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？<br><br> | ??:http://www.share.minike.top/Article/details/1369503.shtml
-- 2026-06-30 08:58 - 可以细成这样？1600万预算，颠覆我认知的改造！<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/201294554.shtml
-- 2026-06-30 08:58 - 李在明90度鞠躬感谢韩国两大财阀<br><br> | ??:http://www.share.kurohicncr.top/Article/details/3584268077.shtml
-- 2026-06-30 09:07 - 杨紫大银幕成绩单<br><br> | ??:http://www.share.kurohicncr.top/Article/details/140259011.shtml
+- 2026-06-30 09:14 - 泰山建135公里刀片刺绳隔离网<br><br> | ??:http://www.share.kurohicncr.top/Article/details/499161.shtml
+- 2026-06-30 09:15 - F1奥地利站赛后复盘<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/51633324188.shtml
+- 2026-06-30 09:06 - 王楚钦孙颖莎混双对手产生<br><br> | ??:https://www.share.kurohicncr.top/Article/details/0897647270.shtml
+- 2026-06-30 09:02 - 披荆斩棘的哥哥<br><br> | ??:https://www.share.minike.top/Article/details/809710285.shtml
+- 2026-06-30 09:13 - 日本遭读秒绝杀 森保一：我水平不够<br><br> | ??:https://www.blog.minike.top/Article/details/29950593617.shtml
+- 2026-06-30 09:21 - 拆解FIFA和世界杯的暗面<br><br> | ??:https://www.share.kurohicncr.top/Article/details/93781.shtml
+- 2026-06-30 09:24 - 巴西绝杀<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/2103118.shtml
+- 2026-06-30 09:26 - 如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/343884994.shtml
+- 2026-06-30 09:29 - 男子醉酒溺水获救后同行人拒协助抬人<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/1807841103.shtml
+- 2026-06-30 09:23 - 德国巴拉圭加时<br><br> | ??:https://www.blog.minike.top/Article/details/54905253.shtml
+- 2026-06-30 09:05 - 王楚钦说配合稍微有些陌生感<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/0875883.shtml
+- 2026-06-30 09:21 - 这种关系可能正在悄悄“催老”你<br><br> | ??:https://www.share.kurohicncr.top/Article/details/8633845.shtml
+- 2026-06-30 09:22 - 啥比桑吉尔夫排位练蓝防（最不抽象的一集）<br><br> | ??:https://www.share.minike.top/Article/details/65896945.shtml
+- 2026-06-30 09:13 - 男子在非洲务工死亡 公司不认可工亡<br><br> | ??:https://www.share.minike.top/Article/details/85092411.shtml
+- 2026-06-30 09:08 - 日本进球<br><br> | ??:https://www.share.minike.top/Article/details/30914.shtml

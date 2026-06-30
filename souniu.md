@@ -1,59 +1,51 @@
-# 民族团结进步促进法是一部怎样的法律
+# 伊朗所发文本显示美国将在签署谅解备忘录后立即发放伊朗石油豁免
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-中新网北京6月24日电(记者 袁秀月)国务院新闻办公室6月24日举行新闻发布会，介绍《中华人民共和国民族团结进步促进法》和我国民族工作有关情况。 中华民族是各民族凝聚成的多元一体大家庭。民族团结是我国各族人民的生命线。党的十八大以来，以习近平同志为核心的党中央高度重视民族工作，鲜明提出把铸牢中华民族共同体意识作为新时代党的民族工作主线、民族地区各项工作的主线，形成了习近平总书记
+根据伊朗总统在X上公布的协议文本，美国将在谅解备忘录签署后立即发放伊朗原油、石油产品及衍生品出口豁免，直至制裁终止。 豁免还将涵盖相关服务，包括银行交易、保险和运输。 注：伊朗将安排霍尔木兹海峡船只通行 60天内不收取费用。责任编辑：何云
 
 ## 正文
 
-中新网北京6月24日电(记者 袁秀月)国务院新闻办公室6月24日举行新闻发布会，介绍《中华人民共和国民族团结进步促进法》和我国民族工作有关情况。
+根据伊朗总统在X上公布的协议文本，美国将在谅解备忘录签署后立即发放伊朗原油、石油产品及衍生品出口豁免，直至制裁终止。
 
-中华民族是各民族凝聚成的多元一体大家庭。
+豁免还将涵盖相关服务，包括银行交易、保险和运输。
 
-民族团结是我国各族人民的生命线。
+注：伊朗将安排霍尔木兹海峡船只通行 60天内不收取费用。
 
-党的十八大以来，以习近平同志为核心的党中央高度重视民族工作，鲜明提出把铸牢中华民族共同体意识作为新时代党的民族工作主线、民族地区各项工作的主线，形成了习近平总书记关于加强和改进民族工作的重要思想。
-
-在这一重要思想的科学指引下，我国民族团结进步事业取得新的历史性成就，少数民族的面貌、民族地区的面貌、民族关系的面貌、中华民族的面貌都发生了翻天覆地的历史性巨变。
-
-党的二十届三中全会着眼健全铸牢中华民族共同体意识制度机制，提出制定民族团结进步促进法这一重大政治任务和立法任务。
-
-习近平总书记主持召开中央政治局会议研究民族团结进步促进法草案，十四届全国人大四次会议表决通过民族团结进步促进法，国家主席习近平签署第七十一号主席令予以公布。
-
-民族团结进步促进法贯彻落实党中央决策部署，立足新时代党的民族工作的历史方位，全面贯彻宪法规定、原则和精神，为铸牢中华民族共同体意识、推进中华民族共同体建设夯实法治根基，对全面推进民族团结进步事业，推动全国各族人民为以中国式现代化全面推进强国建设、民族复兴伟业团结奋斗具有重大意义。
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-30 09:09 - 德国巴拉圭进入点球大战<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md
-- 2026-06-30 08:58 - 日本队主帅道歉<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md
-- 2026-06-30 08:55 - 如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md
-- 2026-06-30 09:10 - 莫兰特被交易到开拓者<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md
-- 2026-06-30 09:16 - 我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md
-- 2026-06-30 09:13 - 英语考了145的人竟然教数学<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md
-- 2026-06-30 09:15 - 日本16强魔咒<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md
-- 2026-06-30 09:10 - 德国连续三届世界杯无缘16强<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md
-- 2026-06-30 09:15 - Melo向柳智敏张元英道歉<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md
-- 2026-06-30 09:07 - 如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md
-- 2026-06-30 09:13 - 7月1日起 一批新规即将落地<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md
-- 2026-06-30 09:02 - 酒店推行“24小时退房”引热议<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md
-- 2026-06-30 08:58 - 爱很美味<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md
+- 2026-06-30 09:21 - 我把队友的7连跪剪成了艺术<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md
+- 2026-06-30 09:17 - 卖菜老人获博主帮助后遇车祸去世<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md
+- 2026-06-30 09:10 - 送你一朵小红花<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md
+- 2026-06-30 09:23 - 四川凉山落石砸毁车辆 3人遇难<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md
+- 2026-06-30 09:20 - 美股深夜大反弹 特斯拉飙涨8%<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md
+- 2026-06-30 09:21 - 极限挑战第一季<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md
+- 2026-06-30 09:20 - 卡塞米罗头球破门<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md
+- 2026-06-30 09:28 - 电子游戏中有哪些关于武器的“刻板印象”？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md
+- 2026-06-30 09:17 - 四川宜宾地震瞬间鱼群乱跳<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md
+- 2026-06-30 09:04 - 有哪些被认为是现代才有的东西其实古代就有了？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md
+- 2026-06-30 09:27 - 泰山建135公里刀片刺绳隔离网<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md
+- 2026-06-30 09:10 - 陈幸同晋级WTT美国大满贯女单32强<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md
+- 2026-06-30 09:06 - 董卿母亲癌症去世<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:09 - 这些7月新规影响你我<br><br> | ??:http://www.share.kurohicncr.top/Article/details/4630112.shtml
-- 2026-06-30 09:05 - 金牌调解<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/81944.shtml
-- 2026-06-30 09:19 - Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？<br><br> | ??:http://www.share.minike.top/Article/details/88769.shtml
-- 2026-06-30 09:19 - 森保一致歉：世界第一目标没能实现<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/59624818.shtml
-- 2026-06-30 09:14 - 佐野海舟远射破门<br><br> | ??:http://www.share.kurohicncr.top/Article/details/951611.shtml
-- 2026-06-30 09:06 - 左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？<br><br> | ??:https://www.blog.minike.top/Article/details/77676431.shtml
-- 2026-06-30 09:21 - 曝詹姆斯即将与勇士会面<br><br> | ??:https://www.blog.minike.top/Article/details/599311024.shtml
-- 2026-06-30 09:20 - 房价什么时候能涨<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/564423.shtml
-- 2026-06-30 09:20 - 高质量发展看新疆<br><br> | ??:http://www.share.kurohicncr.top/Article/details/303081863.shtml
-- 2026-06-30 09:16 - 李在明向韩国两大财阀90度鞠躬<br><br> | ??:https://www.share.kurohicncr.top/Article/details/82295386874.shtml
-- 2026-06-30 09:17 - 啥比桑吉尔夫排位练蓝防（最不抽象的一集）<br><br> | ??:https://www.blog.minike.top/Article/details/86743.shtml
-- 2026-06-30 09:13 - 世界杯欧洲队7战南美仅1胜<br><br> | ??:https://www.blog.minike.top/Article/details/47817881771.shtml
-- 2026-06-30 09:19 - 德国vs巴拉圭<br><br> | ??:http://www.share.minike.top/Article/details/67988789.shtml
-- 2026-06-30 08:58 - Melo向柳智敏张元英道歉<br><br> | ??:http://www.share.minike.top/Article/details/09289.shtml
-- 2026-06-30 09:03 - F1奥地利站赛后复盘<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/836130745.shtml
+- 2026-06-30 09:03 - 电影抓特务上映11天破亿<br><br> | ??:https://www.share.minike.top/Article/details/2195636.shtml
+- 2026-06-30 09:29 - 王楚钦孙颖莎晋级混双八强<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/9313296.shtml
+- 2026-06-30 09:05 - 德国罚丢3粒点球<br><br> | ??:https://www.blog.minike.top/Article/details/1375103.shtml
+- 2026-06-30 09:13 - 赵今麦因“瘦而不柴”的体态出圈<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/56631504.shtml
+- 2026-06-30 09:24 - 网瘾賊大的阿嬷<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/510617621.shtml
+- 2026-06-30 09:03 - 巴拉圭进球<br><br> | ??:https://www.share.kurohicncr.top/Article/details/61106593.shtml
+- 2026-06-30 09:16 - 巴拉圭门将<br><br> | ??:http://www.share.minike.top/Article/details/88570837361.shtml
+- 2026-06-30 09:10 - 巴西足球能否再现昔日荣光<br><br> | ??:https://www.blog.minike.top/Article/details/29398.shtml
+- 2026-06-30 09:05 - 中国代表在联合国点名日本所犯罪行<br><br> | ??:http://www.blog.minike.top/Article/details/02059.shtml
+- 2026-06-30 09:00 - 诺伊尔尽力了<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/442871.shtml
+- 2026-06-30 09:23 - 当我知道豆包有后台审核人员<br><br> | ??:http://www.share.kurohicncr.top/Article/details/278647.shtml
+- 2026-06-30 09:17 - 世界杯：荷兰vs摩洛哥<br><br> | ??:https://www.blog.minike.top/Article/details/902963.shtml
+- 2026-06-30 09:27 - 索马里女大使：想和中国一起搞事业<br><br> | ??:http://www.share.kurohicncr.top/Article/details/022030983708.shtml
+- 2026-06-30 09:07 - 失明的我带老妈去了趟“火星”<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/750754.shtml
+- 2026-06-30 09:06 - 宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？<br><br> | ??:http://www.share.minike.top/Article/details/2693939.shtml

@@ -1,56 +1,59 @@
-# 委内瑞拉进入紧急状态
+# 藏族歌手降央卓玛：草原音乐拥有走向国际的天然力量
 
-> 更新时间：2026-06-30 09:24:08 UTC+8
+> 更新时间：2026-06-30 09:30:02 UTC+8
 
 ## 摘要
 
-连续发生7级以上强震 委内瑞拉进入紧急状态 委内瑞拉进入紧急状态 委内瑞拉宣布进入紧急状态，连续强震已致多人遇难 “初步预计，委内瑞拉地震遇难人数过万” 来源：政事儿 新华社消息，委内瑞拉代总统罗德里格斯24日宣布，该国进入紧急状态，首都加拉加斯主要国际机场关闭。 委内瑞拉官员：地震致至少18人受伤 委内瑞拉首都加拉加斯附近的米兰达州查考市市长古斯塔沃·杜克24日在社交媒体上说
+中新网内蒙古乌海6月18日电 题：藏族歌手降央卓玛：草原音乐拥有走向国际的天然力量 中新网记者李爱平 “不少海外观众在巴西听完我演唱的草原歌曲《天边》后，心生向往，渴望到中国亲身感受中华民族音乐的独特韵味。”6月17日晚，刚完成2026内蒙古民歌大会演出的藏族歌手降央卓玛表示，草原音乐意境辽阔、气质纯粹，自带跨越国界的感染力，具备走向国际的天然力量。 6月16日至17日，202
 
 ## 正文
 
-连续发生7级以上强震 委内瑞拉进入紧急状态 委内瑞拉进入紧急状态 委内瑞拉宣布进入紧急状态，连续强震已致多人遇难 “初步预计，委内瑞拉地震遇难人数过万” 来源：政事儿 新华社消息，委内瑞拉代总统罗德里格斯24日宣布，该国进入紧急状态，首都加拉加斯主要国际机场关闭。
+中新网内蒙古乌海6月18日电 题：藏族歌手降央卓玛：草原音乐拥有走向国际的天然力量 中新网记者李爱平 “不少海外观众在巴西听完我演唱的草原歌曲《天边》后，心生向往，渴望到中国亲身感受中华民族音乐的独特韵味。
 
-委内瑞拉官员：地震致至少18人受伤 委内瑞拉首都加拉加斯附近的米兰达州查考市市长古斯塔沃·杜克24日在社交媒体上说，该市有两处建筑物在地震中倒塌，目前已救出18名受困伤者，500余名政府工作人员正在执行救援任务。
+”6月17日晚，刚完成2026内蒙古民歌大会演出的藏族歌手降央卓玛表示，草原音乐意境辽阔、气质纯粹，自带跨越国界的感染力，具备走向国际的天然力量。
 
-委内瑞拉内政、司法与和平部长迪奥斯达多·卡韦略当天通过该国国家电视台发表讲话说，此次地震影响委多个城市，加拉加斯东部多处建筑物倒塌。
+6月16日至17日，2026内蒙古民歌大会在乌海市举办。
 
-据美国地质调查局地震信息网消息，格林尼治时间24日22时4分（北京时间25日6时4分），委内瑞拉蒙塔尔万附近发生7.2级地震，震源深度10公里。
+演出结束后，降央卓玛分享了自己的海外演出经历。
 
-该网后续监测显示，不到一分钟内，委内瑞拉再次发生强震，震级7.5级，震中位于北纬10.40度、西经68.32度，震源深度10公里。
+她回忆，巴西演出当晚，当地观众盛装前往，马头琴悠扬奏响，草原歌声缓缓流淌，质朴辽阔的民族韵律直击人心，赢得全场持续热烈的掌声，也让她深切体会到草原音乐无分国界的艺术魅力。
 
-该机构当天还就委内瑞拉地震发布红色警报，预计地震会造成重大人员伤亡、大范围破坏和相关经济损失，并在多地引发灾情。
+降央卓玛出生于四川甘孜藏族自治州德格县，2005年自四川音乐学院毕业后，凭借舞剧《梦幻康巴》中的精彩演绎，斩获四川省第五届少数民族艺术节声乐表演一等奖。
 
-责任编辑：石秀珍 SF183
+2006年，她亮相第三届全国少数民族文艺会演，凭借稳定精湛的唱功摘得独唱金奖。
+
+2008年4月，降央卓玛发行首张个人专辑《这山这水》，正式开启个人音乐事业。
 
 ## 相关推荐
 
-- 2026-06-30 09:10 - 安切洛蒂 换人<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md
-- 2026-06-30 08:54 - 日本主帅：未能夺冠深感抱歉<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md
-- 2026-06-30 09:15 - 宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md
-- 2026-06-30 09:16 - 主人解开狗绳2只狗将路人撕咬致死<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md
-- 2026-06-30 09:08 - 陈小春人老了干什么也不心酸<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md
-- 2026-06-30 08:54 - 本科毕业生为何涌入专科学校<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md
-- 2026-06-30 09:09 - 老外对中国cosplay竟这样评价…<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md
-- 2026-06-30 08:59 - 泰山景区回应修建刀片刺绳隔离网<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md
-- 2026-06-30 09:21 - 速度与激情9<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md
-- 2026-06-30 09:21 - 女子遭下药退赔偿拟追刑责<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md
-- 2026-06-30 09:19 - 金鹰奖视后提名预测<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md
-- 2026-06-30 09:14 - 三星投资计划<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md
+- 2026-06-30 09:16 - 请回答王牌2019<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md
+- 2026-06-30 09:02 - 央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md
+- 2026-06-30 09:03 - 手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md
+- 2026-06-30 09:10 - 科学备孕男女都要上心<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md
+- 2026-06-30 09:09 - 人民锐评：网红不能困在无底线逐利里<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md
+- 2026-06-30 09:09 - 男子诋毁袁隆平科研成果被刑拘<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md
+- 2026-06-30 09:11 - 网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md
+- 2026-06-30 09:21 - 毒液2<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md
+- 2026-06-30 09:03 - 德国4比5巴拉圭<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md
+- 2026-06-30 09:23 - 我觉得你是在无中生友<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md
+- 2026-06-30 09:25 - 咕嘎万能小摊1：沉浸式制作惠灵顿牛排<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md
+- 2026-06-30 09:00 - 感动全网的699分女生想报考清华<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md
+- 2026-06-30 09:29 - 《共患难》<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:58 - 重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/628690131150.shtml
-- 2026-06-30 09:07 - 巴拉圭点球大战淘汰德国进16强<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/245436391834.shtml
-- 2026-06-30 09:23 - 花少8要去世界杯举办国<br><br> | ??:https://www.share.kurohicncr.top/Article/details/2117778.shtml
-- 2026-06-30 09:23 - 城市规划有可能成为「屎山代码」吗？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/637269256.shtml
-- 2026-06-30 08:54 - 补时绝杀 巴西2-1淘汰日本<br><br> | ??:http://www.share.kurohicncr.top/Article/details/68338168.shtml
-- 2026-06-30 09:20 - 《赛博朋克：边缘行者 2》｜官方预告片<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/4836919.shtml
-- 2026-06-30 09:10 - 亚洲球队全部出局<br><br> | ??:http://www.blog.minike.top/Article/details/1846338.shtml
-- 2026-06-30 09:04 - 起风了<br><br> | ??:https://www.share.kurohicncr.top/Article/details/413825.shtml
-- 2026-06-30 09:06 - 董卿母亲癌症去世<br><br> | ??:http://www.blog.minike.top/Article/details/470336470343.shtml
-- 2026-06-30 09:16 - 日本球员说被绝杀非常不甘心<br><br> | ??:https://www.share.kurohicncr.top/Article/details/714865390695.shtml
-- 2026-06-30 09:03 - 大蒜晒外面被路过女子连盆端走<br><br> | ??:https://www.share.kurohicncr.top/Article/details/046180.shtml
-- 2026-06-30 09:01 - 重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！<br><br> | ??:https://www.share.minike.top/Article/details/2895119962.shtml
-- 2026-06-30 08:55 - 《虎吹最难绷の一集》<br><br> | ??:http://www.share.kurohicncr.top/Article/details/77166.shtml
-- 2026-06-30 09:15 - 不开心就去看三年前的购物订单<br><br> | ??:http://www.blog.minike.top/Article/details/594170.shtml
-- 2026-06-30 09:05 - 韩国球迷凌晨4点接机怒骂主教练<br><br> | ??:https://www.blog.minike.top/Article/details/503330817895.shtml
+- 2026-06-30 09:03 - 宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/962994445.shtml
+- 2026-06-30 09:29 - 韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/774850518.shtml
+- 2026-06-30 09:06 - 巴拉圭进球<br><br> | ??:http://www.share.minike.top/Article/details/20263.shtml
+- 2026-06-30 09:21 - 《鸣潮》玄方主题曲 MV | 定玄<br><br> | ??:http://www.share.kurohicncr.top/Article/details/398321294142.shtml
+- 2026-06-30 09:12 - 李准基参加文彩元婚礼<br><br> | ??:http://www.share.kurohicncr.top/Article/details/31772787961.shtml
+- 2026-06-30 09:05 - 「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/64056182.shtml
+- 2026-06-30 09:24 - 日本博主：日本足球真的垃圾<br><br> | ??:https://www.blog.minike.top/Article/details/72343398.shtml
+- 2026-06-30 09:28 - 恐怖世界 第三集 埃温霍姆村<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/69850932.shtml
+- 2026-06-30 09:14 - 王楚钦孙颖莎混双对手产生<br><br> | ??:http://www.share.kurohicncr.top/Article/details/080802.shtml
+- 2026-06-30 09:29 - 承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？<br><br> | ??:https://www.blog.minike.top/Article/details/91948.shtml
+- 2026-06-30 09:24 - 韩国世界杯出局是主帅一个人的锅吗<br><br> | ??:http://www.share.minike.top/Article/details/850458662.shtml
+- 2026-06-30 09:29 - 女子遭家暴逃跑致丈夫身亡二审细节<br><br> | ??:http://www.blog.minike.top/Article/details/14489935528.shtml
+- 2026-06-30 09:00 - 小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/2710557.shtml
+- 2026-06-30 09:21 - 莫兰特转投开拓者效力<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/2588384639.shtml
+- 2026-06-30 09:18 - 詹姆斯 勇士<br><br> | ??:https://www.share.minike.top/Article/details/953040.shtml
