@@ -1,59 +1,58 @@
-# 辛纳获罗马大师赛冠军 成史上最年轻“金大师”
+# 民企奋进自贸港：抢抓封关机遇布局中医药大健康
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-中新社北京5月18日电 当地时间17日进行的男子职业网球选手协会(ATP)1000罗马大师赛男单决赛中，意大利名将、世界排名第一的辛纳以2:0战胜赛会23号种子、挪威选手鲁德，首夺赛会冠军，并成为历史上最年轻获得“金大师”(即职业生涯集齐全部九站ATP1000大师赛冠军)荣誉的球员。辛纳和鲁德此前交手四次，辛纳均直落两盘获胜。本次比赛，鲁德开局即通过多拍回合以及放小球与辛纳展开
+中新网海口6月17日电 题：民企奋进自贸港：抢抓封关机遇布局中医药大健康 中新网记者 符宇群 “这次来到海南，我们希望在海南建立药食同源生产基地。”16日，在海口举行的2026全国民营企业绿色发展大会民营企业座谈会上，全国工商联美容化妆品商会副会长、北京药仙科技有限公司(下称“北京药仙科技”)董事长吴繁说，今年海南自贸港全岛封关运作全面推进，让民营企业看到巨大机遇，企业决定把口
 
 ## 正文
 
-中新社北京5月18日电 当地时间17日进行的男子职业网球选手协会(ATP)1000罗马大师赛男单决赛中，意大利名将、世界排名第一的辛纳以2:0战胜赛会23号种子、挪威选手鲁德，首夺赛会冠军，并成为历史上最年轻获得“金大师”(即职业生涯集齐全部九站ATP1000大师赛冠军)荣誉的球员。
+中新网海口6月17日电 题：民企奋进自贸港：抢抓封关机遇布局中医药大健康 中新网记者 符宇群 “这次来到海南，我们希望在海南建立药食同源生产基地。
 
-辛纳和鲁德此前交手四次，辛纳均直落两盘获胜。
+”16日，在海口举行的2026全国民营企业绿色发展大会民营企业座谈会上，全国工商联美容化妆品商会副会长、北京药仙科技有限公司(下称“北京药仙科技”)董事长吴繁说，今年海南自贸港全岛封关运作全面推进，让民营企业看到巨大机遇，企业决定把口溶膜护肝片国际生产线迁至海南。
 
-本次比赛，鲁德开局即通过多拍回合以及放小球与辛纳展开对抗，在第二局率先破发，辛纳随之回破。
+吴繁拥有十余年国旅集团从业经历，同时执掌1994年成立的股份制文旅企业国旅海外经济合作有限公司，兼具文旅与大健康产业运营资源。
 
-双方战至4:4平后，辛纳在第九局凭借精准放小球成功兑现第二个破发点，之后顺势保发，以6:4拿下首盘。
+他表示，此次参会核心目标是抢抓自贸港封关运作历史性机遇，扎根海南做实产业。
 
-第二盘，辛纳率先破发，尽管在第八局因为高压球失误送出破发点，但在关键时刻凭借强势发球顽强保发，以6:4获胜。
+北京药仙科技2015年成立，为中国中医科学院中药科技合作中心参股15%的国有参股、民营控股科创企业，专注中医药科研成果市场化转化。
 
-凭借罗马大师赛的冠军，辛纳豪取ATP1000大师赛34连胜，斩获职业生涯巡回赛第29个冠军。
+企业在北京自建化妆品与药食同源双工厂，美妆板块拥有专利配方，去年企业天猫店铺销量10万单；企业自主研发护肝解酒口溶膜，依托葛根、铁皮石斛等草本小分子提纯，吸收效率突出。
 
-他成为继24个大满贯冠军德约科维奇之后，历史上第二位集齐全部九站大师赛冠军的“金大师”，也是史上首位连续夺得六站大师赛冠军的选手。
+目前，企业正与抖音、京东等头部电商合作，立足药食同源领域，把传统中医药的本草智慧，用现代科学技术产业化。
 
-此外，2001年出生的辛纳还是1976年后首位夺得赛会单打冠军的意大利本土选手。
+“我们不做概念、不炒热度，依托中国中医科学院科研资源，打造安全、绿色、可溯源的药食同源产品。
 
 ## 相关推荐
 
-- 2026-06-30 08:25 - [马耳他著名拱门坍塌致中国男子身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-30 08:34 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-30 08:28 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-30 08:34 - [欧洲民众抢购空调降温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-30 08:46 - [世界杯欧洲队7战南美仅1胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-30 08:40 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
-- 2026-06-30 08:45 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
-- 2026-06-30 08:29 - [世界杯欧洲队7战南美仅1胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
-- 2026-06-30 08:49 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-30 08:46 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-30 08:47 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-30 08:50 - [郑钦文温网首轮出局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-30 08:53 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-30 08:34 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-30 08:30 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
+- 2026-06-30 08:32 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-30 08:31 - [欧洲装一台空调有多难](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-30 08:57 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-30 08:46 - [郑钦文温网三连败西尼亚科娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
+- 2026-06-30 08:32 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-30 08:59 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-30 08:55 - [追梦拒绝2770万美元球员选项](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-30 08:41 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-30 08:37 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-30 08:51 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:31 - [刘必安等16人非法集资案二审宣判](https://www.share.minike.top/Article/details/3277711273.shtml)
-- 2026-06-30 08:54 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://www.share.minike.top/Article/details/233984743571.shtml)
-- 2026-06-30 08:44 - [周冬雨多次说演不了话剧文城](http://www.share.minike.top/Article/details/4984262533.shtml)
-- 2026-06-30 08:45 - [《共患难》](https://www.share.minike.top/Article/details/58855528.shtml)
-- 2026-06-30 08:25 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.minike.top/Article/details/3131483.shtml)
-- 2026-06-30 08:45 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/70455796.shtml)
-- 2026-06-30 08:43 - [日本五次世界杯淘汰赛全败](http://www.share.minike.top/Article/details/91198720.shtml)
-- 2026-06-30 08:40 - [王楚钦说配合稍微有些陌生感](http://www.share.minike.top/Article/details/42369469462.shtml)
-- 2026-06-30 08:43 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/989096458.shtml)
-- 2026-06-30 08:37 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://www.share.minike.top/Article/details/175475.shtml)
-- 2026-06-30 08:24 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/30754361054.shtml)
-- 2026-06-30 08:25 - [金鹰奖视后提名预测](http://www.blog.minike.top/Article/details/79847486.shtml)
-- 2026-06-30 08:39 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/8279650336.shtml)
-- 2026-06-30 08:37 - [逃狱兄弟](http://www.share.minike.top/Article/details/263434119.shtml)
-- 2026-06-30 08:38 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.kurohicncr.top/Article/details/5257846.shtml)
+- 2026-06-30 08:57 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/41756432479.shtml)
+- 2026-06-30 08:37 - [【涤墨作战7人870】望：我从地狱杀回来了！](http://www.blog.minike.top/Article/details/948517468.shtml)
+- 2026-06-30 08:39 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.minike.top/Article/details/7430957636.shtml)
+- 2026-06-30 08:34 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/48398.shtml)
+- 2026-06-30 08:31 - [拆解FIFA和世界杯的暗面](https://www.blog.minike.top/Article/details/37989532046.shtml)
+- 2026-06-30 08:37 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.minike.top/Article/details/193489.shtml)
+- 2026-06-30 08:46 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/55008236327.shtml)
+- 2026-06-30 08:42 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/113007.shtml)
+- 2026-06-30 08:50 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/879982.shtml)
+- 2026-06-30 08:52 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/5005015.shtml)
+- 2026-06-30 08:46 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/72406535035.shtml)
+- 2026-06-30 08:46 - [有什么好的高中网课推荐吗？](http://www.share.minike.top/Article/details/0229226202.shtml)
+- 2026-06-30 08:41 - [IGN评测电影版后室](https://www.share.kurohicncr.top/Article/details/3234656523.shtml)
+- 2026-06-30 08:54 - [巴拉圭先进球了](https://www.blog.kurohicncr.top/Article/details/17088045.shtml)
+- 2026-06-30 08:55 - [流金岁月](http://www.share.minike.top/Article/details/73708779.shtml)

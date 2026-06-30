@@ -1,58 +1,58 @@
-# 2026孟子故里（邹城）母亲文化节在山东邹城开幕
+# 长江有色: 美伊和谈缓解供应危机避险溢价退潮 16日铝价或大跌
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-今天是国际博物馆日，我们为什么需要博物馆？原来文物也爱“串门”《给阿嬷的情书》导演蓝鸿春:潮汕方言电影因何跨越山海能源危机叠加日元贬值，日本实体经济正为中东战火埋单“肯德基指数”回暖释放消费市场积极信号周末看摩托车赛成国人新爱好为一个馆赴一座城，河北小众博物馆频“出圈”美国记者，在北京看到了怎样的中国？台湾用30余年建成的淡江大桥通车即翻车？律师：女孩盲道被撞摆拍者或构成寻衅滋
+长江有色金属网 长江铝价alu.ccmn.cn短评：美伊和谈缓解供应危机避险溢价退潮，隔夜伦铝大跌4.52%十周低位；中国产量扩张库存触顶，铝价下行强，贴水及下游淡季补库乏力，今现铝或大跌。 【铝期货市场】：美伊和谈缓解供应危机避险溢价退潮，隔夜伦铝大幅下滑，盘中跌幅创下十周低位，最新收盘报价3383美元/吨，收跌160美元，跌幅4.52%，成交量48091手增加24198手，
 
 ## 正文
 
-今天是国际博物馆日，我们为什么需要博物馆？
+长江有色金属网 长江铝价alu.ccmn.cn短评：美伊和谈缓解供应危机避险溢价退潮，隔夜伦铝大跌4.52%十周低位；中国产量扩张库存触顶，铝价下行强，贴水及下游淡季补库乏力，今现铝或大跌。
 
-原来文物也爱“串门”《给阿嬷的情书》导演蓝鸿春:潮汕方言电影因何跨越山海能源危机叠加日元贬值，日本实体经济正为中东战火埋单“肯德基指数”回暖释放消费市场积极信号周末看摩托车赛成国人新爱好为一个馆赴一座城，河北小众博物馆频“出圈”美国记者，在北京看到了怎样的中国？
+【铝期货市场】：美伊和谈缓解供应危机避险溢价退潮，隔夜伦铝大幅下滑，盘中跌幅创下十周低位，最新收盘报价3383美元/吨，收跌160美元，跌幅4.52%，成交量48091手增加24198手，持仓量643394手减少5917手。
 
-台湾用30余年建成的淡江大桥通车即翻车？
+晚间沪铝同步外盘铝价大幅下挫，盘中触及最低位23730元/吨刷新自2026年3月26日以来最低点；主力月2606合约最新收盘价报23795元/吨，跌435元，跌幅1.80%。
 
-律师：女孩盲道被撞摆拍者或构成寻衅滋事罪从增量扩张到存量提质 建设现代化人民城市被立案调查后，携程在改吗？
+伦敦金属交易所（LME）6月13日伦铝最新库存量报319500吨，较上个交易日下降425吨，跌幅0.13%。
 
-对话维妮娜：在乘风之前，她已经跑了很久小小香料，何以撬动大产业、香飘全世界？
+长江铝业网讯：6月15日现货铝价，长江现货A00铝锭价报24130元/吨，跌10元；广东现货A00铝锭价报24120元/吨，跌20元。
 
-“超级食物”真有那么神奇吗？
+宏观层面，美伊达成和平协议，霍尔木兹海峡预期重开，海湾铝生产商（占全球约9%）供货前景改善，前期因地缘冲突推高的供应溢价被快速挤出。
 
-专家揭秘真相桥头地瓜，竟是“地瓜界的爱马仕”造假摆拍，无底线博流量！
+周一伦铝单日重挫逾5%至3383美元/吨，为四年来最大单日跌幅，跌破100日移动均线（3395美元）关键支撑；沪铝同步走弱，跌至3月26日以来新低。
 
-北京警方通报3起典型案例斯塔默政治前途“悬而未决” 潜在竞争者都有谁？
+现货对三月期价差由两周前的溢价105美元转为贴水21美元，反映实物紧缺预期快速消退。
 
 ## 相关推荐
 
-- 2026-06-30 08:53 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
-- 2026-06-30 08:40 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-30 08:31 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-30 08:39 - [德国队世界杯点球大战首败](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
-- 2026-06-30 08:34 - [库尼亚赛后伸五指嘲讽日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-30 08:29 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-30 08:54 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-30 08:31 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-30 08:50 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-30 08:35 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-30 08:29 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-30 08:34 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-30 08:49 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
+- 2026-06-30 08:54 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-30 08:55 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-30 08:37 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-30 08:59 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-30 08:30 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-30 08:40 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
+- 2026-06-30 08:43 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-30 08:45 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-30 08:42 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-30 08:51 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-30 08:47 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:53 - [德国队连续三届世界杯无缘16强](https://www.share.kurohicncr.top/Article/details/24041.shtml)
-- 2026-06-30 08:40 - [卡塞米罗头球破门](https://www.share.kurohicncr.top/Article/details/836623885702.shtml)
-- 2026-06-30 08:39 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.blog.kurohicncr.top/Article/details/9811688527.shtml)
-- 2026-06-30 08:52 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/58338246718.shtml)
-- 2026-06-30 08:52 - [日本16强魔咒](http://www.blog.minike.top/Article/details/28456.shtml)
-- 2026-06-30 08:27 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/266747.shtml)
-- 2026-06-30 08:34 - [孙兴慜发长文致歉](http://www.blog.minike.top/Article/details/07171415.shtml)
-- 2026-06-30 08:30 - [韩国世界杯出局是主帅一个人的锅吗](http://www.share.minike.top/Article/details/662876.shtml)
-- 2026-06-30 08:36 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/6282942602.shtml)
-- 2026-06-30 08:32 - [杨紫学位证上就是杨紫](https://www.blog.minike.top/Article/details/828334259.shtml)
-- 2026-06-30 08:53 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/63194.shtml)
-- 2026-06-30 08:24 - [德国巴拉圭进入点球大战](http://www.share.minike.top/Article/details/01283.shtml)
-- 2026-06-30 08:27 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/431353105796.shtml)
-- 2026-06-30 08:33 - [沙丘](http://www.share.kurohicncr.top/Article/details/9421040.shtml)
-- 2026-06-30 08:27 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/275828084113.shtml)
+- 2026-06-30 08:47 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/667698805806.shtml)
+- 2026-06-30 08:34 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/62552278986.shtml)
+- 2026-06-30 08:31 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/075946248.shtml)
+- 2026-06-30 08:53 - [《名肘探科比》：科比大战裂口女](http://www.share.kurohicncr.top/Article/details/40988951847.shtml)
+- 2026-06-30 08:50 - [杨紫大银幕成绩单如何](http://www.share.minike.top/Article/details/75686.shtml)
+- 2026-06-30 08:54 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/067166.shtml)
+- 2026-06-30 08:30 - [亚洲球队全部告别世界杯](http://www.share.minike.top/Article/details/38433683895.shtml)
+- 2026-06-30 08:52 - [警犬“多多”助民警寻回失联老人](http://www.share.kurohicncr.top/Article/details/7543373.shtml)
+- 2026-06-30 08:31 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.blog.minike.top/Article/details/766003172.shtml)
+- 2026-06-30 08:56 - [网红峡谷5人溺亡 有人提醒会下雨](https://www.blog.minike.top/Article/details/506624391.shtml)
+- 2026-06-30 08:46 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/73432387.shtml)
+- 2026-06-30 08:48 - [“草莓月亮”浪漫现身](https://www.share.minike.top/Article/details/71094401.shtml)
+- 2026-06-30 08:56 - [郑钦文温网一轮游](https://www.share.kurohicncr.top/Article/details/922857193027.shtml)
+- 2026-06-30 08:45 - [巴西绝杀](https://www.blog.minike.top/Article/details/70583.shtml)
+- 2026-06-30 08:53 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/4010363425.shtml)

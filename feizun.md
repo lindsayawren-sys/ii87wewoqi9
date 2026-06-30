@@ -1,61 +1,61 @@
-# 中欧联合研制“微笑”卫星成功发射
+# 香江观澜：问计于民，香港首个五年规划定下鲜明民生底色
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-中新社北京5月19日电 (记者 孙自法)中国科学院19日发布消息说，中欧联合研制的太阳风-磁层相互作用全景成像卫星(英文缩写SMILE，中文昵称“微笑”卫星)，北京时间当天11时52分在法属圭亚那库鲁航天中心由“织女星-C”火箭成功发射升空。 “微笑”卫星顺利进入预定轨道，状态正常，太阳翼展开到位，标志着发射任务取得圆满成功。中欧携手开创地球磁层探测的新纪元——全球成像与协同观
+中新社香港6月15日电 题：问计于民，香港首个五年规划定下鲜明民生底色 中新社记者 香卢平 香港特区政府15日就香港特别行政区经济和社会发展第一个五年规划(2026—2030)展开公众咨询。为期两个月的公众咨询，不仅是一份规划文本的酝酿，更是一次“把顶层设计和问计于民统一起来”的生动实践。行政长官李家超将“以民为本，把改善民生作为出发点和落脚点”列为这份五年规划三大策略方向之首
 
 ## 正文
 
-中新社北京5月19日电 (记者 孙自法)中国科学院19日发布消息说，中欧联合研制的太阳风-磁层相互作用全景成像卫星(英文缩写SMILE，中文昵称“微笑”卫星)，北京时间当天11时52分在法属圭亚那库鲁航天中心由“织女星-C”火箭成功发射升空。
+中新社香港6月15日电 题：问计于民，香港首个五年规划定下鲜明民生底色 中新社记者 香卢平 香港特区政府15日就香港特别行政区经济和社会发展第一个五年规划(2026—2030)展开公众咨询。
 
-“微笑”卫星顺利进入预定轨道，状态正常，太阳翼展开到位，标志着发射任务取得圆满成功。
+为期两个月的公众咨询，不仅是一份规划文本的酝酿，更是一次“把顶层设计和问计于民统一起来”的生动实践。
 
-中欧携手开创地球磁层探测的新纪元——全球成像与协同观测，由此拉开序幕。
+行政长官李家超将“以民为本，把改善民生作为出发点和落脚点”列为这份五年规划三大策略方向之首，为其定下了鲜明的民生底色。
 
-作为中国科学院空间科学(二期)先导专项收官之作，“微笑”卫星是中国科学院与欧洲空间局首次开展任务级全方位深度合作的空间科学探测任务，也是中国迄今国际合作层次最深、参与程度最高的航天工程之一，其核心科学目标是首次实现对太阳风与地球磁层相互作用的整体成像观测，动态揭示太阳风-磁层耦合过程。
+香港特区政府政制及内地事务局局长谢小华15日介绍，公众咨询将于8月14日结束，香港市民可通过专题网站、电子邮件或邮寄等方式提交意见。
 
-“微笑”卫星搭载的主载荷均为中欧联合研制，中方全面负责卫星平台研制、测控、地面支撑与科学应用系统建设，并主导研制紫外极光成像仪、低能离子分析仪和磁强计三台载荷；欧方负责载荷舱、全球首台星载软X射线成像仪研制，并提供运载火箭、发射场及主动段测控支持。
+特区政府还将举办多场咨询活动，听取特区立法会议员、业界代表和公众的意见和建议。
 
-“微笑”卫星中方首席科学家、中国科学院国家空间科学中心主任王赤院士说，根据计划，卫星将在入轨后经过约42天的轨道机动，抵达科学观测轨道，随后开展为期2个月的在轨测试，之后进入为期3年的常规科学观测阶段。
+只有规划内容真正回应医疗、教育、房屋、福利、安老等市民最切身的诉求，才能让市民切实感受到发展红利。
 
-“微笑”卫星在轨运行期间，中欧科学家将联合进行数据处理与分析，科学数据将面向全球科研机构开放共享，推动形成国际共同参与的研究格局。
+特区政府财政司司长陈茂波指出，这一规划有助于商界、企业、社会和市民更好擘画未来发展，凝聚共识、汇聚资源，增强发展力量。
 
-王赤表示，“微笑”卫星长期稳定的观测数据，有望从根本上提升人类对太阳风-磁层相互作用、空间天气机理的认知水平，为空间天气预报精度提升和近地空间安全提供关键支撑。
+让规划真正回应市民切身诉求。
 
 ## 相关推荐
 
-- 2026-06-30 08:52 - [田中碧失误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-30 08:50 - [曝iPhone18Pro机密文件现身暗网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-30 08:39 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-30 08:50 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
-- 2026-06-30 08:37 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-30 08:34 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
-- 2026-06-30 08:49 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-30 08:48 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
-- 2026-06-30 08:41 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
-- 2026-06-30 08:35 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-30 08:49 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-30 08:27 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-30 08:32 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-30 08:43 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-30 08:52 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-30 08:36 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-30 08:52 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
+- 2026-06-30 08:57 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-30 08:42 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-30 08:52 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
+- 2026-06-30 08:47 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-30 08:47 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-30 08:36 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
+- 2026-06-30 08:53 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-30 08:45 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-30 08:59 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-30 08:40 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-30 08:37 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-30 08:32 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-30 08:31 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:44 - [千香](https://www.blog.kurohicncr.top/Article/details/445827552.shtml)
-- 2026-06-30 08:52 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/47618770.shtml)
-- 2026-06-30 08:28 - [巴拉圭先进球了](http://www.blog.kurohicncr.top/Article/details/4749763.shtml)
-- 2026-06-30 08:46 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.minike.top/Article/details/484887.shtml)
-- 2026-06-30 08:36 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/19768174964.shtml)
-- 2026-06-30 08:36 - [有酒店推行24小时退房制](https://www.share.minike.top/Article/details/42983.shtml)
-- 2026-06-30 08:29 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/3222460903.shtml)
-- 2026-06-30 08:41 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/81269134947.shtml)
-- 2026-06-30 08:49 - [曝詹姆斯即将与勇士会面](https://www.share.kurohicncr.top/Article/details/90632702883.shtml)
-- 2026-06-30 08:51 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/48489.shtml)
-- 2026-06-30 08:25 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/36027680237.shtml)
-- 2026-06-30 08:32 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.kurohicncr.top/Article/details/54129458169.shtml)
-- 2026-06-30 08:38 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.kurohicncr.top/Article/details/525803504873.shtml)
-- 2026-06-30 08:31 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/42302331521.shtml)
-- 2026-06-30 08:26 - [德国巴拉圭进入点球大战](http://www.blog.minike.top/Article/details/2904979373.shtml)
+- 2026-06-30 08:58 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/51915.shtml)
+- 2026-06-30 08:34 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/548607095.shtml)
+- 2026-06-30 08:45 - [日本半场1比0领先巴西](https://www.share.minike.top/Article/details/347363015199.shtml)
+- 2026-06-30 08:40 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/6986064.shtml)
+- 2026-06-30 08:58 - [杨紫肖战余生请多指教拍立得](http://www.blog.minike.top/Article/details/602084.shtml)
+- 2026-06-30 08:44 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/5156184.shtml)
+- 2026-06-30 08:39 - [《名肘探科比》：科比大战裂口女](http://www.blog.minike.top/Article/details/26832104.shtml)
+- 2026-06-30 08:39 - [高考结束了，你会让孩子在家玩手机吗？](https://www.share.kurohicncr.top/Article/details/599463794.shtml)
+- 2026-06-30 08:43 - [啊啊啊](https://www.share.minike.top/Article/details/2680890185.shtml)
+- 2026-06-30 08:40 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/7704503448.shtml)
+- 2026-06-30 08:41 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/437943051238.shtml)
+- 2026-06-30 08:43 - [森保一 保守](http://www.blog.minike.top/Article/details/9007484.shtml)
+- 2026-06-30 08:56 - [王健林甩卖超80座万达广场](https://www.share.minike.top/Article/details/498322.shtml)
+- 2026-06-30 08:47 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/13425.shtml)
+- 2026-06-30 08:38 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/2183768805.shtml)

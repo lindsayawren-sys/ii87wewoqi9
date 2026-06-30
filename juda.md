@@ -1,60 +1,60 @@
-# 中国控烟与健康协会：聚焦无烟校园建设与医疗机构戒烟门诊规范化
+# 针对风格漂移，公募基金出手
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-中新网北京5月19日电 (记者 张素)今年5月31日将迎来第39个世界无烟日，主题为“青春无烟，未来无限”。记者从中国控烟与健康协会获悉，今年控烟与健康工作将聚焦无烟校园建设与医疗机构戒烟门诊规范化两大重点场景。中国控烟与健康协会常务副会长兼秘书长贺青华在近日举行的媒体沟通会上说，近年来，协会围绕青少年无烟环境建设、控烟与健康人才培养、控烟护肺融合、科普传播创新等方面扎实推进各
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月12日，中国证券投资基金业协会发布《公开募集证券投资基金主题投资风格管理指引》，定于今年12月1日起施行，并为行业预留了17个月的整改过渡期。 新规直指公募产品“名不副实”与“押赛道、博排名”等问题。中国证券报记者了解到，大部分公募已着手对所有在运行的主题投资基金进行逐一梳理。 “击鼓传花”式趋势交易将
 
 ## 正文
 
-中新网北京5月19日电 (记者 张素)今年5月31日将迎来第39个世界无烟日，主题为“青春无烟，未来无限”。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-记者从中国控烟与健康协会获悉，今年控烟与健康工作将聚焦无烟校园建设与医疗机构戒烟门诊规范化两大重点场景。
+6月12日，中国证券投资基金业协会发布《公开募集证券投资基金主题投资风格管理指引》，定于今年12月1日起施行，并为行业预留了17个月的整改过渡期。
 
-中国控烟与健康协会常务副会长兼秘书长贺青华在近日举行的媒体沟通会上说，近年来，协会围绕青少年无烟环境建设、控烟与健康人才培养、控烟护肺融合、科普传播创新等方面扎实推进各项工作。
+新规直指公募产品“名不副实”与“押赛道、博排名”等问题。
 
-其中，“无烟的家，更多的爱”项目已覆盖全国31个省(区、市)的120多万个家庭，76%的参与家庭实现家长戒烟，有效保护了孩子远离二手烟危害。
+中国证券报记者了解到，大部分公募已着手对所有在运行的主题投资基金进行逐一梳理。
 
-贺青华还说，以“共建无烟中国、守护健康未来”为主题的无烟单位倡议活动，已获得数千家单位积极响应，30余家行业协会商会加入“无烟协会”行动。
+“击鼓传花”式趋势交易将受限 中金公司总结要点称，指引对于主题投资基金设置了“双80%”要求——80%非现金资产须投向特定方向（包括特定市值、行业、主题、市场板块、地域、资产类别等），且风格库内证券持仓比例不低于80%；同时要求主题投资基金建立风格库，明确管理人及托管人的监督管理职责。
 
-近年来，各地公共场所劝阻吸烟引发冲突的事件受到关注。
+风格库入库标准优先以政府机关、第三方机构发布的数据或市场公开数据为依据，每个自然年度主动更新原则上不超过12次。
 
-据悉，协会将加快出台并发布无烟校园建设标准、医疗机构门诊简短戒烟干预工作标准等多项规范。
+“新规重申了公募基金经理的底层投资行为，使操作逻辑进一步摒弃以灵活行业轮动、追逐短期排名为导向的相对收益博弈，全面转向以契约边界为铁律的精细化风格深耕。
 
-中国控烟与健康协会副会长支修益表示，标准出台后，协会将指导全国各单位落地执行，从试点示范、培训赋能、督导评估三个维度全方位推动无烟校园建设和戒烟门诊规范。
+”资深公募人士张京（化名）对记者表示，跨赛道、跨行业的“击鼓传花”式趋势交易进一步受限，真正具备深厚产业研究功底的专家型基金经理将脱颖而出。
 
 ## 相关推荐
 
-- 2026-06-30 08:45 - [第3集丨“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
-- 2026-06-30 08:42 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
-- 2026-06-30 08:38 - [大蒜晒外面被路过女子连盆端走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-30 08:35 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-30 08:44 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-30 08:49 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-30 08:44 - [恋与深空道歉声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-30 08:28 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-30 08:25 - [德国4比5巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-30 08:24 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-30 08:37 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-30 08:31 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-30 08:29 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-30 08:39 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-30 08:46 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-30 08:52 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
+- 2026-06-30 08:33 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-30 08:47 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-30 08:45 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-30 08:47 - [韩国世界杯出局是主帅一个人的锅吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-30 08:58 - [森保一 保守](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-30 08:54 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
+- 2026-06-30 08:34 - [日本球迷被强行披上巴西国旗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-30 08:56 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-30 08:48 - [诺伊尔尽力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-30 08:43 - [巴西绝杀日本：漫画般结局换了主角](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-30 08:31 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
+- 2026-06-30 08:38 - [张雪的一句“是我们”引发岛内热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:46 - [金刚川](http://www.blog.kurohicncr.top/Article/details/55677.shtml)
-- 2026-06-30 08:26 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/21426296162.shtml)
-- 2026-06-30 08:45 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/24028.shtml)
-- 2026-06-30 08:30 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/5822529861.shtml)
-- 2026-06-30 08:30 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/517574.shtml)
-- 2026-06-30 08:30 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/6306500395.shtml)
-- 2026-06-30 08:38 - [网瘾賊大的阿嬷](http://www.blog.minike.top/Article/details/3892984291.shtml)
-- 2026-06-30 08:25 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/05351398.shtml)
-- 2026-06-30 08:25 - [日本五次世界杯淘汰赛全败](http://www.share.minike.top/Article/details/196724809439.shtml)
-- 2026-06-30 08:36 - [DeepSeek V4正式版要来了](http://www.blog.minike.top/Article/details/446358766.shtml)
-- 2026-06-30 08:34 - [感动全网的699分女生想报考清华](https://www.share.minike.top/Article/details/37243093.shtml)
-- 2026-06-30 08:40 - [诺伊尔尽力了](http://www.blog.minike.top/Article/details/2827853068.shtml)
-- 2026-06-30 08:30 - [美人鱼](http://www.share.kurohicncr.top/Article/details/6099708.shtml)
-- 2026-06-30 08:51 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/439568.shtml)
-- 2026-06-30 08:35 - [德国连续三届世界杯无缘16强](https://www.share.minike.top/Article/details/85061402.shtml)
+- 2026-06-30 08:47 - [德国巴拉圭加时](http://www.share.kurohicncr.top/Article/details/166936047.shtml)
+- 2026-06-30 08:38 - [董卿父亲在报纸上发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/3237509966.shtml)
+- 2026-06-30 08:40 - [城市规划有可能成为「屎山代码」吗？](http://www.blog.kurohicncr.top/Article/details/8678417.shtml)
+- 2026-06-30 08:39 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/461159969203.shtml)
+- 2026-06-30 08:35 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/74653957808.shtml)
+- 2026-06-30 08:51 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/923609.shtml)
+- 2026-06-30 08:36 - [《贺子珍》](http://www.blog.minike.top/Article/details/428002940460.shtml)
+- 2026-06-30 08:50 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/95232995434.shtml)
+- 2026-06-30 08:54 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/3087763121.shtml)
+- 2026-06-30 08:52 - [德国队连续三届世界杯无缘16强](http://www.blog.minike.top/Article/details/205509979.shtml)
+- 2026-06-30 08:46 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/18556462.shtml)
+- 2026-06-30 08:53 - [亚洲球队全部出局](http://www.blog.kurohicncr.top/Article/details/20439.shtml)
+- 2026-06-30 08:51 - [董卿父亲报纸上发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/764859368.shtml)
+- 2026-06-30 08:51 - [内马尔中场休息积极鼓励队友](http://www.blog.minike.top/Article/details/456082452.shtml)
+- 2026-06-30 08:39 - [诺伊尔尽力了](http://www.share.minike.top/Article/details/7369996149.shtml)

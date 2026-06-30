@@ -1,57 +1,60 @@
-# 洁美科技跨界并购仍待定价：21亿营收电子材料公司，盯上超精密光学装备公司 | 长三角资本局
+# 专家：台当局设网页诱导大陆民众提供“情报”，暴露其深层困境
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-文|新浪财经上海站 十里 洁美科技这笔跨界并购，还没有走到最关键的定价环节。 5月18日，浙江洁美电子科技股份有限公司披露发行股份购买资产并募集配套资金事项进展公告。公司拟通过发行股份方式，购买长沙埃福思科技有限公司100%股权，并计划向不超过35名特定投资者发行股份募集配套资金。截至目前，相关审计、评估工作仍在推进，交易价格、发行股份数量、募集资金金额等核心数据尚未最终确定。
+中新网6月16日电(燕新台)台“国安局”日前宣布设立所谓针对大陆民众的“联系窗口”，妄图向大陆“撒网”收集情报，遭到岛内舆论质疑和网友嘲讽。 据台湾《联合报》报道，台“国安局”14日称，为广泛搜集大陆政治、军事、经济及社会情报，依据所谓“情报工作法”规定，并参考美国、英国、以色列等情报机构做法，设立大陆民众“联系窗口”网页，“便利大陆民众主动联系、提供情报”。 台“国安局”还声
 
 ## 正文
 
-文|新浪财经上海站 十里 洁美科技这笔跨界并购，还没有走到最关键的定价环节。
+中新网6月16日电(燕新台)台“国安局”日前宣布设立所谓针对大陆民众的“联系窗口”，妄图向大陆“撒网”收集情报，遭到岛内舆论质疑和网友嘲讽。
 
-5月18日，浙江洁美电子科技股份有限公司披露发行股份购买资产并募集配套资金事项进展公告。
+据台湾《联合报》报道，台“国安局”14日称，为广泛搜集大陆政治、军事、经济及社会情报，依据所谓“情报工作法”规定，并参考美国、英国、以色列等情报机构做法，设立大陆民众“联系窗口”网页，“便利大陆民众主动联系、提供情报”。
 
-公司拟通过发行股份方式，购买长沙埃福思科技有限公司100%股权，并计划向不超过35名特定投资者发行股份募集配套资金。
+台“国安局”还声称，该网页重视“资通安全”与“身份保密”，同时针对大陆民众提供的“情报”，将通过科技手段“严谨筛滤”，并由专业团队进行评估与查证，以执行后续联系工作。
 
-截至目前，相关审计、评估工作仍在推进，交易价格、发行股份数量、募集资金金额等核心数据尚未最终确定。
+然而，岛内网友对此却不以为然。
 
-这也是这笔交易最值得盯住的地方。
+有网友批评称“又找理由搞钱”“预算还是太多了”，还有网友猜测此举“将用于年底制造抹黑议题，选举将近，民进党不抹黑抹红就不会选”。
 
-洁美科技并不是第一次借助资本市场扩张，但这一次，它要买的资产，并不是其传统意义上的电子封装耗材产能，而是一家超精密光学加工装备公司。
+针对台“国安局”声称的“近年大陆经济发展面临困境、政治统治维持高压，加上社会民生问题丛生，激发民众对现况不满……”，也有网友嘲讽：把“大陆”换成“台湾”似乎才贴切。
 
-换句话说，一家以电子封装材料、电子级薄膜材料为主业的上市公司，正在把手伸向高端装备。
+北京联合大学政治学研究所所长、台湾研究院教授朱松岭接受中新网“燕新台”工作室采访时指出，眼看着岛内选举临近，民进党当局急需用这种高调动作转移内部矛盾、抹黑大陆，“说到底就是炮制选举工具，为制造‘奥步’(闽南语‘烂招’)创造条件”。
 
-根据公司此前披露信息，本次交易标的为长沙埃福思100%股权，交易对方包括周林、深圳市远致星火私募股权投资基金合伙企业（有限合伙）、丁杰、陶尚、陈永富等。
+岛内政坛也纷纷质疑。
 
 ## 相关推荐
 
-- 2026-06-30 08:35 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
-- 2026-06-30 08:38 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-30 08:28 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-30 08:43 - [刘宇宁高情商化解谁站C位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-30 08:42 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
-- 2026-06-30 08:27 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
-- 2026-06-30 08:37 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-30 08:35 - [日本队5进世界杯淘汰赛0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
-- 2026-06-30 08:46 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
-- 2026-06-30 08:45 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-30 08:47 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-30 08:32 - [现在叛逆期的孩子最怕的是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-30 08:57 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-30 08:31 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-30 08:30 - [《共患难》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
+- 2026-06-30 08:36 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-30 08:31 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-30 08:50 - [亚洲球队全部出局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
+- 2026-06-30 08:57 - [金鹰奖视后提名预测](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-30 08:36 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-30 08:57 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-30 08:34 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-30 08:35 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-30 08:44 - [郑钦文 四年一轮游](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-30 08:38 - [日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:39 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/54420888361.shtml)
-- 2026-06-30 08:37 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/08047403173.shtml)
-- 2026-06-30 08:43 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/670051.shtml)
-- 2026-06-30 08:45 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/56012299315.shtml)
-- 2026-06-30 08:38 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/58787254.shtml)
-- 2026-06-30 08:25 - [美股](http://www.blog.kurohicncr.top/Article/details/28170.shtml)
-- 2026-06-30 08:28 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/483300.shtml)
-- 2026-06-30 08:35 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/591493.shtml)
-- 2026-06-30 08:43 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/94093449357.shtml)
-- 2026-06-30 08:36 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/1380325.shtml)
-- 2026-06-30 08:50 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/99126.shtml)
-- 2026-06-30 08:42 - [金牌调解](http://www.share.minike.top/Article/details/92951.shtml)
-- 2026-06-30 08:44 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.minike.top/Article/details/80250.shtml)
-- 2026-06-30 08:39 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](https://www.share.minike.top/Article/details/013271555219.shtml)
-- 2026-06-30 08:33 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/90254381122.shtml)
+- 2026-06-30 08:56 - [覃予萱晋级WTT美国大满贯女单32强](http://www.blog.minike.top/Article/details/636061748.shtml)
+- 2026-06-30 08:38 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/151149429566.shtml)
+- 2026-06-30 08:55 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/34930.shtml)
+- 2026-06-30 08:58 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/091799183108.shtml)
+- 2026-06-30 08:58 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/0357857.shtml)
+- 2026-06-30 08:45 - [免费试吃发差评被店家挂店门避雷](https://www.blog.kurohicncr.top/Article/details/27533.shtml)
+- 2026-06-30 08:51 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/88820853.shtml)
+- 2026-06-30 08:55 - [男子在京东买到“同仁堂”假药](https://www.blog.minike.top/Article/details/52852901351.shtml)
+- 2026-06-30 08:40 - [啊啊啊](https://www.share.minike.top/Article/details/160322268379.shtml)
+- 2026-06-30 08:50 - [巴西把自己踢晕了](https://www.share.minike.top/Article/details/7608666116.shtml)
+- 2026-06-30 08:35 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/05029817.shtml)
+- 2026-06-30 08:56 - [诺伊尔尽力了](http://www.blog.minike.top/Article/details/16874.shtml)
+- 2026-06-30 08:44 - [王源近几年没有路演了](http://www.share.minike.top/Article/details/578445.shtml)
+- 2026-06-30 08:44 - [点球大战](https://www.share.kurohicncr.top/Article/details/1511927.shtml)
+- 2026-06-30 08:46 - [世界杯欧洲队7战南美仅1胜](https://www.share.minike.top/Article/details/4999340535.shtml)

@@ -1,46 +1,44 @@
-# 拱北海关2026年7月政府采购意向
+# 立德教育：中职信辞任核数师
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-为便于供应商及时了解政府采购信息，根据《财政部关于开展政府采购意向公开工作的通知》(财库〔2020〕10号)等有关规定，现将拱北海关2026年7月采购意向公开如下： 本次公开的采购意向是本单位政府采购工作的初步安排，具体采购项目情况以相关采购公告和采购文件为准。 拱北海关 2026年5月18日
+立德教育（01449）发布公告，中职信（香港）会计师事务所有限公司（中职信）已提交辞任函，并已辞任本公司核数师，辞任自2026年6月15日起生效。责任编辑：卢昱君
 
 ## 正文
 
-为便于供应商及时了解政府采购信息，根据《财政部关于开展政府采购意向公开工作的通知》(财库〔2020〕10号)等有关规定，现将拱北海关2026年7月采购意向公开如下： 本次公开的采购意向是本单位政府采购工作的初步安排，具体采购项目情况以相关采购公告和采购文件为准。
+立德教育（01449）发布公告，中职信（香港）会计师事务所有限公司（中职信）已提交辞任函，并已辞任本公司核数师，辞任自2026年6月15日起生效。
 
-拱北海关 2026年5月18日
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 08:25 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-30 08:30 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
-- 2026-06-30 08:31 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-30 08:52 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-30 08:51 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
-- 2026-06-30 08:43 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
-- 2026-06-30 08:30 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
-- 2026-06-30 08:53 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-30 08:25 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-30 08:28 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-30 08:44 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-30 08:31 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-30 08:53 - [穆祉丞回应获年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-30 08:34 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-30 08:57 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-30 08:59 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-30 08:37 - [韩国道歉完日本道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-30 08:35 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-30 08:41 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-30 08:44 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-30 08:43 - [高质量发展看新疆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-30 08:46 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:37 - [勇敢的心第二部](https://www.share.minike.top/Article/details/5054589.shtml)
-- 2026-06-30 08:40 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/29689650.shtml)
-- 2026-06-30 08:31 - [日本将帅赛后采访纷纷哽咽落泪](https://www.share.minike.top/Article/details/88108686.shtml)
-- 2026-06-30 08:30 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/31869.shtml)
-- 2026-06-30 08:31 - [输球后日本球迷被强行披上巴西国旗](https://www.share.minike.top/Article/details/6858365505.shtml)
-- 2026-06-30 08:39 - [卡塞米罗头球破门 巴西扳平日本](https://www.share.minike.top/Article/details/30888549.shtml)
-- 2026-06-30 08:44 - [F1奥地利站赛后复盘](http://www.share.kurohicncr.top/Article/details/49811689.shtml)
-- 2026-06-30 08:33 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/2369453.shtml)
-- 2026-06-30 08:39 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/80361117880.shtml)
-- 2026-06-30 08:52 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/45320825302.shtml)
-- 2026-06-30 08:32 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](http://www.share.kurohicncr.top/Article/details/88356051567.shtml)
-- 2026-06-30 08:39 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/226194307.shtml)
-- 2026-06-30 08:49 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/3141113.shtml)
-- 2026-06-30 08:26 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/444192995564.shtml)
-- 2026-06-30 08:26 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/09390134091.shtml)
+- 2026-06-30 08:39 - [日本队主帅道歉](https://www.share.kurohicncr.top/Article/details/25013214.shtml)
+- 2026-06-30 08:43 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/209915.shtml)
+- 2026-06-30 08:33 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/965976686.shtml)
+- 2026-06-30 08:59 - [德国4比5巴拉圭](http://www.share.minike.top/Article/details/1173589.shtml)
+- 2026-06-30 08:56 - [湖南祁东原文化馆被指贱卖](http://www.blog.minike.top/Article/details/319667.shtml)
+- 2026-06-30 08:38 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/97119816278.shtml)
+- 2026-06-30 08:57 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/2350866446.shtml)
+- 2026-06-30 08:48 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/42296891411.shtml)
+- 2026-06-30 08:41 - [二次元提前预演明日巴西对日本](https://www.blog.minike.top/Article/details/0732552.shtml)
+- 2026-06-30 08:45 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/538083.shtml)
+- 2026-06-30 08:30 - [日本进球](http://www.blog.kurohicncr.top/Article/details/94933.shtml)
+- 2026-06-30 08:34 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/501859474102.shtml)
+- 2026-06-30 08:58 - [武磊：巴西队赢的并不轻松](http://www.blog.kurohicncr.top/Article/details/56159.shtml)
+- 2026-06-30 08:37 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/63108901.shtml)
+- 2026-06-30 08:52 - [曝灰熊将莫兰特交易至开拓者](http://www.share.kurohicncr.top/Article/details/31319985.shtml)

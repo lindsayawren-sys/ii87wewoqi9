@@ -1,56 +1,60 @@
-# 花旗：铝价即将迎来50年来最大一波上涨行情
+# 外交部：中国将继续为外企提供支持和便利
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-花旗表示，在经历重大供应冲击后，铝市正面临50多年来最看涨的行情，预计短期内价格将升至每吨4，000美元，且有可能进一步大幅上涨。伊朗战争引发全球铝市场空前的危机，可能对建筑、包装、运输及绿能等众多行业造成毁灭性的连锁反应。花旗指出，主要源于中东局势动荡导致的逾300万吨供应损失，在闲置产能近乎为零且库存已处于55年低点之际，将市场推入结构性短缺状态。该行预计，即便在需求疲软的
+6月16日，外交部发言人林剑主持例行记者会。有记者提问，根据美中贸易委员会近期发布的报告，80%的受访美企认为在华运营对其提升全球竞争力“非常重要”或“重要”。此前，中国德国商会发布的创新调查报告也显示，为加快创新速度并降低成本，德国汽车企业在中国本土进行研发的比例显著提升。这反映出，政治层面的对华“去风险”、“不公平竞争”等叙事，对外国企业决策的影响似乎有限。请问发言人对此有
 
 ## 正文
 
-花旗表示，在经历重大供应冲击后，铝市正面临50多年来最看涨的行情，预计短期内价格将升至每吨4，000美元，且有可能进一步大幅上涨。
+6月16日，外交部发言人林剑主持例行记者会。
 
-伊朗战争引发全球铝市场空前的危机，可能对建筑、包装、运输及绿能等众多行业造成毁灭性的连锁反应。
+有记者提问，根据美中贸易委员会近期发布的报告，80%的受访美企认为在华运营对其提升全球竞争力“非常重要”或“重要”。
 
-花旗指出，主要源于中东局势动荡导致的逾300万吨供应损失，在闲置产能近乎为零且库存已处于55年低点之际，将市场推入结构性短缺状态。
+此前，中国德国商会发布的创新调查报告也显示，为加快创新速度并降低成本，德国汽车企业在中国本土进行研发的比例显著提升。
 
-该行预计，即便在需求疲软的情况下，今年仍将出现约270万吨的缺口，这将导致未来6至12个月库存降至历史低点。
+这反映出，政治层面的对华“去风险”、“不公平竞争”等叙事，对外国企业决策的影响似乎有限。
 
-花旗认为，若需求破坏程度有限，未来三个月内铝价有望稳步升至每吨4，000美元；2026年下半年均价料维持在该水平，而在2027年的乐观情景下，价格将升至每吨5，350美元。
+请问发言人对此有何评论？
 
-花旗分析师表示：“尽管短期波动和减仓可能对价格构成压力，但在未出现严重经济衰退的情况下，下行空间似乎越来越受限。
+林剑表示，加强对华合作是机遇还是风险，作为市场主体的企业最有发言权。
 
-”责任编辑：王永生
+是寻求保护主义，还是主动拥抱竞争、实现创新发展，企业也用实际行动作出了选择。
+
+中国完备的产业体系、丰富的应用场景、高素质的人才储备、持续优化的政策环境，为各国企业提供了创新的沃土。
 
 ## 相关推荐
 
-- 2026-06-30 08:27 - [德国进球被吹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-30 08:41 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-30 08:53 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-30 08:26 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-30 08:39 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-30 08:50 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-30 08:39 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-30 08:45 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-30 08:37 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-30 08:26 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-30 08:31 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-30 08:52 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-30 08:41 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-30 08:43 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-30 08:31 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-30 08:41 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-30 08:47 - [第一次对自信的力量有了实感](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-30 08:59 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
+- 2026-06-30 08:36 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
+- 2026-06-30 08:41 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-30 08:57 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-30 08:43 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-30 08:35 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-30 08:47 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-30 08:38 - [日耳曼拖拉机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-30 08:51 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:38 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.kurohicncr.top/Article/details/795829946.shtml)
-- 2026-06-30 08:32 - [“草莓月亮”浪漫现身](http://www.share.kurohicncr.top/Article/details/4528202712.shtml)
-- 2026-06-30 08:41 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://www.blog.minike.top/Article/details/804029.shtml)
-- 2026-06-30 08:35 - [勇士续约波尔津吉斯](http://www.blog.minike.top/Article/details/29492146643.shtml)
-- 2026-06-30 08:51 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/105565188610.shtml)
-- 2026-06-30 08:40 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/43960615841.shtml)
-- 2026-06-30 08:45 - [我觉得你是在无中生友](https://www.blog.kurohicncr.top/Article/details/024487515.shtml)
-- 2026-06-30 08:40 - [刘宇宁高情商化解谁站C位](https://www.share.kurohicncr.top/Article/details/632667760.shtml)
-- 2026-06-30 08:51 - [现在叛逆期的孩子最怕的是什么？](http://www.share.kurohicncr.top/Article/details/555158942369.shtml)
-- 2026-06-30 08:46 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.blog.kurohicncr.top/Article/details/6305065.shtml)
-- 2026-06-30 08:35 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/45118.shtml)
-- 2026-06-30 08:41 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/955178.shtml)
-- 2026-06-30 08:26 - [男子醉酒溺水获救后同行人拒协助抬人](http://www.blog.minike.top/Article/details/39720817763.shtml)
-- 2026-06-30 08:34 - [巴西绝杀日本：漫画般结局换了主角](https://www.share.minike.top/Article/details/3890317337.shtml)
-- 2026-06-30 08:51 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/40632525.shtml)
+- 2026-06-30 08:44 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/87352202.shtml)
+- 2026-06-30 08:52 - [董卿父亲在报纸上发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/87383661254.shtml)
+- 2026-06-30 08:53 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/0796898.shtml)
+- 2026-06-30 08:30 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.blog.minike.top/Article/details/9578036.shtml)
+- 2026-06-30 08:41 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/8611266.shtml)
+- 2026-06-30 08:40 - [德国 传控](http://www.share.minike.top/Article/details/90126241.shtml)
+- 2026-06-30 08:30 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/7277995.shtml)
+- 2026-06-30 08:58 - [内马尔中场休息积极鼓励队友](http://www.blog.kurohicncr.top/Article/details/19376695.shtml)
+- 2026-06-30 08:44 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.minike.top/Article/details/239096.shtml)
+- 2026-06-30 08:56 - [三星投资计划](https://www.blog.minike.top/Article/details/1458570213.shtml)
+- 2026-06-30 08:33 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/625460.shtml)
+- 2026-06-30 08:43 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/1986275.shtml)
+- 2026-06-30 08:51 - [送你一朵小红花](http://www.share.minike.top/Article/details/689778488.shtml)
+- 2026-06-30 08:38 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/6647523858.shtml)
+- 2026-06-30 08:35 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/79888910932.shtml)

@@ -1,58 +1,60 @@
-# 海信与印尼国家投资部门战略合作签约
+# 博时宏观观点：海外扰动缓解，考虑均衡配置
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-【环球网科技综合报道】5月15日，海信集团与印度尼西亚丹纳塔拉投资管理局(BPI Danantara)在印尼首都雅加达正式签署战略合作备忘录。双方将在印尼开展覆盖全领域的产业、技术与研发合作。 丹纳塔拉投资管理局是印尼国家级投资管理机构，肩负着管理国有企业及运营国家级重大战略投资的职能。根据备忘录，双方将围绕先进制造、技术本土化、研发创新、产业能力建设等方向展开联合探索，推动在
+海外方面，油价拉动5月美国CPI超4%，接近同比高点，住房项恢复正常及核心商品需求偏弱使得核心CPI环比略低于预期，总体而言，5月美国通胀没有进一步激化加息预期。与此同时，随着近期美伊谈判出现积极进展，美元流动性收紧已出现缓和迹象，全球风险偏好有所提振。 国内方面，5月CPI同比持平上月，PPI升至3.9%，1-5月PPI累计同比回升至1%，有望带动二季度GDP平减指数回正及企
 
 ## 正文
 
-【环球网科技综合报道】5月15日，海信集团与印度尼西亚丹纳塔拉投资管理局(BPI Danantara)在印尼首都雅加达正式签署战略合作备忘录。
+海外方面，油价拉动5月美国CPI超4%，接近同比高点，住房项恢复正常及核心商品需求偏弱使得核心CPI环比略低于预期，总体而言，5月美国通胀没有进一步激化加息预期。
 
-双方将在印尼开展覆盖全领域的产业、技术与研发合作。
+与此同时，随着近期美伊谈判出现积极进展，美元流动性收紧已出现缓和迹象，全球风险偏好有所提振。
 
-丹纳塔拉投资管理局是印尼国家级投资管理机构，肩负着管理国有企业及运营国家级重大战略投资的职能。
+国内方面，5月CPI同比持平上月，PPI升至3.9%，1-5月PPI累计同比回升至1%，有望带动二季度GDP平减指数回正及企业盈利增速持续回升。
 
-根据备忘录，双方将围绕先进制造、技术本土化、研发创新、产业能力建设等方向展开联合探索，推动在印尼设立高水平技术研究中心、开展本地化技术研发、培育专业人才，助力当地产业转型升级，同时进一步夯实海信在印尼的长期发展基础。
+5月出口同比较4月的14.1%加速上行至19.4%，今年1-5月出口增速录得15.5%，AI产业链高景气、出口价格上行、海外增长回暖等因素共同推动出口景气度。
 
-海信集团是中国领先的大型科技产业集团，业务覆盖智能家电、半导体、智慧能源、汽车电子、激光显示等多个领域，在全球设有30个研发中心和37个制造基地。
+市场策略方面，债券方面，上周资金面持续收紧，海外加息预期升温，非银负债端赎回压力浮现，债市整体调整。
 
-坚持“Local for Local”的本土化运营是海信出海战略的核心之一，而东盟市场正是海信构建全球“1+7”区域运营中心布局中的重要一环。
+6月以来央行通过公开市场操作、政策窗口指导等措施，资金面约束下债市下行空间可能有限。
 
-此次签约标志着海信将印尼定位为长期战略市场与高价值产业枢纽，双方将开启一段长周期、跨领域的战略性伙伴关系。
+但基本面和信贷疲弱背景下央行或也无意进一步收紧资金面，配置盘欠配压力仍在，债市大幅调整空间也有限，短期内或回归震荡格局。
 
-继去年在泰国启用海外最大规模工厂之后，海信今年再次将印尼作为战略投资重地，全球化拓展步伐持续深入。
+关注资金面变化及本周美联储议息会议表态对国内外风险偏好的影响。
 
 ## 相关推荐
 
-- 2026-06-30 08:51 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-30 08:43 - [莫兰特转投开拓者效力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
-- 2026-06-30 08:37 - [网友写差评被店家“挂”门口避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-30 08:49 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-30 08:47 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-30 08:33 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-30 08:35 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
-- 2026-06-30 08:28 - [孙颖莎王楚钦晋级8强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
-- 2026-06-30 08:42 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-30 08:38 - [德国爆冷点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
-- 2026-06-30 08:33 - [索马里女大使：想和中国一起搞事业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-30 08:53 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-30 08:43 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-30 08:44 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-30 08:31 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-30 08:46 - [媒体：手机测评该挤挤水分了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-30 08:37 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
+- 2026-06-30 08:42 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-30 08:58 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-30 08:44 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-30 08:54 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-30 08:51 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-30 08:31 - [感动全网的699分女生想报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-30 08:41 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-30 08:58 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
+- 2026-06-30 08:40 - [哈弗茨头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:28 - [这几秒成世界杯最值钱广告位](https://www.blog.minike.top/Article/details/60620.shtml)
-- 2026-06-30 08:46 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/076000.shtml)
-- 2026-06-30 08:37 - [拆解FIFA和世界杯的暗面](http://www.share.kurohicncr.top/Article/details/127638.shtml)
-- 2026-06-30 08:45 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/8538174992.shtml)
-- 2026-06-30 08:37 - [DeepSeek V4正式版要来了](https://www.blog.kurohicncr.top/Article/details/88628142022.shtml)
-- 2026-06-30 08:38 - [网红峡谷5人溺亡 有人提醒会下雨](https://www.blog.kurohicncr.top/Article/details/58273637018.shtml)
-- 2026-06-30 08:39 - [小娘惹](http://www.share.kurohicncr.top/Article/details/777501.shtml)
-- 2026-06-30 08:33 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.share.kurohicncr.top/Article/details/8968866.shtml)
-- 2026-06-30 08:27 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.blog.kurohicncr.top/Article/details/7117322410.shtml)
-- 2026-06-30 08:51 - [世界杯：德国vs巴拉圭](https://www.share.kurohicncr.top/Article/details/4895230.shtml)
-- 2026-06-30 08:40 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/43646.shtml)
-- 2026-06-30 08:34 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](http://www.blog.minike.top/Article/details/469860.shtml)
-- 2026-06-30 08:31 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/353030025.shtml)
-- 2026-06-30 08:44 - [网瘾賊大的阿嬷](https://www.blog.kurohicncr.top/Article/details/87665740354.shtml)
-- 2026-06-30 08:44 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/138555095100.shtml)
+- 2026-06-30 08:36 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/035343.shtml)
+- 2026-06-30 08:39 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/848328.shtml)
+- 2026-06-30 08:38 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/6384563.shtml)
+- 2026-06-30 08:33 - [巴西足球能否再现昔日荣光](http://www.share.kurohicncr.top/Article/details/081547930531.shtml)
+- 2026-06-30 08:47 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/558761213.shtml)
+- 2026-06-30 08:33 - [爆冷出局！德国点球大战不敌巴拉圭](http://www.share.minike.top/Article/details/170241443408.shtml)
+- 2026-06-30 08:45 - [日本半场1比0领先巴西](https://www.share.minike.top/Article/details/6601582.shtml)
+- 2026-06-30 08:48 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/021424.shtml)
+- 2026-06-30 08:33 - [张月收到黄灿灿辣货两眼发光](https://www.blog.kurohicncr.top/Article/details/590314171.shtml)
+- 2026-06-30 08:34 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/3495256416.shtml)
+- 2026-06-30 08:55 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/15472.shtml)
+- 2026-06-30 08:31 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/97667481.shtml)
+- 2026-06-30 08:30 - [陈小春人老了干什么也不心酸](http://www.share.kurohicncr.top/Article/details/913651916.shtml)
+- 2026-06-30 08:55 - [世界杯欧洲队7战南美仅1胜](http://www.share.kurohicncr.top/Article/details/679246716.shtml)
+- 2026-06-30 08:30 - [极限挑战第一季](http://www.blog.minike.top/Article/details/07321.shtml)

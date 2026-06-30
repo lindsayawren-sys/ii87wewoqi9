@@ -1,61 +1,61 @@
-# 国泰海通研究所宏观首席梁中华离职
+# “芯青年计划”正式启动 吉利投入3-5 亿元专项资金支持大学生创业
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：金融人事mini 国泰君安与海通证券完成吸收合并后，两家旗下的研究所整合成为证券行业关注的重点事项，截至2026年4月，国泰海通证券研究所完成合并已满一年。 近日，券商人事获悉，国泰海通研究所宏观首席梁中华离职，已加入易方达基金发展研究中心。 梁中华2011年获得北京大学金融学学士、统计学双学士学位，
+在AI加速演进的今天，真实的产业场景不仅是人才培育的前沿阵地，更是青年创业最好的试验田。6月15日，吉利控股集团、李书福公益基金会携手芯位科技，共同启动“吉利·芯位青年创新创业激励计划”(以下简称“芯青年计划”)，计划投入3-5亿元专项资金，面向怀有创业梦想的大学生，提供产业资源和启动支撑。 “芯青年计划”先期面向芯位教育体系内高校在校生(含研究生)和校友、芯位全球合作伙伴的在
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+在AI加速演进的今天，真实的产业场景不仅是人才培育的前沿阵地，更是青年创业最好的试验田。
 
-来源：金融人事mini 国泰君安与海通证券完成吸收合并后，两家旗下的研究所整合成为证券行业关注的重点事项，截至2026年4月，国泰海通证券研究所完成合并已满一年。
+6月15日，吉利控股集团、李书福公益基金会携手芯位科技，共同启动“吉利·芯位青年创新创业激励计划”(以下简称“芯青年计划”)，计划投入3-5亿元专项资金，面向怀有创业梦想的大学生，提供产业资源和启动支撑。
 
-近日，券商人事获悉，国泰海通研究所宏观首席梁中华离职，已加入易方达基金发展研究中心。
+“芯青年计划”先期面向芯位教育体系内高校在校生(含研究生)和校友、芯位全球合作伙伴的在校生(含研究生)，同时也支持外部院校在校生与芯位教育体系内在校生组队申报，鼓励青年学子跨校跨界协同创新。
 
-梁中华2011年获得北京大学金融学学士、统计学双学士学位，2015年获得北京大学经济学博士学位，毕业后加盟海通证券。
+吉利人才发展集团CEO、芯位科技董事长/全球CEO陆丹介绍：“芯位希望通过李书福董事长首创的‘三个校园组合’办学机制与系统平台，初始依托吉利真实的企业资源和实战场景、其后协同更多行业产业的技术平台、真实需求，以芯位科技的通道让大学生不拘泥书本、更多走进实战，在真实产业环境中创新创业。
 
-2018年，梁中华从海通辞职，入职中泰担任宏观首席分析师一职，但2020年底，后梁中华又回归海通。
+” 首批项目锚定 AI及具身智能、智能座舱与智能驾驶、绿色能源及新材料、智能制造、低空经济与商业航天、出行服务与文创等六大核心方向。
 
-自合并后，国泰海通证券研究所人事一直在持续调整中。
+项目投资将覆盖种子轮到天使轮，助力打通从校园创新到产业落地的关键一环。
 
-2025年4月，路颖从海富通基金回归，出任国泰海通研究与机构业务委员会副总裁、研究所所长；原海通证券研究所所长荀玉根，出任国泰海通首席经济学家、政策和产业研究院联席院长，但两个月后，国泰海通内部下发人事调整通知，荀玉根正式离职；后续荀玉根加盟国信证券，担任首席经济学家兼经济研究所所长。
+作为“芯青年计划”的创投项目管理方，吉利资本CEO曹项表示，“我们将与全球优秀高校、科研院所及创新创业孵化器深度合作，联合吉利内外部的技术力量，系统性挖掘和扶持兼具成长潜力和社会价值的项目。
 
-同期，原国泰君安副总裁、研究所所长陈忠义，继续担任国泰海通副总裁，同时担任公司研究与机构业务委员会总裁，统筹研究与机构业务全条线；原国泰君安首席经济学家何海峰在合并期间离职，后续入职清华大学五道口金融学院。
+此外，我们也会引入更多支持青年创新创业的社会化资本、互补的产业资本以及相关政府创新创业投资平台，协同‘芯青年计划’发展。
 
 ## 相关推荐
 
-- 2026-06-30 08:43 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-30 08:49 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
-- 2026-06-30 08:52 - [日本将帅赛后采访纷纷哽咽落泪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
-- 2026-06-30 08:28 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
-- 2026-06-30 08:31 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-30 08:37 - [日本将帅赛后采访纷纷哽咽落泪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-30 08:47 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
-- 2026-06-30 08:26 - [韩国道歉完日本道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-30 08:27 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-30 08:35 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
-- 2026-06-30 08:32 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
-- 2026-06-30 08:46 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-30 08:31 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
-- 2026-06-30 08:47 - [点球大战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-30 08:37 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-30 08:50 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
+- 2026-06-30 08:42 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-30 08:58 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
+- 2026-06-30 08:42 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
+- 2026-06-30 08:49 - [IGN评测电影版后室](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-30 08:52 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-30 08:56 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
+- 2026-06-30 08:46 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-30 08:51 - [锐评T1战胜KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-30 08:51 - [张雪的一句“是我们”引发岛内热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-30 08:30 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-30 08:36 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-30 08:41 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-30 08:46 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-30 08:56 - [韩国世界杯出局是主帅一个人的锅吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:41 - [周冬雨多次说演不了话剧文城](https://www.share.kurohicncr.top/Article/details/24130128092.shtml)
-- 2026-06-30 08:30 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/51055.shtml)
-- 2026-06-30 08:53 - [森保一 保守](http://www.blog.minike.top/Article/details/4544509.shtml)
-- 2026-06-30 08:37 - [森保一 保守](http://www.share.minike.top/Article/details/217847.shtml)
-- 2026-06-30 08:37 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.minike.top/Article/details/15729821514.shtml)
-- 2026-06-30 08:51 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://www.blog.kurohicncr.top/Article/details/90279.shtml)
-- 2026-06-30 08:29 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/78241648681.shtml)
-- 2026-06-30 08:36 - [存储芯片龙头提示风险](http://www.blog.kurohicncr.top/Article/details/69307199685.shtml)
-- 2026-06-30 08:37 - [森保一 保守](https://www.share.minike.top/Article/details/79889.shtml)
-- 2026-06-30 08:44 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](http://www.blog.minike.top/Article/details/35082859222.shtml)
-- 2026-06-30 08:37 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/5541130486.shtml)
-- 2026-06-30 08:29 - [4000美元是黄金新一轮下跌的开始吗](http://www.blog.minike.top/Article/details/9030196407.shtml)
-- 2026-06-30 08:51 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/199443.shtml)
-- 2026-06-30 08:38 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/42398136.shtml)
-- 2026-06-30 08:51 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/1717060418.shtml)
+- 2026-06-30 08:59 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/90289.shtml)
+- 2026-06-30 08:55 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/66654917775.shtml)
+- 2026-06-30 08:30 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.kurohicncr.top/Article/details/09218554265.shtml)
+- 2026-06-30 08:51 - [美股](https://www.share.kurohicncr.top/Article/details/57984.shtml)
+- 2026-06-30 08:31 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/05098874.shtml)
+- 2026-06-30 08:39 - [张月收到黄灿灿辣货两眼发光](https://www.share.kurohicncr.top/Article/details/54144586540.shtml)
+- 2026-06-30 08:43 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/861620989295.shtml)
+- 2026-06-30 08:57 - [为什么会有「念旧」的心理？](https://www.share.kurohicncr.top/Article/details/90960892302.shtml)
+- 2026-06-30 08:58 - [穆祉丞回应获年度人气艺人](http://www.blog.minike.top/Article/details/5930233.shtml)
+- 2026-06-30 08:33 - [为什么会有「念旧」的心理？](http://www.blog.minike.top/Article/details/217733040.shtml)
+- 2026-06-30 08:49 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/9995423553.shtml)
+- 2026-06-30 08:40 - [豆包收费了，你还会用吗？](http://www.blog.kurohicncr.top/Article/details/23043.shtml)
+- 2026-06-30 08:33 - [国务院：探索延长义务教育年限](https://www.share.minike.top/Article/details/3337403760.shtml)
+- 2026-06-30 08:39 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/6642592537.shtml)
+- 2026-06-30 08:40 - [亚洲球队全部告别世界杯](http://www.blog.minike.top/Article/details/801851229.shtml)

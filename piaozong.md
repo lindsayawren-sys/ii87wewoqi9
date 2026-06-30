@@ -1,56 +1,60 @@
-# 美国小麦出口装船量下滑
+# 首批自动化带斗门机运抵钦州港 可匹配运河通航大宗散粮装运需求
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-美国农业部（USDA）的数据显示，美国小麦出口检验量远低于上周和去年同期的水平。 美国农业部在周一发布的周度出口检验报告中称，截至5月14日当周，小麦装船量总计223972吨，低于前一周的511703吨和去年同期的431383吨。 当周玉米装船量总计138万吨，低于上周和去年同期水平。大豆装船量也较前一周下降，但超过了去年同期水平，本周总计为483881吨。 芝加哥期货交易所（
+中新网钦州6月16日电(陈安安 苏子能)近日，装载着2台自动化带斗门座式起重机的“兴润大件”轮顺利运抵广西钦州港，为港口智慧化升级、绿色低碳转型及高效衔接平陆运河注入新动能。 此次抵港的自动化带斗门座式起重机主要用于装卸大宗粮食散货，设备抓斗工况额定起重量达25吨，最大变幅43米，额定装卸效率为500吨/小时，最高可达700吨/小时，高于普通25吨门机的320—360吨/小时，
 
 ## 正文
 
-美国农业部（USDA）的数据显示，美国小麦出口检验量远低于上周和去年同期的水平。
+中新网钦州6月16日电(陈安安 苏子能)近日，装载着2台自动化带斗门座式起重机的“兴润大件”轮顺利运抵广西钦州港，为港口智慧化升级、绿色低碳转型及高效衔接平陆运河注入新动能。
 
-美国农业部在周一发布的周度出口检验报告中称，截至5月14日当周，小麦装船量总计223972吨，低于前一周的511703吨和去年同期的431383吨。
+此次抵港的自动化带斗门座式起重机主要用于装卸大宗粮食散货，设备抓斗工况额定起重量达25吨，最大变幅43米，额定装卸效率为500吨/小时，最高可达700吨/小时，高于普通25吨门机的320—360吨/小时，能够高效承接玉米、大豆等大宗散粮装卸任务，充分匹配运河通航后的大宗粮食散货货运需求，是适配平陆运河江海联运装卸作业需求的关键设施。
 
-当周玉米装船量总计138万吨，低于上周和去年同期水平。
+这批设备在智能、安全、环保等方面融合了多项前沿技术与全面突破创新。
 
-大豆装船量也较前一周下降，但超过了去年同期水平，本周总计为483881吨。
+在智能化方面，设备集成三维激光扫描仪、北斗定位、视频安防等技术。
 
-芝加哥期货交易所（CBOT）的谷物期货在前市上涨。
+在全自动模式下可自主完成抓取、提升、旋转、卸料等全流程作业，大幅减少人工干预，有效提升作业安全性与稳定性。
 
-玉米期货上涨3.8%，大豆期货上涨3%，小麦期货上涨3.4%。
+此外，绿色低碳是这批门机的另一大亮点。
 
-责任编辑：李桐
+设备搭载高效除尘系统，搭建起“船上取料—皮带输送—粮仓入库”的全封闭式作业链路，实现作业全程低扬尘，有效优化港区及周边生态环境。
+
+同时，设备配备能量回馈装置，可回收设备下降、制动环节产生的电能，并存入超级电容系统进行二次利用，有效降低能耗与运营成本，契合港口绿色发展理念。
 
 ## 相关推荐
 
-- 2026-06-30 08:52 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
-- 2026-06-30 08:53 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-30 08:42 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
-- 2026-06-30 08:25 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-30 08:37 - [王楚钦孙颖莎晋级混双八强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
-- 2026-06-30 08:41 - [媒体：手机测评该挤挤水分了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-30 08:28 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-30 08:48 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
-- 2026-06-30 08:42 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-30 08:35 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
-- 2026-06-30 08:33 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
-- 2026-06-30 08:49 - [郑钦文温网首轮出局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-30 08:41 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-30 08:38 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-30 08:44 - [王欣瑜2-1击败科恰雷托](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-30 08:42 - [男子在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-30 08:33 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
+- 2026-06-30 08:57 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
+- 2026-06-30 08:37 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-30 08:57 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-30 08:55 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-30 08:51 - [曝老詹对自由市场态度与以往截然不同](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-30 08:44 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-30 08:43 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-30 08:33 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-30 08:46 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:34 - [日本遭读秒绝杀 森保一：我水平不够](https://www.share.kurohicncr.top/Article/details/134970980.shtml)
-- 2026-06-30 08:44 - [曝iPhone18Pro机密文件现身暗网](http://www.share.minike.top/Article/details/365710.shtml)
-- 2026-06-30 08:41 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/083874550.shtml)
-- 2026-06-30 08:29 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/6223293741.shtml)
-- 2026-06-30 08:49 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/56802073850.shtml)
-- 2026-06-30 08:42 - [小娘惹](https://www.blog.minike.top/Article/details/722994602975.shtml)
-- 2026-06-30 08:30 - [郑钦文 四年一轮游](https://www.blog.minike.top/Article/details/24903108.shtml)
-- 2026-06-30 08:29 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/1473726.shtml)
-- 2026-06-30 08:49 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/74443.shtml)
-- 2026-06-30 08:54 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/303708320.shtml)
-- 2026-06-30 08:40 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/12106818818.shtml)
-- 2026-06-30 08:39 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/0854197.shtml)
-- 2026-06-30 08:30 - [女心理师](https://www.blog.kurohicncr.top/Article/details/602223.shtml)
-- 2026-06-30 08:27 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/072450364876.shtml)
-- 2026-06-30 08:30 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.minike.top/Article/details/226558.shtml)
+- 2026-06-30 08:51 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/74088795313.shtml)
+- 2026-06-30 08:41 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/46641642853.shtml)
+- 2026-06-30 08:48 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/541273019.shtml)
+- 2026-06-30 08:58 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/287733711.shtml)
+- 2026-06-30 08:33 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/22081614719.shtml)
+- 2026-06-30 08:44 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/70260.shtml)
+- 2026-06-30 08:45 - [一见倾心](http://www.share.kurohicncr.top/Article/details/180501.shtml)
+- 2026-06-30 08:59 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.minike.top/Article/details/73653687.shtml)
+- 2026-06-30 08:37 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/55966623.shtml)
+- 2026-06-30 08:48 - [德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/790734017.shtml)
+- 2026-06-30 08:41 - [巴拉圭点球大战淘汰德国进16强](http://www.blog.kurohicncr.top/Article/details/32453091.shtml)
+- 2026-06-30 08:40 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/1219359.shtml)
+- 2026-06-30 08:36 - [流金岁月](http://www.blog.minike.top/Article/details/290925889.shtml)
+- 2026-06-30 08:37 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/072507.shtml)
+- 2026-06-30 08:44 - [巴西绝杀日本：漫画般结局换了主角](https://www.share.kurohicncr.top/Article/details/137841932169.shtml)

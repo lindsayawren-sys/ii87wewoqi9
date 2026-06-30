@@ -1,60 +1,47 @@
-# 今年医保目录调整工作有哪些变化？国家医保局专家详解
+# 国家外汇管理局：优化外汇贷款、跨境股权激励等制度
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-国家医保局近日透露，2026年国家基本医保目录、商业健康保险创新药品目录调整将于本月底启动。根据此前发布的工作方案，今年适当拓宽了国家基本医保目录外药品的申报范围。预计新版医保药品目录和商保创新药目录将于11月底前发布。值得关注的是，与往年相比，今年目录调整方案在申报时间、申报条件、参照药预沟通及商保创新药目录衔接等方面出现了多处重要变化。 此次医保目录调整情况透露出哪些信息？
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 21世纪经济报道记者 边万莉 2026年陆家嘴论坛于6月17日上午正式开幕，主题为“全球治理倡议下的金融发展与合作：新愿景、新挑战和新机遇”。 在论坛开幕式上，中国人民银行副行长、国家外汇管理局局长朱鹤新表示，近期将新增推出“一揽子”增量政策，全面改革FDI跨境政策，进一步简化ODI、外债等汇兑管理，优化外汇贷款、跨
 
 ## 正文
 
-国家医保局近日透露，2026年国家基本医保目录、商业健康保险创新药品目录调整将于本月底启动。
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 21世纪经济报道记者 边万莉 2026年陆家嘴论坛于6月17日上午正式开幕，主题为“全球治理倡议下的金融发展与合作：新愿景、新挑战和新机遇”。
 
-根据此前发布的工作方案，今年适当拓宽了国家基本医保目录外药品的申报范围。
+在论坛开幕式上，中国人民银行副行长、国家外汇管理局局长朱鹤新表示，近期将新增推出“一揽子”增量政策，全面改革FDI跨境政策，进一步简化ODI、外债等汇兑管理，优化外汇贷款、跨境股权激励等制度，发放新一批QDII额度。
 
-预计新版医保药品目录和商保创新药目录将于11月底前发布。
-
-值得关注的是，与往年相比，今年目录调整方案在申报时间、申报条件、参照药预沟通及商保创新药目录衔接等方面出现了多处重要变化。
-
-此次医保目录调整情况透露出哪些信息？
-
-国家医保局明确，为给目录发布后落地执行、商保衔接等留有必要的准备时间，今年目录启动申报预计将较往年提前1个月左右，预计5月底正式发布工作方案，11月底前公布新版医保目录及商保创新药目录。
-
-这就意味着，创新药获批“闯关”医保目录的最后时限较往年的6月30日大幅提前。
-
-为此，今年的基本医保目录谈判将首次开展“预申报”。
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-30 08:27 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-30 08:29 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-30 08:35 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
-- 2026-06-30 08:52 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-30 08:46 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
-- 2026-06-30 08:38 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-30 08:50 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
-- 2026-06-30 08:25 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
-- 2026-06-30 08:52 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
-- 2026-06-30 08:43 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
-- 2026-06-30 08:35 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-30 08:35 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
-- 2026-06-30 08:33 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
-- 2026-06-30 08:46 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-30 08:40 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-30 08:48 - [金鹰奖视后提名预测](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-30 08:30 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-30 08:54 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-30 08:40 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
+- 2026-06-30 08:55 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
+- 2026-06-30 08:32 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-30 08:59 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-30 08:37 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-30 08:39 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-30 08:54 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:44 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/22125181138.shtml)
-- 2026-06-30 08:33 - [德国 传控](http://www.blog.minike.top/Article/details/177436.shtml)
-- 2026-06-30 08:35 - [【大鸣王潮1566】真拿你没办法](http://www.share.minike.top/Article/details/871689495.shtml)
-- 2026-06-30 08:42 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/74972164.shtml)
-- 2026-06-30 08:24 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/316619.shtml)
-- 2026-06-30 08:45 - [郑钦文 四年一轮游](https://www.share.minike.top/Article/details/9067113336.shtml)
-- 2026-06-30 08:32 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/1178523.shtml)
-- 2026-06-30 08:33 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/894968118.shtml)
-- 2026-06-30 08:53 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/767827957.shtml)
-- 2026-06-30 08:45 - [韩国世界杯出局是主帅一个人的锅吗](http://www.share.kurohicncr.top/Article/details/92473.shtml)
-- 2026-06-30 08:25 - [豆包收费了，你还会用吗？](http://www.blog.kurohicncr.top/Article/details/537131830582.shtml)
-- 2026-06-30 08:33 - [金刚川](https://www.share.kurohicncr.top/Article/details/6695930747.shtml)
-- 2026-06-30 08:39 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/37406.shtml)
-- 2026-06-30 08:29 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/73521366054.shtml)
-- 2026-06-30 08:51 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/308588438.shtml)
+- 2026-06-30 08:44 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/77726737870.shtml)
+- 2026-06-30 08:33 - [女子清吧被陌生人投放伟哥](https://www.blog.minike.top/Article/details/4811129.shtml)
+- 2026-06-30 08:38 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/32290.shtml)
+- 2026-06-30 08:30 - [日本博主：日本足球真的垃圾](http://www.blog.kurohicncr.top/Article/details/543284858368.shtml)
+- 2026-06-30 08:44 - [急先锋](http://www.share.kurohicncr.top/Article/details/48652730202.shtml)
+- 2026-06-30 08:38 - [德国vs巴拉圭](http://www.blog.minike.top/Article/details/5298761378.shtml)
+- 2026-06-30 08:51 - [德国4比5巴拉圭](http://www.share.kurohicncr.top/Article/details/8211406554.shtml)
+- 2026-06-30 08:53 - [穆祉丞回应获年度人气艺人](http://www.blog.minike.top/Article/details/16625.shtml)
+- 2026-06-30 08:47 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/32144805.shtml)
+- 2026-06-30 08:41 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/11634614327.shtml)
+- 2026-06-30 08:42 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/62966895942.shtml)
+- 2026-06-30 08:54 - [恋与深空道歉声明](https://www.share.kurohicncr.top/Article/details/4991358.shtml)
+- 2026-06-30 08:31 - [泰山景区回应修建刀片刺绳隔离网](http://www.share.minike.top/Article/details/86383081834.shtml)
+- 2026-06-30 08:41 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/304184239.shtml)
+- 2026-06-30 08:30 - [德国 传控](https://www.share.minike.top/Article/details/87337087399.shtml)

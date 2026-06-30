@@ -1,59 +1,61 @@
-# 西班牙第二副首相兼劳动与社会经济大臣到访中华全国供销合作总社
+# 《给阿嬷的情书》马来西亚特别展映活动举行
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-中新网北京5月19日电(记者 谢艺观)5月18日，西班牙第二副首相兼劳动与社会经济大臣约兰达·迪亚斯·佩雷斯到访中华全国供销合作总社，与总社党组书记、理事会主任王宇燕会谈。双方就推进农产品贸易、农业科技、合作社治理等领域合作深入交换意见。总社党组成员、理事会副主任徐光洪参加会谈。王宇燕对迪亚斯一行的到来表示热烈欢迎。她指出，中国供销合作社经过70多年的发展，已构建起覆盖全国城乡
+中新社吉隆坡6月15日电 (记者 刘育英)《给阿嬷的情书》马来西亚特别展映活动15日在马来西亚首都吉隆坡举行。影片18日将在马来西亚正式上映，引发当地华人观众对南洋华侨历史和侨批文化的关注。 活动现场展出影片剧照、原版侨批文书、复古信封以及老式自行车、邮筒等年代物件，并设置侨批盖戳体验区，让观众近距离了解侨批文化。 马来西亚旅游、艺术和文化部部长张庆信通过代表表示，影片所呈现的
 
 ## 正文
 
-中新网北京5月19日电(记者 谢艺观)5月18日，西班牙第二副首相兼劳动与社会经济大臣约兰达·迪亚斯·佩雷斯到访中华全国供销合作总社，与总社党组书记、理事会主任王宇燕会谈。
+中新社吉隆坡6月15日电 (记者 刘育英)《给阿嬷的情书》马来西亚特别展映活动15日在马来西亚首都吉隆坡举行。
 
-双方就推进农产品贸易、农业科技、合作社治理等领域合作深入交换意见。
+影片18日将在马来西亚正式上映，引发当地华人观众对南洋华侨历史和侨批文化的关注。
 
-总社党组成员、理事会副主任徐光洪参加会谈。
+活动现场展出影片剧照、原版侨批文书、复古信封以及老式自行车、邮筒等年代物件，并设置侨批盖戳体验区，让观众近距离了解侨批文化。
 
-王宇燕对迪亚斯一行的到来表示热烈欢迎。
+马来西亚旅游、艺术和文化部部长张庆信通过代表表示，影片所呈现的侨批故事与南洋华人的历史记忆高度契合。
 
-她指出，中国供销合作社经过70多年的发展，已构建起覆盖全国城乡的组织体系和经营服务网络。
+百余年前，侨批不仅是海外华人与故乡亲人联系的重要方式，也承载着华侨华人对家庭和故土的责任与牵挂。
 
-西班牙合作社是促进西班牙国民经济发展的重要力量，在农业领域拥有成熟的经验。
+他认为，这场展映是一场跨越时空的人文交流，通过电影，人们能够看到潮汕侨乡与南洋华人社会之间共同的历史记忆，以及马中两国人民长期以来形成的人文联系。
 
-作为中国供销合作社的联合组织，中华全国供销合作总社愿推动中国供销合作社与西班牙合作社进一步加强交流互鉴，深化务实合作，不断助力提升农业发展水平。
+中国驻马来西亚大使欧阳玉靖指出，侨批已被列入联合国教科文组织《世界记忆名录》，马来西亚多家文博机构均收藏有相关文献。
 
-迪亚斯高度认可中国供销合作社的发展经验与为农服务模式。
+侨批记录了早期华侨艰苦创业的历程，也体现了中华文化中重信守诺的价值观。
 
 ## 相关推荐
 
-- 2026-06-30 08:44 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-30 08:50 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
-- 2026-06-30 08:46 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
-- 2026-06-30 08:37 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-30 08:45 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-30 08:37 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-30 08:49 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-30 08:42 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
-- 2026-06-30 08:28 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
-- 2026-06-30 08:46 - [田中碧失误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
-- 2026-06-30 08:39 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
-- 2026-06-30 08:52 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
-- 2026-06-30 08:31 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
+- 2026-06-30 08:43 - [第3集丨“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-30 08:57 - [曝iPhone18Pro机密文件现身暗网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
+- 2026-06-30 08:33 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-30 08:51 - [德国巴拉圭进入点球大战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-30 08:45 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-30 08:33 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
+- 2026-06-30 08:31 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-30 08:54 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-30 08:47 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-30 08:32 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-30 08:39 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-30 08:42 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-30 08:52 - [张月收到黄灿灿辣货两眼发光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-30 08:50 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-30 08:50 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:31 - [德国队连续三届世界杯无缘16强](https://www.share.kurohicncr.top/Article/details/7333892.shtml)
-- 2026-06-30 08:36 - [爱很美味](https://www.blog.minike.top/Article/details/8788745.shtml)
-- 2026-06-30 08:45 - [中国新一轮出口管制直指日本命脉](http://www.share.kurohicncr.top/Article/details/566334.shtml)
-- 2026-06-30 08:27 - [内马尔替补](https://www.share.minike.top/Article/details/59280376.shtml)
-- 2026-06-30 08:34 - [穆祉丞年度人气艺人](https://www.blog.kurohicncr.top/Article/details/40420.shtml)
-- 2026-06-30 08:36 - [曝灰熊将莫兰特交易至开拓者](https://www.blog.kurohicncr.top/Article/details/237025.shtml)
-- 2026-06-30 08:40 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/6105608770.shtml)
-- 2026-06-30 08:32 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/577950124327.shtml)
-- 2026-06-30 08:52 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://www.blog.minike.top/Article/details/5996279582.shtml)
-- 2026-06-30 08:29 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/65729.shtml)
-- 2026-06-30 08:50 - [张凌赫杨超越 峨眉](https://www.blog.minike.top/Article/details/96808443.shtml)
-- 2026-06-30 08:42 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.minike.top/Article/details/781963401023.shtml)
-- 2026-06-30 08:33 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/464578542.shtml)
-- 2026-06-30 08:37 - [张月收到黄灿灿辣货两眼发光](http://www.blog.kurohicncr.top/Article/details/447954506120.shtml)
-- 2026-06-30 08:51 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/448493660.shtml)
+- 2026-06-30 08:38 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/24210877.shtml)
+- 2026-06-30 08:40 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/0151958411.shtml)
+- 2026-06-30 08:56 - [《贺子珍》](http://www.blog.minike.top/Article/details/0525998.shtml)
+- 2026-06-30 08:42 - [哈弗茨头球破门](http://www.blog.kurohicncr.top/Article/details/404353.shtml)
+- 2026-06-30 08:54 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/6329251.shtml)
+- 2026-06-30 08:38 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/71757128862.shtml)
+- 2026-06-30 08:33 - [巴西把自己踢晕了](https://www.share.minike.top/Article/details/59784.shtml)
+- 2026-06-30 08:38 - [巴西替补奇兵读秒绝杀](https://www.blog.kurohicncr.top/Article/details/0196720.shtml)
+- 2026-06-30 08:59 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/81006536511.shtml)
+- 2026-06-30 08:54 - [德国罚丢3粒点球](http://www.share.minike.top/Article/details/55158038.shtml)
+- 2026-06-30 08:59 - [巴西醒醒 这是淘汰赛](https://www.share.kurohicncr.top/Article/details/517241935.shtml)
+- 2026-06-30 08:31 - [如果有二次元高中是什么样子的？](https://www.share.kurohicncr.top/Article/details/7522970950.shtml)
+- 2026-06-30 08:52 - [曝iPhone18Pro机密文件现身暗网](https://www.blog.minike.top/Article/details/800788.shtml)
+- 2026-06-30 08:40 - [张月收到黄灿灿辣货两眼发光](https://www.share.kurohicncr.top/Article/details/8930289.shtml)
+- 2026-06-30 08:39 - [刘必安等16人非法集资案二审宣判](http://www.share.minike.top/Article/details/945494208.shtml)

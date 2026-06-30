@@ -1,44 +1,60 @@
-# 广西环江过桥车辆坠河事件最新通报：新增搜救上岸4人 均已无生命体征
+# 公募人事更迭：QDII债基老将、清华系新锐基金经理“清仓式”卸任，有的将跳槽其他公募
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-中新网5月18日电 据“环江融媒”微信公众号消息，广西壮族自治区河池市环江毛南族自治县人民政府发布情况通报，截至2026年5月18日20时，河池环江“5·16”过桥车辆坠河事件应急处置工作持续推进，新增搜救上岸4人，经现场确认已无生命体征，其中3人身份已经公安部门及家属核实、1人身份待比对确认。 应急处置指挥部将持续开展搜救工作，及时发布事件进展情况。
+记者|任飞 编辑|肖芮冬 6月16日，多家公募基金公告，旗下有部分基金经理变更，其中涉及广发基金沈博文、华泰柏瑞基金陈乐。 据悉，广发基金沈博文下一站将前往其他公募基金发展。她从富国基金到广发基金的历任公募基金均为债券型产品，在广发基金管理的均是QDII型债券产品。 陈乐则是华泰柏瑞基金旗下的新生代经理，投资经理年限仅2.83年。从他管理的产品业绩来看，华泰柏瑞景气驱动A任职回
 
 ## 正文
 
-中新网5月18日电 据“环江融媒”微信公众号消息，广西壮族自治区河池市环江毛南族自治县人民政府发布情况通报，截至2026年5月18日20时，河池环江“5·16”过桥车辆坠河事件应急处置工作持续推进，新增搜救上岸4人，经现场确认已无生命体征，其中3人身份已经公安部门及家属核实、1人身份待比对确认。
+记者|任飞 编辑|肖芮冬 6月16日，多家公募基金公告，旗下有部分基金经理变更，其中涉及广发基金沈博文、华泰柏瑞基金陈乐。
 
-应急处置指挥部将持续开展搜救工作，及时发布事件进展情况。
+据悉，广发基金沈博文下一站将前往其他公募基金发展。
+
+她从富国基金到广发基金的历任公募基金均为债券型产品，在广发基金管理的均是QDII型债券产品。
+
+陈乐则是华泰柏瑞基金旗下的新生代经理，投资经理年限仅2.83年。
+
+从他管理的产品业绩来看，华泰柏瑞景气驱动A任职回报达到105.98%，年化回报率为29.15%。
+
+近期，公募债券基金的基金经理变更开始增多，其中包含QDII型产品。
+
+例如，广发基金沈博文卸任了所有在管基金，且均为QDII型债券产品。
+
+6月16日，广发基金公告，沈博文因“离职”，卸任广发亚太中高收益债的基金经理。
 
 ## 相关推荐
 
-- 2026-06-30 08:38 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
-- 2026-06-30 08:39 - [电影抓特务上映11天破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
-- 2026-06-30 08:44 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-30 08:43 - [第3集丨“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
-- 2026-06-30 08:35 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-30 08:42 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-30 08:42 - [张雪的一句“是我们”引发岛内热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-30 08:38 - [日本队5进世界杯淘汰赛0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-30 08:26 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-30 08:39 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-30 08:53 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-30 08:40 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-30 08:38 - [巴西足球能否再现昔日荣光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-30 08:51 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-30 08:40 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-30 08:34 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-30 08:33 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-30 08:31 - [点球大战 残酷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-30 08:51 - [索马里女大使：想和中国一起搞事业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
+- 2026-06-30 08:58 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-30 08:40 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-30 08:43 - [郑钦文 四年一轮游](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-30 08:34 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-30 08:39 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:47 - [媒体：手机测评该挤挤水分了](http://www.share.minike.top/Article/details/930853670989.shtml)
-- 2026-06-30 08:50 - [第一次对自信的力量有了实感](http://www.share.kurohicncr.top/Article/details/526212280.shtml)
-- 2026-06-30 08:49 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.kurohicncr.top/Article/details/45615419819.shtml)
-- 2026-06-30 08:45 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/627011.shtml)
-- 2026-06-30 08:38 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.blog.kurohicncr.top/Article/details/9099306555.shtml)
-- 2026-06-30 08:30 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/59954.shtml)
-- 2026-06-30 08:28 - [日耳曼拖拉机](http://www.share.kurohicncr.top/Article/details/185909.shtml)
-- 2026-06-30 08:45 - [一生一世](https://www.share.kurohicncr.top/Article/details/113773966.shtml)
-- 2026-06-30 08:35 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/570417038.shtml)
-- 2026-06-30 08:27 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/78241.shtml)
-- 2026-06-30 08:53 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/770313.shtml)
-- 2026-06-30 08:38 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/90358.shtml)
-- 2026-06-30 08:47 - [美股](http://www.blog.kurohicncr.top/Article/details/56880805229.shtml)
-- 2026-06-30 08:35 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/817429.shtml)
-- 2026-06-30 08:30 - [德国连续三届世界杯无缘16强](https://www.share.minike.top/Article/details/981362517.shtml)
+- 2026-06-30 08:52 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/34564.shtml)
+- 2026-06-30 08:56 - [男子身高一米八二仍做断骨增高](http://www.blog.kurohicncr.top/Article/details/6303270920.shtml)
+- 2026-06-30 08:32 - [巴拉圭点球大战淘汰德国进16强](http://www.share.kurohicncr.top/Article/details/902932802192.shtml)
+- 2026-06-30 08:45 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/293026889251.shtml)
+- 2026-06-30 08:49 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/0622131143.shtml)
+- 2026-06-30 08:45 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/192487.shtml)
+- 2026-06-30 08:57 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.minike.top/Article/details/80553867.shtml)
+- 2026-06-30 08:57 - [巴拉圭点球大战淘汰德国进16强](https://www.blog.minike.top/Article/details/72334457454.shtml)
+- 2026-06-30 08:38 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/334216.shtml)
+- 2026-06-30 08:31 - [巴西绝杀日本](http://www.blog.kurohicncr.top/Article/details/27714653986.shtml)
+- 2026-06-30 08:33 - [张碧晨一开口梦回逐玉](http://www.share.kurohicncr.top/Article/details/64865.shtml)
+- 2026-06-30 08:35 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/4446868.shtml)
+- 2026-06-30 08:44 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/623006.shtml)
+- 2026-06-30 08:57 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/96226664722.shtml)
+- 2026-06-30 08:34 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/88218661.shtml)

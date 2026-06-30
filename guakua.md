@@ -1,56 +1,57 @@
-# 助残日走进青海“共富工坊”：巧手造物 自立自强迎新生
+# 摩根士丹利下调原油价格预期 因美伊签署协议后供应将增加
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月18日 11:03 来源：中国新闻网 2026年5月17日是第三十六个全国助残日，主题是“保障残疾人平等权益，促进残疾人融合发展”。在青海西宁市城东区东城·智爱共富工坊内，不大的空间被收拾得整洁有序。墙边整齐码放着缝制好的帆布包、手绘笔记本、布艺床单等产品，做工精细，很难想象这些都出自孤独症、唐氏综合征、发育迟缓等心智障碍者之手。 60岁的马爱红是工坊
+摩根士丹利大幅下调未来几个季度的石油价格预测，因美国和伊朗达成重新开放霍尔木兹海峡的临时协议，有望恢复地区石油产量并增加供应。 包括Martijn Rats在内的分析师在6月15日的报告中表示，作为实物交易基准价格的即期布伦特原油价格预计第三季度均价为每桶90美元，此前预期为100美元；最后三个月均价预计为每桶80美元，调低了15美元。他们说，中东地区产量复苏的进程提前了一到两
 
 ## 正文
 
-发布时间：2026年05月18日 11:03 来源：中国新闻网 2026年5月17日是第三十六个全国助残日，主题是“保障残疾人平等权益，促进残疾人融合发展”。
+摩根士丹利大幅下调未来几个季度的石油价格预测，因美国和伊朗达成重新开放霍尔木兹海峡的临时协议，有望恢复地区石油产量并增加供应。
 
-在青海西宁市城东区东城·智爱共富工坊内，不大的空间被收拾得整洁有序。
+包括Martijn Rats在内的分析师在6月15日的报告中表示，作为实物交易基准价格的即期布伦特原油价格预计第三季度均价为每桶90美元，此前预期为100美元；最后三个月均价预计为每桶80美元，调低了15美元。
 
-墙边整齐码放着缝制好的帆布包、手绘笔记本、布艺床单等产品，做工精细，很难想象这些都出自孤独症、唐氏综合征、发育迟缓等心智障碍者之手。
+他们说，中东地区产量复苏的进程提前了一到两周。
 
-60岁的马爱红是工坊就业辅导老师，同时也是一名重度心智障碍患者的母亲。
+他们说：“仍有许多问题需要谈判，关键风险依然存在，但就目前而言，这是朝着缓和冲突和通过霍尔木兹海峡出口更多石油迈出的关键一步。
 
-她告诉记者，过去她尝试很多方法教孩子生活技能，如今母子俩在工坊实现了“双就业”。
+”他们指的是华盛顿和德黑兰定于周五在瑞士签署的协议。
 
-据了解，工坊创新引入“家庭参与”机制，聘用心智障碍者家长担任就业辅导员，既缓解了家庭经济压力，也有助于家长重返社会。
+协议消息公布后，油价已跌至3月以来的最低点，尽管协议文本尚未公布，且贸易商、托运人和生产商对于如何具体实施才能恢复水路运输仍抱有很大疑虑。
 
-目前工坊已为76名大龄心智障碍者提供可持续就业支持。
+前述分析师指出，油轮运输可能需要“数周”时间才能恢复，因为需要清除水雷、重建船东和保险公司的商业信心，以及此前被转移的船舶返回这个地区。
 
-除了缝纫技能，工坊还针对不同能力学员开展模拟课堂，教授超市模拟购物、认识人民币、安全卫生、社交礼仪等课程，并鼓励大家一起制定菜谱、买菜做饭，在生活实践中助力其更好地融入社会、走向独立。
+他们补充说，预计产量从7月中旬开始逐步提高，“我们假设50%的损失产量到9月恢复，到12月恢复80%，其余部分在2027年初恢复。
 
 ## 相关推荐
 
-- 2026-06-30 08:38 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-30 08:36 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-30 08:26 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-30 08:40 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-30 08:44 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-30 08:40 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-30 08:49 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
-- 2026-06-30 08:53 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-30 08:37 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-30 08:45 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-30 08:52 - [三星投资计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-30 08:56 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-30 08:46 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-30 08:37 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-30 08:54 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-30 08:45 - [日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-30 08:48 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-30 08:53 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-30 08:37 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-30 08:41 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-30 08:59 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:24 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/995626210826.shtml)
-- 2026-06-30 08:30 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.kurohicncr.top/Article/details/38548.shtml)
-- 2026-06-30 08:46 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.kurohicncr.top/Article/details/90122.shtml)
-- 2026-06-30 08:35 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.minike.top/Article/details/9036475177.shtml)
-- 2026-06-30 08:44 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/7106331307.shtml)
-- 2026-06-30 08:32 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/36510736.shtml)
-- 2026-06-30 08:47 - [刘必安等16人非法集资案二审宣判](http://www.share.kurohicncr.top/Article/details/305540177991.shtml)
-- 2026-06-30 08:34 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/885352131452.shtml)
-- 2026-06-30 08:40 - [巴西2-1绝杀日本](http://www.share.minike.top/Article/details/649688.shtml)
-- 2026-06-30 08:27 - [徐亮怒斥世界杯踢假球](https://www.blog.minike.top/Article/details/26184788553.shtml)
-- 2026-06-30 08:37 - [董卿父亲报纸上发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/2614222121.shtml)
-- 2026-06-30 08:26 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/0784859.shtml)
-- 2026-06-30 08:31 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.kurohicncr.top/Article/details/147735.shtml)
-- 2026-06-30 08:24 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/033512.shtml)
-- 2026-06-30 08:24 - [德国巴拉圭进入点球大战](http://www.share.minike.top/Article/details/6078645208.shtml)
+- 2026-06-30 08:45 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/566647535.shtml)
+- 2026-06-30 08:57 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/1206205064.shtml)
+- 2026-06-30 08:33 - [张帅时隔四年晋级温网第二轮](http://www.share.minike.top/Article/details/6528302.shtml)
+- 2026-06-30 08:40 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/8936213.shtml)
+- 2026-06-30 08:43 - [追梦拒绝2770万美元球员选项](https://www.blog.minike.top/Article/details/27310605178.shtml)
+- 2026-06-30 08:40 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.kurohicncr.top/Article/details/60570423484.shtml)
+- 2026-06-30 08:52 - [曝iPhone18Pro机密文件现身暗网](https://www.blog.kurohicncr.top/Article/details/6365843449.shtml)
+- 2026-06-30 08:39 - [为什么小组赛出局会让韩国人破防](https://www.blog.minike.top/Article/details/591995.shtml)
+- 2026-06-30 08:48 - [媒体评泰山建135公里刀片刺绳隔离网](https://www.blog.kurohicncr.top/Article/details/59903162.shtml)
+- 2026-06-30 08:59 - [好像看到了人类带孩子崩溃的样子](http://www.blog.minike.top/Article/details/2566016406.shtml)
+- 2026-06-30 08:38 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/479544968.shtml)
+- 2026-06-30 08:34 - [iPhone18e曝光](http://www.blog.minike.top/Article/details/77125984.shtml)
+- 2026-06-30 08:30 - [日本队主帅道歉](http://www.blog.kurohicncr.top/Article/details/044523.shtml)
+- 2026-06-30 08:36 - [大蒜晒外面被路过女子连盆端走](https://www.share.minike.top/Article/details/89895485.shtml)
+- 2026-06-30 08:42 - [张帅时隔四年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/46973967311.shtml)

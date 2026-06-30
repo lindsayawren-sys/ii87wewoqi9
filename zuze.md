@@ -1,56 +1,59 @@
-# 总市值达3.44万亿！起底长鑫科技概念股全景图
+# 海南面向全球招募“旅游国际推荐官”
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-长鑫科技的DRAM产业链各环节均涌现出一批深度参与供应链的本土企业，组成了“长鑫科技概念股全景图”。 作为我国规模最大、技术最先进的DRAM（动态随机存取存储器）研发设计制造一体化企业，长鑫科技日前更新招股说明书，拟登陆上交所科创板。公司已成长为全球第四大DRAM厂商，今年第一季度，实现营收508亿元，同比增长719.13%，实现归母净利润247.62亿元。 长鑫科技采用IDM
+中新网海口6月16日电 (记者 张茜翼)海南省旅游和文化广电体育厅15日发布消息，即日起至12月，海南面向全球招募“海南旅游国际推荐官”，计划招募40至50名热爱旅行、擅长创作的境外达人，用独特视角向世界展示海南的热带海岛魅力。 申请者需满足以下条件：痴迷海南的阳光沙滩、黎苗风情、烟火美食，愿用真心分享海南之美；在Facebook、X(原Twitter)、Instagram、Y
 
 ## 正文
 
-长鑫科技的DRAM产业链各环节均涌现出一批深度参与供应链的本土企业，组成了“长鑫科技概念股全景图”。
+中新网海口6月16日电 (记者 张茜翼)海南省旅游和文化广电体育厅15日发布消息，即日起至12月，海南面向全球招募“海南旅游国际推荐官”，计划招募40至50名热爱旅行、擅长创作的境外达人，用独特视角向世界展示海南的热带海岛魅力。
 
-作为我国规模最大、技术最先进的DRAM（动态随机存取存储器）研发设计制造一体化企业，长鑫科技日前更新招股说明书，拟登陆上交所科创板。
+申请者需满足以下条件：痴迷海南的阳光沙滩、黎苗风情、烟火美食，愿用真心分享海南之美；在Facebook、X(原Twitter)、Instagram、YouTube、TikTok等任一海外平台有账号及影响力；擅长用图文、短视频、直播等形式，挖掘海南文旅独特魅力；乐于交流、善于合作，愿融入团队共讲海南故事。
 
-公司已成长为全球第四大DRAM厂商，今年第一季度，实现营收508亿元，同比增长719.13%，实现归母净利润247.62亿元。
+作为中国对外开放前沿，海南凭借“免签+航线”双重红利，持续提升国际吸引力。
 
-长鑫科技采用IDM（垂直整合制造）全产业链模式，该公司本次IPO拟募集资金295亿元，重点用于技术升级和前沿研发。
+目前，59国人员入境免签政策叠加240小时过境免签政策，让“说走就走”的海南游成为现实；78条国际航线串联莫斯科、悉尼等全球45个城市，织密“黄金航网”。
 
-长鑫科技的产能扩张与技术升级，不仅加速了半导体供应链本土化进程，一个总市值达3.44万亿元的产业链全景图也浮出水面：从产业链上游的IP、EDA软件、半导体设备及零部件、材料，到中游环节的DRAM设计、晶圆制造及封装测试环节，这是核心环节，产业链下游则涵盖了服务器、移动设备、个人电脑、通信、工业控制、智能家居等应用领域。
+2025年，海南入境游客达150万人次，同比增长35.2%。
 
-未来随着AI应用进一步渗透进入物理世界，DRAM需求扩大，这份概念股名单有望进一步扩大。
+近年来，海南坚持“走出去+请进来”双向发力：境外推介精准触达重点客源国，海外旅行商、媒体考察常态化推进，港澳营销联盟加密航班；全球46家海南旅游推广办事处同步发力，系统性破解入境游堵点。
 
-IDM模式下的DRAM全产业链布局 5月18日，海外市场明显调整，A股多头也暂时停下攻势，市场量能明显缩减，但在长鑫科技更新招股书并披露亮眼业绩表现的催化下，存储芯片板块表现仍十分活跃，龙头股集体飙升，有6只个股刷新股价历史高点，电子化学品、气体、光刻胶等与存储芯片相关的概念板块也都表现活跃。
+截至2026年6月，海南旅游国际推荐官队伍已覆盖41个国家和地区，成为讲好海南故事的重要力量。
 
-截至当日收盘，大普微（301666.SZ）、同有科技（300302.SZ）“20cm”涨停，股价刷新历史高点，朗科科技（300042.SZ）涨逾11%，万润科技（002654.SZ）、深科技（000021.SZ）涨停，佰维存储（688525.SH）、兆易创新（603986.SH）跟涨并创股价新高。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 08:42 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-30 08:29 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
-- 2026-06-30 08:48 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-30 08:44 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-30 08:50 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
-- 2026-06-30 08:43 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
-- 2026-06-30 08:47 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-30 08:43 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-30 08:51 - [男子在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-30 08:38 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-30 08:39 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-30 08:44 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-30 08:57 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-30 08:58 - [郑钦文温网首轮出局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-30 08:33 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-30 08:36 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-30 08:33 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-30 08:57 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-30 08:45 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-30 08:45 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-30 08:46 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-30 08:47 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-30 08:45 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:35 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/20752120214.shtml)
-- 2026-06-30 08:27 - [泰山景区回应修建刀片刺绳隔离网](http://www.share.minike.top/Article/details/91167.shtml)
-- 2026-06-30 08:38 - [马耳他著名拱门坍塌致一中国男子身亡](http://www.blog.kurohicncr.top/Article/details/4853710592.shtml)
-- 2026-06-30 08:43 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/696223.shtml)
-- 2026-06-30 08:39 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/5508540.shtml)
-- 2026-06-30 08:44 - [卡塞米罗头球破门](https://www.blog.kurohicncr.top/Article/details/4535855894.shtml)
-- 2026-06-30 08:30 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/6812439.shtml)
-- 2026-06-30 08:37 - [追梦拒绝2770万美元球员选项](https://www.share.kurohicncr.top/Article/details/74417769.shtml)
-- 2026-06-30 08:28 - [F1奥地利站赛后复盘](https://www.share.minike.top/Article/details/0044954.shtml)
-- 2026-06-30 08:45 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/170581291.shtml)
-- 2026-06-30 08:45 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/1565883223.shtml)
-- 2026-06-30 08:44 - [张雪的一句“是我们”引发岛内热议](https://www.blog.minike.top/Article/details/280898012.shtml)
-- 2026-06-30 08:24 - [王曼昱被突如其来的话筒逗笑了](http://www.share.minike.top/Article/details/5060774.shtml)
-- 2026-06-30 08:39 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/377067545185.shtml)
-- 2026-06-30 08:46 - [郑钦文温网三连败西尼亚科娃](http://www.share.kurohicncr.top/Article/details/0916027399.shtml)
+- 2026-06-30 08:47 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/59975652925.shtml)
+- 2026-06-30 08:31 - [亚洲球队全部告别世界杯](https://www.share.kurohicncr.top/Article/details/461445309446.shtml)
+- 2026-06-30 08:50 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/59920094.shtml)
+- 2026-06-30 08:51 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/12291324244.shtml)
+- 2026-06-30 08:59 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/44087583457.shtml)
+- 2026-06-30 08:34 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.kurohicncr.top/Article/details/74723223.shtml)
+- 2026-06-30 08:46 - [存储芯片龙头提示风险](https://www.share.minike.top/Article/details/081064.shtml)
+- 2026-06-30 08:53 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/365675095.shtml)
+- 2026-06-30 08:40 - [杨紫学位证上就是杨紫](http://www.blog.minike.top/Article/details/9791621.shtml)
+- 2026-06-30 08:33 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.minike.top/Article/details/017591264.shtml)
+- 2026-06-30 08:47 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/557549460396.shtml)
+- 2026-06-30 08:51 - [爆冷出局！德国点球大战不敌巴拉圭](https://www.blog.kurohicncr.top/Article/details/66969.shtml)
+- 2026-06-30 08:41 - [张碧晨一开口梦回逐玉](https://www.share.kurohicncr.top/Article/details/32908.shtml)
+- 2026-06-30 08:57 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/761072924802.shtml)
+- 2026-06-30 08:51 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/77255903.shtml)

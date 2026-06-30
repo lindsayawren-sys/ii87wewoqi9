@@ -1,51 +1,56 @@
-# 金螳螂：崩完老头，今天就跌停了！被精神小妹崩的老头也不可怜！
+# 世界黄金协会调查：全球央行增持意愿创纪录 黄金战略储备地位进一步提升
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：国际投行研究报告 一、核心定调 纯题材妖股炒作，无实质业绩支撑，73 名核心员工高位集体清仓套现，题材证伪 + 筹码出逃双重暴击，直接一字跌停，标准高位收割行情。 不过，参与的老头也不可怜，精神小妹给你很多希望呢！ 二、炒作起源（起势） 主业：传统建筑装饰，地产链弱势，近年营收、净利持续下滑，基本面疲
+文章来源：财联社 世界黄金协会（WGC）周二发布的《2026年全球央行黄金储备调查报告》显示，受访央行储备管理者中有45%预计未来12个月将增加黄金持有量，该比例较上年上升2个百分点，创下历史新高。 在参与此次年度调查的74家央行中，54%的受访者表示其黄金储备将维持不变，仅有1%预计将减少持仓。此次调查于今年2月5日至5月19日期间进行。 大多数问卷回复是在2月底中东冲突爆发
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+文章来源：财联社 世界黄金协会（WGC）周二发布的《2026年全球央行黄金储备调查报告》显示，受访央行储备管理者中有45%预计未来12个月将增加黄金持有量，该比例较上年上升2个百分点，创下历史新高。
 
-来源：国际投行研究报告 一、核心定调 纯题材妖股炒作，无实质业绩支撑，73 名核心员工高位集体清仓套现，题材证伪 + 筹码出逃双重暴击，直接一字跌停，标准高位收割行情。
+在参与此次年度调查的74家央行中，54%的受访者表示其黄金储备将维持不变，仅有1%预计将减少持仓。
 
-不过，参与的老头也不可怜，精神小妹给你很多希望呢！
+此次调查于今年2月5日至5月19日期间进行。
 
-二、炒作起源（起势） 主业：传统建筑装饰，地产链弱势，近年营收、净利持续下滑，基本面疲软，存在大额坏账压力 炒作噱头：仅承接商业航天基地、数据中心洁净室配套装修工程，无核心技术、无相关主业 公司官方明确澄清：相关业务营收占比不足 1%，不涉及航天、算力核心产业 行情走势：短期暴力连板拉升，股价从 3 元区间直冲 8.46 元阶段高点，短期翻倍暴涨 三、致命导火索：内部人精准高位清仓（核心杀跌根源） 持股主体：2024 年度员工持股计划，73 名公司中高层、核心骨干 持仓成本：仅1.78 元 / 股，极低内部福利价 解禁节点：5 月 8 日恰逢股价历史高位区间 减持动作：5.8-5.13 三日全部清仓完毕 减持数据 减持总量：2693.7 万股 成交均价：7.47 元 总套现金额：约1.65 亿元 人均获利：超 220 万元 整体收益率：超 340%
+大多数问卷回复是在2月底中东冲突爆发后收到的，这场冲突引发油价上涨，并导致金价承压下挫。
+
+此次调查发布之际，黄金正处于一个具有里程碑意义的时刻。
+
+世界黄金协会指出，黄金近期已超越美国国债，成为全球最大的储备资产，这凸显出官方机构在储备资产配置理念上的重大转变。
+
+世界黄金协会央行部门主管Shaokai Fan表示，各国央行对黄金依然保持浓厚兴趣，近期金价回落并未改变其增持黄金的意愿。
+
+“各国央行依然非常看好黄金，事实上比以往任何时候都更加积极。
 
 ## 相关推荐
 
-- 2026-06-30 08:29 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-30 08:37 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-30 08:40 - [德国队世界杯点球大战首败](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-30 08:26 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-30 08:27 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
-- 2026-06-30 08:45 - [为什么会有「念旧」的心理？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-30 08:38 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-30 08:50 - [恋与深空道歉声明](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-30 08:46 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
-- 2026-06-30 08:36 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-30 08:39 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-30 08:37 - [日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-30 08:48 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-30 08:50 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-30 08:57 - [媒体：手机测评该挤挤水分了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-30 08:36 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-30 08:35 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-30 08:30 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-30 08:45 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-30 08:37 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-30 08:42 - [张雪的一句“是我们”引发岛内热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-30 08:52 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-30 08:59 - [泰山景区回应修建刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:46 - [陈幸同晋级WTT美国大满贯女单32强](https://www.blog.kurohicncr.top/Article/details/78398.shtml)
-- 2026-06-30 08:36 - [世界杯欧洲队7战南美仅1胜](http://www.share.kurohicncr.top/Article/details/92420134303.shtml)
-- 2026-06-30 08:28 - [千万不要随便扣肚脐](https://www.share.kurohicncr.top/Article/details/85454.shtml)
-- 2026-06-30 08:42 - [泰山景区回应修建刀片刺绳隔离网](https://www.share.minike.top/Article/details/92069849.shtml)
-- 2026-06-30 08:26 - [日本队5进世界杯淘汰赛0胜](http://www.blog.kurohicncr.top/Article/details/4751099488.shtml)
-- 2026-06-30 08:44 - [韩国世界杯出局是主帅一个人的锅吗](http://www.blog.minike.top/Article/details/0897560.shtml)
-- 2026-06-30 08:25 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.minike.top/Article/details/75243242042.shtml)
-- 2026-06-30 08:40 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/351638241.shtml)
-- 2026-06-30 08:27 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/217590.shtml)
-- 2026-06-30 08:39 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/14470477.shtml)
-- 2026-06-30 08:34 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.minike.top/Article/details/44415629.shtml)
-- 2026-06-30 08:39 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/62930567.shtml)
-- 2026-06-30 08:43 - [安切洛蒂 换人](http://www.share.minike.top/Article/details/43794818923.shtml)
-- 2026-06-30 08:25 - [一见倾心](https://www.share.minike.top/Article/details/07258.shtml)
-- 2026-06-30 08:27 - [巴拉圭先进球了](http://www.share.minike.top/Article/details/22403.shtml)
+- 2026-06-30 08:56 - [王楚钦孙颖莎晋级混双八强](https://www.share.kurohicncr.top/Article/details/876161.shtml)
+- 2026-06-30 08:53 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/00376210.shtml)
+- 2026-06-30 08:31 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/659747189.shtml)
+- 2026-06-30 08:56 - [德国4比5巴拉圭](http://www.blog.minike.top/Article/details/8867841.shtml)
+- 2026-06-30 08:42 - [高质量发展看新疆](https://www.share.minike.top/Article/details/7653268802.shtml)
+- 2026-06-30 08:38 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/2962189379.shtml)
+- 2026-06-30 08:51 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/72362081283.shtml)
+- 2026-06-30 08:37 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/75331.shtml)
+- 2026-06-30 08:48 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/093753967.shtml)
+- 2026-06-30 08:48 - [日本将帅赛后采访纷纷哽咽落泪](https://www.blog.minike.top/Article/details/89965628.shtml)
+- 2026-06-30 08:41 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/5474601606.shtml)
+- 2026-06-30 08:31 - [全球芯片巨头史诗级扩产](http://www.share.minike.top/Article/details/861694.shtml)
+- 2026-06-30 08:52 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.kurohicncr.top/Article/details/87770.shtml)
+- 2026-06-30 08:52 - [追梦拒绝2770万美元球员选项](https://www.blog.kurohicncr.top/Article/details/191643847.shtml)
+- 2026-06-30 08:53 - [美股](http://www.blog.kurohicncr.top/Article/details/281879574787.shtml)

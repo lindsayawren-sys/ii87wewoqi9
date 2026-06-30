@@ -1,60 +1,60 @@
-# 国际博物馆日：民众参观成都博物馆
+# 年内超100家村镇银行合并吸收，外资行加速退出
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-2025年全国备案博物馆达7188家 免费开放率超91%不满足于台式奶茶的台湾人，疯狂“批发”霸王茶姬回家人这一辈子，一定要去青州看一次“东方微笑”！今天是国际博物馆日，我们为什么需要博物馆？原来文物也爱“串门”《给阿嬷的情书》导演蓝鸿春:潮汕方言电影因何跨越山海能源危机叠加日元贬值，日本实体经济正为中东战火埋单“肯德基指数”回暖释放消费市场积极信号周末看摩托车赛成国人新爱好为
+21世纪经济报道记者 余纪昕 6月10日，国家金融监督管理总局浙江、云南两地监管局同日发文，批准5家村镇银行解散。 浙江方面，兰溪越商村镇银行、浦江嘉银村镇银行解散后，分别由绍兴银行、嘉兴银行承接全部资产、负债、业务及员工；云南方面，陆良兴福、师宗兴福、罗平兴福三家村镇银行则由存续主体曲靖沾益兴福村镇银行吸收合并，全部资产负债、业务与从业人员统一承接。 记者梳理金融监管总局金融
 
 ## 正文
 
-2025年全国备案博物馆达7188家 免费开放率超91%不满足于台式奶茶的台湾人，疯狂“批发”霸王茶姬回家人这一辈子，一定要去青州看一次“东方微笑”！
+21世纪经济报道记者 余纪昕 6月10日，国家金融监督管理总局浙江、云南两地监管局同日发文，批准5家村镇银行解散。
 
-今天是国际博物馆日，我们为什么需要博物馆？
+浙江方面，兰溪越商村镇银行、浦江嘉银村镇银行解散后，分别由绍兴银行、嘉兴银行承接全部资产、负债、业务及员工；云南方面，陆良兴福、师宗兴福、罗平兴福三家村镇银行则由存续主体曲靖沾益兴福村镇银行吸收合并，全部资产负债、业务与从业人员统一承接。
 
-原来文物也爱“串门”《给阿嬷的情书》导演蓝鸿春:潮汕方言电影因何跨越山海能源危机叠加日元贬值，日本实体经济正为中东战火埋单“肯德基指数”回暖释放消费市场积极信号周末看摩托车赛成国人新爱好为一个馆赴一座城，河北小众博物馆频“出圈”美国记者，在北京看到了怎样的中国？
+记者梳理金融监管总局金融许可证信息，截至发稿时，今年以来已有逾100家村镇银行获批退出；延续了去年全年共310家退出的快速整合之势，且绝大多数采取主发起行兜底承接的方式推进，客户权益与服务连续性基本得到保障。
 
-台湾用30余年建成的淡江大桥通车即翻车？
+年内已有逾100家村镇银行获批退出 从总体趋势来看，村镇银行改革重组已从单点突破走向批量推进。
 
-律师：女孩盲道被撞摆拍者或构成寻衅滋事罪从增量扩张到存量提质 建设现代化人民城市被立案调查后，携程在改吗？
+譬如，5月末，沪农商行旗下蒙自村镇银行完成对开远、个旧、建水、弥勒4家村镇银行的吸收合并，被合并机构转为分支机构，网点照常营业；同期，“富民系”沈阳新民、沈北、法库、辽中4家村镇银行注销许可证，全部业务由盛京银行承接。
 
-对话维妮娜：在乘风之前，她已经跑了很久小小香料，何以撬动大产业、香飘全世界？
+业内人士指出，这种“发起行主导、批量整合”模式已成主流路径：国有大行中，农业银行2025年至今已推动6家村镇银行走“村改支”；交通银行今年3月将旗下4家村镇银行“清零”。
 
-“超级食物”真有那么神奇吗？
+股份行中，光大、华夏等原本布局较少的机构已迅速清退旗下村镇银行，浦发作为村镇银行“大户”，2025年下半年至今，也已“收编”旗下18家村镇银行。
 
-专家揭秘真相这首“湘”味十足的Rap里，藏着几千年前的潮流DNA安徽贵池：暮色绘就“千里江山图”赛事美食双向赋能 江苏小龙虾消费市场持续升温河北磁县“小兵马俑”出圈 小众博物馆的“引客”之道安徽池州：丹霞流彩映平天 水天一色绘画卷直击嫩江市北部防区春季灭火实战演练滇藏公路上的“加加面”如何把小新加到“怀疑人生”专家：高血压控盐别忽略“隐形盐”水下仿生机器鱼展演栩栩如生美国博主“车轮哥”带老外组团“朝圣”中国电车“法拉利大叔”自评走红视频醉驾男子路遇检查假装“路人”，交警一眼识破！
+城商行、农商行更是参与改革的主力军——成都农商行2025年注销旗下11家“中成系”村镇银行，湖南银行“湘农系”、青岛农商行“蓝海系”、马鞍山农商行“新华系”也相继完成多机构合并。
 
 ## 相关推荐
 
-- 2026-06-30 08:44 - [莫兰特被交易到开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-30 08:43 - [王濛回复黄灿灿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-30 08:39 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-30 08:42 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-30 08:48 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-30 08:31 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
-- 2026-06-30 08:26 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-30 08:32 - [媒体：手机测评该挤挤水分了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-30 08:33 - [曝老詹对自由市场态度与以往截然不同](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-30 08:34 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-30 08:27 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-30 08:35 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
-- 2026-06-30 08:34 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-30 08:46 - [点球大战 残酷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-30 08:46 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-30 08:53 - [刘宇宁高情商化解谁站C位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-30 08:46 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-30 08:56 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-30 08:51 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-30 08:45 - [陈小春人老了干什么也不心酸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-30 08:51 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-30 08:47 - [日本五次世界杯淘汰赛全败](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-30 08:48 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-30 08:56 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-30 08:55 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-30 08:39 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-30 08:41 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-30 08:51 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:26 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://www.share.kurohicncr.top/Article/details/1323901.shtml)
-- 2026-06-30 08:37 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/386845111313.shtml)
-- 2026-06-30 08:25 - [日本队5进世界杯淘汰赛0胜](http://www.blog.kurohicncr.top/Article/details/84100.shtml)
-- 2026-06-30 08:44 - [全球最火存储ETF纳入兆易创新](https://www.blog.minike.top/Article/details/780898201853.shtml)
-- 2026-06-30 08:36 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/0215541.shtml)
-- 2026-06-30 08:48 - [为什么会有「念旧」的心理？](https://www.share.minike.top/Article/details/984108464373.shtml)
-- 2026-06-30 08:34 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/85211248.shtml)
-- 2026-06-30 08:36 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/1199275768.shtml)
-- 2026-06-30 08:41 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/32067253026.shtml)
-- 2026-06-30 08:53 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/3635040134.shtml)
-- 2026-06-30 08:52 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/73739941.shtml)
-- 2026-06-30 08:45 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/123511.shtml)
-- 2026-06-30 08:33 - [德国巴拉圭 折磨](https://www.share.kurohicncr.top/Article/details/07535704.shtml)
-- 2026-06-30 08:36 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/23991.shtml)
-- 2026-06-30 08:38 - [卡塞米罗头球破门 巴西扳平日本](https://www.share.minike.top/Article/details/54336016.shtml)
+- 2026-06-30 08:49 - [AI手机进入Agent时代](http://www.share.kurohicncr.top/Article/details/080958.shtml)
+- 2026-06-30 08:47 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/3691879553.shtml)
+- 2026-06-30 08:34 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/47237.shtml)
+- 2026-06-30 08:38 - [爱很美味](https://www.share.kurohicncr.top/Article/details/0238432.shtml)
+- 2026-06-30 08:33 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/423068492.shtml)
+- 2026-06-30 08:34 - [南北多地暴雨和强对流天气持续](http://www.blog.kurohicncr.top/Article/details/0885318.shtml)
+- 2026-06-30 08:41 - [覃予萱晋级WTT美国大满贯女单32强](https://www.blog.kurohicncr.top/Article/details/99217.shtml)
+- 2026-06-30 08:30 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.blog.minike.top/Article/details/4623730.shtml)
+- 2026-06-30 08:56 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/85260237.shtml)
+- 2026-06-30 08:34 - [诺伊尔尽力了](http://www.share.minike.top/Article/details/2792167.shtml)
+- 2026-06-30 08:30 - [亚洲球队全部出局](https://www.share.kurohicncr.top/Article/details/236485713.shtml)
+- 2026-06-30 08:58 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/4881367.shtml)
+- 2026-06-30 08:31 - [郑钦文温网三连败西尼亚科娃](http://www.share.minike.top/Article/details/239027509.shtml)
+- 2026-06-30 08:34 - [德国爆冷点球大战不敌巴拉圭](http://www.blog.kurohicncr.top/Article/details/44350945878.shtml)
+- 2026-06-30 08:33 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/2484584.shtml)

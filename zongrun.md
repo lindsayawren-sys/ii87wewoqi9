@@ -1,46 +1,57 @@
-# 花旗集团认为铝价迎来50年来最看涨行情
+# 斯诺克武汉公开赛资格赛：中国军团首日8人晋级
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-花旗集团预计，今年下半年铝价将涨至每吨4000美元，并表示中东地区的干扰将构成该行业有史以来最大的供应冲击之一。 “闲置产能接近于零，冲击发生前的库存已处于历史低位，且铜和塑料等替代品的成本极高，”Wenyu Yao等分析师在电子邮件报告中写道 该行预测第三季度和第四季度的LME铝均价将达到每吨4，000美元 中东地区的供应减少是自20世纪70年代能源危机以来铝行业遭遇的最大供
+中新社英国莱斯特6月16日电 当地时间6月15日，2026斯诺克武汉公开赛资格赛在英国莱斯特拉开战幕。首个比赛日，王信伯、江俊、巩晨智等8位中国球手顺利突围，晋级下一轮。 在当日128进96轮次的比赛中，中国新秀表现抢眼。2008年出生的小将王信伯迎来职业生涯首秀，面对苏格兰选手利亚姆·格雷姆，他凭借出色的防守和关键球处理，以5比1轻松取胜。 另一场焦点战中，江俊在与英格兰64
 
 ## 正文
 
-花旗集团预计，今年下半年铝价将涨至每吨4000美元，并表示中东地区的干扰将构成该行业有史以来最大的供应冲击之一。
+中新社英国莱斯特6月16日电 当地时间6月15日，2026斯诺克武汉公开赛资格赛在英国莱斯特拉开战幕。
 
-“闲置产能接近于零，冲击发生前的库存已处于历史低位，且铜和塑料等替代品的成本极高，”Wenyu Yao等分析师在电子邮件报告中写道 该行预测第三季度和第四季度的LME铝均价将达到每吨4，000美元 中东地区的供应减少是自20世纪70年代能源危机以来铝行业遭遇的最大供应冲击 “铝市场不再需要强劲的需求增长来维持结构性紧缺” 库存正迈向新低，似乎只有类似“沃尔克时代经济衰退”或2008/2009年金融危机那样的严重衰退，才足以使库存趋于稳定 LME铝价的最新交易价为每吨3，575.50美元责任编辑：于健 SF069
+首个比赛日，王信伯、江俊、巩晨智等8位中国球手顺利突围，晋级下一轮。
+
+在当日128进96轮次的比赛中，中国新秀表现抢眼。
+
+2008年出生的小将王信伯迎来职业生涯首秀，面对苏格兰选手利亚姆·格雷姆，他凭借出色的防守和关键球处理，以5比1轻松取胜。
+
+另一场焦点战中，江俊在与英格兰64岁的传奇名将吉米·怀特的对决中上演逆转好戏，在2比3落后的情况下连下三城，终以5比3力克对手。
+
+巩晨智当日对阵英格兰选手利亚姆·海菲尔德，他在0比3落后的不利开局下展现出强大的心理素质，凭借优质进攻上演四连鞭，将场上比分改写为4比3领先。
+
+此后尽管利亚姆·海菲尔德以一杆单杆50+将比赛拖入决胜局，但中国球手随即击出一个单杆破百，最终以5比4战胜对手，惊险晋级。
+
+高阳与女子球手白雨露首战上演“中国德比”，高阳在先失一局的情况下连续打出四个单杆50+和一个单杆破百，直落五局以5比1击败对手晋级。
 
 ## 相关推荐
 
-- 2026-06-30 08:29 - [马耳他著名拱门坍塌致一中国男子身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
-- 2026-06-30 08:44 - [莫兰特被交易到开拓者](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-30 08:49 - [藤森庆子赢得秘鲁总统选举](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-30 08:46 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-30 08:32 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-30 08:27 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-30 08:46 - [日本球员说被绝杀非常不甘心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
-- 2026-06-30 08:42 - [日耳曼拖拉机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-30 08:38 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-30 08:52 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
-- 2026-06-30 08:44 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-30 08:40 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-30 08:56 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-30 08:47 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
+- 2026-06-30 08:48 - [存储芯片龙头提示风险](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-30 08:45 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
+- 2026-06-30 08:36 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-30 08:41 - [杨紫肖战余生请多指教拍立得](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-30 08:41 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
+- 2026-06-30 08:38 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-30 08:50 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
+- 2026-06-30 08:52 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
+- 2026-06-30 08:56 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:31 - [周冬雨多次说演不了话剧文城](https://www.blog.kurohicncr.top/Article/details/7664865220.shtml)
-- 2026-06-30 08:33 - [为什么会有「念旧」的心理？](https://www.share.kurohicncr.top/Article/details/8559000.shtml)
-- 2026-06-30 08:50 - [陈幸同晋级WTT美国大满贯女单32强](http://www.blog.minike.top/Article/details/69321240939.shtml)
-- 2026-06-30 08:42 - [张雪的一句“是我们”引发岛内热议](https://www.share.minike.top/Article/details/7912685964.shtml)
-- 2026-06-30 08:39 - [日本淘汰](https://www.blog.minike.top/Article/details/12790.shtml)
-- 2026-06-30 08:24 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.kurohicncr.top/Article/details/56352630.shtml)
-- 2026-06-30 08:37 - [内马尔替补](https://www.share.kurohicncr.top/Article/details/9883671.shtml)
-- 2026-06-30 08:51 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/239523.shtml)
-- 2026-06-30 08:48 - [网友写差评被店家“挂”门口避雷](http://www.blog.kurohicncr.top/Article/details/7978566548.shtml)
-- 2026-06-30 08:28 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/61895007920.shtml)
-- 2026-06-30 08:34 - [建议不要突然完全停止喝咖啡](http://www.blog.minike.top/Article/details/385115972668.shtml)
-- 2026-06-30 08:51 - [为什么会有「念旧」的心理？](https://www.blog.kurohicncr.top/Article/details/82394.shtml)
-- 2026-06-30 08:42 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/803914952.shtml)
-- 2026-06-30 08:33 - [周生如故](https://www.share.kurohicncr.top/Article/details/253327.shtml)
-- 2026-06-30 08:36 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/0094189279.shtml)
+- 2026-06-30 08:44 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/298606285233.shtml)
+- 2026-06-30 08:31 - [斛珠夫人](https://www.share.minike.top/Article/details/208786677.shtml)
+- 2026-06-30 08:42 - [张雪的一句“是我们”引发岛内热议](https://www.share.minike.top/Article/details/873805157530.shtml)
+- 2026-06-30 08:43 - [4000美元是黄金新一轮下跌的开始吗](https://www.share.minike.top/Article/details/8496764941.shtml)
+- 2026-06-30 08:46 - [有酒店推行24小时退房制](https://www.blog.minike.top/Article/details/1001069.shtml)
+- 2026-06-30 08:34 - [网友写差评被店家“挂”门口避雷](https://www.blog.kurohicncr.top/Article/details/084757171245.shtml)
+- 2026-06-30 08:30 - [网友写差评被店家“挂”门口避雷](https://www.share.kurohicncr.top/Article/details/39959970366.shtml)
+- 2026-06-30 08:43 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/348119414558.shtml)
+- 2026-06-30 08:55 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/361483.shtml)
+- 2026-06-30 08:50 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/104540235.shtml)
+- 2026-06-30 08:32 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/7849209.shtml)
+- 2026-06-30 08:35 - [王欣瑜连续4年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/24619.shtml)
+- 2026-06-30 08:57 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/62601797.shtml)
+- 2026-06-30 08:38 - [巴拉圭进球](http://www.share.minike.top/Article/details/6404213.shtml)
+- 2026-06-30 08:48 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/873638233.shtml)

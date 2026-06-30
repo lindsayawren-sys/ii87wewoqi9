@@ -1,59 +1,61 @@
-# Sachem Capital转型工业REIT引争议，律所调查股东利益是否受损
+# 海南推出21条政策举措强化自然资源要素精准供给
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 调查核心：股东仅保留5.9%权益 股东权益律师事务所Ademi LLP宣布，正在对Sachem Capital Corp．与Industrial Realty Group的合并交易进行调查。根据协议，IRG将向Sachem注入98项工业资产，合并后实体将更名为IRG Realty Trust，企业价值约34亿美元，有望成为美国前
+中新网海口6月16日电 (尹建军 黄丹)海南省自然资源和规划厅16日介绍，海南省多部门近日印发《进一步强化自然资源要素精准供给若干政策措施》，围绕空间规划、耕地保护、土地征收、用地审批等8个方面，出台21条具体政策举措，提升自然资源要素保障精准度和实效性。在优化要素保障审批流程方面，海南进一步放权赋能、精简环节。用地预审环节，将省级自然资源和规划部门权限内的用地预审事项，全部授
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 调查核心：股东仅保留5.9%权益 股东权益律师事务所Ademi LLP宣布，正在对Sachem Capital Corp．与Industrial Realty Group的合并交易进行调查。
+中新网海口6月16日电 (尹建军 黄丹)海南省自然资源和规划厅16日介绍，海南省多部门近日印发《进一步强化自然资源要素精准供给若干政策措施》，围绕空间规划、耕地保护、土地征收、用地审批等8个方面，出台21条具体政策举措，提升自然资源要素保障精准度和实效性。
 
-根据协议，IRG将向Sachem注入98项工业资产，合并后实体将更名为IRG Realty Trust，企业价值约34亿美元，有望成为美国前十的上市工业REIT。
+在优化要素保障审批流程方面，海南进一步放权赋能、精简环节。
 
-然而，交易条款显示，IRG将获得合并后公司约94.1%的股权，而现有Sachem普通股股东在完全摊薄基础上仅保留5.9%的所有权。
+用地预审环节，将省级自然资源和规划部门权限内的用地预审事项，全部授权市县相关部门办理，实现审批权限下沉。
 
-Ademi指出，Sachem内部人士将在控制权变更安排中获得可观的财务利益，而普通公众股东无法分享这部分收益。
+土地征收环节，实行征地前期工作并联开展，取消单独编制土地征收成片开发方案的要求，有效压缩征地周期、减少用地主体投入。
 
-溢价90%背后存争议 交易对Sachem普通股的估值为每股2.00美元，较其30日成交量加权平均价溢价90%。
+在用地报批环节，精简审查要件，不再开展压覆重要矿产资源、详细规划相关内容审查，大幅缩减申报材料。
 
-但批评者认为，这一溢价难以弥补现有股东持股比例被极度稀释的损失。
+规划许可环节，明确建立零星公共设施项目等三大类项目豁免清单，符合条件项目可免于办理工程规划许可、乡村建设规划许可，切实提升项目落地效率。
 
-Ademi的调查还关注交易协议中的限制性条款，若Sachem接受竞争性报价，将被处以巨额违约金，这可能阻碍股东获得更优交易。
+此次新政出台举措，解决存量难题和历史遗留问题。
 
-后续行动与时间表 这是继Halper Sadeh LLC之后，本周第二家对Sachem交易发起调查的律师事务所。
+殡葬设施用地方面，经市县政府认定的殡葬设施用地需求，可纳入国土空间规划统一保障，补齐公共服务配套短板。
 
 ## 相关推荐
 
-- 2026-06-30 08:26 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-30 08:41 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-30 08:41 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-30 08:25 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-30 08:26 - [欧洲民众抢购空调降温](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-30 08:27 - [韩国世界杯出局是主帅一个人的锅吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-30 08:44 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-30 08:37 - [自然光｜papi酱&窦文涛：驴与跑步机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
-- 2026-06-30 08:49 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
-- 2026-06-30 08:30 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-30 08:27 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
-- 2026-06-30 08:44 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-30 08:40 - [第3集丨“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-30 08:36 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-30 08:33 - [点球大战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
+- 2026-06-30 08:32 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-30 08:36 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-30 08:38 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-30 08:37 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-30 08:38 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-30 08:50 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-30 08:32 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-30 08:30 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-30 08:51 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-30 08:39 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-30 08:40 - [男子在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-30 08:41 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-30 08:52 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:32 - [极限挑战第一季](https://www.share.minike.top/Article/details/810799658.shtml)
-- 2026-06-30 08:39 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/7887974398.shtml)
-- 2026-06-30 08:42 - [日本球员说被绝杀非常不甘心](https://www.blog.minike.top/Article/details/623848160753.shtml)
-- 2026-06-30 08:51 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/32612687441.shtml)
-- 2026-06-30 08:35 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/59793848.shtml)
-- 2026-06-30 08:29 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/6038351383.shtml)
-- 2026-06-30 08:44 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/08874.shtml)
-- 2026-06-30 08:42 - [德国巴拉圭 折磨](http://www.blog.minike.top/Article/details/62232902.shtml)
-- 2026-06-30 08:49 - [急先锋](https://www.share.kurohicncr.top/Article/details/7694912939.shtml)
-- 2026-06-30 08:44 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](http://www.share.minike.top/Article/details/706030320365.shtml)
-- 2026-06-30 08:48 - [点球大战 残酷](https://www.blog.minike.top/Article/details/2175704405.shtml)
-- 2026-06-30 08:47 - [媒体：手机测评该挤挤水分了](https://www.share.kurohicncr.top/Article/details/13307897.shtml)
-- 2026-06-30 08:35 - [森保一致歉：世界第一目标没能实现](http://www.blog.minike.top/Article/details/829703.shtml)
-- 2026-06-30 08:50 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/89988.shtml)
-- 2026-06-30 08:26 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/927682.shtml)
+- 2026-06-30 08:49 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/656460.shtml)
+- 2026-06-30 08:34 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/874195232.shtml)
+- 2026-06-30 08:45 - [问心2神一集鬼三集](http://www.blog.minike.top/Article/details/10057229840.shtml)
+- 2026-06-30 08:32 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](http://www.blog.minike.top/Article/details/856450548953.shtml)
+- 2026-06-30 08:47 - [《共患难》](http://www.share.minike.top/Article/details/564338458.shtml)
+- 2026-06-30 08:35 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/338862822.shtml)
+- 2026-06-30 08:41 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/500959.shtml)
+- 2026-06-30 08:43 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/779563392680.shtml)
+- 2026-06-30 08:58 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/171271086.shtml)
+- 2026-06-30 08:48 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/82469.shtml)
+- 2026-06-30 08:35 - [董路：谁赢谁是“正路子”](http://www.blog.minike.top/Article/details/9635197.shtml)
+- 2026-06-30 08:56 - [男子身高一米八二仍做断骨增高](http://www.blog.minike.top/Article/details/303474.shtml)
+- 2026-06-30 08:31 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/6933138.shtml)
+- 2026-06-30 08:57 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.minike.top/Article/details/3726716.shtml)
+- 2026-06-30 08:32 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/54717154.shtml)

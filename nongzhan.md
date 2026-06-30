@@ -1,57 +1,60 @@
-# 上市公司交出近三年最好成绩单 解码年报“含金量”
+# 光大期货：6月16日软商品日报
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-上市公司交出近三年最好成绩单 解码年报“含金量”(财经深一度) 上市公司是经济高质量发展的重要微观基础，稳中向好的成绩单有力印证中国经济的强大韧性与活力。从上市公司发展新亮点中，还能看见“十五五”开局的新动能和新势头。近日，上市公司交出近三年最好成绩单。沪深5206家上市公司的年报统计数据显示，2025年上市公司共实现营业收入72.8万亿元，同比增长1.2%；净利润5.4万亿元
+白糖： （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 中东地缘冲突缓和，国际原油期价收至三个月低位。能源走弱拖累ICE原糖盘面，昨日原糖期价盘中下探至两个月低点，10月合约最低触及14.07美分/磅。短期持续跟踪巴西压榨进度与产区天气扰动。国内夏季步入传统消费旺季，短期市场情绪核心取决于销售节奏与去库速度；中长期厄尔尼诺气象扰动带来的天气溢价支撑仍
 
 ## 正文
 
-上市公司交出近三年最好成绩单 解码年报“含金量”(财经深一度) 上市公司是经济高质量发展的重要微观基础，稳中向好的成绩单有力印证中国经济的强大韧性与活力。
+白糖： （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 中东地缘冲突缓和，国际原油期价收至三个月低位。
 
-从上市公司发展新亮点中，还能看见“十五五”开局的新动能和新势头。
+能源走弱拖累ICE原糖盘面，昨日原糖期价盘中下探至两个月低点，10月合约最低触及14.07美分/磅。
 
-近日，上市公司交出近三年最好成绩单。
+短期持续跟踪巴西压榨进度与产区天气扰动。
 
-沪深5206家上市公司的年报统计数据显示，2025年上市公司共实现营业收入72.8万亿元，同比增长1.2%；净利润5.4万亿元，同比增长2.6%，利润增速为近三年最高。
+国内夏季步入传统消费旺季，短期市场情绪核心取决于销售节奏与去库速度；中长期厄尔尼诺气象扰动带来的天气溢价支撑仍存。
 
-盈利“含金量”持续提升，上市公司出海表现亮眼 今年4月，在贵州大龙经济开发区产业园内，一辆装载着25吨进口锂离子电池用再生黑粉的重型集装箱货车，缓缓驶入中伟新材料股份有限公司(以下简称“中伟新材”)厂区。
+郑糖期价延续低位震荡，市场持仓维持高位、多空分歧加剧，未来盘面将持续验证底部支撑有效性。
 
-这些被称作“黑色黄金”的粉末进入再生资源精深加工车间，经过溶解、萃取、沉淀，转化为电池级硫酸镍、碳酸锂等高价值新材料，用于新能源汽车动力电池三元前驱体生产，最终向全球车企交付。
+棉花： （孙成震，从业资格号：F03099994；交易咨询资格号：Z0021057） 周一，ICE美棉上涨0.46%，报收76.77美分/磅，郑棉主力合约环比下降0.16%，报收15745元/吨，主力合约持仓环比下降5694手至59.99万手，棉花3128B现货价格指数16930元/吨，较前一日下降5元/吨。
 
-“除了原料进口、国内加工之外，公司还在印尼、摩洛哥等国家设立冶炼和生产基地，形成海外一体化、生态化产业链。
+国际市场方面，近期美棉期价扰动因素较多，宏观及天气均有扰动。
 
-”中伟新材董事会秘书唐华腾介绍，在全球地缘冲突频发、资源博弈加剧的形势下，加快技术研发、开拓多元市场，反而让企业逆势而上，更加深度嵌入全球供应链产业链。
+美伊签署备忘录，原油价格跳水，美元指数走弱。
 
 ## 相关推荐
 
-- 2026-06-30 08:37 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
-- 2026-06-30 08:48 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
-- 2026-06-30 08:36 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
-- 2026-06-30 08:52 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-30 08:24 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
-- 2026-06-30 08:38 - [郑钦文温网首轮出局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-30 08:44 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-30 08:26 - [森保一致歉：世界第一目标没能实现](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-30 08:48 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
-- 2026-06-30 08:32 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-30 08:50 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-30 08:49 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
+- 2026-06-30 08:30 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
+- 2026-06-30 08:34 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-30 08:55 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-30 08:47 - [电影抓特务上映11天破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-30 08:43 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-30 08:32 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-30 08:45 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-30 08:31 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-30 08:36 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
+- 2026-06-30 08:33 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-30 08:39 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-30 08:45 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-30 08:34 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:24 - [德国罚丢3粒点球](https://www.share.minike.top/Article/details/79584222610.shtml)
-- 2026-06-30 08:27 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/537592.shtml)
-- 2026-06-30 08:40 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/785988417901.shtml)
-- 2026-06-30 08:48 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/182499100374.shtml)
-- 2026-06-30 08:33 - [电影抓特务上映11天破亿](https://www.blog.kurohicncr.top/Article/details/88543.shtml)
-- 2026-06-30 08:45 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/88871588.shtml)
-- 2026-06-30 08:36 - [人类...完蛋了...](https://www.share.kurohicncr.top/Article/details/235468.shtml)
-- 2026-06-30 08:32 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.minike.top/Article/details/3380457.shtml)
-- 2026-06-30 08:36 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/855791846.shtml)
-- 2026-06-30 08:42 - [日本反击率先破门](https://www.blog.kurohicncr.top/Article/details/29052472.shtml)
-- 2026-06-30 08:51 - [巴西2比1日本](https://www.blog.kurohicncr.top/Article/details/660541.shtml)
-- 2026-06-30 08:28 - [莫兰特转投开拓者效力](http://www.blog.kurohicncr.top/Article/details/7620169499.shtml)
-- 2026-06-30 08:34 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/72265806999.shtml)
-- 2026-06-30 08:37 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/41742.shtml)
-- 2026-06-30 08:47 - [世界杯巴拉圭点球淘汰德国](https://www.share.minike.top/Article/details/5991078555.shtml)
+- 2026-06-30 08:40 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/414271791.shtml)
+- 2026-06-30 08:33 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/316346210243.shtml)
+- 2026-06-30 08:39 - [网红峡谷5人溺亡 有人提醒会下雨](http://www.share.kurohicncr.top/Article/details/283617657763.shtml)
+- 2026-06-30 08:59 - [曝iPhone18Pro机密文件现身暗网](https://www.share.kurohicncr.top/Article/details/2749659.shtml)
+- 2026-06-30 08:35 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/735912.shtml)
+- 2026-06-30 08:43 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.minike.top/Article/details/17071169.shtml)
+- 2026-06-30 08:36 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.share.kurohicncr.top/Article/details/074781.shtml)
+- 2026-06-30 08:57 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/69020.shtml)
+- 2026-06-30 08:42 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.share.minike.top/Article/details/55580.shtml)
+- 2026-06-30 08:44 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/72099633604.shtml)
+- 2026-06-30 08:52 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.share.kurohicncr.top/Article/details/34529046643.shtml)
+- 2026-06-30 08:43 - [爆冷出局！德国点球大战不敌巴拉圭](https://www.share.kurohicncr.top/Article/details/57136457025.shtml)
+- 2026-06-30 08:33 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/6299167.shtml)
+- 2026-06-30 08:59 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.share.minike.top/Article/details/4405015141.shtml)
+- 2026-06-30 08:45 - [韩国世界杯出局是主帅一个人的锅吗](https://www.share.minike.top/Article/details/01336318.shtml)

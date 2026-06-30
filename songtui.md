@@ -1,49 +1,57 @@
-# 浦江中国公布于5月19日上午起复牌
+# 英矽智能盘中涨超6% 与衡泰生物合作的ISM8969达成首个临床里程碑
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-浦江中国（01417）发布公告，公司股份（证券代号：01417）将于今天（2026年5月19日）上午九时正起恢复买卖。责任编辑：卢昱君
+英矽智能（03696）盘中涨超6%，截至发稿，股价上涨2.62%，现报33.74港元，成交额4278.86万港元。 英矽智能宣布，与衡泰生物共同开发的ISM8969已达成首个临床里程碑，在I期临床研究中完成首例人体给药。ISM8969是一种具有潜在同类最佳（best-in-class）潜力的口服、可穿透血脑屏障的小分子NLRP3炎症小体抑制剂，拟用于治疗慢性神经炎症及中枢神经系
 
 ## 正文
 
-浦江中国（01417）发布公告，公司股份（证券代号：01417）将于今天（2026年5月19日）上午九时正起恢复买卖。
+英矽智能（03696）盘中涨超6%，截至发稿，股价上涨2.62%，现报33.74港元，成交额4278.86万港元。
+
+英矽智能宣布，与衡泰生物共同开发的ISM8969已达成首个临床里程碑，在I期临床研究中完成首例人体给药。
+
+ISM8969是一种具有潜在同类最佳（best-in-class）潜力的口服、可穿透血脑屏障的小分子NLRP3炎症小体抑制剂，拟用于治疗慢性神经炎症及中枢神经系统（CNS）疾病，包括帕金森病。
+
+公开资料显示，为加速该候选药物的全球开发，英矽智能与复星健康资本旗下深圳鹏复基金与复星医药的被投企业衡泰生物达成一项全球独家战略共同开发合作。
+
+根据协议，双方各自持有该项目全球权益的50%，其中英矽智能负责推进IND申报及I期临床试验。
+
+随着项目进展，英矽智能有资格获得最高6600万美元的首付款及里程碑付款。
 
 责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 08:37 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
-- 2026-06-30 08:41 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
-- 2026-06-30 08:35 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-30 08:49 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
-- 2026-06-30 08:45 - [巴西足球能否再现昔日荣光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-30 08:53 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
-- 2026-06-30 08:24 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-30 08:42 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-30 08:33 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-30 08:35 - [巴拉圭率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-30 08:48 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-30 08:28 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-30 08:25 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-30 08:39 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-30 08:49 - [萨内 看笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-30 08:52 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-30 08:45 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-30 08:44 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-30 08:48 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-30 08:47 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-30 08:36 - [日本 高位逼抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-30 08:36 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-30 08:47 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-30 08:57 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-30 08:57 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-30 08:44 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-30 08:56 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-30 08:46 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:28 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.minike.top/Article/details/979914.shtml)
-- 2026-06-30 08:53 - [男子醉酒溺水获救后同行人拒协助抬人](http://www.share.minike.top/Article/details/47305.shtml)
-- 2026-06-30 08:48 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.kurohicncr.top/Article/details/331538.shtml)
-- 2026-06-30 08:49 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/013245.shtml)
-- 2026-06-30 08:24 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/0796226.shtml)
-- 2026-06-30 08:50 - [张凌赫杨超越 峨眉](https://www.blog.kurohicncr.top/Article/details/36475.shtml)
-- 2026-06-30 08:50 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/81044071499.shtml)
-- 2026-06-30 08:48 - [亚洲球队全部出局](https://www.blog.kurohicncr.top/Article/details/124668.shtml)
-- 2026-06-30 08:40 - [这几秒成世界杯最值钱广告位](http://www.blog.kurohicncr.top/Article/details/137288757575.shtml)
-- 2026-06-30 08:53 - [巴西替补奇兵读秒绝杀](http://www.blog.kurohicncr.top/Article/details/577987617973.shtml)
-- 2026-06-30 08:32 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/8566063561.shtml)
-- 2026-06-30 08:29 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/18854.shtml)
-- 2026-06-30 08:40 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/513694345117.shtml)
-- 2026-06-30 08:46 - [锐评T1战胜KC](https://www.share.kurohicncr.top/Article/details/52031083.shtml)
-- 2026-06-30 08:39 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/63036968337.shtml)
+- 2026-06-30 08:30 - [日本16强魔咒](https://www.blog.kurohicncr.top/Article/details/3886125479.shtml)
+- 2026-06-30 08:32 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/08855970907.shtml)
+- 2026-06-30 08:53 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/343482.shtml)
+- 2026-06-30 08:57 - [萨内 看笑了](http://www.blog.kurohicncr.top/Article/details/8820401.shtml)
+- 2026-06-30 08:34 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/880811.shtml)
+- 2026-06-30 08:31 - [郑钦文温网首轮出局](https://www.share.minike.top/Article/details/86077897072.shtml)
+- 2026-06-30 08:37 - [沙丘](https://www.blog.minike.top/Article/details/4336741.shtml)
+- 2026-06-30 08:40 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/3475606.shtml)
+- 2026-06-30 08:53 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/750635056.shtml)
+- 2026-06-30 08:34 - [大蒜晒外面被路过女子连盆端走](http://www.share.kurohicncr.top/Article/details/268494805318.shtml)
+- 2026-06-30 08:43 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/806567396.shtml)
+- 2026-06-30 08:36 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/836367.shtml)
+- 2026-06-30 08:36 - [日本博主：日本足球真的垃圾](http://www.share.kurohicncr.top/Article/details/906128332.shtml)
+- 2026-06-30 08:38 - [巴西把自己踢晕了](http://www.share.minike.top/Article/details/38438581.shtml)
+- 2026-06-30 08:42 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/1337028.shtml)

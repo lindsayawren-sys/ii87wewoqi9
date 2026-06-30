@@ -1,44 +1,56 @@
-# 05月18日锌24586.00元/吨 20天上涨3.44%
+# 中国联塑午前涨近4% 与天怀数智达成战略合作进军AI算力领域
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-据生意社监测，锌05月18日最新价格24586.00元/吨，最近20天上涨3.44%，60天上涨7.66%。相关生产商有：中金岭南(000060)兴业银锡(000426)盛达资源(000603)国城矿业（维权）(000688)锌业股份(000751)中色股份(000758)智慧农业(000816)锡业股份(000960)罗平锌电(002114)恒邦股份(002237)湖南白银(
+中国联塑（02128）盘中涨超5%，截至发稿，股价上涨3.50%，现报4.44港元，成交额2952.42万港元。 6月16日，中国联塑集团旗下的联塑算力设施供应有限公司与浙江天怀数智科技有限公司在香港签订战略合作协议。此次合作，双方在AIDC 项目建设过程中，将优先使用联塑相关产品及解决方案。此外，双方将共同开拓海外AIDC市场。联塑利用海外生产基地布局及国际客户网络，浙江天怀
 
 ## 正文
 
-据生意社监测，锌05月18日最新价格24586.00元/吨，最近20天上涨3.44%，60天上涨7.66%。
+中国联塑（02128）盘中涨超5%，截至发稿，股价上涨3.50%，现报4.44港元，成交额2952.42万港元。
 
-相关生产商有：中金岭南(000060)兴业银锡(000426)盛达资源(000603)国城矿业（维权）(000688)锌业股份(000751)中色股份(000758)智慧农业(000816)锡业股份(000960)罗平锌电(002114)恒邦股份(002237)湖南白银(002716)飞南资源(301500)华锡有色(600301)宏达股份(600331)西藏珠峰(600338)驰宏锌锗(600497)豫光金铅(600531)盛屯矿业（维权）(600711)株冶集团(600961)华钰矿业(601020)西部矿业(601168)白银有色（维权）(601212)紫金矿业(601899)金钼股份(601958)金徽股份(603132)等。
+6月16日，中国联塑集团旗下的联塑算力设施供应有限公司与浙江天怀数智科技有限公司在香港签订战略合作协议。
+
+此次合作，双方在AIDC 项目建设过程中，将优先使用联塑相关产品及解决方案。
+
+此外，双方将共同开拓海外AIDC市场。
+
+联塑利用海外生产基地布局及国际客户网络，浙江天怀数智利用技术服务能力及产业资源，合作推进“一带一路”沿线国家及东南亚地区的算力中心项目。
+
+公司指出，通过合作，双方致力于构建“资本+产业”、“资源+技术”深度融合的战略合作模式，共同推进国内外AIDC智算中心项目的落地与运营，实现联塑产品及业务进军AI算力领域并进行深入布局，拓宽产品应用领域。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 08:42 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
-- 2026-06-30 08:28 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
-- 2026-06-30 08:37 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-30 08:43 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-30 08:51 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-30 08:31 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-30 08:38 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-30 08:26 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-30 08:26 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
-- 2026-06-30 08:50 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
+- 2026-06-30 08:59 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-30 08:50 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-30 08:36 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-30 08:48 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-30 08:35 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-30 08:55 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-30 08:35 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-30 08:52 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-30 08:53 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-30 08:56 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-30 08:34 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-30 08:35 - [巴西绝杀日本：漫画般结局换了主角](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:47 - [巴拉圭点球大战淘汰德国进16强](http://www.blog.minike.top/Article/details/28027.shtml)
-- 2026-06-30 08:35 - [第一炉香](https://www.blog.minike.top/Article/details/339033.shtml)
-- 2026-06-30 08:53 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/206111470.shtml)
-- 2026-06-30 08:36 - [巴西2-1绝杀日本](https://www.share.kurohicncr.top/Article/details/2638962.shtml)
-- 2026-06-30 08:34 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/7254118.shtml)
-- 2026-06-30 08:31 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/985117416.shtml)
-- 2026-06-30 08:37 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/785425649677.shtml)
-- 2026-06-30 08:25 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/24361.shtml)
-- 2026-06-30 08:31 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/97491988281.shtml)
-- 2026-06-30 08:46 - [德国巴拉圭进入点球大战](https://www.blog.kurohicncr.top/Article/details/66154.shtml)
-- 2026-06-30 08:28 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/283218339874.shtml)
-- 2026-06-30 08:34 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/712221.shtml)
-- 2026-06-30 08:47 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/917337.shtml)
-- 2026-06-30 08:37 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/94692067.shtml)
-- 2026-06-30 08:50 - [泰山建135公里刀片刺绳隔离网](http://www.share.minike.top/Article/details/15604347787.shtml)
+- 2026-06-30 08:37 - [王楚钦说配合稍微有些陌生感](http://www.share.kurohicncr.top/Article/details/270964.shtml)
+- 2026-06-30 08:31 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/07978462.shtml)
+- 2026-06-30 08:57 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/028109.shtml)
+- 2026-06-30 08:53 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/95406829888.shtml)
+- 2026-06-30 08:30 - [刘必安等16人非法集资案二审宣判](http://www.blog.minike.top/Article/details/331331917694.shtml)
+- 2026-06-30 08:49 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/1310246289.shtml)
+- 2026-06-30 08:38 - [这几秒成世界杯最值钱广告位](https://www.blog.kurohicncr.top/Article/details/454239580425.shtml)
+- 2026-06-30 08:55 - [世界杯巴拉圭点球淘汰德国](https://www.blog.kurohicncr.top/Article/details/375915242616.shtml)
+- 2026-06-30 08:40 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/670328.shtml)
+- 2026-06-30 08:31 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](http://www.share.kurohicncr.top/Article/details/808337243961.shtml)
+- 2026-06-30 08:30 - [湖南祁东原文化馆被指贱卖](https://www.blog.minike.top/Article/details/33498.shtml)
+- 2026-06-30 08:43 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/12925512.shtml)
+- 2026-06-30 08:41 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/5702795.shtml)
+- 2026-06-30 08:41 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/39142532845.shtml)
+- 2026-06-30 08:54 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/890591794.shtml)

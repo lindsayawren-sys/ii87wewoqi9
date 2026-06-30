@@ -1,51 +1,51 @@
-# 湖南、广东迎强降雨 自然资源部对两省启动地质灾害防御Ⅳ级响应
+# “数爱无疆”数字公益故事展播 | 幸福更多的家，幸福更大的家
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-中新网5月18日电 据自然资源部微信公众号消息，据气象部门预报，未来三天，湖南、广东等地部分地区有大到暴雨过程，局地有大暴雨。自然资源部地质灾害技术指导中心研判，湖南西部、广东西南部发生地质灾害的风险较高。根据《自然资源部地质灾害防御响应工作方案》，自然资源部于5月18日11时对湖南、广东启动地质灾害防御Ⅳ级响应。 自然资源部要求，湖南、广东省自然资源厅增强风险意识和忧患意识，
+发布时间：2026年06月16日 20:43 来源：中国新闻网 2026年5月，中国网络文明大会期间，网络公益建设分论坛发布了2025“数爱无疆”数字公益故事征集展播活动结果。 2025年11月起，中国网络社会组织联合会携手中国互联网发展基金会、中国新闻网组织开展2025“数爱无疆”数字公益故事征集展播活动，最终遴选出50个具有代表性的数字公益故事，由理想汽车推送的“幸福更多的
 
 ## 正文
 
-中新网5月18日电 据自然资源部微信公众号消息，据气象部门预报，未来三天，湖南、广东等地部分地区有大到暴雨过程，局地有大暴雨。
+发布时间：2026年06月16日 20:43 来源：中国新闻网 2026年5月，中国网络文明大会期间，网络公益建设分论坛发布了2025“数爱无疆”数字公益故事征集展播活动结果。
 
-自然资源部地质灾害技术指导中心研判，湖南西部、广东西南部发生地质灾害的风险较高。
+2025年11月起，中国网络社会组织联合会携手中国互联网发展基金会、中国新闻网组织开展2025“数爱无疆”数字公益故事征集展播活动，最终遴选出50个具有代表性的数字公益故事，由理想汽车推送的“幸福更多的家，幸福更大的家”作品入选。
 
-根据《自然资源部地质灾害防御响应工作方案》，自然资源部于5月18日11时对湖南、广东启动地质灾害防御Ⅳ级响应。
-
-自然资源部要求，湖南、广东省自然资源厅增强风险意识和忧患意识，强化底线思维和极限思维，高度重视强降雨引发地质灾害防范应对，及时组织开展巡查排查，切实做好监测预警、会商研判、灾情险情处置和值班值守、信息报送等工作；中国地质调查局、自然资源部地质灾害技术指导中心加强会商研判和驻守专家调度，全力协助地方做好地质灾害防御工作。
+责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 08:47 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-30 08:35 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-30 08:32 - [德国队世界杯点球大战首败](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-30 08:35 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-30 08:49 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-30 08:44 - [金鹰奖视后提名预测](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-30 08:35 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
-- 2026-06-30 08:45 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-30 08:41 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
-- 2026-06-30 08:53 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-30 08:30 - [日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-30 08:35 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-30 08:45 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-30 08:48 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-30 08:38 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
+- 2026-06-30 08:41 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-30 08:37 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-30 08:38 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-30 08:56 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-30 08:45 - [日本将帅赛后采访纷纷哽咽落泪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-30 08:45 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-30 08:43 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-30 08:58 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
+- 2026-06-30 08:41 - [董路：谁赢谁是“正路子”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
+- 2026-06-30 08:42 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-30 08:55 - [世界杯欧洲队7战南美仅1胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-30 08:46 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-30 08:51 - [三星投资计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:36 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/00794857694.shtml)
-- 2026-06-30 08:49 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/214431836356.shtml)
-- 2026-06-30 08:52 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/887382146781.shtml)
-- 2026-06-30 08:32 - [人类...完蛋了...](https://www.blog.minike.top/Article/details/27741013.shtml)
-- 2026-06-30 08:40 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/862199367.shtml)
-- 2026-06-30 08:49 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/8312282604.shtml)
-- 2026-06-30 08:30 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/3060480535.shtml)
-- 2026-06-30 08:51 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/881987225615.shtml)
-- 2026-06-30 08:35 - [佐野海舟远射破门](https://www.share.minike.top/Article/details/937211.shtml)
-- 2026-06-30 08:52 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/0569129904.shtml)
-- 2026-06-30 08:38 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](http://www.share.minike.top/Article/details/540366933444.shtml)
-- 2026-06-30 08:47 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/605826.shtml)
-- 2026-06-30 08:46 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/75409.shtml)
-- 2026-06-30 08:30 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/740587019.shtml)
-- 2026-06-30 08:29 - [德国爆冷点球大战不敌巴拉圭](http://www.blog.kurohicncr.top/Article/details/552804971869.shtml)
+- 2026-06-30 08:34 - [沉睡花园](http://www.blog.minike.top/Article/details/51312653532.shtml)
+- 2026-06-30 08:53 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/26833132.shtml)
+- 2026-06-30 08:41 - [沙丘](https://www.blog.minike.top/Article/details/56067103962.shtml)
+- 2026-06-30 08:57 - [郑钦文温网三连败西尼亚科娃](https://www.share.kurohicncr.top/Article/details/012633465.shtml)
+- 2026-06-30 08:31 - [韩国道歉完日本道歉](https://www.blog.kurohicncr.top/Article/details/6767030.shtml)
+- 2026-06-30 08:51 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/5394667447.shtml)
+- 2026-06-30 08:32 - [恋与深空制作组回应近期争议](http://www.blog.minike.top/Article/details/9132211.shtml)
+- 2026-06-30 08:47 - [二次元提前预演明日巴西对日本](https://www.blog.kurohicncr.top/Article/details/51636402735.shtml)
+- 2026-06-30 08:47 - [点球大战 残酷](https://www.share.kurohicncr.top/Article/details/621306793506.shtml)
+- 2026-06-30 08:55 - [为什么会有「念旧」的心理？](http://www.share.kurohicncr.top/Article/details/807728.shtml)
+- 2026-06-30 08:58 - [日本 高位逼抢](https://www.blog.kurohicncr.top/Article/details/01003.shtml)
+- 2026-06-30 08:53 - [现在叛逆期的孩子最怕的是什么？](http://www.blog.minike.top/Article/details/098876.shtml)
+- 2026-06-30 08:52 - [女子遭下药退赔偿拟追刑责](https://www.blog.minike.top/Article/details/158113575082.shtml)
+- 2026-06-30 08:31 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/879312.shtml)
+- 2026-06-30 08:52 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/03764.shtml)

@@ -1,57 +1,48 @@
-# 中俄博览会开幕 黑龙江各口岸迎来参展客商入境客流高峰
+# 吴清：支持在沪深交易所推出主动ETF
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-第十届中俄博览会昨天在哈尔滨火热开幕。这几天俄罗斯参展客商集中入境，黑龙江各口岸迎来入境客流高峰。 自5月11日起，哈尔滨机场口岸参展客商陆续入境，5月17日迎来的入境客流高峰，哈尔滨边检站开始实施7×24小时通关保障服务，专门开通中俄博览会专用查验通道，参展客商快速完成入境通关流程，全程耗时不到10分钟。 此外，从5月15日开始，俄罗斯多支代表团陆续经黑龙江对俄水运、公路口岸
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日，2026陆家嘴论坛举行，证监会主席吴清表示，进一步丰富投资产品和工具，包括：支持在沪深交易所推出主动ETF；推出商业不动产REITs试点，4单首批项目18日将在上交所挂牌上市；推出支持中小基金公司规范健康发展的一揽子措施，坚持分类监管、突出特色，在产品布局、业务准入等方面给予适当倾斜，支持中小基金公司差异
 
 ## 正文
 
-第十届中俄博览会昨天在哈尔滨火热开幕。
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日，2026陆家嘴论坛举行，证监会主席吴清表示，进一步丰富投资产品和工具，包括：支持在沪深交易所推出主动ETF；推出商业不动产REITs试点，4单首批项目18日将在上交所挂牌上市；推出支持中小基金公司规范健康发展的一揽子措施，坚持分类监管、突出特色，在产品布局、业务准入等方面给予适当倾斜，支持中小基金公司差异化发展。
 
-这几天俄罗斯参展客商集中入境，黑龙江各口岸迎来入境客流高峰。
-
-自5月11日起，哈尔滨机场口岸参展客商陆续入境，5月17日迎来的入境客流高峰，哈尔滨边检站开始实施7×24小时通关保障服务，专门开通中俄博览会专用查验通道，参展客商快速完成入境通关流程，全程耗时不到10分钟。
-
-此外，从5月15日开始，俄罗斯多支代表团陆续经黑龙江对俄水运、公路口岸入境参展。
-
-目前黑龙江各口岸均增设参会专用通道，优化通关流程、保障参展人员高效通关。
-
-入境客流增加激活文旅消费 带动边境经济 黑龙江边检总站数据显示，自2025年9月15日免签政策试行8个多月来，全省口岸共查验出入境俄罗斯旅客约65.5万人次，同比增长69.4%， 其中免签入境的俄罗斯旅客约31.1万人次，同比增长229.2%。
-
-入境客流的增加不仅激活了文旅消费、也带动了边境经济。
-
-5月17日清晨，黑龙江黑河水运口岸旅检大厅秩序井然，近200名俄罗斯籍旅客搭乘轮渡入境，不到10分钟就完成边检查验手续，顺利开启在华行程。
+责任编辑：常福强
 
 ## 相关推荐
 
-- 2026-06-30 08:47 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-30 08:47 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-30 08:36 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-30 08:51 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
-- 2026-06-30 08:52 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-30 08:50 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-30 08:38 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
-- 2026-06-30 08:52 - [媒体：手机测评该挤挤水分了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-30 08:51 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-30 08:29 - [如果有二次元高中是什么样子的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
-- 2026-06-30 08:26 - [诺伊尔尽力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-30 08:43 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-30 08:35 - [王楚钦说配合稍微有些陌生感](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-30 08:48 - [世界杯巴拉圭点球淘汰德国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-30 08:55 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-30 08:58 - [第一次对自信的力量有了实感](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-30 08:48 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-30 08:51 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-30 08:54 - [勇士续约波尔津吉斯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-30 08:44 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-30 08:55 - [恋与深空制作组回应近期争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
+- 2026-06-30 08:55 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-30 08:39 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-30 08:52 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-30 08:34 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:33 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.kurohicncr.top/Article/details/25917986421.shtml)
-- 2026-06-30 08:38 - [现在叛逆期的孩子最怕的是什么？](https://www.share.kurohicncr.top/Article/details/611975.shtml)
-- 2026-06-30 08:24 - [郑钦文 四年一轮游](https://www.share.kurohicncr.top/Article/details/94984.shtml)
-- 2026-06-30 08:49 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](http://www.blog.minike.top/Article/details/78946862.shtml)
-- 2026-06-30 08:51 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.blog.minike.top/Article/details/95508778500.shtml)
-- 2026-06-30 08:37 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://www.blog.kurohicncr.top/Article/details/7046727034.shtml)
-- 2026-06-30 08:30 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/790406.shtml)
-- 2026-06-30 08:46 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/306487.shtml)
-- 2026-06-30 08:40 - [日本五次世界杯淘汰赛全败](https://www.share.kurohicncr.top/Article/details/15205.shtml)
-- 2026-06-30 08:31 - [啊啊啊](https://www.share.minike.top/Article/details/809883.shtml)
-- 2026-06-30 08:42 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/144932261.shtml)
-- 2026-06-30 08:37 - [巴拉圭先进球了](http://www.blog.minike.top/Article/details/48391679503.shtml)
-- 2026-06-30 08:50 - [警犬“多多”助民警寻回失联老人](https://www.blog.minike.top/Article/details/629147207251.shtml)
-- 2026-06-30 08:29 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.blog.minike.top/Article/details/620354613274.shtml)
-- 2026-06-30 08:38 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/510529732445.shtml)
+- 2026-06-30 08:50 - [郑钦文温网三连败西尼亚科娃](https://www.share.kurohicncr.top/Article/details/34051895985.shtml)
+- 2026-06-30 08:31 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/629006.shtml)
+- 2026-06-30 08:42 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/55739.shtml)
+- 2026-06-30 08:44 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/1117870175.shtml)
+- 2026-06-30 08:56 - [徐亮怒斥世界杯踢假球](https://www.blog.kurohicncr.top/Article/details/822581288959.shtml)
+- 2026-06-30 08:48 - [大蒜晒外面被路过女子连盆端走](http://www.share.kurohicncr.top/Article/details/43184627.shtml)
+- 2026-06-30 08:52 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/9484684.shtml)
+- 2026-06-30 08:52 - [乔家的儿女](http://www.blog.minike.top/Article/details/59847255924.shtml)
+- 2026-06-30 08:59 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/594159815049.shtml)
+- 2026-06-30 08:55 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/922693467862.shtml)
+- 2026-06-30 08:39 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/57617813515.shtml)
+- 2026-06-30 08:38 - [杨紫大银幕成绩单如何](http://www.share.kurohicncr.top/Article/details/121745815.shtml)
+- 2026-06-30 08:52 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/487040387285.shtml)
+- 2026-06-30 08:45 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/44105.shtml)
+- 2026-06-30 08:35 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/067849468.shtml)

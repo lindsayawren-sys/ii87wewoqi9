@@ -1,61 +1,50 @@
-# 建设银行全力保障柳州5.2级地震灾区金融服务工作
+# 瑞士外交部确认美伊框架协议签署地点
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-来源：今日建行 5月18日0时21分，广西柳州市柳南区发生5.2级地震，震源深度8千米。当日21时44分再次发生5.2级地震，震源深度8千米。 面对突发地震灾害，建设银行高度重视，第一时间统筹排查广西柳州全辖各营业网点、办公大楼、自助设备安全及运营状况，全面摸清机构受灾情况，严防次生安全风险，确保金融服务渠道安全、稳定、畅通；同时，重点聚焦柳南区太阳村镇等震中核心区域，压实片区
+中新网6月17日电 据瑞士广播电视公司17日报道，瑞士外交部证实，美国和伊朗的框架协议将于19日在瑞士中部卢塞恩附近的比尔根山签署。据报道，签署地是比尔根山的一家豪华度假村。 报道还援引瑞士外交部说法称，会谈地点是由巴基斯坦、卡塔尔、美国、伊朗共同提议的。瑞士正在为会谈提供便利，并为此创造外交条件。 美国总统特朗普14日宣布与伊朗达成停战谅解备忘录，正式签字仪式将于19日在瑞士
 
 ## 正文
 
-来源：今日建行 5月18日0时21分，广西柳州市柳南区发生5.2级地震，震源深度8千米。
+中新网6月17日电 据瑞士广播电视公司17日报道，瑞士外交部证实，美国和伊朗的框架协议将于19日在瑞士中部卢塞恩附近的比尔根山签署。
 
-当日21时44分再次发生5.2级地震，震源深度8千米。
+据报道，签署地是比尔根山的一家豪华度假村。
 
-面对突发地震灾害，建设银行高度重视，第一时间统筹排查广西柳州全辖各营业网点、办公大楼、自助设备安全及运营状况，全面摸清机构受灾情况，严防次生安全风险，确保金融服务渠道安全、稳定、畅通；同时，重点聚焦柳南区太阳村镇等震中核心区域，压实片区相关支行主体责任，细化排查任务，实时跟踪地方灾情动态，主动融入地方抗震救灾工作大局。
+报道还援引瑞士外交部说法称，会谈地点是由巴基斯坦、卡塔尔、美国、伊朗共同提议的。
 
-灾情就是命令。
+瑞士正在为会谈提供便利，并为此创造外交条件。
 
-建设银行广西柳州分行辖内各支行组织张富清党员突击队，通过电话、微信等方式逐一摸排受影响区域小微企业、个体工商户、农户等客户受灾情况，建立受灾主体台账，详细了解客户生产经营、资金周转及金融服务需求，针对性制定帮扶措施，全力为受灾群众和企业提供应急金融支持。
-
-广西某智能农机装备有限责任公司生产厂房位于震中太阳村，受此次地震冲击，企业生产被迫临时停工，生产线暂停运转，生产排布受到影响，短期生产经营、资金周转面临较大压力。
-
-5月18日上午，柳州分行了解到企业困境后，深入对接灾后复工资金需求，开通信贷绿色审批通道，助力企业尽快复工复产。
-
-下一步，建行将持续密切关注震区灾情变化和灾后恢复重建进度，全力做好各项金融服务保障工作，以实际行动践行“金融为民”的初心使命，助力柳州恢复生产生活秩序。
+美国总统特朗普14日宣布与伊朗达成停战谅解备忘录，正式签字仪式将于19日在瑞士举行。
 
 ## 相关推荐
 
-- 2026-06-30 08:27 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-30 08:48 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-30 08:53 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-30 08:46 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-30 08:45 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
-- 2026-06-30 08:35 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-30 08:38 - [第一次对自信的力量有了实感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-30 08:32 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
-- 2026-06-30 08:48 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
-- 2026-06-30 08:35 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-30 08:24 - [德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-30 08:31 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-30 08:29 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
-- 2026-06-30 08:36 - [德国进球被吹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-30 08:25 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-30 08:35 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
+- 2026-06-30 08:31 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-30 08:33 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
+- 2026-06-30 08:59 - [日本球员说被绝杀非常不甘心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-30 08:33 - [张雪的一句“是我们”引发岛内热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-30 08:52 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-30 08:43 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-30 08:44 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-30 08:42 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-30 08:51 - [莫兰特被交易到开拓者](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:38 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/354305654805.shtml)
-- 2026-06-30 08:35 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](http://www.blog.kurohicncr.top/Article/details/2538652.shtml)
-- 2026-06-30 08:48 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/289685078.shtml)
-- 2026-06-30 08:29 - [明星大侦探第一季](http://www.share.minike.top/Article/details/1900319524.shtml)
-- 2026-06-30 08:35 - [iPhone18e曝光](http://www.share.kurohicncr.top/Article/details/902294879648.shtml)
-- 2026-06-30 08:48 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/994128805.shtml)
-- 2026-06-30 08:48 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/988336143715.shtml)
-- 2026-06-30 08:43 - [王源近几年没有路演了](http://www.share.kurohicncr.top/Article/details/733107263.shtml)
-- 2026-06-30 08:52 - [巴西替补奇兵读秒绝杀](https://www.share.kurohicncr.top/Article/details/116500.shtml)
-- 2026-06-30 08:29 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/21616.shtml)
-- 2026-06-30 08:39 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/459610786.shtml)
-- 2026-06-30 08:52 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/503474556.shtml)
-- 2026-06-30 08:38 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/827827703918.shtml)
-- 2026-06-30 08:25 - [被巴西绝杀后 日球员田中碧跪地痛哭](http://www.blog.kurohicncr.top/Article/details/89697672963.shtml)
-- 2026-06-30 08:31 - [扬名立万](https://www.blog.minike.top/Article/details/32469.shtml)
+- 2026-06-30 08:46 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/969350908813.shtml)
+- 2026-06-30 08:38 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/659092.shtml)
+- 2026-06-30 08:50 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/390718152.shtml)
+- 2026-06-30 08:58 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/0326256679.shtml)
+- 2026-06-30 08:34 - [警犬“多多”助民警寻回失联老人](http://www.blog.minike.top/Article/details/90309197.shtml)
+- 2026-06-30 08:30 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/07704.shtml)
+- 2026-06-30 08:48 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/309741391.shtml)
+- 2026-06-30 08:51 - [iPhone18e曝光](http://www.blog.minike.top/Article/details/872604.shtml)
+- 2026-06-30 08:33 - [关晓彤一路小跑迎接爸爸探班](https://www.share.kurohicncr.top/Article/details/91633037.shtml)
+- 2026-06-30 08:32 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/14415802.shtml)
+- 2026-06-30 08:47 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/551213732617.shtml)
+- 2026-06-30 08:49 - [本届世界杯已有5名球员被控强奸](https://www.share.kurohicncr.top/Article/details/711115031677.shtml)
+- 2026-06-30 08:51 - [孙颖莎王楚钦晋级8强](https://www.share.kurohicncr.top/Article/details/5581009.shtml)
+- 2026-06-30 08:34 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/87649.shtml)
+- 2026-06-30 08:44 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/40023.shtml)

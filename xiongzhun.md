@@ -1,61 +1,59 @@
-# M4Markets:金价剧震下蓄力新方向
+# 国台办：民进党当局对日菲严重侵权行径卑躬屈膝 已沦为民族败类
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-5月18日，国际金价进入高波动阶段，单日跌幅一度突破百美元关口，市场对短期方向产生明显分歧。市场分析人士认为，美元走强、美债收益率攀升以及实际利率上行三重压力同步发力，是导致贵金属从近期高位回调的核心宏观背景，机构端的获利兑现动作进一步对短线价格形成压制，多空力量的快速切换令观望情绪明显升温。 从地缘维度观察，伊朗局势胶着、原油价格走高，使得通胀预期重新被市场审视。多家投行分析
+6月17日，国务院台办举行例行新闻发布会。有记者问：大陆在台湾东部海域开展海上交通专项执法行动，民进党当局称，大陆无权以任何理由对台湾东部海域主张执法权。请问发言人对此有何评论？ 发言人陈斌华表示，世界上只有一个中国，台湾是中国一部分，日菲宣布的拟划界海域位于台湾岛以东，中国在上述海域拥有专属经济区和大陆架。日菲绕开中国擅自启动所谓“划界谈判”严重违反国际法和国际关系基本准则，
 
 ## 正文
 
-5月18日，国际金价进入高波动阶段，单日跌幅一度突破百美元关口，市场对短期方向产生明显分歧。
+6月17日，国务院台办举行例行新闻发布会。
 
-市场分析人士认为，美元走强、美债收益率攀升以及实际利率上行三重压力同步发力，是导致贵金属从近期高位回调的核心宏观背景，机构端的获利兑现动作进一步对短线价格形成压制，多空力量的快速切换令观望情绪明显升温。
+有记者问：大陆在台湾东部海域开展海上交通专项执法行动，民进党当局称，大陆无权以任何理由对台湾东部海域主张执法权。
 
-从地缘维度观察，伊朗局势胶着、原油价格走高，使得通胀预期重新被市场审视。
+请问发言人对此有何评论？
 
-多家投行分析称，金价此轮调整属于阶段性筹码再分配过程，长期央行购金趋势并未发生改变，机构端的短线调仓更多体现的是风险管理动作，而非对趋势的根本性否定，长线配置逻辑并未弱化，结构性买盘仍在伺机布局。
+发言人陈斌华表示，世界上只有一个中国，台湾是中国一部分，日菲宣布的拟划界海域位于台湾岛以东，中国在上述海域拥有专属经济区和大陆架。
 
-在技术层面，4500美元一线被市场普遍视作多空争夺关键位。
+日菲绕开中国擅自启动所谓“划界谈判”严重违反国际法和国际关系基本准则，严重侵害中国海洋权益，完全非法无效。
 
-策略师强调，能否守住该支撑将决定中线方向选择，部分长期资金更愿意在回调中分批介入。
+大陆海警在台湾岛以东海域依法开展执法巡查，是针对日菲严重侵犯中国领土主权和海域权益采取的必要行动，并将继续加强对有关海域的管控。
 
-多家机构表示，节奏感比绝对位置更重要，过度追逐短期反弹并不可取，理性应对优于情绪化操作。
+民进党当局对日菲的严重侵权行径卑躬屈膝，出卖民族利益，沦为民族败类，已经遭到包括台湾同胞在内的两岸同胞的反对和唾弃，其企图升高两岸对立的做法说法，不过是在转移压力欺骗民众。
 
-在操作层面，提醒投资者保持仓位克制，避免在情绪极端时刻做出激进调整。
+(总台央视记者 张雪松 赵超逸)
 
 ## 相关推荐
 
-- 2026-06-30 08:30 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-30 08:28 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-30 08:44 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-30 08:44 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-30 08:41 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-30 08:47 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-30 08:43 - [库尼亚赛后伸五指嘲讽日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-30 08:44 - [世界杯欧洲队7战南美仅1胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-30 08:26 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-30 08:34 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
-- 2026-06-30 08:35 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-30 08:52 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-30 08:41 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-30 08:34 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-30 08:39 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-30 08:36 - [武磊：巴西队赢的并不轻松](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-30 08:55 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-30 08:42 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-30 08:55 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-30 08:53 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-30 08:41 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-30 08:40 - [媒体：手机测评该挤挤水分了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-30 08:36 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-30 08:44 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-30 08:59 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-30 08:53 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
+- 2026-06-30 08:37 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-30 08:35 - [全新问界M9现身美国街头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:36 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/3911130.shtml)
-- 2026-06-30 08:35 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/813549.shtml)
-- 2026-06-30 08:42 - [扬名立万](http://www.blog.minike.top/Article/details/471321183.shtml)
-- 2026-06-30 08:24 - [哈弗茨头球破门](http://www.share.kurohicncr.top/Article/details/6471269964.shtml)
-- 2026-06-30 08:31 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/40787.shtml)
-- 2026-06-30 08:37 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/49185101.shtml)
-- 2026-06-30 08:39 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/436892.shtml)
-- 2026-06-30 08:50 - [内马尔中场休息积极鼓励队友](https://www.share.minike.top/Article/details/8724787096.shtml)
-- 2026-06-30 08:29 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/9761307.shtml)
-- 2026-06-30 08:29 - [韩国道歉完日本道歉](http://www.share.kurohicncr.top/Article/details/988673769.shtml)
-- 2026-06-30 08:34 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/80117477163.shtml)
-- 2026-06-30 08:42 - [网红峡谷5人溺亡 有人提醒会下雨](https://www.blog.minike.top/Article/details/460455160.shtml)
-- 2026-06-30 08:39 - [建议不要突然完全停止喝咖啡](http://www.blog.minike.top/Article/details/3100693.shtml)
-- 2026-06-30 08:44 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/55388.shtml)
-- 2026-06-30 08:40 - [孙颖莎王楚钦晋级8强](http://www.blog.kurohicncr.top/Article/details/4142458498.shtml)
+- 2026-06-30 08:53 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/70326.shtml)
+- 2026-06-30 08:50 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.minike.top/Article/details/539345065289.shtml)
+- 2026-06-30 08:32 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/4620936.shtml)
+- 2026-06-30 08:51 - [【大鸣王潮1566】真拿你没办法](http://www.share.minike.top/Article/details/517368562.shtml)
+- 2026-06-30 08:54 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/9667767322.shtml)
+- 2026-06-30 08:53 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/55017.shtml)
+- 2026-06-30 08:49 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/169769148973.shtml)
+- 2026-06-30 08:54 - [啊啊啊](https://www.blog.minike.top/Article/details/44745167.shtml)
+- 2026-06-30 08:37 - [开电动汽车真的很省钱吗？](http://www.blog.kurohicncr.top/Article/details/34735969.shtml)
+- 2026-06-30 08:53 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/949671.shtml)
+- 2026-06-30 08:39 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/05547907619.shtml)
+- 2026-06-30 08:59 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.minike.top/Article/details/78755233624.shtml)
+- 2026-06-30 08:41 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.blog.kurohicncr.top/Article/details/795898.shtml)
+- 2026-06-30 08:39 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/522707.shtml)
+- 2026-06-30 08:49 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/0772252.shtml)

@@ -1,50 +1,57 @@
-# 英美资源集团将以最高38.8亿美元出售澳大利亚煤矿资产
+# Carvana进军新车销售领域，此举或将重塑美国汽车零售市场
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-资源集团周一宣布，已达成协议，将旗下澳大利亚炼焦煤矿作价最高38.8亿美元出售给英国矿业企业迪尔玛公司，这家伦敦上市企业借此精简自身业务资产组合。 该交易包含23亿美元首期现金款项，以及最高15.8亿美元与煤炭价格挂钩的浮动收益，所得资金将专门用于偿还债务。 英美资源集团首席英美资源集团将以最高38.8亿美元出售澳大利亚煤矿资产执行官邓肯・万布拉德在声明中表示：“通过此次交易，
+核心要点 在成长为美国头部二手车零售商后，Carvana正式向新车市场扩张。 自去年开始，该公司悄悄拿下 7 家新车经销授权门店，主营斯泰兰蒂斯旗下克莱斯勒、道奇、Jeep、公羊品牌。其中位于亚利桑那州的门店，现已成为该车企在美国销量最高的经销门店。 经销商与业内专家认为，此次布局即便不能彻底重塑百年沿袭的新车授权经销体系，也将给行业带来颠覆性冲击。 资深华尔街分析师、汽车行业
 
 ## 正文
 
-资源集团周一宣布，已达成协议，将旗下澳大利亚炼焦煤矿作价最高38.8亿美元出售给英国矿业企业迪尔玛公司，这家伦敦上市企业借此精简自身业务资产组合。
+核心要点 在成长为美国头部二手车零售商后，Carvana正式向新车市场扩张。
 
-该交易包含23亿美元首期现金款项，以及最高15.8亿美元与煤炭价格挂钩的浮动收益，所得资金将专门用于偿还债务。
+自去年开始，该公司悄悄拿下 7 家新车经销授权门店，主营斯泰兰蒂斯旗下克莱斯勒、道奇、Jeep、公羊品牌。
 
-英美资源集团首席英美资源集团将以最高38.8亿美元出售澳大利亚煤矿资产执行官邓肯・万布拉德在声明中表示：“通过此次交易，我们将彻底退出炼焦煤业务领域。
+其中位于亚利桑那州的门店，现已成为该车企在美国销量最高的经销门店。
 
-”责任编辑：江学思
+经销商与业内专家认为，此次布局即便不能彻底重塑百年沿袭的新车授权经销体系，也将给行业带来颠覆性冲击。
+
+资深华尔街分析师、汽车行业咨询顾问约翰・墨菲在接受 采访时表示：“Carvana入局新车授权经销业务，堪称美国汽车零售行业数十年来最具颠覆性的事件之一。
+
+” 美国全国汽车经销商协会数据显示，全美现有 16990 家授权汽车经销商，去年行业总销售额突破 1.3 万亿美元。
+
+这套成熟的经销体系向来抗拒变革，但近年来，无论是疫情冲击，还是上市经销商集团规模化发展，为了生存，各地经销商的经营模式也在不断灵活调整。
+
+Carvana位于亚利桑那州卡萨格兰德的首家斯泰兰蒂斯新车门店业务增长迅猛。
 
 ## 相关推荐
 
-- 2026-06-30 08:49 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-30 08:38 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
-- 2026-06-30 08:30 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
-- 2026-06-30 08:49 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-30 08:51 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-30 08:36 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
-- 2026-06-30 08:39 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-30 08:32 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-30 08:30 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
-- 2026-06-30 08:34 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-30 08:28 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
-- 2026-06-30 08:45 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-30 08:59 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-30 08:42 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-30 08:49 - [金鹰奖视后提名预测](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-30 08:56 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-30 08:51 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
+- 2026-06-30 08:35 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-30 08:31 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-30 08:57 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-30 08:39 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-30 08:37 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-30 08:50 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:27 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/023248074.shtml)
-- 2026-06-30 08:46 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.kurohicncr.top/Article/details/29977.shtml)
-- 2026-06-30 08:31 - [啊啊啊](https://www.blog.minike.top/Article/details/903408142.shtml)
-- 2026-06-30 08:32 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://www.share.minike.top/Article/details/3738185.shtml)
-- 2026-06-30 08:28 - [王欣瑜2-1击败科恰雷托](https://www.share.kurohicncr.top/Article/details/0964784.shtml)
-- 2026-06-30 08:47 - [张雪的一句“是我们”引发岛内热议](https://www.blog.minike.top/Article/details/555248.shtml)
-- 2026-06-30 08:34 - [德国巴拉圭加时](http://www.share.kurohicncr.top/Article/details/386470668095.shtml)
-- 2026-06-30 08:35 - [内马尔中场休息积极鼓励队友](https://www.share.kurohicncr.top/Article/details/11462139570.shtml)
-- 2026-06-30 08:47 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/594592035094.shtml)
-- 2026-06-30 08:35 - [韩乔生吐槽世界杯扩军](https://www.blog.kurohicncr.top/Article/details/8507664670.shtml)
-- 2026-06-30 08:37 - [【涤墨作战7人870】望：我从地狱杀回来了！](http://www.share.kurohicncr.top/Article/details/314296.shtml)
-- 2026-06-30 08:27 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://www.blog.minike.top/Article/details/089632117021.shtml)
-- 2026-06-30 08:50 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/1376245225.shtml)
-- 2026-06-30 08:26 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/1849928.shtml)
-- 2026-06-30 08:30 - [媒体评哈兰德之歌火了](http://www.blog.kurohicncr.top/Article/details/58381684499.shtml)
+- 2026-06-30 08:55 - [德国巴拉圭 折磨](https://www.blog.kurohicncr.top/Article/details/742249.shtml)
+- 2026-06-30 08:39 - [问心2神一集鬼三集](https://www.share.minike.top/Article/details/10516881969.shtml)
+- 2026-06-30 08:48 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/420569093.shtml)
+- 2026-06-30 08:41 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/278531.shtml)
+- 2026-06-30 08:48 - [点球大战 残酷](https://www.blog.minike.top/Article/details/708162.shtml)
+- 2026-06-30 08:43 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/482490984.shtml)
+- 2026-06-30 08:59 - [黄晓明晒和周杰伦的合照](http://www.blog.minike.top/Article/details/3456479481.shtml)
+- 2026-06-30 08:31 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/81454377.shtml)
+- 2026-06-30 08:38 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/52889.shtml)
+- 2026-06-30 08:39 - [孙兴慜道歉](http://www.blog.kurohicncr.top/Article/details/582712308.shtml)
+- 2026-06-30 08:45 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/057155058.shtml)
+- 2026-06-30 08:30 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/09442755044.shtml)
+- 2026-06-30 08:33 - [巴西足球能否再现昔日荣光](http://www.share.minike.top/Article/details/4078650.shtml)
+- 2026-06-30 08:41 - [这几秒成世界杯最值钱广告位](http://www.blog.kurohicncr.top/Article/details/58958462.shtml)
+- 2026-06-30 08:41 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/45587211.shtml)

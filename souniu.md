@@ -1,58 +1,57 @@
-# 大湾区打造国际数据流通“先行区”
+# 民生调查局｜用AI做旅游攻略：“被忽悠白花了1000块钱”
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-大湾区打造国际数据流通“先行区” 数据特区聚焦制度创新、基础设施、场景应用、生态融通4方面 记者从5月18日粤港澳大湾区数据特区创新合作中心启动大会上获悉，数据特区之“特”，在于制度创新、基础设施、场景应用、生态融通4个方面。 作为全球唯一在“一个国家、两种制度、三个关税区、三种货币”条件下建设的区域，粤港澳大湾区数据流动与要素融合的需求尤为突出，也为探索兼顾安全与效率的数据跨
+中新网北京6月17日电(记者 刘星晨)端午假期脚步临近，你的出游计划做好了吗？定行程、找酒店、规划景点路线，如今越来越多人把这些出行前的繁琐准备工作放权给AI。但几次假期过后，有游客表示：用AI做攻略被坑惨了。又是小长假，你还会相信AI吗？ 定行程：有人被AI忽悠，白花了1000块 不要太相信AI，不然出现计划外事件时有种被背刺的感觉，这是大璐女士被坑之后总结的心得。 旅游出发
 
 ## 正文
 
-大湾区打造国际数据流通“先行区” 数据特区聚焦制度创新、基础设施、场景应用、生态融通4方面 记者从5月18日粤港澳大湾区数据特区创新合作中心启动大会上获悉，数据特区之“特”，在于制度创新、基础设施、场景应用、生态融通4个方面。
+中新网北京6月17日电(记者 刘星晨)端午假期脚步临近，你的出游计划做好了吗？
 
-作为全球唯一在“一个国家、两种制度、三个关税区、三种货币”条件下建设的区域，粤港澳大湾区数据流动与要素融合的需求尤为突出，也为探索兼顾安全与效率的数据跨境流通提供了绝佳试验场，更有望为解决全球数据治理碎片化问题贡献中国智慧和中国方案。
+定行程、找酒店、规划景点路线，如今越来越多人把这些出行前的繁琐准备工作放权给AI。
 
-据介绍，数据特区的核心实践，将依托横琴、前海、南沙、河套、汕头华侨试验区等平台，在数据跨境领域开展差异化探索，充分发挥“一国两制”独特优势推动数据要素高效流通与价值深度释放。
+但几次假期过后，有游客表示：用AI做攻略被坑惨了。
 
-●南方日报记者 肖文舸 探索数据跨境流动、对接国际规则的天然试验场 随着全球数字化浪潮纵深推进，数据已从单纯的信息载体成为核心战略资源，其价值挖掘与流通配置的效率，直接决定了国家或地区的数字竞争力。
+又是小长假，你还会相信AI吗？
 
-据‌经济合作与发展组织‌(OECD)测算，‌数据流动对各行业利润增长的平均促进率为10%‌，在数字平台、金融业等行业中可达‌32%。
+定行程：有人被AI忽悠，白花了1000块 不要太相信AI，不然出现计划外事件时有种被背刺的感觉，这是大璐女士被坑之后总结的心得。
 
-我国加速推进数据要素市场化配置改革，积极参与全球数字治理。
+旅游出发前，她向AI大模型咨询了景点信息和自驾路程，结果却“痛失”136元。
 
-今年3月30日，世界数据组织在北京成立，旨在促进数据在合规、安全、可信前提下交流与利用，服务全球数字经济发展。
+“AI说宋茗茶博园是免费的，但开了一个小时车到园区，却被告知不是酒店住客就需要买票，我们两个人花了136元进去喝了2杯成本也就15元的特级白茶。
 
-2025年，全国年度数据生产总量达52.26泽字节(ZB)，同比增长27.28%，数据要素价值不断释放。
+” 事后复盘过程中，大璐女士认为，AI数据库并非实时更新，“有可能景区比较偏，只有住酒店的人会去玩，它就默认去逛逛不花钱。
 
 ## 相关推荐
 
-- 2026-06-30 08:52 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-30 08:34 - [日本将帅赛后采访纷纷哽咽落泪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-30 08:25 - [日本球迷被强行披上巴西国旗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
-- 2026-06-30 08:28 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
-- 2026-06-30 08:51 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-30 08:48 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-30 08:25 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-30 08:51 - [为什么小组赛出局会让韩国人破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
-- 2026-06-30 08:43 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-30 08:36 - [德国淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-30 08:48 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-30 08:25 - [4000美元是黄金新一轮下跌的开始吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-30 08:44 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-30 08:57 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-30 08:43 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-30 08:48 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-30 08:32 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-30 08:50 - [穆祉丞回应获年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-30 08:47 - [森保一 保守](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
+- 2026-06-30 08:59 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-30 08:43 - [锐评T1战胜KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-30 08:31 - [杨紫肖战余生请多指教拍立得](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-30 08:51 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:45 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/231115.shtml)
-- 2026-06-30 08:26 - [IGN评测电影版后室](https://www.blog.minike.top/Article/details/24924739704.shtml)
-- 2026-06-30 08:31 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/35417920.shtml)
-- 2026-06-30 08:53 - [扫黑风暴](http://www.share.minike.top/Article/details/5983656482.shtml)
-- 2026-06-30 08:29 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/969601881.shtml)
-- 2026-06-30 08:32 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/17917.shtml)
-- 2026-06-30 08:46 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/8933766.shtml)
-- 2026-06-30 08:47 - [爱很美味](http://www.blog.minike.top/Article/details/1893884.shtml)
-- 2026-06-30 08:52 - [世界杯欧洲队7战南美仅1胜](https://www.blog.minike.top/Article/details/192424839382.shtml)
-- 2026-06-30 08:29 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/429173413.shtml)
-- 2026-06-30 08:52 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/670704263965.shtml)
-- 2026-06-30 08:42 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://www.share.minike.top/Article/details/07215776810.shtml)
-- 2026-06-30 08:38 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/504336848.shtml)
-- 2026-06-30 08:24 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/336929727639.shtml)
-- 2026-06-30 08:26 - [泰山景区回应修建刀片刺绳隔离网](https://www.share.kurohicncr.top/Article/details/66311.shtml)
+- 2026-06-30 08:35 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/808707.shtml)
+- 2026-06-30 08:53 - [急先锋](http://www.blog.minike.top/Article/details/82708509003.shtml)
+- 2026-06-30 08:41 - [自然光｜papi酱&窦文涛：驴与跑步机](https://www.share.kurohicncr.top/Article/details/216713052.shtml)
+- 2026-06-30 08:39 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/13878.shtml)
+- 2026-06-30 08:39 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/52314806094.shtml)
+- 2026-06-30 08:59 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/91563.shtml)
+- 2026-06-30 08:34 - [乔家的儿女](https://www.share.minike.top/Article/details/4389180.shtml)
+- 2026-06-30 08:39 - [巴拉圭先进球了](http://www.blog.kurohicncr.top/Article/details/544100592669.shtml)
+- 2026-06-30 08:38 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/677677713972.shtml)
+- 2026-06-30 08:40 - [日本球员说被绝杀非常不甘心](https://www.share.minike.top/Article/details/150153352661.shtml)
+- 2026-06-30 08:35 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/850652651067.shtml)
+- 2026-06-30 08:46 - [扬名立万](http://www.share.minike.top/Article/details/33502035.shtml)
+- 2026-06-30 08:40 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/681622344.shtml)
+- 2026-06-30 08:37 - [《共患难》](http://www.share.minike.top/Article/details/66834180.shtml)
+- 2026-06-30 08:34 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/19706420653.shtml)

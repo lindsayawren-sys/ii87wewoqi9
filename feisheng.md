@@ -1,58 +1,52 @@
-# 美方发布特朗普访华事实清单 中方回应
+# 黑龙江省纪委副书记姜宏伟任上被查
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-中新网北京5月18日电 (记者 黄钰钦 曾玥)中国外交部发言人郭嘉昆18日主持例行记者会。 有记者提问：白宫发布了特朗普总统访华的事实清单，介绍此访的有关成果，请问中方对此有何评论？ 郭嘉昆：访问期间，两国元首同意将“中美建设性战略稳定关系”作为两国关系的新定位，就下阶段高层交往和外交、经贸、两军、执法等各领域对话合作作出规划，就共同关心的国际和地区热点问题深入交换意见。中方表
+中新社北京6月16日电 中国官方16日通报，黑龙江省纪委副书记、省监委副主任姜宏伟涉嫌严重违纪违法，目前正接受中央纪委国家监委纪律审查和监察调查。 公开资料显示，姜宏伟，生于1968年1月，黑龙江五常人。他长期在黑龙江工作，曾任省森林工业总局政策法规处处长，省森工总局(中国龙江森工集团总公司)党委委员、组织部部长，佳木斯市委常委、纪委书记等职。2020年，姜宏伟任黑龙江省纪委副
 
 ## 正文
 
-中新网北京5月18日电 (记者 黄钰钦 曾玥)中国外交部发言人郭嘉昆18日主持例行记者会。
+中新社北京6月16日电 中国官方16日通报，黑龙江省纪委副书记、省监委副主任姜宏伟涉嫌严重违纪违法，目前正接受中央纪委国家监委纪律审查和监察调查。
 
-有记者提问：白宫发布了特朗普总统访华的事实清单，介绍此访的有关成果，请问中方对此有何评论？
+公开资料显示，姜宏伟，生于1968年1月，黑龙江五常人。
 
-郭嘉昆：访问期间，两国元首同意将“中美建设性战略稳定关系”作为两国关系的新定位，就下阶段高层交往和外交、经贸、两军、执法等各领域对话合作作出规划，就共同关心的国际和地区热点问题深入交换意见。
+他长期在黑龙江工作，曾任省森林工业总局政策法规处处长，省森工总局(中国龙江森工集团总公司)党委委员、组织部部长，佳木斯市委常委、纪委书记等职。
 
-中方表明了在伊朗、朝鲜半岛核等问题上的一贯立场，要求美方正视有关各方的合理关切，坚持通过对话谈判和平解决问题。
-
-双方经贸团队本着平等、尊重、互惠的态度进行磋商，就稳定中美经贸关系、妥善解决各自关切，达成了总体平衡、积极的成果。
-
-中方愿同美方一道，全面、准确落实好两国元首达成的重要共识，加强对话，拓展合作，妥善处理分歧和敏感问题，不断丰富“中美建设性战略稳定关系”的内涵，推动中美关系稳定、健康、可持续发展。
+2020年，姜宏伟任黑龙江省纪委副书记、省监委副主任。
 
 (完)
 
 ## 相关推荐
 
-- 2026-06-30 08:53 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
-- 2026-06-30 08:29 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-30 08:30 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-30 08:44 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-30 08:36 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-30 08:34 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-30 08:32 - [日本五次世界杯淘汰赛全败](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-30 08:39 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
-- 2026-06-30 08:25 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-30 08:46 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-30 08:29 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-30 08:33 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
-- 2026-06-30 08:48 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-30 08:41 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-30 08:33 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-30 08:39 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-30 08:48 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-30 08:52 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-30 08:56 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-30 08:55 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-30 08:57 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-30 08:36 - [库尼亚赛后伸五指嘲讽日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-30 08:36 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-30 08:38 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-30 08:47 - [孙颖莎王楚钦晋级8强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-30 08:34 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:32 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/505153264818.shtml)
-- 2026-06-30 08:37 - [斛珠夫人](https://www.share.minike.top/Article/details/014825035197.shtml)
-- 2026-06-30 08:37 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/6408347.shtml)
-- 2026-06-30 08:50 - [徐亮怒斥世界杯踢假球](https://www.share.kurohicncr.top/Article/details/84023332669.shtml)
-- 2026-06-30 08:33 - [德国 传控](http://www.blog.kurohicncr.top/Article/details/608962.shtml)
-- 2026-06-30 08:28 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.kurohicncr.top/Article/details/4397691.shtml)
-- 2026-06-30 08:25 - [韩国世界杯出局是主帅一个人的锅吗](http://www.share.minike.top/Article/details/89065.shtml)
-- 2026-06-30 08:32 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.blog.kurohicncr.top/Article/details/4734330957.shtml)
-- 2026-06-30 08:52 - [《共患难》](https://www.share.minike.top/Article/details/62539869244.shtml)
-- 2026-06-30 08:37 - [上市央企地产商 两年换了三任董事长](http://www.blog.kurohicncr.top/Article/details/3916967.shtml)
-- 2026-06-30 08:51 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/9870032605.shtml)
-- 2026-06-30 08:49 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](http://www.share.kurohicncr.top/Article/details/81745397814.shtml)
-- 2026-06-30 08:50 - [花少8要去世界杯举办国](http://www.blog.minike.top/Article/details/2789830941.shtml)
-- 2026-06-30 08:48 - [周冬雨多次说演不了话剧文城](http://www.blog.kurohicncr.top/Article/details/399462138.shtml)
-- 2026-06-30 08:51 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/48823.shtml)
+- 2026-06-30 08:35 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/63262961.shtml)
+- 2026-06-30 08:31 - [扫黑风暴](https://www.blog.minike.top/Article/details/757719253.shtml)
+- 2026-06-30 08:47 - [穆祉丞年度人气艺人](https://www.blog.minike.top/Article/details/327385502.shtml)
+- 2026-06-30 08:41 - [点球大战](http://www.share.kurohicncr.top/Article/details/12527383.shtml)
+- 2026-06-30 08:49 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.kurohicncr.top/Article/details/0525482235.shtml)
+- 2026-06-30 08:32 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/39580532816.shtml)
+- 2026-06-30 08:37 - [萨内 看笑了](http://www.blog.kurohicncr.top/Article/details/04610730.shtml)
+- 2026-06-30 08:45 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/11503.shtml)
+- 2026-06-30 08:36 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.kurohicncr.top/Article/details/36995048458.shtml)
+- 2026-06-30 08:55 - [上市央企地产商 两年换了三任董事长](http://www.blog.kurohicncr.top/Article/details/932992945041.shtml)
+- 2026-06-30 08:30 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/1649175856.shtml)
+- 2026-06-30 08:43 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/2967410.shtml)
+- 2026-06-30 08:59 - [田中碧失误](https://www.blog.minike.top/Article/details/28064674628.shtml)
+- 2026-06-30 08:35 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.kurohicncr.top/Article/details/5865774.shtml)
+- 2026-06-30 08:44 - [第一炉香](http://www.share.kurohicncr.top/Article/details/59298.shtml)

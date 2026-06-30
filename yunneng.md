@@ -1,59 +1,57 @@
-# 推动投资于物和投资于人紧密结合
+# 重磅！美官员：美伊协议已电子签署！多艘伊朗船只突破封锁！内塔尼亚胡：斗争仍未结束！全球资产逻辑变了？
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-【光明论坛】推动投资于物和投资于人紧密结合 在科大硅谷，科创平台为高端人才在前沿领域攻坚克难提供了保障；在湖北黄石智能工厂，实训基地为技能人才锤炼本领搭建舞台；在北京的养老驿站，众多青年养老服务师投身“夕阳事业”，奉献爱心成就自我……在这些并不鲜见的场景中，以投资于物筑牢发展根基，以投资于人积蓄内生动力，两者互为支撑，共促社会发展。 《中共中央关于制定国民经济和社会发展第十五个
+来源：期货日报 早上好，一起来看下中东最新消息！ 多艘伊朗船只顺利通过美方海上封锁区 央视新闻消息，据伊朗方面当地时间16日消息，3艘油轮和2艘载有伊朗基本物资的船只已突破美国方面实施的海上封锁。 另有消息称，多艘伊朗船只顺利穿过封锁区。根据船舶航行数据，一艘伊朗超大型原油运输船正从国际水域驶向伊朗港口，并已通过封锁区域。一艘运载牲畜饲料的船只也已穿过封锁区域，正在驶往伊朗。此
 
 ## 正文
 
-【光明论坛】推动投资于物和投资于人紧密结合 在科大硅谷，科创平台为高端人才在前沿领域攻坚克难提供了保障；在湖北黄石智能工厂，实训基地为技能人才锤炼本领搭建舞台；在北京的养老驿站，众多青年养老服务师投身“夕阳事业”，奉献爱心成就自我……在这些并不鲜见的场景中，以投资于物筑牢发展根基，以投资于人积蓄内生动力，两者互为支撑，共促社会发展。
+来源：期货日报 早上好，一起来看下中东最新消息！
 
-《中共中央关于制定国民经济和社会发展第十五个五年规划的建议》提出，坚持投资于物和投资于人紧密结合。
+多艘伊朗船只顺利通过美方海上封锁区 央视新闻消息，据伊朗方面当地时间16日消息，3艘油轮和2艘载有伊朗基本物资的船只已突破美国方面实施的海上封锁。
 
-这一重要理念，既契合中国式现代化建设的实践要求，也紧扣“现代化的本质是人的现代化”这一核心目标，为以中国式现代化推进强国建设、民族复兴伟业提供了重要指引。
+另有消息称，多艘伊朗船只顺利穿过封锁区。
 
-“投资”不只是资源配置的技术手段，更是特定生产关系的表现形式和实现方式。
+根据船舶航行数据，一艘伊朗超大型原油运输船正从国际水域驶向伊朗港口，并已通过封锁区域。
 
-投资于物与投资于人，二者辩证统一、不可偏废，片面强调任何一方面，都将产生不容忽视的问题。
+一艘运载牲畜饲料的船只也已穿过封锁区域，正在驶往伊朗。
 
-中国式现代化的投资于物，强调的是服务于全体人民共同富裕；投资于人，以实现人的自由全面发展为最终归宿，二者相互支撑、有机统一。
+此外，另一艘满载原油的伊朗油轮已通过阿曼湾及封锁线，正驶向其出口目的地。
 
-投资于物和投资于人紧密结合，是中国式现代化的题中应有之义。
+另据央视新闻报道，当地时间15日，伊朗外交部长阿拉格齐说，“我们已经完成了谅解备忘录”，其中部分条款15日就会执行，其余部分将在19日谅解备忘录签署后执行。
 
-中国式现代化坚持以人民为中心，把人民作为发展的出发点和落脚点，既遵循现代化进程中物质积累的普遍规律，又突出人的发展核心价值，以物质投资夯实发展根基，以对人的投资锚定发展方向，让全体人民共享现代化成果。
+霍尔木兹海峡爆炸声或与交通管理有关 央视新闻消息，据伊朗方面当地时间16日消息，霍尔木兹海峡和伊朗格什姆岛南部传出三次爆炸声。
 
 ## 相关推荐
 
-- 2026-06-30 08:46 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
-- 2026-06-30 08:50 - [4000美元是黄金新一轮下跌的开始吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
-- 2026-06-30 08:28 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
-- 2026-06-30 08:39 - [世界杯欧洲队7战南美仅1胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-30 08:43 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-30 08:24 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-30 08:49 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-30 08:47 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
-- 2026-06-30 08:36 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
-- 2026-06-30 08:46 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-30 08:37 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
-- 2026-06-30 08:29 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
-- 2026-06-30 08:52 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
+- 2026-06-30 08:57 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-30 08:33 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-30 08:52 - [郑钦文温网首轮出局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-30 08:49 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-30 08:47 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-30 08:54 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-30 08:40 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-30 08:59 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-30 08:44 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-30 08:58 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-30 08:36 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:52 - [徐亮怒斥世界杯踢假球](http://www.blog.kurohicncr.top/Article/details/7086314.shtml)
-- 2026-06-30 08:46 - [周冬雨多次说演不了话剧文城](http://www.share.minike.top/Article/details/284504.shtml)
-- 2026-06-30 08:44 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/6938417496.shtml)
-- 2026-06-30 08:50 - [巴西把自己踢晕了](https://www.share.kurohicncr.top/Article/details/243561971359.shtml)
-- 2026-06-30 08:28 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/41688565904.shtml)
-- 2026-06-30 08:38 - [巴西扳平比分](https://www.blog.minike.top/Article/details/48365218690.shtml)
-- 2026-06-30 08:30 - [峡谷事故团队组队时有人提醒会下雨](https://www.share.minike.top/Article/details/00972.shtml)
-- 2026-06-30 08:32 - [勇士续约波尔津吉斯](http://www.share.kurohicncr.top/Article/details/01572448.shtml)
-- 2026-06-30 08:51 - [二次元提前预演明日巴西对日本](https://www.share.minike.top/Article/details/33092705.shtml)
-- 2026-06-30 08:53 - [南北多地暴雨和强对流天气持续](https://www.blog.minike.top/Article/details/423357.shtml)
-- 2026-06-30 08:25 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/994168499.shtml)
-- 2026-06-30 08:25 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/096509.shtml)
-- 2026-06-30 08:47 - [欧洲民众抢购空调降温](http://www.blog.minike.top/Article/details/7311799198.shtml)
-- 2026-06-30 08:35 - [恋与深空制作组回应近期争议](https://www.blog.kurohicncr.top/Article/details/56847.shtml)
-- 2026-06-30 08:53 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/25386255567.shtml)
+- 2026-06-30 08:48 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/96041205774.shtml)
+- 2026-06-30 08:41 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/974034263502.shtml)
+- 2026-06-30 08:40 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/018648.shtml)
+- 2026-06-30 08:49 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/412142577178.shtml)
+- 2026-06-30 08:42 - [巴西绝杀日本：漫画般结局换了主角](http://www.share.kurohicncr.top/Article/details/866659525420.shtml)
+- 2026-06-30 08:42 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/50194.shtml)
+- 2026-06-30 08:35 - [日本半场1比0领先巴西](http://www.blog.minike.top/Article/details/36044995.shtml)
+- 2026-06-30 08:58 - [德国巴拉圭 折磨](https://www.share.kurohicncr.top/Article/details/84067.shtml)
+- 2026-06-30 08:36 - [曝灰熊将莫兰特交易至开拓者](http://www.blog.kurohicncr.top/Article/details/508147288.shtml)
+- 2026-06-30 08:55 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/345220.shtml)
+- 2026-06-30 08:36 - [美股](https://www.blog.minike.top/Article/details/4363103567.shtml)
+- 2026-06-30 08:50 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/57178018976.shtml)
+- 2026-06-30 08:40 - [日本将帅赛后采访纷纷哽咽落泪](https://www.blog.minike.top/Article/details/653931.shtml)
+- 2026-06-30 08:32 - [起风了](https://www.share.kurohicncr.top/Article/details/959485.shtml)
+- 2026-06-30 08:55 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/414723199.shtml)

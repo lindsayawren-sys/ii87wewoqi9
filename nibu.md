@@ -1,61 +1,50 @@
-# Anthropic严打对其股份的未授权交易 投资者担心持仓突然之间一文不值
+# 巨美集团拟折让约13.2%配售最多7488万股 净筹约3200万港元
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-在Anthropic扩大对购买其股票的热门渠道的禁令后，全球各地的投资者聊天群一片沸腾。 “我们是不是完了？”一名人士在一个拥有数百名成员的家族办公室WhatsApp群里写道。类似疑问也在X、Reddit以及中文社交媒体上更公开地扩散开来。投资者担心，他们持有的这家人工智能开发商股份 —— 也是最受追捧的未上市企业之一 —— 是否突然变得一文不值。 几天之后，情况依然不明朗。A
+巨美集团（01920）发布公告，于2026年6月15日，公司拟配售最多7488万股配售股份，相当于公司于本公告日期的现有已发行股本的14.60%；及公司经配发及发行配售股份扩大的已发行股本的约12.74%。每股配售股份的配售价0.434港元较6月15日收市价每股股份0.50港元折让约13.2%。 假设配售代理成功配售所有配售股份，配售的最高所得款项总额将为约3250万港元。配售
 
 ## 正文
 
-在Anthropic扩大对购买其股票的热门渠道的禁令后，全球各地的投资者聊天群一片沸腾。
+巨美集团（01920）发布公告，于2026年6月15日，公司拟配售最多7488万股配售股份，相当于公司于本公告日期的现有已发行股本的14.60%；及公司经配发及发行配售股份扩大的已发行股本的约12.74%。
 
-“我们是不是完了？
+每股配售股份的配售价0.434港元较6月15日收市价每股股份0.50港元折让约13.2%。
 
-”一名人士在一个拥有数百名成员的家族办公室WhatsApp群里写道。
+假设配售代理成功配售所有配售股份，配售的最高所得款项总额将为约3250万港元。
 
-类似疑问也在X、Reddit以及中文社交媒体上更公开地扩散开来。
+配售的最高所得款项净额将为约3200万港元，将用于可能获授新坭水工程项目及营运资金。
 
-投资者担心，他们持有的这家人工智能开发商股份 —— 也是最受追捧的未上市企业之一 —— 是否突然变得一文不值。
-
-几天之后，情况依然不明朗。
-
-Anthropic PBC上周在其网站就未授权股份出售发出了措辞严厉的警告，非同寻常地直接点名八家机构，称其提供的相关份额将被视为无效。
-
-该公司还明确禁止投资者通过特殊目的载体购买股份。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 08:36 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-30 08:43 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-30 08:38 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-30 08:46 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
-- 2026-06-30 08:51 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-30 08:31 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-30 08:33 - [田中碧失误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-30 08:39 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-30 08:31 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
-- 2026-06-30 08:43 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-30 08:31 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
-- 2026-06-30 08:29 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
-- 2026-06-30 08:33 - [董路：谁赢谁是“正路子”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-30 08:38 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
-- 2026-06-30 08:53 - [4000美元是黄金新一轮下跌的开始吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-30 08:35 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-30 08:58 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-30 08:39 - [张月收到黄灿灿辣货两眼发光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-30 08:57 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
+- 2026-06-30 08:49 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-30 08:30 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
+- 2026-06-30 08:31 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-30 08:42 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-30 08:50 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-30 08:55 - [库尼亚赛后伸五指嘲讽日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:49 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/57829667.shtml)
-- 2026-06-30 08:26 - [日本球员说被绝杀非常不甘心](https://www.blog.minike.top/Article/details/13435831263.shtml)
-- 2026-06-30 08:53 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/14667081100.shtml)
-- 2026-06-30 08:49 - [绘画区你赢了](https://www.share.minike.top/Article/details/052294969.shtml)
-- 2026-06-30 08:43 - [张月收到黄灿灿辣货两眼发光](http://www.blog.kurohicncr.top/Article/details/62130.shtml)
-- 2026-06-30 08:49 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/184810827.shtml)
-- 2026-06-30 08:42 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/42721465.shtml)
-- 2026-06-30 08:41 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/24409.shtml)
-- 2026-06-30 08:34 - [巴西2比1日本](http://www.share.kurohicncr.top/Article/details/145753162.shtml)
-- 2026-06-30 08:27 - [曝灰熊将莫兰特交易至开拓者](http://www.blog.kurohicncr.top/Article/details/562418581490.shtml)
-- 2026-06-30 08:37 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/00591929954.shtml)
-- 2026-06-30 08:26 - [张雪的一句“是我们”引发岛内热议](http://www.blog.kurohicncr.top/Article/details/9702085.shtml)
-- 2026-06-30 08:32 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://www.share.minike.top/Article/details/89624.shtml)
-- 2026-06-30 08:54 - [AI手机进入Agent时代](http://www.blog.kurohicncr.top/Article/details/1314970.shtml)
-- 2026-06-30 08:29 - [我觉得你是在无中生友](http://www.share.kurohicncr.top/Article/details/84182206.shtml)
+- 2026-06-30 08:45 - [莫兰特被交易到开拓者](http://www.blog.kurohicncr.top/Article/details/45852873.shtml)
+- 2026-06-30 08:57 - [藤森庆子赢得秘鲁总统选举](https://www.share.kurohicncr.top/Article/details/35477.shtml)
+- 2026-06-30 08:59 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/93532.shtml)
+- 2026-06-30 08:40 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/8369276.shtml)
+- 2026-06-30 08:45 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/6389628042.shtml)
+- 2026-06-30 08:38 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.blog.minike.top/Article/details/5729603304.shtml)
+- 2026-06-30 08:38 - [杨紫大银幕成绩单如何](http://www.share.kurohicncr.top/Article/details/0861537.shtml)
+- 2026-06-30 08:57 - [iPhone18e曝光](https://www.blog.minike.top/Article/details/1185256.shtml)
+- 2026-06-30 08:58 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/62714214998.shtml)
+- 2026-06-30 08:42 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/09217537440.shtml)
+- 2026-06-30 08:32 - [王曼昱被突如其来的话筒逗笑了](https://www.blog.minike.top/Article/details/9637048.shtml)
+- 2026-06-30 08:42 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/282815.shtml)
+- 2026-06-30 08:50 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/11184705551.shtml)
+- 2026-06-30 08:50 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.kurohicncr.top/Article/details/1152947.shtml)
+- 2026-06-30 08:30 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/171706998743.shtml)

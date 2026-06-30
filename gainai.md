@@ -1,58 +1,50 @@
-# 流量难越税法红线，新业态当守纳税本分
+# 深圳市市场监督管理局集中约谈美团、淘宝闪购和京东外卖平台
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-瞿周 近日，北京税务部门查处“百万学员”知识主播王仲焘偷税案。经查，2020年至2023年，其售卖线上创业课程期间，通过隐匿收入、转换收入性质、虚假申报等手段偷逃税费119.61万元。税务部门依法对其追缴税款、加收滞纳金并处罚款合计231.6万元，目前全部款项已足额入库。 近年来，知识付费乘着数字经济东风快速崛起，线上授课、IP孵化、技能培训等业态打通知识变现通道，众多知识主播
+中新网6月16日电 据“深圳市场监管”微信公众号消息，针对6月15日全市打击“幽灵外卖”统一执法行动发现的网络餐饮食品安全突出问题，深圳市市场监督管理局依法对美团、淘宝闪购、京东外卖三家网络餐饮平台驻深运营机构负责人进行约谈，现场送达《严格落实网络餐饮平台食品安全主体责任提醒敦促函》。约谈要求，平台要严格对照统一执法行动中发现的虚假地址、一址多店、证照不符、部分门店环境卫生脏乱
 
 ## 正文
 
-瞿周 近日，北京税务部门查处“百万学员”知识主播王仲焘偷税案。
+中新网6月16日电 据“深圳市场监管”微信公众号消息，针对6月15日全市打击“幽灵外卖”统一执法行动发现的网络餐饮食品安全突出问题，深圳市市场监督管理局依法对美团、淘宝闪购、京东外卖三家网络餐饮平台驻深运营机构负责人进行约谈，现场送达《严格落实网络餐饮平台食品安全主体责任提醒敦促函》。
 
-经查，2020年至2023年，其售卖线上创业课程期间，通过隐匿收入、转换收入性质、虚假申报等手段偷逃税费119.61万元。
+约谈要求，平台要严格对照统一执法行动中发现的虚假地址、一址多店、证照不符、部分门店环境卫生脏乱差等问题，立即启动全面整改，深入开展自查自纠，举一反三堵塞管理漏洞，确保问题见底清零。
 
-税务部门依法对其追缴税款、加收滞纳金并处罚款合计231.6万元，目前全部款项已足额入库。
+约谈强调，平台必须严格落实《中华人民共和国电子商务法》《中华人民共和国食品安全法》，以及《网络餐饮服务经营者落实食品安全主体责任监督管理规定》等法律法规，落实食品安全主体责任，从严审核入网资质，实地核验门店与证照信息，严禁无证、套证、假证商户上线，严禁跨店委托加工，健全常态化风险排查机制，自觉践行社会责任，坚决防范“幽灵外卖”乱象反弹，切实筑牢网络餐饮食品安全防线，全力守护市民群众“舌尖上的安全”。
 
-近年来，知识付费乘着数字经济东风快速崛起，线上授课、IP孵化、技能培训等业态打通知识变现通道，众多知识主播凭借专业内容积累大量粉丝、收获可观收益，成为新业态浪潮中的受益者。
-
-然而，一部分从业者却将流量红利异化为逃避责任的资本，把依法纳税的法定义务抛诸脑后。
-
-王仲焘坐拥百万学员、课程销量可观，却通过隐蔽手段偷逃税款，其行为并非个例，而是网红经济领域“赚大钱逃大税”乱象的缩影。
-
-从薇娅偷逃税被罚13.41亿元，到带货主播郭鑫鑫隐匿千万收入被查处，再到此次知识主播偷税案，一系列典型案例清晰勾勒出行业共性问题：一些网红主播一边享受新业态红利、公众信任与流量变现的便利，一边践踏税法底线，妄图规避纳税义务。
-
-他们误以为新兴行业存在监管盲区，却忽视了税收公平是社会公平的重要基石——普通工薪阶层依规纳税，手握千万甚至上亿财富的网红主播却偷逃税款，不仅造成国家税款流失、扰乱税收征管秩序，更加剧社会分配不公，严重透支行业公信力。
+美团、淘宝闪购、京东外卖三家平台负责人当场认领全部通报问题，表态要进一步扛起食品安全主体责任，对通报问题马上整改，做实入网商家资质审核，举一反三清退虚假地址、证照不符商户，坚决杜绝类似情况再发生。
 
 ## 相关推荐
 
-- 2026-06-30 08:40 - [男子在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-30 08:46 - [日耳曼拖拉机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
-- 2026-06-30 08:49 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-30 08:47 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
-- 2026-06-30 08:47 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-30 08:44 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
-- 2026-06-30 08:27 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-30 08:49 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-30 08:29 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-30 08:32 - [女子遭下药退赔偿拟追刑责](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
-- 2026-06-30 08:43 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-30 08:33 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-30 08:36 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-30 08:46 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-30 08:35 - [刘宇宁高情商化解谁站C位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-30 08:39 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-30 08:43 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-30 08:46 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-30 08:46 - [存储芯片龙头提示风险](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-30 08:50 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-30 08:57 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-30 08:30 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-30 08:31 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-30 08:41 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:31 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/682700320299.shtml)
-- 2026-06-30 08:50 - [孙兴慜发长文致歉](https://www.blog.minike.top/Article/details/6398446234.shtml)
-- 2026-06-30 08:39 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/610977439.shtml)
-- 2026-06-30 08:46 - [开电动汽车真的很省钱吗？](https://www.blog.kurohicncr.top/Article/details/4081190.shtml)
-- 2026-06-30 08:38 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/1216730.shtml)
-- 2026-06-30 08:43 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/4387827.shtml)
-- 2026-06-30 08:45 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.minike.top/Article/details/705591091504.shtml)
-- 2026-06-30 08:49 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.minike.top/Article/details/87899.shtml)
-- 2026-06-30 08:27 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/8875327.shtml)
-- 2026-06-30 08:48 - [千香](https://www.blog.minike.top/Article/details/218228940730.shtml)
-- 2026-06-30 08:30 - [千香](https://www.share.kurohicncr.top/Article/details/39488.shtml)
-- 2026-06-30 08:37 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://www.share.kurohicncr.top/Article/details/3766990.shtml)
-- 2026-06-30 08:33 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](http://www.share.minike.top/Article/details/35818.shtml)
-- 2026-06-30 08:32 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/239344.shtml)
-- 2026-06-30 08:41 - [张帅晋级温网次轮](http://www.share.kurohicncr.top/Article/details/48266243.shtml)
+- 2026-06-30 08:46 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/87564844.shtml)
+- 2026-06-30 08:42 - [马耳他著名拱门坍塌致中国男子身亡](https://www.blog.kurohicncr.top/Article/details/1394892492.shtml)
+- 2026-06-30 08:41 - [三星投资计划](https://www.blog.kurohicncr.top/Article/details/91258.shtml)
+- 2026-06-30 08:30 - [输球后日本球迷被强行披上巴西国旗](http://www.blog.kurohicncr.top/Article/details/0093883338.shtml)
+- 2026-06-30 08:40 - [德国巴拉圭 折磨](http://www.share.kurohicncr.top/Article/details/09297.shtml)
+- 2026-06-30 08:35 - [杨紫被质疑未使用原名](http://www.share.kurohicncr.top/Article/details/15032.shtml)
+- 2026-06-30 08:48 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/264580488.shtml)
+- 2026-06-30 08:56 - [“草莓月亮”浪漫现身](http://www.share.minike.top/Article/details/23525649.shtml)
+- 2026-06-30 08:49 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://www.share.minike.top/Article/details/62904174.shtml)
+- 2026-06-30 08:39 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/29414399.shtml)
+- 2026-06-30 08:55 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/11673379.shtml)
+- 2026-06-30 08:57 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.minike.top/Article/details/2487530420.shtml)
+- 2026-06-30 08:46 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/6990884.shtml)
+- 2026-06-30 08:38 - [送你一朵小红花](http://www.blog.minike.top/Article/details/469817752.shtml)
+- 2026-06-30 08:50 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/70231964331.shtml)

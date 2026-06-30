@@ -1,57 +1,60 @@
-# 降雨强度超历史极值 湖北荆州发布“五停”通告
+# 酒价内参6月17日价格发布：习酒君品下跌4元
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-中新网荆州5月18日电 (吴淘淘 边飞)荆州市防汛抗旱指挥部18日7时启动防汛三级应急响应，5月16日8时至18日6时，荆州市西部暴雨到大暴雨、局地特大暴雨，东部中到大雨。荆州区、公安县、松滋市、沙市区共24个乡镇街道38个站点出现特大暴雨；荆州国家站、公安区域站1小时、3小时、6小时、12小时、24小时降水量均突破历史极值。 据荆州发布消息，当前荆州市遭遇极端强降雨天气，中心
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月17日整体小幅回落。如果主要单品各取一瓶整体打包售卖，今日总售价为9925元，较昨日微幅下跌2元，连续两日回落并创下三天以来最低。今日总价虽然自6月15日创下的23天以来最高位持续回落，但仍处于进入六月以来相对高位，终端交投情绪环比基
 
 ## 正文
 
-中新网荆州5月18日电 (吴淘淘 边飞)荆州市防汛抗旱指挥部18日7时启动防汛三级应急响应，5月16日8时至18日6时，荆州市西部暴雨到大暴雨、局地特大暴雨，东部中到大雨。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月17日整体小幅回落。
 
-荆州区、公安县、松滋市、沙市区共24个乡镇街道38个站点出现特大暴雨；荆州国家站、公安区域站1小时、3小时、6小时、12小时、24小时降水量均突破历史极值。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9925元，较昨日微幅下跌2元，连续两日回落并创下三天以来最低。
 
-据荆州发布消息，当前荆州市遭遇极端强降雨天气，中心城区积水严重、内涝风险极高。
+今日总价虽然自6月15日创下的23天以来最高位持续回落，但仍处于进入六月以来相对高位，终端交投情绪环比基本稳定，但核心单品的涨跌分化依然显著。
 
-为全力做好抢险排涝，经研究，决定立即启动极端降雨城市内涝应急响应。
+今日11大白酒单品四涨六跌一平，输家占据优势。
 
-中心城区严格落实停工、停产、停业、停运、停课措施。
+上涨方面，青花郎涨幅居前，上涨7元/瓶，重新站上700元关口，创进入六月以来最高价；五粮液普五八代与五粮液1618均上涨5元/瓶，其中后者创近一月最大单日涨幅，自昨日创下的近一月最低点快速升至近一月次高位；水晶剑南春小幅上涨1元/瓶。
 
-按照《荆州市防汛抗旱应急预案》规定，启动防汛三级应急响应后，各县市防指、流域防指指挥长要按照应急响应的有关规定靠前指挥，分管副指挥长坐镇指挥，依法、依规、依预案指挥调度防汛救灾工作，落实落细预防和人员转移措施，做好强降雨防范和应急处置工作。
+下跌方面，古井贡古20跌幅居前，下跌5元/瓶；国窖1573、洋河梦之蓝M6+与习酒君品均下跌4元/瓶，其中国窖1573连续两日回落，但仍守住880元关口，洋河梦之蓝M6+再度跌落600元大关，习酒君品结束此前三连阳，但仍处于进入六月以来高位；飞天茅台下跌2元/瓶；青花汾20小幅下跌1元/瓶，价格回落至月内最低位。
 
-重点做好水库、塘堰、在建工程安全度汛和中小河流洪水、山洪灾害、城乡内涝等防范应对工作。
+精品茅台价格环比保持不变。
 
-所有超汛限水库的小型水库指挥长要迅速到岗到位，组织巡坝查险和泄洪调度。
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
 ## 相关推荐
 
-- 2026-06-30 08:42 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-30 08:25 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-30 08:28 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
-- 2026-06-30 08:41 - [如果有二次元高中是什么样子的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
-- 2026-06-30 08:24 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
-- 2026-06-30 08:32 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-30 08:34 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-30 08:49 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-30 08:25 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-30 08:36 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
-- 2026-06-30 08:48 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-30 08:47 - [男子在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-30 08:58 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-30 08:40 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-30 08:45 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-30 08:52 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-30 08:40 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-30 08:58 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-30 08:33 - [锐评T1战胜KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-30 08:37 - [武磊：巴西队赢的并不轻松](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
+- 2026-06-30 08:44 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
+- 2026-06-30 08:35 - [存储芯片龙头提示风险](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-30 08:51 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-30 08:51 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-30 08:54 - [德国进球被吹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:52 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/125603110.shtml)
-- 2026-06-30 08:51 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/591914478055.shtml)
-- 2026-06-30 08:43 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.kurohicncr.top/Article/details/147226887.shtml)
-- 2026-06-30 08:51 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/044221905717.shtml)
-- 2026-06-30 08:42 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.kurohicncr.top/Article/details/023334149.shtml)
-- 2026-06-30 08:37 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/1744034.shtml)
-- 2026-06-30 08:31 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://www.share.minike.top/Article/details/2668273.shtml)
-- 2026-06-30 08:46 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/853211.shtml)
-- 2026-06-30 08:36 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/45445.shtml)
-- 2026-06-30 08:29 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/5175129679.shtml)
-- 2026-06-30 08:33 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/66659268.shtml)
-- 2026-06-30 08:24 - [佐野海舟远射破门](http://www.blog.kurohicncr.top/Article/details/772872988.shtml)
-- 2026-06-30 08:37 - [沙丘](http://www.blog.minike.top/Article/details/2424207697.shtml)
-- 2026-06-30 08:47 - [韩国球迷凌晨4点接机怒骂主教练](http://www.blog.minike.top/Article/details/5452413.shtml)
-- 2026-06-30 08:53 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/32579479.shtml)
+- 2026-06-30 08:30 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/731732.shtml)
+- 2026-06-30 08:52 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.minike.top/Article/details/7964348.shtml)
+- 2026-06-30 08:40 - [老外对中国cosplay竟这样评价…](https://www.blog.kurohicncr.top/Article/details/6899174.shtml)
+- 2026-06-30 08:47 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/030773209313.shtml)
+- 2026-06-30 08:51 - [一生一世](https://www.share.kurohicncr.top/Article/details/03858288826.shtml)
+- 2026-06-30 08:48 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/90308.shtml)
+- 2026-06-30 08:52 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/06570101148.shtml)
+- 2026-06-30 08:36 - [索马里女大使：想和中国一起搞事业](https://www.share.kurohicncr.top/Article/details/530175500408.shtml)
+- 2026-06-30 08:34 - [DeepSeek V4正式版要来了](https://www.share.kurohicncr.top/Article/details/33449552.shtml)
+- 2026-06-30 08:42 - [金刚川](https://www.blog.kurohicncr.top/Article/details/959279238.shtml)
+- 2026-06-30 08:52 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/84978423417.shtml)
+- 2026-06-30 08:44 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.kurohicncr.top/Article/details/24501.shtml)
+- 2026-06-30 08:39 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.minike.top/Article/details/515651.shtml)
+- 2026-06-30 08:44 - [王健林甩卖超80座万达广场](https://www.blog.kurohicncr.top/Article/details/3070833.shtml)
+- 2026-06-30 08:55 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.kurohicncr.top/Article/details/508455912156.shtml)

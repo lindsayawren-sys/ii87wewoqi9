@@ -1,61 +1,56 @@
-# 大行一周抛售国债近900亿 反手押注政金债结构性行情
+# 为文物立档 为历史存证（中国道路中国梦）
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-财联社5月18日讯（编辑 李响）近期，随着债市长端利率出现调整，机构行为也呈现出较为明显的差异化表现。 财联社从业内人士处了解到，上周债市分化调整的背后，是以银行系为主的机构对利率债减持意愿上升，其中大行减持国债达891亿元，不过对于政金债增持力度有所上升，单周净买入794亿元，此外对于信用债大行卖出力度更大，单周资金净流出达1237亿元，而中小银行方面主要对利率债品种悉数减持
+人民日报 朱凤瀚 一个民族的历史记忆，无论散落何方，纵使千山万水、千难万险，都要有人寻回、有人接续 要说能够代表中华文明的文化符号，青铜器必定榜上有名。它是悠久文明最重要的物化表征之一，其铭文更记载着早期中国的国家形态、礼乐文化、族群结构等，是汉字系统得以传承的重要载体。“中国”一词最早的文字记载，便出自西周青铜器何尊的铭文。近代以来山河动荡，一大批非经考古发掘的青铜器非法流失
 
 ## 正文
 
-财联社5月18日讯（编辑 李响）近期，随着债市长端利率出现调整，机构行为也呈现出较为明显的差异化表现。
+人民日报 朱凤瀚 一个民族的历史记忆，无论散落何方，纵使千山万水、千难万险，都要有人寻回、有人接续 要说能够代表中华文明的文化符号，青铜器必定榜上有名。
 
-财联社从业内人士处了解到，上周债市分化调整的背后，是以银行系为主的机构对利率债减持意愿上升，其中大行减持国债达891亿元，不过对于政金债增持力度有所上升，单周净买入794亿元，此外对于信用债大行卖出力度更大，单周资金净流出达1237亿元，而中小银行方面主要对利率债品种悉数减持。
+它是悠久文明最重要的物化表征之一，其铭文更记载着早期中国的国家形态、礼乐文化、族群结构等，是汉字系统得以传承的重要载体。
 
-值得注意的是，以基金公司为主的交易型机构加大对信用债的增持力度，为上周市场最大的买方，合计净买入规模达884亿元。
+“中国”一词最早的文字记载，便出自西周青铜器何尊的铭文。
 
-有业内人士指出，近期长端走势陷入纠结或是资金风格转向的主导因素之一，一方面市场担忧5月下旬政府债发行节奏加快对资金的虹吸效应，另一方面基于央行一季度货政报告对短期降息降准的落空使得部分交易性资金主动进入防御，优选票息相对较高的信用债品种。
+近代以来山河动荡，一大批非经考古发掘的青铜器非法流失，分散在世界各地的博物馆、研究机构、大学、古董行乃至私人收藏中。
 
-与此同时，也有机构人士认为，在目前银行净融出规模仍处高位下，市场资金面仍预期宽松，在此背景下，利率债中目前国债、政金债风险偏好的风化也存在部分资金对于中端期限品种稳定性的诉求。
+有的长期陈列，有的深藏库房，只在老旧的图录里留下寥寥数语，成为中华文明悬在海外的“文化乡愁”。
 
-利率债品种出现分化 资金押注政金债结构行情 从上周行情表现来看，随着以大行、基金等资金对于政金债的增持，利率债行情表现有所风化，国债相较政金债表现偏弱，尤其是中短端品种。
+流散海外的中国青铜器，是中华文明不可分割的一部分。
 
-数据显示，上周1年国债收益率上行1.95bp至1.21%，10年国债收益率下行0.12bp至1.77%，30年国债收益率上行0.5bp至2.25%。
+2012年，国家文物局委托北京大学调查流散海外的中国青铜器状况。
 
-而国开债呈现中短端偏强，10年期国开债收益率下行约2bp至1.83%，不过30年期国开债小幅走弱1bp至2.26%。
+说实话，彼时，即使是长期做中国青铜器研究的学者，也说不清楚这个底数。
 
 ## 相关推荐
 
-- 2026-06-30 08:39 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
-- 2026-06-30 08:36 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-30 08:44 - [《名肘探科比》：科比大战裂口女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
-- 2026-06-30 08:25 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-30 08:30 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-30 08:39 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-30 08:35 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-30 08:53 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-30 08:37 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
-- 2026-06-30 08:25 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-30 08:45 - [勇士续约波尔津吉斯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-30 08:34 - [王楚钦说配合稍微有些陌生感](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-30 08:29 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-30 08:48 - [郑钦文 四年一轮游](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-30 08:41 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-30 08:30 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-30 08:55 - [齐思钧回复张月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-30 08:55 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-30 08:31 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-30 08:57 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-30 08:33 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-30 08:59 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
+- 2026-06-30 08:45 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-30 08:32 - [第一次对自信的力量有了实感](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-30 08:40 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:42 - [如果有二次元高中是什么样子的？](http://www.share.kurohicncr.top/Article/details/9245225891.shtml)
-- 2026-06-30 08:36 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/823991202.shtml)
-- 2026-06-30 08:30 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/640578.shtml)
-- 2026-06-30 08:28 - [巴西把自己踢晕了](http://www.blog.kurohicncr.top/Article/details/006491124391.shtml)
-- 2026-06-30 08:41 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/89902914518.shtml)
-- 2026-06-30 08:29 - [这种关系可能正在悄悄“催老”你](https://www.blog.minike.top/Article/details/169195762.shtml)
-- 2026-06-30 08:46 - [美股深夜大反弹 特斯拉飙涨8%](https://www.share.kurohicncr.top/Article/details/06927519.shtml)
-- 2026-06-30 08:52 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/812491.shtml)
-- 2026-06-30 08:37 - [F1奥地利站赛后复盘](http://www.share.kurohicncr.top/Article/details/68631182.shtml)
-- 2026-06-30 08:44 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/430565556.shtml)
-- 2026-06-30 08:36 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/1204964307.shtml)
-- 2026-06-30 08:27 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/51093.shtml)
-- 2026-06-30 08:51 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/242547711147.shtml)
-- 2026-06-30 08:27 - [城市规划有可能成为「屎山代码」吗？](http://www.blog.minike.top/Article/details/5799543566.shtml)
-- 2026-06-30 08:44 - [刘必安等16人非法集资案二审宣判](https://www.blog.minike.top/Article/details/05747.shtml)
+- 2026-06-30 08:35 - [德国罚丢3粒点球](https://www.share.kurohicncr.top/Article/details/66129.shtml)
+- 2026-06-30 08:32 - [韩国人为什么这么在乎输赢](https://www.blog.kurohicncr.top/Article/details/40604507.shtml)
+- 2026-06-30 08:42 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](http://www.blog.kurohicncr.top/Article/details/910415.shtml)
+- 2026-06-30 08:41 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.minike.top/Article/details/249896077592.shtml)
+- 2026-06-30 08:48 - [日本反击率先破门](https://www.share.minike.top/Article/details/118167.shtml)
+- 2026-06-30 08:50 - [哈弗茨头球破门](http://www.blog.kurohicncr.top/Article/details/437117.shtml)
+- 2026-06-30 08:31 - [板面：为什么那么多人爱吃？？！](http://www.blog.minike.top/Article/details/12463868361.shtml)
+- 2026-06-30 08:42 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/5576135436.shtml)
+- 2026-06-30 08:41 - [曝iPhone18Pro机密文件现身暗网](https://www.share.kurohicncr.top/Article/details/713909567413.shtml)
+- 2026-06-30 08:39 - [上市央企地产商 两年换了三任董事长](http://www.blog.kurohicncr.top/Article/details/74371065681.shtml)
+- 2026-06-30 08:46 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://www.blog.minike.top/Article/details/86972047542.shtml)
+- 2026-06-30 08:41 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/0002820948.shtml)
+- 2026-06-30 08:51 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/766879.shtml)
+- 2026-06-30 08:34 - [女心理师](http://www.blog.kurohicncr.top/Article/details/58674308.shtml)
+- 2026-06-30 08:45 - [德国巴拉圭进入点球大战](http://www.blog.kurohicncr.top/Article/details/77913349.shtml)

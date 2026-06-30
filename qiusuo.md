@@ -1,61 +1,54 @@
-# 白皮书：2025年中国卫星导航产业总体产值超6000亿元
+# 王沪宁会见尼泊尔外交部长希西尔
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-中新社北京5月18日电 (记者 马帅莎)中国卫星导航定位协会18日在北京发布的《2026中国北斗时空产业发展白皮书》显示，2025年，中国卫星导航产业(北斗产业)总体产值达6290亿元(人民币，下同)，同比增长9.24%。白皮书指出，2025年，北斗时空产业总体产值达到13323亿元。其中，作为北斗时空产业基础的卫星导航产业(北斗产业)总体产值达6290亿元，同比增长9.24%
+新华社北京6月16日电 中共中央政治局常委、全国政协主席王沪宁16日在京会见尼泊尔外交部长希西尔。 王沪宁表示，2019年，习近平主席对尼泊尔进行历史性国事访问，中尼关系提升为面向发展与繁荣的世代友好的战略合作伙伴关系。中方愿同尼方一道，在两国领导人战略引领下，保持高层交往，增进政治互信，深化务实合作，推动中尼关系不断向前发展，更好造福两国人民。中国全国政协愿为此作出积极贡献。
 
 ## 正文
 
-中新社北京5月18日电 (记者 马帅莎)中国卫星导航定位协会18日在北京发布的《2026中国北斗时空产业发展白皮书》显示，2025年，中国卫星导航产业(北斗产业)总体产值达6290亿元(人民币，下同)，同比增长9.24%。
+新华社北京6月16日电 中共中央政治局常委、全国政协主席王沪宁16日在京会见尼泊尔外交部长希西尔。
 
-白皮书指出，2025年，北斗时空产业总体产值达到13323亿元。
+王沪宁表示，2019年，习近平主席对尼泊尔进行历史性国事访问，中尼关系提升为面向发展与繁荣的世代友好的战略合作伙伴关系。
 
-其中，作为北斗时空产业基础的卫星导航产业(北斗产业)总体产值达6290亿元，同比增长9.24%，展现出强劲的发展韧性和巨大的增长潜力。
+中方愿同尼方一道，在两国领导人战略引领下，保持高层交往，增进政治互信，深化务实合作，推动中尼关系不断向前发展，更好造福两国人民。
 
-白皮书称，2025年，北斗时空产业最鲜明的特征，就是实现了从“卫星导航”到“时空服务”的跨越，呈现出“技术融合化、应用场景化、生态多元化”的发展态势，产业迭代升级速度持续加快，核心竞争力不断提升。
+中国全国政协愿为此作出积极贡献。
 
-白皮书表示，2025年，北斗时空产业的应用市场呈现“专业深化、大众普及”的双轮驱动格局。
+希西尔祝贺中国“十五五”成功开局，表示相信在习近平主席领导下，中国必将成为社会主义现代化强国。
 
-在大众消费领域，截至2025年底，中国已有近14亿部智能手机支持北斗定位功能，约占总量的98%；支持北斗定位功能的可穿戴设备保有量超过1.6亿；超过1亿台乘用车部署了具有北斗定位导航功能的车载设备。
+尼中友好建立在和平共处五项原则基础上，尼方坚定恪守一个中国原则，决不允许任何势力利用尼领土从事反华活动，期待同中方拓展合作，共享发展繁荣。
 
-白皮书说，在海外应用市场方面，北斗系统服务及相关产品已输出到140余个国家和地区。
-
-(完)
+王东峰等参加会见。
 
 ## 相关推荐
 
-- 2026-06-30 08:35 - [诺伊尔尽力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-30 08:46 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-30 08:36 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
-- 2026-06-30 08:32 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-30 08:30 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-30 08:43 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-30 08:34 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-30 08:46 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-30 08:42 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-30 08:28 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-30 08:45 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-30 08:49 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-30 08:40 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
-- 2026-06-30 08:26 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
-- 2026-06-30 08:35 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-30 08:57 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-30 08:43 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
+- 2026-06-30 08:31 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-30 08:30 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-30 08:52 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-30 08:36 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-30 08:37 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-30 08:56 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-30 08:42 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
+- 2026-06-30 08:43 - [日本博主：日本足球真的垃圾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:44 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.minike.top/Article/details/4427390.shtml)
-- 2026-06-30 08:35 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/32344189295.shtml)
-- 2026-06-30 08:49 - [巴西扳平比分](https://www.share.minike.top/Article/details/0941684881.shtml)
-- 2026-06-30 08:47 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/905303.shtml)
-- 2026-06-30 08:38 - [安切洛蒂 换人](http://www.share.kurohicncr.top/Article/details/4327325556.shtml)
-- 2026-06-30 08:36 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.minike.top/Article/details/78677701207.shtml)
-- 2026-06-30 08:36 - [点球大战](https://www.blog.kurohicncr.top/Article/details/451413026404.shtml)
-- 2026-06-30 08:35 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/365528934489.shtml)
-- 2026-06-30 08:39 - [一见倾心](https://www.share.minike.top/Article/details/384164.shtml)
-- 2026-06-30 08:33 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/237484.shtml)
-- 2026-06-30 08:49 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/44385790.shtml)
-- 2026-06-30 08:52 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/3221862.shtml)
-- 2026-06-30 08:25 - [安切洛蒂 换人](http://www.blog.minike.top/Article/details/0891706533.shtml)
-- 2026-06-30 08:26 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/3655345.shtml)
-- 2026-06-30 08:30 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/78758108.shtml)
+- 2026-06-30 08:37 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/79993.shtml)
+- 2026-06-30 08:46 - [金牌调解](https://www.share.kurohicncr.top/Article/details/208629610.shtml)
+- 2026-06-30 08:57 - [森保一致歉：世界第一目标没能实现](https://www.share.kurohicncr.top/Article/details/3461094528.shtml)
+- 2026-06-30 08:30 - [杨紫获白玉兰视后争议不止](https://www.share.kurohicncr.top/Article/details/22170829867.shtml)
+- 2026-06-30 08:52 - [日本反击率先破门](http://www.blog.kurohicncr.top/Article/details/79109328.shtml)
+- 2026-06-30 08:31 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.blog.kurohicncr.top/Article/details/79574.shtml)
+- 2026-06-30 08:32 - [大蒜晒外面被路过女子连盆端走](https://www.blog.kurohicncr.top/Article/details/085543799302.shtml)
+- 2026-06-30 08:59 - [网红峡谷5人溺亡 有人提醒会下雨](http://www.blog.kurohicncr.top/Article/details/87852860444.shtml)
+- 2026-06-30 08:40 - [索马里女大使：想和中国一起搞事业](http://www.share.kurohicncr.top/Article/details/12410564.shtml)
+- 2026-06-30 08:44 - [DeepSeek V4正式版要来了](https://www.blog.kurohicncr.top/Article/details/33387.shtml)
+- 2026-06-30 08:35 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/080584675.shtml)
+- 2026-06-30 08:39 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/638572358230.shtml)
+- 2026-06-30 08:37 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.kurohicncr.top/Article/details/2433762.shtml)
+- 2026-06-30 08:34 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/14347630616.shtml)
+- 2026-06-30 08:56 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/79142976.shtml)

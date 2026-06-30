@@ -1,59 +1,52 @@
-# 铿锵玫瑰广西女孩“翁右右”：逆境向阳而行 以网络微光汇聚善意暖流
+# 外交部：中方对当前黎以局势深表关切
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-中新网南宁5月19日电(杨陈 王伟臣)“我曾经被光照亮过，我也会带着这份光继续前行。”19日，在2026年中国网络文明大会主论坛主题分享环节，“中国好人”翁忻怡站在舞台上，从容自信，假肢在聚光灯下格外亮眼，真挚话语道出了网络善意传递的温暖力量。 翁忻怡是一名来自广西南宁的自媒体创作者，网名“翁右右”。曾经的她享受着平凡又鲜活的市井生活，骑电车穿行街巷、品尝一碗老友粉，是她日常的
+新华社北京6月16日电(记者吴梦桐、冯歆然)据报道，美国和伊朗14日宣布达成停战谅解备忘录后，以色列在黎巴嫩的军事行动仍在持续。外交部发言人林剑16日在例行记者会上就此答问时表示，中方对当前黎以局势深表关切。黎巴嫩的主权和安全不应受到侵犯。希望相关各方谨言慎行，坚持和平选择，切实落实停火安排，实现全面持久停火，为维护中东的和平安宁创造条件。(完)
 
 ## 正文
 
-中新网南宁5月19日电(杨陈 王伟臣)“我曾经被光照亮过，我也会带着这份光继续前行。
+新华社北京6月16日电(记者吴梦桐、冯歆然)据报道，美国和伊朗14日宣布达成停战谅解备忘录后，以色列在黎巴嫩的军事行动仍在持续。
 
-”19日，在2026年中国网络文明大会主论坛主题分享环节，“中国好人”翁忻怡站在舞台上，从容自信，假肢在聚光灯下格外亮眼，真挚话语道出了网络善意传递的温暖力量。
+外交部发言人林剑16日在例行记者会上就此答问时表示，中方对当前黎以局势深表关切。
 
-翁忻怡是一名来自广西南宁的自媒体创作者，网名“翁右右”。
+黎巴嫩的主权和安全不应受到侵犯。
 
-曾经的她享受着平凡又鲜活的市井生活，骑电车穿行街巷、品尝一碗老友粉，是她日常的“小确幸”。
+希望相关各方谨言慎行，坚持和平选择，切实落实停火安排，实现全面持久停火，为维护中东的和平安宁创造条件。
 
-2020年，一场突如其来的车祸彻底改变了她的人生，身体的残缺让她陷入长期的自我封闭，一度失去面对生活的勇气。
-
-绝境之中，翁忻怡没有向命运低头。
-
-她凭借顽强的毅力重新站立行走，还在假肢上镶嵌水钻，以乐观姿态直面人生困境。
-
-她选择走进网络，记录自己的康复历程与生活点滴，真实的分享打动了众多网友。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 08:52 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-30 08:37 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-30 08:51 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-30 08:46 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-30 08:53 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-30 08:41 - [日本队主帅道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-30 08:27 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-30 08:24 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
-- 2026-06-30 08:38 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-30 08:34 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-30 08:35 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-30 08:46 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-30 08:42 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-30 08:56 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-30 08:32 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-30 08:58 - [莫兰特被交易到开拓者](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-30 08:58 - [森保一 保守](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-30 08:57 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-30 08:41 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-30 08:37 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-30 08:56 - [马耳他著名拱门坍塌致中国男子身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-30 08:36 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-30 08:40 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-30 08:54 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-30 08:52 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:49 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/46269.shtml)
-- 2026-06-30 08:39 - [恋与深空制作组回应近期争议](https://www.share.kurohicncr.top/Article/details/8336296.shtml)
-- 2026-06-30 08:24 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://www.blog.minike.top/Article/details/40468773733.shtml)
-- 2026-06-30 08:49 - [金鹰奖视后提名预测](http://www.blog.kurohicncr.top/Article/details/164883147.shtml)
-- 2026-06-30 08:39 - [巴西绝杀日本：漫画般结局换了主角](http://www.share.kurohicncr.top/Article/details/30069702.shtml)
-- 2026-06-30 08:27 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/07025128.shtml)
-- 2026-06-30 08:36 - [花少8要去世界杯举办国](https://www.share.minike.top/Article/details/19342782171.shtml)
-- 2026-06-30 08:47 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/47592.shtml)
-- 2026-06-30 08:51 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/8501239386.shtml)
-- 2026-06-30 08:44 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.kurohicncr.top/Article/details/2824989868.shtml)
-- 2026-06-30 08:41 - [沙丘](https://www.blog.kurohicncr.top/Article/details/772666054.shtml)
-- 2026-06-30 08:28 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.minike.top/Article/details/000859026.shtml)
-- 2026-06-30 08:42 - [覃予萱晋级WTT美国大满贯女单32强](https://www.blog.minike.top/Article/details/0841265.shtml)
-- 2026-06-30 08:42 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/195586.shtml)
-- 2026-06-30 08:33 - [天道](http://www.share.kurohicncr.top/Article/details/3352581.shtml)
+- 2026-06-30 08:49 - [男子身高一米八二仍做断骨增高](https://www.share.kurohicncr.top/Article/details/3341174.shtml)
+- 2026-06-30 08:57 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/91254759686.shtml)
+- 2026-06-30 08:58 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/2210064.shtml)
+- 2026-06-30 08:37 - [世界杯“美洲德比”7月1日开打](https://www.share.kurohicncr.top/Article/details/22695.shtml)
+- 2026-06-30 08:33 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/72803168283.shtml)
+- 2026-06-30 08:48 - [德国巴拉圭 折磨](https://www.share.kurohicncr.top/Article/details/6086169.shtml)
+- 2026-06-30 08:43 - [国务院：稳步推进研究生考试招生改革](https://www.share.kurohicncr.top/Article/details/53560697.shtml)
+- 2026-06-30 08:36 - [巴西扳平比分](https://www.share.minike.top/Article/details/76194.shtml)
+- 2026-06-30 08:51 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/47777.shtml)
+- 2026-06-30 08:40 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/5962446627.shtml)
+- 2026-06-30 08:32 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.kurohicncr.top/Article/details/039616230472.shtml)
+- 2026-06-30 08:57 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/638795.shtml)
+- 2026-06-30 08:34 - [巴西2-1绝杀日本](https://www.share.minike.top/Article/details/7260342318.shtml)
+- 2026-06-30 08:49 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/838979857.shtml)
+- 2026-06-30 08:44 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/7823135575.shtml)

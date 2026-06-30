@@ -1,57 +1,61 @@
-# 中国4月银行结售汇顺差401亿美元 跨境资金恢复净流入
+# 海口海关盐灶及玉沙6套房修缮改造项目比选公告
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-中新社北京5月18日电 中国国家外汇管理局18日公布的统计数据显示，2026年4月，按美元计值，银行结汇2573亿美元，售汇2172亿美元，结售汇顺差401亿美元。 中国国家外汇管理局副局长李斌表示，近期，地缘政治局势引发国际金融市场波动，中国外汇市场运行总体稳健。受外部扰动影响，3月跨境资金出现一定净流出，4月恢复净流入。 综合3月和4月情况看，跨境资金月均净流入149亿美元
+一、采购条件 海口海关盐灶及玉沙6套房修缮改造项目已获批准实施，项目采购人为中华人民共和国海口海关，项目资金来自财政资金，项目出资比例为100%，采购执行部门为海口海关后勤管理中心。项目已具备采购条件，现对该项目进行比选采购。 二、项目概况与采购范围 (一)项目名称：海口海关盐灶及玉沙6套房修缮改造项目；(二)项目内容：对6套房进行修缮改造，具体包括墙面、地面、天花等涂料、地砖
 
 ## 正文
 
-中新社北京5月18日电 中国国家外汇管理局18日公布的统计数据显示，2026年4月，按美元计值，银行结汇2573亿美元，售汇2172亿美元，结售汇顺差401亿美元。
+一、采购条件 海口海关盐灶及玉沙6套房修缮改造项目已获批准实施，项目采购人为中华人民共和国海口海关，项目资金来自财政资金，项目出资比例为100%，采购执行部门为海口海关后勤管理中心。
 
-中国国家外汇管理局副局长李斌表示，近期，地缘政治局势引发国际金融市场波动，中国外汇市场运行总体稳健。
+项目已具备采购条件，现对该项目进行比选采购。
 
-受外部扰动影响，3月跨境资金出现一定净流出，4月恢复净流入。
+二、项目概况与采购范围 (一)项目名称：海口海关盐灶及玉沙6套房修缮改造项目；(二)项目内容：对6套房进行修缮改造，具体包括墙面、地面、天花等涂料、地砖翻新、门窗修复等内容。
 
-综合3月和4月情况看，跨境资金月均净流入149亿美元，银行月均净结汇280亿美元，低于去年末和今年初的月度顺差规模。
+具体内容及需求详见工程量清单及比选文件附件1：《海口海关盐灶及玉沙6套房修缮改造项目需求书》(以下简称“项目需求”)； (三)施工工期：自合同签订之日起15个日历天内； (四)施工地点：海口市龙华区滨海大道61号、海口市龙华区盐灶路1号； (五)质量要求：本修缮改造工程施工质量符合设计要求、行业施工规范、合同约定及相关法律法规标准，修缮改造工程最终质量及验收合格结论，以采购人现场验收意见为准； (六)最高限价：人民币171570.09元； (七)质保期：自项目经采购人验收合格之日起2年； 质保期内，工程出现任何质量问题，采购人通知供应商维修后，供应商需在接到通知后【24】小时内到场完成维修；供应商逾期未到场维修或维修后质量仍不符合要求的，采购人有权委托第三方维修，产生的全部费用由供应商承担，采购人有权直接从应付供应商款项中扣除。
 
-同时，涉外交易保持活跃。
+三、申请人资格要求 (一)在中华人民共和国注册、具有独立承担民事责任的能力、具备能承办本项目的有效合法证照(企业需提供三证合一营业执照复印件、事业单位需提供事业单位法人证书复印件并加盖供应商公章、证照中营业范围、业务范围与本项目相关)； (二)截至报名截止之日未被列入失信被执行人、重大税收违法失信主体、政府采购严重违法失信行为记录名单(需提供书面承诺函并加盖供应商公章，且由单位负责人签字或盖章)； (三)具有履行合同所必需的设备和专业技术能力(提供书面承诺函并加盖供应商公章，且由单位负责人签字或盖章)； (四)参加本项目比选活动前三年内，在经营活动中没有重大违法记录(需提供书面声明函并加盖供应商公章，且由单位负责人签字或盖章)； (五)具有良好的商业信誉和健全的财务会计制度(需提供书面承诺函并加盖供应商公章，且由单位负责人签字或盖章)； (六)有依法
 
-4月，企业、个人等非银行部门跨境收支合计1.6万亿美元，同比增长15%。
+四、报名及比选文件获取 (一)报名时间：2026年6月16日至2026年6月18日，上午8:30至12:00，下午14:30至17:00(北京时间，下同)； (二)报名地点：海口海关后勤管理中心政府采购部(地址：海口市龙华区玉沙路46号海关家属院8号楼2楼208房)； (三)报名时须递交以下报名材料(材料均须加盖单位公章)： 1.介绍报名人前来报名的单位介绍信(含报名人手机号码及电子邮箱等)； 2.单位营业执照复印件或事业单位法人证书复印件； 3.报名人身份证复印件； (四)采购执行部门根据报名情况向报名单位发送比选文件。
 
-中国外汇市场交易量为3.7万亿美元，继续处于较高水平。
+五、响应文件递交 (一)响应文件递交的截止时间为2026年6月23日17:00，地点为海口海关后勤管理中心政府采购部(海口市龙华区玉沙路46号海关家属院8号楼2楼208房)； (二)逾期送达的或者未送达指定地点的响应文件，采购执行部门一律拒收。
 
-李斌指出，企业汇率风险管理能力逐步增强，外汇交易更趋理性。
+六、发布公告媒介 中国招标投标公共服务平台、海口海关门户网。
 
 ## 相关推荐
 
-- 2026-06-30 08:30 - [第3集丨“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-30 08:26 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-30 08:38 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-30 08:25 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
-- 2026-06-30 08:34 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-30 08:47 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
-- 2026-06-30 08:49 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-30 08:39 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-30 08:42 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
-- 2026-06-30 08:37 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-30 08:39 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-30 08:38 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-30 08:51 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-30 08:46 - [二次元提前预演明日巴西对日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-30 08:32 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-30 08:51 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-30 08:41 - [德国4比5巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-30 08:47 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
+- 2026-06-30 08:47 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-30 08:51 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-30 08:32 - [自然光｜papi酱&窦文涛：驴与跑步机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-30 08:53 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-30 08:43 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-30 08:53 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-30 08:47 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-30 08:36 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:38 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/4306962886.shtml)
-- 2026-06-30 08:52 - [金刚川](http://www.blog.kurohicncr.top/Article/details/890517253430.shtml)
-- 2026-06-30 08:46 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/13907662.shtml)
-- 2026-06-30 08:41 - [世界杯巴拉圭点球淘汰德国](https://www.blog.minike.top/Article/details/72229606658.shtml)
-- 2026-06-30 08:48 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/970233.shtml)
-- 2026-06-30 08:42 - [德国进球被吹](https://www.share.minike.top/Article/details/554008.shtml)
-- 2026-06-30 08:34 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/095203644.shtml)
-- 2026-06-30 08:49 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/38836771157.shtml)
-- 2026-06-30 08:40 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/2735207610.shtml)
-- 2026-06-30 08:36 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/11975.shtml)
-- 2026-06-30 08:50 - [德国连续三届世界杯无缘16强](https://www.share.minike.top/Article/details/859986480429.shtml)
-- 2026-06-30 08:32 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/28064847.shtml)
-- 2026-06-30 08:25 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/450207672744.shtml)
-- 2026-06-30 08:48 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/21718937.shtml)
-- 2026-06-30 08:45 - [徐亮怒斥世界杯踢假球](http://www.share.kurohicncr.top/Article/details/8040132269.shtml)
+- 2026-06-30 08:37 - [郑钦文 四年一轮游](https://www.blog.kurohicncr.top/Article/details/7427976.shtml)
+- 2026-06-30 08:39 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/726944.shtml)
+- 2026-06-30 08:59 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.kurohicncr.top/Article/details/7793885.shtml)
+- 2026-06-30 08:53 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/8152969.shtml)
+- 2026-06-30 08:38 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/41388.shtml)
+- 2026-06-30 08:42 - [媒体评泰山建135公里刀片刺绳隔离网](https://www.blog.kurohicncr.top/Article/details/998999.shtml)
+- 2026-06-30 08:37 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.minike.top/Article/details/383569644866.shtml)
+- 2026-06-30 08:38 - [点球大战 残酷](http://www.blog.minike.top/Article/details/80660239.shtml)
+- 2026-06-30 08:57 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/7105897.shtml)
+- 2026-06-30 08:31 - [德国爆冷点球大战不敌巴拉圭](http://www.share.minike.top/Article/details/70904.shtml)
+- 2026-06-30 08:51 - [4000美元是黄金新一轮下跌的开始吗](https://www.blog.kurohicncr.top/Article/details/008692688.shtml)
+- 2026-06-30 08:50 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/4548697.shtml)
+- 2026-06-30 08:51 - [马耳他著名拱门坍塌致一中国男子身亡](http://www.blog.minike.top/Article/details/2102439.shtml)
+- 2026-06-30 08:40 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/98500820.shtml)
+- 2026-06-30 08:54 - [巴西绝杀](https://www.share.minike.top/Article/details/46053524846.shtml)

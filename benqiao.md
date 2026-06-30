@@ -1,60 +1,50 @@
-# 大和：华虹半导体首季盈利符预期 重申“买入”评级
+# 【活力中国调研行】废旧厂区如何“换装”国家级零碳园区？探访全国首个资源循环示范基地
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-大和发布研报称，华虹半导体（01347）于第一季录得净利润2，100万美元，同比大幅增长4.6倍，因低基数效应，符合该行预期，重申“买入”评级。2026年第一季毛利率稳定，第二季预计扩张。第一季收入同比增长22%、按季持平，至6.61亿美元。收入同比增长主要由出货量同比增长18%及平均售价上升4%所带动。 按季来看，尽管受农历新年假期影响，出货量及平均售价均维持平稳，显示客户需
+发布时间：2026年06月16日 20:39 来源：中国新闻网 6月16日，记者跟随2026年“活力中国调研行”走进全国首个资源循环领域国家级示范基地——中国资环绿色低碳循环经济示范基地，探访退役光伏组件如何“穿上”彩色外衣、废旧衣物怎样“变身”绿茵草皮、风机叶片如何“铺成”庭院小径。看“央地共建、产城融合”模式下，循环经济如何从这里长出千亿级产业集群。(冯宏杰） 责任编辑：【
 
 ## 正文
 
-大和发布研报称，华虹半导体（01347）于第一季录得净利润2，100万美元，同比大幅增长4.6倍，因低基数效应，符合该行预期，重申“买入”评级。
+发布时间：2026年06月16日 20:39 来源：中国新闻网 6月16日，记者跟随2026年“活力中国调研行”走进全国首个资源循环领域国家级示范基地——中国资环绿色低碳循环经济示范基地，探访退役光伏组件如何“穿上”彩色外衣、废旧衣物怎样“变身”绿茵草皮、风机叶片如何“铺成”庭院小径。
 
-2026年第一季毛利率稳定，第二季预计扩张。
+看“央地共建、产城融合”模式下，循环经济如何从这里长出千亿级产业集群。
 
-第一季收入同比增长22%、按季持平，至6.61亿美元。
-
-收入同比增长主要由出货量同比增长18%及平均售价上升4%所带动。
-
-按季来看，尽管受农历新年假期影响，出货量及平均售价均维持平稳，显示客户需求强劲。
-
-毛利率为13%，同比提升4个百分点，按季持平。
-
-管理层指引2026年第二季收入为6.9-7亿美元，按季增长4-6%，由平均售价及出货量共同推动。
-
-毛利率则指引为14-16%，高于第一季的13%。
+(冯宏杰） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 08:35 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-30 08:45 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
-- 2026-06-30 08:52 - [板面：为什么那么多人爱吃？？！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-30 08:29 - [世界杯巴拉圭点球淘汰德国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
-- 2026-06-30 08:26 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
-- 2026-06-30 08:51 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-30 08:37 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-30 08:28 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
-- 2026-06-30 08:49 - [马耳他著名拱门坍塌致一中国男子身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
-- 2026-06-30 08:52 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-30 08:42 - [存储芯片龙头提示风险](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-30 08:48 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
-- 2026-06-30 08:43 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-30 08:25 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
+- 2026-06-30 08:58 - [森保一致歉：世界第一目标没能实现](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-30 08:41 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-30 08:59 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
+- 2026-06-30 08:59 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-30 08:49 - [陈幸同晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-30 08:50 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-30 08:45 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-30 08:55 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-30 08:40 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-30 08:54 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-30 08:46 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-30 08:50 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-30 08:37 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-30 08:50 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:37 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/130202546.shtml)
-- 2026-06-30 08:47 - [金刚川](https://www.blog.kurohicncr.top/Article/details/0537227504.shtml)
-- 2026-06-30 08:25 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.kurohicncr.top/Article/details/04592606.shtml)
-- 2026-06-30 08:48 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.kurohicncr.top/Article/details/714858995460.shtml)
-- 2026-06-30 08:24 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/79659.shtml)
-- 2026-06-30 08:30 - [“柠檬茶能换怀表？”](http://www.blog.minike.top/Article/details/8220963626.shtml)
-- 2026-06-30 08:47 - [巴西足球能否再现昔日荣光](https://www.share.minike.top/Article/details/643271982.shtml)
-- 2026-06-30 08:28 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](https://www.blog.minike.top/Article/details/05197160879.shtml)
-- 2026-06-30 08:51 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/46130462.shtml)
-- 2026-06-30 08:53 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/51072649.shtml)
-- 2026-06-30 08:45 - [王楚钦孙颖莎晋级混双八强](https://www.share.kurohicncr.top/Article/details/113716349.shtml)
-- 2026-06-30 08:45 - [金鹰奖视后提名预测](http://www.blog.kurohicncr.top/Article/details/844676750547.shtml)
-- 2026-06-30 08:30 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/571044.shtml)
-- 2026-06-30 08:40 - [浪姐成团夜爆笑吐槽](http://www.blog.kurohicncr.top/Article/details/66577778.shtml)
-- 2026-06-30 08:36 - [IGN评测电影版后室](http://www.blog.minike.top/Article/details/36588.shtml)
+- 2026-06-30 08:52 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/928126279.shtml)
+- 2026-06-30 08:40 - [亚洲球队全部出局](http://www.share.kurohicncr.top/Article/details/8155510.shtml)
+- 2026-06-30 08:53 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/20874.shtml)
+- 2026-06-30 08:50 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/084843757041.shtml)
+- 2026-06-30 08:38 - [韩国道歉完日本道歉](https://www.blog.minike.top/Article/details/1554223.shtml)
+- 2026-06-30 08:39 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/22944009.shtml)
+- 2026-06-30 08:54 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.minike.top/Article/details/9298758507.shtml)
+- 2026-06-30 08:52 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://www.blog.minike.top/Article/details/700960157.shtml)
+- 2026-06-30 08:54 - [德国巴拉圭加时](https://www.blog.minike.top/Article/details/4512196.shtml)
+- 2026-06-30 08:41 - [日本队主帅道歉](https://www.blog.kurohicncr.top/Article/details/18097.shtml)
+- 2026-06-30 08:39 - [曝灰熊将莫兰特交易至开拓者](https://www.blog.minike.top/Article/details/137173077983.shtml)
+- 2026-06-30 08:48 - [杨紫肖战余生请多指教拍立得](https://www.blog.minike.top/Article/details/8845315833.shtml)
+- 2026-06-30 08:43 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/1579567852.shtml)
+- 2026-06-30 08:49 - [古代人对纳妾的态度是什么样的？](https://www.share.kurohicncr.top/Article/details/91260702.shtml)
+- 2026-06-30 08:36 - [曝灰熊将莫兰特交易至开拓者](https://www.share.minike.top/Article/details/1882259.shtml)

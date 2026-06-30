@@ -1,60 +1,59 @@
-# “有粉丝翻进院走到房间，吓死了！”诗人余秀华报警，律师解读
+# 成交额第一！603986，尾盘大单封涨停
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-中新网北京5月18日电(记者 张曦)5月18日，诗人余秀华发布视频称自己遭遇“粉丝霸凌”，她透露近日有粉丝到自己家拜访，更翻进院子，走到了自己房间。 余秀华说报警之后，那几位女粉丝就跑了，没有被抓住。在她看来，未经自己允许的探访不仅是冒犯、打扰，还是霸凌。“他们怎么不去找别人，找余华找苏童？因为他们不敢去，只能来找我。” 此外，对于自己拿棍子驱逐粉丝一事，余秀华解释，“我不开门
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月17日，A股主要股指午后全线走高，沪指收复4100点，科创综指大涨超3%；港股表现相对疲软，恒生指数跌近1%。 具体来看，沪指盘中窄幅震荡，尾盘发力拉升；创业板指亦走高。截至收盘，沪指涨0.4%报4108.08点，深证成指涨1.31%，创业板指涨1.56%，科创综指涨3.21%，沪深北三市合计成交约3.
 
 ## 正文
 
-中新网北京5月18日电(记者 张曦)5月18日，诗人余秀华发布视频称自己遭遇“粉丝霸凌”，她透露近日有粉丝到自己家拜访，更翻进院子，走到了自己房间。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-余秀华说报警之后，那几位女粉丝就跑了，没有被抓住。
+6月17日，A股主要股指午后全线走高，沪指收复4100点，科创综指大涨超3%；港股表现相对疲软，恒生指数跌近1%。
 
-在她看来，未经自己允许的探访不仅是冒犯、打扰，还是霸凌。
+具体来看，沪指盘中窄幅震荡，尾盘发力拉升；创业板指亦走高。
 
-“他们怎么不去找别人，找余华找苏童？
+截至收盘，沪指涨0.4%报4108.08点，深证成指涨1.31%，创业板指涨1.56%，科创综指涨3.21%，沪深北三市合计成交约3.11万亿元，较此前一日增加277亿元。
 
-因为他们不敢去，只能来找我。
+A股市场超3700股飘绿，煤炭、钢铁、地产、酿酒、电力等板块走低。
 
-” 此外，对于自己拿棍子驱逐粉丝一事，余秀华解释，“我不开门的情况下，他就拿着手机对着我的大门直播……我就去驱赶他，驱赶不走，就可能拿个棍子稍微动了他一下。
+半导体板块午后大幅飙升，普冉股份、盛美上海、香农芯创20%涨停，均创历史新高；兆易创新（603986）尾盘涨停，收盘封单仍超1.5万手，全日成交316亿元，位居A股成交额首位。
 
-” 余秀华表示，不懂这些人为什么要这样对她，“我就是个农村的人，我写诗写得好不好，我做人做得好不好，和他们没有任何关系。
+玻璃基板概念爆发，美迪凯、长信科技20%涨停，沃格光电两连板再创新高，市值超2400亿元的京东方A亦涨停。
 
-我不需要任何人教我去做人，教我写诗。
+PCB概念持续活跃，光华科技（维权）、中材科技、宏昌电子、华正新材等斩获3连板，市值超3000亿元的深南电路涨停，创历史新高。
 
 ## 相关推荐
 
-- 2026-06-30 08:53 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-30 08:33 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-30 08:25 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
-- 2026-06-30 08:32 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-30 08:24 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-30 08:26 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-30 08:48 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-30 08:40 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-30 08:42 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-30 08:51 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-30 08:43 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-30 08:45 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-30 08:24 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-30 08:51 - [张雪的一句“是我们”引发岛内热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-30 08:31 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-30 08:49 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-30 08:41 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-30 08:56 - [索马里女大使：想和中国一起搞事业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
+- 2026-06-30 08:35 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-30 08:54 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-30 08:56 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-30 08:33 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-30 08:56 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-30 08:45 - [陈幸同晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
+- 2026-06-30 08:55 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-30 08:45 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-30 08:47 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:30 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/903462545825.shtml)
-- 2026-06-30 08:41 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.blog.minike.top/Article/details/61180607408.shtml)
-- 2026-06-30 08:52 - [一见倾心](https://www.blog.minike.top/Article/details/911686232479.shtml)
-- 2026-06-30 08:29 - [美股深夜大反弹 特斯拉飙涨8%](http://www.blog.kurohicncr.top/Article/details/465309366.shtml)
-- 2026-06-30 08:27 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/6807837789.shtml)
-- 2026-06-30 08:33 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.minike.top/Article/details/20748754.shtml)
-- 2026-06-30 08:49 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/2801499154.shtml)
-- 2026-06-30 08:38 - [锐评T1战胜KC](https://www.blog.minike.top/Article/details/680380.shtml)
-- 2026-06-30 08:26 - [杨紫学位证上就是杨紫](http://www.blog.kurohicncr.top/Article/details/925214985.shtml)
-- 2026-06-30 08:37 - [巴西把自己踢晕了](https://www.blog.kurohicncr.top/Article/details/780845.shtml)
-- 2026-06-30 08:36 - [森保一致歉：世界第一目标没能实现](http://www.share.minike.top/Article/details/1899312.shtml)
-- 2026-06-30 08:53 - [又一家县级医院关停门诊输液大厅](http://www.blog.minike.top/Article/details/4892314.shtml)
-- 2026-06-30 08:44 - [毒液2](http://www.blog.kurohicncr.top/Article/details/01653027128.shtml)
-- 2026-06-30 08:33 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/85504023.shtml)
-- 2026-06-30 08:25 - [王欣瑜2-1击败科恰雷托](http://www.share.minike.top/Article/details/183903378.shtml)
+- 2026-06-30 08:46 - [中国新一轮出口管制直指日本命脉](https://www.blog.kurohicncr.top/Article/details/99670248.shtml)
+- 2026-06-30 08:50 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/21914599.shtml)
+- 2026-06-30 08:51 - [田中碧失误](https://www.share.minike.top/Article/details/653709501.shtml)
+- 2026-06-30 08:46 - [内马尔替补](http://www.blog.kurohicncr.top/Article/details/10225.shtml)
+- 2026-06-30 08:34 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/7069766.shtml)
+- 2026-06-30 08:38 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/9376019.shtml)
+- 2026-06-30 08:40 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/87787320564.shtml)
+- 2026-06-30 08:46 - [自然光｜papi酱&窦文涛：驴与跑步机](http://www.blog.kurohicncr.top/Article/details/001734006.shtml)
+- 2026-06-30 08:37 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/246941603754.shtml)
+- 2026-06-30 08:59 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/830297.shtml)
+- 2026-06-30 08:34 - [诺伊尔尽力了](https://www.share.kurohicncr.top/Article/details/8541837.shtml)
+- 2026-06-30 08:45 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/50726.shtml)
+- 2026-06-30 08:40 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/84628938.shtml)
+- 2026-06-30 08:47 - [日本队主帅道歉](https://www.share.kurohicncr.top/Article/details/4812322.shtml)
+- 2026-06-30 08:37 - [明星大侦探第一季](https://www.share.minike.top/Article/details/66777685.shtml)

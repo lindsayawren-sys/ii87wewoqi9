@@ -1,59 +1,58 @@
-# 外交部介绍普京访华相关安排
+# 英伟达入局华尔街AI融资热潮
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-5月18日，外交部发言人郭嘉昆主持例行记者会。有记者问，中方前天发布了普京总统将对中国进行国事访问的消息，能否具体介绍此访有关安排？中方对普京总统此访有什么期待？中方如何评价当前中俄关系？ 郭嘉昆表示，这将是普京总统第二十五次到访中国。访问期间，两国元首将就双边关系、各领域合作以及共同关心的国际地区问题交换意见。责任编辑：刘万里 SF014
+英伟达计划在债券市场募资至少 200 亿美元。这家 AI 芯片巨头由此成为又一家借力华尔街、为自身一手催生的 AI 繁荣浪潮融资的企业。 英伟达本次分 7 档发行债券，期限跨度 2 年至 30 年。这将是英伟达自 2021 年以来首次发行公司债券。 本次发债并非企业陷入资金困境的信号，英伟达本身现金流充沛。但这笔融资交易直观反映出 AI 基础设施建设规模已经达到空前高度。即便是
 
 ## 正文
 
-5月18日，外交部发言人郭嘉昆主持例行记者会。
+英伟达计划在债券市场募资至少 200 亿美元。
 
-有记者问，中方前天发布了普京总统将对中国进行国事访问的消息，能否具体介绍此访有关安排？
+这家 AI 芯片巨头由此成为又一家借力华尔街、为自身一手催生的 AI 繁荣浪潮融资的企业。
 
-中方对普京总统此访有什么期待？
+英伟达本次分 7 档发行债券，期限跨度 2 年至 30 年。
 
-中方如何评价当前中俄关系？
+这将是英伟达自 2021 年以来首次发行公司债券。
 
-郭嘉昆表示，这将是普京总统第二十五次到访中国。
+本次发债并非企业陷入资金困境的信号，英伟达本身现金流充沛。
 
-访问期间，两国元首将就双边关系、各领域合作以及共同关心的国际地区问题交换意见。
+但这笔融资交易直观反映出 AI 基础设施建设规模已经达到空前高度。
 
-责任编辑：刘万里 SF014
+即便是行业最大受益者，也纷纷借助资本市场（即通过股票、债券融资的市场），保障自身资金调度的灵活空间。
+
+英伟达筹划发债之际，Alphabet（股票代码 GOOG/GOOGL）刚公布 800 亿美元股票增发计划，股权市场同样显现巨额融资需求。
 
 ## 相关推荐
 
-- 2026-06-30 08:40 - [杨紫学位证上就是杨紫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-30 08:48 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-30 08:53 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
-- 2026-06-30 08:29 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-30 08:31 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
-- 2026-06-30 08:44 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-30 08:37 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
-- 2026-06-30 08:39 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
-- 2026-06-30 08:32 - [郑钦文温网首轮出局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
-- 2026-06-30 08:44 - [巴西足球能否再现昔日荣光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-30 08:24 - [存储芯片龙头提示风险](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-30 08:41 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
-- 2026-06-30 08:36 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
-- 2026-06-30 08:24 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-30 08:34 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
+- 2026-06-30 08:54 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-30 08:48 - [周冬雨多次说演不了话剧文城](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
+- 2026-06-30 08:47 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-30 08:33 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-30 08:32 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-30 08:51 - [王濛回复黄灿灿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-30 08:35 - [郑钦文温网首轮出局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-30 08:51 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-30 08:45 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-30 08:35 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-30 08:44 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-30 08:57 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:48 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/177274.shtml)
-- 2026-06-30 08:43 - [千与千寻](http://www.share.minike.top/Article/details/9441392.shtml)
-- 2026-06-30 08:35 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](http://www.blog.kurohicncr.top/Article/details/66463.shtml)
-- 2026-06-30 08:51 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.minike.top/Article/details/8457612765.shtml)
-- 2026-06-30 08:26 - [三星投资计划](https://www.blog.kurohicncr.top/Article/details/27271589196.shtml)
-- 2026-06-30 08:35 - [网红峡谷5人溺亡 有人提醒会下雨](https://www.blog.kurohicncr.top/Article/details/336966359684.shtml)
-- 2026-06-30 08:36 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/135931.shtml)
-- 2026-06-30 08:33 - [全球最火存储ETF纳入兆易创新](https://www.blog.kurohicncr.top/Article/details/1899145095.shtml)
-- 2026-06-30 08:52 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/9092102413.shtml)
-- 2026-06-30 08:36 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/13806765.shtml)
-- 2026-06-30 08:46 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.minike.top/Article/details/42330.shtml)
-- 2026-06-30 08:28 - [巴西醒醒 这是淘汰赛](http://www.blog.kurohicncr.top/Article/details/4356167628.shtml)
-- 2026-06-30 08:45 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](https://www.share.kurohicncr.top/Article/details/147767373.shtml)
-- 2026-06-30 08:32 - [“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/98678.shtml)
-- 2026-06-30 08:30 - [巴西绝杀日本](https://www.share.minike.top/Article/details/03546000.shtml)
+- 2026-06-30 08:41 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/452147729117.shtml)
+- 2026-06-30 08:38 - [日本球员说被绝杀非常不甘心](http://www.share.minike.top/Article/details/7090148919.shtml)
+- 2026-06-30 08:57 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/62026.shtml)
+- 2026-06-30 08:40 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/60285.shtml)
+- 2026-06-30 08:54 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/20128039.shtml)
+- 2026-06-30 08:49 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/0514856.shtml)
+- 2026-06-30 08:51 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://www.blog.minike.top/Article/details/7570051.shtml)
+- 2026-06-30 08:50 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/796400699021.shtml)
+- 2026-06-30 08:49 - [杨紫学位证上就是杨紫](http://www.share.kurohicncr.top/Article/details/4242798.shtml)
+- 2026-06-30 08:44 - [杨紫被质疑未使用原名纯属误解](http://www.share.minike.top/Article/details/289193761481.shtml)
+- 2026-06-30 08:35 - [板面：为什么那么多人爱吃？？！](http://www.share.minike.top/Article/details/956674655.shtml)
+- 2026-06-30 08:48 - [爱很美味](https://www.share.minike.top/Article/details/304476168040.shtml)
+- 2026-06-30 08:58 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.minike.top/Article/details/01536846.shtml)
+- 2026-06-30 08:50 - [德国巴拉圭加时](http://www.share.minike.top/Article/details/8284833922.shtml)
+- 2026-06-30 08:38 - [曝老詹对自由市场态度与以往截然不同](https://www.share.minike.top/Article/details/735658627.shtml)

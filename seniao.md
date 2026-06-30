@@ -1,60 +1,59 @@
-# 北京出台22项措施优化人才服务与劳动者权益保障
+# 活力中国调研行｜科创园里看“好种子”结“熟果子”
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-中新社北京5月18日电 (记者 陈杭)记者18日从北京市人力资源和社会保障局获悉，该局和北京市人才工作局近日联合发布《人才服务与劳动者权益保障领域2026年全面打造国际一流“北京服务”持续优化营商环境工作方案》，推出七大板块、22方面具体举措，提升企业和劳动者获得感，优化人才服务与劳动者权益保障领域营商环境。根据工作方案，北京将搭建全链条就业创业服务机制。构建就业友好型发展方式
+原标题：活力中国调研行｜科创园里看“好种子”结“熟果子” 如何打通科技成果从实验室走向生产线的“第一公里”？ 6月15日，“活力中国调研行”记者团走进天津市天开高教科创园，感受一块科创“试验田”的创新实践。 在天津常兴新能源科技有限公司的车间内，工程师们正在有条不紊地进行电池组装。这家依托南开大学团队成立的新兴科创企业，如今已经在钠离子电池、固态锂电池等领域突破多项核心技术。“
 
 ## 正文
 
-中新社北京5月18日电 (记者 陈杭)记者18日从北京市人力资源和社会保障局获悉，该局和北京市人才工作局近日联合发布《人才服务与劳动者权益保障领域2026年全面打造国际一流“北京服务”持续优化营商环境工作方案》，推出七大板块、22方面具体举措，提升企业和劳动者获得感，优化人才服务与劳动者权益保障领域营商环境。
+原标题：活力中国调研行｜科创园里看“好种子”结“熟果子” 如何打通科技成果从实验室走向生产线的“第一公里”？
 
-根据工作方案，北京将搭建全链条就业创业服务机制。
+6月15日，“活力中国调研行”记者团走进天津市天开高教科创园，感受一块科创“试验田”的创新实践。
 
-构建就业友好型发展方式，制定新就业群体就业友好若干措施。
+在天津常兴新能源科技有限公司的车间内，工程师们正在有条不紊地进行电池组装。
 
-在全市布局建设就业服务站点，构建15分钟就业服务圈。
+这家依托南开大学团队成立的新兴科创企业，如今已经在钠离子电池、固态锂电池等领域突破多项核心技术。
 
-强化创业扶持，鼓励OPC(一人公司)为代表的创业新模式。
+“在天开园帮助下，我们孵化的企业仅用了不到一年半时间，就让产品走过小试、中试等环节，预计今年内就可实现批量出货。
 
-深挖数字经济就业潜力，年内归集发布1万个优质岗位。
+”公司负责人、南开大学博士生导师严振华告诉记者，现在他已经完全适应了科研与创业“合奏”的状态。
 
-工作方案提出，北京将构建人力资源服务发展新格局。
+作为聚焦科技成果转化的新型科创园区，2023年成立的天开园旨在破解科技成果“不敢转、不愿转、不会转”的难题，已累计引育科技型企业超5100家。
 
-编制外国人来京工作指导目录，迭代升级《北京市国际职业资格认可目录》。
+如何激发科学家创新创业积极性？
 
 ## 相关推荐
 
-- 2026-06-30 08:33 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
-- 2026-06-30 08:41 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-30 08:27 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-30 08:38 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-30 08:52 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
-- 2026-06-30 08:50 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-30 08:34 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-30 08:27 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-30 08:45 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-30 08:53 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-30 08:33 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
-- 2026-06-30 08:24 - [巴西绝杀日本：漫画般结局换了主角](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-30 08:36 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
-- 2026-06-30 08:44 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-30 08:59 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
+- 2026-06-30 08:58 - [板面：为什么那么多人爱吃？？！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-30 08:44 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-30 08:35 - [森保一 保守](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-30 08:59 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
+- 2026-06-30 08:47 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-30 08:42 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-30 08:53 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-30 08:40 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-30 08:47 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-30 08:54 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-30 08:44 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-30 08:39 - [日本五次世界杯淘汰赛全败](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:49 - [日本球迷被强行披上巴西国旗](http://www.blog.kurohicncr.top/Article/details/341697972.shtml)
-- 2026-06-30 08:31 - [《名肘探科比》：科比大战裂口女](http://www.share.minike.top/Article/details/421747.shtml)
-- 2026-06-30 08:47 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.minike.top/Article/details/64471.shtml)
-- 2026-06-30 08:30 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/817194483442.shtml)
-- 2026-06-30 08:24 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/99412.shtml)
-- 2026-06-30 08:27 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/51380048.shtml)
-- 2026-06-30 08:33 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/750258.shtml)
-- 2026-06-30 08:31 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://www.share.kurohicncr.top/Article/details/473979.shtml)
-- 2026-06-30 08:24 - [王楚钦孙颖莎晋级混双八强](http://www.share.minike.top/Article/details/23573.shtml)
-- 2026-06-30 08:46 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/6806445328.shtml)
-- 2026-06-30 08:27 - [感动全网的699分女生想报考清华](http://www.share.kurohicncr.top/Article/details/92491.shtml)
-- 2026-06-30 08:52 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.minike.top/Article/details/55504.shtml)
-- 2026-06-30 08:53 - [王源近几年没有路演了](http://www.blog.minike.top/Article/details/829246071.shtml)
-- 2026-06-30 08:36 - [网瘾賊大的阿嬷](http://www.share.kurohicncr.top/Article/details/81229102.shtml)
-- 2026-06-30 08:25 - [开电动汽车真的很省钱吗？](https://www.blog.kurohicncr.top/Article/details/09592.shtml)
+- 2026-06-30 08:52 - [第一炉香](http://www.share.minike.top/Article/details/607734905.shtml)
+- 2026-06-30 08:42 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.kurohicncr.top/Article/details/93846.shtml)
+- 2026-06-30 08:41 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/97106886.shtml)
+- 2026-06-30 08:52 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/281031218.shtml)
+- 2026-06-30 08:53 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/85912.shtml)
+- 2026-06-30 08:49 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/475113142905.shtml)
+- 2026-06-30 08:36 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/6079906.shtml)
+- 2026-06-30 08:44 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/31543739.shtml)
+- 2026-06-30 08:49 - [武磊：巴西队赢的并不轻松](https://www.blog.kurohicncr.top/Article/details/793081.shtml)
+- 2026-06-30 08:33 - [【涤墨作战7人870】望：我从地狱杀回来了！](http://www.blog.kurohicncr.top/Article/details/241527910.shtml)
+- 2026-06-30 08:40 - [田中碧失误](https://www.share.minike.top/Article/details/8053911474.shtml)
+- 2026-06-30 08:53 - [郑钦文温网三连败西尼亚科娃](https://www.share.minike.top/Article/details/342184948083.shtml)
+- 2026-06-30 08:37 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.minike.top/Article/details/48945497.shtml)
+- 2026-06-30 08:40 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/05906084.shtml)
+- 2026-06-30 08:38 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.kurohicncr.top/Article/details/63843.shtml)

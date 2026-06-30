@@ -1,58 +1,56 @@
-# 中国退税商店数量达1.4万家
+# 美伊协议缓和地缘局势，现货黄金重返4300美元
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-中新社北京5月18日电 (记者 王梦瑶)2025年4月，中国推出优化离境退税1.0版政策。中国商务部副部长盛秋平在18日召开的国新办新闻发布会上指出，截至目前，退税商店数量达1.4万家，是2024年底的4倍左右。 据介绍，2025年，中国离境退税销售额同比增长近1倍，仅一年的销售规模，就基本等同于2015年中国实施离境退税政策以来到2024年10年的总和；办理退税人数达到27万
+2026年6月16日，受美国和伊朗达成协议，恢复霍尔木兹海峡通行消息催化，今日现货黄金重拾4300美元关口，现报4319美元/盎司。 在美伊局势缓和背景下，黄金市场进入震荡等待阶段，短期核心驱动仍围绕地缘进展、油价传导、通胀预期及美联储政策路径展开。宝城期货指出，本周美联储议息会议表述将成为关键观察点，若释放边际宽松信号，或推动金价延续震荡偏强走势；反之则可能压制反弹空间。 国
 
 ## 正文
 
-中新社北京5月18日电 (记者 王梦瑶)2025年4月，中国推出优化离境退税1.0版政策。
+2026年6月16日，受美国和伊朗达成协议，恢复霍尔木兹海峡通行消息催化，今日现货黄金重拾4300美元关口，现报4319美元/盎司。
 
-中国商务部副部长盛秋平在18日召开的国新办新闻发布会上指出，截至目前，退税商店数量达1.4万家，是2024年底的4倍左右。
+在美伊局势缓和背景下，黄金市场进入震荡等待阶段，短期核心驱动仍围绕地缘进展、油价传导、通胀预期及美联储政策路径展开。
 
-据介绍，2025年，中国离境退税销售额同比增长近1倍，仅一年的销售规模，就基本等同于2015年中国实施离境退税政策以来到2024年10年的总和；办理退税人数达到27万，比2024年增长3倍。
+宝城期货指出，本周美联储议息会议表述将成为关键观察点，若释放边际宽松信号，或推动金价延续震荡偏强走势；反之则可能压制反弹空间。
 
-离境退税、单方面扩大免签、支付便利等优化国际化消费环境政策，与“购在中国”系列活动形成组合拳，推动入境消费、旅行服务出口分别增长近40%、50%，中国游、中国购成为国际风尚。
+国新证券分析认为，尽管近期国际金价承压于高位实际利率与强势美元，呈现弱势震荡格局，但A股黄金板块已率先出现超跌修复迹象。
 
-在1.0版政策基础上，5月18日，中国商务部等部门对外发布通知，加力优化离境退税措施，扩大入境消费。
+黄金股作为权益资产，其定价锚定企业盈利与远期金价预期，当前板块估值处于历史低位，悲观情绪充分释放，叠加全球央行持续购金筑牢行业基本面，即便现货短期波动，企业盈利安全垫仍具韧性，修复行情具备结构性支撑。
 
-这次推出的离境退税2.0版政策，是在去年政策基础上的“升级版”，提出8条可操作、能落地的具体举措，让旅客退税更省心、更省时、更省事。
-
-盛秋平表示，这是加强中外交流，推动高水平对外开放的需要；是扩大入境消费、打造消费新增长点的需要；是优化办理流程，进一步提升退税体验的需要。
-
-下一步，商务部将会同相关部门，指导各地建立健全工作机制，创新工作举措，推动政策落实，让各国朋友乘兴而来、满载而归。
+责任编辑：朱赫楠
 
 ## 相关推荐
 
-- 2026-06-30 08:45 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
-- 2026-06-30 08:52 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-30 08:26 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
-- 2026-06-30 08:31 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-30 08:46 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-30 08:39 - [哈弗茨头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
-- 2026-06-30 08:43 - [周冬雨多次说演不了话剧文城](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-30 08:28 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
-- 2026-06-30 08:35 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
-- 2026-06-30 08:27 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-30 08:49 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
-- 2026-06-30 08:40 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-30 08:43 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-30 08:46 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-30 08:37 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-30 08:50 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-30 08:43 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-30 08:46 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
+- 2026-06-30 08:33 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-30 08:31 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
+- 2026-06-30 08:30 - [陈幸同晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
+- 2026-06-30 08:38 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-30 08:52 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-30 08:49 - [大蒜晒外面被路过女子连盆端走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-30 08:46 - [孙颖莎王楚钦晋级8强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-30 08:52 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:29 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/41066563788.shtml)
-- 2026-06-30 08:49 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/71731.shtml)
-- 2026-06-30 08:52 - [啊啊啊](https://www.blog.minike.top/Article/details/3227149866.shtml)
-- 2026-06-30 08:36 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/32436728.shtml)
-- 2026-06-30 08:26 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/038400053.shtml)
-- 2026-06-30 08:34 - [Melo向柳智敏张元英道歉](http://www.share.kurohicncr.top/Article/details/77568103.shtml)
-- 2026-06-30 08:31 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/123755.shtml)
-- 2026-06-30 08:49 - [城市规划有可能成为「屎山代码」吗？](https://www.share.kurohicncr.top/Article/details/476782.shtml)
-- 2026-06-30 08:30 - [感动全网的699分女生想报考清华](https://www.blog.minike.top/Article/details/7194274.shtml)
-- 2026-06-30 08:34 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](http://www.blog.kurohicncr.top/Article/details/8159428.shtml)
-- 2026-06-30 08:28 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/34960.shtml)
-- 2026-06-30 08:46 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/93811190.shtml)
-- 2026-06-30 08:39 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/10841634.shtml)
-- 2026-06-30 08:28 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://www.blog.kurohicncr.top/Article/details/696665234204.shtml)
-- 2026-06-30 08:48 - [日本16强魔咒](http://www.share.kurohicncr.top/Article/details/02914963.shtml)
+- 2026-06-30 08:43 - [“草莓月亮”浪漫现身](http://www.blog.kurohicncr.top/Article/details/939877.shtml)
+- 2026-06-30 08:49 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/28966.shtml)
+- 2026-06-30 08:51 - [穆祉丞回应获年度人气艺人](https://www.share.kurohicncr.top/Article/details/61424.shtml)
+- 2026-06-30 08:42 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/95074.shtml)
+- 2026-06-30 08:55 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/9638455.shtml)
+- 2026-06-30 08:52 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/71569.shtml)
+- 2026-06-30 08:51 - [二次元提前预演明日巴西对日本](https://www.blog.minike.top/Article/details/698908804384.shtml)
+- 2026-06-30 08:34 - [萨内 看笑了](https://www.share.kurohicncr.top/Article/details/33213470429.shtml)
+- 2026-06-30 08:55 - [张帅时隔四年晋级温网第二轮](http://www.share.minike.top/Article/details/937011359067.shtml)
+- 2026-06-30 08:53 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.blog.minike.top/Article/details/41921408.shtml)
+- 2026-06-30 08:32 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/65760468.shtml)
+- 2026-06-30 08:45 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/694579074.shtml)
+- 2026-06-30 08:41 - [点球大战](http://www.blog.kurohicncr.top/Article/details/9575516163.shtml)
+- 2026-06-30 08:32 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.kurohicncr.top/Article/details/306580.shtml)
+- 2026-06-30 08:32 - [安切洛蒂 换人](http://www.blog.minike.top/Article/details/460060.shtml)

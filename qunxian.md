@@ -1,43 +1,61 @@
-# 中央气象台今早继续发布暴雨黄色预警
+# 20260612 5月份CPI总体平稳，PPI继续上涨
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月18日 11:02 来源：央视新闻 责任编辑：【王祎】
+国开债ETF博时（159650）基金经理 吕瑞君 上周五（6月5日）银行间流动性边际收敛，主要资金价格有所上升，当日央行净投放920亿元。此外，当日央行开展5000亿元3个月期逆回购操作，本月有8000亿元3个月期逆回购到期，净回笼为3000亿元。本周一银行间流动性边际收敛，主要资金价格有所上升，当日央行净投放1775亿元。本周二银行间流动性小幅收敛，主要资金价格有所上升，当日
 
 ## 正文
 
-发布时间：2026年05月18日 11:02 来源：央视新闻 责任编辑：【王祎】
+国开债ETF博时（159650）基金经理 吕瑞君 上周五（6月5日）银行间流动性边际收敛，主要资金价格有所上升，当日央行净投放920亿元。
+
+此外，当日央行开展5000亿元3个月期逆回购操作，本月有8000亿元3个月期逆回购到期，净回笼为3000亿元。
+
+本周一银行间流动性边际收敛，主要资金价格有所上升，当日央行净投放1775亿元。
+
+本周二银行间流动性小幅收敛，主要资金价格有所上升，当日央行净投放1528亿元。
+
+本周三银行间流动性整体持稳，主要资金价格变化不大，当日央行净投放1590亿元。
+
+本周四银行间流动性小幅收敛，主要资金价格略有上升，当日央行净投放1885亿元。
+
+本周四（6月11日）相较于上周五，DR001上行6bp收于1.40%，DR007上行6bp收于 1.44%。
+
+海外方面，美国5月未季调CPI同比升4.2%，预期升4.2%，前值升3.8%；季调后CPI环比升0.5%，预期升0.5%，前值升0.6%；未季调核心CPI同比升2.9%，预期升2.9%，前值升2.8%；季调后核心CPI环比升0.2%，预期升0.3%，前值升0.4%。
 
 ## 相关推荐
 
-- 2026-06-30 08:50 - [德国4比5巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-30 08:38 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-30 08:30 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
-- 2026-06-30 08:35 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-30 08:43 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
-- 2026-06-30 08:27 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-30 08:37 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
-- 2026-06-30 08:43 - [陈幸同晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-30 08:32 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-30 08:27 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
-- 2026-06-30 08:31 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-30 08:44 - [日本球员说被绝杀非常不甘心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-30 08:35 - [点球大战 残酷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-30 08:56 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-30 08:44 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-30 08:45 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-30 08:41 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-30 08:44 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-30 08:58 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
+- 2026-06-30 08:47 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
+- 2026-06-30 08:59 - [郑钦文温网一轮游](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-30 08:51 - [泰山景区回应修建刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-30 08:41 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-30 08:59 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
+- 2026-06-30 08:55 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-30 08:48 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:32 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/574032043.shtml)
-- 2026-06-30 08:53 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.minike.top/Article/details/08832082002.shtml)
-- 2026-06-30 08:27 - [女心理师](http://www.share.kurohicncr.top/Article/details/11662852798.shtml)
-- 2026-06-30 08:50 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/7737266131.shtml)
-- 2026-06-30 08:39 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/806543.shtml)
-- 2026-06-30 08:42 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.minike.top/Article/details/53276.shtml)
-- 2026-06-30 08:33 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/442032837.shtml)
-- 2026-06-30 08:50 - [4000美元是黄金新一轮下跌的开始吗](http://www.share.kurohicncr.top/Article/details/0752191.shtml)
-- 2026-06-30 08:46 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/522133.shtml)
-- 2026-06-30 08:33 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/139560219.shtml)
-- 2026-06-30 08:30 - [德国巴拉圭进入点球大战](http://www.blog.kurohicncr.top/Article/details/2749241.shtml)
-- 2026-06-30 08:31 - [韩国世界杯出局是主帅一个人的锅吗](http://www.blog.kurohicncr.top/Article/details/87876052.shtml)
-- 2026-06-30 08:28 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/204763057.shtml)
-- 2026-06-30 08:49 - [本届世界杯已有5名球员被控强奸](http://www.share.minike.top/Article/details/7982527.shtml)
-- 2026-06-30 08:38 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/822196531831.shtml)
+- 2026-06-30 08:31 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/12538041866.shtml)
+- 2026-06-30 08:30 - [日本球员说被绝杀非常不甘心](https://www.share.kurohicncr.top/Article/details/39215816199.shtml)
+- 2026-06-30 08:52 - [问心2神一集鬼三集](http://www.blog.kurohicncr.top/Article/details/50568696369.shtml)
+- 2026-06-30 08:58 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/81171690624.shtml)
+- 2026-06-30 08:36 - [谢依霖说杨幂是聚会第一把张罗手](http://www.share.minike.top/Article/details/114855.shtml)
+- 2026-06-30 08:55 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/385493328.shtml)
+- 2026-06-30 08:40 - [日耳曼拖拉机](http://www.share.minike.top/Article/details/236185152.shtml)
+- 2026-06-30 08:42 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/642185557.shtml)
+- 2026-06-30 08:37 - [韩国球迷凌晨4点接机怒骂主教练](https://www.share.kurohicncr.top/Article/details/817881237833.shtml)
+- 2026-06-30 08:55 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/1930288194.shtml)
+- 2026-06-30 08:33 - [董卿父亲报纸上发文悼念亡妻](http://www.blog.minike.top/Article/details/493490.shtml)
+- 2026-06-30 08:31 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/50856.shtml)
+- 2026-06-30 08:38 - [日本队5进世界杯淘汰赛0胜](http://www.share.minike.top/Article/details/999683.shtml)
+- 2026-06-30 08:56 - [内马尔替补](http://www.blog.minike.top/Article/details/623626157849.shtml)
+- 2026-06-30 08:35 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.blog.minike.top/Article/details/28225.shtml)

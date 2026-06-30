@@ -1,45 +1,50 @@
-# 山海星辰集团副总裁姬丽：中国微短剧老外看了也停不下来
+# 快讯：恒指高开0.01% 科指跌0.47% 科网股低迷 SENASIC上市首日涨超72%
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-中新网5月19日电 “中国微短剧正在成为全球年轻人通勤、午休、睡前不可或缺的‘电子榨菜’”。在2026年中国网络文明大会网络文明国际交流互鉴分论坛上，山海星辰集团副总裁、执行总编辑姬丽表示：数据显示，过去两年中国短剧海外下载量翻了十倍不止，一个又一个中国故事，正以分钟为单位，跨越语言与国界直达千万人。
+美股周二走势分化，地缘政治局势缓和，油价跌破80美元及美债息回落至4.43厘水平，利好市场气氛，带动道指一度创历史新高，惟尾市升幅收窄，加上科技股出现回吐，拖累标普500及纳指倒跌。美元走势向下，金价则持续上升。 今日港股三大指数涨跌不一，恒指开盘涨0.01%，报24495.85点，恒科指跌0.47%，国企指数跌0.06%。盘面上，科网股跌多涨少，阿里巴巴涨超1%，联想跌超1%
 
 ## 正文
 
-中新网5月19日电 “中国微短剧正在成为全球年轻人通勤、午休、睡前不可或缺的‘电子榨菜’”。
+美股周二走势分化，地缘政治局势缓和，油价跌破80美元及美债息回落至4.43厘水平，利好市场气氛，带动道指一度创历史新高，惟尾市升幅收窄，加上科技股出现回吐，拖累标普500及纳指倒跌。
 
-在2026年中国网络文明大会网络文明国际交流互鉴分论坛上，山海星辰集团副总裁、执行总编辑姬丽表示：数据显示，过去两年中国短剧海外下载量翻了十倍不止，一个又一个中国故事，正以分钟为单位，跨越语言与国界直达千万人。
+美元走势向下，金价则持续上升。
+
+今日港股三大指数涨跌不一，恒指开盘涨0.01%，报24495.85点，恒科指跌0.47%，国企指数跌0.06%。
+
+盘面上，科网股跌多涨少，阿里巴巴涨超1%，联想跌超1%，网易跌近1%；黄金股活跃，灵宝黄金涨超1%；石油股走弱，中海油跌超1%；今日SENASIC上市，首日涨超72%。
+
+责任编辑：郝欣煜
 
 ## 相关推荐
 
-- 2026-06-30 08:47 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-30 08:25 - [郑钦文 四年一轮游](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
-- 2026-06-30 08:31 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-30 08:50 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-30 08:30 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-30 08:36 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-30 08:35 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-30 08:31 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-30 08:50 - [德国队世界杯点球大战首败](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-30 08:45 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-30 08:42 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-30 08:32 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
+- 2026-06-30 08:55 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-30 08:39 - [杨紫肖战余生请多指教拍立得](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-30 08:32 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-30 08:47 - [全球芯片巨头史诗级扩产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-30 08:47 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-30 08:42 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-30 08:30 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-30 08:58 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-30 08:58 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:25 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/49071587.shtml)
-- 2026-06-30 08:25 - [沉睡花园](http://www.blog.minike.top/Article/details/11182906.shtml)
-- 2026-06-30 08:53 - [媒体：手机测评该挤挤水分了](http://www.share.minike.top/Article/details/227175.shtml)
-- 2026-06-30 08:29 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/387873488.shtml)
-- 2026-06-30 08:45 - [好像看到了人类带孩子崩溃的样子](https://www.share.minike.top/Article/details/97367026.shtml)
-- 2026-06-30 08:37 - [二次元提前预演明日巴西对日本](http://www.share.minike.top/Article/details/83171330928.shtml)
-- 2026-06-30 08:51 - [第3集丨“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/34947.shtml)
-- 2026-06-30 08:35 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/03403746229.shtml)
-- 2026-06-30 08:34 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/88456.shtml)
-- 2026-06-30 08:40 - [萨内 看笑了](http://www.share.kurohicncr.top/Article/details/191329620.shtml)
-- 2026-06-30 08:47 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.kurohicncr.top/Article/details/74711039.shtml)
-- 2026-06-30 08:31 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.minike.top/Article/details/910121.shtml)
-- 2026-06-30 08:40 - [日本将帅赛后采访纷纷哽咽落泪](http://www.blog.minike.top/Article/details/98387857672.shtml)
-- 2026-06-30 08:51 - [莫兰特转投开拓者效力](http://www.share.kurohicncr.top/Article/details/045644.shtml)
-- 2026-06-30 08:47 - [日本博主：日本足球真的垃圾](https://www.blog.minike.top/Article/details/154893140.shtml)
+- 2026-06-30 08:35 - [金刚川](http://www.blog.minike.top/Article/details/9005850.shtml)
+- 2026-06-30 08:57 - [DeepSeek V4正式版要来了](https://www.share.minike.top/Article/details/998390762456.shtml)
+- 2026-06-30 08:40 - [齐思钧回复张月](http://www.share.minike.top/Article/details/4455563.shtml)
+- 2026-06-30 08:49 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/2055284894.shtml)
+- 2026-06-30 08:44 - [德国爆冷点球大战不敌巴拉圭](http://www.blog.kurohicncr.top/Article/details/7657099575.shtml)
+- 2026-06-30 08:53 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/90261.shtml)
+- 2026-06-30 08:35 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.kurohicncr.top/Article/details/188589.shtml)
+- 2026-06-30 08:40 - [德国进球被吹](http://www.share.minike.top/Article/details/24104041.shtml)
+- 2026-06-30 08:57 - [欧洲装一台空调有多难](http://www.share.kurohicncr.top/Article/details/40912637635.shtml)
+- 2026-06-30 08:56 - [郑钦文温网一轮游](https://www.share.kurohicncr.top/Article/details/525460336.shtml)
+- 2026-06-30 08:48 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/01033.shtml)
+- 2026-06-30 08:51 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/816884797691.shtml)
+- 2026-06-30 08:34 - [郑钦文温网一轮游](https://www.blog.kurohicncr.top/Article/details/501323.shtml)
+- 2026-06-30 08:36 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/427062.shtml)
+- 2026-06-30 08:39 - [金鹰奖视后提名预测](http://www.share.kurohicncr.top/Article/details/52147960110.shtml)

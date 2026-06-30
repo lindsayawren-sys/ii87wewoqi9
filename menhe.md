@@ -1,59 +1,56 @@
-# 山西启动“5·19中国旅游日”主题活动 多措并举推动文旅产业提质升级
+# 端午节假期全国口岸日均出入境人员将达220万人次
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-中新网晋中5月19日电 (刘小红)2026年“5·19中国旅游日”山西启动仪式暨全省文旅惠民发布活动18日在晋中市榆次老城启幕。此次活动以“乐享品质旅游、共赴美好山河”为主题，以门票优惠、沉浸式民俗表演、互动游戏、惠民礼包发放等多元形式，开展各类文旅活动，激活全省文旅消费市场。 活动开场前，老城街巷间已是一番热闹景象，工作人员安排身着传统服饰的非玩家角色(NPC)在榆次老城街巷
+端午佳节将至，预计全国口岸将迎来出入境客流高峰。 据国家移民管理局预测，端午节假期全国口岸日均出入境人员将达220万人次，较去年端午节假期增长11.7%，单日最高通关量将突破235万人次。大型空港口岸出入境客流小幅增长，上海浦东、北京首都、广州白云、深圳宝安、北京大兴、成都天府等国际机场日均出入境人员预计分别为10.4万、5.2万、5.2万、2.1万、1.9万、1.7万人次。
 
 ## 正文
 
-中新网晋中5月19日电 (刘小红)2026年“5·19中国旅游日”山西启动仪式暨全省文旅惠民发布活动18日在晋中市榆次老城启幕。
+端午佳节将至，预计全国口岸将迎来出入境客流高峰。
 
-此次活动以“乐享品质旅游、共赴美好山河”为主题，以门票优惠、沉浸式民俗表演、互动游戏、惠民礼包发放等多元形式，开展各类文旅活动，激活全省文旅消费市场。
+据国家移民管理局预测，端午节假期全国口岸日均出入境人员将达220万人次，较去年端午节假期增长11.7%，单日最高通关量将突破235万人次。
 
-活动开场前，老城街巷间已是一番热闹景象，工作人员安排身着传统服饰的非玩家角色(NPC)在榆次老城街巷与游客互动、合影，烘托活动氛围。
+大型空港口岸出入境客流小幅增长，上海浦东、北京首都、广州白云、深圳宝安、北京大兴、成都天府等国际机场日均出入境人员预计分别为10.4万、5.2万、5.2万、2.1万、1.9万、1.7万人次。
 
-当日16时，活动正式启动。
+端午节期间粤港澳三地将举办多场龙舟赛事和大型活动，跨境旅游和返乡探亲客流叠加，毗邻港澳陆路口岸通关流量将明显增多。
 
-活动现场发布了2026年“5·19中国旅游日”山西省景区惠民政策。
+其中，深圳罗湖、福田、深圳湾、广深港高铁西九龙站、莲塘口岸日均出入境人员预计将分别达到26万、24万、20万、13万、11万人次，珠海拱北、港珠澳大桥、青茂、横琴口岸日均出入境人员预计将分别达到37万、12.2万、11.5万、10.5万人次。
 
-据介绍，5月19日，山西省多家A级景区对全国游客实行半价、免首道门票等优惠，政策覆盖洪洞大槐树、王莽岭等景区，游客可畅游大美山西，打卡壮丽的表里山河。
+国家移民管理局提示广大中外出入境旅客，出行前及时关注口岸客流变化和通关情况，仔细检查出入境证件签证是否有效；中国公民出境时需提前了解前往地安全形势、入境政策等，避免前往存在埃博拉病毒病疫情流行风险的国家和地区。
 
-与此同时，山西多地景区同步推出风筝露营节、草坪音乐会、红色潮玩互动体验等主题活动和文艺汇演，全省同频共振，营造了浓厚的旅游氛围。
+通关过程中如遇困难，可随时拨打国家移民管理机构12367服务热线或向现场执勤的移民管理警察寻求帮助。
 
-活动现场，左权小花戏舞蹈带来原汁原味的民俗表演，一招一式尽显传统文化的独特魅力。
+(总台央视记者 武兵)
 
 ## 相关推荐
 
-- 2026-06-30 08:29 - [董路：谁赢谁是“正路子”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-30 08:24 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-30 08:36 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-30 08:51 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
-- 2026-06-30 08:30 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
-- 2026-06-30 08:32 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-30 08:43 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-30 08:31 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-30 08:25 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-30 08:53 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-30 08:47 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
-- 2026-06-30 08:43 - [德国巴拉圭 折磨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-30 08:39 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-30 08:32 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-30 08:50 - [4000美元是黄金新一轮下跌的开始吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-30 08:39 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-30 08:53 - [三星投资计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-30 08:35 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
+- 2026-06-30 08:51 - [森保一 保守](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-30 08:49 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-30 08:37 - [德国队连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
+- 2026-06-30 08:59 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-30 08:32 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:25 - [第一炉香](http://www.blog.minike.top/Article/details/615735498876.shtml)
-- 2026-06-30 08:41 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/71854562106.shtml)
-- 2026-06-30 08:49 - [日本博主：日本足球真的垃圾](https://www.share.minike.top/Article/details/02854406.shtml)
-- 2026-06-30 08:52 - [森保一致歉：世界第一目标没能实现](https://www.share.minike.top/Article/details/702035379.shtml)
-- 2026-06-30 08:43 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/051373.shtml)
-- 2026-06-30 08:51 - [王灿兮被烫伤两年后维权成功](https://www.blog.kurohicncr.top/Article/details/67559.shtml)
-- 2026-06-30 08:33 - [吴易昺不敌德约科维奇 止步温网首轮](http://www.share.kurohicncr.top/Article/details/236503307269.shtml)
-- 2026-06-30 08:44 - [点球大战 残酷](http://www.share.kurohicncr.top/Article/details/8116698767.shtml)
-- 2026-06-30 08:37 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.kurohicncr.top/Article/details/639844008.shtml)
-- 2026-06-30 08:49 - [孙兴慜发长文致歉](http://www.blog.minike.top/Article/details/079640.shtml)
-- 2026-06-30 08:27 - [巴西足球能否再现昔日荣光](https://www.blog.minike.top/Article/details/88900868190.shtml)
-- 2026-06-30 08:33 - [日耳曼拖拉机](http://www.blog.kurohicncr.top/Article/details/88034624.shtml)
-- 2026-06-30 08:41 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/2257558.shtml)
-- 2026-06-30 08:45 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.share.minike.top/Article/details/066804488160.shtml)
-- 2026-06-30 08:42 - [世界杯欧洲队7战南美仅1胜](https://www.share.minike.top/Article/details/9536261674.shtml)
+- 2026-06-30 08:57 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/9757003.shtml)
+- 2026-06-30 08:52 - [韩国世界杯出局是主帅一个人的锅吗](http://www.share.kurohicncr.top/Article/details/082083.shtml)
+- 2026-06-30 08:40 - [现在叛逆期的孩子最怕的是什么？](http://www.share.kurohicncr.top/Article/details/4162929.shtml)
+- 2026-06-30 08:39 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/5284621.shtml)
+- 2026-06-30 08:58 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/9932041.shtml)
+- 2026-06-30 08:55 - [电影抓特务上映11天破亿](https://www.share.kurohicncr.top/Article/details/83400141.shtml)
+- 2026-06-30 08:39 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/58959713.shtml)
+- 2026-06-30 08:37 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/75135054.shtml)
+- 2026-06-30 08:36 - [免费试吃发差评被店家挂店门避雷](https://www.blog.kurohicncr.top/Article/details/10990.shtml)
+- 2026-06-30 08:57 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/370681110665.shtml)
+- 2026-06-30 08:34 - [库尼亚赛后伸五指嘲讽日本](https://www.blog.kurohicncr.top/Article/details/841667175.shtml)
+- 2026-06-30 08:50 - [张帅晋级温网次轮](http://www.blog.minike.top/Article/details/85415589533.shtml)
+- 2026-06-30 08:57 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/136482584.shtml)
+- 2026-06-30 08:35 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/371721420.shtml)
+- 2026-06-30 08:53 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.kurohicncr.top/Article/details/8596058990.shtml)

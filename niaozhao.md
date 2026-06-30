@@ -1,45 +1,52 @@
-# 05月18日镍143066.67元/吨 60天上涨6.11%
+# 随着IPO后股价持续上涨 SpaceX有望超越亚马逊的市值
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-据生意社监测，镍05月18日最新价格143066.67元/吨，最近60天上涨6.11%。相关生产商有：格林美(002340)道氏技术（维权）(300409)ST合纵（维权）(300477)中伟新材(300919)盛屯矿业（维权）(600711)西部矿业(601168)中国中冶(601618)华友钴业(603799)等。
+专题：SpaceX市值超越两家“七巨头” 拉开美股巨型IPO浪潮序幕 埃隆·马斯克旗下的SpaceX公司股价周二盘前交易中上涨逾10%，随着该公司延续 IPO后的涨势，其市值有望超越亚马逊，成为全球第五大公司 。 该股周一暴涨逾19%，最新报211.8美元，涨幅达10.1%；若涨势得以维持，公司市值将接近2.8万亿美元。 亚马逊的最新市值为2.66万亿美元。 SpaceX股票成
 
 ## 正文
 
-据生意社监测，镍05月18日最新价格143066.67元/吨，最近60天上涨6.11%。
+专题：SpaceX市值超越两家“七巨头” 拉开美股巨型IPO浪潮序幕 埃隆·马斯克旗下的SpaceX公司股价周二盘前交易中上涨逾10%，随着该公司延续 IPO后的涨势，其市值有望超越亚马逊，成为全球第五大公司 。
 
-相关生产商有：格林美(002340)道氏技术（维权）(300409)ST合纵（维权）(300477)中伟新材(300919)盛屯矿业（维权）(600711)西部矿业(601168)中国中冶(601618)华友钴业(603799)等。
+该股周一暴涨逾19%，最新报211.8美元，涨幅达10.1%；若涨势得以维持，公司市值将接近2.8万亿美元。
+
+亚马逊的最新市值为2.66万亿美元。
+
+SpaceX股票成交额已超过11.6亿美元，是英伟达、微软、特斯拉和苹果四家公司成交额总和的数倍。
+
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-30 08:48 - [郑钦文温网一轮游](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-30 08:32 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
-- 2026-06-30 08:45 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-30 08:48 - [董路：谁赢谁是“正路子”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-30 08:29 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
-- 2026-06-30 08:34 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
-- 2026-06-30 08:52 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-30 08:29 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-30 08:46 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
-- 2026-06-30 08:46 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
-- 2026-06-30 08:50 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-30 08:51 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-30 08:55 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-30 08:36 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
+- 2026-06-30 08:34 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-30 08:44 - [自然光｜papi酱&窦文涛：驴与跑步机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-30 08:48 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-30 08:53 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-30 08:51 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
+- 2026-06-30 08:35 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-30 08:58 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-30 08:49 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-30 08:54 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:45 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/1724585982.shtml)
-- 2026-06-30 08:29 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/648048618.shtml)
-- 2026-06-30 08:50 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/4472485.shtml)
-- 2026-06-30 08:47 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/960304.shtml)
-- 2026-06-30 08:49 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/1484666.shtml)
-- 2026-06-30 08:30 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/817244814684.shtml)
-- 2026-06-30 08:38 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.kurohicncr.top/Article/details/507633.shtml)
-- 2026-06-30 08:30 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/685648916.shtml)
-- 2026-06-30 08:44 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/729171279.shtml)
-- 2026-06-30 08:41 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/91954.shtml)
-- 2026-06-30 08:24 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/624485.shtml)
-- 2026-06-30 08:37 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.kurohicncr.top/Article/details/7914727.shtml)
-- 2026-06-30 08:43 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/719379283498.shtml)
-- 2026-06-30 08:36 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/119779.shtml)
-- 2026-06-30 08:26 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](http://www.share.kurohicncr.top/Article/details/806573.shtml)
+- 2026-06-30 08:50 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.minike.top/Article/details/562065034.shtml)
+- 2026-06-30 08:54 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.kurohicncr.top/Article/details/979472897027.shtml)
+- 2026-06-30 08:43 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.share.minike.top/Article/details/827899786368.shtml)
+- 2026-06-30 08:44 - [杨紫获白玉兰视后争议不止](http://www.share.kurohicncr.top/Article/details/541672646815.shtml)
+- 2026-06-30 08:36 - [森保一 保守](http://www.blog.kurohicncr.top/Article/details/91970.shtml)
+- 2026-06-30 08:35 - [韩国世界杯出局是主帅一个人的锅吗](https://www.share.kurohicncr.top/Article/details/260659.shtml)
+- 2026-06-30 08:33 - [世界杯](https://www.share.minike.top/Article/details/580573.shtml)
+- 2026-06-30 08:58 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.kurohicncr.top/Article/details/103720702.shtml)
+- 2026-06-30 08:34 - [泰山建135公里刀片刺绳隔离网](https://www.blog.kurohicncr.top/Article/details/20538267062.shtml)
+- 2026-06-30 08:37 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.share.minike.top/Article/details/4262866.shtml)
+- 2026-06-30 08:54 - [马耳他著名拱门坍塌致一中国男子身亡](https://www.blog.minike.top/Article/details/394043537715.shtml)
+- 2026-06-30 08:41 - [媒体评泰山建135公里刀片刺绳隔离网](http://www.share.kurohicncr.top/Article/details/16920402.shtml)
+- 2026-06-30 08:48 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/011462015499.shtml)
+- 2026-06-30 08:56 - [德国巴拉圭 折磨](http://www.share.kurohicncr.top/Article/details/978591602.shtml)
+- 2026-06-30 08:46 - [荷兰vs摩洛哥](http://www.share.kurohicncr.top/Article/details/30372027.shtml)

@@ -1,59 +1,61 @@
-# Inpex Ichthys LNG工厂工人拟于5月底罢工，全球能源供应面临新压力
+# 摘掉“*ST”帽子，撕掉地产标签，中交发展一字涨停
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-罢工通知 海上联盟工会周一表示，已向Inpex发出通知，计划从5月27日起在其位于澳大利亚北部的Ichthys液化天然气工厂举行罢工。此举可能进一步加剧本已紧张的全球能源供应形势。 争议背景与谈判进展 上个月，这座位于达尔文附近的年产930万吨LNG工厂的346名工会工人中有326人投票支持就薪酬和工作条件采取罢工行动。投票结果有待5月份为期六天的谈判确认。工会律师已向这家日本
+6月15日晚间，刚刚摘掉“*ST”帽子的中交地产，宣布变更证券简称的申请已获深圳证券交易所同意。自6月16日起，公司的证券简称将变更为“中交发展”。 此次变更后，公司“地产”的标签将被彻底撕掉。 中交地产是央企中交集团旗下的房地产开发平台。早年间，中交地产曾试图冲击“千亿军团”，并大举扩张。但由于楼市调整，公司业绩遭遇滑坡。去年4月，因资不抵债，中交地产被实施退市风险警示，股票
 
 ## 正文
 
-罢工通知 海上联盟工会周一表示，已向Inpex发出通知，计划从5月27日起在其位于澳大利亚北部的Ichthys液化天然气工厂举行罢工。
+6月15日晚间，刚刚摘掉“*ST”帽子的中交地产，宣布变更证券简称的申请已获深圳证券交易所同意。
 
-此举可能进一步加剧本已紧张的全球能源供应形势。
+自6月16日起，公司的证券简称将变更为“中交发展”。
 
-争议背景与谈判进展 上个月，这座位于达尔文附近的年产930万吨LNG工厂的346名工会工人中有326人投票支持就薪酬和工作条件采取罢工行动。
+此次变更后，公司“地产”的标签将被彻底撕掉。
 
-投票结果有待5月份为期六天的谈判确认。
+中交地产是央企中交集团旗下的房地产开发平台。
 
-工会律师已向这家日本公司发出通知，表示将从5月27日至6月10日期间的任何时间点发起罢工，并称数月谈判未能取得任何进展。
+早年间，中交地产曾试图冲击“千亿军团”，并大举扩张。
 
-工会表态 一位发言人在声明中表示，已向Inpex明确表示，不会因为Inpex在六个月内未能审阅其诉求而接受核心诉求被轻视。
+但由于楼市调整，公司业绩遭遇滑坡。
 
-工会已告知Inpex，其将继续在定于5月25日和26日的会议上与公司进行谈判。
+去年4月，因资不抵债，中交地产被实施退市风险警示，股票简称变更为“*ST中地”。
 
-Inpex未立即回应置评请求。
+为实施自救，中交地产很早就启动业务转型。
 
 ## 相关推荐
 
-- 2026-06-30 08:53 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
-- 2026-06-30 08:24 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-30 08:30 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
-- 2026-06-30 08:31 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-30 08:52 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-30 08:28 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
-- 2026-06-30 08:39 - [日本队主帅道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
-- 2026-06-30 08:34 - [4000美元是黄金新一轮下跌的开始吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-30 08:48 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-30 08:47 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-30 08:45 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-30 08:47 - [日本五次世界杯淘汰赛全败](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
-- 2026-06-30 08:43 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-30 08:59 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-30 08:41 - [德国巴拉圭进入点球大战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
+- 2026-06-30 08:35 - [自然光｜papi酱&窦文涛：驴与跑步机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
+- 2026-06-30 08:37 - [日本队5进世界杯淘汰赛0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-30 08:55 - [锐评T1战胜KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-30 08:48 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-30 08:32 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-30 08:59 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
+- 2026-06-30 08:40 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-30 08:36 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-30 08:45 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-30 08:55 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-30 08:34 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-30 08:43 - [萨内 看笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-30 08:44 - [杨紫肖战余生请多指教拍立得](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:27 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/009719.shtml)
-- 2026-06-30 08:43 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/87816.shtml)
-- 2026-06-30 08:47 - [二次元提前预演明日巴西对日本](https://www.blog.kurohicncr.top/Article/details/77029821467.shtml)
-- 2026-06-30 08:28 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/1000370752.shtml)
-- 2026-06-30 08:35 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/39080000.shtml)
-- 2026-06-30 08:53 - [日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？](https://www.blog.kurohicncr.top/Article/details/120130996.shtml)
-- 2026-06-30 08:29 - [王健林甩卖超80座万达广场](http://www.blog.minike.top/Article/details/742843.shtml)
-- 2026-06-30 08:52 - [德国队连续三届世界杯无缘16强](http://www.blog.kurohicncr.top/Article/details/720991001272.shtml)
-- 2026-06-30 08:51 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/125566.shtml)
-- 2026-06-30 08:27 - [自然光｜papi酱&窦文涛：驴与跑步机](https://www.share.minike.top/Article/details/875332545.shtml)
-- 2026-06-30 08:44 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/27663544.shtml)
-- 2026-06-30 08:43 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/3765639085.shtml)
-- 2026-06-30 08:50 - [亚洲球队全部告别世界杯](https://www.share.minike.top/Article/details/830175.shtml)
-- 2026-06-30 08:39 - [全球芯片巨头史诗级扩产](http://www.share.minike.top/Article/details/964991876.shtml)
-- 2026-06-30 08:53 - [德国巴拉圭进入点球大战](http://www.share.kurohicncr.top/Article/details/105603777647.shtml)
+- 2026-06-30 08:54 - [千香](https://www.blog.kurohicncr.top/Article/details/5517142.shtml)
+- 2026-06-30 08:59 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/179619.shtml)
+- 2026-06-30 08:55 - [美人鱼](https://www.blog.minike.top/Article/details/09309251403.shtml)
+- 2026-06-30 08:55 - [巴西足球能否再现昔日荣光](https://www.share.kurohicncr.top/Article/details/0918942.shtml)
+- 2026-06-30 08:58 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/1599221332.shtml)
+- 2026-06-30 08:39 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/43003509837.shtml)
+- 2026-06-30 08:58 - [电影抓特务上映11天破亿](http://www.share.kurohicncr.top/Article/details/0229385610.shtml)
+- 2026-06-30 08:44 - [追梦拒绝2770万美元球员选项](https://www.share.kurohicncr.top/Article/details/0415602.shtml)
+- 2026-06-30 08:42 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.minike.top/Article/details/47798.shtml)
+- 2026-06-30 08:33 - [德国淘汰](http://www.blog.kurohicncr.top/Article/details/709351172.shtml)
+- 2026-06-30 08:36 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.kurohicncr.top/Article/details/218792.shtml)
+- 2026-06-30 08:54 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/5472539546.shtml)
+- 2026-06-30 08:40 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/141733926891.shtml)
+- 2026-06-30 08:51 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/28738799.shtml)
+- 2026-06-30 08:58 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/723596.shtml)

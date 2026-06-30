@@ -1,61 +1,58 @@
-# 日本一季度经济增速超预期
+# 东西问丨徐天启：多边主义保障世界人权面临何种挑战与机遇？
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-周二公布的官方数据显示，2026年初日本经济增速超出市场预期，但受中东战事引发的通胀担忧加剧影响，日本首相高市早苗正考虑出台追加预算。 作为全球第四大经济体，日本一季度国内生产总值（GDP）环比增长0.5%，高于市场此前0.4%的预期值。 日本内阁府数据显示，此次经济扩张得益于民间消费与企业投资的增长。 2025年第四季度日本经济增速此前初值为0.3%，后下修至0.2%。 受中
+中新社北京6月16日电 题：多边主义保障世界人权面临何种挑战与机遇？ ——专访中国人民大学重阳金融研究院国别研究部副主任、副研究员徐天启 中新社记者 朱方芳 当前，多边主义的全球治理正面临系统性弱化，造成了部分国家生存权、发展权、和平权、自决权等各项人权的倒退，也导致以人权为重要价值目标和行为准则的全球治理出现混乱。中国提出的全球治理倡议，包含“践行多边主义”等五大核心理念。如
 
 ## 正文
 
-周二公布的官方数据显示，2026年初日本经济增速超出市场预期，但受中东战事引发的通胀担忧加剧影响，日本首相高市早苗正考虑出台追加预算。
+中新社北京6月16日电 题：多边主义保障世界人权面临何种挑战与机遇？
 
-作为全球第四大经济体，日本一季度国内生产总值（GDP）环比增长0.5%，高于市场此前0.4%的预期值。
+——专访中国人民大学重阳金融研究院国别研究部副主任、副研究员徐天启 中新社记者 朱方芳 当前，多边主义的全球治理正面临系统性弱化，造成了部分国家生存权、发展权、和平权、自决权等各项人权的倒退，也导致以人权为重要价值目标和行为准则的全球治理出现混乱。
 
-日本内阁府数据显示，此次经济扩张得益于民间消费与企业投资的增长。
+中国提出的全球治理倡议，包含“践行多边主义”等五大核心理念。
 
-2025年第四季度日本经济增速此前初值为0.3%，后下修至0.2%。
+如何践行真正的多边主义以实现人的自由全面发展？
 
-受中东冲突影响，能源、大米等各类商品价格大幅上涨，民众生活成本攀升，在此背景下，高市早苗计划拟定追加预算以稳住经济增长，上述经济数据也于此时出炉。
+中新社“东西问”就此专访了中国人民大学重阳金融研究院国别研究部副主任、副研究员徐天启。
 
-日本内阁官房长官木原稔周二向记者表示：“中东局势仍存诸多不确定性，密切关注物价走势及其对经济造成的影响至关重要。
+现将访谈实录摘要如下： 中新社记者：您认为，多边主义与人权事业发展有何内在关联？
 
-”他还补充称，首相已指示财务大臣制定相关举措，尽可能降低各类风险。
+徐天启：首先，在价值追求上，多边主义与人权事业发展深度共鸣。
 
-凯投宏观经济学家警示，中东冲突或将持续影响后续经济数据。
+真正的多边主义强调各国无论大小、强弱、贫富，主权和尊严必须得到尊重，有权对全球事务平等参与、平等决策、平等受益；强调各方相互依存、利益与共、从集体福祉而非少数成员的私利出发；主张通过集体协商达成普遍通用的行为准则，反对等级观念和从属关系。
 
 ## 相关推荐
 
-- 2026-06-30 08:35 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-30 08:38 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
-- 2026-06-30 08:45 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-30 08:30 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-30 08:42 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-30 08:46 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-30 08:48 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-30 08:49 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-30 08:26 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-30 08:24 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-30 08:48 - [全球芯片巨头史诗级扩产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-30 08:32 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
-- 2026-06-30 08:41 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-30 08:45 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-30 08:44 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-30 08:45 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-30 08:48 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-30 08:36 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-30 08:45 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-30 08:51 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-30 08:54 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
+- 2026-06-30 08:34 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-30 08:37 - [孙颖莎王楚钦晋级8强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-30 08:48 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-30 08:48 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-30 08:53 - [泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-30 08:48 - [董路：谁赢谁是“正路子”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:48 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/373339217.shtml)
-- 2026-06-30 08:54 - [恋与深空道歉声明](http://www.share.minike.top/Article/details/476426.shtml)
-- 2026-06-30 08:42 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/25254202.shtml)
-- 2026-06-30 08:34 - [德国队连续三届世界杯无缘16强](http://www.share.kurohicncr.top/Article/details/90916.shtml)
-- 2026-06-30 08:38 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.kurohicncr.top/Article/details/8249396.shtml)
-- 2026-06-30 08:29 - [德国队连续三届世界杯无缘16强](http://www.share.minike.top/Article/details/03780628476.shtml)
-- 2026-06-30 08:48 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/048918713.shtml)
-- 2026-06-30 08:26 - [王源近几年没有路演了](https://www.share.minike.top/Article/details/5450514.shtml)
-- 2026-06-30 08:47 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/0411969783.shtml)
-- 2026-06-30 08:25 - [湖南祁东原文化馆被指贱卖](http://www.blog.kurohicncr.top/Article/details/40942.shtml)
-- 2026-06-30 08:51 - [网红峡谷5人溺亡 有人提醒会下雨](https://www.share.kurohicncr.top/Article/details/379110273.shtml)
-- 2026-06-30 08:37 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.kurohicncr.top/Article/details/5490669.shtml)
-- 2026-06-30 08:35 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/34332.shtml)
-- 2026-06-30 08:47 - [勇敢的心第二部](https://www.share.minike.top/Article/details/46002.shtml)
-- 2026-06-30 08:35 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/60075411389.shtml)
+- 2026-06-30 08:48 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/653753.shtml)
+- 2026-06-30 08:40 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/7211185574.shtml)
+- 2026-06-30 08:38 - [逃狱兄弟](http://www.blog.minike.top/Article/details/3757999566.shtml)
+- 2026-06-30 08:43 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/1225352435.shtml)
+- 2026-06-30 08:42 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.minike.top/Article/details/6967854531.shtml)
+- 2026-06-30 08:36 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/330310901777.shtml)
+- 2026-06-30 08:41 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/633025438589.shtml)
+- 2026-06-30 08:41 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/8684438.shtml)
+- 2026-06-30 08:35 - [现在叛逆期的孩子最怕的是什么？](http://www.blog.minike.top/Article/details/6698946.shtml)
+- 2026-06-30 08:42 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/5419890145.shtml)
+- 2026-06-30 08:53 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.minike.top/Article/details/9554635.shtml)
+- 2026-06-30 08:48 - [森保一 保守](https://www.share.minike.top/Article/details/103557.shtml)
+- 2026-06-30 08:43 - [这种关系可能正在悄悄“催老”你](https://www.share.kurohicncr.top/Article/details/83447.shtml)
+- 2026-06-30 08:42 - [《贺子珍》](https://www.blog.minike.top/Article/details/443508.shtml)
+- 2026-06-30 08:38 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/402791.shtml)

@@ -1,56 +1,61 @@
-# 广东文旅高质量发展步履铿锵 活力南粤持续火爆出圈
+# A股尾盘上攻，涨幅扩大：半导体产业链盘中崛起
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-羊城晚报记者 黎存根 广州老城区的粤剧大戏轮番上演，汕头小公园的英歌队吸引游人争相合影，珠海情侣路的海风里飘着欢声笑语……第二十二届文博会即将启幕之际，南粤大地正被文旅热潮包裹：各大景区、商圈人头攒动，烟火气与文化味交织共生。 自上一届文博会以来，“以烟火气聚人气、以创新力破局点”的广东文旅，在四季流转中持续发力。“广东不远，美好很近”不仅是一句文旅宣传语，更是2026年广东推
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！A股三大股指6月17日集体低开。早盘三大股指冲高转涨后回落，沪指午前收跌。半导体午后的拉升，带动三大股指出现一波快速拉升。尾盘再度拉升，三大股指成功收涨。 从盘面上看，PCB、基板概念股掀涨停潮；半导体产业链盘中崛起，多股创历史新高；中字头股午后异动拉升。AI应用、大消费、文化传媒、煤炭、油气、汽车板块跌幅
 
 ## 正文
 
-羊城晚报记者 黎存根 广州老城区的粤剧大戏轮番上演，汕头小公园的英歌队吸引游人争相合影，珠海情侣路的海风里飘着欢声笑语……第二十二届文博会即将启幕之际，南粤大地正被文旅热潮包裹：各大景区、商圈人头攒动，烟火气与文化味交织共生。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-自上一届文博会以来，“以烟火气聚人气、以创新力破局点”的广东文旅，在四季流转中持续发力。
+A股三大股指6月17日集体低开。
 
-“广东不远，美好很近”不仅是一句文旅宣传语，更是2026年广东推动文旅产业高质量发展的核心行动指南。
+早盘三大股指冲高转涨后回落，沪指午前收跌。
 
-如今，广东文旅的烟火气正飘向全国、走向世界，“活力广东·时尚湾区”的名片愈发鲜活。
+半导体午后的拉升，带动三大股指出现一波快速拉升。
 
-四季联动聚人气一年来，广东深耕“请到广东”系列IP，紧扣每个节点的特色，让一场场有温度、有烟火气的活动，成为游客奔赴广东的理由。
+尾盘再度拉升，三大股指成功收涨。
 
-2025年，端午时节的岭南龙舟竞渡鼓声穿透街巷。
+从盘面上看，PCB、基板概念股掀涨停潮；半导体产业链盘中崛起，多股创历史新高；中字头股午后异动拉升。
 
-佛山叠滘水乡的河道旁，“龙船漂移”时船身与河岸擦出的水花，让现场观众惊呼连连；广州珠江之上，数十艘龙舟逐浪而行，岸边游客举着手机记录盛况……热闹的民俗场景刷屏社交平台，让端午节的广东充满生机，令游客流连忘返。
+AI应用、大消费、文化传媒、煤炭、油气、汽车板块跌幅靠前。
 
-从暑期至国庆，再到春节至“五一”，广东顺势而为，精准发力，将民俗体验、滨海休闲、乡村漫游等元素融入主题活动。
+至收盘，上证综指涨0.4%，报4108.08点；深证成指涨1.31%，报15880.95点；创业板指涨1.56%，报4167.05点。
 
 ## 相关推荐
 
-- 2026-06-30 08:26 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-30 08:43 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
-- 2026-06-30 08:25 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-30 08:32 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-30 08:41 - [德国队连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-30 08:45 - [感动全网的699分女生想报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-30 08:31 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-30 08:46 - [莫兰特被交易到开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
-- 2026-06-30 08:50 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-30 08:40 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-30 08:31 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-30 08:39 - [巴拉圭进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-30 08:38 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-30 08:49 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-30 08:54 - [孙颖莎王楚钦晋级8强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-30 08:41 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-30 08:42 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-30 08:41 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-30 08:47 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-30 08:55 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
+- 2026-06-30 08:44 - [陈小春人老了干什么也不心酸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-30 08:32 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-30 08:50 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-30 08:33 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-30 08:50 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:38 - [IGN评测电影版后室](http://www.share.minike.top/Article/details/07228795931.shtml)
-- 2026-06-30 08:31 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/09046627483.shtml)
-- 2026-06-30 08:24 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.blog.kurohicncr.top/Article/details/7675625938.shtml)
-- 2026-06-30 08:40 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/410249.shtml)
-- 2026-06-30 08:32 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.share.minike.top/Article/details/4757637046.shtml)
-- 2026-06-30 08:46 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://www.share.kurohicncr.top/Article/details/218148.shtml)
-- 2026-06-30 08:39 - [巴拉圭先进球了](http://www.blog.minike.top/Article/details/251614366390.shtml)
-- 2026-06-30 08:43 - [建议不要突然完全停止喝咖啡](https://www.share.minike.top/Article/details/828489.shtml)
-- 2026-06-30 08:52 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.minike.top/Article/details/4499095832.shtml)
-- 2026-06-30 08:35 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/06264.shtml)
-- 2026-06-30 08:51 - [锐评T1战胜KC](http://www.blog.kurohicncr.top/Article/details/64983624715.shtml)
-- 2026-06-30 08:28 - [点球大战 残酷](http://www.share.kurohicncr.top/Article/details/494656444115.shtml)
-- 2026-06-30 08:38 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/21693888.shtml)
-- 2026-06-30 08:34 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](http://www.share.minike.top/Article/details/8283821.shtml)
-- 2026-06-30 08:48 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/66770.shtml)
+- 2026-06-30 08:38 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/09148.shtml)
+- 2026-06-30 08:55 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/64437824004.shtml)
+- 2026-06-30 08:47 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/6500986015.shtml)
+- 2026-06-30 08:37 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](http://www.share.kurohicncr.top/Article/details/082606.shtml)
+- 2026-06-30 08:31 - [周冬雨多次说演不了话剧文城](http://www.share.minike.top/Article/details/74206142993.shtml)
+- 2026-06-30 08:37 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/951324.shtml)
+- 2026-06-30 08:55 - [啊啊啊](http://www.blog.minike.top/Article/details/15963.shtml)
+- 2026-06-30 08:40 - [穆祉丞回应获年度人气艺人](http://www.share.kurohicncr.top/Article/details/587834285888.shtml)
+- 2026-06-30 08:50 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/9720939.shtml)
+- 2026-06-30 08:37 - [日本队主帅道歉](http://www.blog.kurohicncr.top/Article/details/53327193.shtml)
+- 2026-06-30 08:34 - [女子遭下药退赔偿拟追刑责](http://www.share.kurohicncr.top/Article/details/2020323122.shtml)
+- 2026-06-30 08:35 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/59753427.shtml)
+- 2026-06-30 08:31 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.kurohicncr.top/Article/details/7393961005.shtml)
+- 2026-06-30 08:31 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/0078535.shtml)
+- 2026-06-30 08:56 - [周生如故](http://www.blog.minike.top/Article/details/23151083463.shtml)

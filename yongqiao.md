@@ -1,57 +1,58 @@
-# 华帝又来“开外挂”？球迷：冠军归属已无悬念
+# 《西藏壁画全集》在北京首发 历时10年收集壁画280处
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！从2018年牵手法国队，到如今重磅锁定西班牙队，华帝的“冠军嗅觉”一直是球迷口中玄学般的存在。近日，高端厨电领导品牌华帝牵手西班牙国家足球队，成为其中国大陆区官方厨电合作伙伴，并推出“西班牙队夺冠，送大师级限量龙泉青瓷藏品”活动。消息一出，不少球迷纷纷高呼：这届冠军剧本是不是已被华帝提前拿到了？ 这份被球迷
+中新网北京6月17日电 (记者 孙自法)由中国9家文物考古机构深度参与、收集280处壁画、前后历时10年完成的《西藏壁画全集》，6月17日在2026北京国际图书博览会上首发。 《西藏壁画全集》共计7册，包含《山南壁画》《山南壁画补编》《拉萨壁画》《昌都壁画》《林芝、那曲、阿里壁画》《日喀则壁画》(上、下)，由科学出版社出版。 科学出版社当天举办“雪域丹青 壁上梵音——《西藏壁画
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网北京6月17日电 (记者 孙自法)由中国9家文物考古机构深度参与、收集280处壁画、前后历时10年完成的《西藏壁画全集》，6月17日在2026北京国际图书博览会上首发。
 
-从2018年牵手法国队，到如今重磅锁定西班牙队，华帝的“冠军嗅觉”一直是球迷口中玄学般的存在。
+《西藏壁画全集》共计7册，包含《山南壁画》《山南壁画补编》《拉萨壁画》《昌都壁画》《林芝、那曲、阿里壁画》《日喀则壁画》(上、下)，由科学出版社出版。
 
-近日，高端厨电领导品牌华帝牵手西班牙国家足球队，成为其中国大陆区官方厨电合作伙伴，并推出“西班牙队夺冠，送大师级限量龙泉青瓷藏品”活动。
+科学出版社当天举办“雪域丹青 壁上梵音——《西藏壁画全集》图书发布会”介绍，依托“西藏寺院壁画数字化项目”，《西藏壁画全集》由湖南省文物考古研究院、西藏自治区文物保护研究所等9家文物考古单位深度参与，收集了280处寺庙、民居、庄园壁画，从壁画题材的图像学分析、寺院壁画的空间分布、西藏壁画的特征及西藏绘画风格史等多个方面，对西藏壁画进行概述，综合性、集成性呈现西藏壁画的整体面貌。
 
-消息一出，不少球迷纷纷高呼：这届冠军剧本是不是已被华帝提前拿到了？
+《西藏壁画全集》特别保存了以往不为人注意的、地处偏远的小型寺院和石窟壁画资料，通过建立西藏壁画的完整序列，填补了该研究领域的空白。
 
-这份被球迷津津乐道的“冠军玄学”，源自华帝在体育营销领域的精准布局。
+全集图书呈现不同历史时期西藏壁画的形貌以及与周边进行艺术交流的轨迹，为深入探索中华民族多元一体格局的形成演进提供了珍贵的考古实证。
 
-2018年俄罗斯世界杯期间，华帝签约法国队成为其官方赞助商，凭借对这支球队的精准判断，见证了法国队一路过关斩将捧起大力神杯，华帝也借此成为当届世界杯最具话题度的中国品牌之一，其独到的赛事眼光被无数球迷铭记。
+发布会上，《西藏壁画全集》丛书负责人、湖南省文物考古研究院研究员柴焕波应邀作专题讲座，详细介绍西藏壁画的价值定位、西藏壁画的保存现状、西藏壁画数字化项目的实施过程和新发现的壁画等。
 
-时隔多年，华帝再度出手，将目光投向西班牙队，这份选择依旧延续了其“精准锁强”的特点。
+柴焕波研究员在1990年-2023年间多次带队援藏进行文物普查、考察，并主持“西藏壁画数字化”项目，深耕西藏壁画保护与研究30余年。
 
-作为世界足坛的传统豪强，西班牙队曾斩获世界杯冠军、欧洲杯冠军等多项顶级荣誉，球队阵容年轻、战术细腻、底蕴深厚，是本届世界杯公认的夺冠热门队伍之一，也难怪球迷会调侃华帝“提前锁定冠军剧本”。
+他指出，西藏壁画拥有极高的历史价值与艺术价值：《西藏壁画全集》精准记录西藏壁画的现状，为制定具体的壁画保护方案奠定基础，对中国西藏文化的传播将产生积极影响；《西藏壁画全集》收录的壁画图像，将为藏传佛教考古、壁画图像学和西藏艺术史等诸多领域研究开拓全新的境界。
 
 ## 相关推荐
 
-- 2026-06-30 08:51 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
-- 2026-06-30 08:40 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-30 08:53 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-30 08:38 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
-- 2026-06-30 08:36 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-30 08:27 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-30 08:36 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-30 08:42 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-30 08:28 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-30 08:52 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-30 08:42 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-30 08:48 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-30 08:38 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-30 08:39 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-30 08:56 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-30 08:36 - [荷兰vs摩洛哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-30 08:32 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-30 08:43 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-30 08:39 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-30 08:35 - [莫兰特被交易到开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-30 08:50 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-30 08:38 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-30 08:46 - [王濛回复黄灿灿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:39 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.kurohicncr.top/Article/details/6827047861.shtml)
-- 2026-06-30 08:24 - [为什么会有「念旧」的心理？](https://www.blog.kurohicncr.top/Article/details/9422990226.shtml)
-- 2026-06-30 08:43 - [日本队5进世界杯淘汰赛0胜](https://www.share.minike.top/Article/details/59243998.shtml)
-- 2026-06-30 08:48 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/725675877404.shtml)
-- 2026-06-30 08:33 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/83456.shtml)
-- 2026-06-30 08:53 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/318205739.shtml)
-- 2026-06-30 08:43 - [美股深夜大反弹 特斯拉飙涨8%](http://www.blog.kurohicncr.top/Article/details/35418.shtml)
-- 2026-06-30 08:31 - [男子醉酒溺水获救后同行人拒协助抬人](https://www.blog.minike.top/Article/details/45045581448.shtml)
-- 2026-06-30 08:45 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/1245180.shtml)
-- 2026-06-30 08:35 - [巴西vs日本](http://www.blog.minike.top/Article/details/33009063398.shtml)
-- 2026-06-30 08:39 - [媒体：手机测评该挤挤水分了](https://www.blog.kurohicncr.top/Article/details/1626526203.shtml)
-- 2026-06-30 08:52 - [德国连续三届世界杯无缘16强](http://www.share.minike.top/Article/details/383969241165.shtml)
-- 2026-06-30 08:47 - [日本博主：日本足球真的垃圾](https://www.share.minike.top/Article/details/05341550.shtml)
-- 2026-06-30 08:26 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.share.minike.top/Article/details/102943.shtml)
-- 2026-06-30 08:42 - [巴拉圭进球](https://www.share.minike.top/Article/details/57158.shtml)
+- 2026-06-30 08:57 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/3659957.shtml)
+- 2026-06-30 08:46 - [韩国道歉完日本道歉](http://www.share.minike.top/Article/details/338896.shtml)
+- 2026-06-30 08:34 - [欧洲民众抢购空调降温](http://www.share.kurohicncr.top/Article/details/924333962.shtml)
+- 2026-06-30 08:42 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/795013.shtml)
+- 2026-06-30 08:56 - [巴拉圭率先破门](http://www.blog.minike.top/Article/details/23247004.shtml)
+- 2026-06-30 08:41 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/23123.shtml)
+- 2026-06-30 08:50 - [巴拉圭率先破门](http://www.blog.kurohicncr.top/Article/details/979251521130.shtml)
+- 2026-06-30 08:49 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/048944447.shtml)
+- 2026-06-30 08:48 - [巴西绝杀](https://www.blog.kurohicncr.top/Article/details/8184542.shtml)
+- 2026-06-30 08:35 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.minike.top/Article/details/03012912892.shtml)
+- 2026-06-30 08:49 - [“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/71008.shtml)
+- 2026-06-30 08:53 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/47127926.shtml)
+- 2026-06-30 08:37 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.kurohicncr.top/Article/details/706422.shtml)
+- 2026-06-30 08:33 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.blog.minike.top/Article/details/00258799.shtml)
+- 2026-06-30 08:43 - [泰山建135公里刀片刺绳隔离网](http://www.blog.kurohicncr.top/Article/details/77863154.shtml)

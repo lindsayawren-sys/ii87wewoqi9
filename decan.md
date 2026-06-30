@@ -1,56 +1,58 @@
-# 探访海南琼海更路簿博物馆：解码古代渔民的“北斗导航”
+# 字节跳动的 AI 账本：豆包每天不足百万收入、Seedance 毛利 70%
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-中新网海南琼海5月18日电 题：探访海南琼海更路簿博物馆：解码古代渔民的“北斗导航” 中新网记者 符宇群 “《更路簿》是海南渔民千百年来闯南海，用智慧和经验总结出来的一本航海日志。”海南省琼海市更路簿博物馆馆长王振忠18日受访时说，《更路簿》不仅是海南渔民世代相传的航海秘籍，更是中国对南海拥有主权的有力佐证。 琼海市更路簿博物馆有各类充满海洋元素的藏品，其中，被称为“南海天书”
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！（来源：晚点LatePost）文丨高洪浩 陈佳惠编辑丨黄俊杰截至上半年，每天 2 亿多人使用的豆包应用每天收入不足百万元，主要来自电商佣金。而到今年 5 月，豆包应用每天消耗数千万元——参照火山引擎公开 API 价格，结合豆包大模型的毛利率、豆包用户使用习惯推算。文字聊天不贵，按每天人均 15-20 分钟的
 
 ## 正文
 
-中新网海南琼海5月18日电 题：探访海南琼海更路簿博物馆：解码古代渔民的“北斗导航” 中新网记者 符宇群 “《更路簿》是海南渔民千百年来闯南海，用智慧和经验总结出来的一本航海日志。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-”海南省琼海市更路簿博物馆馆长王振忠18日受访时说，《更路簿》不仅是海南渔民世代相传的航海秘籍，更是中国对南海拥有主权的有力佐证。
+（来源：晚点LatePost）文丨高洪浩 陈佳惠编辑丨黄俊杰截至上半年，每天 2 亿多人使用的豆包应用每天收入不足百万元，主要来自电商佣金。
 
-琼海市更路簿博物馆有各类充满海洋元素的藏品，其中，被称为“南海天书”的《更路簿》堪称“镇馆之宝”。
+而到今年 5 月，豆包应用每天消耗数千万元——参照火山引擎公开 API 价格，结合豆包大模型的毛利率、豆包用户使用习惯推算。
 
-《更路簿》孕育于宋元时期，是南海航海针经的一种，也是帆船时代海南渔民在南海航海指南的纸质书，记载了中国南海诸岛及海南岛周边的航线、地名、航向等诸多元素，尤以西沙、中沙和南沙群岛为主。
+文字聊天不贵，按每天人均 15-20 分钟的使用时长，只要几分钱，但推理，以及图片识别、语音聊天、视频聊天等多模态功能需要的算力成本要贵几倍甚至几十倍。
 
-王振忠向记者展示了家族传承的《更路簿》，这本泛黄的典籍以海南方言结合文言文书写，详细标注南海各大岛礁的航行路线、方位走向，记录不同季节的气象和洋流特点，鱼群分布，甚至包含海上避险技巧与工具制作方法。
+这还没算为训练豆包模型搭建的算力中心成本。
 
-“自大潭去船岩尾用乾巽十五更收”“猫注去三圈用壬丙四更收”“自三圈去北海双峙开乾至洋潮回巳亥三十更收”，这三句记载了渔船从琼海潭门港“大潭”驶往“猫注”(西沙永兴岛)、再前往“北海”(南沙)的航向与航程，摘录自王振忠的祖父——潭门老船长王诗桃的《更路簿》。
+一座大型智算中心往往需要数万张 AI 芯片，还要配套数据中心、供电、网络、散热和运维等基础设施。
 
-“‘更’是先辈独创的双重计量单位，一更约十海里、两个小时，搭配罗盘定位，再结合观风辨浪的经验，就能精准规划航线。
+根据《南华早报》报道，字节跳动计划将 2026 年的资本开支上调超 2000 亿元，相当于它 2025 年利润的约六成。
 
-”王振忠说，仅凭一本更路簿、一具罗盘、一张航海地图，先辈们就能纵横南海，“它是综合性的航海全书，相当于古代的海上‘北斗导航’”。
+如果字节能获得更多训练必须的英伟达卡、国产推理卡产能更充足，豆包消耗的资源会更高。
 
 ## 相关推荐
 
-- 2026-06-30 08:52 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-30 08:53 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-30 08:48 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-30 08:37 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
-- 2026-06-30 08:37 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-30 08:30 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-30 08:33 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-30 08:32 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-30 08:31 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-30 08:25 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-30 08:30 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
+- 2026-06-30 08:50 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-30 08:34 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-30 08:41 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-30 08:41 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-30 08:55 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-30 08:44 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-30 08:32 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-30 08:48 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-30 08:56 - [陈幸同晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-30 08:51 - [日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
+- 2026-06-30 08:42 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:26 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.kurohicncr.top/Article/details/59055314.shtml)
-- 2026-06-30 08:40 - [上市央企地产商 两年换了三任董事长](http://www.share.minike.top/Article/details/4725797953.shtml)
-- 2026-06-30 08:36 - [内马尔替补](http://www.blog.minike.top/Article/details/97476.shtml)
-- 2026-06-30 08:43 - [男子身高一米八二仍做断骨增高](https://www.blog.minike.top/Article/details/34834.shtml)
-- 2026-06-30 08:38 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/147744.shtml)
-- 2026-06-30 08:49 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/785017.shtml)
-- 2026-06-30 08:50 - [杨紫获白玉兰视后争议不止](http://www.blog.kurohicncr.top/Article/details/04145.shtml)
-- 2026-06-30 08:52 - [郑钦文温网首轮出局](http://www.share.minike.top/Article/details/566857030.shtml)
-- 2026-06-30 08:31 - [4000美元是黄金新一轮下跌的开始吗](https://www.blog.minike.top/Article/details/049299.shtml)
-- 2026-06-30 08:47 - [请回答王牌2019](http://www.blog.minike.top/Article/details/9916477139.shtml)
-- 2026-06-30 08:51 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.kurohicncr.top/Article/details/7552573.shtml)
-- 2026-06-30 08:29 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.share.minike.top/Article/details/86601.shtml)
-- 2026-06-30 08:53 - [日本16强魔咒](https://www.blog.minike.top/Article/details/3239786244.shtml)
-- 2026-06-30 08:39 - [锐评T1战胜KC](http://www.share.minike.top/Article/details/82865479372.shtml)
-- 2026-06-30 08:38 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/19447223.shtml)
+- 2026-06-30 08:51 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/276530081267.shtml)
+- 2026-06-30 08:30 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/870658816.shtml)
+- 2026-06-30 08:53 - [时光音乐会](http://www.blog.minike.top/Article/details/824033173544.shtml)
+- 2026-06-30 08:59 - [巴西vs日本](http://www.share.minike.top/Article/details/510081560786.shtml)
+- 2026-06-30 08:41 - [泰山景区回应修建刀片刺绳隔离网](https://www.share.minike.top/Article/details/52261.shtml)
+- 2026-06-30 08:45 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/632689.shtml)
+- 2026-06-30 08:42 - [巴西2比1日本](https://www.share.minike.top/Article/details/04036.shtml)
+- 2026-06-30 08:42 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/2877080.shtml)
+- 2026-06-30 08:45 - [全球芯片巨头史诗级扩产](http://www.blog.minike.top/Article/details/5772138115.shtml)
+- 2026-06-30 08:58 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/44034.shtml)
+- 2026-06-30 08:57 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/7148629.shtml)
+- 2026-06-30 08:55 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.minike.top/Article/details/29242.shtml)
+- 2026-06-30 08:54 - [王欣瑜2-1击败科恰雷托](http://www.share.kurohicncr.top/Article/details/012757524930.shtml)
+- 2026-06-30 08:36 - [日本球员说被绝杀非常不甘心](https://www.share.kurohicncr.top/Article/details/42635.shtml)
+- 2026-06-30 08:39 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/786225040921.shtml)

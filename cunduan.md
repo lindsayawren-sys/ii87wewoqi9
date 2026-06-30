@@ -1,57 +1,56 @@
-# 国际博物馆日：石家河遗址博物馆开馆
+# 广东广西等地仍有强降雨 东北华北等地多雷阵雨
 
-> 更新时间：2026-06-30 08:54:02 UTC+8
+> 更新时间：2026-06-30 09:00:02 UTC+8
 
 ## 摘要
 
-2025年全国备案博物馆达7188家 免费开放率超91%不满足于台式奶茶的台湾人，疯狂“批发”霸王茶姬回家人这一辈子，一定要去青州看一次“东方微笑”！今天是国际博物馆日，我们为什么需要博物馆？原来文物也爱“串门”《给阿嬷的情书》导演蓝鸿春:潮汕方言电影因何跨越山海能源危机叠加日元贬值，日本实体经济正为中东战火埋单“肯德基指数”回暖释放消费市场积极信号周末看摩托车赛成国人新爱好为
+中新网6月16日电 据中央气象台网站消息，昨日，广东、广西、福建、云南等地出现暴雨或大暴雨。预计16日至17日，广西、广东、福建等地部分地区有持续性强降雨，18日起江南北部、江汉东部等地将出现降雨集中期，暴雨灾害风险高，各地需关注可能引发的山洪、地质灾害，以及对交通运输、农业生产、户外活动等的影响。东北、华北等地多雷阵雨，局地伴有雷暴大风、冰雹等强对流天气，关注对交通、城市运行
 
 ## 正文
 
-2025年全国备案博物馆达7188家 免费开放率超91%不满足于台式奶茶的台湾人，疯狂“批发”霸王茶姬回家人这一辈子，一定要去青州看一次“东方微笑”！
+中新网6月16日电 据中央气象台网站消息，昨日，广东、广西、福建、云南等地出现暴雨或大暴雨。
 
-今天是国际博物馆日，我们为什么需要博物馆？
+预计16日至17日，广西、广东、福建等地部分地区有持续性强降雨，18日起江南北部、江汉东部等地将出现降雨集中期，暴雨灾害风险高，各地需关注可能引发的山洪、地质灾害，以及对交通运输、农业生产、户外活动等的影响。
 
-原来文物也爱“串门”《给阿嬷的情书》导演蓝鸿春:潮汕方言电影因何跨越山海能源危机叠加日元贬值，日本实体经济正为中东战火埋单“肯德基指数”回暖释放消费市场积极信号周末看摩托车赛成国人新爱好为一个馆赴一座城，河北小众博物馆频“出圈”美国记者，在北京看到了怎样的中国？
+东北、华北等地多雷阵雨，局地伴有雷暴大风、冰雹等强对流天气，关注对交通、城市运行等影响。
 
-台湾用30余年建成的淡江大桥通车即翻车？
+广东广西等地仍有强降雨 6月13日以来，广西中东部、广东中北部和东部等地先后出现了暴雨到大暴雨，局地特大暴雨。
 
-律师：女孩盲道被撞摆拍者或构成寻衅滋事罪从增量扩张到存量提质 建设现代化人民城市被立案调查后，携程在改吗？
+预计16日至17日，上述部分地区仍有强降雨。
 
-对话维妮娜：在乘风之前，她已经跑了很久小小香料，何以撬动大产业、香飘全世界？
+中央气象台6月16日6时继续发布暴雨橙色预警：预计，6月16日8时至17日8时，广东中南部、广西东南部和西部、海南岛东北部、福建东南部、云南东部和西北部、四川南部、西藏东南部等地有大到暴雨，其中，广东西南部、珠江口及以东沿海、广西东南部、福建东南部、云南东部等地部分地区有大暴雨，局地特大暴雨(250～300毫米)；此外，北京西部和东北部、天津北部、河北北部、辽宁西部和北部、吉林中部等地部分地区也有大到暴雨，局地大暴雨。
 
-“超级食物”真有那么神奇吗？
+上述部分地区伴有短时强降水(最大小时降雨量30～50毫米，华南局地可超过90毫米)，局地有雷暴大风等强对流天气。
 
-专家揭秘真相这首“湘”味十足的Rap里，藏着几千年前的潮流DNA安徽贵池：暮色绘就“千里江山图”赛事美食双向赋能 江苏小龙虾消费市场持续升温河北磁县“小兵马俑”出圈 小众博物馆的“引客”之道安徽池州：丹霞流彩映平天 水天一色绘画卷直击嫩江市北部防区春季灭火实战演练滇藏公路上的“加加面”如何把小新加到“怀疑人生”专家：高血压控盐别忽略“隐形盐”水下仿生机器鱼展演栩栩如生美国博主“车轮哥”带老外组团“朝圣”中国电车“法拉利大叔”自评走红视频醉驾男子路遇检查假装“路人”，交警一眼识破！
+18日起，强降雨带将北抬到江南北部至长江中下游沿江地区。
 
 ## 相关推荐
 
-- 2026-06-30 08:50 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-30 08:35 - [恋与深空道歉声明](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
-- 2026-06-30 08:35 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-30 08:31 - [陈幸同晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-30 08:39 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-30 08:41 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
-- 2026-06-30 08:37 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-30 08:41 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
-- 2026-06-30 08:37 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-30 08:27 - [德国队连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
-- 2026-06-30 08:39 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
+- 2026-06-30 08:44 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
+- 2026-06-30 08:34 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-30 08:46 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-30 08:54 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-30 08:49 - [泰山景区回应修建刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-30 08:54 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-30 08:46 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
+- 2026-06-30 08:54 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-30 08:46 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-30 08:48 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:43 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](http://www.share.kurohicncr.top/Article/details/32817889655.shtml)
-- 2026-06-30 08:24 - [覃予萱晋级WTT美国大满贯女单32强](https://www.blog.kurohicncr.top/Article/details/844175147.shtml)
-- 2026-06-30 08:33 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/846746991.shtml)
-- 2026-06-30 08:41 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/9074601.shtml)
-- 2026-06-30 08:35 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/25812471848.shtml)
-- 2026-06-30 08:53 - [韩乔生吐槽世界杯扩军](http://www.blog.kurohicncr.top/Article/details/9079147.shtml)
-- 2026-06-30 08:34 - [美人鱼](http://www.share.kurohicncr.top/Article/details/778451.shtml)
-- 2026-06-30 08:47 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/69564.shtml)
-- 2026-06-30 08:26 - [全球芯片巨头史诗级扩产](http://www.share.kurohicncr.top/Article/details/698963544.shtml)
-- 2026-06-30 08:27 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/7616163079.shtml)
-- 2026-06-30 08:41 - [张月收到黄灿灿辣货两眼发光](https://www.share.minike.top/Article/details/27125589272.shtml)
-- 2026-06-30 08:47 - [德国巴拉圭 折磨](https://www.share.kurohicncr.top/Article/details/8278738423.shtml)
-- 2026-06-30 08:52 - [巴西半场0比1日本](https://www.share.kurohicncr.top/Article/details/79312968111.shtml)
-- 2026-06-30 08:53 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/49502405.shtml)
-- 2026-06-30 08:33 - [湖南祁东原文化馆被指贱卖](https://www.share.kurohicncr.top/Article/details/90974811.shtml)
+- 2026-06-30 08:36 - [郑钦文温网首轮出局](https://www.blog.minike.top/Article/details/1054907.shtml)
+- 2026-06-30 08:48 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/58495105819.shtml)
+- 2026-06-30 08:46 - [日本队主帅道歉](https://www.blog.kurohicncr.top/Article/details/82391576035.shtml)
+- 2026-06-30 08:58 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/3269316322.shtml)
+- 2026-06-30 08:52 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/29324.shtml)
+- 2026-06-30 08:49 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/29064564.shtml)
+- 2026-06-30 08:57 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/71302.shtml)
+- 2026-06-30 08:39 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/26878.shtml)
+- 2026-06-30 08:33 - [金刚川](http://www.blog.minike.top/Article/details/810681.shtml)
+- 2026-06-30 08:39 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/67228.shtml)
+- 2026-06-30 08:37 - [点球大战 残酷](https://www.share.kurohicncr.top/Article/details/36639549701.shtml)
+- 2026-06-30 08:48 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/6599939106.shtml)
+- 2026-06-30 08:58 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/6785322.shtml)
+- 2026-06-30 08:50 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/559750541.shtml)
+- 2026-06-30 08:31 - [中国新一轮出口管制直指日本命脉](http://www.blog.kurohicncr.top/Article/details/32539874.shtml)
