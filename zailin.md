@@ -1,52 +1,48 @@
-# 韩国SK Energy将补贴旗下加油站 应对高油价
+# 滴滴率先接入微信AI生态
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-韩国SK Energy周日发布声明称，将向旗下加盟加油站提供补贴，以平抑高油价。 SK Energy每月最高将投入200亿韩元，用于扶持全国2500家品牌加盟加油站，直属自营加油站不在补贴范围。 SK Energy表示，此次补贴旨在保障成品油供应稳定，配合韩国政府能源稳供政策落地。该公司透露，过去两个月，韩国全国已有约80座加油站暂停营业或永久关停。责任编辑：何云
+随着微信正式面向开发者提供AI生态接入能力，滴滴作为首批合作伙伴，已与微信团队合作将核心网约车服务融入微信AI Agent。未来，用户通过微信内AI交互，即可直接唤起滴滴快车、专车、特惠等服务。 当用户在微信中产生出行需求，只需说一句“帮我叫一辆滴滴去机场”，“我要打滴滴回家，要特惠快车或者快车”即可根据行程距离、时效需求与个人偏好，自动推荐最优车型，一键唤起叫车服务，全程不跳
 
 ## 正文
 
-韩国SK Energy周日发布声明称，将向旗下加盟加油站提供补贴，以平抑高油价。
+随着微信正式面向开发者提供AI生态接入能力，滴滴作为首批合作伙伴，已与微信团队合作将核心网约车服务融入微信AI Agent。
 
-SK Energy每月最高将投入200亿韩元，用于扶持全国2500家品牌加盟加油站，直属自营加油站不在补贴范围。
+未来，用户通过微信内AI交互，即可直接唤起滴滴快车、专车、特惠等服务。
 
-SK Energy表示，此次补贴旨在保障成品油供应稳定，配合韩国政府能源稳供政策落地。
+当用户在微信中产生出行需求，只需说一句“帮我叫一辆滴滴去机场”，“我要打滴滴回家，要特惠快车或者快车”即可根据行程距离、时效需求与个人偏好，自动推荐最优车型，一键唤起叫车服务，全程不跳转，极速出发。
 
-该公司透露，过去两个月，韩国全国已有约80座加油站暂停营业或永久关停。
-
-责任编辑：何云
+据了解，滴滴顺风车、滴滴代驾等更多服务也将接入微信AI生态。
 
 ## 相关推荐
 
-- 2026-06-30 08:25 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-30 08:01 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-30 08:07 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-30 08:19 - [王濛回复黄灿灿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-30 08:24 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-30 08:11 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-30 08:03 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
-- 2026-06-30 08:03 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-30 08:22 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-30 08:07 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-30 08:23 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
-- 2026-06-30 08:17 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-30 08:28 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
+- 2026-06-30 08:34 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-30 08:20 - [巴西补时绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-30 08:10 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-30 08:23 - [欧洲装一台空调有多难](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-30 08:06 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-30 08:24 - [德国进球被吹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-30 08:22 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-30 08:12 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-30 08:12 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:23 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/72332362.shtml)
-- 2026-06-30 08:21 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.kurohicncr.top/Article/details/749857.shtml)
-- 2026-06-30 08:21 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/36088.shtml)
-- 2026-06-30 08:06 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/18524809116.shtml)
-- 2026-06-30 08:07 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/84229.shtml)
-- 2026-06-30 08:03 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/7383764715.shtml)
-- 2026-06-30 08:13 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](http://www.blog.minike.top/Article/details/66747175443.shtml)
-- 2026-06-30 08:04 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/58136345686.shtml)
-- 2026-06-30 08:01 - [佐野海舟远射破门](https://www.share.minike.top/Article/details/9216315961.shtml)
-- 2026-06-30 08:16 - [美股](https://www.blog.kurohicncr.top/Article/details/8948417.shtml)
-- 2026-06-30 08:09 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/891932442549.shtml)
-- 2026-06-30 08:26 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/99318.shtml)
-- 2026-06-30 08:14 - [美人鱼](https://www.blog.minike.top/Article/details/5717765.shtml)
-- 2026-06-30 08:24 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](http://www.share.minike.top/Article/details/49321.shtml)
-- 2026-06-30 08:14 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/9761702174.shtml)
+- 2026-06-30 08:18 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/8762706.shtml)
+- 2026-06-30 08:10 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/179352706.shtml)
+- 2026-06-30 08:22 - [iPhone18e曝光](https://www.blog.minike.top/Article/details/286473498.shtml)
+- 2026-06-30 08:12 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/489991.shtml)
+- 2026-06-30 08:17 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/7282156.shtml)
+- 2026-06-30 08:17 - [刘必安等16人非法集资案二审宣判](http://www.blog.minike.top/Article/details/31951.shtml)
+- 2026-06-30 08:24 - [杨紫学位证上就是杨紫](http://www.blog.minike.top/Article/details/65645.shtml)
+- 2026-06-30 08:09 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/48104373.shtml)
+- 2026-06-30 08:09 - [天道](https://www.share.kurohicncr.top/Article/details/4630814518.shtml)
+- 2026-06-30 08:11 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/143405.shtml)
+- 2026-06-30 08:11 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/837525936295.shtml)
+- 2026-06-30 08:14 - [追梦拒绝2770万美元球员选项](http://www.share.minike.top/Article/details/0881402442.shtml)
+- 2026-06-30 08:29 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/84865686.shtml)
+- 2026-06-30 08:21 - [高质量发展看新疆](http://www.share.minike.top/Article/details/28451400353.shtml)
+- 2026-06-30 08:26 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/61327.shtml)

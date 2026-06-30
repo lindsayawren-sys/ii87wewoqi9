@@ -1,58 +1,42 @@
-# 美军称向两艘“违反封锁”的伊朗油轮开火
+# 广西玉林：强降雨导致人员被困 消防紧急救援
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-新华社华盛顿5月8日电(记者黄强 徐剑梅)美军中央司令部8日发布消息说，美军当天在阿曼湾向两艘“违反美国封锁令”的伊朗油轮发射精确制导弹药，使其丧失航行能力。在美军发布消息5小时前，新华社记者获得这两艘油轮遭袭并请求援助的无线电录音。消息说，美军当天针对两艘悬挂伊朗国旗的空载油轮“SEA STAR III”号和“SEVDA”号实施了封锁措施，这两艘油轮当时正试图驶入阿曼湾一个伊
+发布时间：2026年06月09日 11:01 来源：央视新闻 责任编辑：【李骏】
 
 ## 正文
 
-新华社华盛顿5月8日电(记者黄强 徐剑梅)美军中央司令部8日发布消息说，美军当天在阿曼湾向两艘“违反美国封锁令”的伊朗油轮发射精确制导弹药，使其丧失航行能力。
-
-在美军发布消息5小时前，新华社记者获得这两艘油轮遭袭并请求援助的无线电录音。
-
-消息说，美军当天针对两艘悬挂伊朗国旗的空载油轮“SEA STAR III”号和“SEVDA”号实施了封锁措施，这两艘油轮当时正试图驶入阿曼湾一个伊朗港口。
-
-一架隶属于“布什”号航空母舰的美国海军F/A-18“超级大黄蜂”战斗机向这两艘油轮的烟囱发射了精确制导弹药，使其丧失航行能力。
-
-消息说，美军战斗机6日在阿曼湾对另一艘悬挂伊朗国旗的油轮开火，击毁了这艘空载油轮的舵机。
-
-目前，上述3艘油轮均已停止向伊朗方向航行。
-
-消息说，美国自4月13日起对往来伊朗港口的船只实施封锁以来，已有超过50艘船只被强制改变航向。
-
-在美军发布消息5小时前，霍尔木兹海峡附近被困船只海员向新华社记者提供的两段无线电录音显示，两艘油轮当天遭遇袭击并请求援助。
+发布时间：2026年06月09日 11:01 来源：央视新闻 责任编辑：【李骏】
 
 ## 相关推荐
 
-- 2026-06-30 08:05 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-30 08:14 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
-- 2026-06-30 08:11 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-30 08:27 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-30 08:13 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-30 08:11 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
-- 2026-06-30 08:12 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-30 08:27 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-30 08:14 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-30 08:26 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-30 08:07 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-30 08:14 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
+- 2026-06-30 08:13 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-30 08:26 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
+- 2026-06-30 08:24 - [欧洲装一台空调有多难](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
+- 2026-06-30 08:18 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-30 08:15 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-30 08:34 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-30 08:33 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-30 08:12 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-30 08:26 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
+- 2026-06-30 08:29 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:14 - [巴西把自己踢晕了](https://www.share.kurohicncr.top/Article/details/995229908.shtml)
-- 2026-06-30 08:04 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/63960792.shtml)
-- 2026-06-30 08:17 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/66530492.shtml)
-- 2026-06-30 08:06 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](http://www.share.kurohicncr.top/Article/details/0679683.shtml)
-- 2026-06-30 08:06 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/067173.shtml)
-- 2026-06-30 08:22 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](http://www.share.minike.top/Article/details/2955556297.shtml)
-- 2026-06-30 08:19 - [库尼亚赛后伸五指嘲讽日本](https://www.blog.kurohicncr.top/Article/details/752314.shtml)
-- 2026-06-30 08:16 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/38790843.shtml)
-- 2026-06-30 08:08 - [日本五次世界杯淘汰赛全败](https://www.blog.kurohicncr.top/Article/details/1568077.shtml)
-- 2026-06-30 08:22 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/2080942970.shtml)
-- 2026-06-30 08:18 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/13542.shtml)
-- 2026-06-30 08:28 - [点球大战 残酷](http://www.blog.kurohicncr.top/Article/details/705644.shtml)
-- 2026-06-30 08:02 - [一见倾心](http://www.share.kurohicncr.top/Article/details/242738704923.shtml)
-- 2026-06-30 08:02 - [女心理师](http://www.share.minike.top/Article/details/11584549055.shtml)
-- 2026-06-30 08:17 - [金刚川](https://www.blog.minike.top/Article/details/81216896.shtml)
+- 2026-06-30 08:30 - [巴西绝杀](http://www.share.minike.top/Article/details/113434332178.shtml)
+- 2026-06-30 08:18 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/037471695.shtml)
+- 2026-06-30 08:27 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/227872.shtml)
+- 2026-06-30 08:21 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/38013305652.shtml)
+- 2026-06-30 08:10 - [董卿父亲报纸上发文悼念亡妻](https://www.blog.minike.top/Article/details/9431686.shtml)
+- 2026-06-30 08:16 - [“柠檬茶能换怀表？”](https://www.share.kurohicncr.top/Article/details/6745265.shtml)
+- 2026-06-30 08:15 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/531687534.shtml)
+- 2026-06-30 08:07 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/2488744429.shtml)
+- 2026-06-30 08:23 - [MSI应援曲 如果季中成回忆](https://www.blog.kurohicncr.top/Article/details/031745.shtml)
+- 2026-06-30 08:25 - [网红峡谷5人溺亡 有人提醒会下雨](http://www.blog.minike.top/Article/details/05075.shtml)
+- 2026-06-30 08:14 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/18057519.shtml)
+- 2026-06-30 08:09 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/106876513781.shtml)
+- 2026-06-30 08:25 - [失明的我带老妈去了趟“火星”](https://www.share.minike.top/Article/details/7379788595.shtml)
+- 2026-06-30 08:15 - [一见倾心](https://www.blog.minike.top/Article/details/466428358799.shtml)
+- 2026-06-30 08:27 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/31099546.shtml)

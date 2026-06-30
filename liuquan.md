@@ -1,61 +1,57 @@
-# 中国互联网金融协会互联网贷款自律工作委员会筹备组第一次会议在京召开
+# 礼来新药Retatrutide三期临床成功：40周减重15%，降糖效果显著
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-来源：中国互联网金融协会 近日，中国互联网金融协会互联网贷款自律工作委员会筹备组（简称筹备组）第一次会议在京召开。协会党委书记、秘书长马超主持会议并讲话，度小满、蚂蚁科技、腾讯、京东科技、抖音等会员单位负责互联网信贷业务的相关负责人出席会议。 会议审议通过了筹备组工作规则，明确筹备期主要工作任务是：研究提出工作委员会首届委员建议名单；制定引领行业高质量发展、树立行业良好形象的相
+礼来公司周一公布了其备受关注的在研药物retatrutide的首个三期临床试验结果。数据显示，这款每周注射一次的三重受体激动剂在治疗2型糖尿病成人患者时，不仅显著降低了血糖水平，还带来了高达15%的平均体重降幅，且减重效果在40周治疗期结束时仍未出现平台期。 这项名为TRANSCEND-T2D-1的三期临床试验共纳入537名仅通过饮食和运动控制血糖不佳的2型糖尿病患者。参与者被
 
 ## 正文
 
-来源：中国互联网金融协会 近日，中国互联网金融协会互联网贷款自律工作委员会筹备组（简称筹备组）第一次会议在京召开。
+礼来公司周一公布了其备受关注的在研药物retatrutide的首个三期临床试验结果。
 
-协会党委书记、秘书长马超主持会议并讲话，度小满、蚂蚁科技、腾讯、京东科技、抖音等会员单位负责互联网信贷业务的相关负责人出席会议。
+数据显示，这款每周注射一次的三重受体激动剂在治疗2型糖尿病成人患者时，不仅显著降低了血糖水平，还带来了高达15%的平均体重降幅，且减重效果在40周治疗期结束时仍未出现平台期。
 
-会议审议通过了筹备组工作规则，明确筹备期主要工作任务是：研究提出工作委员会首届委员建议名单；制定引领行业高质量发展、树立行业良好形象的相关举措，并在行业内倡导实施；代表行业及时报告有关息费压降、明示工作和营销、催收等活动面临的风险、问题、困难，提出政策建议；起草相关自律公约、规则、指引等自律规范性文件等。
+这项名为TRANSCEND-T2D-1的三期临床试验共纳入537名仅通过饮食和运动控制血糖不佳的2型糖尿病患者。
 
-筹备组议事采取现场会议形式，在“充分讨论、协商一致”的基础上形成决议。
+参与者被随机分配至不同剂量的retatrutide组或安慰剂组。
 
-会议审议通过了筹备组成员标准，从符合性指标、基础分指标和加减分指标等三方面构建筹备组成员综合评价遴选体系。
+治疗40周后，接受最高剂量（12毫克）治疗的患者平均体重减轻了16.8%（约36.6磅），而安慰剂组仅减轻了2.5%。
 
-其中，符合性指标是加入筹备组必须满足的前置条件，包括应是协会会员、主体资质完备、承诺遵守自律规则、按要求报送数据、未出现严重影响行业声誉和形象的负面事件等；基础分指标和加减分指标采用评分制，包括运营指标类、风险防控类、消费者保护类和履职情况类、行业表率类、行业影响类等。
+在血糖控制方面，retatrutide同样表现优异，患者的糖化血红蛋白（HbA1c）水平平均降低了2.0个百分点（从基线的7.9%降至约5.9%），90%的患者HbA1c水平达到了美国糖尿病协会推荐的控制目标（低于7%）。
 
-有关从业机构申请加入筹备组的，应满足符合性指标要求且综合评分较高，并经协会秘书处审核后按照工作规则提请筹备组批准。
+Retatrutide因其同时靶向GIP、GLP-1和胰高血糖素三种与代谢相关的激素受体，被称为三重G药物。
 
-会议讨论了关于“引领行业健康发展、树立行业良好形象”的系列举措。
+相较于已上市的替尔泊肽（双靶点）和司美格鲁肽（单靶点），其独特的作用机制被认为可能带来更显著的减重效果和更广泛的代谢获益。
 
 ## 相关推荐
 
-- 2026-06-30 08:12 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-30 08:03 - [王濛回复黄灿灿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-30 08:29 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
-- 2026-06-30 08:17 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-30 08:05 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
-- 2026-06-30 08:02 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
-- 2026-06-30 08:26 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
-- 2026-06-30 08:07 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-30 08:12 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-30 08:13 - [王濛回复黄灿灿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
-- 2026-06-30 08:09 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-30 08:22 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-30 08:01 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-30 08:10 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-30 08:09 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-30 08:28 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-30 08:32 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-30 08:30 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
+- 2026-06-30 08:28 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
+- 2026-06-30 08:07 - [郑钦文温网三连败西尼亚科娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-30 08:35 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-30 08:31 - [巴拉圭率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-30 08:16 - [王濛回复黄灿灿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-30 08:25 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-30 08:14 - [杨紫学位证上就是杨紫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-30 08:23 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:24 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/345992232.shtml)
-- 2026-06-30 08:04 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/3567691337.shtml)
-- 2026-06-30 08:04 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/24632736.shtml)
-- 2026-06-30 08:09 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/09466.shtml)
-- 2026-06-30 08:14 - [巴拉圭进球](http://www.blog.kurohicncr.top/Article/details/474018637878.shtml)
-- 2026-06-30 08:08 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/19353.shtml)
-- 2026-06-30 08:14 - [孙颖莎王楚钦晋级8强](http://www.blog.minike.top/Article/details/892651.shtml)
-- 2026-06-30 08:10 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/528853730408.shtml)
-- 2026-06-30 08:17 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/559785542.shtml)
-- 2026-06-30 08:25 - [花少8要去世界杯举办国](http://www.share.kurohicncr.top/Article/details/71905731879.shtml)
-- 2026-06-30 08:05 - [巴西把自己踢晕了](https://www.blog.minike.top/Article/details/817428974.shtml)
-- 2026-06-30 08:09 - [扫黑风暴](https://www.share.minike.top/Article/details/536555760433.shtml)
-- 2026-06-30 08:14 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/35627.shtml)
-- 2026-06-30 08:02 - [锐评T1战胜KC](https://www.blog.minike.top/Article/details/56171577.shtml)
-- 2026-06-30 08:21 - [花少8要去世界杯举办国](http://www.blog.minike.top/Article/details/61756.shtml)
+- 2026-06-30 08:27 - [建议不要突然完全停止喝咖啡](http://www.share.kurohicncr.top/Article/details/299549703229.shtml)
+- 2026-06-30 08:12 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.minike.top/Article/details/1474647414.shtml)
+- 2026-06-30 08:12 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/352430358543.shtml)
+- 2026-06-30 08:30 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/099233118871.shtml)
+- 2026-06-30 08:12 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/3357136109.shtml)
+- 2026-06-30 08:21 - [董卿父亲报纸上发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/8295347689.shtml)
+- 2026-06-30 08:21 - [二次元提前预演明日巴西对日本](https://www.share.minike.top/Article/details/1324994585.shtml)
+- 2026-06-30 08:25 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/9358131.shtml)
+- 2026-06-30 08:08 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/899141865.shtml)
+- 2026-06-30 08:18 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.minike.top/Article/details/918494.shtml)
+- 2026-06-30 08:17 - [德国巴拉圭加时](http://www.blog.minike.top/Article/details/9833319.shtml)
+- 2026-06-30 08:11 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/086467127.shtml)
+- 2026-06-30 08:34 - [如果有二次元高中是什么样子的？](https://www.share.kurohicncr.top/Article/details/62360.shtml)
+- 2026-06-30 08:19 - [泰山建135公里刀片刺绳隔离网](https://www.blog.minike.top/Article/details/24616968.shtml)
+- 2026-06-30 08:27 - [金刚川](https://www.blog.minike.top/Article/details/2455054490.shtml)

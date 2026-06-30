@@ -1,58 +1,61 @@
-# 王凤英获165万股股票！打工长城30年，不及小鹏2个月
+# 穆迪：美国寿险公司持有8070亿美元流动性最差信贷资产
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：优财一号 那个车圈最厉害的女人，在长城汽车憋屈多年后，终于扬眉吐气了。 小鹏汽车最新披露的监管及年报信息显示，公司总裁王凤英已正式进入股东名册，获得165万股激励。 2023年1月，王凤英辞任长城汽车总经理约半年后，出任小鹏汽车总裁。诚意满满的何小鹏，在王凤英入职小鹏汽车两个月就给她送出了这笔165万
+穆迪公司一项最新研究显示，去年美国寿险公司持有的流动性最差的固定收益工具规模约为8070亿美元，引发市场对该行业整体流动性以及资产集中度的担忧。 根据周一发布的报告，截至2025年底，此类资产占寿险行业4万亿美元固定收益投资组合的20%，高于前一年的18%。在进行数据测算时，所涉及的证券具有私募信用评级（PLR），但未获第三方机构的正式评级或无法通过可观察到的市场价格进行估值。
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+穆迪公司一项最新研究显示，去年美国寿险公司持有的流动性最差的固定收益工具规模约为8070亿美元，引发市场对该行业整体流动性以及资产集中度的担忧。
 
-来源：优财一号 那个车圈最厉害的女人，在长城汽车憋屈多年后，终于扬眉吐气了。
+根据周一发布的报告，截至2025年底，此类资产占寿险行业4万亿美元固定收益投资组合的20%，高于前一年的18%。
 
-小鹏汽车最新披露的监管及年报信息显示，公司总裁王凤英已正式进入股东名册，获得165万股激励。
+在进行数据测算时，所涉及的证券具有私募信用评级（PLR），但未获第三方机构的正式评级或无法通过可观察到的市场价格进行估值。
 
-2023年1月，王凤英辞任长城汽车总经理约半年后，出任小鹏汽车总裁。
+信用评级是保险业财务稳健的关键要素，因为评级决定了保险公司需要预留的资本规模，以确保能够履行对保单持有人的承诺，有时这些承诺的期限可能长达数十年。
 
-诚意满满的何小鹏，在王凤英入职小鹏汽车两个月就给她送出了这笔165万股的大礼包。
+“这一增长是由结构性和周期性因素共同推动的，其中包括在利率高企但波动剧烈的环境下，市场对更高风险调整后收益率的持续需求，以及私募信贷供应的增加。
 
-这其中，包含105万股A类普通股和120万股限制性股票，合计165万股，占小鹏总股本约0.1%。
+”以Manoj Jethani为首的穆迪分析师团队在报告中指出。
 
-按照小鹏汽车截至今天的港股收盘价61.30港元/股计算，王凤英获得的这165万股股权，价值已经过亿，折算成人民币价值高达8787万。
+由于保险公司在私募信贷等另类投资中的持仓不断增加，目前正面临来自监管机构的审查。
 
-1970年出生的王凤英，在1991年刚21岁时就以实习生的身份加入长城汽车，此后职场一路开挂，一手建立了长城汽车的销售体系，2001年6月开始担任长城汽车执行董事。
+美国财政部已与直接监管该行业的各州监管机构会面，讨论保险公司对这一资产类别的风险敞口问题。
 
 ## 相关推荐
 
-- 2026-06-30 08:19 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-30 08:12 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
-- 2026-06-30 08:12 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-30 08:29 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-30 08:17 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-30 08:28 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-30 08:07 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
-- 2026-06-30 08:20 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-30 08:26 - [巴拉圭点球大战淘汰德国进16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
-- 2026-06-30 08:13 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-30 08:13 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-30 08:22 - [4000美元是黄金新一轮下跌的开始吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-30 08:14 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-30 08:10 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-30 08:09 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-30 08:12 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-30 08:18 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-30 08:20 - [田中碧失误](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-30 08:13 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-30 08:11 - [德国进球被吹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
+- 2026-06-30 08:13 - [媒体：手机测评该挤挤水分了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-30 08:33 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-30 08:28 - [德国进球被吹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-30 08:08 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
+- 2026-06-30 08:24 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
+- 2026-06-30 08:28 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-30 08:11 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:21 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/66260260432.shtml)
-- 2026-06-30 08:07 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.minike.top/Article/details/83488234251.shtml)
-- 2026-06-30 08:20 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/1191337.shtml)
-- 2026-06-30 08:08 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/48169565.shtml)
-- 2026-06-30 08:06 - [武磊：日本队有能力跟任何强队抗衡](https://www.share.minike.top/Article/details/66492190.shtml)
-- 2026-06-30 08:04 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.kurohicncr.top/Article/details/34842.shtml)
-- 2026-06-30 08:05 - [日本 高位逼抢](http://www.share.kurohicncr.top/Article/details/26681745630.shtml)
-- 2026-06-30 08:04 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.minike.top/Article/details/74935409168.shtml)
-- 2026-06-30 08:00 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/89267276.shtml)
-- 2026-06-30 08:19 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/396106200.shtml)
-- 2026-06-30 08:22 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/29932895984.shtml)
-- 2026-06-30 08:27 - [大蒜晒外面被路过女子连盆端走](http://www.blog.kurohicncr.top/Article/details/68116905423.shtml)
-- 2026-06-30 08:25 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.blog.minike.top/Article/details/923735834510.shtml)
-- 2026-06-30 08:20 - [网红峡谷5人溺亡 有人提醒会下雨](http://www.blog.minike.top/Article/details/67938.shtml)
-- 2026-06-30 08:05 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.kurohicncr.top/Article/details/179332294.shtml)
+- 2026-06-30 08:07 - [日本半场1比0领先巴西](https://www.blog.minike.top/Article/details/205930793.shtml)
+- 2026-06-30 08:12 - [急先锋](https://www.blog.kurohicncr.top/Article/details/170690153.shtml)
+- 2026-06-30 08:07 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://www.blog.minike.top/Article/details/70683.shtml)
+- 2026-06-30 08:24 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/07879497177.shtml)
+- 2026-06-30 08:11 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/746327506.shtml)
+- 2026-06-30 08:13 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/796243906.shtml)
+- 2026-06-30 08:32 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/7662567.shtml)
+- 2026-06-30 08:26 - [李准基参加文彩元婚礼](https://www.blog.kurohicncr.top/Article/details/44561806845.shtml)
+- 2026-06-30 08:13 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/58899195.shtml)
+- 2026-06-30 08:29 - [德国巴拉圭加时](https://www.share.kurohicncr.top/Article/details/487871775.shtml)
+- 2026-06-30 08:35 - [日本队主帅道歉](http://www.share.kurohicncr.top/Article/details/699567.shtml)
+- 2026-06-30 08:16 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/4159730805.shtml)
+- 2026-06-30 08:20 - [亚洲球队全部告别世界杯](http://www.blog.minike.top/Article/details/01142578.shtml)
+- 2026-06-30 08:24 - [曝iPhone18Pro机密文件现身暗网](https://www.blog.kurohicncr.top/Article/details/7202836.shtml)
+- 2026-06-30 08:12 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/37702473305.shtml)

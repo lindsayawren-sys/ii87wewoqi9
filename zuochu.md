@@ -1,57 +1,59 @@
-# 韩股收高 本周大涨13.6%创逾17年最大周线涨幅 受AI行情带动
+# 欧洲股市下跌 爱立信和诺基亚重挫
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-在AI行情带动下，韩国股市周五收于历史新高，周线创逾17年来最大涨幅。 韩国综合股价指数（KOSPI）上涨 7.95点或 0.11%，报7，498.00点。盘中早些时候，受费城半导体指数 隔夜下跌影响，市场出现获利回吐，KOSPI一度下跌逾2%。 本周KOSPI上涨13.6%，连续第五周上涨，创下自2008年10月以来的最大单周涨幅。 数据显示，受芯片出口激增推动，韩国3月经常
+欧洲股市下跌，尾盘抹去早前涨幅，追随美股跌势，板块轮动明显。 欧洲斯托克600指数收盘下跌0.5%，盘中一度上涨0.9%。今年表现强劲的能源、矿业、电信和科技股出现获利回吐。相比之下，化工、食品和零售股表现优异。 在电信领域，爱立信和诺基亚分别重挫6.3%和7%，有报道称英伟达可能在电信芯片领域展开竞争。 其他个股方面，保险商Unipol Assicurazioni SpA上涨
 
 ## 正文
 
-在AI行情带动下，韩国股市周五收于历史新高，周线创逾17年来最大涨幅。
+欧洲股市下跌，尾盘抹去早前涨幅，追随美股跌势，板块轮动明显。
 
-韩国综合股价指数（KOSPI）上涨 7.95点或 0.11%，报7，498.00点。
+欧洲斯托克600指数收盘下跌0.5%，盘中一度上涨0.9%。
 
-盘中早些时候，受费城半导体指数 隔夜下跌影响，市场出现获利回吐，KOSPI一度下跌逾2%。
+今年表现强劲的能源、矿业、电信和科技股出现获利回吐。
 
-本周KOSPI上涨13.6%，连续第五周上涨，创下自2008年10月以来的最大单周涨幅。
+相比之下，化工、食品和零售股表现优异。
 
-数据显示，受芯片出口激增推动，韩国3月经常账盈余创下历史新高。
+在电信领域，爱立信和诺基亚分别重挫6.3%和7%，有报道称英伟达可能在电信芯片领域展开竞争。
 
-报道称，随着全球科技巨头争相抢购内存芯片，SK海力士正受到这些企业的积极拉拢，对方纷纷提出投资其新生产线，以及出资协助购买昂贵制造设备等方案。
+其他个股方面，保险商Unipol Assicurazioni SpA上涨4.7%，市场预期如果意大利联合圣保罗银行对意大利西雅那银行集团的收购要约成功，Unipol Assicurazioni SpA将收购后者的品牌和部分资产。
 
-受此消息提振，SK海力士股价上涨1.93%，创下历史新高。
+在联合圣保罗银行提出收购要约的前一天，BPM银行已经提出对西雅那银行进行对等合并，但并未透露具体价格。
 
-同业三星电子则下跌1.10%。
+周二，意大利西雅那银行集团走高2.6%，联合圣保罗银行涨0.9%，Banco BPM涨1.5%。
 
 ## 相关推荐
 
-- 2026-06-30 08:00 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-30 08:08 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-30 08:20 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-30 08:18 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
-- 2026-06-30 08:02 - [巴西足球能否再现昔日荣光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
-- 2026-06-30 08:28 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-30 08:20 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
-- 2026-06-30 08:24 - [齐思钧回复张月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-30 08:09 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-30 08:25 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
-- 2026-06-30 08:06 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-30 08:09 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-30 08:30 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-30 08:19 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-30 08:34 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-30 08:32 - [女子遭下药退赔偿拟追刑责](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-30 08:11 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
+- 2026-06-30 08:22 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-30 08:22 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-30 08:21 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-30 08:30 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-30 08:28 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-30 08:24 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-30 08:20 - [自然光｜papi酱&窦文涛：驴与跑步机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:17 - [开电动汽车真的很省钱吗？](http://www.share.kurohicncr.top/Article/details/57115686566.shtml)
-- 2026-06-30 08:11 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/00915530.shtml)
-- 2026-06-30 08:05 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/8736453.shtml)
-- 2026-06-30 08:28 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/983342377937.shtml)
-- 2026-06-30 08:07 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/24701.shtml)
-- 2026-06-30 08:23 - [德国连续三届世界杯无缘16强](http://www.share.kurohicncr.top/Article/details/072469.shtml)
-- 2026-06-30 08:10 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/449686.shtml)
-- 2026-06-30 08:18 - [一生一世](https://www.blog.minike.top/Article/details/44523.shtml)
-- 2026-06-30 08:05 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/2314375.shtml)
-- 2026-06-30 08:24 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/11574384.shtml)
-- 2026-06-30 08:05 - [张凌赫杨超越 峨眉](https://www.share.kurohicncr.top/Article/details/879018.shtml)
-- 2026-06-30 08:20 - [巴西足球能否再现昔日荣光](https://www.share.minike.top/Article/details/783257559396.shtml)
-- 2026-06-30 08:21 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/767909.shtml)
-- 2026-06-30 08:12 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/557773.shtml)
-- 2026-06-30 08:21 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/33493750698.shtml)
+- 2026-06-30 08:25 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/8029355.shtml)
+- 2026-06-30 08:15 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/19255.shtml)
+- 2026-06-30 08:22 - [张雪的一句“是我们”引发岛内热议](https://www.blog.minike.top/Article/details/193779173654.shtml)
+- 2026-06-30 08:31 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/3925739.shtml)
+- 2026-06-30 08:35 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/148460732291.shtml)
+- 2026-06-30 08:10 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/687340903.shtml)
+- 2026-06-30 08:21 - [王灿兮被烫伤两年后维权成功](http://www.share.minike.top/Article/details/0742727.shtml)
+- 2026-06-30 08:18 - [森保一 保守](http://www.share.kurohicncr.top/Article/details/25898.shtml)
+- 2026-06-30 08:35 - [日本五次世界杯淘汰赛全败](http://www.blog.kurohicncr.top/Article/details/47449.shtml)
+- 2026-06-30 08:26 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.minike.top/Article/details/6810070781.shtml)
+- 2026-06-30 08:28 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.minike.top/Article/details/05832343017.shtml)
+- 2026-06-30 08:31 - [张月收到黄灿灿辣货两眼发光](http://www.share.kurohicncr.top/Article/details/2553415949.shtml)
+- 2026-06-30 08:26 - [巴西把自己踢晕了](https://www.blog.minike.top/Article/details/36439.shtml)
+- 2026-06-30 08:10 - [巴西绝杀](https://www.share.minike.top/Article/details/522081413855.shtml)
+- 2026-06-30 08:33 - [徐亮怒斥世界杯踢假球](http://www.share.minike.top/Article/details/453598079.shtml)

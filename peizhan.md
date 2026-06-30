@@ -1,60 +1,60 @@
-# Brand Finance 2026中国品牌价值500强发布，抖音连续三年蝉联榜首
+# 6月10日收盘：纳指与标普指数收跌 芯片股反弹乏力
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-新浪财经讯，总部位于英国伦敦的品牌估值机构品牌金融集团9日发布《Brand Finance 2026中国品牌价值500强》报告，报告显示，2026年中国500强品牌的总品牌价值突破2.1万亿美元，品牌价值总额较上年增长7.6%，其中排名前10的品牌价值占比高达36%。 报告显示，抖音以1535.4 亿美元的品牌价值，连续第三年居中国品牌价值榜首，跃居全球第六，同比增长 45.1
+北京时间6月10日凌晨，美股周二收盘涨跌不一。芯片股在经历一日反弹后失去了上涨势头。美国总统特朗普指责伊朗击落美军阿帕奇直升机，并表示美国将“做出回应”。 道指涨86.10点，涨幅为0.17%，报50872.11点；纳指跌250.84点，跌幅为0.97%，报25678.82点；标普500指数跌19.08点，跌幅为0.26%，报7386.65点。 美国总统唐纳德·特朗普周二指责伊
 
 ## 正文
 
-新浪财经讯，总部位于英国伦敦的品牌估值机构品牌金融集团9日发布《Brand Finance 2026中国品牌价值500强》报告，报告显示，2026年中国500强品牌的总品牌价值突破2.1万亿美元，品牌价值总额较上年增长7.6%，其中排名前10的品牌价值占比高达36%。
+北京时间6月10日凌晨，美股周二收盘涨跌不一。
 
-报告显示，抖音以1535.4 亿美元的品牌价值，连续第三年居中国品牌价值榜首，跃居全球第六，同比增长 45.1%，在全球社交与数字商业领域持续赶超欧美传统巨头。
+芯片股在经历一日反弹后失去了上涨势头。
 
-国家电网以突破1000以美元品牌价值稳居中国第二，全球第十，创历史新高。
+美国总统特朗普指责伊朗击落美军阿帕奇直升机，并表示美国将“做出回应”。
 
-之后是金融领域工行、建行、中行、农行。
+道指涨86.10点，涨幅为0.17%，报50872.11点；纳指跌250.84点，跌幅为0.97%，报25678.82点；标普500指数跌19.08点，跌幅为0.26%，报7386.65点。
 
-四大行同时集体入围全球前二十强，显示全球金融话语权稳步提升。
+美国总统唐纳德·特朗普周二指责伊朗击落了一架在霍尔木兹海峡上空巡逻的阿帕奇直升机，并表示美国将“做出回应”。
 
-新能源领域，比亚迪、宁德时代等品牌加速海外布局，在欧洲、东南亚市场份额持续扩大，成为“中国制造”向“中国创造”转型的典型代表。
+特朗普在“真相社交”平台上发帖称，此次袭击中涉及的两名飞行员“安全且未受伤。
 
-同时，近年来，随着中国品牌在产业变革中展现出的强劲韧性与创新活力，本年度共有29个汽车品牌入选中国品牌价值500强，累计品牌价值546亿美元，占榜单总价值的 3%，实现了10%的同比增长。
+尽管如此，美国出于必要，仍必须对此次袭击做出回应。
 
-在头部阵营中，比亚迪以173亿美元的品牌价值继续稳居首位，同比增长23%；吉利汽车以45亿美元的品牌价值位列第二，同比增长 26%；问界以34亿美元的品牌价值位列第三，并凭借 78分的品牌强度成为年度最强中国汽车品牌。
+” 特朗普并未说明美国的回应将采取何种形式。
 
 ## 相关推荐
 
-- 2026-06-30 08:27 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-30 08:21 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
-- 2026-06-30 08:13 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-30 08:26 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
-- 2026-06-30 08:12 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
-- 2026-06-30 08:07 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
-- 2026-06-30 08:20 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-30 08:07 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-30 08:23 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-30 08:12 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
-- 2026-06-30 08:23 - [巴拉圭进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-30 08:14 - [Melo向柳智敏张元英道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
-- 2026-06-30 08:07 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-30 08:07 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-30 08:19 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-30 08:21 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-30 08:24 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-30 08:23 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-30 08:32 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-30 08:25 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-30 08:25 - [4000美元是黄金新一轮下跌的开始吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-30 08:18 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-30 08:30 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-30 08:12 - [自然光｜papi酱&窦文涛：驴与跑步机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-30 08:28 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-30 08:25 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
+- 2026-06-30 08:29 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
+- 2026-06-30 08:22 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:23 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/63824799537.shtml)
-- 2026-06-30 08:07 - [巴西vs日本](https://www.share.kurohicncr.top/Article/details/065504895.shtml)
-- 2026-06-30 08:14 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/45361456680.shtml)
-- 2026-06-30 08:26 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/274478578.shtml)
-- 2026-06-30 08:14 - [男子在京东买到“同仁堂”假药](http://www.blog.minike.top/Article/details/091516.shtml)
-- 2026-06-30 08:03 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/432708.shtml)
-- 2026-06-30 08:16 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/93460900.shtml)
-- 2026-06-30 08:13 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/87648897.shtml)
-- 2026-06-30 08:15 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/856680498582.shtml)
-- 2026-06-30 08:13 - [德国4比5巴拉圭](http://www.share.minike.top/Article/details/609893582.shtml)
-- 2026-06-30 08:12 - [千香](https://www.share.kurohicncr.top/Article/details/38215147648.shtml)
-- 2026-06-30 08:12 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/1934235.shtml)
-- 2026-06-30 08:16 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.minike.top/Article/details/90806480.shtml)
-- 2026-06-30 08:07 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/2984879.shtml)
-- 2026-06-30 08:24 - [美人鱼](http://www.blog.minike.top/Article/details/337602.shtml)
+- 2026-06-30 08:12 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/3384777013.shtml)
+- 2026-06-30 08:13 - [巴西绝杀日本](https://www.share.kurohicncr.top/Article/details/11018.shtml)
+- 2026-06-30 08:32 - [德国巴拉圭进入点球大战](http://www.blog.kurohicncr.top/Article/details/848054.shtml)
+- 2026-06-30 08:24 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/677632.shtml)
+- 2026-06-30 08:10 - [4000美元是黄金新一轮下跌的开始吗](https://www.share.kurohicncr.top/Article/details/237814642.shtml)
+- 2026-06-30 08:09 - [IGN评测电影版后室](https://www.blog.kurohicncr.top/Article/details/1152239800.shtml)
+- 2026-06-30 08:24 - [男子醉酒溺水获救后同行人拒协助抬人](https://www.blog.minike.top/Article/details/316863682.shtml)
+- 2026-06-30 08:07 - [《共患难》](http://www.share.kurohicncr.top/Article/details/4303849.shtml)
+- 2026-06-30 08:25 - [日本球迷被强行披上巴西国旗](https://www.share.minike.top/Article/details/089530618836.shtml)
+- 2026-06-30 08:34 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/81020.shtml)
+- 2026-06-30 08:14 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/73480135378.shtml)
+- 2026-06-30 08:18 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/959311611157.shtml)
+- 2026-06-30 08:24 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/04680332.shtml)
+- 2026-06-30 08:07 - [世界杯“美洲德比”7月1日开打](https://www.blog.kurohicncr.top/Article/details/0903301530.shtml)
+- 2026-06-30 08:33 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/390081398161.shtml)

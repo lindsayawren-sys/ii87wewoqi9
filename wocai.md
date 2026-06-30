@@ -1,58 +1,52 @@
-# 被AI造谣？比亚迪、特斯拉、小鹏、理想、蔚来、埃安等集体否认被约谈，真相是什么？
+# 阿维塔称某品牌名称在设计上与其极为相似：中国汽车不能走“Ctrl+C Ctrl+V”之路
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：盛华观察 5月9日，车圈上演了一场颇为罕见的“集体打假”。针对近日网络上疯传的“8家新能源车企因OTA锁电被集中约谈、3家被立案调查”的消息，比亚迪、特斯拉、小鹏、理想、蔚来、广汽埃安、极氪、问界等多家主流新能源车企几乎在同一时间集体发声，澄清公司并未
+6月9日，阿维塔发文表示，“今天，我们看到市场上出现某品牌名称在设计上与阿维塔极为相似，我们将其视为一种荣幸，但更视为一种警示：中国汽车不能走‘Ctrl+C Ctrl+V’之路、不能走不正确的‘逆向研发’的老路。被模仿，是原创者的荣幸；共推行业向前，才是中国品牌应有的担当。 ” 据悉，赛豆科技全新品牌“AIVA”将于今晚发布，有博主指出该品牌与阿维塔的英文品牌标识“AVATR”
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+6月9日，阿维塔发文表示，“今天，我们看到市场上出现某品牌名称在设计上与阿维塔极为相似，我们将其视为一种荣幸，但更视为一种警示：中国汽车不能走‘Ctrl+C Ctrl+V’之路、不能走不正确的‘逆向研发’的老路。
 
-来源：盛华观察 5月9日，车圈上演了一场颇为罕见的“集体打假”。
+被模仿，是原创者的荣幸；共推行业向前，才是中国品牌应有的担当。
 
-针对近日网络上疯传的“8家新能源车企因OTA锁电被集中约谈、3家被立案调查”的消息，比亚迪、特斯拉、小鹏、理想、蔚来、广汽埃安、极氪、问界等多家主流新能源车企几乎在同一时间集体发声，澄清公司并未被约谈或立案，相关传言纯属不实信息，不少车企更直指传言的源头——AI正在批量生成假新闻。
+” 据悉，赛豆科技全新品牌“AIVA”将于今晚发布，有博主指出该品牌与阿维塔的英文品牌标识“AVATR”十分相似。
 
-这场闹剧的起因，还要从一组令人触目惊心的投诉数据说起。
-
-据央视网报道，2026年3月，全国12315平台关于车企OTA锁电的投诉量已超过1.2万件，同比上涨273%。
-
-所谓“锁电”，指的是车企未经消费者同意，通过OTA远程升级等方式私自修改电池管理系统参数，限制电池充电上限和功率输出，导致续航大幅缩水、充电变慢等问题。
-
-据车主反馈，新车标称续航510公里，一次夜间OTA升级后实际续航跑不到300公里，快充时间也从40分钟延长到一个多小时。
-
-最终有媒体报道称，监管部门约谈了8家涉事新能源车企，其中3家因违规被立案调查，2家已撤回争议升级包并承诺恢复性能。
+责任编辑：王翔
 
 ## 相关推荐
 
-- 2026-06-30 08:28 - [日本球员说被绝杀非常不甘心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-30 08:25 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
-- 2026-06-30 08:00 - [萨内 看笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
-- 2026-06-30 08:12 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
-- 2026-06-30 08:06 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
-- 2026-06-30 08:24 - [泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-30 08:27 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-30 08:15 - [武磊：巴西队赢的并不轻松](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
-- 2026-06-30 08:20 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-30 08:27 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
-- 2026-06-30 08:25 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-30 08:20 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
+- 2026-06-30 08:30 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-30 08:16 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-30 08:31 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-30 08:33 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-30 08:19 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-30 08:21 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-30 08:06 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-30 08:34 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-30 08:07 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-30 08:35 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-30 08:07 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-30 08:19 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-30 08:28 - [泰山景区回应修建刀片刺绳隔离网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-30 08:14 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:08 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/9127155058.shtml)
-- 2026-06-30 08:02 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.kurohicncr.top/Article/details/82047596.shtml)
-- 2026-06-30 08:13 - [苗族银饰](https://www.blog.minike.top/Article/details/018765646162.shtml)
-- 2026-06-30 08:19 - [小娘惹](http://www.blog.minike.top/Article/details/12374848.shtml)
-- 2026-06-30 08:21 - [逃狱兄弟](https://www.share.minike.top/Article/details/629485.shtml)
-- 2026-06-30 08:07 - [现在叛逆期的孩子最怕的是什么？](http://www.blog.minike.top/Article/details/869996810317.shtml)
-- 2026-06-30 08:08 - [佐野海舟远射破门](http://www.share.minike.top/Article/details/739727.shtml)
-- 2026-06-30 08:06 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.kurohicncr.top/Article/details/529910333707.shtml)
-- 2026-06-30 08:07 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/113547.shtml)
-- 2026-06-30 08:05 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/43141490.shtml)
-- 2026-06-30 08:00 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.blog.minike.top/Article/details/22538822917.shtml)
-- 2026-06-30 08:27 - [莫兰特转投开拓者效力](https://www.blog.minike.top/Article/details/13226446.shtml)
-- 2026-06-30 08:03 - [南北多地暴雨和强对流天气持续](http://www.blog.kurohicncr.top/Article/details/73495.shtml)
-- 2026-06-30 08:18 - [吴易昺不敌德约科维奇 止步温网首轮](https://www.blog.kurohicncr.top/Article/details/9667760512.shtml)
-- 2026-06-30 08:11 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/79879.shtml)
+- 2026-06-30 08:22 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/1580216264.shtml)
+- 2026-06-30 08:27 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.share.minike.top/Article/details/55458.shtml)
+- 2026-06-30 08:32 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/010824991580.shtml)
+- 2026-06-30 08:14 - [警犬“多多”助民警寻回失联老人](https://www.share.kurohicncr.top/Article/details/1464613.shtml)
+- 2026-06-30 08:26 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/31010614270.shtml)
+- 2026-06-30 08:10 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/5757141983.shtml)
+- 2026-06-30 08:18 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/47693378881.shtml)
+- 2026-06-30 08:21 - [巴西2-1绝杀日本](http://www.share.minike.top/Article/details/34859235967.shtml)
+- 2026-06-30 08:18 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/19116.shtml)
+- 2026-06-30 08:28 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/06033.shtml)
+- 2026-06-30 08:27 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/1367048.shtml)
+- 2026-06-30 08:18 - [第3集丨“柠檬茶能换怀表？”](http://www.blog.kurohicncr.top/Article/details/37777886845.shtml)
+- 2026-06-30 08:33 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/9036956.shtml)
+- 2026-06-30 08:14 - [张月收到黄灿灿辣货两眼发光](http://www.share.kurohicncr.top/Article/details/38694829.shtml)
+- 2026-06-30 08:28 - [勇士续约波尔津吉斯](http://www.share.kurohicncr.top/Article/details/59913028.shtml)

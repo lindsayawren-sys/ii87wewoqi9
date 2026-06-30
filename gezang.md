@@ -1,56 +1,60 @@
-# 思创医惠财务造假后更名思创智联洗白？主业仍差 苍南县国资为何3亿接盘造假亏损标的
+# 黄金、白银，回吐年内涨幅！后市怎么走？
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 出品：新浪财经上市公司研究院 文/夏虫工作室 核心观点：思创医惠财务造假后更名思创智联是否盈利实质性困境反转？需要指出的是，公司的物联网业务仍在大幅下滑。颇为值得关注的是，魏乃绪入主上市公司前后，公司将巨额亏损的造假主体——医惠科技100%股权，以2.996亿元出售给苍南县山海数字科技有限公司，而该公司穿透后同样出现苍南县财政局
+国际金价跌至4300美元/盎司下方，贵金属整体回吐年内涨幅。6月8日，国内期货市场贵金属跌幅显著。截至下午收盘，国内主力合约中沪银跌8.83%、沪金跌3.67%，铂、钯跌幅均超过5%。国际市场上，伦敦现货黄金价格再度跌破4300美元/盎司关口，已完全回吐年内涨幅。伦敦金现年内跌幅约1%，伦敦银现年内跌幅达约7%。“5月以来，黄金价格冲高回落，重心下探。截至6月8日，国内现货99
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 出品：新浪财经上市公司研究院 文/夏虫工作室 核心观点：思创医惠财务造假后更名思创智联是否盈利实质性困境反转？
+国际金价跌至4300美元/盎司下方，贵金属整体回吐年内涨幅。
 
-需要指出的是，公司的物联网业务仍在大幅下滑。
+6月8日，国内期货市场贵金属跌幅显著。
 
-颇为值得关注的是，魏乃绪入主上市公司前后，公司将巨额亏损的造假主体——医惠科技100%股权，以2.996亿元出售给苍南县山海数字科技有限公司，而该公司穿透后同样出现苍南县财政局身影。
+截至下午收盘，国内主力合约中沪银跌8.83%、沪金跌3.67%，铂、钯跌幅均超过5%。
 
-至此，我们疑惑的是，为何国资接盘上市公司不良资产？
+国际市场上，伦敦现货黄金价格再度跌破4300美元/盎司关口，已完全回吐年内涨幅。
 
-此外，魏乃绪与苍南县国资旗下公司存在共同设立有限合伙企业情况。
+伦敦金现年内跌幅约1%，伦敦银现年内跌幅达约7%。
 
-这一系列交易背后是否警惕利益输送风险？
+“5月以来，黄金价格冲高回落，重心下探。
 
-思创智联今年一季报业绩暴跌。
+截至6月8日，国内现货99.99%黄金报价944.5元/克，相较5月初累计下跌7.45%。
 
-一季报显示，公司营业总收入为9105.40万元，较去年同报告期营业总收入减少3.18亿元，同比较去年同期下降77.75%；仍然持续亏损，归母净利润为-908.81万元。
+”卓创资讯富宝贵金属分析师黄加奇称，5月初美伊释放和谈信号，黄金在“霍尔木兹海峡恢复通航，通胀缓和下降”的预期下短暂冲高，但随着主要消费国之一的印度提升黄金进口关税、美联储鸽派票委米兰辞职以及美伊在铀浓缩等关键问题上僵持，5月中下旬黄金步入下行通道。
 
 ## 相关推荐
 
-- 2026-06-30 08:04 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-30 08:27 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-30 08:24 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-30 08:23 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-30 08:29 - [森保一致歉：世界第一目标没能实现](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-30 08:23 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
-- 2026-06-30 08:10 - [大蒜晒外面被路过女子连盆端走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
-- 2026-06-30 08:28 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-30 08:12 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
-- 2026-06-30 08:11 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-30 08:08 - [巴西足球能否再现昔日荣光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-30 08:13 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-30 08:33 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-30 08:14 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-30 08:14 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-30 08:30 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-30 08:33 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-30 08:08 - [大蒜晒外面被路过女子连盆端走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-30 08:35 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-30 08:17 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
+- 2026-06-30 08:22 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
+- 2026-06-30 08:27 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-30 08:19 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-30 08:21 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:08 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/812534466278.shtml)
-- 2026-06-30 08:10 - [存储芯片龙头提示风险](https://www.blog.kurohicncr.top/Article/details/5168194797.shtml)
-- 2026-06-30 08:24 - [起风了](http://www.share.kurohicncr.top/Article/details/189924061319.shtml)
-- 2026-06-30 08:18 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/4531305426.shtml)
-- 2026-06-30 08:01 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/4531172660.shtml)
-- 2026-06-30 08:11 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/86335.shtml)
-- 2026-06-30 08:26 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://www.blog.kurohicncr.top/Article/details/93596891982.shtml)
-- 2026-06-30 08:03 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.kurohicncr.top/Article/details/306503.shtml)
-- 2026-06-30 08:28 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/3175693.shtml)
-- 2026-06-30 08:10 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/80653283.shtml)
-- 2026-06-30 08:23 - [赛博朋克边缘行者2预告片](https://www.share.kurohicncr.top/Article/details/937382.shtml)
-- 2026-06-30 08:07 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/28463.shtml)
-- 2026-06-30 08:28 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/2945700.shtml)
-- 2026-06-30 08:06 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/13685.shtml)
-- 2026-06-30 08:25 - [杨紫学位证上就是杨紫](https://www.share.kurohicncr.top/Article/details/7084665657.shtml)
+- 2026-06-30 08:09 - [巴西补时绝杀日本](http://www.blog.minike.top/Article/details/300811224430.shtml)
+- 2026-06-30 08:06 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.kurohicncr.top/Article/details/570871781.shtml)
+- 2026-06-30 08:26 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/980193755815.shtml)
+- 2026-06-30 08:11 - [斛珠夫人](https://www.blog.minike.top/Article/details/87768.shtml)
+- 2026-06-30 08:15 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/09497475.shtml)
+- 2026-06-30 08:06 - [巴拉圭点球大战淘汰德国进16强](http://www.share.minike.top/Article/details/244860.shtml)
+- 2026-06-30 08:13 - [DeepSeek V4正式版要来了](https://www.share.minike.top/Article/details/47524068.shtml)
+- 2026-06-30 08:20 - [德国4比5巴拉圭](http://www.blog.minike.top/Article/details/90078.shtml)
+- 2026-06-30 08:08 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.minike.top/Article/details/770051363.shtml)
+- 2026-06-30 08:28 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/86696970728.shtml)
+- 2026-06-30 08:11 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/81917.shtml)
+- 2026-06-30 08:26 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/10496.shtml)
+- 2026-06-30 08:27 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/18040.shtml)
+- 2026-06-30 08:09 - [穆祉丞年度人气艺人](http://www.blog.minike.top/Article/details/22976812.shtml)
+- 2026-06-30 08:27 - [啊啊啊](https://www.share.minike.top/Article/details/62432716797.shtml)

@@ -1,57 +1,60 @@
-# “敦煌文化环球连线——走进德国杜塞尔多夫”活动举办
+# 柬埔寨鲜榴莲首登广州港南沙港区
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-中新网柏林5月7日电 当地时间7日，“敦煌文化环球连线——走进德国杜塞尔多夫”活动举办。中国驻杜塞尔多夫总领事余勇，甘肃省外办主任徐妍丽，敦煌研究院副院长俞天秀，领区中德友好协会、孔子学院、青年侨胞代表等50余人出席。余勇致辞表示，习近平主席提出全球文明倡议，为构建人类命运共同体指明方向、注入活力。新时代共建“一带一路”，传承丝路和平合作、开放包容的初心，与敦煌贯通中西、联结四
+中新网广州6月9日电 (记者 蔡敏婕)当前，正值榴莲消费旺季，广大榴莲爱好者对“榴莲自由”的期待与日俱增。广州港集团9日发布消息称，柬埔寨鲜榴莲海运首柜顺利靠泊广州南沙港区，标志着柬埔寨鲜榴莲开通南沙海运进口新通道。 得益于柬埔寨优越的光热条件，柬埔寨鲜榴莲果实糖分积累丰富、果肉饱满，可为中国消费者带来更多元化的榴莲选择。近年来，随着《区域全面经济伙伴关系协定》(RCEP)政策
 
 ## 正文
 
-中新网柏林5月7日电 当地时间7日，“敦煌文化环球连线——走进德国杜塞尔多夫”活动举办。
+中新网广州6月9日电 (记者 蔡敏婕)当前，正值榴莲消费旺季，广大榴莲爱好者对“榴莲自由”的期待与日俱增。
 
-中国驻杜塞尔多夫总领事余勇，甘肃省外办主任徐妍丽，敦煌研究院副院长俞天秀，领区中德友好协会、孔子学院、青年侨胞代表等50余人出席。
+广州港集团9日发布消息称，柬埔寨鲜榴莲海运首柜顺利靠泊广州南沙港区，标志着柬埔寨鲜榴莲开通南沙海运进口新通道。
 
-余勇致辞表示，习近平主席提出全球文明倡议，为构建人类命运共同体指明方向、注入活力。
+得益于柬埔寨优越的光热条件，柬埔寨鲜榴莲果实糖分积累丰富、果肉饱满，可为中国消费者带来更多元化的榴莲选择。
 
-新时代共建“一带一路”，传承丝路和平合作、开放包容的初心，与敦煌贯通中西、联结四海的气度一脉相承。
+近年来，随着《区域全面经济伙伴关系协定》(RCEP)政策红利加持，中柬农产品经贸合作不断深化，柬埔寨优质鲜果对华出口迎来新一轮风口。
 
-总领馆愿勇担桥梁使命，立足属地优势，凝聚友好力量，深耕人文交流，让敦煌故事、中国故事在莱茵大地广为传扬。
+南沙港冷链凭借物流路径保障，正在成为东南亚生鲜进入中国市场的重要门户。
 
-敦煌研究院文化弘扬部副部长宋淑霞作“灿烂的敦煌石窟艺术”专题分享，现场来宾踊跃互动，反响热烈。
+南沙港冷链坐落于粤港澳大湾区几何中心，毗邻东南亚，依托南沙港直航航线优势，可缩短海上运输时长，从源头抢占鲜果运输先机。
 
-(完)
+到港后，通过港区一体化闭环运营，可实现码头靠泊、船边直提、冷链入库、快速分拨无缝衔接，无需进行二次转运。
+
+叠加区域发达的综合交通网络，这批鲜榴莲最快仅需2小时便能现身广州各大水果批发市场，24小时内抵达内地主要城市，实现“抢鲜”上市。
 
 ## 相关推荐
 
-- 2026-06-30 08:05 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-30 08:00 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-30 08:17 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
-- 2026-06-30 08:08 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-30 08:07 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-30 08:28 - [王楚钦孙颖莎晋级混双八强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
-- 2026-06-30 08:20 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-30 08:22 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-30 08:11 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
-- 2026-06-30 08:15 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-30 08:05 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-30 08:21 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
-- 2026-06-30 08:21 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-30 08:28 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-30 08:18 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-30 08:11 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-30 08:33 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-30 08:18 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-30 08:27 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-30 08:22 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-30 08:26 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-30 08:31 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-30 08:08 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-30 08:35 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-30 08:20 - [4000美元是黄金新一轮下跌的开始吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-30 08:12 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-30 08:23 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:03 - [男子醉酒溺水获救后同行人拒协助抬人](https://www.blog.minike.top/Article/details/50801272584.shtml)
-- 2026-06-30 08:05 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/217825166.shtml)
-- 2026-06-30 08:20 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/9216171403.shtml)
-- 2026-06-30 08:01 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.minike.top/Article/details/535779.shtml)
-- 2026-06-30 08:27 - [本届世界杯已有5名球员被控强奸](http://www.share.minike.top/Article/details/5913191.shtml)
-- 2026-06-30 08:11 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.minike.top/Article/details/321057337364.shtml)
-- 2026-06-30 08:16 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/89635.shtml)
-- 2026-06-30 08:15 - [莫兰特转投开拓者效力](http://www.share.minike.top/Article/details/3410439342.shtml)
-- 2026-06-30 08:15 - [建议不要突然完全停止喝咖啡](http://www.share.kurohicncr.top/Article/details/320389049.shtml)
-- 2026-06-30 08:02 - [DeepSeek V4正式版要来了](http://www.share.minike.top/Article/details/2170240.shtml)
-- 2026-06-30 08:07 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/54222620584.shtml)
-- 2026-06-30 08:03 - [金牌调解](https://www.share.kurohicncr.top/Article/details/860812251.shtml)
-- 2026-06-30 08:18 - [辛纳vs凯茨玛诺维奇](https://www.share.minike.top/Article/details/5411905189.shtml)
-- 2026-06-30 08:23 - [周生如故](https://www.share.minike.top/Article/details/5582478.shtml)
-- 2026-06-30 08:29 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/5131929.shtml)
+- 2026-06-30 08:13 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/26987706.shtml)
+- 2026-06-30 08:35 - [点球大战 残酷](http://www.share.kurohicncr.top/Article/details/6743535050.shtml)
+- 2026-06-30 08:33 - [刘宇宁是去进货了吗](https://www.share.minike.top/Article/details/12538773835.shtml)
+- 2026-06-30 08:28 - [日本队主帅道歉](https://www.share.kurohicncr.top/Article/details/87672.shtml)
+- 2026-06-30 08:15 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/25612331.shtml)
+- 2026-06-30 08:33 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/98555928.shtml)
+- 2026-06-30 08:14 - [王楚钦说配合稍微有些陌生感](http://www.share.kurohicncr.top/Article/details/98314.shtml)
+- 2026-06-30 08:20 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/05693.shtml)
+- 2026-06-30 08:08 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/00794409.shtml)
+- 2026-06-30 08:30 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/177265010.shtml)
+- 2026-06-30 08:10 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.kurohicncr.top/Article/details/37795.shtml)
+- 2026-06-30 08:29 - [德国进球被吹](https://www.share.minike.top/Article/details/7822664518.shtml)
+- 2026-06-30 08:35 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/0092605145.shtml)
+- 2026-06-30 08:16 - [全新问界M9现身美国街头](https://www.share.minike.top/Article/details/9226440463.shtml)
+- 2026-06-30 08:27 - [拆解FIFA和世界杯的暗面](https://www.blog.minike.top/Article/details/636008669.shtml)

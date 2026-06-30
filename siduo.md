@@ -1,60 +1,55 @@
-# 罕见不展示重型装备，严防乌克兰“突然袭击”，俄罗斯今天举行胜利日阅兵
+# 颠覆认知！西藏察隅横断山深处藏着塞上小江南
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-来源：环球 【环球时报驻俄罗斯特派记者 肖新新 环球时报特约记者 郑真】俄罗斯定于5月9日在莫斯科举行卫国战争胜利日阅兵活动。据俄方介绍，白俄罗斯总统卢卡申科、老挝国家主席通伦、斯洛伐克总理菲佐、马来西亚最高元首易卜拉欣、波黑塞族共和国总统西尼沙·卡兰9日将访问俄罗斯。出于安全考虑，今年俄罗斯的红场阅兵规模有所缩减，不展示坦克和弹道导弹等军事装备。在阅兵举行前，俄罗斯宣布5月8
+发布时间：2026年06月08日 11:34 来源：中国新闻网 2026年是西藏和平解放75周年，滇藏公路通车50周年。近日，中国新闻社云南分社和西藏分社联合开展的“穿越横断山·同心启新篇”主题采访活动，走进地处横断山区的西藏自治区林芝市察隅县，偶遇一处绝美村落——布宗村。 布宗村静卧贡日嘎布曲河谷，海拔近2300米，平均气温14至16摄氏度，四周森林密布，红豆杉、云杉、冷杉层
 
 ## 正文
 
-来源：环球 【环球时报驻俄罗斯特派记者 肖新新 环球时报特约记者 郑真】俄罗斯定于5月9日在莫斯科举行卫国战争胜利日阅兵活动。
+发布时间：2026年06月08日 11:34 来源：中国新闻网 2026年是西藏和平解放75周年，滇藏公路通车50周年。
 
-据俄方介绍，白俄罗斯总统卢卡申科、老挝国家主席通伦、斯洛伐克总理菲佐、马来西亚最高元首易卜拉欣、波黑塞族共和国总统西尼沙·卡兰9日将访问俄罗斯。
+近日，中国新闻社云南分社和西藏分社联合开展的“穿越横断山·同心启新篇”主题采访活动，走进地处横断山区的西藏自治区林芝市察隅县，偶遇一处绝美村落——布宗村。
 
-出于安全考虑，今年俄罗斯的红场阅兵规模有所缩减，不展示坦克和弹道导弹等军事装备。
+布宗村静卧贡日嘎布曲河谷，海拔近2300米，平均气温14至16摄氏度，四周森林密布，红豆杉、云杉、冷杉层层环抱，村民的院落散落其间，掩映在苍翠林木中。
 
-在阅兵举行前，俄罗斯宣布5月8日零时至5月10日在前线实施停火，并警告乌克兰方面若试图破坏俄庆祝活动，俄武装力量将对基辅市中心实施大规模导弹打击。
+中国里程最长的国道G219穿谷而过，将这座藏东南山村接入国家公路网。
 
-8日，俄罗斯和乌克兰相互发动大规模攻击，法新社评论认为，俄罗斯宣布的单方面停火“似乎已经瓦解”。
+绿水穿村，林木葱茏，河谷的生机在镜头里徐徐展开，谁能不爱藏东南的原生态风光！
 
-“我们的坦克需要在战场上，而不是在红场上” 根据俄罗斯总统助理乌沙科夫公布的胜利日阅兵日程，当地时间9日上午9时45分（北京时间9日14时45分）左右，俄方将举行欢迎外宾仪式，总统普京出席并将与外宾一同前往红场出席阅兵式。
-
-普京将在阅兵式上发表讲话，徒步方队、特技飞行队将接受检阅，普京还将与外国代表和卫国战争老战士一起向位于红场附近的无名烈士墓献花。
-
-中国外交部发言人林剑8日表示，中国驻俄罗斯使馆代表将应邀出席9日在莫斯科举行的胜利日阅兵式。
+(王临梓 贡嘎来松 陈静) 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 08:12 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
-- 2026-06-30 08:22 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-30 08:13 - [巴拉圭率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
-- 2026-06-30 08:17 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
-- 2026-06-30 08:04 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-30 08:07 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-30 08:05 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-30 08:02 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
-- 2026-06-30 08:14 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-30 08:14 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-30 08:24 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-30 08:17 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-30 08:08 - [大蒜晒外面被路过女子连盆端走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
-- 2026-06-30 08:04 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-30 08:12 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-30 08:17 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-30 08:32 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-30 08:18 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-30 08:06 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-30 08:33 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-30 08:25 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
+- 2026-06-30 08:17 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-30 08:35 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-30 08:25 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-30 08:08 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-30 08:35 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-30 08:27 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:11 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/6223808.shtml)
-- 2026-06-30 08:13 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/8609714.shtml)
-- 2026-06-30 08:01 - [日本 高位逼抢](http://www.blog.minike.top/Article/details/12068136268.shtml)
-- 2026-06-30 08:27 - [大蒜晒外面被路过女子连盆端走](http://www.share.minike.top/Article/details/7259224052.shtml)
-- 2026-06-30 08:14 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/155831.shtml)
-- 2026-06-30 08:01 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/06237197.shtml)
-- 2026-06-30 08:13 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/411315.shtml)
-- 2026-06-30 08:01 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/43884373999.shtml)
-- 2026-06-30 08:21 - [杨紫获白玉兰视后争议不止](https://www.share.minike.top/Article/details/66692157.shtml)
-- 2026-06-30 08:27 - [巴西绝杀日本](http://www.share.minike.top/Article/details/994812558.shtml)
-- 2026-06-30 08:01 - [爆冷出局！德国点球大战不敌巴拉圭](https://www.blog.kurohicncr.top/Article/details/2507398.shtml)
-- 2026-06-30 08:18 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/20257588590.shtml)
-- 2026-06-30 08:20 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/15314.shtml)
-- 2026-06-30 08:29 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/985850.shtml)
-- 2026-06-30 08:14 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.minike.top/Article/details/9552668798.shtml)
+- 2026-06-30 08:23 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/203685532.shtml)
+- 2026-06-30 08:14 - [王欣瑜2-1击败科恰雷托](http://www.blog.kurohicncr.top/Article/details/23762236.shtml)
+- 2026-06-30 08:18 - [森保一 保守](http://www.blog.minike.top/Article/details/94471.shtml)
+- 2026-06-30 08:33 - [存储芯片龙头提示风险](http://www.blog.kurohicncr.top/Article/details/8497596597.shtml)
+- 2026-06-30 08:23 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/7175032.shtml)
+- 2026-06-30 08:23 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/97619901850.shtml)
+- 2026-06-30 08:26 - [人类...完蛋了...](http://www.share.minike.top/Article/details/4229651366.shtml)
+- 2026-06-30 08:12 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/051661.shtml)
+- 2026-06-30 08:18 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/184135.shtml)
+- 2026-06-30 08:27 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/42012.shtml)
+- 2026-06-30 08:34 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/5834004870.shtml)
+- 2026-06-30 08:29 - [齐思钧回复张月](http://www.share.minike.top/Article/details/2916798.shtml)
+- 2026-06-30 08:07 - [韩乔生吐槽世界杯扩军](https://www.share.kurohicncr.top/Article/details/448677068.shtml)
+- 2026-06-30 08:27 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/465360985.shtml)
+- 2026-06-30 08:07 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/1446433.shtml)

@@ -1,46 +1,59 @@
-# 微软推出自愿退休计划
+# 汽车之家-S早盘涨近7% 第一季度净收入总额超10亿元
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-微软正在向美国员工提供一次性自愿离职计划，包括8至39周的薪资补偿、最长五年的医保延续以及持续的股票归属权，同时公司优先安排1900亿美元的AI资本支出，并预示未来员工人数将减少。责任编辑：张俊 SF065
+汽车之家-S（02518）早盘涨近7%，截至发稿，股价上涨6.75%，现报34.50港元，成交额1.351万港元。 汽车之家近日披露2026年第一季度业绩，期内总营收为10.5亿元人民币。此外，为持续回馈股东、兑现长期价值承诺，结合公司股息政策，董事会已批准派发每股美国存托股0.66美元，或每股普通股0.1650美元的现金分红，将以美元支付给于2026年7月2日休市后登记在册的
 
 ## 正文
 
-微软正在向美国员工提供一次性自愿离职计划，包括8至39周的薪资补偿、最长五年的医保延续以及持续的股票归属权，同时公司优先安排1900亿美元的AI资本支出，并预示未来员工人数将减少。
+汽车之家-S（02518）早盘涨近7%，截至发稿，股价上涨6.75%，现报34.50港元，成交额1.351万港元。
 
-责任编辑：张俊 SF065
+汽车之家近日披露2026年第一季度业绩，期内总营收为10.5亿元人民币。
+
+此外，为持续回馈股东、兑现长期价值承诺，结合公司股息政策，董事会已批准派发每股美国存托股0.66美元，或每股普通股0.1650美元的现金分红，将以美元支付给于2026年7月2日休市后登记在册的美国存托股及普通股持有人，分红总金额约为人民币5亿元。
+
+值得注意的是，汽车之家今年4月召开“信任，向新出发”品牌焕新发布会。
+
+公司在发布会上完成品牌LOGO焕新与App改版，并官宣数字人、AIGC创作大赛及AI智能助手等一系列落地动作，旨在推动AI技术驱动下的汽车内容创新和用户决策省心。
+
+值得一提的是，发布会上，汽车之家展示了自研仓颉大模型与AI智能助手的落地进展。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 08:22 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-30 08:09 - [德国巴拉圭进入点球大战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-30 08:08 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-30 08:20 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-30 08:10 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
-- 2026-06-30 08:11 - [锐评T1战胜KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
-- 2026-06-30 08:22 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-30 08:06 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
-- 2026-06-30 08:00 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-30 08:17 - [IGN评测电影版后室](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
-- 2026-06-30 08:21 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
-- 2026-06-30 08:25 - [马耳他著名拱门坍塌致中国男子身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-30 08:11 - [网友写差评被店家“挂”门口避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-30 08:20 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-30 08:09 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-30 08:07 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-30 08:21 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-30 08:32 - [巴西绝杀日本：漫画般结局换了主角](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
+- 2026-06-30 08:25 - [自然光｜papi酱&窦文涛：驴与跑步机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
+- 2026-06-30 08:26 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-30 08:09 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-30 08:10 - [德国 传控](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-30 08:24 - [张月收到黄灿灿辣货两眼发光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-30 08:15 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-30 08:12 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-30 08:12 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-30 08:31 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:07 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.kurohicncr.top/Article/details/6121621927.shtml)
-- 2026-06-30 08:11 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/07075011837.shtml)
-- 2026-06-30 08:02 - [巴西扳平比分](http://www.share.minike.top/Article/details/80017377362.shtml)
-- 2026-06-30 08:15 - [国务院：探索延长义务教育年限](http://www.blog.kurohicncr.top/Article/details/7774208.shtml)
-- 2026-06-30 08:19 - [城市规划有可能成为「屎山代码」吗？](http://www.share.minike.top/Article/details/0011953.shtml)
-- 2026-06-30 08:04 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/9493236675.shtml)
-- 2026-06-30 08:11 - [德国巴拉圭加时](http://www.share.kurohicncr.top/Article/details/13977.shtml)
-- 2026-06-30 08:03 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/04153.shtml)
-- 2026-06-30 08:19 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.minike.top/Article/details/596128.shtml)
-- 2026-06-30 08:17 - [杨紫学位证上就是杨紫](http://www.share.kurohicncr.top/Article/details/6178368.shtml)
-- 2026-06-30 08:11 - [网瘾賊大的阿嬷](http://www.share.minike.top/Article/details/0138506102.shtml)
-- 2026-06-30 08:22 - [德国爆冷点球大战不敌巴拉圭](http://www.blog.minike.top/Article/details/119029.shtml)
-- 2026-06-30 08:07 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/49630100.shtml)
-- 2026-06-30 08:01 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/846147184.shtml)
-- 2026-06-30 08:20 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/2901806.shtml)
+- 2026-06-30 08:27 - [上市央企地产商 两年换了三任董事长](http://www.blog.minike.top/Article/details/70474192723.shtml)
+- 2026-06-30 08:31 - [千与千寻](http://www.share.minike.top/Article/details/626386602721.shtml)
+- 2026-06-30 08:17 - [男子醉酒溺水获救后同行人拒协助抬人](https://www.blog.kurohicncr.top/Article/details/118399.shtml)
+- 2026-06-30 08:19 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/296950521.shtml)
+- 2026-06-30 08:34 - [泰山景区回应修建刀片刺绳隔离网](http://www.blog.minike.top/Article/details/570574506.shtml)
+- 2026-06-30 08:19 - [巴西绝杀](http://www.blog.minike.top/Article/details/183997.shtml)
+- 2026-06-30 08:06 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/13536961895.shtml)
+- 2026-06-30 08:34 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/9354970.shtml)
+- 2026-06-30 08:08 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/9055048.shtml)
+- 2026-06-30 08:23 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/454020500.shtml)
+- 2026-06-30 08:06 - [二次元提前预演明日巴西对日本](https://www.blog.kurohicncr.top/Article/details/8896854.shtml)
+- 2026-06-30 08:31 - [张雪的一句“是我们”引发岛内热议](https://www.blog.kurohicncr.top/Article/details/194599161.shtml)
+- 2026-06-30 08:16 - [开电动汽车真的很省钱吗？](http://www.blog.kurohicncr.top/Article/details/967258.shtml)
+- 2026-06-30 08:22 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/0433673809.shtml)
+- 2026-06-30 08:29 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/2081792848.shtml)

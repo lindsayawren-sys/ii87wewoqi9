@@ -1,59 +1,57 @@
-# 我国营商环境持续改善
+# 陕西省西安市人大常委会原主任韩松被公诉
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-央视网消息(新闻联播)：当前，我国营商环境建设取得新进展，企业进入市场的成本更少、流程更优、服务更好。 5月8日，国家发展改革委发布《中国营商环境发展报告(2026)》(以下简称《报告》)。《报告》指出，“十四五”时期，我国企业投资范围更加广阔，市场准入负面清单经过2022年、2025年两次修订，清单内的事项数量压减约14%。 市场准入壁垒得到清理整治。全国累计梳理排查文件3.
+中新社北京6月9日电 (记者 张素)中国官方9日通报陕西省西安市人大常委会原党组书记、主任韩松涉案进展。最高人民检察院依法以涉嫌受贿罪对韩松作出逮捕决定，并指定由甘肃省兰州市人民检察院审查起诉。 兰州市人民检察院近日已向兰州市中级人民法院提起公诉。检察机关起诉指控称，被告人韩松利用担任原国家工商行政管理总局宣传中心主任兼办公厅副主任，陕西省西安市委常委、副市长，西安国际港务区管
 
 ## 正文
 
-央视网消息(新闻联播)：当前，我国营商环境建设取得新进展，企业进入市场的成本更少、流程更优、服务更好。
+中新社北京6月9日电 (记者 张素)中国官方9日通报陕西省西安市人大常委会原党组书记、主任韩松涉案进展。
 
-5月8日，国家发展改革委发布《中国营商环境发展报告(2026)》(以下简称《报告》)。
+最高人民检察院依法以涉嫌受贿罪对韩松作出逮捕决定，并指定由甘肃省兰州市人民检察院审查起诉。
 
-《报告》指出，“十四五”时期，我国企业投资范围更加广阔，市场准入负面清单经过2022年、2025年两次修订，清单内的事项数量压减约14%。
+兰州市人民检察院近日已向兰州市中级人民法院提起公诉。
 
-市场准入壁垒得到清理整治。
+检察机关起诉指控称，被告人韩松利用担任原国家工商行政管理总局宣传中心主任兼办公厅副主任，陕西省西安市委常委、副市长，西安国际港务区管委会党工委书记、主任，西安市委副书记、政法委书记，西安市人大常委会党组书记、主任等职务上的便利，为他人谋取利益，以及利用本人职权或者地位形成的便利条件，通过其他国家工作人员职务上的行为，为他人谋取不正当利益，非法收受他人财物，数额特别巨大，依法应当以受贿罪追究其刑事责任。
 
-全国累计梳理排查文件3.8万余件，修订或废止文件2300余件，有力保障了经营主体市场准入权利。
+公开资料显示，韩松生于1965年6月，山东临沂人。
 
-招标投标监管体制机制更加完善。
+去年7月，官方通报其任上被查。
 
-2025年，中标企业总数超68.9万家，同比增长13.0%，民营企业中标项目数量占比达76.2%，市场活力持续增强。
+今年2月，中央纪委国家监委通报其被开除党籍和公职。
 
-五项“一件事”政务服务改革全面完成 市场监管总局5月8日表示，目前，企业变更登记、开办餐饮店等五项“一件事”政务服务改革已全面完成。
+韩松被指毫无纪法底线，大搞权钱交易，利用职务便利为他人在企业经营、工程承揽等方面谋利，并非法收受巨额财物。
 
 ## 相关推荐
 
-- 2026-06-30 08:06 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
-- 2026-06-30 08:10 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
-- 2026-06-30 08:11 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
-- 2026-06-30 08:16 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-30 08:06 - [IGN评测电影版后室](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-30 08:15 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-30 08:15 - [欧洲装一台空调有多难](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
-- 2026-06-30 08:00 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-30 08:08 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-30 08:01 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-30 08:03 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-30 08:11 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
-- 2026-06-30 08:00 - [日本队5进世界杯淘汰赛0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-30 08:09 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-30 08:23 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
+- 2026-06-30 08:08 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-30 08:18 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-30 08:26 - [陈幸同晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-30 08:23 - [恋与深空道歉声明](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-30 08:07 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-30 08:13 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-30 08:15 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
+- 2026-06-30 08:30 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-30 08:07 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:17 - [亚洲球队全部出局](http://www.share.minike.top/Article/details/843068.shtml)
-- 2026-06-30 08:15 - [锐评T1战胜KC](http://www.blog.minike.top/Article/details/95615670638.shtml)
-- 2026-06-30 08:17 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/14078.shtml)
-- 2026-06-30 08:28 - [世界杯：德国vs巴拉圭](https://www.blog.kurohicncr.top/Article/details/18798602.shtml)
-- 2026-06-30 08:04 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/0341146.shtml)
-- 2026-06-30 08:15 - [佐野海舟远射破门](https://www.blog.kurohicncr.top/Article/details/0355227.shtml)
-- 2026-06-30 08:13 - [安切洛蒂 换人](https://www.blog.kurohicncr.top/Article/details/622710283140.shtml)
-- 2026-06-30 08:20 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](http://www.share.kurohicncr.top/Article/details/009735.shtml)
-- 2026-06-30 08:25 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/745876878095.shtml)
-- 2026-06-30 08:14 - [世界杯欧洲队7战南美仅1胜](http://www.blog.kurohicncr.top/Article/details/637726964.shtml)
-- 2026-06-30 08:07 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/08947583059.shtml)
-- 2026-06-30 08:24 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.kurohicncr.top/Article/details/5211890.shtml)
-- 2026-06-30 08:06 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.minike.top/Article/details/047614928.shtml)
-- 2026-06-30 08:12 - [巴西扳平比分](http://www.blog.minike.top/Article/details/210372.shtml)
-- 2026-06-30 08:25 - [美股](https://www.share.kurohicncr.top/Article/details/7714219.shtml)
+- 2026-06-30 08:35 - [IGN评测电影版后室](http://www.blog.kurohicncr.top/Article/details/360346899075.shtml)
+- 2026-06-30 08:21 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/5722774.shtml)
+- 2026-06-30 08:07 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.kurohicncr.top/Article/details/72000.shtml)
+- 2026-06-30 08:18 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/8266234.shtml)
+- 2026-06-30 08:16 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/13341450393.shtml)
+- 2026-06-30 08:11 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/03197.shtml)
+- 2026-06-30 08:08 - [田中碧失误](http://www.share.minike.top/Article/details/44185016.shtml)
+- 2026-06-30 08:15 - [德国4比5巴拉圭](http://www.share.kurohicncr.top/Article/details/51563.shtml)
+- 2026-06-30 08:29 - [日本淘汰](http://www.blog.kurohicncr.top/Article/details/24927.shtml)
+- 2026-06-30 08:20 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/29102.shtml)
+- 2026-06-30 08:30 - [媒体：手机测评该挤挤水分了](https://www.blog.kurohicncr.top/Article/details/366251011.shtml)
+- 2026-06-30 08:12 - [德国4比5巴拉圭](https://www.share.kurohicncr.top/Article/details/4368152695.shtml)
+- 2026-06-30 08:27 - [孙颖莎王楚钦晋级8强](http://www.share.kurohicncr.top/Article/details/60298.shtml)
+- 2026-06-30 08:21 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.minike.top/Article/details/0545458024.shtml)
+- 2026-06-30 08:18 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/763285681709.shtml)

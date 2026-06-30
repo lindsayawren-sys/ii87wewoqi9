@@ -1,59 +1,52 @@
-# ATFX:4月非农报告 凯撒医疗因素消退后预期悲观
+# 菲律宾棉兰老岛近海强震已致8人死亡
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-专题：ATFX外汇专栏投稿 5月8日，ATFX：北京时间今日20点30分，美国劳工统计局将公布4月份非农就业报告，其中最受关注的数据包括失业率和新增非农就业人口。 ▲ATFX图 市场预期认为，美国4月份的失业率将保持4.3%不变，新增非农就业人口将从3月份的17.8万人骤降至6.2万人。原因是3月份的就业高增长并非长期因素驱动，而是美国的凯撒医疗集团大面积复工导致的短期数据异动
+中新网马尼拉6月8日电 (记者 张兴龙)菲律宾国家减灾管理委员会8日通报，菲南部棉兰老岛附近海域当天发生的7.8级地震已致8人死亡。 通报显示，遇难者中3人来自桑托斯将军城、3人来自西达沃省，另有2人来自南哥打巴托省。 据菲律宾火山地震研究所稍早前通报，地震发生于当天7时37分，震中位于萨兰加尼省马阿西姆镇西南约32公里处海域，震源深度33公里。震中附近的桑托斯将军城震感达到“
 
 ## 正文
 
-专题：ATFX外汇专栏投稿 5月8日，ATFX：北京时间今日20点30分，美国劳工统计局将公布4月份非农就业报告，其中最受关注的数据包括失业率和新增非农就业人口。
+中新网马尼拉6月8日电 (记者 张兴龙)菲律宾国家减灾管理委员会8日通报，菲南部棉兰老岛附近海域当天发生的7.8级地震已致8人死亡。
 
-▲ATFX图 市场预期认为，美国4月份的失业率将保持4.3%不变，新增非农就业人口将从3月份的17.8万人骤降至6.2万人。
+通报显示，遇难者中3人来自桑托斯将军城、3人来自西达沃省，另有2人来自南哥打巴托省。
 
-原因是3月份的就业高增长并非长期因素驱动，而是美国的凯撒医疗集团大面积复工导致的短期数据异动。
+据菲律宾火山地震研究所稍早前通报，地震发生于当天7时37分，震中位于萨兰加尼省马阿西姆镇西南约32公里处海域，震源深度33公里。
 
-新增非农就业人口是短期敏感指标，失业率是长期的稳定指标。
+震中附近的桑托斯将军城震感达到“破坏性”级别，棉兰老岛南部其他地区亦有不同程度震感。
 
-即便新增非农就业人口数据大降，只要失业率数据保持不变甚至出现下降，那么美国的就业市场就整体保持稳定。
+菲律宾火山地震研究所已在地震后发布海啸预警，“强烈建议”多个沿海地区居民立即撤离至高地或向内陆转移。
 
-今年一季度，美国平均新增非农就业人口为6.8万人，而失业率一直保持4.3%不变，意味着只要保持该水平的就业人口，美国的失业率就能够实现“动态的盈亏平衡”。
-
-目前市场预期的6.2万人，处于平衡点6.8万人的附近，所以大概率失业率也将保持不变。
-
-▲ATFX图 排除三月份的异常数据波动，2月份的新增非农就业人口为负的13.3万人，表现异常糟糕，意味着美国的劳动力市场依旧处于相对疲软的状态。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 08:21 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-30 08:16 - [德国 传控](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-30 08:28 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-30 08:05 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
-- 2026-06-30 08:10 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
-- 2026-06-30 08:03 - [世界杯欧洲队7战南美仅1胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-30 08:26 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-30 08:00 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-30 08:16 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
-- 2026-06-30 08:00 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-30 08:11 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-30 08:28 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-30 08:09 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-30 08:33 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
+- 2026-06-30 08:16 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-30 08:11 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-30 08:17 - [索马里女大使：想和中国一起搞事业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-30 08:13 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-30 08:11 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-30 08:19 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-30 08:10 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-30 08:06 - [巴西绝杀日本：漫画般结局换了主角](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-30 08:27 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:18 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/049943.shtml)
-- 2026-06-30 08:07 - [美股深夜大反弹 特斯拉飙涨8%](http://www.blog.kurohicncr.top/Article/details/37729.shtml)
-- 2026-06-30 08:15 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/386131.shtml)
-- 2026-06-30 08:12 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/3145209170.shtml)
-- 2026-06-30 08:24 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/0317421.shtml)
-- 2026-06-30 08:01 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/6620440324.shtml)
-- 2026-06-30 08:04 - [周冬雨多次说演不了话剧文城](https://www.blog.kurohicncr.top/Article/details/39808.shtml)
-- 2026-06-30 08:12 - [4000美元是黄金新一轮下跌的开始吗](https://www.blog.kurohicncr.top/Article/details/4218410733.shtml)
-- 2026-06-30 08:14 - [“柠檬茶能换怀表？”](http://www.blog.kurohicncr.top/Article/details/30367.shtml)
-- 2026-06-30 08:11 - [委内瑞拉地震死亡人数升至1719人](http://www.blog.kurohicncr.top/Article/details/05013716.shtml)
-- 2026-06-30 08:03 - [爆冷出局！德国点球大战不敌巴拉圭](http://www.blog.kurohicncr.top/Article/details/400282281.shtml)
-- 2026-06-30 08:02 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/03418903.shtml)
-- 2026-06-30 08:07 - [王楚钦说配合稍微有些陌生感](http://www.blog.minike.top/Article/details/137300.shtml)
-- 2026-06-30 08:10 - [孙兴慜发长文致歉](http://www.blog.kurohicncr.top/Article/details/175250.shtml)
-- 2026-06-30 08:28 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/684079348.shtml)
+- 2026-06-30 08:15 - [速度与激情9](http://www.blog.minike.top/Article/details/974709490.shtml)
+- 2026-06-30 08:35 - [人类...完蛋了...](http://www.share.minike.top/Article/details/97134231752.shtml)
+- 2026-06-30 08:25 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/4393116362.shtml)
+- 2026-06-30 08:07 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/5901026820.shtml)
+- 2026-06-30 08:35 - [一生一世](https://www.share.minike.top/Article/details/775384982859.shtml)
+- 2026-06-30 08:20 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/430410055.shtml)
+- 2026-06-30 08:32 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/63827809360.shtml)
+- 2026-06-30 08:08 - [日本五次世界杯淘汰赛全败](http://www.blog.kurohicncr.top/Article/details/0231122.shtml)
+- 2026-06-30 08:34 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/64183736.shtml)
+- 2026-06-30 08:20 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/792413.shtml)
+- 2026-06-30 08:32 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/761370.shtml)
+- 2026-06-30 08:17 - [日本球迷被强行披上巴西国旗](http://www.share.minike.top/Article/details/436700.shtml)
+- 2026-06-30 08:34 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/4206878967.shtml)
+- 2026-06-30 08:17 - [王楚钦说配合稍微有些陌生感](http://www.blog.kurohicncr.top/Article/details/199956552404.shtml)
+- 2026-06-30 08:23 - [美股深夜大反弹 特斯拉飙涨8%](https://www.share.minike.top/Article/details/6408794666.shtml)

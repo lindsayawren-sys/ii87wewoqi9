@@ -1,61 +1,57 @@
-# Brand Finance 2026中国品牌价值500强发布：国家电网位居第二，创历史新高
+# 纽约联储调查：对家庭财务状况的预期降至2022年以来最低
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-新浪财经讯，总部位于英国伦敦的品牌估值机构品牌金融集团9日发布《Brand Finance 2026中国品牌价值500强》报告，报告显示，2026年中国500强品牌的总品牌价值突破2.1万亿美元，品牌价值总额较上年增长7.6%，其中排名前10的品牌价值占比高达36%。 报告显示，抖音以1535.4 亿美元的品牌价值，连续第三年居中国品牌价值榜首，跃居全球第六，同比增长 45.1
+根据纽约联储的消费者预期调查，5月份一年期通胀预期降至3.46%。 根据5月份的调查： 房价上涨预期升至2022年7月以来的最高水平。食品和租金价格预期也有所上升，而汽油、医疗保健和大学学费的预期有所回落。 劳动力市场预期喜忧参半，尽管失业率预期小幅下降且收入增长预期保持稳定，但对失业的担忧加剧，主动离职的可能性也升至三年高点。 家庭财务状况预期降至2022年10月以来的最低水
 
 ## 正文
 
-新浪财经讯，总部位于英国伦敦的品牌估值机构品牌金融集团9日发布《Brand Finance 2026中国品牌价值500强》报告，报告显示，2026年中国500强品牌的总品牌价值突破2.1万亿美元，品牌价值总额较上年增长7.6%，其中排名前10的品牌价值占比高达36%。
+根据纽约联储的消费者预期调查，5月份一年期通胀预期降至3.46%。
 
-报告显示，抖音以1535.4 亿美元的品牌价值，连续第三年居中国品牌价值榜首，跃居全球第六，同比增长 45.1%，在全球社交与数字商业领域持续赶超欧美传统巨头。
+根据5月份的调查： 房价上涨预期升至2022年7月以来的最高水平。
 
-国家电网以突破1000以美元品牌价值稳居中国第二，全球第十，创历史新高。
+食品和租金价格预期也有所上升，而汽油、医疗保健和大学学费的预期有所回落。
 
-之后是金融领域工行、建行、中行、农行。
+劳动力市场预期喜忧参半，尽管失业率预期小幅下降且收入增长预期保持稳定，但对失业的担忧加剧，主动离职的可能性也升至三年高点。
 
-四大行同时集体入围全球前二十强，显示全球金融话语权稳步提升。
+家庭财务状况预期降至2022年10月以来的最低水平。
 
-新能源领域，比亚迪、宁德时代等品牌加速海外布局，在欧洲、东南亚市场份额持续扩大，成为“中国制造”向“中国创造”转型的典型代表。
+由于信贷获取难度增加及贷款拖欠情况恶化，家庭支出增长预期趋于温和。
 
-同时，近年来，随着中国品牌在产业变革中展现出的强劲韧性与创新活力，本年度共有29个汽车品牌入选中国品牌价值500强，累计品牌价值546亿美元，占榜单总价值的 3%，实现了10%的同比增长。
+消费者预计未来一年汽油价格将上涨5%，食品价格上涨5.8%，医疗费用上涨8.9%，大学教育费用上涨8%，租金上涨7.4%。
 
-在头部阵营中，比亚迪以173亿美元的品牌价值继续稳居首位，同比增长23%；吉利汽车以45亿美元的品牌价值位列第二，同比增长 26%；问界以34亿美元的品牌价值位列第三，并凭借 78分的品牌强度成为年度最强中国汽车品牌。
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-30 08:10 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
-- 2026-06-30 08:29 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-30 08:07 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-30 08:28 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-30 08:23 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
-- 2026-06-30 08:24 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-30 08:07 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-30 08:21 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-30 08:28 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-30 08:02 - [女子遭下药退赔偿拟追刑责](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
-- 2026-06-30 08:03 - [德国淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
-- 2026-06-30 08:14 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-30 08:04 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-30 08:06 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
-- 2026-06-30 08:11 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-30 08:22 - [德国淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-30 08:12 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-30 08:35 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-30 08:21 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-30 08:25 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-30 08:12 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
+- 2026-06-30 08:31 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-30 08:08 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
+- 2026-06-30 08:10 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
+- 2026-06-30 08:29 - [诺伊尔尽力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-30 08:27 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:25 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/429244279.shtml)
-- 2026-06-30 08:20 - [湖南祁东原文化馆被指贱卖](http://www.share.kurohicncr.top/Article/details/1077636.shtml)
-- 2026-06-30 08:16 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/65840553267.shtml)
-- 2026-06-30 08:16 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/7730183277.shtml)
-- 2026-06-30 08:01 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/04434445385.shtml)
-- 2026-06-30 08:18 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/1975326.shtml)
-- 2026-06-30 08:18 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/20076827.shtml)
-- 2026-06-30 08:29 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/280066702.shtml)
-- 2026-06-30 08:08 - [人类...完蛋了...](https://www.blog.kurohicncr.top/Article/details/73094.shtml)
-- 2026-06-30 08:03 - [藤森庆子赢得秘鲁总统选举](https://www.blog.minike.top/Article/details/84450806.shtml)
-- 2026-06-30 08:15 - [电影抓特务上映11天破亿](http://www.share.kurohicncr.top/Article/details/426110.shtml)
-- 2026-06-30 08:18 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/59445.shtml)
-- 2026-06-30 08:01 - [“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/954804374.shtml)
-- 2026-06-30 08:21 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/50245.shtml)
-- 2026-06-30 08:06 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.minike.top/Article/details/74137.shtml)
+- 2026-06-30 08:16 - [日本领先巴西](https://www.blog.kurohicncr.top/Article/details/20480.shtml)
+- 2026-06-30 08:14 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/3600025294.shtml)
+- 2026-06-30 08:24 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.minike.top/Article/details/35141.shtml)
+- 2026-06-30 08:15 - [为什么会有「念旧」的心理？](https://www.blog.kurohicncr.top/Article/details/22234237.shtml)
+- 2026-06-30 08:08 - [本科毕业生为何涌入专科学校](https://www.blog.minike.top/Article/details/7075551.shtml)
+- 2026-06-30 08:24 - [博世们还在犹豫 美的们已经卖断货](https://www.share.kurohicncr.top/Article/details/87057.shtml)
+- 2026-06-30 08:15 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/85793197906.shtml)
+- 2026-06-30 08:22 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/62837117491.shtml)
+- 2026-06-30 08:17 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/192780988744.shtml)
+- 2026-06-30 08:12 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://www.blog.minike.top/Article/details/263398200623.shtml)
+- 2026-06-30 08:28 - [这几秒成世界杯最值钱广告位](http://www.blog.minike.top/Article/details/65726.shtml)
+- 2026-06-30 08:30 - [张月收到黄灿灿辣货两眼发光](https://www.share.minike.top/Article/details/369541582.shtml)
+- 2026-06-30 08:08 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/0356501554.shtml)
+- 2026-06-30 08:12 - [巴西绝杀日本：漫画般结局换了主角](http://www.blog.kurohicncr.top/Article/details/5208265241.shtml)
+- 2026-06-30 08:08 - [曝詹姆斯即将与勇士会面](http://www.blog.minike.top/Article/details/5167991.shtml)

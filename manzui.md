@@ -1,60 +1,53 @@
-# 港股猪肉股走低 4月猪价收入双降 机构指新一轮周期上行可期
+# 泉峰控股拟回购总价值最高达1.5亿港元的公司股份
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-5月8日消息，港股猪肉概念股集体走低，其中，牧原股份跌4.46%，德康农牧跌超3%，中粮家佳康跌1.44%。 消息上，当前猪价的低迷主要还是因为市场上“供过于求”。虽然能繁母猪存栏量在下降，但由于养殖效率提升等因素，猪肉供应压力依然较大。 在这种背景下，牧原股份自己也公告了4月份的销售情况：商品猪销售均价同比下降35.54%，受此影响，销售收入也同比下降了32.49%。由此可见
+泉峰控股（02285）发布公告，本公司拟自2026年6月8日起至2026年12月31日止（包括首尾两天）期间实施一项股份购回计划，本公司可购回总价值最高达1.5亿港元的本公司普通股。股份购回计划将通过行使董事会根据本公司股东于 2026年5月18日举行的股东周年大会上授予的购回股份的现有一般授权（2026年股份购回授权）项下的权力予以实施。 本公司的财务状况维持稳健。董事会相信
 
 ## 正文
 
-5月8日消息，港股猪肉概念股集体走低，其中，牧原股份跌4.46%，德康农牧跌超3%，中粮家佳康跌1.44%。
+泉峰控股（02285）发布公告，本公司拟自2026年6月8日起至2026年12月31日止（包括首尾两天）期间实施一项股份购回计划，本公司可购回总价值最高达1.5亿港元的本公司普通股。
 
-消息上，当前猪价的低迷主要还是因为市场上“供过于求”。
+股份购回计划将通过行使董事会根据本公司股东于 2026年5月18日举行的股东周年大会上授予的购回股份的现有一般授权（2026年股份购回授权）项下的权力予以实施。
 
-虽然能繁母猪存栏量在下降，但由于养殖效率提升等因素，猪肉供应压力依然较大。
+本公司的财务状况维持稳健。
 
-在这种背景下，牧原股份自己也公告了4月份的销售情况：商品猪销售均价同比下降35.54%，受此影响，销售收入也同比下降了32.49%。
+董事会相信，股份购回计划反映本公司对其长期业务前景及增长潜力的信心。
 
-由此可见，整个行业目前仍处于“卖得越多、亏得越多”的困境，这也直接拖累了相关个股的股价表现。
+此外，本公司相信，通过实施股份购回计划积极优化其资本架构，预计会提高其每股盈利、每股资产净值及股东回报。
 
-国金证券指出，短期来看，生猪价格的低迷叠加政策驱动，行业产能去化有望进一步加速，新一轮周期上行可期。
-
-中长期来看，生猪养殖行业依旧有较为优秀的中枢利润，且非洲猪瘟之后行业的快速扩张中，仍有大量企业是低质量扩充产能，行业成本方差依旧巨大，头部企业有充足的超额利润释放，建议优选低成本优质企业。
-
-责任编辑：郝欣煜
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 08:08 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-30 08:11 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-30 08:00 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
-- 2026-06-30 08:20 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-30 08:28 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
-- 2026-06-30 08:14 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
-- 2026-06-30 08:21 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-30 08:21 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-30 08:13 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-30 08:18 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-30 08:17 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-30 08:23 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-30 08:00 - [德国巴拉圭进入点球大战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-30 08:15 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-30 08:21 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-30 08:16 - [感动全网的699分女生想报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-30 08:26 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
+- 2026-06-30 08:11 - [德国 传控](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-30 08:32 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-30 08:19 - [曝iPhone18Pro机密文件现身暗网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-30 08:35 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
+- 2026-06-30 08:28 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-30 08:27 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-30 08:09 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
+- 2026-06-30 08:10 - [萨内 看笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:01 - [索马里女大使：想和中国一起搞事业](https://www.blog.minike.top/Article/details/52831.shtml)
-- 2026-06-30 08:25 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/192098.shtml)
-- 2026-06-30 08:24 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/36655736.shtml)
-- 2026-06-30 08:27 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/56986284.shtml)
-- 2026-06-30 08:06 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/225014472449.shtml)
-- 2026-06-30 08:16 - [老外对中国cosplay竟这样评价…](https://www.blog.kurohicncr.top/Article/details/308680.shtml)
-- 2026-06-30 08:23 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.share.minike.top/Article/details/99544.shtml)
-- 2026-06-30 08:23 - [这几秒成世界杯最值钱广告位](http://www.blog.minike.top/Article/details/305206.shtml)
-- 2026-06-30 08:24 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/4917455730.shtml)
-- 2026-06-30 08:26 - [日本反击率先破门](http://www.blog.kurohicncr.top/Article/details/476919.shtml)
-- 2026-06-30 08:18 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/89552.shtml)
-- 2026-06-30 08:11 - [诺伊尔尽力了](http://www.share.kurohicncr.top/Article/details/2161796.shtml)
-- 2026-06-30 08:20 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/10794619706.shtml)
-- 2026-06-30 08:02 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/2901820044.shtml)
-- 2026-06-30 08:09 - [杨紫学位证上就是杨紫](https://www.blog.kurohicncr.top/Article/details/29840258550.shtml)
+- 2026-06-30 08:16 - [巴西扳平比分](http://www.share.kurohicncr.top/Article/details/141761.shtml)
+- 2026-06-30 08:33 - [自然光｜papi酱&窦文涛：驴与跑步机](https://www.share.minike.top/Article/details/37768771821.shtml)
+- 2026-06-30 08:22 - [豆包收费了，你还会用吗？](https://www.share.kurohicncr.top/Article/details/29334264.shtml)
+- 2026-06-30 08:20 - [王欣瑜2-1击败科恰雷托](http://www.blog.minike.top/Article/details/98884144473.shtml)
+- 2026-06-30 08:24 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/09383.shtml)
+- 2026-06-30 08:31 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/116654.shtml)
+- 2026-06-30 08:17 - [感动全网的699分女生想报考清华](https://www.share.kurohicncr.top/Article/details/468705700.shtml)
+- 2026-06-30 08:18 - [内马尔中场休息积极鼓励队友](https://www.blog.kurohicncr.top/Article/details/35203405488.shtml)
+- 2026-06-30 08:17 - [《共患难》](https://www.share.minike.top/Article/details/168911481668.shtml)
+- 2026-06-30 08:27 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/63763.shtml)
+- 2026-06-30 08:24 - [一见倾心](https://www.share.kurohicncr.top/Article/details/90408577502.shtml)
+- 2026-06-30 08:24 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.minike.top/Article/details/11446.shtml)
+- 2026-06-30 08:18 - [男子在京东买到“同仁堂”假药](http://www.share.kurohicncr.top/Article/details/19860208167.shtml)
+- 2026-06-30 08:14 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.minike.top/Article/details/85928.shtml)
+- 2026-06-30 08:34 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/15540867444.shtml)

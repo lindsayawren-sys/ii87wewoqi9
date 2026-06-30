@@ -1,59 +1,60 @@
-# 吃得少动得多体重却不减？可能是“湿胖”
+# 河南收获8445万亩小麦 夏播面积超八成
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-明明吃得不多，想减体重却纹丝不动；哪怕喝点水，感觉都在长肉；运动一身汗，肚子还是软塌塌的……减肥没成功，人先累垮，睡不好，月经紊乱，血脂还莫名其妙升高了……湖南中医药大学第二附属医院(湖南省中医院)治未病中心主任、主任医师熊暑霖表示，近期减重门诊收治多例减肥者不成功的病例，根源在于他们的身体长期处于“湿堵”状态，中医把这类肥胖称为“湿胖”。湿胖是怎么来的、有哪些表现？如何进行祛
+中新社郑州6月9日电 (记者 韩章云)据河南省农业农村厅消息，截至9日17时，该省已收获小麦8445万亩，约占全省种植面积的99.1%，全省大规模机收基本结束。 作为中国小麦生产第一大省，河南小麦产量约占全国四分之一，今年种植面积超8500万亩。 今年麦收期间，河南投入21.5万台联合收割机，农机云平台实时调度，实现小麦熟一块收一块。 针对麦收期间多降水的不利天气条件，河南公布
 
 ## 正文
 
-明明吃得不多，想减体重却纹丝不动；哪怕喝点水，感觉都在长肉；运动一身汗，肚子还是软塌塌的……减肥没成功，人先累垮，睡不好，月经紊乱，血脂还莫名其妙升高了……湖南中医药大学第二附属医院(湖南省中医院)治未病中心主任、主任医师熊暑霖表示，近期减重门诊收治多例减肥者不成功的病例，根源在于他们的身体长期处于“湿堵”状态，中医把这类肥胖称为“湿胖”。
+中新社郑州6月9日电 (记者 韩章云)据河南省农业农村厅消息，截至9日17时，该省已收获小麦8445万亩，约占全省种植面积的99.1%，全省大规模机收基本结束。
 
-湿胖是怎么来的、有哪些表现？
+作为中国小麦生产第一大省，河南小麦产量约占全国四分之一，今年种植面积超8500万亩。
 
-如何进行祛湿调理？
+今年麦收期间，河南投入21.5万台联合收割机，农机云平台实时调度，实现小麦熟一块收一块。
 
-熊暑霖进行了具体指导。
+针对麦收期间多降水的不利天气条件，河南公布全省烘干机械的位置信息和联系方式，日烘干能力达49.2万吨，较2023年提升140%。
 
-吃得不多却减不下来，缺乏体质调理 29岁的林女士，身高165厘米，体重78.8公斤，体重指数BMI达28.9。
+高峰期，多地彻夜抢收小麦，确保颗粒归仓。
 
-此前她尝试过节食和运动减肥，但效果并不明显，还经常感到疲劳、身体沉重，大便长期不成形，睡眠质量也较差。
+“今年小麦产量整体好于预期，尤其是旱地小麦增产幅度大。
 
-经湖南中医药大学第二附属医院治未病中心减重门诊医生辨证后，她被诊断为“脾虚湿阻型肥胖”。
+”中国农业农村部小麦专家指导组顾问、河南农业大学教授郭天财表示，尽管2025年秋季受连续降雨影响，全省小麦大面积晚播，但后续科学的田间管理、有利的天气条件，全省小麦在成熟期长势追上往年同期，为小麦丰收奠定基础。
 
-针对林女士的情况，医生为其制定了中西医结合的个体化调理方案：中药调理以健脾益气、化湿利水为主要方向，辨证配伍中药；配合穴位埋线、隔药艾灸等中医外治，帮助调节代谢功能；饮食上给出清淡饮食、七分饱的建议，适当食用薏米山药粥、荷叶陈皮茶等；同时督促林女士每周进行3次快走或慢跑的运动，每次运动30至60分钟。
+河南官方数据显示，截至9日，全省夏播面积7623万亩，占预计面积的83.8%。
 
 ## 相关推荐
 
-- 2026-06-30 08:21 - [德国淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-30 08:02 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
-- 2026-06-30 08:25 - [现在叛逆期的孩子最怕的是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-30 08:18 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-30 08:24 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
-- 2026-06-30 08:27 - [曝老詹对自由市场态度与以往截然不同](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-30 08:28 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-30 08:18 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-30 08:08 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-30 08:00 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
-- 2026-06-30 08:13 - [巴拉圭率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-30 08:26 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-30 08:24 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-30 08:09 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-30 08:12 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-30 08:18 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-30 08:28 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-30 08:09 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-30 08:34 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-30 08:15 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-30 08:07 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-30 08:14 - [日本队主帅道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-30 08:30 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
+- 2026-06-30 08:28 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-30 08:26 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-30 08:19 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-30 08:25 - [德国 传控](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:22 - [F1奥地利站赛后复盘](http://www.share.minike.top/Article/details/829038025.shtml)
-- 2026-06-30 08:14 - [绘画区你赢了](https://www.share.minike.top/Article/details/213187.shtml)
-- 2026-06-30 08:08 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/558024621.shtml)
-- 2026-06-30 08:19 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/18003.shtml)
-- 2026-06-30 08:02 - [巴西扳平比分](http://www.blog.kurohicncr.top/Article/details/997054308.shtml)
-- 2026-06-30 08:05 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/906117.shtml)
-- 2026-06-30 08:20 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/755639623908.shtml)
-- 2026-06-30 08:18 - [巴西把自己踢晕了](http://www.share.kurohicncr.top/Article/details/74595889003.shtml)
-- 2026-06-30 08:27 - [森保一致歉：世界第一目标没能实现](https://www.share.minike.top/Article/details/52811053533.shtml)
-- 2026-06-30 08:16 - [日本反击率先破门](http://www.share.minike.top/Article/details/38421.shtml)
-- 2026-06-30 08:27 - [孙兴慜发长文致歉](https://www.share.minike.top/Article/details/95116768.shtml)
-- 2026-06-30 08:02 - [德国巴拉圭加时](https://www.share.minike.top/Article/details/14820.shtml)
-- 2026-06-30 08:21 - [扬名立万](https://www.share.minike.top/Article/details/981050523.shtml)
-- 2026-06-30 08:02 - [斛珠夫人](https://www.share.minike.top/Article/details/18373216652.shtml)
-- 2026-06-30 08:23 - [张帅晋级温网次轮](http://www.blog.minike.top/Article/details/37418942851.shtml)
+- 2026-06-30 08:08 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/994481060804.shtml)
+- 2026-06-30 08:19 - [现在叛逆期的孩子最怕的是什么？](http://www.share.kurohicncr.top/Article/details/690865615736.shtml)
+- 2026-06-30 08:19 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/597103.shtml)
+- 2026-06-30 08:13 - [媒体：手机测评该挤挤水分了](http://www.blog.kurohicncr.top/Article/details/12107391.shtml)
+- 2026-06-30 08:10 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.share.minike.top/Article/details/4460036145.shtml)
+- 2026-06-30 08:25 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/3911173.shtml)
+- 2026-06-30 08:18 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/42272986802.shtml)
+- 2026-06-30 08:28 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/142863.shtml)
+- 2026-06-30 08:17 - [世界杯：德国vs巴拉圭](https://www.share.minike.top/Article/details/10987.shtml)
+- 2026-06-30 08:35 - [森保一 保守](http://www.blog.kurohicncr.top/Article/details/1958531.shtml)
+- 2026-06-30 08:15 - [扫黑风暴](http://www.share.minike.top/Article/details/887765079310.shtml)
+- 2026-06-30 08:33 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/1613883647.shtml)
+- 2026-06-30 08:07 - [请回答王牌2019](https://www.share.minike.top/Article/details/45378.shtml)
+- 2026-06-30 08:23 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/769329.shtml)
+- 2026-06-30 08:13 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/6543259694.shtml)

@@ -1,61 +1,46 @@
-# 建起“石榴籽小银行” 把民族团结“存”进日常
+# 万科A：公司截至2026年3月31日的股东数量为489869户
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-在内蒙古各地中小学推进铸牢中华民族共同体意识教育的背景下，舍伯吐镇第一小学这家乡镇校园里的“小银行”，以孩子们听得懂、看得见、摸得着的方式，让民族团结的种子在日常点滴中悄然生根。 在内蒙古自治区通辽市科左中旗舍伯吐镇第一小学的校园里，有一家特殊的“银行”。这里不办存取款业务，“办理”的是孩子们的好习惯、好品德和各民族学生之间的团结情谊。 这家名为“石榴籽小银行”的校园德育平台，
+证券日报网讯6月8日，万科A在互动平台回答投资者提问时表示，公司截至2026年3月31日的股东数量为489869户。
 
 ## 正文
 
-在内蒙古各地中小学推进铸牢中华民族共同体意识教育的背景下，舍伯吐镇第一小学这家乡镇校园里的“小银行”，以孩子们听得懂、看得见、摸得着的方式，让民族团结的种子在日常点滴中悄然生根。
-
-在内蒙古自治区通辽市科左中旗舍伯吐镇第一小学的校园里，有一家特殊的“银行”。
-
-这里不办存取款业务，“办理”的是孩子们的好习惯、好品德和各民族学生之间的团结情谊。
-
-这家名为“石榴籽小银行”的校园德育平台，自开业以来成为全校师生每天的“牵挂”。
-
-橙、绿、青、蓝、黄、紫、红七色行为卡，分别对应逐梦、好学、美德、探索、阳光、阅美、活力七个维度。
-
-学生在课堂发言、互助同学、参与劳动、传承民族文化、遵守校园规则等方面有优秀表现，老师当场发卡，存入学生人手一本的《石榴籽成长存折》。
-
-看见即奖励 “石榴籽小银行”构建了“一卡一折、三阶晋级”的完整体系。
-
-集齐5张基础卡可兑换“逐梦娃”或“好学娃”徽章，集齐5张特色卡可兑换“美德娃”“探索娃”“阳光娃”“阅美娃”或“活力娃”徽章，同时获得相应的“红领巾奖章”认证。
+证券日报网讯6月8日，万科A在互动平台回答投资者提问时表示，公司截至2026年3月31日的股东数量为489869户。
 
 ## 相关推荐
 
-- 2026-06-30 08:14 - [媒体：手机测评该挤挤水分了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-30 08:10 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
-- 2026-06-30 08:07 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-30 08:15 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
-- 2026-06-30 08:23 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-30 08:29 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-30 08:17 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-30 08:09 - [世界杯欧洲队7战南美仅1胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
-- 2026-06-30 08:25 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-30 08:22 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-30 08:02 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-30 08:28 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
-- 2026-06-30 08:12 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
-- 2026-06-30 08:20 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-30 08:25 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-30 08:10 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-30 08:32 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-30 08:21 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-30 08:12 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-30 08:25 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-30 08:08 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-30 08:11 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-30 08:13 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-30 08:34 - [巴拉圭进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-30 08:19 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-30 08:10 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-30 08:34 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-30 08:13 - [韩国道歉完日本道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-30 08:27 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:01 - [“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/4865225.shtml)
-- 2026-06-30 08:26 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/593082267265.shtml)
-- 2026-06-30 08:15 - [豆包收费了，你还会用吗？](http://www.blog.minike.top/Article/details/085521593324.shtml)
-- 2026-06-30 08:23 - [媒体：手机测评该挤挤水分了](https://www.share.kurohicncr.top/Article/details/88742651719.shtml)
-- 2026-06-30 08:28 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/51907976.shtml)
-- 2026-06-30 08:07 - [巴西2比1日本](https://www.share.minike.top/Article/details/56400.shtml)
-- 2026-06-30 08:04 - [德国巴拉圭加时](http://www.share.kurohicncr.top/Article/details/0479162220.shtml)
-- 2026-06-30 08:18 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/59984479.shtml)
-- 2026-06-30 08:26 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/94084573954.shtml)
-- 2026-06-30 08:03 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/54966470690.shtml)
-- 2026-06-30 08:14 - [周生如故](https://www.share.minike.top/Article/details/805217.shtml)
-- 2026-06-30 08:00 - [全球最火存储ETF纳入兆易创新](https://www.blog.kurohicncr.top/Article/details/01992948.shtml)
-- 2026-06-30 08:29 - [曝老詹对自由市场态度与以往截然不同](http://www.blog.kurohicncr.top/Article/details/823006728218.shtml)
-- 2026-06-30 08:23 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/847467.shtml)
-- 2026-06-30 08:01 - [警犬“多多”助民警寻回失联老人](https://www.blog.minike.top/Article/details/24366909.shtml)
+- 2026-06-30 08:13 - [日本球迷被强行披上巴西国旗](http://www.share.kurohicncr.top/Article/details/76186343.shtml)
+- 2026-06-30 08:13 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.minike.top/Article/details/8043690.shtml)
+- 2026-06-30 08:32 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/697636383450.shtml)
+- 2026-06-30 08:20 - [日本五次世界杯淘汰赛全败](http://www.share.kurohicncr.top/Article/details/82297.shtml)
+- 2026-06-30 08:13 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/328521825016.shtml)
+- 2026-06-30 08:06 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/9519518.shtml)
+- 2026-06-30 08:10 - [武磊：日本队有能力跟任何强队抗衡](https://www.blog.minike.top/Article/details/71146798918.shtml)
+- 2026-06-30 08:13 - [亚洲球队全部出局](https://www.share.minike.top/Article/details/60245945.shtml)
+- 2026-06-30 08:17 - [美股](http://www.blog.minike.top/Article/details/2273577.shtml)
+- 2026-06-30 08:17 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](https://www.blog.kurohicncr.top/Article/details/807411458070.shtml)
+- 2026-06-30 08:31 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/230737621.shtml)
+- 2026-06-30 08:12 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/32341999254.shtml)
+- 2026-06-30 08:12 - [一见倾心](https://www.share.minike.top/Article/details/30666813.shtml)
+- 2026-06-30 08:19 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/2311393994.shtml)
+- 2026-06-30 08:29 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/345366231.shtml)

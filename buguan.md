@@ -1,57 +1,57 @@
-# 北京银行居首，5家银行资产规模突破3万亿元
+# 东海前哨的热血坚守
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-来源：金融时报 A股17家上市城商行2025年年报已全部出炉。据《金融时报》记者统计，截至2025年末，17家上市城商行总资产合计约31.3万亿元，其中，北京银行以4.94万亿元资产规模位居榜首，江苏银行紧随其后达4.93万亿元，宁波银行、上海银行、南京银行均突破3万亿元。 从营业收入和净利润看，多数上市城商行营收、净利润等指标实现增长。年报显示，2025年，17家银行合计实现
+在祖国的万里海疆上，散落着一座座岛屿。一代代守岛官兵用青春热血，书写着不为人知的坚守故事，也完成着关于梦想、价值与归属的生命淬炼。 当最初的迷茫被坚定的步伐取代，当个人的价值在与战友并肩作战中被重新定义，当“孤岛”的感受被深厚的战友情谊所温暖，这群年轻的海岛卫士完成了从“外来者”到“守护者”的身份转变。这不仅是一场人与环境的对弈，也是一段将个人理想熔铸于使命担当的成长故事。 守
 
 ## 正文
 
-来源：金融时报 A股17家上市城商行2025年年报已全部出炉。
+在祖国的万里海疆上，散落着一座座岛屿。
 
-据《金融时报》记者统计，截至2025年末，17家上市城商行总资产合计约31.3万亿元，其中，北京银行以4.94万亿元资产规模位居榜首，江苏银行紧随其后达4.93万亿元，宁波银行、上海银行、南京银行均突破3万亿元。
+一代代守岛官兵用青春热血，书写着不为人知的坚守故事，也完成着关于梦想、价值与归属的生命淬炼。
 
-从营业收入和净利润看，多数上市城商行营收、净利润等指标实现增长。
+当最初的迷茫被坚定的步伐取代，当个人的价值在与战友并肩作战中被重新定义，当“孤岛”的感受被深厚的战友情谊所温暖，这群年轻的海岛卫士完成了从“外来者”到“守护者”的身份转变。
 
-年报显示，2025年，17家银行合计实现营业收入约5308亿元，归母净利润合计约2035亿元。
+这不仅是一场人与环境的对弈，也是一段将个人理想熔铸于使命担当的成长故事。
 
-江苏银行以879.42亿元营业收入、345.01亿元净利润双双领跑，北京银行、宁波银行、上海银行、南京银行净利润均超200亿元。
+守 海 “把责任刻进骨头里，就不怕了”海拔4000米的雪域高原，骏马奔驰、经幡猎猎，那是武警浙江总队舟山支队某中队藏族战士、下士罗伍泽仁的家乡。
 
-资产规模梯队分化明显 从资产规模维度观察，国内城商行已形成层次清晰的三级梯队格局。
+入伍那年，他几乎横跨整个中国版图，来到东海前哨。
 
-第一梯队为资产规模3万亿元以上的银行，包括北京银行、江苏银行、宁波银行、上海银行、南京银行5家机构。
+本以为大海里有比格桑花更壮丽的青春，可现实给了他沉重一击。
 
-这5家银行资产合计约19.8万亿元，占17家城商行总量的63%。
+“海大得让人心慌。
 
 ## 相关推荐
 
-- 2026-06-30 08:18 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-30 08:03 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-30 08:27 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-30 08:21 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
-- 2026-06-30 08:22 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
-- 2026-06-30 08:24 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
-- 2026-06-30 08:00 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-30 08:17 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
-- 2026-06-30 08:04 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
-- 2026-06-30 08:10 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-30 08:13 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
+- 2026-06-30 08:24 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-30 08:14 - [德国淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-30 08:07 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-30 08:13 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-30 08:26 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-30 08:10 - [日本球员说被绝杀非常不甘心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-30 08:15 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-30 08:32 - [德国连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-30 08:30 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-30 08:09 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-30 08:07 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:11 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/734354137.shtml)
-- 2026-06-30 08:13 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/978924031369.shtml)
-- 2026-06-30 08:19 - [齐思钧回复张月](http://www.share.kurohicncr.top/Article/details/754399257.shtml)
-- 2026-06-30 08:21 - [杨紫获白玉兰视后争议不止](http://www.blog.kurohicncr.top/Article/details/71628373.shtml)
-- 2026-06-30 08:06 - [德国连续三届世界杯无缘16强](https://www.blog.kurohicncr.top/Article/details/47278886541.shtml)
-- 2026-06-30 08:28 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/330130.shtml)
-- 2026-06-30 08:22 - [巴西在进攻三区完成210脚传球](http://www.share.minike.top/Article/details/134592.shtml)
-- 2026-06-30 08:06 - [索马里女大使：想和中国一起搞事业](https://www.blog.kurohicncr.top/Article/details/10417.shtml)
-- 2026-06-30 08:23 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/714675187057.shtml)
-- 2026-06-30 08:24 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.kurohicncr.top/Article/details/14270650975.shtml)
-- 2026-06-30 08:01 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/42108.shtml)
-- 2026-06-30 08:27 - [内马尔中场休息积极鼓励队友](https://www.share.kurohicncr.top/Article/details/95042.shtml)
-- 2026-06-30 08:27 - [媒体评泰山建135公里刀片刺绳隔离网](https://www.share.kurohicncr.top/Article/details/6342107.shtml)
-- 2026-06-30 08:00 - [峡谷事故团队组队时有人提醒会下雨](https://www.share.kurohicncr.top/Article/details/48147741603.shtml)
-- 2026-06-30 08:12 - [郑钦文温网首轮出局](https://www.share.kurohicncr.top/Article/details/670043879.shtml)
+- 2026-06-30 08:08 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/13070.shtml)
+- 2026-06-30 08:13 - [网红峡谷5人溺亡 有人提醒会下雨](http://www.blog.minike.top/Article/details/02630.shtml)
+- 2026-06-30 08:34 - [大蒜晒外面被路过女子连盆端走](http://www.blog.minike.top/Article/details/2855256748.shtml)
+- 2026-06-30 08:09 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/2812762.shtml)
+- 2026-06-30 08:15 - [曝詹姆斯即将与勇士会面](http://www.share.kurohicncr.top/Article/details/89474514842.shtml)
+- 2026-06-30 08:06 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/89481518729.shtml)
+- 2026-06-30 08:29 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.kurohicncr.top/Article/details/454310.shtml)
+- 2026-06-30 08:17 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/575313.shtml)
+- 2026-06-30 08:22 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/28108901441.shtml)
+- 2026-06-30 08:33 - [勇敢的心第二部](http://www.share.minike.top/Article/details/14160785.shtml)
+- 2026-06-30 08:14 - [男子在京东买到“同仁堂”假药](https://www.blog.kurohicncr.top/Article/details/143826882656.shtml)
+- 2026-06-30 08:27 - [南北多地暴雨和强对流天气持续](https://www.share.kurohicncr.top/Article/details/9677705362.shtml)
+- 2026-06-30 08:08 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.share.minike.top/Article/details/5479340.shtml)
+- 2026-06-30 08:21 - [追梦拒绝2770万美元球员选项](http://www.blog.minike.top/Article/details/6641559949.shtml)
+- 2026-06-30 08:33 - [德国巴拉圭 折磨](https://www.blog.kurohicncr.top/Article/details/391903972617.shtml)

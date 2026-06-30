@@ -1,61 +1,60 @@
-# 广州职业教育院校特色凸显 国际化步伐加快
+# 国际航空运输协会：燃油成本暴涨千亿美元，今年全球航司利润或将腰斩
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-中新网广州5月9日电 (记者 张璐)2026年广东省职业教育活动周系列活动8日至10日在广州、佛山、珠海等地举办。记者8日跟随采访团走访广州多所职业教育院校。 据悉，截至2025年12月，广州现有市属高职院校8所、市和区属(含管理)中职学校29所，在校生合计约17.3万人，学校数及在校生规模均位列全国各大城市前列。 走进广州铁路职业技术学院，一辆印刻着“和谐”的电力机车吸引了采
+核心要点 国际航空运输协会发出预警：航煤油价持续走高挤压行业盈利空间，2026 年全球航空公司利润或将直接减半。 国际航协即将卸任总干事威利・沃尔什表示，2 月 28 日美伊冲突爆发后，原油与航煤油价大幅飙升；过去数年航空业本就接连遭遇新冠疫情、乌克兰战争多重打击，如今又新增一大难题。 沃尔什在周日发布的《全球航空运输业现状报告》中称：“预计今年航油均价同比大涨 70%，全行业
 
 ## 正文
 
-中新网广州5月9日电 (记者 张璐)2026年广东省职业教育活动周系列活动8日至10日在广州、佛山、珠海等地举办。
+核心要点 国际航空运输协会发出预警：航煤油价持续走高挤压行业盈利空间，2026 年全球航空公司利润或将直接减半。
 
-记者8日跟随采访团走访广州多所职业教育院校。
+国际航协即将卸任总干事威利・沃尔什表示，2 月 28 日美伊冲突爆发后，原油与航煤油价大幅飙升；过去数年航空业本就接连遭遇新冠疫情、乌克兰战争多重打击，如今又新增一大难题。
 
-据悉，截至2025年12月，广州现有市属高职院校8所、市和区属(含管理)中职学校29所，在校生合计约17.3万人，学校数及在校生规模均位列全国各大城市前列。
+沃尔什在周日发布的《全球航空运输业现状报告》中称：“预计今年航油均价同比大涨 70%，全行业全年燃油账单将因此多支出 1000 亿美元。
 
-走进广州铁路职业技术学院，一辆印刻着“和谐”的电力机车吸引了采访团的关注。
+” 他表示，出行需求依旧坚挺，航司正在上调机票价格转嫁成本，但行业增长速度必然放缓。
 
-只见众多学生正围着高铁进行模拟检修工作。
+“综合所有因素判断，今年行业利润将较 2025 年腰斩。
 
-据了解，广州铁路职业技术学院构建了订单培养特色就业体系。
+2026 年行业净利润将从 450 亿美元跌至 230 亿美元，净利润率从 4.2% 下滑至 2.0%。
 
-“订单式”培养精准定岗，与广铁集团、广州地铁等开展订单培养，占轨道类专业学生总数60%以上。
+” 沃尔什补充道。
 
-“产教式”融合推进就业，组建轨道交通产教融合联盟，推行“校内实训+企业实操”育人模式。
+沃尔什指出，两类航司受冲击最为严重：一是资产负债表尚未从疫情中恢复的企业，二是海湾地区航司。
 
 ## 相关推荐
 
-- 2026-06-30 08:05 - [中国新一轮出口管制直指日本命脉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-30 08:29 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-30 08:28 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
-- 2026-06-30 08:21 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-30 08:28 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-30 08:05 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
-- 2026-06-30 08:05 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-30 08:22 - [世界杯欧洲队7战南美仅1胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-30 08:18 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-30 08:29 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
-- 2026-06-30 08:13 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-30 08:29 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-30 08:23 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
-- 2026-06-30 08:24 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
-- 2026-06-30 08:03 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-30 08:19 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-30 08:10 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-30 08:13 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-30 08:28 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
+- 2026-06-30 08:25 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-30 08:21 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
+- 2026-06-30 08:22 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-30 08:19 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-30 08:07 - [日本16强魔咒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-30 08:31 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-30 08:17 - [网瘾賊大的阿嬷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
+- 2026-06-30 08:33 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-30 08:32 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
+- 2026-06-30 08:13 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:05 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/738167.shtml)
-- 2026-06-30 08:12 - [巴西在进攻三区完成210脚传球](http://www.blog.kurohicncr.top/Article/details/12633.shtml)
-- 2026-06-30 08:15 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.kurohicncr.top/Article/details/08556551.shtml)
-- 2026-06-30 08:04 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/63515155.shtml)
-- 2026-06-30 08:24 - [王源近几年没有路演了](http://www.share.minike.top/Article/details/05894617.shtml)
-- 2026-06-30 08:25 - [速度与激情9](http://www.share.minike.top/Article/details/84638298.shtml)
-- 2026-06-30 08:26 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/511110.shtml)
-- 2026-06-30 08:19 - [田中碧失误](http://www.blog.kurohicncr.top/Article/details/7867348.shtml)
-- 2026-06-30 08:07 - [德国淘汰](http://www.blog.minike.top/Article/details/0713059033.shtml)
-- 2026-06-30 08:02 - [南北多地暴雨和强对流天气持续](https://www.blog.minike.top/Article/details/783246.shtml)
-- 2026-06-30 08:21 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/9805438321.shtml)
-- 2026-06-30 08:21 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/6544796.shtml)
-- 2026-06-30 08:17 - [如果有二次元高中是什么样子的？](https://www.share.minike.top/Article/details/35316753732.shtml)
-- 2026-06-30 08:08 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.kurohicncr.top/Article/details/43125184.shtml)
-- 2026-06-30 08:21 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.share.minike.top/Article/details/935673.shtml)
+- 2026-06-30 08:21 - [《共患难》](https://www.blog.kurohicncr.top/Article/details/7129516857.shtml)
+- 2026-06-30 08:11 - [内马尔中场休息积极鼓励队友](https://www.blog.kurohicncr.top/Article/details/99172.shtml)
+- 2026-06-30 08:09 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.kurohicncr.top/Article/details/7091683752.shtml)
+- 2026-06-30 08:32 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/18177.shtml)
+- 2026-06-30 08:34 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/6078455105.shtml)
+- 2026-06-30 08:17 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/96440069.shtml)
+- 2026-06-30 08:23 - [董路：谁赢谁是“正路子”](http://www.share.minike.top/Article/details/233396140400.shtml)
+- 2026-06-30 08:14 - [沉睡花园](https://www.blog.minike.top/Article/details/84008841715.shtml)
+- 2026-06-30 08:23 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/8133331713.shtml)
+- 2026-06-30 08:25 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/94857169.shtml)
+- 2026-06-30 08:14 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.kurohicncr.top/Article/details/093766741544.shtml)
+- 2026-06-30 08:06 - [巴西在进攻三区完成210脚传球](https://www.blog.kurohicncr.top/Article/details/6090676254.shtml)
+- 2026-06-30 08:31 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/957794.shtml)
+- 2026-06-30 08:35 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/70831455287.shtml)
+- 2026-06-30 08:26 - [日本反击率先破门](https://www.share.kurohicncr.top/Article/details/243321074823.shtml)

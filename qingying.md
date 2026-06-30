@@ -1,57 +1,58 @@
-# Seeking Alpha量化评分揭晓：当前十大最具投资价值外资公用事业股
+# “不同文明可以和平共处，可以创造性地相互丰富”
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-Seeking Alpha的量化系统每月对全球数千只股票进行评分，综合考量估值、增长、盈利能力和市场情绪等因素。对于寻求防御性配置和稳定现金流的投资者而言，公用事业板块始终是核心持仓选项。以下是目前评分最高的10只外资公用事业股票。 排名方法 Seeking Alpha的量化评分系统从五个维度对股票进行评级：估值、增长、盈利能力、每股收益修正和市场动量。每只股票获得0至5分的综
+“不同文明可以和平共处，可以创造性地相互丰富” ——访希腊雅典科学院院长迪亚曼多罗斯 人民日报 本报记者 谢亚宏 李安琪“亚里士多德在《政治学》中将城邦定义为为了‘优良生活’而存在的共同体，指出政治应是一种旨在实现公共利益的道德实践。《论语·为政》引用孔子提出的‘道之以德，齐之以礼’，反映出中国传统文化中深厚的人本主义观念。希中两大文明都认为，社会稳定取决于人的道德品质及个人利
 
 ## 正文
 
-Seeking Alpha的量化系统每月对全球数千只股票进行评分，综合考量估值、增长、盈利能力和市场情绪等因素。
+“不同文明可以和平共处，可以创造性地相互丰富” ——访希腊雅典科学院院长迪亚曼多罗斯 人民日报 本报记者 谢亚宏 李安琪“亚里士多德在《政治学》中将城邦定义为为了‘优良生活’而存在的共同体，指出政治应是一种旨在实现公共利益的道德实践。
 
-对于寻求防御性配置和稳定现金流的投资者而言，公用事业板块始终是核心持仓选项。
+《论语·为政》引用孔子提出的‘道之以德，齐之以礼’，反映出中国传统文化中深厚的人本主义观念。
 
-以下是目前评分最高的10只外资公用事业股票。
+希中两大文明都认为，社会稳定取决于人的道德品质及个人利益与集体利益间的平衡。
 
-排名方法 Seeking Alpha的量化评分系统从五个维度对股票进行评级：估值、增长、盈利能力、每股收益修正和市场动量。
+在全球信任缺失、治理危机加剧的当下，两大文明加强对话交流尤显重要。
 
-每只股票获得0至5分的综合量化评分，以及相应的量化评级（强买入、买入、持有、卖出、强卖出）。
+”日前，希腊雅典科学院院长尼基弗罗斯·迪亚曼多罗斯在接受本报记者专访时表示。
 
-所有股票均为在美国上市交易的外国公用事业公司。
+迪亚曼多罗斯表示，全球化带来了经济上的相互依存，但并未建立起更深层次的文化理解，如今文化对抗和地缘冲突重现，世界正面临深刻的文化和道德挑战：人类如何在差异中创造性地共存。
 
-第1名：Companhia de Saneamento Básico do Estado de São Paulo（SBS） SABESP是巴西圣保罗州的水务和污水处理公司，是该地区的水处理和污水收集服务的主要提供商。
+“一个可持续的国际秩序不能仅建立在经济实力或军事威慑之上，更需要共同价值观和跨文化信任。
 
-该公司在该领域保持私有化状态，是拉丁美洲最大的水务公司。
+因此我认为，‘和而不同’理念是中国传统思想对当今世界秩序最切题的贡献之一。
 
 ## 相关推荐
 
-- 2026-06-30 08:23 - [欧洲装一台空调有多难](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
-- 2026-06-30 08:15 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-30 08:20 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-30 08:20 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
-- 2026-06-30 08:17 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-30 08:09 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-30 08:23 - [全球芯片巨头史诗级扩产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-30 08:16 - [穆祉丞回应获年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-30 08:11 - [巴西足球能否再现昔日荣光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
-- 2026-06-30 08:06 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-30 08:06 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-30 08:28 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-30 08:28 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-30 08:32 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-30 08:24 - [莫兰特转投开拓者效力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
+- 2026-06-30 08:12 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-30 08:21 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-30 08:19 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-30 08:23 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-30 08:30 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-30 08:23 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
+- 2026-06-30 08:11 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-30 08:29 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:21 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/682196094930.shtml)
-- 2026-06-30 08:26 - [高考结束了，你会让孩子在家玩手机吗？](http://www.share.minike.top/Article/details/584214385697.shtml)
-- 2026-06-30 08:08 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.minike.top/Article/details/04872168.shtml)
-- 2026-06-30 08:00 - [日本反击率先破门](https://www.blog.kurohicncr.top/Article/details/64268.shtml)
-- 2026-06-30 08:18 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/35122123.shtml)
-- 2026-06-30 08:06 - [大蒜晒外面被路过女子连盆端走](http://www.share.minike.top/Article/details/636282177.shtml)
-- 2026-06-30 08:00 - [张月感谢了每一公的队友](https://www.share.minike.top/Article/details/0062961.shtml)
-- 2026-06-30 08:14 - [感动全网的699分女生想报考清华](http://www.blog.minike.top/Article/details/80667265197.shtml)
-- 2026-06-30 08:20 - [马耳他著名拱门坍塌致中国男子身亡](https://www.blog.minike.top/Article/details/51808.shtml)
-- 2026-06-30 08:27 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/49634.shtml)
-- 2026-06-30 08:13 - [徐亮怒斥世界杯踢假球](https://www.blog.kurohicncr.top/Article/details/527875289349.shtml)
-- 2026-06-30 08:18 - [王楚钦孙颖莎晋级混双八强](https://www.blog.minike.top/Article/details/92758436.shtml)
-- 2026-06-30 08:22 - [日本队主帅道歉](https://www.share.kurohicncr.top/Article/details/0660244.shtml)
-- 2026-06-30 08:29 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/362985166520.shtml)
-- 2026-06-30 08:04 - [王欣瑜连续4年晋级温网第二轮](http://www.share.minike.top/Article/details/819536054.shtml)
+- 2026-06-30 08:30 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/0131995.shtml)
+- 2026-06-30 08:09 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/154728458784.shtml)
+- 2026-06-30 08:30 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/809065011949.shtml)
+- 2026-06-30 08:13 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/0493734262.shtml)
+- 2026-06-30 08:35 - [杨紫肖战余生请多指教拍立得](http://www.share.minike.top/Article/details/70616.shtml)
+- 2026-06-30 08:25 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/483700507037.shtml)
+- 2026-06-30 08:10 - [恋与深空制作组回应近期争议](https://www.share.kurohicncr.top/Article/details/622148987.shtml)
+- 2026-06-30 08:08 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/3005338.shtml)
+- 2026-06-30 08:15 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/80947.shtml)
+- 2026-06-30 08:11 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/266889954.shtml)
+- 2026-06-30 08:09 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.kurohicncr.top/Article/details/00125.shtml)
+- 2026-06-30 08:12 - [中国新一轮出口管制直指日本命脉](https://www.blog.minike.top/Article/details/974455.shtml)
+- 2026-06-30 08:20 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/52285992.shtml)
+- 2026-06-30 08:16 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/7125231.shtml)
+- 2026-06-30 08:33 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/193196.shtml)

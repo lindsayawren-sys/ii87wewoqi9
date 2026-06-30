@@ -1,56 +1,60 @@
-# 高速隧道内一家三口缺氧昏迷 这份行车安全提示请收好
+# Jack in the Box宣布再融资及债务削减计划，预计年内累计减债2.36亿美元
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-天气渐热，很多朋友在开车时会打开空调，近日，在广连高速新田隧道出现惊险一幕，一家三口在应急车道停车怠速开空调，结果一氧化碳中毒陷入昏迷，所幸高速路政人员及时发现险情、快速施救，挽救了三人的生命。事发当天，广连高速指挥中心工作人员在视频巡查时，发现一辆私家车长时间停靠在清远新田隧道的应急车道上，状态异常。 中交广连高速公路投资发展有限公司指挥中心指挥调度员 薛俊舷：广播喊话车主没
+Jack in the Box Inc．（纳斯达克代码：JACK）近日宣布，作为其“JACK on Track”计划的一部分，公司将采取一系列措施以减少未偿债务并进一步优化资本结构。 公司计划于2026年6月10日，提前偿还其现有的2019-1系列4.476%固定利率优先担保债券（A-2-II级）中的1.1亿美元，该债券原定于2026年8月到期。此次偿还将通过手头现金及公司持有
 
 ## 正文
 
-天气渐热，很多朋友在开车时会打开空调，近日，在广连高速新田隧道出现惊险一幕，一家三口在应急车道停车怠速开空调，结果一氧化碳中毒陷入昏迷，所幸高速路政人员及时发现险情、快速施救，挽救了三人的生命。
+Jack in the Box Inc．（纳斯达克代码：JACK）近日宣布，作为其“JACK on Track”计划的一部分，公司将采取一系列措施以减少未偿债务并进一步优化资本结构。
 
-事发当天，广连高速指挥中心工作人员在视频巡查时，发现一辆私家车长时间停靠在清远新田隧道的应急车道上，状态异常。
+公司计划于2026年6月10日，提前偿还其现有的2019-1系列4.476%固定利率优先担保债券（A-2-II级）中的1.1亿美元，该债券原定于2026年8月到期。
 
-中交广连高速公路投资发展有限公司指挥中心指挥调度员 薛俊舷：广播喊话车主没有反应，我们又通过外线打电话给车主，车主也没有接听，我们就通知路面巡逻组过去查看一下情况。
+此次偿还将通过手头现金及公司持有的人寿保险资产中的超额资金进行。
 
-路政人员接到指令后快速抵达现场，发现车内一家三口已陷入深度昏迷，孩童口鼻有呕吐物堵塞。
+完成后，加上摊销付款，Jack in the Box在2026年的累计债务削减总额将达到2.36亿美元，未偿证券化债务将减少至约15亿美元。
 
-路政人员一边进行初步处置，一边上报指挥中心，启动一路多方联动机制，紧急联系交警、120急救力量赶往现场。
+在上述还款之后，公司旗下的若干子公司计划完成一项再融资交易，预计将发行5亿美元的优先担保固定利率票据和1.5亿美元的可变资金票据，所得款项将用于对2019-1系列A-2级票据、2022-1系列A-2级票据的一部分以及2022-1系列可变资金票据进行再融资，并支付相关交易费用。
 
-中交广连高速公路投资发展有限公司路产管理部路政员 罗德华：清理小朋友口中的异物，让他保持气道通畅，避免窒息。
+目前，2019-1系列可变资金票据项下尚无未偿借款。
 
-同时第一时间打开车窗、后备箱等通风防止窒息，为后续救护员争取时间。
+Jack in the Box执行董事长兼临时首席执行官Mark King表示：“债务削减仍是公司的优先事项，这些行动标志着巩固Jack in the Box财务基础、加速战略执行的又一重要步骤。
 
-约二十分钟后，120救护车抵达现场，路政人员协助医护人员将一家三口转移送医，目前三人身体已无大碍。
+随着我们持续推进‘JACK on Track’计划，公司正专注于优化资本结构，以增强财务灵活性并实现可持续增长。
 
 ## 相关推荐
 
-- 2026-06-30 08:07 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-30 08:03 - [全球芯片巨头史诗级扩产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-30 08:22 - [泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
-- 2026-06-30 08:10 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-30 08:29 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
-- 2026-06-30 08:03 - [男子在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-30 08:23 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
-- 2026-06-30 08:24 - [王楚钦说配合稍微有些陌生感](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
-- 2026-06-30 08:17 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-30 08:12 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
+- 2026-06-30 08:20 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-30 08:28 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-30 08:13 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-30 08:21 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-30 08:29 - [田中碧失误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-30 08:18 - [男子在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-30 08:28 - [女子遭下药退赔偿拟追刑责](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-30 08:28 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-30 08:14 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
+- 2026-06-30 08:32 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-30 08:31 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
+- 2026-06-30 08:09 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-30 08:25 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-30 08:33 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:19 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/773154.shtml)
-- 2026-06-30 08:18 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.minike.top/Article/details/200250.shtml)
-- 2026-06-30 08:09 - [内马尔替补](https://www.share.kurohicncr.top/Article/details/5885721.shtml)
-- 2026-06-30 08:15 - [点球大战 残酷](https://www.share.kurohicncr.top/Article/details/83630.shtml)
-- 2026-06-30 08:00 - [委内瑞拉地震死亡人数升至1719人](https://www.share.kurohicncr.top/Article/details/29709.shtml)
-- 2026-06-30 08:19 - [德国淘汰](https://www.blog.kurohicncr.top/Article/details/6425342055.shtml)
-- 2026-06-30 08:19 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/96840.shtml)
-- 2026-06-30 08:24 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/16450703.shtml)
-- 2026-06-30 08:28 - [恋与深空道歉声明](http://www.blog.minike.top/Article/details/79520423.shtml)
-- 2026-06-30 08:15 - [日本进球](https://www.blog.kurohicncr.top/Article/details/66233748.shtml)
-- 2026-06-30 08:11 - [巴西替补奇兵读秒绝杀](http://www.blog.minike.top/Article/details/93528.shtml)
-- 2026-06-30 08:04 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/6594058.shtml)
-- 2026-06-30 08:26 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/01985607.shtml)
-- 2026-06-30 08:13 - [警犬“多多”助民警寻回失联老人](http://www.share.minike.top/Article/details/902765333.shtml)
-- 2026-06-30 08:02 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/98099120.shtml)
+- 2026-06-30 08:09 - [iPhone18e曝光](http://www.share.minike.top/Article/details/43894114526.shtml)
+- 2026-06-30 08:19 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/312712.shtml)
+- 2026-06-30 08:16 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/2803097.shtml)
+- 2026-06-30 08:34 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/25145200.shtml)
+- 2026-06-30 08:22 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/43743703303.shtml)
+- 2026-06-30 08:35 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/4115761810.shtml)
+- 2026-06-30 08:22 - [女心理师](https://www.share.kurohicncr.top/Article/details/32112563.shtml)
+- 2026-06-30 08:15 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/5815729.shtml)
+- 2026-06-30 08:29 - [日本队主帅道歉](https://www.blog.minike.top/Article/details/263715729.shtml)
+- 2026-06-30 08:16 - [卡塞米罗头球破门](http://www.share.kurohicncr.top/Article/details/416150571.shtml)
+- 2026-06-30 08:12 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/77666556.shtml)
+- 2026-06-30 08:11 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://www.blog.minike.top/Article/details/941938.shtml)
+- 2026-06-30 08:15 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/364156804321.shtml)
+- 2026-06-30 08:09 - [卡塞米罗头球破门 巴西扳平日本](https://www.share.minike.top/Article/details/31265.shtml)
+- 2026-06-30 08:22 - [索马里女大使：想和中国一起搞事业](http://www.blog.minike.top/Article/details/7763407384.shtml)

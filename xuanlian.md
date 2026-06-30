@@ -1,59 +1,59 @@
-# 中国中化三分之二上市公司盈利，为什么
+# 管900亿的中邮基金总经理张志名做视频号，合规从来不是最大的问题
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：企观国资 中化系上市公司，过去一年，财务表现天差地别。 近日，中国中化集团有限公司（下称中国中化）旗下9家核心上市公司2025年年报显示：6家盈利，2家亏损，1家净利润未披露。 这种分化，与中国中化主动推行的“强聚焦”战略密切相关。具体到各家公司，执行动作各有侧重：有的剥离非主营业务，有的压缩管理层级
+来源：投资基摩人 原标题：管900亿的总经理做视频号，合规从来不是最大的问题 中邮基金总经理张志名做视频号这事儿，业内讨论不少，但方向基本跑偏了。 几乎所有讨论都扎堆在“合规不合规”上——内容有没有过审？有没有推荐产品？有没有踩营销红线？ 这些问题当然重要，但它们有一个共同特点：可控。 合规是可以用制度封死的。选题前先问“能不能对投资者形成正向引导”，内容过公司合规审核，全程规
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+来源：投资基摩人 原标题：管900亿的总经理做视频号，合规从来不是最大的问题 中邮基金总经理张志名做视频号这事儿，业内讨论不少，但方向基本跑偏了。
 
-来源：企观国资 中化系上市公司，过去一年，财务表现天差地别。
+几乎所有讨论都扎堆在“合规不合规”上——内容有没有过审？
 
-近日，中国中化集团有限公司（下称中国中化）旗下9家核心上市公司2025年年报显示：6家盈利，2家亏损，1家净利润未披露。
+有没有推荐产品？
 
-这种分化，与中国中化主动推行的“强聚焦”战略密切相关。
+有没有踩营销红线？
 
-具体到各家公司，执行动作各有侧重：有的剥离非主营业务，有的压缩管理层级，有的拉大绩效考核差距。
+这些问题当然重要，但它们有一个共同特点：可控。
 
-以中国金茂为例，这一战略的落地方式较为典型。
+合规是可以用制度封死的。
 
-上海易居房地产研究院副院长严跃进在接受《企业观察报》采访时表示，“金茂这次调整与其他房企有本质区别。
+选题前先问“能不能对投资者形成正向引导”，内容过公司合规审核，全程规避产品推介——这套流程走下来，红线基本碰不到。
 
-不是被动收缩，而是主动的战略换仓。
+但真正的风险，从来不在可控的区域里。
 
 ## 相关推荐
 
-- 2026-06-30 08:16 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-30 08:02 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-30 08:08 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-30 08:05 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
-- 2026-06-30 08:06 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
-- 2026-06-30 08:08 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-30 08:26 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
-- 2026-06-30 08:12 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-30 08:28 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-30 08:28 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-30 08:09 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-30 08:23 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-30 08:07 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-30 08:25 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-30 08:32 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-30 08:29 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
+- 2026-06-30 08:13 - [日本队5进世界杯淘汰赛0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-30 08:18 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-30 08:33 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
+- 2026-06-30 08:11 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-30 08:23 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-30 08:15 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-30 08:16 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-30 08:09 - [日本博主：日本足球真的垃圾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-30 08:08 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
+- 2026-06-30 08:16 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:12 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/4450664664.shtml)
-- 2026-06-30 08:18 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.kurohicncr.top/Article/details/798215.shtml)
-- 2026-06-30 08:04 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.minike.top/Article/details/59883125822.shtml)
-- 2026-06-30 08:15 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/25608332865.shtml)
-- 2026-06-30 08:18 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/0556658643.shtml)
-- 2026-06-30 08:11 - [博世们还在犹豫 美的们已经卖断货](https://www.share.kurohicncr.top/Article/details/344418196807.shtml)
-- 2026-06-30 08:13 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/705474447271.shtml)
-- 2026-06-30 08:22 - [老外对中国cosplay竟这样评价…](https://www.share.minike.top/Article/details/660265161.shtml)
-- 2026-06-30 08:18 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/981126.shtml)
-- 2026-06-30 08:18 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/65575837.shtml)
-- 2026-06-30 08:29 - [恋与深空制作组回应近期争议](https://www.share.kurohicncr.top/Article/details/5073644728.shtml)
-- 2026-06-30 08:07 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/536485.shtml)
-- 2026-06-30 08:23 - [为什么会有「念旧」的心理？](http://www.blog.kurohicncr.top/Article/details/678385558.shtml)
-- 2026-06-30 08:06 - [点球大战 残酷](http://www.blog.minike.top/Article/details/7746404.shtml)
-- 2026-06-30 08:12 - [张帅时隔四年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/84026116217.shtml)
+- 2026-06-30 08:18 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/853968.shtml)
+- 2026-06-30 08:24 - [世界杯：德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/46221118.shtml)
+- 2026-06-30 08:20 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.minike.top/Article/details/878204485446.shtml)
+- 2026-06-30 08:17 - [委内瑞拉地震死亡人数升至1719人](http://www.blog.kurohicncr.top/Article/details/16536025899.shtml)
+- 2026-06-30 08:31 - [王灿兮被烫伤两年后维权成功](https://www.blog.kurohicncr.top/Article/details/83782.shtml)
+- 2026-06-30 08:21 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/6009368.shtml)
+- 2026-06-30 08:28 - [“柠檬茶能换怀表？”](https://www.blog.minike.top/Article/details/23425496538.shtml)
+- 2026-06-30 08:22 - [德国巴拉圭进入点球大战](http://www.share.kurohicncr.top/Article/details/5765438.shtml)
+- 2026-06-30 08:21 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/0317334.shtml)
+- 2026-06-30 08:17 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.kurohicncr.top/Article/details/0620892.shtml)
+- 2026-06-30 08:11 - [田中碧失误](http://www.blog.kurohicncr.top/Article/details/730522.shtml)
+- 2026-06-30 08:19 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/27267565.shtml)
+- 2026-06-30 08:10 - [德国巴拉圭 折磨](https://www.share.kurohicncr.top/Article/details/66112536.shtml)
+- 2026-06-30 08:16 - [媒体评泰山建135公里刀片刺绳隔离网](http://www.share.minike.top/Article/details/40853363498.shtml)
+- 2026-06-30 08:22 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/92084.shtml)

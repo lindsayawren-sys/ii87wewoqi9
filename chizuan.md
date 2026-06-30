@@ -1,55 +1,52 @@
-# 卡塔尔再度尝试派遣LNG运输船穿越霍尔木兹海峡
+# 这盆脏水，中国不接
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-一艘载有卡塔尔液化天然气的运输船正尝试通过霍尔木兹海峡，如果成功，这将标志着自伊朗战争爆发以来该国首次向该地区外出口液化天然气。 根据船舶追踪数据，本月早些时候在Ras Laffan出口设施装货的Al Kharaitiyat号目前位于阿曼与伊朗之间的水道。数据显示，该船将巴基斯坦列为下一个目的地。 追踪数据显示，该船正沿着伊朗批准的北部航线航行，并已驶过Larak Island
+发布时间：2026年06月09日 13:45 来源：三里河 近日，经合组织发布了一份充满偏见的产业补贴报告，直接给中国产业泼了一大盆脏水。报告刻意炒作称，中国企业靠巨额补贴抢占全球市场，过去20年里，六成的份额增长都是补贴堆出来的。这份报告，就是在抹黑中国产业、渲染不公平竞争，看似专业，但实则漏洞百出，完全是带着结论找数据。这样的报告，我们不接受。(戴悦 陈庆洋 李金磊） 责任
 
 ## 正文
 
-一艘载有卡塔尔液化天然气的运输船正尝试通过霍尔木兹海峡，如果成功，这将标志着自伊朗战争爆发以来该国首次向该地区外出口液化天然气。
+发布时间：2026年06月09日 13:45 来源：三里河 近日，经合组织发布了一份充满偏见的产业补贴报告，直接给中国产业泼了一大盆脏水。
 
-根据船舶追踪数据，本月早些时候在Ras Laffan出口设施装货的Al Kharaitiyat号目前位于阿曼与伊朗之间的水道。
+报告刻意炒作称，中国企业靠巨额补贴抢占全球市场，过去20年里，六成的份额增长都是补贴堆出来的。
 
-数据显示，该船将巴基斯坦列为下一个目的地。
+这份报告，就是在抹黑中国产业、渲染不公平竞争，看似专业，但实则漏洞百出，完全是带着结论找数据。
 
-追踪数据显示，该船正沿着伊朗批准的北部航线航行，并已驶过Larak Island。
+这样的报告，我们不接受。
 
-卡塔尔此前多次尝试通过霍尔木兹海峡运输，但每艘油轮都不得不折返。
-
-作为去年供应了全球近五分之一液化天然气的国家，自2月底伊朗冲突爆发以来，卡塔尔一直无法从波斯湾运出任何液化天然气。
-
-责任编辑：李桐
+(戴悦 陈庆洋 李金磊） 责任编辑：【程春雨】
 
 ## 相关推荐
 
-- 2026-06-30 08:13 - [欧洲装一台空调有多难](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-30 08:02 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-30 08:20 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
-- 2026-06-30 08:02 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-30 08:17 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-30 08:05 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
-- 2026-06-30 08:27 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-30 08:06 - [日本五次世界杯淘汰赛全败](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
-- 2026-06-30 08:07 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-30 08:20 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-30 08:16 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-30 08:09 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-30 08:08 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-30 08:09 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-30 08:09 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-30 08:20 - [第3集丨“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-30 08:10 - [日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-30 08:08 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-30 08:23 - [三星投资计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
+- 2026-06-30 08:27 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-30 08:17 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
+- 2026-06-30 08:29 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-30 08:30 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:23 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/62886506008.shtml)
-- 2026-06-30 08:14 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/875502033.shtml)
-- 2026-06-30 08:10 - [亚洲球队全部出局](https://www.blog.kurohicncr.top/Article/details/63985966002.shtml)
-- 2026-06-30 08:16 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/336646.shtml)
-- 2026-06-30 08:29 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/27151041.shtml)
-- 2026-06-30 08:16 - [董卿父亲在报纸上发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/8882884893.shtml)
-- 2026-06-30 08:28 - [巴西足球能否再现昔日荣光](https://www.blog.minike.top/Article/details/9622082725.shtml)
-- 2026-06-30 08:22 - [世界杯“美洲德比”7月1日开打](http://www.blog.kurohicncr.top/Article/details/55100.shtml)
-- 2026-06-30 08:00 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/886706714.shtml)
-- 2026-06-30 08:02 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/5770532492.shtml)
-- 2026-06-30 08:04 - [世界杯](https://www.blog.kurohicncr.top/Article/details/783658792.shtml)
-- 2026-06-30 08:07 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/922651878.shtml)
-- 2026-06-30 08:22 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.minike.top/Article/details/014029.shtml)
-- 2026-06-30 08:02 - [全球最火存储ETF纳入兆易创新](http://www.blog.minike.top/Article/details/434179852.shtml)
-- 2026-06-30 08:09 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/138248222033.shtml)
+- 2026-06-30 08:20 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/622730143731.shtml)
+- 2026-06-30 08:31 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/43429.shtml)
+- 2026-06-30 08:24 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](http://www.share.minike.top/Article/details/008326.shtml)
+- 2026-06-30 08:28 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/952824.shtml)
+- 2026-06-30 08:24 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/5387221.shtml)
+- 2026-06-30 08:15 - [我觉得你是在无中生友](https://www.share.kurohicncr.top/Article/details/3273725.shtml)
+- 2026-06-30 08:32 - [日本球员说被绝杀非常不甘心](http://www.blog.kurohicncr.top/Article/details/99071318441.shtml)
+- 2026-06-30 08:12 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.blog.kurohicncr.top/Article/details/1829850.shtml)
+- 2026-06-30 08:15 - [世界杯：德国vs巴拉圭](https://www.share.minike.top/Article/details/588509080881.shtml)
+- 2026-06-30 08:14 - [男子在京东买到“同仁堂”假药](https://www.blog.kurohicncr.top/Article/details/8457994.shtml)
+- 2026-06-30 08:35 - [媒体评哈兰德之歌火了](https://www.blog.kurohicncr.top/Article/details/98302042.shtml)
+- 2026-06-30 08:25 - [郑钦文温网首轮出局](https://www.blog.minike.top/Article/details/8605515321.shtml)
+- 2026-06-30 08:29 - [峡谷事故团队组队时有人提醒会下雨](https://www.share.kurohicncr.top/Article/details/98758.shtml)
+- 2026-06-30 08:08 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/259124691.shtml)
+- 2026-06-30 08:12 - [索马里女大使：想和中国一起搞事业](https://www.share.kurohicncr.top/Article/details/75180726149.shtml)

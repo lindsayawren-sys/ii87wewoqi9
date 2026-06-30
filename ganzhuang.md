@@ -1,58 +1,55 @@
-# 4月理财规模收益双回升，华夏理财一款权益类理财产品月赚近30%｜理财月报
+# 胡塞武装称将在红海对以色列船只实施“全面禁令”
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-界面新闻记者 | 冯丽君 在经历3月理财存续规模与产品收益“双降”后，4月理财市场规模收益双回升。 根据普益标准最新数据，2026年3月，在存续产品总量上升的情况下，理财存续规模环比下降2.69%。4月则扭转下降态势，全市场理财规模约31.63万亿元，相比3月增长2.36%；存续产品数量为48495款，相比3月增加1154款。 净值表现方面，根据普益标准数据，4月全市场今年以来
+控制也门大部分地区的胡塞武装宣布禁止以色列船只进入红海，称其有权“对抗美国和以色列的侵略”。 这个由伊朗支持的武装组织周一在声明中称，“我们宣布全面彻底禁止以色列在红海进行海上航行。我们认为所有敌方行动都是我军的合法军事目标。” 此举正值美国-以色列与伊朗的冲突持续进入第四个月之际。 2023年10月以色列对加沙发动战争时，胡塞武装袭击了他们认为与以色列有关联的船只，并称这是为
 
 ## 正文
 
-界面新闻记者 | 冯丽君 在经历3月理财存续规模与产品收益“双降”后，4月理财市场规模收益双回升。
+控制也门大部分地区的胡塞武装宣布禁止以色列船只进入红海，称其有权“对抗美国和以色列的侵略”。
 
-根据普益标准最新数据，2026年3月，在存续产品总量上升的情况下，理财存续规模环比下降2.69%。
+这个由伊朗支持的武装组织周一在声明中称，“我们宣布全面彻底禁止以色列在红海进行海上航行。
 
-4月则扭转下降态势，全市场理财规模约31.63万亿元，相比3月增长2.36%；存续产品数量为48495款，相比3月增加1154款。
+我们认为所有敌方行动都是我军的合法军事目标。
 
-净值表现方面，根据普益标准数据，4月全市场今年以来平均年化收益率环比上升37.72BP，其中仅现金管理类理财产品该收益率延续下降态势，下降1.02BP。
+” 此举正值美国-以色列与伊朗的冲突持续进入第四个月之际。
 
-事实上，现金管理类理财产品今年以来平均年化收益率持续下滑，多位业内专业人士告诉界面新闻，“现金管理类产品收益率持续承压，短期内难以出现趋势性反转。
+2023年10月以色列对加沙发动战争时，胡塞武装袭击了他们认为与以色列有关联的船只，并称这是为了声援巴勒斯坦人。
 
-” 4月，固定收益类理财产品今年以来平均年化收益率环比上升31.43BP，其中纯固收类环比上升6．03BP，固收+类环比上升37.47BP。
-
-混合类和权益类理财产品今年以来平均年化收益率增幅则更为显著，分别环比上升278.2BP、1687.25BP。
-
-商品及金融衍生品类理财产品今年以来平均年化收益率4月环比上升1827.38BP。
+责任编辑：李安桐
 
 ## 相关推荐
 
-- 2026-06-30 08:29 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-30 08:13 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-30 08:29 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-30 08:15 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
-- 2026-06-30 08:16 - [泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
-- 2026-06-30 08:21 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-30 08:26 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-30 08:17 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
-- 2026-06-30 08:00 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-30 08:18 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
-- 2026-06-30 08:08 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
-- 2026-06-30 08:19 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-30 08:20 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-30 08:10 - [女子遭下药退赔偿拟追刑责](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
+- 2026-06-30 08:13 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-30 08:20 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-30 08:27 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-30 08:27 - [日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-30 08:35 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-30 08:31 - [莫兰特被交易到开拓者](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-30 08:31 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-30 08:12 - [勇士续约波尔津吉斯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-30 08:32 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-30 08:19 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
+- 2026-06-30 08:18 - [德国 传控](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:24 - [美人鱼](https://www.share.minike.top/Article/details/893403500743.shtml)
-- 2026-06-30 08:13 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/417310.shtml)
-- 2026-06-30 08:08 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.kurohicncr.top/Article/details/39977545412.shtml)
-- 2026-06-30 08:13 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/9698486.shtml)
-- 2026-06-30 08:19 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/543482917.shtml)
-- 2026-06-30 08:03 - [恋与深空回应争议](https://www.share.minike.top/Article/details/625122450746.shtml)
-- 2026-06-30 08:24 - [流金岁月](https://www.share.kurohicncr.top/Article/details/054293212530.shtml)
-- 2026-06-30 08:16 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://www.blog.kurohicncr.top/Article/details/9191358.shtml)
-- 2026-06-30 08:16 - [被巴西绝杀后 日球员田中碧跪地痛哭](http://www.blog.kurohicncr.top/Article/details/255153013.shtml)
-- 2026-06-30 08:15 - [巴西绝杀日本：漫画般结局换了主角](http://www.blog.minike.top/Article/details/32009.shtml)
-- 2026-06-30 08:24 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/36412793248.shtml)
-- 2026-06-30 08:15 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/583670.shtml)
-- 2026-06-30 08:28 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/72280694.shtml)
-- 2026-06-30 08:17 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/65046453942.shtml)
-- 2026-06-30 08:05 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/3451442553.shtml)
+- 2026-06-30 08:34 - [恋与深空回应争议](https://www.share.minike.top/Article/details/3270193.shtml)
+- 2026-06-30 08:13 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/2954176595.shtml)
+- 2026-06-30 08:35 - [一见倾心](https://www.share.kurohicncr.top/Article/details/707186113871.shtml)
+- 2026-06-30 08:33 - [德国罚丢3粒点球](http://www.share.kurohicncr.top/Article/details/087252825578.shtml)
+- 2026-06-30 08:29 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/9953749.shtml)
+- 2026-06-30 08:16 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/9690551.shtml)
+- 2026-06-30 08:33 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.minike.top/Article/details/332067080.shtml)
+- 2026-06-30 08:26 - [德国vs巴拉圭](http://www.share.minike.top/Article/details/8820206.shtml)
+- 2026-06-30 08:30 - [世界杯](https://www.share.kurohicncr.top/Article/details/71997505.shtml)
+- 2026-06-30 08:34 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/853654.shtml)
+- 2026-06-30 08:32 - [锐评T1战胜KC](https://www.share.kurohicncr.top/Article/details/3070127.shtml)
+- 2026-06-30 08:20 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/28796078.shtml)
+- 2026-06-30 08:14 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/229035244.shtml)
+- 2026-06-30 08:20 - [千万不要随便扣肚脐](https://www.share.kurohicncr.top/Article/details/38730.shtml)
+- 2026-06-30 08:30 - [诺伊尔尽力了](http://www.share.minike.top/Article/details/800272267.shtml)

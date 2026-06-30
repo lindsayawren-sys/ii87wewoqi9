@@ -1,52 +1,56 @@
-# 中国汽车工业协会：网传“新能源车企因锁电问题被约谈、立案”为不实信息
+# 广州出台新规，事关公积金！6月9日起执行
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-记者今天(9日)从中国汽车工业协会了解到，网传“新能源车企因锁电问题被约谈、立案”为不实信息。 中国汽车工业协会相关负责人表示，针对近日网络上盛传的关于“8家新能源车企因锁电问题被约谈”“3家车企被立案”的说法，网传内容无官方来源，与事实严重不符，一切行业监管动态与执法举措以主管部门官方正式信息为准。 同时，希望新能源车企在优化电池管理系统的同时，保持信息透明原则，保障消费者知
+为更好地满足缴存人刚性和改善性住房需求，促进广州房地产市场平稳健康发展，6月8日，广州住房公积金管理中心印发《广州住房公积金个人住房贷款实施办法》（穗公积金中心规字〔2026〕3号）（以下简称“新办法”）。“新办法”拓展贷款类型，增加建造、翻建、大修自住住房贷款类型。《广州住房公积金管理中心关于印发〈广州住房公积金个人购房贷款实施办法〉的通知》（穗公积金中心规字〔2021〕1号
 
 ## 正文
 
-记者今天(9日)从中国汽车工业协会了解到，网传“新能源车企因锁电问题被约谈、立案”为不实信息。
+为更好地满足缴存人刚性和改善性住房需求，促进广州房地产市场平稳健康发展，6月8日，广州住房公积金管理中心印发《广州住房公积金个人住房贷款实施办法》（穗公积金中心规字〔2026〕3号）（以下简称“新办法”）。
 
-中国汽车工业协会相关负责人表示，针对近日网络上盛传的关于“8家新能源车企因锁电问题被约谈”“3家车企被立案”的说法，网传内容无官方来源，与事实严重不符，一切行业监管动态与执法举措以主管部门官方正式信息为准。
+“新办法”拓展贷款类型，增加建造、翻建、大修自住住房贷款类型。
 
-同时，希望新能源车企在优化电池管理系统的同时，保持信息透明原则，保障消费者知情权与选择权，并建立畅通高效的售后沟通渠道，积极处理锁电相关的投诉争议，用诚信经营守护品牌口碑。
+《广州住房公积金管理中心关于印发〈广州住房公积金个人购房贷款实施办法〉的通知》（穗公积金中心规字〔2021〕1号）将于2026年6月9日到期，该政策在有效期内取得了积极的社会反响与政策成效。
 
-(总台央视记者 王世玉 罗宏进)
+为确保政策延续性，结合国家、省、市对构建房地产发展新模式、支持合理住房消费、助力城镇房屋更新工作、防范资金风险等新要求，并充分考虑近年来广州住房公积金贷款业务的实际运行情况，制定出台“新办法”，以进一步优化贷款条件、扩大受益群体、强化风险防控，充分发挥住房公积金制度支持保障作用。
+
+“新办法”拓展贷款类型。
+
+根据《住房公积金管理条例》，在现有购房贷款的基础上，增加建造、翻建、大修自住住房贷款类型，并明确其申请条件、贷款额度、贷款期限、办理程序及担保方式等，旨在满足缴存人多元化住房需求，特别是适用于老旧小区改造、房屋翻建等实际场景，切实发挥住房公积金在保障和改善居住条件中的积极作用。
+
+“新办法”增加不予贷款情形的类型。
+
+新增以下不予贷款情形：贷款住房或抵押物建筑结构不完整、不能自由上市流通的（销售型保障性住房除外），贷款住房被设立居住权的；申请人与父母、子女、配偶之间买卖住房的，离婚一年内申请人与原配偶之间买卖住房的；同一借款人以同一套住房再次申请住房公积金贷款的。
 
 ## 相关推荐
 
-- 2026-06-30 08:20 - [莫兰特被交易到开拓者](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-30 08:03 - [日本五次世界杯淘汰赛全败](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-30 08:12 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-30 08:14 - [日本球员说被绝杀非常不甘心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-30 08:09 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
-- 2026-06-30 08:10 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-30 08:21 - [三星投资计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-30 08:07 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-30 08:13 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
-- 2026-06-30 08:14 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-30 08:07 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-30 08:17 - [萨内 看笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
-- 2026-06-30 08:08 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
-- 2026-06-30 08:05 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-30 08:30 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-30 08:07 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-30 08:07 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-30 08:20 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-30 08:22 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-30 08:07 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-30 08:11 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-30 08:10 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-30 08:06 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-30 08:24 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:18 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/7484603.shtml)
-- 2026-06-30 08:23 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/6416663.shtml)
-- 2026-06-30 08:08 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/5383511504.shtml)
-- 2026-06-30 08:29 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/58620664723.shtml)
-- 2026-06-30 08:23 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/555542067756.shtml)
-- 2026-06-30 08:21 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/8976072.shtml)
-- 2026-06-30 08:11 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](http://www.blog.minike.top/Article/details/63430162.shtml)
-- 2026-06-30 08:05 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/68256671972.shtml)
-- 2026-06-30 08:26 - [时光音乐会](https://www.blog.minike.top/Article/details/966780837674.shtml)
-- 2026-06-30 08:02 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/3626599.shtml)
-- 2026-06-30 08:17 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.minike.top/Article/details/754009.shtml)
-- 2026-06-30 08:08 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/083319.shtml)
-- 2026-06-30 08:14 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/0463611802.shtml)
-- 2026-06-30 08:21 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/07513.shtml)
-- 2026-06-30 08:29 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/15410406.shtml)
+- 2026-06-30 08:10 - [免费试吃发差评被店家挂店门避雷](http://www.blog.minike.top/Article/details/09936.shtml)
+- 2026-06-30 08:29 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.kurohicncr.top/Article/details/8504260436.shtml)
+- 2026-06-30 08:24 - [AI手机进入Agent时代](http://www.blog.kurohicncr.top/Article/details/1676318.shtml)
+- 2026-06-30 08:33 - [日本球员说被绝杀非常不甘心](http://www.share.kurohicncr.top/Article/details/44881651893.shtml)
+- 2026-06-30 08:25 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/06442847.shtml)
+- 2026-06-30 08:11 - [AI手机进入Agent时代](https://www.share.minike.top/Article/details/17609.shtml)
+- 2026-06-30 08:22 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/7914690.shtml)
+- 2026-06-30 08:27 - [我觉得你是在无中生友](https://www.blog.minike.top/Article/details/6653249.shtml)
+- 2026-06-30 08:32 - [Melo向柳智敏张元英道歉](https://www.share.minike.top/Article/details/62743.shtml)
+- 2026-06-30 08:19 - [“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/92483462.shtml)
+- 2026-06-30 08:15 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/953357639.shtml)
+- 2026-06-30 08:26 - [田中碧失误](https://www.blog.minike.top/Article/details/715578271072.shtml)
+- 2026-06-30 08:30 - [金刚川](http://www.blog.kurohicncr.top/Article/details/20672.shtml)
+- 2026-06-30 08:10 - [恋与深空制作组回应近期争议](http://www.share.minike.top/Article/details/4176256.shtml)
+- 2026-06-30 08:24 - [巴拉圭进球](https://www.blog.minike.top/Article/details/658777.shtml)

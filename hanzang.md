@@ -1,56 +1,57 @@
-# 比减持计划多卖了1股，山外山股东刘运君道歉
+# 吴伯凡观影《AI世界杯》：在一次次 “不看好” 中，看见联想四十多年的长期主义
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 每经记者|文多 每经编辑|黄博文 5月8日晚，山外山（SH688410，股价16.86元，市值53.88亿元）披露大股东刘运君减持计划实施情况。 公告显示，刘运君在2026年2月9日至5月6日期间通过集中竞价交易减持公司股份，计划合计减持不超过319.6006万股（包括公司首次公开发行前股份及资本公积转增股本取得股份），但实际减
+联想集团XFIFA国际足联《AI世界杯》纪录片专场观影沙龙于6月8日在北京举办，知名商业观察家、财经评论人吴伯凡出席并发言。 “看完这部纪录片，我感触最深的就是‘不看好’这三个字。”吴伯凡直言，项目初期，研发团队遭遇FIFA数据不予开放等难题，合作推进举步维艰，多亏联想从中斡旋，推动FIFA与央视顺利达成转播合作。而从困境到落地突破的全过程，也和联想一路走来的企业气质高度契合。
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 每经记者|文多 每经编辑|黄博文 5月8日晚，山外山（SH688410，股价16.86元，市值53.88亿元）披露大股东刘运君减持计划实施情况。
+联想集团XFIFA国际足联《AI世界杯》纪录片专场观影沙龙于6月8日在北京举办，知名商业观察家、财经评论人吴伯凡出席并发言。
 
-公告显示，刘运君在2026年2月9日至5月6日期间通过集中竞价交易减持公司股份，计划合计减持不超过319.6006万股（包括公司首次公开发行前股份及资本公积转增股本取得股份），但实际减持股份319.6007万股，因操作失误超额减持1股。
+“看完这部纪录片，我感触最深的就是‘不看好’这三个字。
 
-为了这一股，刘运君已出具情况说明并致歉。
+”吴伯凡直言，项目初期，研发团队遭遇FIFA数据不予开放等难题，合作推进举步维艰，多亏联想从中斡旋，推动FIFA与央视顺利达成转播合作。
 
-根据公告，公司第三届董事会的原董事刘运君于2026年1月16日披露减持计划，拟通过集中竞价交易方式减持其所持有的公司首次公开发行前股份及资本公积转增股本取得股份合计不超过319.6006万股，减持比例不超过公司总股本的1.00%。
+而从困境到落地突破的全过程，也和联想一路走来的企业气质高度契合。
 
-减持结果显示，在2026年2月9日至2026年5月6日期间，刘运君通过集中竞价交易方式累计减持公司股份321.1007万股，减持总金额达5377.85万元，减持价格区间为15.90元/股至17.77元/股。
+他回顾经典商业案例，2004年联想宣布收购IBM PC业务时，这场“蛇吞象”式收购当时遭到外界普遍质疑。
 
-排除其中包含的非特定股份（二级市场买入）1.5万股，她累计减持公司首次公开发行前股份及资本公积转增股本取得的股份319.6007万股。
+但二十余年过去，联想用亮眼成绩回应所有争议，一次次在“不被看好”的目光中悄然蜕变，交出令人惊喜的答卷。
 
-公告显示，由于股东操作失误，刘运君减持股份（指首次公开发行前股份及资本公积转增股本取得的股份）较计划减持数量超出1股，存在超额减持情况。
+他回忆2010年南非世界杯，彼时中国元素虽随处可见，但当时中国企业大多零散亮相，未能形成影响力。
 
-该股东在发现上述超额减持情况后，已及时主动通知公司，并出具了关于本次减持的情况说明。
+时隔16年，联想正式成为世界杯官方技术合作伙伴，这样的跨越在当年看来难以想象，也正是中国企业出海之路不断进阶的真实缩影。
 
 ## 相关推荐
 
-- 2026-06-30 08:07 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-30 08:07 - [欧洲装一台空调有多难](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-30 08:11 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-30 08:07 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-30 08:17 - [孙颖莎王楚钦晋级8强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-30 08:11 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-30 08:29 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
-- 2026-06-30 08:00 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
-- 2026-06-30 08:01 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
-- 2026-06-30 08:01 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-30 08:13 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-30 08:10 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
+- 2026-06-30 08:17 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-30 08:23 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-30 08:10 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-30 08:20 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-30 08:10 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-30 08:14 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-30 08:17 - [网友写差评被店家“挂”门口避雷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-30 08:06 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-30 08:13 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:01 - [《共患难》](https://www.blog.kurohicncr.top/Article/details/04252.shtml)
-- 2026-06-30 08:15 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/386366.shtml)
-- 2026-06-30 08:09 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/53329527421.shtml)
-- 2026-06-30 08:25 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/52897122.shtml)
-- 2026-06-30 08:01 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/29853757015.shtml)
-- 2026-06-30 08:26 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/768286893966.shtml)
-- 2026-06-30 08:29 - [泰山景区回应修建刀片刺绳隔离网](http://www.blog.kurohicncr.top/Article/details/57898922.shtml)
-- 2026-06-30 08:03 - [二次元提前预演明日巴西对日本](https://www.blog.minike.top/Article/details/49861.shtml)
-- 2026-06-30 08:13 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/47227.shtml)
-- 2026-06-30 08:01 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/547109395146.shtml)
-- 2026-06-30 08:05 - [高质量发展看新疆](http://www.blog.minike.top/Article/details/36402004073.shtml)
-- 2026-06-30 08:10 - [国务院：探索延长义务教育年限](http://www.blog.kurohicncr.top/Article/details/66491.shtml)
-- 2026-06-30 08:24 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/813729.shtml)
-- 2026-06-30 08:28 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/49860.shtml)
-- 2026-06-30 08:29 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/160750605050.shtml)
+- 2026-06-30 08:26 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/90629532584.shtml)
+- 2026-06-30 08:13 - [日本博主：日本足球真的垃圾](http://www.share.minike.top/Article/details/3484751.shtml)
+- 2026-06-30 08:12 - [德国连续三届世界杯无缘16强](http://www.blog.kurohicncr.top/Article/details/499234675.shtml)
+- 2026-06-30 08:25 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://www.share.kurohicncr.top/Article/details/6698871.shtml)
+- 2026-06-30 08:21 - [巴西2-1绝杀日本](http://www.blog.minike.top/Article/details/649900872.shtml)
+- 2026-06-30 08:11 - [郑钦文温网三连败西尼亚科娃](https://www.share.kurohicncr.top/Article/details/6549480446.shtml)
+- 2026-06-30 08:29 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.minike.top/Article/details/022592995.shtml)
+- 2026-06-30 08:27 - [韩国球迷凌晨4点接机怒骂主教练](http://www.share.minike.top/Article/details/96233180188.shtml)
+- 2026-06-30 08:31 - [这一刀 会很帅](https://www.share.minike.top/Article/details/29228.shtml)
+- 2026-06-30 08:18 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/166760770.shtml)
+- 2026-06-30 08:24 - [沙丘](http://www.share.minike.top/Article/details/91750048468.shtml)
+- 2026-06-30 08:29 - [森保一致歉：世界第一目标没能实现](http://www.share.minike.top/Article/details/1876357043.shtml)
+- 2026-06-30 08:23 - [日本 高位逼抢](https://www.blog.minike.top/Article/details/13957.shtml)
+- 2026-06-30 08:09 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/35437307174.shtml)
+- 2026-06-30 08:19 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/59599.shtml)

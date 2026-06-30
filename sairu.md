@@ -1,61 +1,56 @@
-# “免摇号”“包京牌”“无车报废”？别信！（2026·05·09）
+# 丰巢取件先得看广告，客服回应：暂无法关闭
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-辟 谣| “免摇号”“包京牌”“无车报废”？别信！ 详情：近期，一些不法商家利用部分消费者对京牌指标的迫切需求，精心炮制“免摇号直上蓝牌”“包京牌指标”等诱人骗局。这些所谓“捷径”背后，隐藏着“专项作业车冒用路权”“违规改装”“合同无效”“保险拒赔”等重重风险。 误区一：签订“车辆带牌背户终身使用”协议，就能长期持有京牌 真相：“背户”协议变相买卖小客车指标，违反管理规定，消费
+界面新闻记者 | 宋佳楠 近日，有多地市民反映，使用丰巢智能柜取件时扫码并不直接跳转取件页面，反而会弹出各类诱导广告，关闭按钮不仅位置隐蔽且常常小于5mm。部分广告带有“摇一摇”跳转功能，手机轻微晃动即触发跳转，被用户吐槽“取快递像扫雷”。 对此，6月9日，丰巢客服人员向界面新闻记者表示，目前弹窗广告和跳转广告暂时无法关闭，之后会优化广告相关问题。客服人员强调，广告弹窗覆盖所有
 
 ## 正文
 
-辟 谣| “免摇号”“包京牌”“无车报废”？
+界面新闻记者 | 宋佳楠 近日，有多地市民反映，使用丰巢智能柜取件时扫码并不直接跳转取件页面，反而会弹出各类诱导广告，关闭按钮不仅位置隐蔽且常常小于5mm。
 
-别信！
+部分广告带有“摇一摇”跳转功能，手机轻微晃动即触发跳转，被用户吐槽“取快递像扫雷”。
 
-详情：近期，一些不法商家利用部分消费者对京牌指标的迫切需求，精心炮制“免摇号直上蓝牌”“包京牌指标”等诱人骗局。
+对此，6月9日，丰巢客服人员向界面新闻记者表示，目前弹窗广告和跳转广告暂时无法关闭，之后会优化广告相关问题。
 
-这些所谓“捷径”背后，隐藏着“专项作业车冒用路权”“违规改装”“合同无效”“保险拒赔”等重重风险。
+客服人员强调，广告弹窗覆盖所有丰巢柜机，不分区域和机型。
 
-误区一：签订“车辆带牌背户终身使用”协议，就能长期持有京牌 真相：“背户”协议变相买卖小客车指标，违反管理规定，消费者可能面临无法年检、车财两空等风险。
+丰巢并非唯一试水强制广告的快递柜品牌，像云柜等品牌同样存在扫码前后弹窗、跳转广告的问题。
 
-根据北京市的相关规定，北京市小客车指标不得买卖、变相买卖、出租或者出借。
+云柜客服人员告诉界面新闻记者，其同样不支持关闭弹窗和跳转广告。
 
-“车辆带牌背户”规避了政府对小客车总量的调控目标，扰乱了公共资源配置秩序和管理秩序。
+这意味着，对于通过扫码取件的用户而言，只能被动接受广告“绑架”。
 
-误区二：商家宣称“免摇号直上蓝牌”“365天不限行” 真相：所谓的“免摇车型”实际是专项作业车——装置有专用设备或器具的工程抢险车、洒水车、吸污车等，按照货车管理，报废年限仅15年，且每天6时至23时，五环路(不含)以内道路禁止通行，与商家承诺大相径庭。
+此外，部分柜机要求用户关注公众号才能开柜，某些广告以“新人领券”为诱饵，诱导填写手机号、绑定银行卡，涉嫌过度收集个人信息。
 
 ## 相关推荐
 
-- 2026-06-30 08:11 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
-- 2026-06-30 08:29 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-30 08:18 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-30 08:01 - [德国4比5巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
-- 2026-06-30 08:19 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-30 08:07 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
-- 2026-06-30 08:09 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-30 08:16 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-30 08:05 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-30 08:04 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-30 08:08 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-30 08:20 - [恋与深空道歉声明](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
-- 2026-06-30 08:27 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-30 08:22 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
-- 2026-06-30 08:25 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
+- 2026-06-30 08:17 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-30 08:34 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-30 08:18 - [巴拉圭进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-30 08:11 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-30 08:20 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-30 08:17 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-30 08:23 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-30 08:13 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-30 08:17 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-30 08:17 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:07 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.kurohicncr.top/Article/details/12925.shtml)
-- 2026-06-30 08:07 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/230926711974.shtml)
-- 2026-06-30 08:12 - [有什么好的高中网课推荐吗？](https://www.blog.minike.top/Article/details/091452762.shtml)
-- 2026-06-30 08:09 - [毒液2](https://www.blog.minike.top/Article/details/563057.shtml)
-- 2026-06-30 08:10 - [德国连续三届世界杯无缘16强](https://www.blog.minike.top/Article/details/548546186.shtml)
-- 2026-06-30 08:08 - [为什么会有「念旧」的心理？](https://www.share.minike.top/Article/details/545106644.shtml)
-- 2026-06-30 08:28 - [媒体评泰山建135公里刀片刺绳隔离网](http://www.blog.minike.top/Article/details/728960.shtml)
-- 2026-06-30 08:12 - [刘必安等16人非法集资案二审宣判](http://www.blog.minike.top/Article/details/664240943141.shtml)
-- 2026-06-30 08:19 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/583635679781.shtml)
-- 2026-06-30 08:15 - [《共患难》](https://www.share.kurohicncr.top/Article/details/980474.shtml)
-- 2026-06-30 08:13 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/8027342619.shtml)
-- 2026-06-30 08:09 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/84140457718.shtml)
-- 2026-06-30 08:26 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.kurohicncr.top/Article/details/746194.shtml)
-- 2026-06-30 08:13 - [千香](https://www.share.minike.top/Article/details/721613542327.shtml)
-- 2026-06-30 08:29 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/884808308.shtml)
+- 2026-06-30 08:29 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/73640.shtml)
+- 2026-06-30 08:25 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/58189036.shtml)
+- 2026-06-30 08:31 - [德国连续三届世界杯无缘16强](https://www.blog.kurohicncr.top/Article/details/3432075.shtml)
+- 2026-06-30 08:14 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/681836646116.shtml)
+- 2026-06-30 08:06 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/706718.shtml)
+- 2026-06-30 08:31 - [日本16强魔咒](https://www.blog.minike.top/Article/details/152474055.shtml)
+- 2026-06-30 08:19 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.minike.top/Article/details/581117958427.shtml)
+- 2026-06-30 08:33 - [董路：谁赢谁是“正路子”](http://www.share.minike.top/Article/details/69742877.shtml)
+- 2026-06-30 08:31 - [穆祉丞年度人气艺人](https://www.share.kurohicncr.top/Article/details/979717643341.shtml)
+- 2026-06-30 08:11 - [逃狱兄弟](http://www.blog.minike.top/Article/details/56207549.shtml)
+- 2026-06-30 08:20 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/4585905051.shtml)
+- 2026-06-30 08:19 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/05992227573.shtml)
+- 2026-06-30 08:10 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/25389574092.shtml)
+- 2026-06-30 08:07 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.minike.top/Article/details/47745169286.shtml)
+- 2026-06-30 08:30 - [德国 传控](https://www.share.minike.top/Article/details/5172109.shtml)

@@ -1,52 +1,59 @@
-# 中国人民银行行长潘功胜会见法国总统外事顾问博纳
+# 东吴证券收购案太离谱！6月18日，小股东们会“反抗”吗？
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-2026年5月7日，中国人民银行行长潘功胜会见了法国总统外事顾问博纳。双方就中国和全球经济金融形势、中法两国在多双边机制下经济金融领域的合作开展了务实沟通与交流。中国人民银行副行长宣昌能参加会见。 责任编辑：曹睿潼
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：挖掘机007 苏州的梅雨季尚未到来，但长三角资本圈的空气里，已经弥漫着一股潮湿的焦灼。 6月18日，东吴证券（601555）的股东大会将审议一项足以改变公司命运的议案——以115.19亿元的对价，收购东海证券83.68%的股份。这不仅仅是一场简单的资产买卖，更像是一场关于“规模扩张”与“股东回报”的豪
 
 ## 正文
 
-2026年5月7日，中国人民银行行长潘功胜会见了法国总统外事顾问博纳。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-双方就中国和全球经济金融形势、中法两国在多双边机制下经济金融领域的合作开展了务实沟通与交流。
+来源：挖掘机007 苏州的梅雨季尚未到来，但长三角资本圈的空气里，已经弥漫着一股潮湿的焦灼。
 
-中国人民银行副行长宣昌能参加会见。
+6月18日，东吴证券（601555）的股东大会将审议一项足以改变公司命运的议案——以115.19亿元的对价，收购东海证券83.68%的股份。
 
-责任编辑：曹睿潼
+这不仅仅是一场简单的资产买卖，更像是一场关于“规模扩张”与“股东回报”的豪赌。
+
+而赌桌的另一端，坐着的是数万名手握真金白银的中小股东。
+
+作为深度融入长三角经济的中型券商代表，东吴证券这一步棋，走得不可谓不险。
+
+方案自今年3月公布以来，股价应声大跌7.1%，并开启了一轮绵软的回调。
+
+二级市场的用脚投票，与研报里“能级跃升”的宏大叙事，形成了刺眼的割裂。
 
 ## 相关推荐
 
-- 2026-06-30 08:07 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
-- 2026-06-30 08:24 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-30 08:03 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-30 08:10 - [点球大战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-30 08:22 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-30 08:17 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-30 08:22 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-30 08:18 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-30 08:12 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-30 08:14 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-30 08:07 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-30 08:10 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
-- 2026-06-30 08:15 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-30 08:14 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-30 08:19 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-30 08:15 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-30 08:32 - [勇士续约波尔津吉斯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-30 08:21 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
+- 2026-06-30 08:08 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-30 08:16 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
+- 2026-06-30 08:25 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-30 08:06 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-30 08:26 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-30 08:08 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-30 08:24 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-30 08:09 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-30 08:31 - [郑钦文温网一轮游](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:15 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](http://www.blog.minike.top/Article/details/27228086308.shtml)
-- 2026-06-30 08:25 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/411847309795.shtml)
-- 2026-06-30 08:25 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/97595251045.shtml)
-- 2026-06-30 08:10 - [德国连续三届世界杯无缘16强](http://www.blog.kurohicncr.top/Article/details/822786197410.shtml)
-- 2026-06-30 08:10 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.blog.minike.top/Article/details/41794610.shtml)
-- 2026-06-30 08:15 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.kurohicncr.top/Article/details/690533.shtml)
-- 2026-06-30 08:26 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.kurohicncr.top/Article/details/820585524.shtml)
-- 2026-06-30 08:11 - [DeepSeek V4正式版要来了](https://www.share.minike.top/Article/details/660383949884.shtml)
-- 2026-06-30 08:09 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/61156108634.shtml)
-- 2026-06-30 08:15 - [巴西vs日本](http://www.blog.minike.top/Article/details/46548554011.shtml)
-- 2026-06-30 08:17 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/90702770.shtml)
-- 2026-06-30 08:15 - [董路：谁赢谁是“正路子”](https://www.share.minike.top/Article/details/86669.shtml)
-- 2026-06-30 08:17 - [谢依霖说杨幂是聚会第一把张罗手](http://www.share.kurohicncr.top/Article/details/21605330.shtml)
-- 2026-06-30 08:11 - [湖南祁东原文化馆被指贱卖](https://www.blog.minike.top/Article/details/75512.shtml)
-- 2026-06-30 08:13 - [张雪的一句“是我们”引发岛内热议](https://www.blog.kurohicncr.top/Article/details/978502439095.shtml)
+- 2026-06-30 08:07 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/7165428.shtml)
+- 2026-06-30 08:12 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/5818602.shtml)
+- 2026-06-30 08:17 - [德国4比5巴拉圭](https://www.share.kurohicncr.top/Article/details/4578841.shtml)
+- 2026-06-30 08:11 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/54463134.shtml)
+- 2026-06-30 08:17 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/11269.shtml)
+- 2026-06-30 08:23 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/196316926103.shtml)
+- 2026-06-30 08:35 - [第3集丨“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/55592.shtml)
+- 2026-06-30 08:23 - [徐亮怒斥世界杯踢假球](https://www.share.minike.top/Article/details/554725262.shtml)
+- 2026-06-30 08:15 - [F1奥地利站赛后复盘](http://www.share.kurohicncr.top/Article/details/26569.shtml)
+- 2026-06-30 08:20 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.blog.minike.top/Article/details/419807.shtml)
+- 2026-06-30 08:29 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/8826673.shtml)
+- 2026-06-30 08:34 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/1630436203.shtml)
+- 2026-06-30 08:09 - [感动全网的699分女生想报考清华](https://www.share.kurohicncr.top/Article/details/5090371.shtml)
+- 2026-06-30 08:34 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/33634365915.shtml)
+- 2026-06-30 08:32 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/00449213.shtml)

@@ -1,59 +1,48 @@
-# 国防部：决不姑息、决不容忍“台独”
+# 华西证券：众安在线维持“增持”评级 整体盈利能力进一步提升
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-中新社北京5月9日电 (记者 李纯)“‘台独’是破坏台海和平的罪魁祸首，我们决不姑息、决不容忍。”国防部新闻发言人蒋斌9日就近期涉军问题发布消息时说。 有记者问，据报道，解放军近期组织海空兵力位台岛周边开展联合战备警巡、主战舰艇编队进入澎湖西南海域。有分析认为，解放军舰机越过“海峡中线”数量增加，可能与近期台高层窜访活动有关。请问对此有何评论？ 蒋斌指出，台湾是中国的一部分，根
+华西证券发布研报称，众安在线（06060）在国内互联网财险赛道具备竞争优势，科技和银行板块盈利持续改善，同时看好未来公司整体盈利能力的进一步提升。根据公司披露的2025年年报数据，调整此前盈利预测，预计2026-2028年保险服务收入分别为357.43/376.31/397.02亿元；预计2026-2028年归母净利润分别为11.90/13.04/14.00亿元；预计2026-
 
 ## 正文
 
-中新社北京5月9日电 (记者 李纯)“‘台独’是破坏台海和平的罪魁祸首，我们决不姑息、决不容忍。
+华西证券发布研报称，众安在线（06060）在国内互联网财险赛道具备竞争优势，科技和银行板块盈利持续改善，同时看好未来公司整体盈利能力的进一步提升。
 
-”国防部新闻发言人蒋斌9日就近期涉军问题发布消息时说。
+根据公司披露的2025年年报数据，调整此前盈利预测，预计2026-2028年保险服务收入分别为357.43/376.31/397.02亿元；预计2026-2028年归母净利润分别为11.90/13.04/14.00亿元；预计2026-2028年EPS分别为0.71/0.77/0.83元。
 
-有记者问，据报道，解放军近期组织海空兵力位台岛周边开展联合战备警巡、主战舰艇编队进入澎湖西南海域。
+众安在线2026年6月4日收盘价10.35港元/股（按6月4日汇率1 HKD=0.86 CNY）对应2026-2028年PB为0.56x/0.53x/0.50x，维持“增持”评级。
 
-有分析认为，解放军舰机越过“海峡中线”数量增加，可能与近期台高层窜访活动有关。
-
-请问对此有何评论？
-
-蒋斌指出，台湾是中国的一部分，根本不存在所谓“海峡中线”。
-
-解放军位相关区域开展军事行动，完全正当合理。
-
-“台独”是破坏台海和平的罪魁祸首，我们决不姑息、决不容忍。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 08:10 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-30 08:24 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
-- 2026-06-30 08:11 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
-- 2026-06-30 08:10 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-30 08:14 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-30 08:00 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
-- 2026-06-30 08:07 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-30 08:02 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-30 08:06 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
-- 2026-06-30 08:25 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-30 08:20 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-30 08:08 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-30 08:21 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-30 08:35 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-30 08:18 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-30 08:18 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-30 08:34 - [日耳曼拖拉机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-30 08:16 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-30 08:32 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-30 08:16 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-30 08:30 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-30 08:23 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-30 08:12 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:22 - [德国巴拉圭加时](http://www.blog.kurohicncr.top/Article/details/02722337932.shtml)
-- 2026-06-30 08:08 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/69781499193.shtml)
-- 2026-06-30 08:20 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/72157.shtml)
-- 2026-06-30 08:28 - [女子清吧被陌生人投放伟哥](https://www.blog.kurohicncr.top/Article/details/67691.shtml)
-- 2026-06-30 08:06 - [德国连续三届世界杯无缘16强](https://www.blog.kurohicncr.top/Article/details/1447882485.shtml)
-- 2026-06-30 08:13 - [张帅晋级温网次轮](http://www.blog.minike.top/Article/details/3593456262.shtml)
-- 2026-06-30 08:28 - [美股](http://www.share.kurohicncr.top/Article/details/074190.shtml)
-- 2026-06-30 08:25 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.blog.minike.top/Article/details/07052.shtml)
-- 2026-06-30 08:09 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.minike.top/Article/details/94439498023.shtml)
-- 2026-06-30 08:02 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/159614.shtml)
-- 2026-06-30 08:07 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/86555.shtml)
-- 2026-06-30 08:20 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.kurohicncr.top/Article/details/645336152.shtml)
-- 2026-06-30 08:16 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/507742515.shtml)
-- 2026-06-30 08:17 - [巴西若输日本将创36年最差纪录](http://www.share.minike.top/Article/details/58903.shtml)
-- 2026-06-30 08:17 - [日本 高位逼抢](https://www.blog.kurohicncr.top/Article/details/33605074952.shtml)
+- 2026-06-30 08:26 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/513765066.shtml)
+- 2026-06-30 08:28 - [王楚钦孙颖莎晋级混双八强](https://www.blog.minike.top/Article/details/88817.shtml)
+- 2026-06-30 08:22 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/64866668891.shtml)
+- 2026-06-30 08:09 - [扫黑风暴](http://www.share.minike.top/Article/details/6760414.shtml)
+- 2026-06-30 08:35 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/49649.shtml)
+- 2026-06-30 08:31 - [张帅时隔四年晋级温网第二轮](http://www.blog.minike.top/Article/details/31341694.shtml)
+- 2026-06-30 08:12 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/239602858282.shtml)
+- 2026-06-30 08:35 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/1001365.shtml)
+- 2026-06-30 08:07 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/36111577.shtml)
+- 2026-06-30 08:09 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.share.minike.top/Article/details/292572424.shtml)
+- 2026-06-30 08:24 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/31200632666.shtml)
+- 2026-06-30 08:11 - [藤森庆子赢得秘鲁总统选举](http://www.blog.kurohicncr.top/Article/details/63472.shtml)
+- 2026-06-30 08:18 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/22227.shtml)
+- 2026-06-30 08:12 - [马耳他著名拱门坍塌致一中国男子身亡](https://www.blog.minike.top/Article/details/24168880078.shtml)
+- 2026-06-30 08:18 - [德国连续三届世界杯无缘16强](https://www.share.minike.top/Article/details/29957.shtml)

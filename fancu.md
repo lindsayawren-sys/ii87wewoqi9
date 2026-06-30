@@ -1,58 +1,48 @@
-# “共同迈向更具韧性和可持续的未来”——访孟加拉国总理财政与规划事务顾问提图米尔
+# 2025年广东海洋生产总值超2万亿 连续31年领跑全国
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-“发展是解决全球性挑战的‘金钥匙’。”孟加拉国总理财政与规划事务顾问提图米尔近日在接受本报记者专访时表示，全球发展倡议旨在建立互惠的伙伴关系，为全球发展遇到的突出问题提供解决方案，“这具有重要时代价值和实践意义”。当前国际形势变乱交织，地区冲突此起彼伏，发展赤字持续扩大，气候变化、数字鸿沟、能源安全等问题不断加剧。“全球可持续发展目标整体进展缓慢。我们希望看到中国持续发挥引领作
+今天(6月8日)，广东省发布海洋经济统计公报，数据显示，2025年广东海洋生产总值2.04万亿元，比上年实际增长4.4%，占全国海洋生产总值的18.6%，连续31年稳居全国首位。15个主要海洋产业实现增加值8303.8亿元，其中9个产业规模处于全国前3位，海水淡化与综合利用业、海洋交通运输、海洋旅游三个产业居全国第一；已形成海洋油气化工、海洋渔业、海上风电、海工装备、海洋旅游等
 
 ## 正文
 
-“发展是解决全球性挑战的‘金钥匙’。
+今天(6月8日)，广东省发布海洋经济统计公报，数据显示，2025年广东海洋生产总值2.04万亿元，比上年实际增长4.4%，占全国海洋生产总值的18.6%，连续31年稳居全国首位。
 
-”孟加拉国总理财政与规划事务顾问提图米尔近日在接受本报记者专访时表示，全球发展倡议旨在建立互惠的伙伴关系，为全球发展遇到的突出问题提供解决方案，“这具有重要时代价值和实践意义”。
+15个主要海洋产业实现增加值8303.8亿元，其中9个产业规模处于全国前3位，海水淡化与综合利用业、海洋交通运输、海洋旅游三个产业居全国第一；已形成海洋油气化工、海洋渔业、海上风电、海工装备、海洋旅游等5个万亿级、千亿级产业集群。
 
-当前国际形势变乱交织，地区冲突此起彼伏，发展赤字持续扩大，气候变化、数字鸿沟、能源安全等问题不断加剧。
-
-“全球可持续发展目标整体进展缓慢。
-
-我们希望看到中国持续发挥引领作用，为推动南南合作凝聚合力。
-
-”提图米尔表示，全球发展倡议的重要价值在当下更加凸显——发展筹资、气候变化和绿色发展、数字时代互联互通等八大重点合作领域，为各国促进包容及可持续增长提供了全面框架；倡议坚持的发展优先、以人民为中心等思想，为加快落实联合国2030年可持续发展议程发挥着重要支持作用。
-
-提图米尔特别指出，“日前在北京举行的全球共享发展行动论坛第三届高级别会议恰逢其时，为全球发展事业增添了动力。
-
-” 提图米尔表示，近年来，依托中国先进的基础设施建设技术与经验，两国合作的一些项目大幅提升了孟加拉国互联互通水平。
+(总台记者 罗平章 陈紫行)
 
 ## 相关推荐
 
-- 2026-06-30 08:27 - [马耳他著名拱门坍塌致中国男子身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-30 08:22 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-30 08:24 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-30 08:24 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
-- 2026-06-30 08:05 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-30 08:14 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-30 08:18 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
-- 2026-06-30 08:17 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-30 08:27 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-30 08:15 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-30 08:26 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-30 08:15 - [德国连续三届世界杯无缘16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-30 08:27 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-30 08:11 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-30 08:25 - [齐思钧回复张月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-30 08:16 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
+- 2026-06-30 08:18 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-30 08:06 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-30 08:19 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-30 08:22 - [全球芯片巨头史诗级扩产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-30 08:34 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-30 08:24 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-30 08:13 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-30 08:20 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:13 - [曝詹姆斯即将与勇士会面](http://www.blog.kurohicncr.top/Article/details/59345223508.shtml)
-- 2026-06-30 08:23 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/10311.shtml)
-- 2026-06-30 08:21 - [高考结束了，你会让孩子在家玩手机吗？](https://www.blog.minike.top/Article/details/25171.shtml)
-- 2026-06-30 08:16 - [巴西绝杀](http://www.share.minike.top/Article/details/00703383.shtml)
-- 2026-06-30 08:21 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/5358541002.shtml)
-- 2026-06-30 08:12 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/32476.shtml)
-- 2026-06-30 08:27 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/631977.shtml)
-- 2026-06-30 08:03 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/9818179.shtml)
-- 2026-06-30 08:11 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.kurohicncr.top/Article/details/7232593.shtml)
-- 2026-06-30 08:03 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://www.share.minike.top/Article/details/34915519322.shtml)
-- 2026-06-30 08:28 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://www.blog.minike.top/Article/details/6317871.shtml)
-- 2026-06-30 08:13 - [郑钦文温网首轮出局](http://www.share.minike.top/Article/details/011189.shtml)
-- 2026-06-30 08:07 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.share.minike.top/Article/details/2387135.shtml)
-- 2026-06-30 08:29 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.share.kurohicncr.top/Article/details/4424788336.shtml)
-- 2026-06-30 08:27 - [4000美元是黄金新一轮下跌的开始吗](https://www.share.minike.top/Article/details/928068696.shtml)
+- 2026-06-30 08:33 - [追梦拒绝2770万美元球员选项](http://www.blog.minike.top/Article/details/670068.shtml)
+- 2026-06-30 08:08 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/214204403717.shtml)
+- 2026-06-30 08:22 - [日本反击率先破门](http://www.share.minike.top/Article/details/94048614.shtml)
+- 2026-06-30 08:17 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/624141.shtml)
+- 2026-06-30 08:06 - [巴拉圭点球大战淘汰德国进16强](https://www.share.kurohicncr.top/Article/details/86001701.shtml)
+- 2026-06-30 08:30 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/8890413831.shtml)
+- 2026-06-30 08:12 - [一见倾心](https://www.blog.minike.top/Article/details/714171609323.shtml)
+- 2026-06-30 08:23 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/769822188.shtml)
+- 2026-06-30 08:13 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/07862141.shtml)
+- 2026-06-30 08:19 - [哈弗茨头球破门](https://www.blog.kurohicncr.top/Article/details/86673.shtml)
+- 2026-06-30 08:21 - [峡谷事故团队组队时有人提醒会下雨](http://www.blog.kurohicncr.top/Article/details/48400410357.shtml)
+- 2026-06-30 08:21 - [张帅时隔四年晋级温网第二轮](http://www.share.minike.top/Article/details/05922.shtml)
+- 2026-06-30 08:13 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/12024554.shtml)
+- 2026-06-30 08:17 - [iPhone18e曝光](https://www.blog.minike.top/Article/details/215552.shtml)
+- 2026-06-30 08:35 - [郑钦文温网首轮出局](http://www.blog.minike.top/Article/details/46314892.shtml)

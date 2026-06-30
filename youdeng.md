@@ -1,58 +1,60 @@
-# 珠宝配饰年报|业绩总览：中国黄金归母利润降超66%、老凤祥飞亚达业绩双降、瑞贝卡新华锦延续亏损
+# 第15届全国海洋知识竞赛总决赛落幕
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经公司研究院 作者：新消费主张/cici 2025年，对于中国珠宝配饰行业而言是极具分化的一年。在金价持续高位运行、消费需求结构性变迁以及渠道竞争白热化的多重因素交织下，A股珠宝板块交出了一份“冰火两重天”的成绩单。有的公司凭借品牌护城河与效率革新实现了利润翻倍式增长，有的传统龙头却在规模扩张中
+中新网福州6月9日电 (记者 闫旭)“雪龙2”号极地科考破冰船，是中国第一艘自主建造的极地科考破冰船吗？我国自主研发的海洋药物有哪些？我国首次南极考察编队中的“两船”是哪两船…… 6月8日晚，由自然资源部、共青团中央、海军政治工作部共同主办的第15届全国海洋知识竞赛总决赛，登陆东南卫视、海峡卫视等电视端和新媒体端，竞赛成绩出炉。 经过激烈角逐，南京大学李承翰、中国地质大学(北京
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网福州6月9日电 (记者 闫旭)“雪龙2”号极地科考破冰船，是中国第一艘自主建造的极地科考破冰船吗？
 
-出品：新浪财经公司研究院 作者：新消费主张/cici 2025年，对于中国珠宝配饰行业而言是极具分化的一年。
+我国自主研发的海洋药物有哪些？
 
-在金价持续高位运行、消费需求结构性变迁以及渠道竞争白热化的多重因素交织下，A股珠宝板块交出了一份“冰火两重天”的成绩单。
+我国首次南极考察编队中的“两船”是哪两船…… 6月8日晚，由自然资源部、共青团中央、海军政治工作部共同主办的第15届全国海洋知识竞赛总决赛，登陆东南卫视、海峡卫视等电视端和新媒体端，竞赛成绩出炉。
 
-有的公司凭借品牌护城河与效率革新实现了利润翻倍式增长，有的传统龙头却在规模扩张中迷失了盈利能力，更有甚者陷入巨额亏损，甚至未能按时披露年报。
+经过激烈角逐，南京大学李承翰、中国地质大学(北京)王奕贺、武警海警学院宋佳其分获“南极奖”“北极奖”“大洋奖”，他们将有机会亲赴极地或大洋参与科学考察， 本届竞赛设公众组与大学生组两个赛道。
 
-截至2026年4月30日，饰品行业A股上市公司已完成2025年年报的披露，对此我们挑选了12家具有代表性的上市公司进行业绩比对分析。
+公众组吸引10万余人次通过网络参与答题；大学生组选拔自2025年11月持续至2026年4月，覆盖16个省(区市)的219所高校，通过地区选拔、高校选拔、海军院校选拔三条途径晋级全国赛。
 
-在我们选取的12家饰品公司中，部分上市公司业绩出现了好转，如菜百股份、曼卡龙、潮宏基、迪阿股份业绩双增、莱绅通灵归母净利润扭亏。
+16支代表队汇聚福州，经过激烈的晋级赛，最终中国海洋大学、武警海警学院、南京大学、海军工程大学、中国地质大学(北京)以及江苏海洋大学等六支代表队站在了总决赛的舞台上。
 
-几家欢喜几家忧，在饰品行业上市公司中同样有多家企业交出远低于市场预期的成绩单，甚至出现财务危机。
+本届竞赛命题对标国家海洋事业整体发展规划，超越海洋生物、地理现象等基础知识范畴，构建一个全景式的“大海洋”知识体系，涉及科技前沿、蓝色经济、生态保护、历史文明、法律与安全等领域。
 
-作为行业营收规模最大的公司，中国黄金2025年营收698.22亿元，但其归母净利润仅2.75亿元，同比大跌66.34%，盈利能力急剧恶化。
+香港赛区首次组队参赛，成为本届大赛亮点之一。
 
 ## 相关推荐
 
-- 2026-06-30 08:03 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-30 08:17 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-30 08:09 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-30 08:25 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-30 08:25 - [存储芯片龙头提示风险](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
-- 2026-06-30 08:02 - [全球芯片巨头史诗级扩产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-30 08:01 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-30 08:06 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
-- 2026-06-30 08:25 - [孙颖莎王楚钦晋级8强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
-- 2026-06-30 08:16 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-30 08:26 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
-- 2026-06-30 08:06 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-30 08:07 - [恋与深空道歉声明](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-30 08:26 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
+- 2026-06-30 08:33 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-30 08:12 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-30 08:34 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-30 08:32 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-30 08:09 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-30 08:17 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-30 08:13 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
+- 2026-06-30 08:10 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-30 08:12 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-30 08:30 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-30 08:27 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
+- 2026-06-30 08:08 - [德国罚丢3粒点球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:03 - [日本半场1比0领先巴西](https://www.share.kurohicncr.top/Article/details/1030964.shtml)
-- 2026-06-30 08:21 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/436539021.shtml)
-- 2026-06-30 08:01 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/1679955125.shtml)
-- 2026-06-30 08:15 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](http://www.blog.kurohicncr.top/Article/details/545964690.shtml)
-- 2026-06-30 08:00 - [青春环游记第三季](http://www.blog.minike.top/Article/details/5623831032.shtml)
-- 2026-06-30 08:17 - [毒液2](https://www.share.kurohicncr.top/Article/details/259894973.shtml)
-- 2026-06-30 08:06 - [徐亮怒斥世界杯踢假球](https://www.blog.minike.top/Article/details/8878461342.shtml)
-- 2026-06-30 08:10 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/53229811674.shtml)
-- 2026-06-30 08:09 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/03847159828.shtml)
-- 2026-06-30 08:10 - [卡塞米罗头球破门](http://www.share.minike.top/Article/details/15494310591.shtml)
-- 2026-06-30 08:21 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/2385518193.shtml)
-- 2026-06-30 08:07 - [王楚钦说配合稍微有些陌生感](http://www.share.minike.top/Article/details/28698388.shtml)
-- 2026-06-30 08:00 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://www.share.minike.top/Article/details/923759805153.shtml)
-- 2026-06-30 08:13 - [王楚钦说配合稍微有些陌生感](https://www.share.kurohicncr.top/Article/details/6733597.shtml)
-- 2026-06-30 08:12 - [日本博主：日本足球真的垃圾](https://www.share.kurohicncr.top/Article/details/4962185.shtml)
+- 2026-06-30 08:35 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/546641942109.shtml)
+- 2026-06-30 08:06 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/41510126.shtml)
+- 2026-06-30 08:17 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/01582.shtml)
+- 2026-06-30 08:20 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/28866037519.shtml)
+- 2026-06-30 08:34 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/3826053201.shtml)
+- 2026-06-30 08:27 - [“草莓月亮”浪漫现身](http://www.blog.minike.top/Article/details/543591528712.shtml)
+- 2026-06-30 08:27 - [现在叛逆期的孩子最怕的是什么？](http://www.share.minike.top/Article/details/3072560.shtml)
+- 2026-06-30 08:22 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/233224494238.shtml)
+- 2026-06-30 08:15 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/29228993818.shtml)
+- 2026-06-30 08:07 - [索马里女大使：想和中国一起搞事业](http://www.blog.kurohicncr.top/Article/details/611587936.shtml)
+- 2026-06-30 08:15 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/9873771.shtml)
+- 2026-06-30 08:20 - [点球大战 残酷](https://www.share.minike.top/Article/details/60711.shtml)
+- 2026-06-30 08:24 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.kurohicncr.top/Article/details/20275985.shtml)
+- 2026-06-30 08:25 - [库尼亚赛后伸五指嘲讽日本](https://www.blog.minike.top/Article/details/658767920215.shtml)
+- 2026-06-30 08:21 - [世界杯“美洲德比”7月1日开打](http://www.share.minike.top/Article/details/699563702577.shtml)

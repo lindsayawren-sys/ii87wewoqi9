@@ -1,57 +1,44 @@
-# 4月非农数据高于预期，美债收益率不升反降
+# 习近平同金正恩会谈，为新时期中朝关系擘画蓝图
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-尽管美国4月非农就业数据高于预期，美国国债收益率周五仍出现下跌，反映出市场对这份“恰到好处”的就业报告的复杂解读。 截至美东时间上午，10年期美国国债收益率下跌约3个基点至4.31%，从早盘高点4.36%回落。2年期国债收益率下跌约2个基点至3.95%。收益率与价格呈反向变动。 就业数据解读矛盾 美国劳工统计局周五公布的数据显示，4月非农就业人数增加11.5万，远超道琼斯调查经
+当地时间6月8日下午，中共中央总书记、国家主席习近平在平壤锦绣山迎宾馆同朝鲜劳动党总书记、国务委员长金正恩举行会谈。习近平这样为新时期中朝关系擘画蓝图—— (海报：殷哲伦、王申、陆睿、董亚雷)
 
 ## 正文
 
-尽管美国4月非农就业数据高于预期，美国国债收益率周五仍出现下跌，反映出市场对这份“恰到好处”的就业报告的复杂解读。
+当地时间6月8日下午，中共中央总书记、国家主席习近平在平壤锦绣山迎宾馆同朝鲜劳动党总书记、国务委员长金正恩举行会谈。
 
-截至美东时间上午，10年期美国国债收益率下跌约3个基点至4.31%，从早盘高点4.36%回落。
-
-2年期国债收益率下跌约2个基点至3.95%。
-
-收益率与价格呈反向变动。
-
-就业数据解读矛盾 美国劳工统计局周五公布的数据显示，4月非农就业人数增加11.5万，远超道琼斯调查经济学家预期的5.5万。
-
-失业率持稳于4.3%。
-
-通常情况下，强劲的就业数据会推高收益率，因为这可能意味着经济过热和通胀压力上升，从而促使美联储维持紧缩政策。
-
-但此次收益率下跌的原因在于：首先，报告细节显示薪资增长温和，平均时薪环比仅增长0.3%，同比增长4.1%。
+习近平这样为新时期中朝关系擘画蓝图—— (海报：殷哲伦、王申、陆睿、董亚雷)
 
 ## 相关推荐
 
-- 2026-06-30 08:01 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-30 08:22 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-30 08:16 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-30 08:17 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-30 08:07 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-30 08:24 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-30 08:03 - [杨紫学位证上就是杨紫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-30 08:29 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-30 08:04 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
-- 2026-06-30 08:16 - [诺伊尔尽力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-30 08:25 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-30 08:15 - [三星投资计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-30 08:23 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-30 08:09 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-30 08:17 - [4000美元是黄金新一轮下跌的开始吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-30 08:13 - [哈弗茨头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-30 08:32 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-30 08:07 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-30 08:15 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-30 08:17 - [点球大战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-30 08:27 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:27 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/599561.shtml)
-- 2026-06-30 08:21 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/931266.shtml)
-- 2026-06-30 08:20 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/47354899.shtml)
-- 2026-06-30 08:00 - [董卿父亲在报纸上发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/47367002.shtml)
-- 2026-06-30 08:05 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/832617139.shtml)
-- 2026-06-30 08:17 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/22399001.shtml)
-- 2026-06-30 08:06 - [德国队世界杯点球大战首败](http://www.blog.minike.top/Article/details/942370330.shtml)
-- 2026-06-30 08:11 - [巴拉圭进球](https://www.share.minike.top/Article/details/974212.shtml)
-- 2026-06-30 08:23 - [莫兰特被交易到开拓者](http://www.share.kurohicncr.top/Article/details/623382.shtml)
-- 2026-06-30 08:12 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/2009194503.shtml)
-- 2026-06-30 08:13 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/526464057435.shtml)
-- 2026-06-30 08:19 - [巴拉圭进球](http://www.blog.minike.top/Article/details/09531891173.shtml)
-- 2026-06-30 08:07 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/65811715.shtml)
-- 2026-06-30 08:26 - [王楚钦说配合稍微有些陌生感](http://www.share.minike.top/Article/details/539177834744.shtml)
-- 2026-06-30 08:19 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/47893.shtml)
+- 2026-06-30 08:34 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.minike.top/Article/details/1830984795.shtml)
+- 2026-06-30 08:10 - [健全中小学教师工资长效联动机制](http://www.share.minike.top/Article/details/876785937.shtml)
+- 2026-06-30 08:19 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](https://www.blog.minike.top/Article/details/292209618587.shtml)
+- 2026-06-30 08:19 - [巴西绝杀](https://www.blog.minike.top/Article/details/5040270.shtml)
+- 2026-06-30 08:11 - [内马尔中场休息积极鼓励队友](http://www.blog.kurohicncr.top/Article/details/7735997571.shtml)
+- 2026-06-30 08:17 - [周冬雨多次说演不了话剧文城](https://www.blog.minike.top/Article/details/103436649809.shtml)
+- 2026-06-30 08:13 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/293154.shtml)
+- 2026-06-30 08:21 - [IGN评测电影版后室](http://www.blog.minike.top/Article/details/44960.shtml)
+- 2026-06-30 08:12 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/344678996801.shtml)
+- 2026-06-30 08:22 - [古代人对纳妾的态度是什么样的？](https://www.share.kurohicncr.top/Article/details/51929405073.shtml)
+- 2026-06-30 08:29 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/79442416028.shtml)
+- 2026-06-30 08:11 - [德国罚丢3粒点球](http://www.share.kurohicncr.top/Article/details/231099251.shtml)
+- 2026-06-30 08:10 - [巴西绝杀](https://www.share.kurohicncr.top/Article/details/49166942036.shtml)
+- 2026-06-30 08:28 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/474562102.shtml)
+- 2026-06-30 08:23 - [张月收到黄灿灿辣货两眼发光](https://www.share.minike.top/Article/details/186958744.shtml)

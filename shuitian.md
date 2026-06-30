@@ -1,59 +1,61 @@
-# 百融智能陈树军：金融领域有用智能体的标准与落地路径
+# 海外嘉宾走进成都“全龄友好”社区 感受城乡宜居幸福底色
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日在北京举行。百融智能副总裁、中国互联网协会数字金融委员会副主任陈树军出席并演讲。 以下为演讲实录： 陈树军：尊敬的各位领导、各位嘉宾、各位同仁，大家好，我今天给大家汇报的主题是：金融领域有用智能体的标准与落地路径。 我在中信银行工作了20年，在廊坊银行工作10年，这30年在银行主要从
+金价大跌！有人越跌越买，有人变现94万离场《论语》为何说“有教无类”，而非“有诲无类”？保险公司用“赔付过泰坦尼克号”证明实力？客服回应南方多地高考撞上强降雨，雨水还将持续多久？手机广告弹窗乱象不断，别让App偷走用户的“拒绝权”买文创竟然如此“上头”，年轻人为何爱文创？收钱审核松、退款要举证……未成年网络消费“退款难”揭秘捷克政客执意再次窜台：反华利益链上的“角色扮演”住建部
 
 ## 正文
 
-专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日在北京举行。
+金价大跌！
 
-百融智能副总裁、中国互联网协会数字金融委员会副主任陈树军出席并演讲。
+有人越跌越买，有人变现94万离场《论语》为何说“有教无类”，而非“有诲无类”？
 
-以下为演讲实录： 陈树军：尊敬的各位领导、各位嘉宾、各位同仁，大家好，我今天给大家汇报的主题是：金融领域有用智能体的标准与落地路径。
+保险公司用“赔付过泰坦尼克号”证明实力？
 
-我在中信银行工作了20年，在廊坊银行工作10年，这30年在银行主要从事零售银行工作，服务老百姓，我发现银行对5%的客户提供了优质的有专业理财师、理财室、贵宾权益的服务，95%的客户几乎无人照料。
+客服回应南方多地高考撞上强降雨，雨水还将持续多久？
 
-2018年，我在编译《Bank 4.0》这本书的时候，产生了了用数字人为银行每一位客户都配备一名数字理财师的想法，叫一客一顾问。
+手机广告弹窗乱象不断，别让App偷走用户的“拒绝权”买文创竟然如此“上头”，年轻人为何爱文创？
 
-我从2018年就在多个论坛上宣讲这个思路，但是我一直没有得到实现的机会，终于人工智能来了，我选择了百融智能这个平台，我觉得有机会在百融智能公司来实现当年的这个梦想，让每一个金融客户都得到专业、优质的金融服务，实现真正的金融普惠。
+收钱审核松、退款要举证……未成年网络消费“退款难”揭秘捷克政客执意再次窜台：反华利益链上的“角色扮演”住建部：优化路网结构，补齐停车设施短板中消协提示：抵制“三无”空调产品，拒绝无证施工全球航司大幅下调2026年盈利预期，“票价很可能会居高不下”“I look look”，义乌，怎么就成“世界义乌”了？
 
-我今天给大家汇报的是这六个方面： 第一方面，我们从Hermes爆火来看AI Agent的进化逻辑 整个人工智能应用分为三类：（一）基于大模型生成内容，AIGC，从chatGPT问答式开始，现在进入多模态，可以生成文字、图片、程序代码、视频短剧、音乐、PPT、报告、总结等多模态内容，以Claude、Gemini、豆包、千问等为代表，（二）基于大模型推理，以Deepseek为代表，（三）基于大模型执行，各类Agent框架、平台涌现，以Manus、Coze扣子、Dify、百融百工为代表，然后又进化出龙虾、Hermes。
+局势骤然升级！
 
-AI从第一阶段规则型自动化，按指令执行，现在进入到连接型的Agent和进化型的Agent，Coze、Dify只是提供一个搭建智能体的平台，龙虾就可以直接动手执行，而Hermes是带有记忆、自主规划能力执行式AI，向个人助理领域迈进。
+一文速览美伊以最新动态“AI中转站”风险不容小觑 国家安全部发布提示为什么越来越多人爱逛美院“毕展”？
 
 ## 相关推荐
 
-- 2026-06-30 08:10 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
-- 2026-06-30 08:04 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
-- 2026-06-30 08:13 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
-- 2026-06-30 08:21 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-30 08:24 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-30 08:28 - [金鹰奖视后提名预测](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
-- 2026-06-30 08:14 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-30 08:01 - [张雪的一句“是我们”引发岛内热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-30 08:29 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-30 08:17 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
-- 2026-06-30 08:23 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-30 08:27 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-30 08:26 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-30 08:35 - [德国爆冷点球大战不敌巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-30 08:30 - [德国连续三届世界杯无缘16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-30 08:16 - [郑钦文 四年一轮游](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-30 08:12 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-30 08:17 - [中国新一轮出口管制直指日本命脉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-30 08:17 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-30 08:13 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
+- 2026-06-30 08:09 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-30 08:20 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-30 08:07 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-30 08:28 - [感动全网的699分女生想报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-30 08:26 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-30 08:30 - [郑钦文温网首轮出局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-30 08:18 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-30 08:17 - [第3集丨“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:21 - [中国新一轮出口管制直指日本命脉](http://www.blog.kurohicncr.top/Article/details/6422606767.shtml)
-- 2026-06-30 08:25 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/475806.shtml)
-- 2026-06-30 08:20 - [徐亮怒斥世界杯踢假球](http://www.share.kurohicncr.top/Article/details/7952475.shtml)
-- 2026-06-30 08:16 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/442750.shtml)
-- 2026-06-30 08:02 - [世界杯巴拉圭点球淘汰德国](https://www.share.kurohicncr.top/Article/details/70119181.shtml)
-- 2026-06-30 08:26 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/27948216.shtml)
-- 2026-06-30 08:22 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/6906026.shtml)
-- 2026-06-30 08:14 - [张帅晋级温网次轮](http://www.share.kurohicncr.top/Article/details/71703525.shtml)
-- 2026-06-30 08:08 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/3111397642.shtml)
-- 2026-06-30 08:26 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.kurohicncr.top/Article/details/967243549.shtml)
-- 2026-06-30 08:10 - [F1奥地利站赛后复盘](https://www.blog.kurohicncr.top/Article/details/1914387.shtml)
-- 2026-06-30 08:12 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/33321859393.shtml)
-- 2026-06-30 08:25 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/3469377452.shtml)
-- 2026-06-30 08:06 - [老外对中国cosplay竟这样评价…](http://www.share.kurohicncr.top/Article/details/21782089.shtml)
-- 2026-06-30 08:03 - [青春环游记第三季](https://www.blog.minike.top/Article/details/393868.shtml)
+- 2026-06-30 08:18 - [孙兴慜道歉](http://www.share.kurohicncr.top/Article/details/61802456226.shtml)
+- 2026-06-30 08:31 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](http://www.blog.minike.top/Article/details/3176534.shtml)
+- 2026-06-30 08:18 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/27678.shtml)
+- 2026-06-30 08:22 - [急先锋](http://www.share.kurohicncr.top/Article/details/313791340.shtml)
+- 2026-06-30 08:25 - [勇士续约波尔津吉斯](https://www.share.minike.top/Article/details/18353.shtml)
+- 2026-06-30 08:35 - [F1奥地利站赛后复盘](http://www.share.minike.top/Article/details/64780551140.shtml)
+- 2026-06-30 08:22 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/0721187140.shtml)
+- 2026-06-30 08:08 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/64084027.shtml)
+- 2026-06-30 08:11 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/1391367.shtml)
+- 2026-06-30 08:12 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/0609653.shtml)
+- 2026-06-30 08:07 - [4000美元是黄金新一轮下跌的开始吗](https://www.blog.kurohicncr.top/Article/details/2260824.shtml)
+- 2026-06-30 08:30 - [德国巴拉圭加时](https://www.blog.minike.top/Article/details/9180091094.shtml)
+- 2026-06-30 08:17 - [杨紫被质疑未使用原名](https://www.blog.kurohicncr.top/Article/details/94821943.shtml)
+- 2026-06-30 08:16 - [诺伊尔尽力了](http://www.share.minike.top/Article/details/75942373.shtml)
+- 2026-06-30 08:30 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/97224825241.shtml)

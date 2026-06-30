@@ -1,46 +1,56 @@
-# 中国宏桥于5月8日斥资4.19亿港元回购1251.05万股
+# 逆市拉升！920510，30cm涨停
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-中国宏桥（01378）发布公告，于2026年5月8日，该公司斥资4.19亿港元回购1251.05万股股份，每股回购价32.86-34港元。责任编辑：卢昱君
+【导读】鸡产业、具身智能板块逆市拉升，贵金属板块跌幅居前 中国基金报记者 李智 一起来看下最新的市场情况及资讯。 6月8日早盘，A股三大指数均大幅低开，随后指数震荡回升。截至发稿，沪指跌0.83%，深成指跌1.38%，创业板指跌1.64%，科创综指跌1.20%。 从板块来看，鸡产业、具身智能、石油化工等板块表现相对活跃；而贵金属、发电设备、半导体板块跌幅居前。 港股方面，恒生指
 
 ## 正文
 
-中国宏桥（01378）发布公告，于2026年5月8日，该公司斥资4.19亿港元回购1251.05万股股份，每股回购价32.86-34港元。
+【导读】鸡产业、具身智能板块逆市拉升，贵金属板块跌幅居前 中国基金报记者 李智 一起来看下最新的市场情况及资讯。
 
-责任编辑：卢昱君
+6月8日早盘，A股三大指数均大幅低开，随后指数震荡回升。
+
+截至发稿，沪指跌0.83%，深成指跌1.38%，创业板指跌1.64%，科创综指跌1.20%。
+
+从板块来看，鸡产业、具身智能、石油化工等板块表现相对活跃；而贵金属、发电设备、半导体板块跌幅居前。
+
+港股方面，恒生指数跌逾1%，恒生科技指数跌超2%。
+
+百度集团跌超6%，舜宇光学科技、华虹宏力、商汤等跌幅居前。
+
+鸡产业概念股逆市活跃 养鸡概念股逆市活跃，湘佳股份涨停，晓鸣股份、益生股份、民和股份等跟涨。
+
+消息面上，近期很多消费者反映，鸡蛋价格上涨明显。
 
 ## 相关推荐
 
-- 2026-06-30 08:07 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-30 08:18 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-30 08:05 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
-- 2026-06-30 08:05 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
-- 2026-06-30 08:27 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-30 08:04 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-30 08:08 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
-- 2026-06-30 08:27 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
-- 2026-06-30 08:13 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-30 08:09 - [郑钦文温网一轮游](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-30 08:25 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
-- 2026-06-30 08:11 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-30 08:32 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-30 08:15 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-30 08:33 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-30 08:14 - [哈弗茨头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-30 08:06 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-30 08:13 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
+- 2026-06-30 08:23 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-30 08:20 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-30 08:10 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-30 08:25 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:22 - [F1奥地利站赛后复盘](https://www.share.kurohicncr.top/Article/details/45390584787.shtml)
-- 2026-06-30 08:24 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/163125046.shtml)
-- 2026-06-30 08:20 - [德国队连续三届世界杯无缘16强](https://www.share.minike.top/Article/details/042895452.shtml)
-- 2026-06-30 08:04 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/931517883749.shtml)
-- 2026-06-30 08:02 - [现在叛逆期的孩子最怕的是什么？](http://www.blog.kurohicncr.top/Article/details/903381.shtml)
-- 2026-06-30 08:08 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.kurohicncr.top/Article/details/92746.shtml)
-- 2026-06-30 08:08 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.minike.top/Article/details/859267952.shtml)
-- 2026-06-30 08:00 - [恋与深空道歉声明](https://www.blog.minike.top/Article/details/94886465.shtml)
-- 2026-06-30 08:03 - [如果有二次元高中是什么样子的？](https://www.share.kurohicncr.top/Article/details/0359531273.shtml)
-- 2026-06-30 08:25 - [美人鱼](http://www.blog.minike.top/Article/details/2514770498.shtml)
-- 2026-06-30 08:01 - [日本遭读秒绝杀 森保一：我水平不够](https://www.blog.minike.top/Article/details/467249370.shtml)
-- 2026-06-30 08:10 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/85606740173.shtml)
-- 2026-06-30 08:22 - [巴西扳平比分](http://www.share.kurohicncr.top/Article/details/297100.shtml)
-- 2026-06-30 08:01 - [Melo向柳智敏张元英道歉](https://www.share.kurohicncr.top/Article/details/438624749.shtml)
-- 2026-06-30 08:22 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/688889942268.shtml)
+- 2026-06-30 08:30 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.kurohicncr.top/Article/details/252737.shtml)
+- 2026-06-30 08:06 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/231087.shtml)
+- 2026-06-30 08:20 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.minike.top/Article/details/47298921.shtml)
+- 2026-06-30 08:10 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/172559.shtml)
+- 2026-06-30 08:31 - [全新问界M9现身美国街头](http://www.blog.kurohicncr.top/Article/details/7327737.shtml)
+- 2026-06-30 08:29 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/98201609999.shtml)
+- 2026-06-30 08:17 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/675386089125.shtml)
+- 2026-06-30 08:08 - [周生如故](http://www.blog.kurohicncr.top/Article/details/2454561360.shtml)
+- 2026-06-30 08:35 - [爱很美味](https://www.share.kurohicncr.top/Article/details/291203988629.shtml)
+- 2026-06-30 08:25 - [莫兰特被交易到开拓者](http://www.share.kurohicncr.top/Article/details/393347837558.shtml)
+- 2026-06-30 08:11 - [全新问界M9现身美国街头](http://www.blog.kurohicncr.top/Article/details/30977130461.shtml)
+- 2026-06-30 08:27 - [大蒜晒外面被路过女子连盆端走](https://www.share.minike.top/Article/details/4842110.shtml)
+- 2026-06-30 08:13 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/84363.shtml)
+- 2026-06-30 08:21 - [网瘾賊大的阿嬷](http://www.share.minike.top/Article/details/0399507654.shtml)
+- 2026-06-30 08:11 - [安切洛蒂 换人](http://www.blog.minike.top/Article/details/75462615.shtml)

@@ -1,57 +1,59 @@
-# 中国太保副总裁俞斌：从“+AI”走向“AI+”，保险业竞争正从工具升级转向经营重构
+# 午盘：美股回吐涨幅，芯片股再度下挫
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-保险业的人工智能应用，正从单点提效进一步走向经营重构。 近日，中国太保副总裁俞斌在接受澎湃新闻采访时表示，对保险公司而言，当前最重要的战略抉择，已经不再是“要不要用AI”，而是选择停留在“+AI”的优化区，还是迈向“AI+”的重构区。 在俞斌看来，从“+AI”到“AI+”，并不只是多上一些模型、多落几个场景，而是思维方式和经营逻辑的变化。“+AI”更像是在现有流程中加装工具，解
+北京时间6月10日凌晨，美股周二午盘走低。芯片股在经历一日反弹后失去了上涨势头。油价下跌推动原材料和非必需消费品板块逆势上扬。市场继续关注中东局势的最新发展。 道指跌278.33点，跌幅为0.55%，报50507.68点；纳指跌577.52点，跌幅为2.23%，报25352.14点；标普500指数跌95.41点，跌幅为1.29%，报7310.32点。 iShares半导体ETF
 
 ## 正文
 
-保险业的人工智能应用，正从单点提效进一步走向经营重构。
+北京时间6月10日凌晨，美股周二午盘走低。
 
-近日，中国太保副总裁俞斌在接受澎湃新闻采访时表示，对保险公司而言，当前最重要的战略抉择，已经不再是“要不要用AI”，而是选择停留在“+AI”的优化区，还是迈向“AI+”的重构区。
+芯片股在经历一日反弹后失去了上涨势头。
 
-在俞斌看来，从“+AI”到“AI+”，并不只是多上一些模型、多落几个场景，而是思维方式和经营逻辑的变化。
+油价下跌推动原材料和非必需消费品板块逆势上扬。
 
-“+AI”更像是在现有流程中加装工具，解决局部痛点；“AI+”则是把AI作为底层能力，去重构产品、服务、流程乃至商业模式。
+市场继续关注中东局势的最新发展。
 
-也正因此，保险公司未来比拼的重点，未必只是单点效率，而是谁能更早完成从局部优化到系统重塑的跨越。
+道指跌278.33点，跌幅为0.55%，报50507.68点；纳指跌577.52点，跌幅为2.23%，报25352.14点；标普500指数跌95.41点，跌幅为1.29%，报7310.32点。
 
-落到保险主业上，俞斌提到，AI最可能率先带来变化的，是销售、营运和经营组织三个层面。
+iShares半导体ETF在周一反弹6%后，周二午间下跌近4%。
 
-首先是在销售端，随着客户越来越多借助豆包、DeepSeek等工具进行保险产品咨询和比较，新的流量入口正在改变客户决策方式。
+该ETF上周五暴跌10%，创下六年来最差单日表现，因投资者担心人工智能驱动的芯片涨势过快过猛。
 
-未来保险公司面对的，可能不只是传统渠道中的客户，而是与超级AI入口之间的数据和产品交互，谁更早适应这种变化，谁就更可能在新一轮竞争中占据主动。
+美光科技大跌5.9%，该股在周一反弹10%，上周五暴跌13%。
 
 ## 相关推荐
 
-- 2026-06-30 08:06 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-30 08:10 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-30 08:21 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
-- 2026-06-30 08:11 - [现在叛逆期的孩子最怕的是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-30 08:24 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-30 08:05 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
-- 2026-06-30 08:19 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-30 08:28 - [电影抓特务上映11天破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-30 08:03 - [德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-30 08:22 - [德国进球被吹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-30 08:01 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-30 08:06 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-30 08:18 - [欧洲装一台空调有多难](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-30 08:32 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-30 08:17 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-30 08:23 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-30 08:17 - [孙颖莎王楚钦晋级8强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-30 08:27 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-30 08:19 - [女子遭下药退赔偿拟追刑责](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-30 08:12 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-30 08:07 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-30 08:16 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-30 08:25 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-30 08:15 - [千香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:22 - [巴拉圭先进球了](http://www.blog.minike.top/Article/details/37601960.shtml)
-- 2026-06-30 08:12 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/99147.shtml)
-- 2026-06-30 08:05 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.kurohicncr.top/Article/details/722069.shtml)
-- 2026-06-30 08:28 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/79465872.shtml)
-- 2026-06-30 08:08 - [张帅晋级温网次轮](http://www.blog.minike.top/Article/details/13648128.shtml)
-- 2026-06-30 08:04 - [莫兰特转投开拓者效力](http://www.share.kurohicncr.top/Article/details/68612.shtml)
-- 2026-06-30 08:28 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/18212.shtml)
-- 2026-06-30 08:25 - [德国队世界杯点球大战首败](https://www.blog.minike.top/Article/details/20358161.shtml)
-- 2026-06-30 08:17 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/376732155.shtml)
-- 2026-06-30 08:29 - [巴西扳平比分](http://www.share.minike.top/Article/details/7453163.shtml)
-- 2026-06-30 08:10 - [刘宇宁高情商化解谁站C位](http://www.share.kurohicncr.top/Article/details/845546676237.shtml)
-- 2026-06-30 08:19 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/035305398.shtml)
-- 2026-06-30 08:17 - [德国vs巴拉圭](https://www.blog.minike.top/Article/details/42662031308.shtml)
-- 2026-06-30 08:21 - [人类...完蛋了...](https://www.share.kurohicncr.top/Article/details/06047.shtml)
-- 2026-06-30 08:28 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/489806694.shtml)
+- 2026-06-30 08:06 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/01394465273.shtml)
+- 2026-06-30 08:11 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/41612212228.shtml)
+- 2026-06-30 08:17 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.kurohicncr.top/Article/details/800634.shtml)
+- 2026-06-30 08:07 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/10209286055.shtml)
+- 2026-06-30 08:08 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.minike.top/Article/details/0348290588.shtml)
+- 2026-06-30 08:11 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/214993651.shtml)
+- 2026-06-30 08:22 - [杨紫学位证上就是杨紫](https://www.blog.minike.top/Article/details/059996796.shtml)
+- 2026-06-30 08:11 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/151359720.shtml)
+- 2026-06-30 08:22 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/71940446.shtml)
+- 2026-06-30 08:31 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/1259901.shtml)
+- 2026-06-30 08:25 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/1640358.shtml)
+- 2026-06-30 08:17 - [王楚钦说配合稍微有些陌生感](http://www.blog.minike.top/Article/details/502527.shtml)
+- 2026-06-30 08:28 - [郑钦文温网一轮游](http://www.blog.kurohicncr.top/Article/details/4425816184.shtml)
+- 2026-06-30 08:25 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/80206507.shtml)
+- 2026-06-30 08:25 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/110777.shtml)

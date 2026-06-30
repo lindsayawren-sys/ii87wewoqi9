@@ -1,54 +1,52 @@
-# 对话魏建军：汽车不是快消品，要以互惠互利促进国车出海
+# 湖北武汉：生态赋能宜居 善治滋养民生
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-新浪科技讯 5月10日下午消息，在2026长城汽车智慧工厂半程马拉松活动期间，长城汽车董事长魏建军与新浪科技等媒体对话。 谈及出海话题，魏建军表示，汽车不是快消品，生命周期比较长，价值量比较大，是每个家庭买房之后的第二大开支，保值率、使用费用都很敏感。中国车企要高质量走出去，给海外消费者带来长期可信赖的消费，如果质量、售后不能保证，甚至企业都不能保证长期存在，会让海外用户对中国
+发布时间：2026年06月09日 10:25 来源：中国新闻网 近日，“人权行动看中国·2026”主题参访活动湖北行在武汉启动，多个国际组织的官员、代表、专家与中国人权学者共同参访、交流。记者随团走访发现，武汉深耕生态治理、基层善治与文脉传承，将城市精细化建设与民生改善深度绑定，持续优化人居环境、补齐民生短板、增厚群众福祉。 南开大学人权研究中心主任常健表示，随着中国经济社会持
 
 ## 正文
 
-新浪科技讯 5月10日下午消息，在2026长城汽车智慧工厂半程马拉松活动期间，长城汽车董事长魏建军与新浪科技等媒体对话。
+发布时间：2026年06月09日 10:25 来源：中国新闻网 近日，“人权行动看中国·2026”主题参访活动湖北行在武汉启动，多个国际组织的官员、代表、专家与中国人权学者共同参访、交流。
 
-谈及出海话题，魏建军表示，汽车不是快消品，生命周期比较长，价值量比较大，是每个家庭买房之后的第二大开支，保值率、使用费用都很敏感。
+记者随团走访发现，武汉深耕生态治理、基层善治与文脉传承，将城市精细化建设与民生改善深度绑定，持续优化人居环境、补齐民生短板、增厚群众福祉。
 
-中国车企要高质量走出去，给海外消费者带来长期可信赖的消费，如果质量、售后不能保证，甚至企业都不能保证长期存在，会让海外用户对中国企业产生不信任。
+南开大学人权研究中心主任常健表示，随着中国经济社会持续发展，民众的生活品质不断提升，人民的生存权、发展权、环境权得到全方位改善。
 
-“企业出海，要带来税收、就业，尊重他国的法律、文化，只有这样才能持久的互惠互利的发展。
+武汉生态治理、老城活化、基层善治的一系列实践，是中国以发展促人权的生动缩影。
 
-”责任编辑：石秀珍 SF183
+记者 邹浩 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 08:22 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-30 08:08 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
-- 2026-06-30 08:20 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-30 08:24 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-30 08:06 - [德国队连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
-- 2026-06-30 08:09 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-30 08:02 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-30 08:20 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-30 08:11 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
-- 2026-06-30 08:19 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-30 08:12 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-30 08:05 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-30 08:29 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-30 08:00 - [巴西足球能否再现昔日荣光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-30 08:12 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-30 08:25 - [泰山景区回应修建刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-30 08:34 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-30 08:19 - [网友写差评被店家“挂”门口避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-30 08:10 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-30 08:25 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-30 08:29 - [田中碧失误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-30 08:20 - [Melo向柳智敏张元英道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-30 08:21 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-30 08:26 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-30 08:13 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-30 08:18 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:16 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/16368131.shtml)
-- 2026-06-30 08:24 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/331847480733.shtml)
-- 2026-06-30 08:03 - [逃狱兄弟](http://www.blog.minike.top/Article/details/132627705179.shtml)
-- 2026-06-30 08:17 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/429899.shtml)
-- 2026-06-30 08:13 - [又一家县级医院关停门诊输液大厅](http://www.blog.minike.top/Article/details/12616939.shtml)
-- 2026-06-30 08:12 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/6394477534.shtml)
-- 2026-06-30 08:20 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.kurohicncr.top/Article/details/76658895.shtml)
-- 2026-06-30 08:02 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/176799002686.shtml)
-- 2026-06-30 08:17 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/309296934050.shtml)
-- 2026-06-30 08:19 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/7914812507.shtml)
-- 2026-06-30 08:09 - [高质量发展看新疆](https://www.share.minike.top/Article/details/849160676.shtml)
-- 2026-06-30 08:29 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/94824298.shtml)
-- 2026-06-30 08:18 - [詹姆斯下赛季去哪](http://www.blog.kurohicncr.top/Article/details/893546503163.shtml)
-- 2026-06-30 08:28 - [又一家县级医院关停门诊输液大厅](http://www.share.minike.top/Article/details/918564582963.shtml)
-- 2026-06-30 08:00 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/6926172081.shtml)
+- 2026-06-30 08:33 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/862214141.shtml)
+- 2026-06-30 08:06 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/0566863.shtml)
+- 2026-06-30 08:20 - [德国巴拉圭进入点球大战](https://www.blog.minike.top/Article/details/0756433.shtml)
+- 2026-06-30 08:30 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/9612329.shtml)
+- 2026-06-30 08:35 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/977651556.shtml)
+- 2026-06-30 08:15 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.kurohicncr.top/Article/details/531110903.shtml)
+- 2026-06-30 08:13 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/200106.shtml)
+- 2026-06-30 08:12 - [德国爆冷点球大战不敌巴拉圭](https://www.share.minike.top/Article/details/9314198368.shtml)
+- 2026-06-30 08:06 - [IGN评测电影版后室](https://www.blog.minike.top/Article/details/6350864695.shtml)
+- 2026-06-30 08:28 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/26665.shtml)
+- 2026-06-30 08:22 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](http://www.blog.kurohicncr.top/Article/details/384285979.shtml)
+- 2026-06-30 08:27 - [千与千寻](https://www.share.minike.top/Article/details/739643991.shtml)
+- 2026-06-30 08:22 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.kurohicncr.top/Article/details/687956.shtml)
+- 2026-06-30 08:23 - [如何改变自己太负责任的性格?](https://www.blog.kurohicncr.top/Article/details/2355485897.shtml)
+- 2026-06-30 08:29 - [好像看到了人类带孩子崩溃的样子](https://www.blog.minike.top/Article/details/838737408569.shtml)

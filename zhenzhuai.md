@@ -1,59 +1,57 @@
-# 利润消失术！五粮液会计差错更正超100亿元！符合条件股民可预登记索赔
+# SpaceX 以创纪录的新股配售比例吸引散户投资者
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-近日，宜宾五粮液（维权）股份有限公司（以下简称“五粮液”或“公司”）发布《关于前期会计差错更正的公告》，公司对2025年业务模式进行梳理，基于谨慎性原则，调整2025年部分业务收入确认相关核算。上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，于2025年4月26日-2026年4月30日期间买入且有持仓，无论在2026年5月1日及之后是否卖出的
+埃隆·马斯克显然尊重散户投资者的力量。他的 SpaceX 首次公开募股将提供大型股上市中有史以来最大规模的散户配售，该公司将高达 750 亿美元发行额的四分之一留给个人投资者。 据知情人士透露，这位亿万富翁创始人希望从一开始就让小型股东在这家火箭与卫星集团的股权结构中占据中心位置，这反映了马斯克长期以来偏爱散户投资者而非华尔街机构的倾向。 “埃隆的理念是关于广泛参与，这就是他希
 
 ## 正文
 
-近日，宜宾五粮液（维权）股份有限公司（以下简称“五粮液”或“公司”）发布《关于前期会计差错更正的公告》，公司对2025年业务模式进行梳理，基于谨慎性原则，调整2025年部分业务收入确认相关核算。
+埃隆·马斯克显然尊重散户投资者的力量。
 
-上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，于2025年4月26日-2026年4月30日期间买入且有持仓，无论在2026年5月1日及之后是否卖出的投资者，可通过“新浪股民维权平台”自愿预登记索赔。
+他的 SpaceX 首次公开募股将提供大型股上市中有史以来最大规模的散户配售，该公司将高达 750 亿美元发行额的四分之一留给个人投资者。
 
-（赵敬国律师专栏） 回顾本案，2026年4月30日晚上，五粮液公司发布《关于前期会计差错更正的公告》，公司对 2025 年业务模式进行梳理，基于谨慎性原则，调整2025年部分业务收入确认相关核算。
+据知情人士透露，这位亿万富翁创始人希望从一开始就让小型股东在这家火箭与卫星集团的股权结构中占据中心位置，这反映了马斯克长期以来偏爱散户投资者而非华尔街机构的倾向。
 
-此次前期会计差错更正涉及 2025 年已披露的一季度、半年度、三季度合并资产负债表与合并利润表的部分项目。
+“埃隆的理念是关于广泛参与，这就是他希望纳入散户的原因，”其中一位知情人士表示。
 
-对2025年前三季度财务数据颠覆性调整：营收从609.45亿元下调至306.38亿元，归母净利润从215.11亿元砍至64.75亿元——超300亿元营收、150亿元净利一夜“消失”，令股民震惊。
+此前，还没有哪家上市公司能同时拥有 SpaceX 这样的公司形象和马斯克这样的个人影响力。
 
-信本股民索赔团队提醒，五粮液发布会计差错更正，因此受损投资者可通过“新浪股民维权平台”自愿预登记索赔。
+这位世界首富在 X 平台上向 2.4 亿粉丝推广他的企业，而“星舰”的发射已使该公司成为全球最知名的私营集团之一。
 
-索赔条件： 五粮液：于2025年4月26日-2026年4月30日期间买入且有持仓，无论在2026年5月1日及之后是否卖出。
+在大型股 IPO 中，散户买家历来获得发行股份的 5% 至 10%。
 
-（具体赔付范围由法院确定）（五粮液维权入口） （本文由上海市信本律师事务所合伙人赵敬国律师供稿，不代表新浪财经的观点。
+此次配售规模如此之大，以至于 SpaceX 采取了不同寻常的举措，在招股说明书中明确列出了五家分销股票的在线经纪商。
 
 ## 相关推荐
 
-- 2026-06-30 08:07 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
-- 2026-06-30 08:10 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-30 08:16 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-30 08:23 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-30 08:09 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-30 08:29 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-30 08:27 - [网友写差评被店家“挂”门口避雷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-30 08:28 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-30 08:17 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-30 08:25 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-30 08:18 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-30 08:26 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
-- 2026-06-30 08:07 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-30 08:32 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-30 08:33 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-30 08:19 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-30 08:11 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
+- 2026-06-30 08:35 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-30 08:27 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-30 08:32 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-30 08:11 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-30 08:32 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-30 08:25 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-30 08:30 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:18 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/364359.shtml)
-- 2026-06-30 08:28 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/179560389.shtml)
-- 2026-06-30 08:03 - [大学生遇地震裹被子从5楼冲下](https://www.blog.minike.top/Article/details/269688701777.shtml)
-- 2026-06-30 08:01 - [豆包收费了，你还会用吗？](https://www.blog.minike.top/Article/details/9823576.shtml)
-- 2026-06-30 08:01 - [日本球员说被绝杀非常不甘心](http://www.blog.kurohicncr.top/Article/details/002147.shtml)
-- 2026-06-30 08:22 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/1796394513.shtml)
-- 2026-06-30 08:15 - [德国巴拉圭 折磨](https://www.share.minike.top/Article/details/89359.shtml)
-- 2026-06-30 08:24 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/20453325.shtml)
-- 2026-06-30 08:20 - [世界杯巴拉圭点球淘汰德国](https://www.share.kurohicncr.top/Article/details/13142083401.shtml)
-- 2026-06-30 08:07 - [恋与深空制作组回应近期争议](http://www.blog.kurohicncr.top/Article/details/56526134.shtml)
-- 2026-06-30 08:03 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](http://www.share.kurohicncr.top/Article/details/30942.shtml)
-- 2026-06-30 08:05 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/61569866.shtml)
-- 2026-06-30 08:18 - [张雪的一句“是我们”引发岛内热议](https://www.share.minike.top/Article/details/353252998809.shtml)
-- 2026-06-30 08:23 - [德国巴拉圭 折磨](http://www.share.minike.top/Article/details/63152708.shtml)
-- 2026-06-30 08:13 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/75525225.shtml)
+- 2026-06-30 08:07 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/1840040.shtml)
+- 2026-06-30 08:20 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/05676.shtml)
+- 2026-06-30 08:13 - [莫兰特被交易到开拓者](http://www.share.minike.top/Article/details/343531965025.shtml)
+- 2026-06-30 08:10 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.kurohicncr.top/Article/details/7905806.shtml)
+- 2026-06-30 08:33 - [覃予萱晋级WTT美国大满贯女单32强](http://www.blog.kurohicncr.top/Article/details/19983588.shtml)
+- 2026-06-30 08:25 - [董路：谁赢谁是“正路子”](https://www.blog.minike.top/Article/details/41146041.shtml)
+- 2026-06-30 08:31 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/8884902.shtml)
+- 2026-06-30 08:30 - [人类...完蛋了...](https://www.blog.minike.top/Article/details/439047930391.shtml)
+- 2026-06-30 08:16 - [《男人至死是傻得儿》](https://www.blog.minike.top/Article/details/845460971.shtml)
+- 2026-06-30 08:09 - [大蒜晒外面被路过女子连盆端走](https://www.blog.minike.top/Article/details/81613.shtml)
+- 2026-06-30 08:09 - [男子中医院拔火罐致浅2度烧伤](http://www.share.kurohicncr.top/Article/details/61974.shtml)
+- 2026-06-30 08:18 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/622616.shtml)
+- 2026-06-30 08:16 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.minike.top/Article/details/606158360674.shtml)
+- 2026-06-30 08:29 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/684751137163.shtml)
+- 2026-06-30 08:29 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/312585093.shtml)

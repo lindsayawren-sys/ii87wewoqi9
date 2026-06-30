@@ -1,56 +1,58 @@
-# 美元兑日元徘徊157关口等待美国非农数据指引
+# 印尼市场三杀：股市挫4%、汇率跌至纪录低点、10年债收益率升33个基点
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-汇通财经APP讯——周五亚洲交易时段，美元兑日元（USD/JPY）整体维持横盘整理走势，汇价围绕157.00附近波动。此前日本政府疑似再次出手干预外汇市场，令日元阶段性企稳，市场对于日本官方后续行动的警惕情绪明显升温。 近期外汇市场的核心焦点，依然集中在日本汇率干预、美联储利率政策以及中东地缘风险变化等多个因素之间的博弈。此前美元兑日元一度快速升至阶段高位，主要受到美日利差持续
+印尼金融市场周一跌势加剧，该国债券、股票和货币同步下挫。 该国10年期政府公债收益率跃升33个基点，创一年多来新高。基准股指一度暴跌4%，之后跌幅收窄，印尼盾一度下跌0.8%，跌至纪录低点。 面对持续恶化的市场卖压，印尼正面临愈来愈多要求，呼吁政府除了口头保证之外，应提出更具体措施以遏止抛售；投资人正寻求更强烈讯号，以确认当局将维持政策纪律并支撑市场。外界越来越担心政府治理经济
 
 ## 正文
 
-汇通财经APP讯——周五亚洲交易时段，美元兑日元（USD/JPY）整体维持横盘整理走势，汇价围绕157.00附近波动。
+印尼金融市场周一跌势加剧，该国债券、股票和货币同步下挫。
 
-此前日本政府疑似再次出手干预外汇市场，令日元阶段性企稳，市场对于日本官方后续行动的警惕情绪明显升温。
+该国10年期政府公债收益率跃升33个基点，创一年多来新高。
 
-近期外汇市场的核心焦点，依然集中在日本汇率干预、美联储利率政策以及中东地缘风险变化等多个因素之间的博弈。
+基准股指一度暴跌4%，之后跌幅收窄，印尼盾一度下跌0.8%，跌至纪录低点。
 
-此前美元兑日元一度快速升至阶段高位，主要受到美日利差持续扩大的推动。
+面对持续恶化的市场卖压，印尼正面临愈来愈多要求，呼吁政府除了口头保证之外，应提出更具体措施以遏止抛售；投资人正寻求更强烈讯号，以确认当局将维持政策纪律并支撑市场。
 
-不过，随着日本当局疑似连续入场稳定汇率，市场短线投机资金开始有所收敛。
+外界越来越担心政府治理经济的能力，新的大宗商品出口规则引发的混乱，以及印尼主权信用状况再次受到审查，都打击了投资者的信心。
 
-日本政府近期可能已动用约10万亿日元支持本币汇率。
+新加坡的SGMC Capital Pte合伙人Mohit Mirpuri表示，接下来的两周至关重要；市场正寻求明确迹象，证明政府具备财政纪律、政策一致性，以及维护总体经济稳定的强烈承诺。
 
-日本最高外汇事务官员三村淳表示，日本政府已经准备好应对外汇市场中的投机行为，并将在必要时采取措施稳定市场。
+分析师表示，在印尼央行本月公布利率决策以及MSCI对印尼投资适格性的评估报告出炉之前，市场情绪仍可能保持悲观。
 
-不过，其并未明确确认是否已经实施汇市干预。
+即使财政部与央行周末宣布新措施以支撑公债收益率并吸引资金流入，市场对经济政策团队可能改组的揣测，仍进一步加剧不安情绪。
 
 ## 相关推荐
 
-- 2026-06-30 08:28 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
-- 2026-06-30 08:29 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-30 08:02 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-30 08:02 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-30 08:29 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
-- 2026-06-30 08:29 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-30 08:06 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
-- 2026-06-30 08:11 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-30 08:29 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-30 08:24 - [杨紫学位证上就是杨紫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-30 08:12 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-30 08:08 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-30 08:21 - [郑钦文温网首轮出局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-30 08:12 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-30 08:33 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-30 08:12 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
+- 2026-06-30 08:18 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-30 08:10 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-30 08:30 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-30 08:31 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-30 08:24 - [曝老詹对自由市场态度与以往截然不同](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-30 08:21 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:10 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](http://www.share.minike.top/Article/details/79903.shtml)
-- 2026-06-30 08:12 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/95232512237.shtml)
-- 2026-06-30 08:22 - [孙兴慜发长文致歉](http://www.blog.kurohicncr.top/Article/details/6723867.shtml)
-- 2026-06-30 08:19 - [全新问界M9现身美国街头](http://www.blog.minike.top/Article/details/184421206.shtml)
-- 2026-06-30 08:01 - [全球最火存储ETF纳入兆易创新](http://www.blog.minike.top/Article/details/41440003247.shtml)
-- 2026-06-30 08:05 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/749013288.shtml)
-- 2026-06-30 08:08 - [王欣瑜连续4年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/7265489.shtml)
-- 2026-06-30 08:29 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/850264649.shtml)
-- 2026-06-30 08:07 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/728784910499.shtml)
-- 2026-06-30 08:22 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/65094404036.shtml)
-- 2026-06-30 08:22 - [巴西扳平比分](http://www.blog.minike.top/Article/details/979026791.shtml)
-- 2026-06-30 08:01 - [齐思钧回复张月](https://www.blog.kurohicncr.top/Article/details/0657605894.shtml)
-- 2026-06-30 08:20 - [德国队连续三届世界杯无缘16强](https://www.share.minike.top/Article/details/60947.shtml)
-- 2026-06-30 08:11 - [老外对中国cosplay竟这样评价…](https://www.share.minike.top/Article/details/63111259.shtml)
-- 2026-06-30 08:05 - [日本半场1比0领先巴西](https://www.share.minike.top/Article/details/041062117580.shtml)
+- 2026-06-30 08:20 - [存储芯片龙头提示风险](https://www.share.minike.top/Article/details/645611123711.shtml)
+- 2026-06-30 08:26 - [女心理师](https://www.blog.minike.top/Article/details/59530.shtml)
+- 2026-06-30 08:31 - [女心理师](https://www.share.minike.top/Article/details/4147580.shtml)
+- 2026-06-30 08:31 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/11600827.shtml)
+- 2026-06-30 08:34 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/852863933822.shtml)
+- 2026-06-30 08:20 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/594329.shtml)
+- 2026-06-30 08:17 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/844771373646.shtml)
+- 2026-06-30 08:16 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/2539417.shtml)
+- 2026-06-30 08:22 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/5139891057.shtml)
+- 2026-06-30 08:32 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](https://www.share.kurohicncr.top/Article/details/90343.shtml)
+- 2026-06-30 08:23 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.kurohicncr.top/Article/details/362449145.shtml)
+- 2026-06-30 08:23 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/548289.shtml)
+- 2026-06-30 08:33 - [又一家县级医院关停门诊输液大厅](http://www.share.minike.top/Article/details/956958820.shtml)
+- 2026-06-30 08:15 - [巴西2比1日本](http://www.blog.minike.top/Article/details/298514030.shtml)
+- 2026-06-30 08:29 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/2706044552.shtml)

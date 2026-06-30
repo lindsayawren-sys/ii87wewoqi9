@@ -1,60 +1,57 @@
-# 张峰：未来产业是各国竞相布局的战略高地
+# Ademi LLP调查Ensign Group证券欺诈指控
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日在北京举行。中国电子学会理事会党委书记、工业和信息化部原总工程师张峰出席并致辞。 张峰指出，放眼全球，科技革命与产业变革正迈向“规模化商用”的深化阶段。以通用人工智能为代表的技术浪潮，持续重构产业格局、催生新业态。 在其看来，未来产业不仅是培育新质生产力、构建现代化产业体系的核心引擎
+律师事务所Ademi LLP周二宣布，正在对The Ensign Group， Inc．进行可能的证券欺诈索赔调查。该公司以ENSG为代码在纳斯达克上市。 该调查源于Ensign可能就其财务报表、业务运营及前景发布了不准确声明。2026年6月8日，一份做空报告详细指控称，Ensign旗下设施长期人手不足，违反了各州最低人员配备法律，并且该公司“将纳税人的资金输送至其高管及其关联
 
 ## 正文
 
-专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日在北京举行。
+律师事务所Ademi LLP周二宣布，正在对The Ensign Group， Inc．进行可能的证券欺诈索赔调查。
 
-中国电子学会理事会党委书记、工业和信息化部原总工程师张峰出席并致辞。
+该公司以ENSG为代码在纳斯达克上市。
 
-张峰指出，放眼全球，科技革命与产业变革正迈向“规模化商用”的深化阶段。
+该调查源于Ensign可能就其财务报表、业务运营及前景发布了不准确声明。
 
-以通用人工智能为代表的技术浪潮，持续重构产业格局、催生新业态。
+2026年6月8日，一份做空报告详细指控称，Ensign旗下设施长期人手不足，违反了各州最低人员配备法律，并且该公司“将纳税人的资金输送至其高管及其关联方”。
 
-在其看来，未来产业不仅是培育新质生产力、构建现代化产业体系的核心引擎，也是各国竞相布局的战略高地。
+受此消息影响，Ensign股价在6月8日大幅下跌。
 
-他提出，第一：坚守“创新为本”，勇闯技术“无人区”。
+据市场数据显示，该公司股价当日下跌8.2%，跌幅达13.88美元，收于每股156.42美元，投资者遭受显著损失。
 
-以定力深耕基础研究，拥抱技术变革，在前沿领域抢占先机。
+另一家律师事务所Block & Leviton也同时发起了调查。
 
-第二：秉持“生态共融”，共筑发展“共同体”。
+该所指出，Hunterbrook Media发布的报告详细指控Ensign的增长和盈利能力建立在其护理设施长期人手不足的基础之上，导致患者护理不达标、违反人员配备要求、质量指标误导以及大量关联方付款。
 
 ## 相关推荐
 
-- 2026-06-30 08:05 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-30 08:23 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
-- 2026-06-30 08:00 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
-- 2026-06-30 08:09 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
-- 2026-06-30 08:19 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
-- 2026-06-30 08:19 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-30 08:26 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
-- 2026-06-30 08:05 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-30 08:08 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-30 08:26 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-30 08:08 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-30 08:02 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-30 08:27 - [曝老詹对自由市场态度与以往截然不同](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-30 08:24 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
+- 2026-06-30 08:19 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-30 08:31 - [Melo向柳智敏张元英道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-30 08:32 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-30 08:12 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-30 08:35 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-30 08:22 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-30 08:34 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-30 08:12 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-30 08:23 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-30 08:09 - [森保一致歉：世界第一目标没能实现](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-30 08:07 - [世界杯巴拉圭点球淘汰德国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:11 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/795717.shtml)
-- 2026-06-30 08:19 - [小勒布伦WTT美国大满贯开门红](http://www.blog.kurohicncr.top/Article/details/95926.shtml)
-- 2026-06-30 08:08 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/397534972404.shtml)
-- 2026-06-30 08:13 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/268934721.shtml)
-- 2026-06-30 08:21 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/657368.shtml)
-- 2026-06-30 08:02 - [索马里女大使：想和中国一起搞事业](https://www.blog.kurohicncr.top/Article/details/0538332.shtml)
-- 2026-06-30 08:04 - [谢依霖说杨幂是聚会第一把张罗手](http://www.share.kurohicncr.top/Article/details/4698644399.shtml)
-- 2026-06-30 08:06 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/084474.shtml)
-- 2026-06-30 08:02 - [董卿父亲在报纸上发文悼念亡妻](https://www.share.minike.top/Article/details/183675688.shtml)
-- 2026-06-30 08:04 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/6107184.shtml)
-- 2026-06-30 08:07 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/34117244.shtml)
-- 2026-06-30 08:28 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.minike.top/Article/details/05769263519.shtml)
-- 2026-06-30 08:03 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.kurohicncr.top/Article/details/979639114838.shtml)
-- 2026-06-30 08:11 - [委内瑞拉地震死亡人数升至1719人](http://www.blog.minike.top/Article/details/21558788.shtml)
-- 2026-06-30 08:16 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/742396.shtml)
+- 2026-06-30 08:13 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/67022.shtml)
+- 2026-06-30 08:10 - [世界杯巴拉圭点球淘汰德国](http://www.share.kurohicncr.top/Article/details/10846.shtml)
+- 2026-06-30 08:33 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/855821694190.shtml)
+- 2026-06-30 08:17 - [董卿父亲在报纸上发文悼念亡妻](http://www.share.minike.top/Article/details/41908352327.shtml)
+- 2026-06-30 08:14 - [日本进球](http://www.share.kurohicncr.top/Article/details/55135181948.shtml)
+- 2026-06-30 08:06 - [巴西扳平比分](http://www.share.minike.top/Article/details/66444241.shtml)
+- 2026-06-30 08:27 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/087840622.shtml)
+- 2026-06-30 08:12 - [扬名立万](https://www.blog.minike.top/Article/details/80814104.shtml)
+- 2026-06-30 08:18 - [德国队连续三届世界杯无缘16强](https://www.share.minike.top/Article/details/4770944446.shtml)
+- 2026-06-30 08:18 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/566794379710.shtml)
+- 2026-06-30 08:11 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/880382091604.shtml)
+- 2026-06-30 08:25 - [巴西绝杀](https://www.share.minike.top/Article/details/04404.shtml)
+- 2026-06-30 08:07 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/487900817521.shtml)
+- 2026-06-30 08:07 - [高考结束了，你会让孩子在家玩手机吗？](http://www.blog.minike.top/Article/details/8696259241.shtml)
+- 2026-06-30 08:15 - [巴拉圭进球](http://www.share.minike.top/Article/details/5324799376.shtml)

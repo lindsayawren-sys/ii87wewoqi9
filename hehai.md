@@ -1,60 +1,56 @@
-# 第八期尼泊尔旅游人才汉语培训班开班
+# 东西问·古典学丨短评：当世界古典学大会适逢“文明对话国际日”
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-中新社加德满都5月8日电 (记者 崔楠)第八期尼泊尔旅游人才汉语培训班8日在尼首都加德满都开班，57名学员将参加为期半年的培训。 该培训班由中国驻尼泊尔大使馆主办，尼泊尔旅游部门、尼中文化教育协会协办。前七期培训班累计为尼泊尔培养287名具备中文能力的旅游专业人才。 中国驻尼泊尔大使张茂明在开班仪式致辞中指出，尼泊尔旅游资源得天独厚，中国长期是尼泊尔主要外国游客来源国之一。该项
+中新社北京6月9日电 题：当世界古典学大会适逢“文明对话国际日” 中新社记者 韩禹 第二届世界古典学大会6月9日至10日在希腊雅典举行。大会今年由中国北京传递至希腊雅典，来自不同文明传统的学者共论“古今对话：古典智慧的现代启示”，在“文明对话国际日”共话文明。 6月10日，是第二个“文明对话国际日”。世界古典学大会此际登场，让古老文明间的对话更具现实意味。 在技术急速推进、地缘
 
 ## 正文
 
-中新社加德满都5月8日电 (记者 崔楠)第八期尼泊尔旅游人才汉语培训班8日在尼首都加德满都开班，57名学员将参加为期半年的培训。
+中新社北京6月9日电 题：当世界古典学大会适逢“文明对话国际日” 中新社记者 韩禹 第二届世界古典学大会6月9日至10日在希腊雅典举行。
 
-该培训班由中国驻尼泊尔大使馆主办，尼泊尔旅游部门、尼中文化教育协会协办。
+大会今年由中国北京传递至希腊雅典，来自不同文明传统的学者共论“古今对话：古典智慧的现代启示”，在“文明对话国际日”共话文明。
 
-前七期培训班累计为尼泊尔培养287名具备中文能力的旅游专业人才。
+6月10日，是第二个“文明对话国际日”。
 
-中国驻尼泊尔大使张茂明在开班仪式致辞中指出，尼泊尔旅游资源得天独厚，中国长期是尼泊尔主要外国游客来源国之一。
+世界古典学大会此际登场，让古老文明间的对话更具现实意味。
 
-该项目往届学员如今活跃在导游、酒店、景区服务等多个旅游相关行业，有效帮助中国游客在尼获得更好旅行体验。
+在技术急速推进、地缘冲突不断外溢的今天，世界为什么还需要古典学？
 
-他勉励本期学员学有所成，今后用中文向中国游客介绍尼泊尔风土人情，讲述中尼友好故事。
+古典学最初主要指对古希腊罗马语言、文学、历史、哲学和制度的研究，后来扩展为对不同文明早期经典传统的系统理解。
 
-尼泊尔文化、旅游和民航部部秘穆昆德·普拉萨德·尼劳拉(Mukund Prasad Niraula)在致辞中感谢中方在尼举办此类培训。
+所谓“古典”，并非一切古老书籍皆可冠名，而是专指那些在漫长历史积淀中持续塑造文明的文本。
 
-他表示，越来越多中国游客到访尼泊尔，为尼旅游业发展带来机遇。
+它往往包含着人类文明进程中的基本问题——人如何受教育？
 
 ## 相关推荐
 
-- 2026-06-30 08:10 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-30 08:07 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
-- 2026-06-30 08:26 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
-- 2026-06-30 08:00 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-30 08:20 - [德国4比5巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-30 08:19 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-30 08:02 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-30 08:17 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
-- 2026-06-30 08:28 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-30 08:00 - [郑钦文温网三连败西尼亚科娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-30 08:15 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
-- 2026-06-30 08:15 - [德国队连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-30 08:04 - [德国巴拉圭进入点球大战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-30 08:28 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-30 08:26 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
+- 2026-06-30 08:14 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-30 08:26 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-30 08:29 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-30 08:12 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-30 08:14 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-30 08:35 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-30 08:16 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-30 08:34 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-30 08:32 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:22 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/534899226.shtml)
-- 2026-06-30 08:29 - [德国爆冷点球大战不敌巴拉圭](https://www.share.minike.top/Article/details/5713883732.shtml)
-- 2026-06-30 08:02 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/8043833.shtml)
-- 2026-06-30 08:07 - [吴易昺不敌德约科维奇 止步温网首轮](http://www.blog.minike.top/Article/details/13441.shtml)
-- 2026-06-30 08:25 - [女子遭下药退赔偿拟追刑责](http://www.share.minike.top/Article/details/00368.shtml)
-- 2026-06-30 08:02 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/307327740.shtml)
-- 2026-06-30 08:06 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/47990640065.shtml)
-- 2026-06-30 08:19 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://www.blog.kurohicncr.top/Article/details/3393153120.shtml)
-- 2026-06-30 08:02 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/0119011391.shtml)
-- 2026-06-30 08:18 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.minike.top/Article/details/25903.shtml)
-- 2026-06-30 08:07 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/62497746.shtml)
-- 2026-06-30 08:00 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/6583792620.shtml)
-- 2026-06-30 08:01 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.share.minike.top/Article/details/85213.shtml)
-- 2026-06-30 08:05 - [女子清吧被陌生人投放伟哥](https://www.share.kurohicncr.top/Article/details/915466092.shtml)
-- 2026-06-30 08:18 - [男子醉酒溺水获救后同行人拒协助抬人](http://www.share.kurohicncr.top/Article/details/9880773.shtml)
+- 2026-06-30 08:07 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/429541.shtml)
+- 2026-06-30 08:31 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/34210.shtml)
+- 2026-06-30 08:23 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/84463.shtml)
+- 2026-06-30 08:22 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/8934807151.shtml)
+- 2026-06-30 08:30 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/783516361281.shtml)
+- 2026-06-30 08:06 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/99871310812.shtml)
+- 2026-06-30 08:26 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/2768291569.shtml)
+- 2026-06-30 08:23 - [DeepSeek启动成立来最大规模招聘](http://www.blog.minike.top/Article/details/05869124.shtml)
+- 2026-06-30 08:32 - [高考填志愿父亲和女儿产生分歧](http://www.share.minike.top/Article/details/11983204853.shtml)
+- 2026-06-30 08:14 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](http://www.share.minike.top/Article/details/806105721706.shtml)
+- 2026-06-30 08:25 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/02969982.shtml)
+- 2026-06-30 08:10 - [有酒店推行24小时退房制](https://www.share.minike.top/Article/details/00911751504.shtml)
+- 2026-06-30 08:06 - [第一炉香](http://www.share.minike.top/Article/details/0155541.shtml)
+- 2026-06-30 08:34 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/358331.shtml)
+- 2026-06-30 08:26 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/90055382751.shtml)

@@ -1,57 +1,57 @@
-# 我们能否信赖数据？——金融服务业AI数据使用的新兴政策与监管路径
+# 中国人寿联合福建省设立国内最大盲池S基金
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-来源：IMI财经观察 导读 2026年3月26日，国际清算银行（BIS）金融稳定研究院（FSI）发布第73号政策实施洞察报告。报告聚焦金融服务领域AI数据应用监管，指出生成式AI正深度重塑金融业态，数据贯穿其全生命周期，是模型可靠性与金融安全的核心。金融机构普遍面临数据碎片化、质量不达标、隐私合规难落地、安全风险攀升及第三方依赖加剧等痛点，数据隐私、质量、安全与治理成为全球监管
+6月9日金融一线消息，据中国人寿，近日，国内规模最大的盲池S基金——福建省鑫睿科创接力基金成功落地。该基金由国寿投资公司旗下国寿金石公司联合福建省相关单位共同发起设立，总规模逾40亿元，是国内规模最大的盲池S基金。 据了解，S基金（Secondary Fund），全称私募股权二级市场基金，是指参与已设立私募基金投资标的以及份额投资的基金。其作为盘活存量、优化配置、畅通循环的重要
 
 ## 正文
 
-来源：IMI财经观察 导读 2026年3月26日，国际清算银行（BIS）金融稳定研究院（FSI）发布第73号政策实施洞察报告。
+6月9日金融一线消息，据中国人寿，近日，国内规模最大的盲池S基金——福建省鑫睿科创接力基金成功落地。
 
-报告聚焦金融服务领域AI数据应用监管，指出生成式AI正深度重塑金融业态，数据贯穿其全生命周期，是模型可靠性与金融安全的核心。
+该基金由国寿投资公司旗下国寿金石公司联合福建省相关单位共同发起设立，总规模逾40亿元，是国内规模最大的盲池S基金。
 
-金融机构普遍面临数据碎片化、质量不达标、隐私合规难落地、安全风险攀升及第三方依赖加剧等痛点，数据隐私、质量、安全与治理成为全球监管核心关切。
+据了解，S基金（Secondary Fund），全称私募股权二级市场基金，是指参与已设立私募基金投资标的以及份额投资的基金。
 
-国际数据保护机构与金融监管部门正协同出台跨领域指导原则，围绕合法合规、数据质控、安全防控、治理问责形成共识。
+其作为盘活存量、优化配置、畅通循环的重要工具，有助于缓解“基金退出难、GP（普通合伙人）募资难、企业融资难”等多重困局。
 
-报告建议，金融监管需推出针对性指引，强化跨部门协作，在鼓励AI创新的同时筑牢金融稳定与消费者权益保护防线。
+盲池基金则是指在基金募集时，不特定具体投资项目的一类基金形式，具有灵活性高、整合能力强的特点，更考验管理人的主动管理能力。
 
-一 AI重塑金融，数据治理成核心挑战 人工智能是金融行业数字化转型的核心驱动力，尤其是生成式AI （Generative AI） 的普及，为信贷承保、反欺诈、客户服务、风险管理等核心业务带来效率革新。
+国寿金石公司作为专业化保险私募基金管理平台，可以持续跟踪S市场、筛选优质资产，灵活配置不同阶段、不同领域的资产，实现更优的风险收益匹配。
 
-AI的能力边界高度依赖数据，其模型训练、微调至落地运营的全生命周期均需要海量、多元、高质量的数据。
+中国人寿方面表示，该项目重点聚焦新一代信息技术、生物医药及器械、高端装备制造等战略性新兴产业，通过参与投资基金二手份额、接续重组基金等形式，为科创企业提供长期稳健的资金支持，充分体现了“为资本接力，为科创续力”的定位。
 
-数据直接决定AI输出的可信度，进而影响金融业务安全。
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-30 08:24 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-30 08:20 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-30 08:13 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
-- 2026-06-30 08:16 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
-- 2026-06-30 08:03 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
-- 2026-06-30 08:19 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-30 08:06 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-30 08:09 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
-- 2026-06-30 08:10 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-30 08:02 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-30 08:10 - [马耳他著名拱门坍塌致中国男子身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-30 08:32 - [萨内 看笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-30 08:14 - [金鹰奖视后提名预测](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-30 08:09 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-30 08:28 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-30 08:32 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-30 08:19 - [刘宇宁高情商化解谁站C位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-30 08:09 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-30 08:17 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-30 08:33 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
+- 2026-06-30 08:30 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-30 08:16 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:03 - [AI手机进入Agent时代](http://www.share.kurohicncr.top/Article/details/738620628.shtml)
-- 2026-06-30 08:13 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/2307090557.shtml)
-- 2026-06-30 08:03 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/59096154.shtml)
-- 2026-06-30 08:04 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/50275.shtml)
-- 2026-06-30 08:06 - [房价什么时候能涨](https://www.blog.minike.top/Article/details/247540.shtml)
-- 2026-06-30 08:19 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/72608.shtml)
-- 2026-06-30 08:05 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/8740551.shtml)
-- 2026-06-30 08:15 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/4430568357.shtml)
-- 2026-06-30 08:20 - [这种关系可能正在悄悄“催老”你](http://www.blog.minike.top/Article/details/79459.shtml)
-- 2026-06-30 08:16 - [库尼亚赛后伸五指嘲讽日本](http://www.blog.minike.top/Article/details/2991832.shtml)
-- 2026-06-30 08:06 - [女心理师](http://www.share.kurohicncr.top/Article/details/309254062495.shtml)
-- 2026-06-30 08:25 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/79261427.shtml)
-- 2026-06-30 08:16 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/877174472449.shtml)
-- 2026-06-30 08:26 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/124376488.shtml)
-- 2026-06-30 08:02 - [日本五次世界杯淘汰赛全败](https://www.share.minike.top/Article/details/757133948.shtml)
+- 2026-06-30 08:20 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/492759588579.shtml)
+- 2026-06-30 08:29 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/083652.shtml)
+- 2026-06-30 08:22 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.kurohicncr.top/Article/details/381894.shtml)
+- 2026-06-30 08:10 - [武磊：日本队有能力跟任何强队抗衡](http://www.share.minike.top/Article/details/583063835.shtml)
+- 2026-06-30 08:16 - [第3集丨“柠檬茶能换怀表？”](http://www.blog.kurohicncr.top/Article/details/550826961.shtml)
+- 2026-06-30 08:35 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/17373479667.shtml)
+- 2026-06-30 08:25 - [巴西补时绝杀日本](http://www.blog.kurohicncr.top/Article/details/78263792.shtml)
+- 2026-06-30 08:32 - [杨紫获白玉兰视后争议不止](http://www.share.kurohicncr.top/Article/details/377659603.shtml)
+- 2026-06-30 08:26 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/218563013.shtml)
+- 2026-06-30 08:06 - [大蒜晒外面被路过女子连盆端走](https://www.share.kurohicncr.top/Article/details/45845910.shtml)
+- 2026-06-30 08:08 - [男子醉酒溺水获救后同行人拒协助抬人](https://www.share.kurohicncr.top/Article/details/708884995.shtml)
+- 2026-06-30 08:33 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/6777177594.shtml)
+- 2026-06-30 08:06 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/80354.shtml)
+- 2026-06-30 08:30 - [现在叛逆期的孩子最怕的是什么？](http://www.blog.kurohicncr.top/Article/details/587567051844.shtml)
+- 2026-06-30 08:16 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/5674058.shtml)

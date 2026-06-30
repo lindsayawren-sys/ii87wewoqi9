@@ -1,57 +1,57 @@
-# Anthropic在考虑新一轮融资 估值料接近1万亿美元
+# 自然资源部发布《第二批海洋数据开放共享目录》
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-媒体援引五位知情人士报道，随着收入持续增长，Anthropic 吸引了Dragoneer、General Catalyst和Lightspeed Venture Partners等投资者的兴趣。 据三位知情人士透露，新一轮融资预计筹集至多500亿美元，对Anthropic的投前估值约9000亿美元。 知情人士并称，该轮融资可能在两个月内完成。 消息人士补充道，首席财务官Kris
+中新网北京6月8日电 (记者 阮煜琳)8日，自然资源部发布《第二批海洋数据开放共享目录》。在首批37项产品基础上，更新了2024-2025年中国海洋观测标准数据集，全球海洋水文气象、水深地形整合数据集等产品。 2024年6月8日，首批《海洋数据开放共享目录》发布。两年来，面向政府部门、科研院所、涉海企业等百余家用户提供数据服务超60万次、数据100TB、超6亿条记录，为海洋经济
 
 ## 正文
 
-媒体援引五位知情人士报道，随着收入持续增长，Anthropic 吸引了Dragoneer、General Catalyst和Lightspeed Venture Partners等投资者的兴趣。
+中新网北京6月8日电 (记者 阮煜琳)8日，自然资源部发布《第二批海洋数据开放共享目录》。
 
-据三位知情人士透露，新一轮融资预计筹集至多500亿美元，对Anthropic的投前估值约9000亿美元。
+在首批37项产品基础上，更新了2024-2025年中国海洋观测标准数据集，全球海洋水文气象、水深地形整合数据集等产品。
 
-知情人士并称，该轮融资可能在两个月内完成。
+2024年6月8日，首批《海洋数据开放共享目录》发布。
 
-消息人士补充道，首席财务官Krishna Rao在与投资者洽谈，但尚未就具体条款达成一致，且不能保证最终会达成交易。
+两年来，面向政府部门、科研院所、涉海企业等百余家用户提供数据服务超60万次、数据100TB、超6亿条记录，为海洋经济发展、海洋防灾减灾、海洋资源开发利用和海洋科学研究提供了重要数据支撑。
 
-Anthropic和Lightspeed拒绝就此事置评。
+8日，自然资源部发布《第二批海洋数据开放共享目录》。
 
-责任编辑：王永生
+在首批37项产品基础上，更新了2024-2025年中国海洋观测标准数据集，全球海洋水文气象、水深地形整合数据集等产品；新增了10项全球海洋三维温盐、海流、海浪、气温、气压等融合数据集和7项全球海洋水文气象统计分析产品。
+
+《第二批海洋数据开放共享目录》数据服务同步上线运行，用户可通过国家海洋大数据服务平台(海洋云)获取目录中的各类数据产品。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 08:05 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-30 08:08 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-30 08:18 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
-- 2026-06-30 08:24 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-30 08:25 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-30 08:00 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-30 08:27 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-30 08:03 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-30 08:27 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
-- 2026-06-30 08:01 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-30 08:13 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-30 08:28 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-30 08:27 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
-- 2026-06-30 08:13 - [德国队世界杯点球大战首败](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-30 08:19 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-30 08:19 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-30 08:13 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-30 08:28 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-30 08:29 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-30 08:20 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-30 08:31 - [周冬雨多次说演不了话剧文城](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-30 08:20 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-30 08:25 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-30 08:07 - [德国连续三届世界杯无缘16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-30 08:34 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-30 08:19 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:22 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/59186752.shtml)
-- 2026-06-30 08:28 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.kurohicncr.top/Article/details/83316928520.shtml)
-- 2026-06-30 08:29 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/117351.shtml)
-- 2026-06-30 08:25 - [千香](https://www.share.kurohicncr.top/Article/details/57340.shtml)
-- 2026-06-30 08:24 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/44467485477.shtml)
-- 2026-06-30 08:20 - [王灿兮被烫伤两年后维权成功](http://www.share.minike.top/Article/details/3196454.shtml)
-- 2026-06-30 08:17 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/409788.shtml)
-- 2026-06-30 08:17 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/31380677838.shtml)
-- 2026-06-30 08:11 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.share.minike.top/Article/details/1348417213.shtml)
-- 2026-06-30 08:17 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/9370438247.shtml)
-- 2026-06-30 08:19 - [韩乔生吐槽世界杯扩军](https://www.share.minike.top/Article/details/64662.shtml)
-- 2026-06-30 08:19 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/6715914662.shtml)
-- 2026-06-30 08:16 - [日本半场1比0领先巴西](https://www.share.minike.top/Article/details/546531707691.shtml)
-- 2026-06-30 08:13 - [徐亮怒斥世界杯踢假球](http://www.share.minike.top/Article/details/547523484634.shtml)
-- 2026-06-30 08:24 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/92481420205.shtml)
+- 2026-06-30 08:27 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.minike.top/Article/details/022831686.shtml)
+- 2026-06-30 08:07 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/7229449579.shtml)
+- 2026-06-30 08:18 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/6572967937.shtml)
+- 2026-06-30 08:24 - [警犬“多多”助民警寻回失联老人](https://www.share.minike.top/Article/details/691562.shtml)
+- 2026-06-30 08:34 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.minike.top/Article/details/090141487.shtml)
+- 2026-06-30 08:31 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/9253472.shtml)
+- 2026-06-30 08:06 - [国务院：稳步推进研究生考试招生改革](https://www.blog.minike.top/Article/details/71084.shtml)
+- 2026-06-30 08:28 - [美股](https://www.share.kurohicncr.top/Article/details/49590.shtml)
+- 2026-06-30 08:32 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.kurohicncr.top/Article/details/381075.shtml)
+- 2026-06-30 08:32 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/594665190.shtml)
+- 2026-06-30 08:14 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.blog.minike.top/Article/details/57376402193.shtml)
+- 2026-06-30 08:10 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/923599802351.shtml)
+- 2026-06-30 08:17 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/51002971195.shtml)
+- 2026-06-30 08:29 - [中国新一轮出口管制直指日本命脉](http://www.share.kurohicncr.top/Article/details/538697660937.shtml)
+- 2026-06-30 08:09 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/9540696763.shtml)

@@ -1,61 +1,56 @@
-# 58岁武汉交警何同原暴雨中处警不幸殉职
+# 天顺风能顶着“陆转海”阵痛跨界造船 2025年巨亏超2亿元 2026Q1经营现金流跌幅超400%
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-中新网武汉5月8日电(杨槐柳 余哲)武汉市公安局8日发布消息称，58岁的交通民警何同原在高速公路上处置交通事故时，为保护群众安全，被一辆失控车辆撞成重伤，经全力抢救无效，因公殉职。 何同原生前系武汉市公安局交通管理支队二大队六中队民警。5月2日上午，暴雨如注，武汉至大悟高速公路路面水雾弥漫，发生车辆滞留事故。正在附近巡逻的何同原立即驱车赶赴现场，抵达后，他身着反光背心，顶着风雨
+2026 年 5 月26日，天顺风能发布公告，其海工板块全资子公司新中标1艘海上浮式生产储油船（简称“FPSO”）船体建造服务订单约5.68亿元人民币。 在该公告发布的三天之前，公司第二艘FSO BLKB项目刚刚完成铺龙骨。天顺风能表示，公司已具备国际高端海工装备自主建造能力，本次中标标志着公司高端油气船舶制造能力已获得市场认可，对公司未来进一步开拓及承接其他高端油气类型的船舶
 
 ## 正文
 
-中新网武汉5月8日电(杨槐柳 余哲)武汉市公安局8日发布消息称，58岁的交通民警何同原在高速公路上处置交通事故时，为保护群众安全，被一辆失控车辆撞成重伤，经全力抢救无效，因公殉职。
+2026 年 5 月26日，天顺风能发布公告，其海工板块全资子公司新中标1艘海上浮式生产储油船（简称“FPSO”）船体建造服务订单约5.68亿元人民币。
 
-何同原生前系武汉市公安局交通管理支队二大队六中队民警。
+在该公告发布的三天之前，公司第二艘FSO BLKB项目刚刚完成铺龙骨。
 
-5月2日上午，暴雨如注，武汉至大悟高速公路路面水雾弥漫，发生车辆滞留事故。
+天顺风能表示，公司已具备国际高端海工装备自主建造能力，本次中标标志着公司高端油气船舶制造能力已获得市场认可，对公司未来进一步开拓及承接其他高端油气类型的船舶项目具有重要的意义。
 
-正在附近巡逻的何同原立即驱车赶赴现场，抵达后，他身着反光背心，顶着风雨贴近护栏，迅速引导9名驾乘人员撤离至安全区域。
+天顺风能的造船布局，始于其陆上风电主业的持续低迷。
 
-就在当事人离开危险区域的瞬间，一辆因路滑失控的小轿车撞向何同原。
+公司早年凭借陆上风电塔筒业务崛起，一度稳居全球市场份额第一，毛利率曾在2016年超越34%。
 
-9名群众平安无事，而这位老交警却永远倒在了执勤岗位上。
+但近年来，陆上风电经历多轮抢装潮和补贴退坡，装机规模扩容后土地资源、电力消纳等物理硬约束问题日益突出，叠加补贴退出导致客户预算收紧，整个风电产业链陷入激烈而持久的价格战。
 
-何同原1986年参警，先后在路面执勤、事故调处、车辆检验、法制审核等多个岗位工作。
+2021年到2025年间，天顺风能的营业收入在波动中逐渐萎缩，分别为81.72亿元、67.38亿元、77.27亿元、48.60亿元、53.88亿元。
 
-在战友、家人和群众的记忆里，他少语笃行、勤学善思，办事公道、责任心强。
+与此同时，其毛利率也显著承受压力，常年在18%-22%区间徘徊，较早年25%以上的水平存在着显著差距。
 
 ## 相关推荐
 
-- 2026-06-30 08:16 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
-- 2026-06-30 08:00 - [孙颖莎王楚钦晋级8强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-30 08:16 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
-- 2026-06-30 08:10 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
-- 2026-06-30 08:20 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
-- 2026-06-30 08:05 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
-- 2026-06-30 08:16 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
-- 2026-06-30 08:26 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-30 08:03 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
-- 2026-06-30 08:08 - [恋与深空道歉声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-30 08:07 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-30 08:10 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
-- 2026-06-30 08:19 - [张月收到黄灿灿辣货两眼发光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-30 08:23 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-30 08:11 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-30 08:35 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-30 08:13 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-30 08:07 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
+- 2026-06-30 08:07 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
+- 2026-06-30 08:30 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-30 08:19 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
+- 2026-06-30 08:19 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-30 08:19 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-30 08:34 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-30 08:35 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:16 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/066036.shtml)
-- 2026-06-30 08:14 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/08230.shtml)
-- 2026-06-30 08:09 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/06971379033.shtml)
-- 2026-06-30 08:17 - [德国vs巴拉圭](https://www.share.minike.top/Article/details/46916.shtml)
-- 2026-06-30 08:24 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/42106.shtml)
-- 2026-06-30 08:21 - [巴西绝杀](https://www.blog.kurohicncr.top/Article/details/721845.shtml)
-- 2026-06-30 08:10 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/54075849.shtml)
-- 2026-06-30 08:03 - [泰山景区回应修建刀片刺绳隔离网](https://www.blog.kurohicncr.top/Article/details/71526.shtml)
-- 2026-06-30 08:23 - [巴西2-1绝杀日本](https://www.share.minike.top/Article/details/945015830645.shtml)
-- 2026-06-30 08:10 - [巴西扳平比分](https://www.share.kurohicncr.top/Article/details/461997.shtml)
-- 2026-06-30 08:20 - [DeepSeek V4正式版要来了](https://www.share.minike.top/Article/details/47893.shtml)
-- 2026-06-30 08:01 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/9392647944.shtml)
-- 2026-06-30 08:09 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/35476287431.shtml)
-- 2026-06-30 08:07 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.minike.top/Article/details/239424.shtml)
-- 2026-06-30 08:10 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.kurohicncr.top/Article/details/301278.shtml)
+- 2026-06-30 08:26 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/6127933277.shtml)
+- 2026-06-30 08:14 - [浪姐成团夜爆笑吐槽](http://www.blog.kurohicncr.top/Article/details/60773.shtml)
+- 2026-06-30 08:28 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/00300894417.shtml)
+- 2026-06-30 08:33 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.minike.top/Article/details/644625.shtml)
+- 2026-06-30 08:27 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/75782692920.shtml)
+- 2026-06-30 08:17 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/043424.shtml)
+- 2026-06-30 08:06 - [孙兴慜发长文致歉](http://www.share.kurohicncr.top/Article/details/55859216631.shtml)
+- 2026-06-30 08:20 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.minike.top/Article/details/5318176.shtml)
+- 2026-06-30 08:09 - [网红峡谷5人溺亡 有人提醒会下雨](http://www.share.minike.top/Article/details/87095.shtml)
+- 2026-06-30 08:33 - [诺伊尔尽力了](http://www.blog.kurohicncr.top/Article/details/130449379.shtml)
+- 2026-06-30 08:27 - [王楚钦说配合稍微有些陌生感](http://www.share.kurohicncr.top/Article/details/419284.shtml)
+- 2026-06-30 08:11 - [吴易昺不敌德约科维奇 止步温网首轮](https://www.blog.kurohicncr.top/Article/details/861741768615.shtml)
+- 2026-06-30 08:34 - [张雪的一句“是我们”引发岛内热议](http://www.blog.minike.top/Article/details/8030812892.shtml)
+- 2026-06-30 08:22 - [全新问界M9现身美国街头](https://www.blog.kurohicncr.top/Article/details/624172358.shtml)
+- 2026-06-30 08:29 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/197419353120.shtml)

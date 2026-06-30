@@ -1,52 +1,58 @@
-# 探访武夷山国家公园：走进“络腮胡”藏酋猴的天然乐园
+# 【光明时评】将青春奋斗融入国家发展大局
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月09日 19:50 来源：中国新闻网 近日，中新社记者走进武夷山国家公园腹地桐木村，近距离探访中国特有灵长类动物藏酋猴的栖息地。成群的藏酋猴在林间嬉戏、觅食，有的蹲着梳理毛发，有的抱着幼崽在桥栏上休息，成年雄性标志性的白色“络腮胡”格外醒目，憨态可掬。 藏酋猴是国家二级保护动物，被世界自然保护联盟列为近危物种，也是亚洲体型最大的猕猴。武夷山国家公园拥有
+作者：王石川(媒体评论员) 日前，教育部、人社部、国务院国资委等八部门印发通知，于5月至12月联合开展“国聘行动”。本次活动以“建功产业·国聘行动”为主题，服务对象覆盖2026届普通高校毕业生及2024、2025届离校未就业毕业生等重点群体。 自2020年启动以来，“国聘行动”已连续举办七季。截至目前，活动累计汇聚超14万家知名企业、发布岗位超1300万个，接收简历累计超880
 
 ## 正文
 
-发布时间：2026年05月09日 19:50 来源：中国新闻网 近日，中新社记者走进武夷山国家公园腹地桐木村，近距离探访中国特有灵长类动物藏酋猴的栖息地。
+作者：王石川(媒体评论员) 日前，教育部、人社部、国务院国资委等八部门印发通知，于5月至12月联合开展“国聘行动”。
 
-成群的藏酋猴在林间嬉戏、觅食，有的蹲着梳理毛发，有的抱着幼崽在桥栏上休息，成年雄性标志性的白色“络腮胡”格外醒目，憨态可掬。
+本次活动以“建功产业·国聘行动”为主题，服务对象覆盖2026届普通高校毕业生及2024、2025届离校未就业毕业生等重点群体。
 
-藏酋猴是国家二级保护动物，被世界自然保护联盟列为近危物种，也是亚洲体型最大的猕猴。
+自2020年启动以来，“国聘行动”已连续举办七季。
 
-武夷山国家公园拥有世界同纬度最完整、最典型的中亚热带森林生态系统，为藏酋猴提供了理想的生存环境。
+截至目前，活动累计汇聚超14万家知名企业、发布岗位超1300万个，接收简历累计超8800万份。
 
-近年来，得益于武夷山国家公园实施的生态保护措施，园区内野生藏酋猴种群数稳定增长，核心区域桐木村附近山林成为藏酋猴繁衍生息的天然乐园。
+当前，正是高校毕业生就业的重要节点。
 
-(记者 王东明 李思源） 责任编辑：【卢岩】
+据统计，2026届全国普通高校毕业生规模预计为1270万人，同比增加48万人，推出“国聘行动”恰逢其时。
+
+与去年相比，今年的“国聘行动”有不少新亮点。
+
+比如，协同阵线扩员，由七部门扩容为八部门，新加入了退役军人事务部。
 
 ## 相关推荐
 
-- 2026-06-30 08:17 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
-- 2026-06-30 08:05 - [男子在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-30 08:15 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
-- 2026-06-30 08:24 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-30 08:08 - [勇士续约波尔津吉斯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
-- 2026-06-30 08:14 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-30 08:07 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
-- 2026-06-30 08:26 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-30 08:19 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-30 08:16 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-30 08:33 - [日本博主：日本足球真的垃圾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-30 08:14 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-30 08:22 - [世界杯欧洲队7战南美仅1胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-30 08:28 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-30 08:13 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-30 08:10 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-30 08:10 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
+- 2026-06-30 08:35 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-30 08:35 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-30 08:14 - [齐思钧回复张月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-30 08:11 - [德国淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-30 08:32 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:29 - [刘必安等16人非法集资案二审宣判](http://www.blog.kurohicncr.top/Article/details/1350408177.shtml)
-- 2026-06-30 08:23 - [内马尔替补](http://www.share.minike.top/Article/details/99138.shtml)
-- 2026-06-30 08:26 - [曝灰熊将莫兰特交易至开拓者](http://www.share.minike.top/Article/details/371673453473.shtml)
-- 2026-06-30 08:14 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](http://www.blog.minike.top/Article/details/23806.shtml)
-- 2026-06-30 08:02 - [中国新一轮出口管制直指日本命脉](https://www.share.minike.top/Article/details/279432850.shtml)
-- 2026-06-30 08:13 - [德国4比5巴拉圭](https://www.blog.minike.top/Article/details/692080965.shtml)
-- 2026-06-30 08:24 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/388439341317.shtml)
-- 2026-06-30 08:02 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/6480540308.shtml)
-- 2026-06-30 08:12 - [刘必安等16人非法集资案二审宣判](https://www.blog.minike.top/Article/details/435224108540.shtml)
-- 2026-06-30 08:19 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/60277937397.shtml)
-- 2026-06-30 08:18 - [天道](http://www.share.minike.top/Article/details/142778684.shtml)
-- 2026-06-30 08:23 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.blog.kurohicncr.top/Article/details/632670.shtml)
-- 2026-06-30 08:08 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/37482970330.shtml)
-- 2026-06-30 08:16 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/232330907424.shtml)
-- 2026-06-30 08:11 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://www.blog.minike.top/Article/details/9839457.shtml)
+- 2026-06-30 08:23 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/9348540.shtml)
+- 2026-06-30 08:12 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/224945.shtml)
+- 2026-06-30 08:14 - [急先锋](http://www.share.kurohicncr.top/Article/details/276161672.shtml)
+- 2026-06-30 08:19 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/933230343.shtml)
+- 2026-06-30 08:18 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.minike.top/Article/details/482740987.shtml)
+- 2026-06-30 08:11 - [郑钦文温网三连败西尼亚科娃](http://www.share.minike.top/Article/details/449769.shtml)
+- 2026-06-30 08:14 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/717309.shtml)
+- 2026-06-30 08:25 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/8890387.shtml)
+- 2026-06-30 08:26 - [高考结束了，你会让孩子在家玩手机吗？](https://www.blog.kurohicncr.top/Article/details/94964.shtml)
+- 2026-06-30 08:21 - [诺伊尔尽力了](https://www.blog.minike.top/Article/details/96413048.shtml)
+- 2026-06-30 08:16 - [免费试吃发差评被店家挂店门避雷](http://www.blog.minike.top/Article/details/85330662.shtml)
+- 2026-06-30 08:28 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/184317136948.shtml)
+- 2026-06-30 08:21 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/84550.shtml)
+- 2026-06-30 08:25 - [日本领先巴西](http://www.blog.minike.top/Article/details/15975.shtml)
+- 2026-06-30 08:16 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/469008.shtml)

@@ -1,57 +1,58 @@
-# 东海期货宏观专题报告：PPI修复回升 国内股指走势如何？
+# Vaalco完成浮式生产储卸油船大修后重启Baobab油田生产
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-分析师： 明道雨 从业资格证号：F03092124 投资咨询证号：Z0018827 电话：021-68758120 邮箱：mingdy@qh168.com.cn \[table_main\] 投资要点： Ø 2026 年 3 月，我国 PPI 同比上涨 0.5%，结束连续 41 个月负增长，标志工业通缩周期终结，宏观经济步入温和复苏新阶段。本报告系统梳理本轮 PPI 回升的驱动逻辑
+Vaalco Energy已完成对Baobab Ivoirien浮式生产储卸油（FPSO）船的翻新工程，并恢复了科特迪瓦近海CI-40区块Baobab油田的生产。 该油田的油气作业于2025年1月暂停，作为FPSO计划内翻新项目的一部分。该船在迪拜进行了为期九个月的大修后，于2026年第二季度返回科特迪瓦，并重新就位、重新连接到油田基础设施。 目前已从四口生产井恢复生产，其余三
 
 ## 正文
 
-分析师： 明道雨 从业资格证号：F03092124 投资咨询证号：Z0018827 电话：021-68758120 邮箱：mingdy@qh168.com.cn \[table_main\] 投资要点： Ø 2026 年 3 月，我国 PPI 同比上涨 0.5%，结束连续 41 个月负增长，标志工业通缩周期终结，宏观经济步入温和复苏新阶段。
+Vaalco Energy已完成对Baobab Ivoirien浮式生产储卸油（FPSO）船的翻新工程，并恢复了科特迪瓦近海CI-40区块Baobab油田的生产。
 
-本报告系统梳理本轮 PPI 回升的驱动逻辑、传导机制与历史规律，研判股指走势并给出投资策略。
+该油田的油气作业于2025年1月暂停，作为FPSO计划内翻新项目的一部分。
 
-Ø 2022 年下半年起，受全球需求疲软、国内产能过剩等影响，PPI 持续下行，工业企业盈利收缩，资本市场周期板块长期低迷，形成 “需求弱 — 价格跌 — 盈利差” 的负向循环。
+该船在迪拜进行了为期九个月的大修后，于2026年第二季度返回科特迪瓦，并重新就位、重新连接到油田基础设施。
 
-2025 年 7 月成为修复拐点，环比率先转正并连续上涨，同比降幅逐月收窄，2026 年 3 月正式转正，环比涨幅创 48 个月新高。
+目前已从四口生产井恢复生产，其余三口生产井预计将很快重新投产。
 
-本轮修复呈现四大特征：一是动能多元，由国际大宗商品、国内稳增长、新动能产业与供给侧治理共同驱动；二是行业分化显著，上游资源领跑、中游材料跟进、下游消费滞后，新动能行业独立高景气；三是与 CPI 弱联动，生产端回暖、终端消费温和，通胀压力有限；四是节奏阶梯化，呈 “环比转正 — 降幅收窄 — 同比转正” 的温和复苏路径。
+据Vaalco称，该油田的表现符合预期。
 
-Ø PPI 通过盈利、流动性、风险偏好、行业轮动四大路径传导至股指。
+此次翻新旨在延长FPSO的使用寿命，并支持计划于2026年下半年启动的Baobab油田开发钻探活动。
 
-盈利端，上游行业直接受益、盈利弹性最大，中游先压后升、逐步改善，下游受制于终端需求偏弱而承压；流动性端，温和回升背景下货币政策维持宽松，利好估值修复；风险偏好端，经济复苏信号提振市场信心，吸引增量资金入场；行业轮动端，呈现 “成长先行 — 周期接力 — 消费与稳定收尾” 的清晰节奏。
+第五阶段钻探计划预计将包括四口生产井、两到三口注入井和两次修井作业，目标是从Baobab主油田增加产量。
 
-Ø 复盘国内五轮 PPI 回升周期，股指走势呈现三阶段规律：第一阶段（环比见底至同比见底），估值修复，成长股占优，TMT、电力设备等板块领涨；第二阶段（同比见底至转正），盈利与估值共振，市场均衡上涨，成长、周期、消费全面开花；第三阶段（同比转正至见顶），高位震荡，前期成长和周期风格占优中后期稳定风格占优，资金转向低估值防御板块。
+Vaalco首席执行官George Maxwell表示：“我们很高兴科特迪瓦近海CI-40区块的Baobab油田已按预期时间表恢复生产。
 
 ## 相关推荐
 
-- 2026-06-30 08:15 - [德国淘汰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-30 08:10 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
-- 2026-06-30 08:08 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-30 08:02 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-30 08:21 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-30 08:05 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
-- 2026-06-30 08:22 - [武磊：巴西队赢的并不轻松](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-30 08:23 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-30 08:02 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-30 08:05 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
-- 2026-06-30 08:02 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-30 08:26 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
+- 2026-06-30 08:06 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
+- 2026-06-30 08:30 - [女子遭下药退赔偿拟追刑责](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-30 08:22 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-30 08:35 - [郑钦文 四年一轮游](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-30 08:35 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-30 08:30 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-30 08:35 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-30 08:10 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-30 08:23 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-30 08:08 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-30 08:12 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:05 - [巴拉圭先进球了](http://www.blog.kurohicncr.top/Article/details/95226586.shtml)
-- 2026-06-30 08:16 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/807495371.shtml)
-- 2026-06-30 08:26 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/425622591.shtml)
-- 2026-06-30 08:09 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.minike.top/Article/details/65310214.shtml)
-- 2026-06-30 08:00 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/83050742.shtml)
-- 2026-06-30 08:07 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/842046.shtml)
-- 2026-06-30 08:20 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/4850584198.shtml)
-- 2026-06-30 08:17 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/023138.shtml)
-- 2026-06-30 08:20 - [巴西醒醒 这是淘汰赛](https://www.share.kurohicncr.top/Article/details/6950421687.shtml)
-- 2026-06-30 08:10 - [美人鱼](https://www.share.minike.top/Article/details/8499774.shtml)
-- 2026-06-30 08:24 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/23595977314.shtml)
-- 2026-06-30 08:07 - [德国队世界杯点球大战首败](http://www.blog.minike.top/Article/details/78033413.shtml)
-- 2026-06-30 08:06 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/93473242.shtml)
-- 2026-06-30 08:16 - [曝灰熊将莫兰特交易至开拓者](https://www.blog.kurohicncr.top/Article/details/066156924204.shtml)
-- 2026-06-30 08:21 - [“柠檬茶能换怀表？”](https://www.share.kurohicncr.top/Article/details/76793.shtml)
+- 2026-06-30 08:24 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.kurohicncr.top/Article/details/615232839.shtml)
+- 2026-06-30 08:27 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/7346222593.shtml)
+- 2026-06-30 08:07 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/808673557.shtml)
+- 2026-06-30 08:11 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/03399664.shtml)
+- 2026-06-30 08:27 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/06503961539.shtml)
+- 2026-06-30 08:16 - [输球后日本球迷被强行披上巴西国旗](http://www.blog.kurohicncr.top/Article/details/62152930780.shtml)
+- 2026-06-30 08:21 - [金牌调解](https://www.blog.minike.top/Article/details/72385.shtml)
+- 2026-06-30 08:31 - [巴西vs日本](https://www.share.minike.top/Article/details/402168.shtml)
+- 2026-06-30 08:31 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/6443912784.shtml)
+- 2026-06-30 08:31 - [女心理师](http://www.blog.minike.top/Article/details/57443241.shtml)
+- 2026-06-30 08:11 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/0772096.shtml)
+- 2026-06-30 08:12 - [委内瑞拉地震死亡人数升至1719人](http://www.share.minike.top/Article/details/69121140610.shtml)
+- 2026-06-30 08:29 - [韩国球迷凌晨4点接机怒骂主教练](https://www.share.minike.top/Article/details/46354.shtml)
+- 2026-06-30 08:32 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/15942764407.shtml)
+- 2026-06-30 08:10 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/8328393.shtml)

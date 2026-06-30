@@ -1,61 +1,53 @@
-# BW Offshore锁定BW Catcher FPSO长期续约
+# 绝美！西藏昌都东坝乡这家民宿“藏”不住了
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-挪威浮式油气生产解决方案提供商BW Offshore已与Catcher油田合作伙伴达成协议，修订其BW Catcher浮式生产储卸装置的合同，将协议延长至2030年12月31日，并设有正负六个月的浮动窗口。 修订后的协议取代了此前包含单方面一年期续约选择权的结构，取而代之的是一个明确的合同终止框架。 该公司表示，修订自2026年2月1日起生效，预计将从该日期起增加BW Offs
+发布时间：2026年06月08日 11:35 来源：中国新闻网 2026年是西藏和平解放75周年，滇藏公路通车50周年。近日，中国新闻社云南分社和西藏分社联合开展的“穿越横断山·同心启新篇”主题采访活动，走进西藏昌都市左贡县东坝乡，遇见一家藏在村子里的绝美民宿。 它原本是当地村民自住的房子，如今腾出房间接待游客。房子依着山势坐落，木门木窗保留着温润的原木色，墙面和梁柱上绘着传统
 
 ## 正文
 
-挪威浮式油气生产解决方案提供商BW Offshore已与Catcher油田合作伙伴达成协议，修订其BW Catcher浮式生产储卸装置的合同，将协议延长至2030年12月31日，并设有正负六个月的浮动窗口。
+发布时间：2026年06月08日 11:35 来源：中国新闻网 2026年是西藏和平解放75周年，滇藏公路通车50周年。
 
-修订后的协议取代了此前包含单方面一年期续约选择权的结构，取而代之的是一个明确的合同终止框架。
+近日，中国新闻社云南分社和西藏分社联合开展的“穿越横断山·同心启新篇”主题采访活动，走进西藏昌都市左贡县东坝乡，遇见一家藏在村子里的绝美民宿。
 
-该公司表示，修订自2026年2月1日起生效，预计将从该日期起增加BW Offshore的确定运营现金流积压订单约4.9亿美元。
+它原本是当地村民自住的房子，如今腾出房间接待游客。
 
-更新后的结构还为BW Offshore提供了更清晰的合同终止日期，使公司能够积极为这艘FPSO寻找潜在的重新部署机会。
+房子依着山势坐落，木门木窗保留着温润的原木色，墙面和梁柱上绘着传统纹样。
 
-BW Catcher的储油能力为65万桶，日处理能力为6万桶。
+走进来，旅行就从“看风景”，变成了“住进风景里”。
 
-该FPSO的设计寿命为20年不间断运行。
-
-BW Offshore首席执行官Marco Beenen表示，公司正在加强BW Catcher的长期商业框架，增加实质性的现金流可见性，同时提高其营销该装置以抓住未来机会的能力。
-
-Catcher FPSO是一艘高规格、适应恶劣环境的资产，使其成为极具价值的可重新部署装置。
+(骆忠华 王临梓) 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 08:02 - [点球大战 残酷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-30 08:15 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-30 08:28 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
-- 2026-06-30 08:06 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-30 08:16 - [IGN评测电影版后室](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-30 08:21 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-30 08:11 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-30 08:20 - [德国进球被吹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-30 08:01 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-30 08:01 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-30 08:17 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
-- 2026-06-30 08:16 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-30 08:08 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-30 08:25 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-30 08:18 - [大蒜晒外面被路过女子连盆端走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-30 08:25 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-30 08:08 - [莫兰特被交易到开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-30 08:24 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
+- 2026-06-30 08:23 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-30 08:11 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-30 08:17 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-30 08:26 - [田中碧失误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-30 08:33 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-30 08:22 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-30 08:25 - [巴西足球能否再现昔日荣光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-30 08:31 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:05 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/44733005.shtml)
-- 2026-06-30 08:23 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/434853964.shtml)
-- 2026-06-30 08:26 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/80459683055.shtml)
-- 2026-06-30 08:00 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/704475496224.shtml)
-- 2026-06-30 08:00 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/012351068681.shtml)
-- 2026-06-30 08:13 - [杨紫获白玉兰视后争议不止](http://www.share.kurohicncr.top/Article/details/3633785695.shtml)
-- 2026-06-30 08:04 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/8378461832.shtml)
-- 2026-06-30 08:03 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/41730359.shtml)
-- 2026-06-30 08:05 - [孙兴慜道歉](http://www.share.minike.top/Article/details/70566.shtml)
-- 2026-06-30 08:14 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/50713716.shtml)
-- 2026-06-30 08:00 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/017974872675.shtml)
-- 2026-06-30 08:05 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/6974244.shtml)
-- 2026-06-30 08:02 - [莫兰特被交易到开拓者](http://www.share.minike.top/Article/details/32197563.shtml)
-- 2026-06-30 08:14 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/168769010765.shtml)
-- 2026-06-30 08:09 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/0617809801.shtml)
+- 2026-06-30 08:15 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/757802.shtml)
+- 2026-06-30 08:25 - [王楚钦说配合稍微有些陌生感](https://www.blog.kurohicncr.top/Article/details/75238.shtml)
+- 2026-06-30 08:31 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/4134855.shtml)
+- 2026-06-30 08:30 - [曝iPhone18Pro机密文件现身暗网](http://www.share.minike.top/Article/details/249534807365.shtml)
+- 2026-06-30 08:31 - [峡谷事故团队组队时有人提醒会下雨](http://www.share.kurohicncr.top/Article/details/95167.shtml)
+- 2026-06-30 08:08 - [男子醉酒溺水获救后同行人拒协助抬人](https://www.blog.kurohicncr.top/Article/details/69726117701.shtml)
+- 2026-06-30 08:19 - [周生如故](http://www.blog.minike.top/Article/details/988475530841.shtml)
+- 2026-06-30 08:11 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/28152271.shtml)
+- 2026-06-30 08:32 - [郑钦文 四年一轮游](http://www.blog.kurohicncr.top/Article/details/7747200.shtml)
+- 2026-06-30 08:22 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/454952458542.shtml)
+- 2026-06-30 08:23 - [孙颖莎王楚钦晋级8强](http://www.share.minike.top/Article/details/03285645.shtml)
+- 2026-06-30 08:31 - [莫兰特转投开拓者效力](https://www.share.minike.top/Article/details/639512776894.shtml)
+- 2026-06-30 08:13 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/66751902.shtml)
+- 2026-06-30 08:17 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/36132670.shtml)
+- 2026-06-30 08:21 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/4501414.shtml)

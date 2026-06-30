@@ -1,58 +1,56 @@
-# 广州以南沙国际邮轮母港为核心 迈入“大邮轮主场时代”
+# 欧盟监管机构表示，在围绕苹果Siri人工智能延期落地的争议中，苹果无法获得科技法规豁免待遇
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-中新网广州5月8日电 (记者 王坚)据广州市南沙区政府8日消息，自2024年6月正式开港以来，广州南沙国际邮轮母港已累计运营52个国际邮轮航次，接待出入境旅客超18万人次。 据介绍，坐落于大湾区地理几何中心的广州南沙国际邮轮母港，建有1个22.5万总吨和1个10万总吨泊位，可停靠全球最大型邮轮，年旅客通过能力达75万人次。 近年来，国家接连出台邮轮入境免签、国际邮轮在华靠港补给
+欧盟监管机构周二批评苹果公司。苹果此前称，因受欧盟科技法规限制，暂不打算在欧盟地区推出升级后的人工智能语音助手Siri。监管方面表示，已驳回苹果提出的为期18个月豁免相关合规义务的申请。 苹果周二表示，新款人工智能版Siri初期不会登陆欧盟地区的iPhone与iPad设备，并指责欧盟委员会未能开展建设性沟通，双方无法就设备隐私与安全保障达成共识。 苹果曾向监管部门提议，计划用1
 
 ## 正文
 
-中新网广州5月8日电 (记者 王坚)据广州市南沙区政府8日消息，自2024年6月正式开港以来，广州南沙国际邮轮母港已累计运营52个国际邮轮航次，接待出入境旅客超18万人次。
+欧盟监管机构周二批评苹果公司。
 
-据介绍，坐落于大湾区地理几何中心的广州南沙国际邮轮母港，建有1个22.5万总吨和1个10万总吨泊位，可停靠全球最大型邮轮，年旅客通过能力达75万人次。
+苹果此前称，因受欧盟科技法规限制，暂不打算在欧盟地区推出升级后的人工智能语音助手Siri。
 
-近年来，国家接连出台邮轮入境免签、国际邮轮在华靠港补给等政策，为产业保驾护航。
+监管方面表示，已驳回苹果提出的为期18个月豁免相关合规义务的申请。
 
-广州市也出台《关于促进文商旅体融合发展的若干措施(试行)》《广州市扶持发展邮轮旅游若干措施申报细则》等文件，对以广州南沙为母港开展邮轮航线旅游活动的旅行社和邮轮航次给予奖励支持。
+苹果周二表示，新款人工智能版Siri初期不会登陆欧盟地区的iPhone与iPad设备，并指责欧盟委员会未能开展建设性沟通，双方无法就设备隐私与安全保障达成共识。
 
-据介绍，2025年，市财政扶持邮轮发展专项经费1500万元，其中转移支付广州市南沙区500万元，市本级对邮轮航次、游客等奖补经费1000万元。
+苹果曾向监管部门提议，计划用18个月时间搭建中间过渡方案，以此保障各类虚拟助手可安全接入新版Siri人工智能，但该请求遭到拒绝。
 
-南沙区政府表示，政策优势叠加下，自2024年6月开港开航，截至2026年3月底，广州南沙国际邮轮母港已运营52个国际邮轮航次，接待出入境旅客超18万人次。
+欧盟委员会对苹果的指责予以驳斥。
 
-据业内人士透露，今年一季度，广州南沙邮轮母港客流量等数据稳居国内前三，已成为名副其实的邮轮大港。
+委员会发言人托马斯・勒尼耶在布鲁塞尔向记者表示：“不在欧盟推出人工智能版Siri，这完全是苹果单方面的决定。
 
-母港的成熟运营，为国产邮轮的入驻奠定了坚实基础。
+”他称，《数字市场法案》中并无任何条款禁止企业在欧盟发布新产品。
 
 ## 相关推荐
 
-- 2026-06-30 08:16 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-30 08:28 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-30 08:12 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-30 08:18 - [德国 传控](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-30 08:24 - [二次元提前预演明日巴西对日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-30 08:14 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-30 08:18 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-30 08:02 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
-- 2026-06-30 08:28 - [索马里女大使：想和中国一起搞事业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-30 08:03 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
-- 2026-06-30 08:13 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-30 08:07 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-30 08:34 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-30 08:18 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-30 08:27 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-30 08:28 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-30 08:23 - [王楚钦说配合稍微有些陌生感](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-30 08:14 - [郑钦文温网一轮游](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-30 08:23 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-30 08:09 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-30 08:31 - [孙兴慜道歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-30 08:20 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:24 - [杨紫获白玉兰视后争议不止](https://www.share.minike.top/Article/details/648576.shtml)
-- 2026-06-30 08:10 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/2067609672.shtml)
-- 2026-06-30 08:29 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/068192532.shtml)
-- 2026-06-30 08:08 - [全新问界M9现身美国街头](https://www.share.kurohicncr.top/Article/details/37712047.shtml)
-- 2026-06-30 08:18 - [点球大战](http://www.share.kurohicncr.top/Article/details/5540160608.shtml)
-- 2026-06-30 08:28 - [德国4比5巴拉圭](https://www.share.kurohicncr.top/Article/details/40669693.shtml)
-- 2026-06-30 08:22 - [日本16强魔咒](https://www.share.minike.top/Article/details/313110.shtml)
-- 2026-06-30 08:13 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/397861041869.shtml)
-- 2026-06-30 08:21 - [张帅时隔四年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/042349.shtml)
-- 2026-06-30 08:14 - [德国vs巴拉圭](https://www.blog.kurohicncr.top/Article/details/138991848805.shtml)
-- 2026-06-30 08:20 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/831044791.shtml)
-- 2026-06-30 08:23 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/93769.shtml)
-- 2026-06-30 08:24 - [德国队世界杯点球大战首败](http://www.blog.kurohicncr.top/Article/details/177442137.shtml)
-- 2026-06-30 08:00 - [男子中医院拔火罐致浅2度烧伤](http://www.share.minike.top/Article/details/05532544602.shtml)
-- 2026-06-30 08:00 - [我觉得你是在无中生友](https://www.blog.kurohicncr.top/Article/details/49316.shtml)
+- 2026-06-30 08:17 - [索马里女大使：想和中国一起搞事业](http://www.share.minike.top/Article/details/789575577974.shtml)
+- 2026-06-30 08:09 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/76216.shtml)
+- 2026-06-30 08:15 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/426155875.shtml)
+- 2026-06-30 08:15 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/470930449406.shtml)
+- 2026-06-30 08:08 - [自然光｜papi酱&窦文涛：驴与跑步机](https://www.blog.kurohicncr.top/Article/details/13248.shtml)
+- 2026-06-30 08:22 - [逃狱兄弟](http://www.share.minike.top/Article/details/105739170.shtml)
+- 2026-06-30 08:12 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/282492908845.shtml)
+- 2026-06-30 08:08 - [恋与深空制作组回应近期争议](https://www.blog.minike.top/Article/details/935781.shtml)
+- 2026-06-30 08:19 - [第3集丨“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/23834.shtml)
+- 2026-06-30 08:15 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/703325.shtml)
+- 2026-06-30 08:16 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/31215.shtml)
+- 2026-06-30 08:11 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/834904574.shtml)
+- 2026-06-30 08:33 - [爆冷出局！德国点球大战不敌巴拉圭](http://www.blog.minike.top/Article/details/5668213425.shtml)
+- 2026-06-30 08:28 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.minike.top/Article/details/236367.shtml)
+- 2026-06-30 08:20 - [巴西把自己踢晕了](https://www.blog.minike.top/Article/details/72089.shtml)

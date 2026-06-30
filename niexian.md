@@ -1,56 +1,56 @@
-# 蔡志忠发起“文博共同体”倡议 呼吁共建联结世界的桥梁
+# 比亚迪、蔚来回应被美列入“中国军工企业”名单
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-中新网杭州5月9日电(曹丹)5月9日，2026年“5·18国际博物馆日”杭州市主会场活动在中国湿地博物馆举行。著名漫画家蔡志忠代表西湖区各家博物馆、艺术馆和文博机构发起“文博共同体”倡议，呼吁各方资源共享、活动联办、优势互补、品牌共创，以实际行动呼应2026年国际博物馆日“博物馆：联结世界的桥梁”的主题。 今年是国际博物馆协会成立80周年。此次活动主题为“博物馆：联结世界的桥梁
+坚决反对歧视性清单。 6月9日，比亚迪发布公告称，公司注意到，美国国防部已将公司列入中国军工企业名单。由于公司既不是中国军工企业，也不是中国国防工业的军民融合企业，公司认为将公司列入该名单并无正当理由。中国军工企业名单并非制裁名单。被列入中国军工企业名单不会影响公司正常开展业务，不会影响公司与任何人（美国国防部除外）进行业务往来；与该名单相关的美国政府采购限制不会影响公司的业务
 
 ## 正文
 
-中新网杭州5月9日电(曹丹)5月9日，2026年“5·18国际博物馆日”杭州市主会场活动在中国湿地博物馆举行。
+坚决反对歧视性清单。
 
-著名漫画家蔡志忠代表西湖区各家博物馆、艺术馆和文博机构发起“文博共同体”倡议，呼吁各方资源共享、活动联办、优势互补、品牌共创，以实际行动呼应2026年国际博物馆日“博物馆：联结世界的桥梁”的主题。
+6月9日，比亚迪发布公告称，公司注意到，美国国防部已将公司列入中国军工企业名单。
 
-今年是国际博物馆协会成立80周年。
+由于公司既不是中国军工企业，也不是中国国防工业的军民融合企业，公司认为将公司列入该名单并无正当理由。
 
-此次活动主题为“博物馆：联结世界的桥梁”，旨在强调博物馆应通过对文物藏品和文化遗产的保护、阐释和传播，促进不同地区、不同民族、不同文化之间的相互理解与包容，推动人类文明交流互鉴，构建人类命运共同体。
+中国军工企业名单并非制裁名单。
 
-杭州市园林文物局党组书记、局长王宏伟在活动中介绍，杭州正扎实推进“博物馆之城”建设。
+被列入中国军工企业名单不会影响公司正常开展业务，不会影响公司与任何人（美国国防部除外）进行业务往来；与该名单相关的美国政府采购限制不会影响公司的业务，且中国军工企业名单并未限制进行公司证券交易。
 
-目前，杭州已制定《杭州市“博物馆之城”发展规划(2026-2030)》，推进国有博物馆馆藏文物安全管理专项行动，明确乡村(社区)博物馆的提质增效与退出机制。
+同日，蔚来也发布公告称，公司关注到美国国防部将本公司列入其“中国军事企业”名单（CMC名单）。
 
-同时，其与宁波市文物局签订《杭甬“双城记”战略合作五年计划》，将持续开展“博物馆之城”2.0系列活动。
+蔚来相信，被列入CMC名单缺乏正当依据，因为蔚来既非中国军事企业，也非中国国防工业基础的军民融合贡献者。
 
-活动现场公布了杭州市博物馆“展览+”优秀案例及第五批杭州市乡村(社区)博物馆名单，发布了第二批杭州文博金牌推荐官以及2026年版“博物馆之城”手绘地图与打卡护照发布。
+CMC名单并非制裁名单。
 
 ## 相关推荐
 
-- 2026-06-30 08:14 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-30 08:09 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-30 08:04 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-30 08:19 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-30 08:17 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-30 08:10 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-30 08:13 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-30 08:28 - [周冬雨多次说演不了话剧文城](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-30 08:00 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
-- 2026-06-30 08:27 - [媒体：手机测评该挤挤水分了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-30 08:31 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-30 08:11 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-30 08:18 - [田中碧失误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-30 08:22 - [张雪的一句“是我们”引发岛内热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
+- 2026-06-30 08:14 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
+- 2026-06-30 08:27 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-30 08:13 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
+- 2026-06-30 08:20 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-30 08:26 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
+- 2026-06-30 08:17 - [郑钦文温网一轮游](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:16 - [流金岁月](http://www.share.minike.top/Article/details/718004818.shtml)
-- 2026-06-30 08:21 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/355736599.shtml)
-- 2026-06-30 08:20 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/2350800911.shtml)
-- 2026-06-30 08:22 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/20139299535.shtml)
-- 2026-06-30 08:03 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/756792459606.shtml)
-- 2026-06-30 08:03 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://www.share.minike.top/Article/details/26314402.shtml)
-- 2026-06-30 08:28 - [媒体评哈兰德之歌火了](http://www.share.minike.top/Article/details/9438037275.shtml)
-- 2026-06-30 08:11 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/641009.shtml)
-- 2026-06-30 08:08 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/64040639788.shtml)
-- 2026-06-30 08:21 - [日本反击率先破门](http://www.blog.minike.top/Article/details/342227226440.shtml)
-- 2026-06-30 08:20 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/953389379.shtml)
-- 2026-06-30 08:17 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/1476887721.shtml)
-- 2026-06-30 08:09 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/2518903006.shtml)
-- 2026-06-30 08:01 - [穆祉丞年度人气艺人](http://www.share.minike.top/Article/details/97698.shtml)
-- 2026-06-30 08:23 - [王健林甩卖超80座万达广场](https://www.share.minike.top/Article/details/637416.shtml)
+- 2026-06-30 08:20 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/472350266109.shtml)
+- 2026-06-30 08:24 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/233435612518.shtml)
+- 2026-06-30 08:10 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/16160.shtml)
+- 2026-06-30 08:16 - [巴西替补奇兵读秒绝杀](https://www.blog.kurohicncr.top/Article/details/041260.shtml)
+- 2026-06-30 08:08 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/772010.shtml)
+- 2026-06-30 08:15 - [有什么好的高中网课推荐吗？](https://www.blog.minike.top/Article/details/66799813.shtml)
+- 2026-06-30 08:12 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/515931295817.shtml)
+- 2026-06-30 08:25 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/1661020.shtml)
+- 2026-06-30 08:07 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/8184609455.shtml)
+- 2026-06-30 08:21 - [安切洛蒂 换人](https://www.share.minike.top/Article/details/252131462.shtml)
+- 2026-06-30 08:18 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.minike.top/Article/details/5044887.shtml)
+- 2026-06-30 08:23 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.kurohicncr.top/Article/details/74921216.shtml)
+- 2026-06-30 08:10 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/2764960011.shtml)
+- 2026-06-30 08:17 - [女子清吧被陌生人投放伟哥](https://www.blog.kurohicncr.top/Article/details/8088992008.shtml)
+- 2026-06-30 08:17 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/44286197352.shtml)

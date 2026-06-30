@@ -1,60 +1,59 @@
-# 受权发布丨中华人民共和国行政复议法实施条例
+# 世界首台630℃二次再热百万机组正式投产发电
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-新华社北京5月8日电 中华人民共和国行政复议法实施条例 (2007年5月29日中华人民共和国国务院令第499号公布 2026年4月29日中华人民共和国国务院令第836号修订) 第一章 总则 第一条 根据《中华人民共和国行政复议法》(以下简称行政复议法)，制定本条例。 第二条 行政复议机关应当对行政行为的合法性、适当性进行全面审查，保护公民、法人和其他组织的合法权益，监督和保障行
+中新网山东郓城6月8日电 (陈昊星)6月8日，世界首台630℃等级二次再热超超临界百万千瓦煤电机组——大唐山东郓城630℃国家电力示范项目1号机组顺利完成168小时满负荷试运行，正式投入商业运营。 大唐山东郓城630℃国家电力示范项目位于山东省菏泽市郓城县，承载着国家工信部新材料生产应用示范平台建设和国资委创新联合体重大攻关的重要使命，是“十三五”期间国家唯一立项的百万千瓦级煤
 
 ## 正文
 
-新华社北京5月8日电 中华人民共和国行政复议法实施条例 (2007年5月29日中华人民共和国国务院令第499号公布 2026年4月29日中华人民共和国国务院令第836号修订) 第一章 总则 第一条 根据《中华人民共和国行政复议法》(以下简称行政复议法)，制定本条例。
+中新网山东郓城6月8日电 (陈昊星)6月8日，世界首台630℃等级二次再热超超临界百万千瓦煤电机组——大唐山东郓城630℃国家电力示范项目1号机组顺利完成168小时满负荷试运行，正式投入商业运营。
 
-第二条 行政复议机关应当对行政行为的合法性、适当性进行全面审查，保护公民、法人和其他组织的合法权益，监督和保障行政机关依法行使职权，推动行政争议实质性化解，促进从源头上预防和减少行政争议。
+大唐山东郓城630℃国家电力示范项目位于山东省菏泽市郓城县，承载着国家工信部新材料生产应用示范平台建设和国资委创新联合体重大攻关的重要使命，是“十三五”期间国家唯一立项的百万千瓦级煤电示范项目，同时也是山东省新旧动能转换重大项目。
 
-第三条 各级行政复议机关应当认真履行行政复议职责，领导并支持本机关行政复议机构依法办理行政复议事项，依照有关规定配备、充实、调剂专职行政复议人员，保证行政复议机构的办案能力与工作任务相适应。
+2023年8月，项目主体工程建设全面启动。
 
-第四条 行政复议机构依照行政复议法和本条例的规定，履行下列职责： (一)受理行政复议申请； (二)组织开展行政复议调解； (三)审理行政复议案件，拟定行政复议决定； (四)办理行政复议法第五十六条、第五十七条规定的附带审查事项； (五)办理行政复议法第七十二条规定的行政赔偿等事项； (六)按照职责权限，指导、监督下级行政复议机构依法履行行政复议职责； (七)按照职责权限，督促被申请人、其他有关行政机关依法履行行政复议决定书、调解书、意见书； (八)办理行政复议案件统计、行政复议决定抄告事项； (九)研究行政复议工作中发现的问题，及时向有关机关提出改进建议，重大问题及时向行政复议机关报告； (十)法律、法规规定的其他事项。
+在燃煤发电领域，机组主参数是决定煤电机组热效率、提升发电经济性的核心关键。
 
-第五条 行政复议人员应当具备与履行行政复议职责相适应的政治、业务素质和道德品行。
+目前，国内已投运的常规百万千瓦级燃煤机组，发电热效率维持在49%左右。
 
-第六条 行政复议机关应当加强行政复议调解工作，支持和保障行政复议机构依法开展调解工作，有关行政机关应当予以配合。
+大唐郓城项目通过提升机组运行参数、优化系统结构、升级核心材料等方式，一举突破传统煤电效率瓶颈，机组设计发电热效率达到50.05%，主蒸汽压力提高至35.5兆帕、再热汽温提升至631℃，供电煤耗降至256.28克/千瓦时，也是全球煤电领域首次实现热效突破50%的标志性项目。
 
-第七条 行政复议机关应当加强行政复议工作规范化建设，提升行政复议工作流程、保障等规范化水平。
+依托“新技术、新工艺、新装备、新材料”的四重创新赋能，项目全厂设备国产化率为98.89%。
 
-具体规范由国务院行政复议机构会同国务院有关部门制定。
+机组满负荷运行状态下，相较于常规百万千瓦机组，两台机组每年可节约标准煤20.8万吨、减排二氧化碳54万吨，每年节约的煤炭用来发电，可满足25万户家庭全年用电需求，实现了绿色低碳与能源保供的双重价值。
 
 ## 相关推荐
 
-- 2026-06-30 08:00 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-30 08:27 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
-- 2026-06-30 08:08 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-30 08:11 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-30 08:18 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-30 08:10 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-30 08:03 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
-- 2026-06-30 08:28 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
-- 2026-06-30 08:16 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-30 08:08 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
-- 2026-06-30 08:08 - [藤森庆子赢得秘鲁总统选举](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-30 08:06 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-30 08:12 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-30 08:29 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-30 08:29 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-30 08:10 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-30 08:07 - [库尼亚赛后伸五指嘲讽日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-30 08:28 - [王濛回复黄灿灿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-30 08:14 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-30 08:28 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-30 08:18 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
+- 2026-06-30 08:20 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-30 08:08 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
+- 2026-06-30 08:31 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-30 08:17 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-30 08:13 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-30 08:13 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:26 - [送你一朵小红花](https://www.share.minike.top/Article/details/78485786944.shtml)
-- 2026-06-30 08:22 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/7934213923.shtml)
-- 2026-06-30 08:10 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.kurohicncr.top/Article/details/679887904.shtml)
-- 2026-06-30 08:27 - [日本球员说被绝杀非常不甘心](http://www.share.minike.top/Article/details/33076637736.shtml)
-- 2026-06-30 08:20 - [武磊：巴西队赢的并不轻松](https://www.share.minike.top/Article/details/1758979.shtml)
-- 2026-06-30 08:13 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/76581053.shtml)
-- 2026-06-30 08:07 - [电影抓特务上映11天破亿](http://www.blog.minike.top/Article/details/1567398205.shtml)
-- 2026-06-30 08:14 - [孙兴慜道歉](http://www.share.kurohicncr.top/Article/details/79691516995.shtml)
-- 2026-06-30 08:11 - [巴西半场0比1日本](http://www.share.kurohicncr.top/Article/details/165346.shtml)
-- 2026-06-30 08:17 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/192213982392.shtml)
-- 2026-06-30 08:22 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/105508.shtml)
-- 2026-06-30 08:07 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/343239501651.shtml)
-- 2026-06-30 08:06 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/442986.shtml)
-- 2026-06-30 08:12 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/5565012076.shtml)
-- 2026-06-30 08:24 - [巴西补时绝杀日本](http://www.blog.kurohicncr.top/Article/details/382096.shtml)
+- 2026-06-30 08:22 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.minike.top/Article/details/700835505.shtml)
+- 2026-06-30 08:11 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/49497038312.shtml)
+- 2026-06-30 08:14 - [泰山建135公里刀片刺绳隔离网](https://www.blog.minike.top/Article/details/69985.shtml)
+- 2026-06-30 08:34 - [周生如故](https://www.blog.minike.top/Article/details/5529667471.shtml)
+- 2026-06-30 08:30 - [德国队世界杯点球大战首败](https://www.blog.kurohicncr.top/Article/details/516701020.shtml)
+- 2026-06-30 08:31 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/0000934979.shtml)
+- 2026-06-30 08:29 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/18269915875.shtml)
+- 2026-06-30 08:25 - [锐评T1战胜KC](https://www.share.kurohicncr.top/Article/details/75030.shtml)
+- 2026-06-30 08:08 - [委内瑞拉地震死亡人数升至1719人](http://www.share.kurohicncr.top/Article/details/7178949004.shtml)
+- 2026-06-30 08:15 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/7821818308.shtml)
+- 2026-06-30 08:29 - [老外对中国cosplay竟这样评价…](http://www.share.kurohicncr.top/Article/details/32650940.shtml)
+- 2026-06-30 08:21 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/3137828.shtml)
+- 2026-06-30 08:15 - [女子遭下药退赔偿拟追刑责](http://www.share.minike.top/Article/details/1686824.shtml)
+- 2026-06-30 08:06 - [德国队世界杯点球大战首败](http://www.share.minike.top/Article/details/285707825.shtml)
+- 2026-06-30 08:32 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/5703450370.shtml)

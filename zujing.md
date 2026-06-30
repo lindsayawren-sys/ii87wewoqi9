@@ -1,57 +1,60 @@
-# 报告总结中国数智传播发展四大特点
+# MLCC、商业航天概念领跌，华宝基金军工ETF（512810）跌逾2%频现溢价！机构：调整或是较好的布局机会
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-中新网北京5月10日电 (记者 李京泽)北京城市学院数智传播研究院与社会科学文献出版社9日联合发布《数智传播蓝皮书：中国数智传播发展报告(2026)》。蓝皮书总结了当前中国数智传播发展的四大特点。 蓝皮书全面概括2025年以来数智技术革命与全球秩序演变交织驱动下的传播生态重构。其指出，中国数智传播发展已从局部探索迈入全面统筹、系统推进的新阶段，呈现以下特点： 一是生成式人工智能
+6月8日，大市延续调整，沪指一度失守4000点。军工板块随市走低，军工核心资产——军工ETF华宝（512810）跌超2%，场内价格落于所有均线之下，场内频现溢价，显示买盘态度仍积极。 前期热门MLCC、商业航天等概念股跌幅靠前，鸿远电子挫逾8%，铂力特（维权）、振华科技跌超7%，航天电器、华丰科技跌超5%。 方正策略指出，这一轮市场整体的回调是从5月中旬开始的，A股领先海外主要
 
 ## 正文
 
-中新网北京5月10日电 (记者 李京泽)北京城市学院数智传播研究院与社会科学文献出版社9日联合发布《数智传播蓝皮书：中国数智传播发展报告(2026)》。
+6月8日，大市延续调整，沪指一度失守4000点。
 
-蓝皮书总结了当前中国数智传播发展的四大特点。
+军工板块随市走低，军工核心资产——军工ETF华宝（512810）跌超2%，场内价格落于所有均线之下，场内频现溢价，显示买盘态度仍积极。
 
-蓝皮书全面概括2025年以来数智技术革命与全球秩序演变交织驱动下的传播生态重构。
+前期热门MLCC、商业航天等概念股跌幅靠前，鸿远电子挫逾8%，铂力特（维权）、振华科技跌超7%，航天电器、华丰科技跌超5%。
 
-其指出，中国数智传播发展已从局部探索迈入全面统筹、系统推进的新阶段，呈现以下特点： 一是生成式人工智能技术在新闻传播领域的应用已从概念走向实践，智能体广泛嵌入内容生产、生活服务、社会治理及文化传播等领域，中国主流媒体的平台化转型步入系统性构建阶段，呈现技术架构、运营机制与功能定位协同演进的显著特征； 二是视听智媒加速焕新，算法透明性与用户赋权成为平台生态建设的重要方向；三是中国城市国际传播建设步入数智化、体系化、品牌化的范式转型，市县融媒体中心以智能化媒资系统建设为基础，着力破解基层数智传播资源有限的困境； 四是网络舆论生态呈现人机协同、可预见性与多元联动的显著特征，数智技术深入主流媒体系统性变革布局，成为传媒产业的变革性力量。
+方正策略指出，这一轮市场整体的回调是从5月中旬开始的，A股领先海外主要股指先行回调，核心原因是特朗普访华之后的情绪兑现，参考类似事件市场回调的时间和回调幅度，目前全A指数已完成大半。
 
-蓝皮书同时指出，英国、法国、美国等主要国家纷纷加速数智传播发展，通过立法规范、技术研发与国际合作重塑全球传播能力。
+总体上展望Q3行情依然偏乐观，调整或是较好的布局机会。
 
-蓝皮书认为，2025年以来，在数智传播加速演进的同时，一些问题不容忽视：全球数智传播竞争加剧、数据滥用、算法偏见、平台垄断等伦理风险持续加剧，严重冲击信息传播的真实性、透明度与公平性，对行业法律规制与生态治理均提出了更高要求。
+聚焦军工板块，国盛证券最新研报表示，持续看好商业航天、被动元器件、燃机/内燃机板块。
 
-(完)
+1）商业航天：国内进入高密度发射模式，SpaceX拟于当地时间6月12日在纳斯达克挂牌上市，商业航天板块经历较长时间调整，部分核心个股已经将上一轮行情涨幅回吐，远期看战略地位、市场空间没有发生变化，短期看多重催化+位置低，商业航天有望迎来新一轮行情。
+
+2）被动元器件：以MLCC为例，AI服务器使用MLCC数量是通用服务器的10到15倍，以村田为首的头部厂商自2026Q1对AI服务器及高端车规级产品大幅调价，带动TDK、太阳诱电等日系厂商及台系、国内厂商跟进，行业涨价事件持续催化。
 
 ## 相关推荐
 
-- 2026-06-30 08:17 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
-- 2026-06-30 08:29 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-30 08:18 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-30 08:12 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-30 08:06 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-30 08:28 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-30 08:16 - [田中碧失误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-30 08:09 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
-- 2026-06-30 08:17 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-30 08:06 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-30 08:02 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-30 08:11 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-30 08:12 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-30 08:21 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-30 08:07 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-30 08:25 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-30 08:21 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-30 08:23 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-30 08:26 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-30 08:30 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
+- 2026-06-30 08:31 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-30 08:12 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-30 08:29 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-30 08:21 - [森保一致歉：世界第一目标没能实现](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-30 08:08 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-30 08:17 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-30 08:31 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:20 - [森保一致歉：世界第一目标没能实现](https://www.blog.minike.top/Article/details/7877251912.shtml)
-- 2026-06-30 08:01 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/96015997257.shtml)
-- 2026-06-30 08:18 - [德国 传控](http://www.share.kurohicncr.top/Article/details/06269.shtml)
-- 2026-06-30 08:18 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/428680039449.shtml)
-- 2026-06-30 08:28 - [巴西在进攻三区完成210脚传球](http://www.share.kurohicncr.top/Article/details/6058053.shtml)
-- 2026-06-30 08:29 - [毒液2](http://www.blog.kurohicncr.top/Article/details/99997262.shtml)
-- 2026-06-30 08:21 - [斗破苍穹](https://www.share.minike.top/Article/details/4595359161.shtml)
-- 2026-06-30 08:17 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/18864304.shtml)
-- 2026-06-30 08:23 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/636706008547.shtml)
-- 2026-06-30 08:04 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/21080476.shtml)
-- 2026-06-30 08:27 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/10252008.shtml)
-- 2026-06-30 08:01 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/94378681097.shtml)
-- 2026-06-30 08:27 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.blog.kurohicncr.top/Article/details/772301900183.shtml)
-- 2026-06-30 08:07 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/12664508558.shtml)
-- 2026-06-30 08:29 - [花少8要去世界杯举办国](http://www.blog.minike.top/Article/details/47440985.shtml)
+- 2026-06-30 08:06 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/0413336.shtml)
+- 2026-06-30 08:19 - [孙颖莎王楚钦晋级8强](https://www.blog.minike.top/Article/details/030501192.shtml)
+- 2026-06-30 08:15 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://www.share.kurohicncr.top/Article/details/833338478.shtml)
+- 2026-06-30 08:11 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.kurohicncr.top/Article/details/92163313071.shtml)
+- 2026-06-30 08:24 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.kurohicncr.top/Article/details/4936305.shtml)
+- 2026-06-30 08:35 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/5197653.shtml)
+- 2026-06-30 08:19 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/02455764093.shtml)
+- 2026-06-30 08:28 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.minike.top/Article/details/4326864.shtml)
+- 2026-06-30 08:21 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.minike.top/Article/details/5156706195.shtml)
+- 2026-06-30 08:31 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.blog.minike.top/Article/details/26263534606.shtml)
+- 2026-06-30 08:10 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/25658437.shtml)
+- 2026-06-30 08:19 - [巴西绝杀日本](http://www.share.minike.top/Article/details/6894253964.shtml)
+- 2026-06-30 08:11 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/100338.shtml)
+- 2026-06-30 08:35 - [巴西绝杀日本](http://www.blog.kurohicncr.top/Article/details/6444537267.shtml)
+- 2026-06-30 08:35 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/19579.shtml)

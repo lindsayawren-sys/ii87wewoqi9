@@ -1,58 +1,54 @@
-# 有的狂揽31亿，有的只赚2600万！消金业绩首尾相差过百倍
+# 产品注册上市提速！我国已批准注册特医食品330个
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-来源：柒财经 对消金行业而言，2025年仍是跋涉“深水区”，且具有分水岭意义的一年。 在监管收紧、利率下探、不良承压的多重压力下，行业从跑马圈地的规模为王时代迈向精耕细作的价值导向。 与此同时，域内企业业绩分化加速：头部玩家继续领跑，总资产、营收、净利润等指标遥遥领先；腰尾部显露承压迹象，面临增收不增利或利润下滑的挑战。 01 缩表与扩表：谁在瘦身，谁在增肥？ 2025年，消费
+中新网6月8日电 据“市说新语”微信公众号消息，近期，我国特殊医学用途配方食品(以下简称特医食品)在产品注册类别数量拓展、罕见病类特医食品注册和临床可及性等方面取得新突破，有助于为特殊人群提供更精准、更全面的营养支持。2025年以来，《食品安全国家标准 特殊医学用途婴儿配方食品通则》(GB 25596—2025)《食品安全国家标准 特殊医学用途配方食品通则》(GB 29922—
 
 ## 正文
 
-来源：柒财经 对消金行业而言，2025年仍是跋涉“深水区”，且具有分水岭意义的一年。
+中新网6月8日电 据“市说新语”微信公众号消息，近期，我国特殊医学用途配方食品(以下简称特医食品)在产品注册类别数量拓展、罕见病类特医食品注册和临床可及性等方面取得新突破，有助于为特殊人群提供更精准、更全面的营养支持。
 
-在监管收紧、利率下探、不良承压的多重压力下，行业从跑马圈地的规模为王时代迈向精耕细作的价值导向。
+2025年以来，《食品安全国家标准 特殊医学用途婴儿配方食品通则》(GB 25596—2025)《食品安全国家标准 特殊医学用途配方食品通则》(GB 29922—2025)和《食品安全国家标准 肿瘤全营养配方食品》(GB 31662—2025)等三项特医食品新国标陆续发布，市场监管总局积极发布政策问答、开展宣贯和座谈交流，稳步推进产品按新国标注册。
 
-与此同时，域内企业业绩分化加速：头部玩家继续领跑，总资产、营收、净利润等指标遥遥领先；腰尾部显露承压迹象，面临增收不增利或利润下滑的挑战。
+目前，我国已批准注册特医食品330个，覆盖所有产品大类和全年龄段人群，基本满足临床营养需求。
 
-01 缩表与扩表：谁在瘦身，谁在增肥？
+已有35个临床急需特医食品产品经公示纳入优先审评审批绿色通道，涵盖多种新类别产品，实现产品注册上市提速。
 
-2025年，消费金融行业的资产规模变动打破“大者恒大”的惯性。
+新增1个肿瘤全营养配方食品注册，进一步丰富肿瘤患者营养支持产品供给。
 
-在统计的20余家消金公司中，包括行业龙头蚂蚁消金在内，有6家的总资产在2025年出现下滑。
+5款国产罕见病类特医食品通过优先审评审批绿色通道获批注册，实现国产苯丙酮尿症特医食品的全年龄段人群覆盖和甲基丙二酸血症/丙酸血症特医食品注册零的突破。
 
-截至2025年末，蚂蚁消金总资产3122.9亿元，是行业唯一的三千亿级选手，断崖式甩开老二，但同比微降0.47%，首次释放收缩信号。
-
-兴业消金、中银消金、马上消金、小米消金也进行了缩表，总资产降幅分别为5%、3.01%、11.38%、4.03%；招联消金微增2.13%，与上年基本持平。
+下一步，市场监管总局将聚焦临床急需领域，进一步丰富产品类别，引导特医食品产业向满足多元化、个性化、精准化营养需求转型升级。
 
 ## 相关推荐
 
-- 2026-06-30 08:25 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-30 08:26 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-30 08:02 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
-- 2026-06-30 08:07 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-30 08:00 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
-- 2026-06-30 08:08 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
-- 2026-06-30 08:24 - [锐评T1战胜KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
-- 2026-06-30 08:15 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-30 08:15 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
-- 2026-06-30 08:29 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-30 08:21 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-30 08:02 - [库尼亚赛后伸五指嘲讽日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-30 08:16 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-30 08:32 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-30 08:29 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-30 08:20 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-30 08:13 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-30 08:34 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-30 08:20 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-30 08:15 - [巴拉圭率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-30 08:10 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-30 08:15 - [王楚钦说配合稍微有些陌生感](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:08 - [亚洲球队全部出局](https://www.blog.minike.top/Article/details/382999.shtml)
-- 2026-06-30 08:26 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/148346622608.shtml)
-- 2026-06-30 08:17 - [董卿父亲在报纸上发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/8317373.shtml)
-- 2026-06-30 08:04 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/187069.shtml)
-- 2026-06-30 08:15 - [武磊：日本队有能力跟任何强队抗衡](https://www.blog.minike.top/Article/details/2485826495.shtml)
-- 2026-06-30 08:29 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/4037014541.shtml)
-- 2026-06-30 08:13 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/98095780570.shtml)
-- 2026-06-30 08:13 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/157733910.shtml)
-- 2026-06-30 08:25 - [德国巴拉圭加时](https://www.share.minike.top/Article/details/1215025.shtml)
-- 2026-06-30 08:15 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/85733.shtml)
-- 2026-06-30 08:04 - [有酒店推行24小时退房制](https://www.blog.minike.top/Article/details/455067.shtml)
-- 2026-06-30 08:22 - [杨紫获白玉兰视后争议不止](https://www.share.minike.top/Article/details/99649326733.shtml)
-- 2026-06-30 08:01 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/378418417811.shtml)
-- 2026-06-30 08:19 - [德国淘汰](https://www.share.minike.top/Article/details/81390.shtml)
-- 2026-06-30 08:06 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/45047985.shtml)
+- 2026-06-30 08:29 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](http://www.share.minike.top/Article/details/87529753.shtml)
+- 2026-06-30 08:09 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.minike.top/Article/details/600039729.shtml)
+- 2026-06-30 08:07 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/201138.shtml)
+- 2026-06-30 08:19 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/4322684.shtml)
+- 2026-06-30 08:35 - [德国4比5巴拉圭](http://www.blog.minike.top/Article/details/97046009.shtml)
+- 2026-06-30 08:25 - [亚洲球队全部告别世界杯](http://www.blog.kurohicncr.top/Article/details/20684113759.shtml)
+- 2026-06-30 08:07 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/7822365262.shtml)
+- 2026-06-30 08:21 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/409146890.shtml)
+- 2026-06-30 08:29 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/022102.shtml)
+- 2026-06-30 08:29 - [沉睡花园](https://www.share.minike.top/Article/details/4606031874.shtml)
+- 2026-06-30 08:12 - [世界杯欧洲队7战南美仅1胜](https://www.blog.kurohicncr.top/Article/details/578629.shtml)
+- 2026-06-30 08:07 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/4700097.shtml)
+- 2026-06-30 08:33 - [莫兰特转投开拓者效力](http://www.share.minike.top/Article/details/69494055627.shtml)
+- 2026-06-30 08:31 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/2741944.shtml)
+- 2026-06-30 08:24 - [人类...完蛋了...](https://www.share.minike.top/Article/details/88961883.shtml)

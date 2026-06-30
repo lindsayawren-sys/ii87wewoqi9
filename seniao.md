@@ -1,57 +1,58 @@
-# 中国人寿业务员涉嫌用假合同诈骗24万！警方：诈骗人数众多、涉案金额巨大，业务员被拘留
+# 黄仁勋轻描淡写一句话，让台湾“缺电焦虑”再升温？
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-原标题：中国人寿业务员涉嫌用假合同诈骗24万，公司：合同是假公章是真的，属民间借贷；警方：诈骗人数众多、涉案金额巨大，业务员被拘留 “我年纪大了不识字，之前买保险都是把钱转给王盈，让她替我交钱，从没出过问题。”许昌市民李女士哽咽着说。然而，正是这份信任，让她和朋友张女士，一同陷入了业务员精心编织的“骗局”，共计24万余元养老钱血本无归。 近日，许昌市民张女士和李女士向大象新闻·
+英伟达创办人黄仁勋近日在台湾再度“一语掀起千层浪”。他在台湾员工大会上打比方，人类员工需要米饭，人工智能(AI)员工需要电力，“我们需要更大量的电力”。 随后，当记者当面转述台当局经济事务主管部门官员“2034年前台湾供电无虞”的说法时，黄仁勋回了一句轻描淡写的“Maybe(也许吧)”，现场一度陷入沉默，也让岛内舆论再度聚焦缺电焦虑与能源治理的结构性矛盾。 台湾“核电归零”后的
 
 ## 正文
 
-原标题：中国人寿业务员涉嫌用假合同诈骗24万，公司：合同是假公章是真的，属民间借贷；警方：诈骗人数众多、涉案金额巨大，业务员被拘留 “我年纪大了不识字，之前买保险都是把钱转给王盈，让她替我交钱，从没出过问题。
+英伟达创办人黄仁勋近日在台湾再度“一语掀起千层浪”。
 
-”许昌市民李女士哽咽着说。
+他在台湾员工大会上打比方，人类员工需要米饭，人工智能(AI)员工需要电力，“我们需要更大量的电力”。
 
-然而，正是这份信任，让她和朋友张女士，一同陷入了业务员精心编织的“骗局”，共计24万余元养老钱血本无归。
+随后，当记者当面转述台当局经济事务主管部门官员“2034年前台湾供电无虞”的说法时，黄仁勋回了一句轻描淡写的“Maybe(也许吧)”，现场一度陷入沉默，也让岛内舆论再度聚焦缺电焦虑与能源治理的结构性矛盾。
 
-近日，许昌市民张女士和李女士向大象新闻·大象帮求助，称她们在2020年经中国人寿保险业务员王盈推销，购买了所谓的“内部理财”和“养老保险”产品。
+台湾“核电归零”后的挑战 2025年5月17日，台湾第三核能发电厂(下称“核三厂”)二号机组运转执照到期，次日零时前正式停机，台湾进入“核电归零”时代。
 
-直到2025年10月返利中断、王盈失联后，她们才发现手中的合同竟全是假的。
+此后，高雄、台南、台东等地接连发生停电事故。
 
-业务员以“内部理财”高息诱人，李女士介绍朋友一同入坑 据张女士回忆，2020年，她通过朋友李女士介绍，结识了中国人寿的业务员王盈。
+台湾电力公司多次解释，停电与核电除役无关，主要涉及线路老化、自动化开关受损等，但难以让民众信服。
 
-“王盈向我推荐了一款中国人寿内部的理财保险，说一份2万元，一个月有200元利息。
+台湾工商团体“三三会”理事长林伯丰曾指出，“台湾不缺电，但会停电”是最大的笑话，若要发展AI产业，核能是不可或缺的选项，这是全球共同的趋势。
 
-”张女士被这个稳赚不赔的“内部理财”打动，截至2025年6月，她分三次共投入了14万元。
+他建议检讨能源政策及能源配比，并表示台湾只有持续发展核电，才能实现“稳定供电、合理电价”。
 
 ## 相关推荐
 
-- 2026-06-30 08:26 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-30 08:12 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-30 08:13 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-30 08:15 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-30 08:03 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-30 08:28 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
-- 2026-06-30 08:03 - [勇士续约波尔津吉斯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-30 08:11 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-30 08:14 - [诺伊尔尽力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-30 08:14 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-30 08:23 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-30 08:26 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-30 08:31 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-30 08:35 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-30 08:12 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-30 08:16 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
+- 2026-06-30 08:28 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-30 08:34 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-30 08:06 - [马耳他著名拱门坍塌致中国男子身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-30 08:27 - [日本队主帅道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-30 08:33 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-30 08:17 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-30 08:13 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:29 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/66295.shtml)
-- 2026-06-30 08:21 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/370532.shtml)
-- 2026-06-30 08:29 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/1736880685.shtml)
-- 2026-06-30 08:16 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.kurohicncr.top/Article/details/258886.shtml)
-- 2026-06-30 08:29 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://www.blog.kurohicncr.top/Article/details/11251285393.shtml)
-- 2026-06-30 08:15 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/1051845410.shtml)
-- 2026-06-30 08:04 - [明星大侦探第一季](https://www.share.minike.top/Article/details/077147.shtml)
-- 2026-06-30 08:03 - [哈弗茨头球破门](https://www.blog.kurohicncr.top/Article/details/089784.shtml)
-- 2026-06-30 08:23 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.minike.top/Article/details/1116238.shtml)
-- 2026-06-30 08:28 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/7230596.shtml)
-- 2026-06-30 08:08 - [斗破苍穹](https://www.blog.minike.top/Article/details/3188557858.shtml)
-- 2026-06-30 08:12 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/16267.shtml)
-- 2026-06-30 08:03 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/360996882.shtml)
-- 2026-06-30 08:05 - [詹姆斯下赛季去哪](https://www.blog.minike.top/Article/details/865176906547.shtml)
-- 2026-06-30 08:13 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.kurohicncr.top/Article/details/31137677885.shtml)
+- 2026-06-30 08:13 - [二次元提前预演明日巴西对日本](http://www.share.kurohicncr.top/Article/details/16908814939.shtml)
+- 2026-06-30 08:19 - [千香](http://www.share.minike.top/Article/details/32921180834.shtml)
+- 2026-06-30 08:17 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/525774980162.shtml)
+- 2026-06-30 08:34 - [亚洲球队全部出局](http://www.share.minike.top/Article/details/29544550428.shtml)
+- 2026-06-30 08:35 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/93827.shtml)
+- 2026-06-30 08:25 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/3074444873.shtml)
+- 2026-06-30 08:19 - [大蒜晒外面被路过女子连盆端走](http://www.share.minike.top/Article/details/34858213299.shtml)
+- 2026-06-30 08:30 - [森保一 保守](http://www.blog.kurohicncr.top/Article/details/54788639734.shtml)
+- 2026-06-30 08:24 - [美人鱼](https://www.blog.minike.top/Article/details/859728409050.shtml)
+- 2026-06-30 08:22 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/70987605987.shtml)
+- 2026-06-30 08:22 - [勇士续约波尔津吉斯](https://www.blog.minike.top/Article/details/36454.shtml)
+- 2026-06-30 08:11 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/4794626.shtml)
+- 2026-06-30 08:17 - [逃狱兄弟](https://www.share.minike.top/Article/details/9516141460.shtml)
+- 2026-06-30 08:23 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.minike.top/Article/details/173937716146.shtml)
+- 2026-06-30 08:34 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](https://www.blog.kurohicncr.top/Article/details/1763583894.shtml)

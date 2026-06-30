@@ -1,57 +1,57 @@
-# 俄罗斯同意延长停火并换俘 乌克兰称不会袭击红场阅兵
+# 安踏集团发布2025年度ESG报告
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-新华社莫斯科/基辅5月8日电(记者黄河 李东旭)俄罗斯总统助理乌沙科夫8日晚表示，俄方同意并支持美国总统特朗普提出的延长停火和俄乌交换被俘人员的方案。乌克兰总统泽连斯基下令，莫斯科红场9日举行的阅兵活动不会成为乌方攻击目标。乌沙科夫说，俄方同意美方将俄乌停火延长至5月11日的提议，并支持美方关于俄乌双方在11日前互换1000名被俘人员的提议。据他介绍，上述提议是俄美双方电话沟通
+在第55个“世界环境日”之际，安踏集团于国内首个废网球回收再造的可持续球场，举办2025年度ESG报告发布会。安踏集团连续第11年对外发布《环境、社会及管治(ESG)报告》，系统披露其在“五大共生”原则指导下，可持续产品创新、全链低碳转型、多元职场建设与社会公益践行等方面的实践与核心进展。国际权威可持续发展评级MSCI评级连升至AA级，成为中国体育用品企业最高评级。 安踏集团执
 
 ## 正文
 
-新华社莫斯科/基辅5月8日电(记者黄河 李东旭)俄罗斯总统助理乌沙科夫8日晚表示，俄方同意并支持美国总统特朗普提出的延长停火和俄乌交换被俘人员的方案。
+在第55个“世界环境日”之际，安踏集团于国内首个废网球回收再造的可持续球场，举办2025年度ESG报告发布会。
 
-乌克兰总统泽连斯基下令，莫斯科红场9日举行的阅兵活动不会成为乌方攻击目标。
+安踏集团连续第11年对外发布《环境、社会及管治(ESG)报告》，系统披露其在“五大共生”原则指导下，可持续产品创新、全链低碳转型、多元职场建设与社会公益践行等方面的实践与核心进展。
 
-乌沙科夫说，俄方同意美方将俄乌停火延长至5月11日的提议，并支持美方关于俄乌双方在11日前互换1000名被俘人员的提议。
+国际权威可持续发展评级MSCI评级连升至AA级，成为中国体育用品企业最高评级。
 
-据他介绍，上述提议是俄美双方电话沟通达成，“特朗普总统的上述提议特意选在卫国战争胜利81周年之际提出”。
+安踏集团执行董事、集团联席CEO、可持续发展委员会主席赖世贤表示：“可持续发展是安踏集团坚定不移的发展战略。
 
-泽连斯基在社交媒体发文称，在美方斡旋的谈判框架内，俄方同意与乌方互换战俘的方案，5月9日至11日也应实现停火。
+同时，带动上下游企业一同推进可持续发展进程，是我们作为链主企业的重要责任。
 
-他表示，释放战俘是俄乌冲突需要解决的关键人道主义问题之一，也是决定乌方立场的重要根据。
+2025年集团超预期达成了阶段性目标，正以全系统的管理体系和层层责任制稳步推进‘1+3+5’可持续战略蓝图落地，迈向2050年全集团实现碳中和的愿景。
 
-乌方正在持续努力让被囚禁的乌克兰人返回家园。
+” 深耕消费者价值可持续产品占比突破38% 2025年安踏集团可持续产品占比突破38%，推出超1亿件可持续产品服务全球消费者。
 
-他指示乌方团队立即为换俘做好一切必要准备。
+从原材料研发、产品设计、包装应用到终端零售的全生命周期，全方位推动产品的绿色低碳转型，并构建全流程质量与创新管理体系。
 
 ## 相关推荐
 
-- 2026-06-30 08:03 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-30 08:18 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-30 08:17 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
-- 2026-06-30 08:23 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
-- 2026-06-30 08:22 - [董路：谁赢谁是“正路子”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-30 08:25 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-30 08:10 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-30 08:20 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-30 08:19 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-30 08:11 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-30 08:17 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
+- 2026-06-30 08:13 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
+- 2026-06-30 08:14 - [董路：谁赢谁是“正路子”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-30 08:30 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
+- 2026-06-30 08:08 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-30 08:18 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-30 08:20 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-30 08:33 - [女子遭下药退赔偿拟追刑责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-30 08:14 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-30 08:32 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-30 08:24 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-30 08:24 - [武磊：巴西队赢的并不轻松](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:15 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/041788210513.shtml)
-- 2026-06-30 08:18 - [时光音乐会](https://www.share.minike.top/Article/details/871731145.shtml)
-- 2026-06-30 08:03 - [日本队主帅道歉](https://www.share.minike.top/Article/details/9987266552.shtml)
-- 2026-06-30 08:20 - [周冬雨多次说演不了话剧文城](http://www.share.kurohicncr.top/Article/details/561186570.shtml)
-- 2026-06-30 08:19 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/431940.shtml)
-- 2026-06-30 08:24 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/59138366767.shtml)
-- 2026-06-30 08:00 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/6125939543.shtml)
-- 2026-06-30 08:12 - [网瘾賊大的阿嬷](https://www.share.kurohicncr.top/Article/details/915949755.shtml)
-- 2026-06-30 08:08 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/538352928.shtml)
-- 2026-06-30 08:03 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/820315931.shtml)
-- 2026-06-30 08:06 - [库尼亚赛后伸五指嘲讽日本](http://www.share.kurohicncr.top/Article/details/25921056.shtml)
-- 2026-06-30 08:09 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/682987015500.shtml)
-- 2026-06-30 08:01 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/767498.shtml)
-- 2026-06-30 08:10 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/11811885463.shtml)
-- 2026-06-30 08:19 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/409151459977.shtml)
+- 2026-06-30 08:19 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/886807.shtml)
+- 2026-06-30 08:24 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/4803589.shtml)
+- 2026-06-30 08:23 - [德国队连续三届世界杯无缘16强](http://www.blog.kurohicncr.top/Article/details/960795076829.shtml)
+- 2026-06-30 08:32 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/64686535.shtml)
+- 2026-06-30 08:08 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/60247.shtml)
+- 2026-06-30 08:21 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/692776.shtml)
+- 2026-06-30 08:16 - [极限挑战第一季](http://www.share.minike.top/Article/details/06370301965.shtml)
+- 2026-06-30 08:29 - [卡塞米罗头球破门](https://www.share.kurohicncr.top/Article/details/21876091752.shtml)
+- 2026-06-30 08:25 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/316437.shtml)
+- 2026-06-30 08:15 - [苗族银饰](https://www.share.kurohicncr.top/Article/details/58148161484.shtml)
+- 2026-06-30 08:33 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/7527396.shtml)
+- 2026-06-30 08:27 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/80783.shtml)
+- 2026-06-30 08:10 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/035189.shtml)
+- 2026-06-30 08:33 - [电影抓特务上映11天破亿](https://www.share.minike.top/Article/details/64810684.shtml)
+- 2026-06-30 08:10 - [美股](http://www.blog.kurohicncr.top/Article/details/976706.shtml)

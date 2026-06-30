@@ -1,60 +1,57 @@
-# *ST威领负债激增、利息费用高企却很“慷慨”，多次年末预付大额款项为哪般？
+# AI眼镜：禁在六月高考，火在六月华强北
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 每经记者|吴泽鹏 每经编辑|杜宇 近日，*ST威领（SZ002667，股价29.16元，市值76亿元）披露2025年年报：公司全年实现营业收入3.20亿元，归母净利润亏损4.15亿元，同比分别下滑39.88%和34.62%。 值得注意的是，北京德皓国际会计师事务所对其出具保留意见的《审计报告》与否定意见的《内部控制审计报告》，其
+今年6月，AI眼镜再次成为市场中“最靓的仔”。 从消费端看，618大促带动了智能眼镜的火爆销售。 截至5月31日，天猫平台数据显示，AI智能硬件整体销售额同比增长80%，而AI眼镜品类更是激增9倍，成为今年最引人注目的黑马品类。 天猫XR设备热卖榜显示，乐奇Rokid带显示AI眼镜、千问AI眼镜S1、夸克AI眼镜S1占据前三席位，其中乐奇Rokid近7天销量突破1000件。 另
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 每经记者|吴泽鹏 每经编辑|杜宇 近日，*ST威领（SZ002667，股价29.16元，市值76亿元）披露2025年年报：公司全年实现营业收入3.20亿元，归母净利润亏损4.15亿元，同比分别下滑39.88%和34.62%。
+今年6月，AI眼镜再次成为市场中“最靓的仔”。
 
-值得注意的是，北京德皓国际会计师事务所对其出具保留意见的《审计报告》与否定意见的《内部控制审计报告》，其中一项关键问题为：无法判断*ST威领期末2846.15万元预付款的商业合理性。
+从消费端看，618大促带动了智能眼镜的火爆销售。
 
-《每日经济新闻》记者（下称“每经记者”）进一步调研发现，该笔预付款全部发生于2025年12月，资金高度集中流向5家供应商，对应业务均“暂未开展”。
+截至5月31日，天猫平台数据显示，AI智能硬件整体销售额同比增长80%，而AI眼镜品类更是激增9倍，成为今年最引人注目的黑马品类。
 
-追溯历史可见，此类情况并非孤例——2024年12月、2023年12月，*ST威领均发生大额预付，年末前五名预付款占总预付款比例均超80%，年末集中大额预付已成为公司多年“常态”。
+天猫XR设备热卖榜显示，乐奇Rokid带显示AI眼镜、千问AI眼镜S1、夸克AI眼镜S1占据前三席位，其中乐奇Rokid近7天销量突破1000件。
 
-一边是年末向供应商慷慨预付巨款，另一边却是自身资金捉襟见肘。
+另一边，6月高考季也给智能眼镜整了个“大活儿”。
 
-2025年末，*ST威领归属于母公司所有者权益为-3205万元（负值触发退市风险警示）；资产负债率由2024年末的55.75%飙升至90.70%，全年利息支出4664.24万元。
+多省考试院直接发通知：进考场先查眼镜！
 
-报告期内，公司新增大量非金融机构借款及担保债务。
+智能眼镜带进去就是作弊。
 
-资金链承压之下，仍持续对外大额预付，其商业逻辑令市场存疑。
+听起来像是给AI眼镜泼了盆冷水？
 
 ## 相关推荐
 
-- 2026-06-30 08:15 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
-- 2026-06-30 08:06 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-30 08:08 - [巴拉圭点球大战淘汰德国进16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-30 08:29 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-30 08:00 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-30 08:21 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
-- 2026-06-30 08:05 - [诺伊尔尽力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-30 08:29 - [王濛回复黄灿灿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
-- 2026-06-30 08:26 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
-- 2026-06-30 08:28 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-30 08:01 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-30 08:03 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-30 08:12 - [巴西在进攻三区完成210脚传球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-30 08:03 - [森保一 保守](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-30 08:23 - [第3集丨“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
+- 2026-06-30 08:16 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-30 08:24 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-30 08:18 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-30 08:11 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-30 08:07 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-30 08:27 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-30 08:15 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-30 08:22 - [王濛回复黄灿灿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-30 08:10 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-30 08:12 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:03 - [“草莓月亮”浪漫现身](http://www.blog.minike.top/Article/details/94204.shtml)
-- 2026-06-30 08:08 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.share.kurohicncr.top/Article/details/6416579923.shtml)
-- 2026-06-30 08:26 - [内马尔中场休息积极鼓励队友](https://www.share.kurohicncr.top/Article/details/683234.shtml)
-- 2026-06-30 08:28 - [刘宇宁高情商化解谁站C位](https://www.share.minike.top/Article/details/122369870784.shtml)
-- 2026-06-30 08:03 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/592083691.shtml)
-- 2026-06-30 08:21 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/1161419.shtml)
-- 2026-06-30 08:19 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/497206.shtml)
-- 2026-06-30 08:23 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/868867936540.shtml)
-- 2026-06-30 08:20 - [老外对中国cosplay竟这样评价…](http://www.blog.kurohicncr.top/Article/details/1060559132.shtml)
-- 2026-06-30 08:12 - [《男人至死是傻得儿》](https://www.blog.minike.top/Article/details/851397943.shtml)
-- 2026-06-30 08:07 - [巴西醒醒 这是淘汰赛](http://www.blog.kurohicncr.top/Article/details/475948.shtml)
-- 2026-06-30 08:17 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.kurohicncr.top/Article/details/19835294.shtml)
-- 2026-06-30 08:06 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/57768463747.shtml)
-- 2026-06-30 08:14 - [穆祉丞回应获年度人气艺人](https://www.share.minike.top/Article/details/588456.shtml)
-- 2026-06-30 08:08 - [亚洲球队全部出局](http://www.blog.minike.top/Article/details/9182303.shtml)
+- 2026-06-30 08:10 - [电影抓特务上映11天破亿](http://www.blog.kurohicncr.top/Article/details/87491105807.shtml)
+- 2026-06-30 08:26 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/550862.shtml)
+- 2026-06-30 08:18 - [巴拉圭进球](http://www.share.kurohicncr.top/Article/details/88160.shtml)
+- 2026-06-30 08:30 - [一见倾心](http://www.blog.minike.top/Article/details/21461609406.shtml)
+- 2026-06-30 08:31 - [男子在京东买到“同仁堂”假药](https://www.blog.kurohicncr.top/Article/details/53795597247.shtml)
+- 2026-06-30 08:14 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/542036336.shtml)
+- 2026-06-30 08:33 - [森保一致歉：世界第一目标没能实现](http://www.share.kurohicncr.top/Article/details/5960709179.shtml)
+- 2026-06-30 08:14 - [泰山景区回应修建刀片刺绳隔离网](https://www.share.minike.top/Article/details/99491608.shtml)
+- 2026-06-30 08:18 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/706380188591.shtml)
+- 2026-06-30 08:25 - [点球大战 残酷](http://www.blog.minike.top/Article/details/4528568.shtml)
+- 2026-06-30 08:25 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/207501.shtml)
+- 2026-06-30 08:14 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](http://www.blog.kurohicncr.top/Article/details/039887560877.shtml)
+- 2026-06-30 08:20 - [藤森庆子赢得秘鲁总统选举](http://www.share.minike.top/Article/details/5548200345.shtml)
+- 2026-06-30 08:30 - [世界杯巴拉圭点球淘汰德国](https://www.share.kurohicncr.top/Article/details/4221904602.shtml)
+- 2026-06-30 08:34 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.kurohicncr.top/Article/details/72392112.shtml)

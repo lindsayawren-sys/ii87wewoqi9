@@ -1,60 +1,59 @@
-# （经济观察）重庆江津：通江达海畅通道 聚产兴贸向全球
+# 黑石据悉拟出售所持逾20亿美元私募投资基金份额
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-中新网重庆5月10日电 (马佳欣)珞璜港内，巨轮靠泊；长江之畔，企业集聚；小南垭铁路物流中心，国际班列整装待发……近日，记者走进重庆市江津区，一幅通道畅达、产业兴旺、贸易繁荣的内陆开放新图景徐徐铺展。依托西部陆海新通道战略纵深，该区“通道+经贸+产业”的联动效应持续释放，把内陆腹地变身开放前沿，让“重庆造”一路通江达海、联通全球。 重庆枢纽港产业园是重庆市落实成渝地区双城经济圈
+黑石集团正寻求出售其持有的逾20亿美元私募投资基金份额，将相关敞口打包成债券出售给投资者。这将成为近年来规模最大的同类交易之一。 据知情人士透露，这家另类资产管理公司正在推介一项担保基金债务工具，将其持有的杠杆收购基金份额进行打包。由于所涉信息未公开，知情人士要求匿名。 黑石一位代表不予置评。英国媒体率先报道了黑石的这项计划。责任编辑：何云
 
 ## 正文
 
-中新网重庆5月10日电 (马佳欣)珞璜港内，巨轮靠泊；长江之畔，企业集聚；小南垭铁路物流中心，国际班列整装待发……近日，记者走进重庆市江津区，一幅通道畅达、产业兴旺、贸易繁荣的内陆开放新图景徐徐铺展。
+黑石集团正寻求出售其持有的逾20亿美元私募投资基金份额，将相关敞口打包成债券出售给投资者。
 
-依托西部陆海新通道战略纵深，该区“通道+经贸+产业”的联动效应持续释放，把内陆腹地变身开放前沿，让“重庆造”一路通江达海、联通全球。
+这将成为近年来规模最大的同类交易之一。
 
-重庆枢纽港产业园是重庆市落实成渝地区双城经济圈、西部陆海新通道、长江经济带高质量发展等国家战略的重大标志性项目，以江津片区、九龙坡西彭片区为先行区，沿长江产业走廊、科学大道走廊“两廊”拓展延伸。
+据知情人士透露，这家另类资产管理公司正在推介一项担保基金债务工具，将其持有的杠杆收购基金份额进行打包。
 
-江津片区凭借得天独厚的区位与交通优势，构建起支撑全域开放的硬核枢纽体系。
+由于所涉信息未公开，知情人士要求匿名。
 
-江津综合保税区管委会主任袁理介绍，重庆枢纽港产业园江津片区坐拥江津综合保税区、珞璜港、小南垭铁路物流中心、江津工业园珞璜组团四大平台，片区内布局支坪、珞璜、珞璜西三个绕城高速互通，无缝衔接重庆高速路网，可快速辐射云、贵、川、湘等省市，内部已形成 “四横三纵”公路交通网络，公、铁、水多式联运优势突出。
+黑石一位代表不予置评。
 
-依托智能网联新能源汽车、智能家居、先进材料三大产业基础，江津片区重点打造先进装备成套、先进材料、现代物流与供应链服务三大基地，目前已集聚玖龙纸业、杜拉维特、敏华家居等企业超1100家，产业生态日趋完善。
+英国媒体率先报道了黑石的这项计划。
 
-走进小南垭铁路物流中心，龙门吊高效起落，集装箱有序装卸，一列列国际班列整装待发。
-
-这里由老旧铁路站改扩建而来，如今已是长江上游规模最大的水公铁多式联运枢纽、成渝地区双城经济圈的核心物流枢纽和西部陆海新通道班列主要到发站点，货场占地1500亩，年设计运能超2000万吨，集装箱年运能突破60万标箱。
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-30 08:03 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-30 08:08 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-30 08:20 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
-- 2026-06-30 08:05 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
-- 2026-06-30 08:04 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
-- 2026-06-30 08:20 - [库尼亚赛后伸五指嘲讽日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-30 08:28 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
-- 2026-06-30 08:01 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-30 08:06 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-30 08:09 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-30 08:25 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-30 08:16 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-30 08:17 - [锐评T1战胜KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-30 08:27 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-30 08:13 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-30 08:20 - [男子在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-30 08:30 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-30 08:06 - [郑钦文 四年一轮游](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-30 08:25 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-30 08:33 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-30 08:35 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-30 08:31 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-30 08:18 - [森保一 保守](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-30 08:32 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-30 08:33 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-30 08:28 - [电影抓特务上映11天破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-30 08:20 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-30 08:15 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-30 08:33 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:22 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/6188208050.shtml)
-- 2026-06-30 08:12 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/042538988040.shtml)
-- 2026-06-30 08:06 - [周冬雨多次说演不了话剧文城](https://www.share.kurohicncr.top/Article/details/17644610.shtml)
-- 2026-06-30 08:15 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/793694398233.shtml)
-- 2026-06-30 08:00 - [毒液2](https://www.share.kurohicncr.top/Article/details/8961560947.shtml)
-- 2026-06-30 08:29 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.kurohicncr.top/Article/details/711332930135.shtml)
-- 2026-06-30 08:02 - [男子身高一米八二仍做断骨增高](https://www.blog.minike.top/Article/details/376037.shtml)
-- 2026-06-30 08:19 - [董卿父亲在报纸上发文悼念亡妻](https://www.blog.minike.top/Article/details/55321543.shtml)
-- 2026-06-30 08:16 - [恋与深空制作组回应近期争议](http://www.share.minike.top/Article/details/433443.shtml)
-- 2026-06-30 08:15 - [德国vs巴拉圭](https://www.share.kurohicncr.top/Article/details/731672368.shtml)
-- 2026-06-30 08:28 - [《贺子珍》](https://www.blog.minike.top/Article/details/2066817524.shtml)
-- 2026-06-30 08:03 - [内马尔中场休息积极鼓励队友](http://www.share.minike.top/Article/details/8963545447.shtml)
-- 2026-06-30 08:06 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/2103329.shtml)
-- 2026-06-30 08:02 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/469684914.shtml)
-- 2026-06-30 08:12 - [巴西在进攻三区完成210脚传球](http://www.share.minike.top/Article/details/67160370.shtml)
+- 2026-06-30 08:29 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/8342030393.shtml)
+- 2026-06-30 08:09 - [沙丘](http://www.share.kurohicncr.top/Article/details/8004059983.shtml)
+- 2026-06-30 08:16 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/46803833693.shtml)
+- 2026-06-30 08:31 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.kurohicncr.top/Article/details/0166475221.shtml)
+- 2026-06-30 08:18 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/4288899.shtml)
+- 2026-06-30 08:30 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/2798855533.shtml)
+- 2026-06-30 08:10 - [输球后日本球迷被强行披上巴西国旗](https://www.blog.kurohicncr.top/Article/details/7354680065.shtml)
+- 2026-06-30 08:15 - [城市规划有可能成为「屎山代码」吗？](https://www.share.minike.top/Article/details/26720499.shtml)
+- 2026-06-30 08:09 - [世界杯欧洲队7战南美仅1胜](https://www.blog.kurohicncr.top/Article/details/44650206989.shtml)
+- 2026-06-30 08:13 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/9205028881.shtml)
+- 2026-06-30 08:18 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/874382569.shtml)
+- 2026-06-30 08:07 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/506913998801.shtml)
+- 2026-06-30 08:07 - [董卿父亲报纸上发文悼念亡妻](https://www.share.minike.top/Article/details/174756263.shtml)
+- 2026-06-30 08:29 - [流金岁月](http://www.share.kurohicncr.top/Article/details/080815.shtml)
+- 2026-06-30 08:18 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/9479670.shtml)

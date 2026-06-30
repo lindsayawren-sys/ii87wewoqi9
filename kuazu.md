@@ -1,61 +1,53 @@
-# 博茨瓦纳前总统费斯图斯·莫哈埃去世
+# 北京公安高考反诈三连防·考后识谎
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-中新网约翰内斯堡5月8日电 博茨瓦纳总统府8日通过官方社交账号宣布，前总统费斯图斯·莫哈埃去世，终年86岁。政府同时宣布全国哀悼三天。 莫哈埃是博茨瓦纳第三任总统，于1998年至2008年执政。莫哈埃曾领导这个以钻石资源丰富著称的国家长达十年，被认为成功推动了博茨瓦纳经济发展。 莫哈埃因积极应对艾滋病问题而广受赞誉。在博茨瓦纳艾滋病感染率一度位居全球前列时期，他公开直面艾滋病问
+发布时间：2026年06月08日 19:53 来源：中国新闻网 高考正在进行，涉考诈骗需谨防。北京市公安局密云分局民警高展羽提醒，短信、私信里的陌生查分链接可能是钓鱼陷阱，高考查分要认准官方渠道。声称能后台改分、花钱提分的全是骗局，高考成绩系统全程加密、全程留痕，任何人都无法私自篡改分数。(曹旭帆 王东宇 制作 王嘉怡） 责任编辑：【刘湃】
 
 ## 正文
 
-中新网约翰内斯堡5月8日电 博茨瓦纳总统府8日通过官方社交账号宣布，前总统费斯图斯·莫哈埃去世，终年86岁。
+发布时间：2026年06月08日 19:53 来源：中国新闻网 高考正在进行，涉考诈骗需谨防。
 
-政府同时宣布全国哀悼三天。
+北京市公安局密云分局民警高展羽提醒，短信、私信里的陌生查分链接可能是钓鱼陷阱，高考查分要认准官方渠道。
 
-莫哈埃是博茨瓦纳第三任总统，于1998年至2008年执政。
+声称能后台改分、花钱提分的全是骗局，高考成绩系统全程加密、全程留痕，任何人都无法私自篡改分数。
 
-莫哈埃曾领导这个以钻石资源丰富著称的国家长达十年，被认为成功推动了博茨瓦纳经济发展。
-
-莫哈埃因积极应对艾滋病问题而广受赞誉。
-
-在博茨瓦纳艾滋病感染率一度位居全球前列时期，他公开直面艾滋病问题，并推动实施了非洲大陆最全面的抗艾项目之一。
-
-莫哈埃于1939年8月21日出生于博茨瓦纳中部城镇塞罗韦(Serowe)。
-
-他曾赴英国求学，并在博茨瓦纳于1966年独立后不久进入公务员系统工作。
+(曹旭帆 王东宇 制作 王嘉怡） 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-30 08:15 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-30 08:28 - [诺伊尔尽力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
-- 2026-06-30 08:05 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-30 08:02 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
-- 2026-06-30 08:17 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-30 08:20 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-30 08:05 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
-- 2026-06-30 08:16 - [德国进球被吹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-30 08:25 - [德国进球被吹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
-- 2026-06-30 08:22 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-30 08:13 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-30 08:24 - [泰山景区回应修建刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
-- 2026-06-30 08:01 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
-- 2026-06-30 08:05 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
-- 2026-06-30 08:17 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-30 08:12 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-30 08:33 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-30 08:08 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-30 08:13 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-30 08:20 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-30 08:13 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
+- 2026-06-30 08:26 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-30 08:09 - [刘宇宁高情商化解谁站C位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-30 08:07 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-30 08:30 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-30 08:32 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
+- 2026-06-30 08:17 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-30 08:06 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-30 08:13 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-30 08:10 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:01 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/20510.shtml)
-- 2026-06-30 08:13 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.kurohicncr.top/Article/details/338525384.shtml)
-- 2026-06-30 08:08 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/16513.shtml)
-- 2026-06-30 08:03 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/41633341.shtml)
-- 2026-06-30 08:08 - [德国巴拉圭 折磨](http://www.share.minike.top/Article/details/8117565878.shtml)
-- 2026-06-30 08:08 - [如何改变自己太负责任的性格?](https://www.share.minike.top/Article/details/31072502644.shtml)
-- 2026-06-30 08:00 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/13457.shtml)
-- 2026-06-30 08:01 - [莫兰特被交易到开拓者](https://www.share.kurohicncr.top/Article/details/7222457583.shtml)
-- 2026-06-30 08:19 - [明星大侦探第一季](https://www.share.minike.top/Article/details/402449943489.shtml)
-- 2026-06-30 08:03 - [好像看到了人类带孩子崩溃的样子](http://www.share.minike.top/Article/details/026216492.shtml)
-- 2026-06-30 08:24 - [湖南祁东原文化馆被指贱卖](http://www.share.minike.top/Article/details/896150518658.shtml)
-- 2026-06-30 08:26 - [有酒店推行24小时退房制](http://www.blog.kurohicncr.top/Article/details/6265245.shtml)
-- 2026-06-30 08:28 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/84361.shtml)
-- 2026-06-30 08:25 - [老外对中国cosplay竟这样评价…](https://www.share.kurohicncr.top/Article/details/127406680739.shtml)
-- 2026-06-30 08:28 - [女心理师](https://www.blog.kurohicncr.top/Article/details/5248195955.shtml)
+- 2026-06-30 08:25 - [日本队5进世界杯淘汰赛0胜](http://www.share.kurohicncr.top/Article/details/35214621.shtml)
+- 2026-06-30 08:30 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/179670.shtml)
+- 2026-06-30 08:21 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/47247.shtml)
+- 2026-06-30 08:14 - [美人鱼](https://www.share.minike.top/Article/details/200910.shtml)
+- 2026-06-30 08:22 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/371429542.shtml)
+- 2026-06-30 08:14 - [又一家县级医院关停门诊输液大厅](http://www.share.minike.top/Article/details/09597608.shtml)
+- 2026-06-30 08:35 - [德国队连续三届世界杯无缘16强](https://www.blog.kurohicncr.top/Article/details/242186009172.shtml)
+- 2026-06-30 08:24 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/8428138.shtml)
+- 2026-06-30 08:28 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](https://www.blog.minike.top/Article/details/9457579.shtml)
+- 2026-06-30 08:19 - [巴拉圭进球](https://www.share.minike.top/Article/details/410214.shtml)
+- 2026-06-30 08:33 - [点球大战](http://www.blog.minike.top/Article/details/383875.shtml)
+- 2026-06-30 08:26 - [张月收到黄灿灿辣货两眼发光](https://www.share.kurohicncr.top/Article/details/1192130.shtml)
+- 2026-06-30 08:20 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/06758107.shtml)
+- 2026-06-30 08:33 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/655504.shtml)
+- 2026-06-30 08:13 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/4966935278.shtml)

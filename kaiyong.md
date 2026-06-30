@@ -1,58 +1,46 @@
-# 做好利企便民“加减法” “一件事”政务服务改革“跑出”加速度
+# 伊朗与以色列先后宣布停止袭击对方
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-央视网消息：记者5月8日从市场监管总局发布会获悉，目前，企业变更登记、注销登记、开办餐饮店、迁移登记和个转企等五项“一件事”政务服务改革均已完成。线下办事“只进一门”，线上办事“一网通办”，对持续优化营商环境、利企便民具有重要意义。自政务服务“高效办成一件事”改革实施以来，市场监管总局指导各地重构跨部门办理业务流程、打通业务系统、强化数据共享，旨在为经营主体提供环节更少、周期更
+发布时间：2026年06月09日 19:45 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-央视网消息：记者5月8日从市场监管总局发布会获悉，目前，企业变更登记、注销登记、开办餐饮店、迁移登记和个转企等五项“一件事”政务服务改革均已完成。
-
-线下办事“只进一门”，线上办事“一网通办”，对持续优化营商环境、利企便民具有重要意义。
-
-自政务服务“高效办成一件事”改革实施以来，市场监管总局指导各地重构跨部门办理业务流程、打通业务系统、强化数据共享，旨在为经营主体提供环节更少、周期更短、流程更优、成本更低的服务。
-
-市场监管总局登记注册局副局长张炜介绍，围绕数据赋能，推行企业信息变更“一次办”。
-
-企业在市场监管部门依法办理变更登记后，市场监管部门依托“一网通办”等政务服务平台共享推送变更信息，公安、税务等部门接收信息后，对应完成公章刻制备案、税控设备变更发行等事项的信息变更，实现“一处变更、多处联动”。
-
-各地市场监管部门同时推进企业注销“一网办”。
-
-通过优化企业注销“一网服务”平台，各有关部门实现“信息共享、同步指引、同步办理”，形成覆盖全环节线上服务链。
-
-张炜副局长表示，企业根据需求，可自行选择到相关部门办理单项业务，也可以通过“高效办成一件事”服务专区申请自由组合联办事项，企业信息变更办理环节由6个压减至1个，企业迁移登记跑动次数由至少9次精简到1次。
+发布时间：2026年06月09日 19:45 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 08:27 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-30 08:25 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-30 08:05 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-30 08:29 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-30 08:29 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-30 08:04 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-30 08:00 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-30 08:03 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-30 08:17 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-30 08:20 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-30 08:21 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-30 08:01 - [哈弗茨头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-30 08:30 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
+- 2026-06-30 08:19 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
+- 2026-06-30 08:13 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-30 08:28 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-30 08:26 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-30 08:18 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
+- 2026-06-30 08:31 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
+- 2026-06-30 08:21 - [IGN评测电影版后室](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-30 08:29 - [全球芯片巨头史诗级扩产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
+- 2026-06-30 08:20 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-30 08:21 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-30 08:23 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-30 08:16 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-30 08:19 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:03 - [失明的我带老妈去了趟“火星”](https://www.share.minike.top/Article/details/756475.shtml)
-- 2026-06-30 08:14 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/984511898.shtml)
-- 2026-06-30 08:21 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/661876341277.shtml)
-- 2026-06-30 08:11 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/04728.shtml)
-- 2026-06-30 08:01 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.minike.top/Article/details/967182829833.shtml)
-- 2026-06-30 08:20 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/219908693349.shtml)
-- 2026-06-30 08:11 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/152715.shtml)
-- 2026-06-30 08:19 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/938662667475.shtml)
-- 2026-06-30 08:17 - [哈弗茨头球破门](https://www.share.minike.top/Article/details/5472195.shtml)
-- 2026-06-30 08:19 - [日本球迷被强行披上巴西国旗](https://www.share.minike.top/Article/details/23703544.shtml)
-- 2026-06-30 08:03 - [MSI应援曲 如果季中成回忆](http://www.blog.kurohicncr.top/Article/details/0306808138.shtml)
-- 2026-06-30 08:08 - [IGN评测电影版后室](https://www.blog.minike.top/Article/details/496430042825.shtml)
-- 2026-06-30 08:16 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/10827014646.shtml)
-- 2026-06-30 08:24 - [女子清吧被陌生人投放伟哥](http://www.share.minike.top/Article/details/24451757.shtml)
-- 2026-06-30 08:07 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/2456805.shtml)
+- 2026-06-30 08:21 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://www.blog.minike.top/Article/details/4441866.shtml)
+- 2026-06-30 08:18 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/217351609.shtml)
+- 2026-06-30 08:29 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/220058515.shtml)
+- 2026-06-30 08:07 - [人类...完蛋了...](https://www.share.minike.top/Article/details/21177168688.shtml)
+- 2026-06-30 08:34 - [库尼亚赛后伸五指嘲讽日本](https://www.share.minike.top/Article/details/695755.shtml)
+- 2026-06-30 08:24 - [泰山建135公里刀片刺绳隔离网](http://www.blog.minike.top/Article/details/88688986.shtml)
+- 2026-06-30 08:13 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](https://www.blog.kurohicncr.top/Article/details/141755902788.shtml)
+- 2026-06-30 08:15 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/45565.shtml)
+- 2026-06-30 08:28 - [巴西足球能否再现昔日荣光](https://www.blog.minike.top/Article/details/698026911.shtml)
+- 2026-06-30 08:16 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/57462213367.shtml)
+- 2026-06-30 08:30 - [Melo向柳智敏张元英道歉](https://www.blog.minike.top/Article/details/7947271993.shtml)
+- 2026-06-30 08:23 - [失明的我带老妈去了趟“火星”](https://www.share.minike.top/Article/details/215881944.shtml)
+- 2026-06-30 08:17 - [时光音乐会](http://www.blog.minike.top/Article/details/73399367467.shtml)
+- 2026-06-30 08:11 - [网瘾賊大的阿嬷](https://www.share.kurohicncr.top/Article/details/17983.shtml)
+- 2026-06-30 08:12 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/296428.shtml)

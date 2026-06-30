@@ -1,52 +1,57 @@
-# 韩国企划财政部：政策性银行将持续支持受战事冲击的石油企业
+# 全球航司大幅下调2026年盈利预期，燃油支出飙升，“票价很可能会居高不下”
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-韩国企划财政部周日发布声明表示，韩国政策性银行韩国进出口银行将继续为受伊朗局势冲突后续影响的石油进口企业提供支持。 企划财政部称，韩国政府还将深入复盘自身在供应链重构中的职能作用，以此保障国家能源安全。 韩国国家石油公司、SK 能源、双龙石油、现代石油银行等业内企业，呼吁政府在融资扶持、进口渠道多元化、税收政策以及扩充战略石油储备供给等方面给予支持。责任编辑：何云
+中新经纬6月8日电 据路透社7日晚间报道，受美伊战争造成的燃油冲击，全球航空公司大幅下调2026年盈利预期。 该报道称，全球航空业周日(6月7日)将2026年的利润预期下调了近一半，理由是中东冲突推高了燃油成本，扰乱了重要的空中走廊，并暴露了利润微薄的航空业的脆弱性。 该报道显示，代表370多家航空公司、占全球航空客运量约85%的国际航空运输协会在其年度报告中表示，预计2026
 
 ## 正文
 
-韩国企划财政部周日发布声明表示，韩国政策性银行韩国进出口银行将继续为受伊朗局势冲突后续影响的石油进口企业提供支持。
+中新经纬6月8日电 据路透社7日晚间报道，受美伊战争造成的燃油冲击，全球航空公司大幅下调2026年盈利预期。
 
-企划财政部称，韩国政府还将深入复盘自身在供应链重构中的职能作用，以此保障国家能源安全。
+该报道称，全球航空业周日(6月7日)将2026年的利润预期下调了近一半，理由是中东冲突推高了燃油成本，扰乱了重要的空中走廊，并暴露了利润微薄的航空业的脆弱性。
 
-韩国国家石油公司、SK 能源、双龙石油、现代石油银行等业内企业，呼吁政府在融资扶持、进口渠道多元化、税收政策以及扩充战略石油储备供给等方面给予支持。
+该报道显示，代表370多家航空公司、占全球航空客运量约85%的国际航空运输协会在其年度报告中表示，预计2026年航空业净利润总额将达到230亿美元，远低于此前预测的约410亿美元，也低于2025年的450亿美元。
 
-责任编辑：何云
+该报道指出，此次评级下调凸显了航空公司容易受到地缘政治冲击和燃油价格波动的影响，尽管乘客需求依然强劲，飞机上座率不断提高，收入预计将超过1.1万亿美元。
+
+“主要有两个因素：一是航空燃油价格大幅上涨，涨幅远远超出任何人的预期；二是海湾地区航空公司运营中断，这两个因素共同导致我们下调了预测。
+
+”国际航空运输协会(IATA)理事长威利·沃尔什在里约热内卢举行的该组织年会上告诉路透社。
+
+该报道援引沃尔什说法，他预计今年和明年，随着燃油成本上涨，一些小型航空公司将会破产或被大型航空公司收购。
+
+美国低成本航空公司精神航空上个月倒闭，成为美伊战争中首家倒闭的航空公司。
 
 ## 相关推荐
 
-- 2026-06-30 08:14 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
-- 2026-06-30 08:19 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-30 08:19 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-30 08:13 - [德国进球被吹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-30 08:25 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-30 08:16 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
-- 2026-06-30 08:13 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
-- 2026-06-30 08:06 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
-- 2026-06-30 08:18 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-30 08:19 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
-- 2026-06-30 08:12 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-30 08:02 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-30 08:14 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-30 08:05 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-30 08:13 - [郑钦文 四年一轮游](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-30 08:17 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
+- 2026-06-30 08:25 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-30 08:30 - [曝iPhone18Pro机密文件现身暗网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-30 08:09 - [诺伊尔尽力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-30 08:11 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-30 08:06 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-30 08:30 - [郑钦文温网三连败西尼亚科娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
+- 2026-06-30 08:18 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-30 08:28 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-30 08:18 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:17 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/32767242609.shtml)
-- 2026-06-30 08:19 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/1804868.shtml)
-- 2026-06-30 08:02 - [曝老詹对自由市场态度与以往截然不同](https://www.share.minike.top/Article/details/18506.shtml)
-- 2026-06-30 08:15 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/1985056287.shtml)
-- 2026-06-30 08:03 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.minike.top/Article/details/2105467.shtml)
-- 2026-06-30 08:05 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.minike.top/Article/details/676070094220.shtml)
-- 2026-06-30 08:26 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.kurohicncr.top/Article/details/768754.shtml)
-- 2026-06-30 08:20 - [董路：谁赢谁是“正路子”](http://www.share.minike.top/Article/details/760578899635.shtml)
-- 2026-06-30 08:20 - [齐思钧回复张月](https://www.blog.kurohicncr.top/Article/details/2214047.shtml)
-- 2026-06-30 08:28 - [德国队世界杯点球大战首败](https://www.share.kurohicncr.top/Article/details/09781797250.shtml)
-- 2026-06-30 08:07 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/44980.shtml)
-- 2026-06-30 08:23 - [德国淘汰](https://www.share.kurohicncr.top/Article/details/54516330.shtml)
-- 2026-06-30 08:17 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/018665970263.shtml)
-- 2026-06-30 08:02 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/245811772219.shtml)
-- 2026-06-30 08:18 - [如果有二次元高中是什么样子的？](https://www.share.minike.top/Article/details/2552235466.shtml)
+- 2026-06-30 08:25 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/02474603.shtml)
+- 2026-06-30 08:07 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/85656093392.shtml)
+- 2026-06-30 08:08 - [内马尔中场休息积极鼓励队友](http://www.blog.minike.top/Article/details/5450038824.shtml)
+- 2026-06-30 08:15 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/8809843.shtml)
+- 2026-06-30 08:14 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/609905817088.shtml)
+- 2026-06-30 08:17 - [存储芯片龙头提示风险](http://www.blog.kurohicncr.top/Article/details/003002171757.shtml)
+- 2026-06-30 08:20 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/110132610773.shtml)
+- 2026-06-30 08:06 - [董卿父亲报纸上发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/871876371.shtml)
+- 2026-06-30 08:06 - [张月收到黄灿灿辣货两眼发光](http://www.blog.kurohicncr.top/Article/details/15411111094.shtml)
+- 2026-06-30 08:21 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/2740659576.shtml)
+- 2026-06-30 08:17 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/22359109.shtml)
+- 2026-06-30 08:35 - [“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/80235080.shtml)
+- 2026-06-30 08:24 - [日本进球](https://www.share.kurohicncr.top/Article/details/3433711.shtml)
+- 2026-06-30 08:24 - [湖南祁东原文化馆被指贱卖](https://www.share.minike.top/Article/details/399771866.shtml)
+- 2026-06-30 08:29 - [莫兰特转投开拓者效力](https://www.share.kurohicncr.top/Article/details/43311912107.shtml)

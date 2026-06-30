@@ -1,60 +1,59 @@
-# 美国政府涉人工智能监管释放混乱信号，引发科技界担忧
+# 利通电子：公司董事、高管不存在被留置情况 算力、制造业经营一切正常
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-近期，美国白宫内部就先进人工智能（AI）模型发布前是否需接受联邦安全审查释放出混乱信号。在有高层官员提出拟建立类似处方药上市前的严苛安全审查机制后，白宫多名官员随即密集发声予以澄清，试图安抚科技界对过度监管的担忧。此举凸显美国政府在推动AI技术创新与防范潜在安全风险之间面临政策摇摆。 美国白宫国家经济委员会主任凯文·哈塞特日前公开透露，美政府正酝酿一项行政令，拟要求人工智能企业
+人民财讯6月8日电，有投资者在互动平台向利通电子（603629）提问，近期公司股票连续跌停，网上多篇小作文肆意传播，是否有重大利空？利通电子回复称，针对公司近期舆情，公司澄清如下：1．公司董事、高级管理人员等均正常履职，不存在被留置的情况。2．公司董事、董事会秘书丁阿静女士，其任职资格及股权激励的股票授予，程序合法合规。3．公司算力、制造业经营一切正常，在手订单都在按计划有序交
 
 ## 正文
 
-近期，美国白宫内部就先进人工智能（AI）模型发布前是否需接受联邦安全审查释放出混乱信号。
+人民财讯6月8日电，有投资者在互动平台向利通电子（603629）提问，近期公司股票连续跌停，网上多篇小作文肆意传播，是否有重大利空？
 
-在有高层官员提出拟建立类似处方药上市前的严苛安全审查机制后，白宫多名官员随即密集发声予以澄清，试图安抚科技界对过度监管的担忧。
+利通电子回复称，针对公司近期舆情，公司澄清如下：1．公司董事、高级管理人员等均正常履职，不存在被留置的情况。
 
-此举凸显美国政府在推动AI技术创新与防范潜在安全风险之间面临政策摇摆。
+2．公司董事、董事会秘书丁阿静女士，其任职资格及股权激励的股票授予，程序合法合规。
 
-美国白宫国家经济委员会主任凯文·哈塞特日前公开透露，美政府正酝酿一项行政令，拟要求人工智能企业在发布可能存在漏洞的新模型前，必须经由相关程序证明其安全性。
+3．公司算力、制造业经营一切正常，在手订单都在按计划有序交付中。
 
-他将该过程比作美国食品药品监督管理局（FDA）对药品的上市前检测机制。
+4．有关公司情况请以公司公开发布的公告为准。
 
-该表态迅速引发美国科技界的广泛焦虑，业界担忧，强制性的事前监管将严重拖累企业的新产品审批进度并损害市场竞争力。
+5．近期存在个别主体蓄意捏造虚假事实，恶意造谣诋毁企业信誉，干扰公司正常运营。
 
-针对上述言论，白宫内部迅速作出反应。
+公司不排除启动法律维权程序，依法追究造谣者的相关责任。
 
-白宫办公厅主任苏茜·怀尔斯通过社交媒体强调，美政府无意在市场中“挑选赢家和输家”，白宫将继续推行“美国优先”政策，致力于赋能本国创新者而非扩大官僚体系，在保障国家安全的同时推动先进技术的部署。
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-30 08:00 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-30 08:18 - [郑钦文温网一轮游](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-30 08:24 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-30 08:27 - [《共患难》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-30 08:26 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
-- 2026-06-30 08:18 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
-- 2026-06-30 08:27 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-30 08:01 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-30 08:29 - [锐评T1战胜KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-30 08:16 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-30 08:27 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
-- 2026-06-30 08:25 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
-- 2026-06-30 08:10 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-30 08:23 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-30 08:16 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
+- 2026-06-30 08:22 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-30 08:07 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-30 08:23 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-30 08:15 - [德国队世界杯点球大战首败](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-30 08:20 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-30 08:06 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-30 08:16 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-30 08:26 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
+- 2026-06-30 08:21 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-30 08:15 - [马耳他著名拱门坍塌致中国男子身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-30 08:34 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
+- 2026-06-30 08:31 - [德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:02 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/421568788.shtml)
-- 2026-06-30 08:02 - [补时绝杀 巴西2-1淘汰日本](http://www.share.minike.top/Article/details/5644630.shtml)
-- 2026-06-30 08:07 - [德国连续三届世界杯无缘16强](http://www.blog.kurohicncr.top/Article/details/866707.shtml)
-- 2026-06-30 08:09 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.minike.top/Article/details/91558228.shtml)
-- 2026-06-30 08:17 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/951913.shtml)
-- 2026-06-30 08:29 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/715680059171.shtml)
-- 2026-06-30 08:19 - [速度与激情9](http://www.share.minike.top/Article/details/14516442671.shtml)
-- 2026-06-30 08:04 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.kurohicncr.top/Article/details/90609270.shtml)
-- 2026-06-30 08:26 - [谢依霖说杨幂是聚会第一把张罗手](http://www.share.minike.top/Article/details/1498577.shtml)
-- 2026-06-30 08:18 - [斛珠夫人](https://www.blog.minike.top/Article/details/98153040602.shtml)
-- 2026-06-30 08:10 - [日本反击率先破门](https://www.blog.minike.top/Article/details/16522782.shtml)
-- 2026-06-30 08:07 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/89034813301.shtml)
-- 2026-06-30 08:22 - [千香](http://www.blog.kurohicncr.top/Article/details/8946997.shtml)
-- 2026-06-30 08:14 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.minike.top/Article/details/661012.shtml)
-- 2026-06-30 08:12 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/5586380245.shtml)
+- 2026-06-30 08:15 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/70063555.shtml)
+- 2026-06-30 08:33 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/93434.shtml)
+- 2026-06-30 08:17 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/264852722.shtml)
+- 2026-06-30 08:20 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/60195147618.shtml)
+- 2026-06-30 08:30 - [巴西醒醒 这是淘汰赛](http://www.blog.minike.top/Article/details/35036.shtml)
+- 2026-06-30 08:14 - [巴西绝杀日本：漫画般结局换了主角](http://www.share.minike.top/Article/details/9618333.shtml)
+- 2026-06-30 08:17 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/9571664.shtml)
+- 2026-06-30 08:32 - [内马尔替补](http://www.blog.kurohicncr.top/Article/details/02443080471.shtml)
+- 2026-06-30 08:12 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/550482228638.shtml)
+- 2026-06-30 08:19 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.minike.top/Article/details/664897510.shtml)
+- 2026-06-30 08:34 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/47494.shtml)
+- 2026-06-30 08:13 - [有酒店推行24小时退房制](https://www.blog.minike.top/Article/details/814513879430.shtml)
+- 2026-06-30 08:34 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/2720777.shtml)
+- 2026-06-30 08:08 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/91877527235.shtml)
+- 2026-06-30 08:14 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.kurohicncr.top/Article/details/424548268075.shtml)

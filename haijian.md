@@ -1,56 +1,42 @@
-# Brand Finance 2026中国品牌价值500强发布：茅台位居第七名
+# 泉金“小三通”航线开通20周年累计运送旅客超160万人次
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-新浪财经讯，总部位于英国伦敦的品牌估值机构品牌金融集团9日发布《Brand Finance 2026中国品牌价值500强》报告，报告显示，2026年中国500强品牌的总品牌价值突破2.1万亿美元，品牌价值总额较上年增长7.6%，其中排名前10的品牌价值占比高达36%。 报告显示，抖音以1535.4 亿美元的品牌价值，连续第三年居中国品牌价值榜首，跃居全球第六，同比增长 45.1
+发布时间：2026年06月09日 09:12 来源：央视新闻 责任编辑：【李骏】
 
 ## 正文
 
-新浪财经讯，总部位于英国伦敦的品牌估值机构品牌金融集团9日发布《Brand Finance 2026中国品牌价值500强》报告，报告显示，2026年中国500强品牌的总品牌价值突破2.1万亿美元，品牌价值总额较上年增长7.6%，其中排名前10的品牌价值占比高达36%。
-
-报告显示，抖音以1535.4 亿美元的品牌价值，连续第三年居中国品牌价值榜首，跃居全球第六，同比增长 45.1%，在全球社交与数字商业领域持续赶超欧美传统巨头。
-
-国家电网以突破1000以美元品牌价值稳居中国第二，全球第十，创历史新高。
-
-之后是金融领域工行、建行、中行、农行。
-
-四大行同时集体入围全球前二十强，显示全球金融话语权稳步提升。
-
-新能源领域，比亚迪、宁德时代等品牌加速海外布局，在欧洲、东南亚市场份额持续扩大，成为“中国制造”向“中国创造”转型的典型代表。
-
-同时，近年来，随着中国品牌在产业变革中展现出的强劲韧性与创新活力，本年度共有29个汽车品牌入选中国品牌价值500强，累计品牌价值546亿美元，占榜单总价值的 3%，实现了10%的同比增长。
-
-在头部阵营中，比亚迪以173亿美元的品牌价值继续稳居首位，同比增长23%；吉利汽车以45亿美元的品牌价值位列第二，同比增长 26%；问界以34亿美元的品牌价值位列第三，并凭借 78分的品牌强度成为年度最强中国汽车品牌。
+发布时间：2026年06月09日 09:12 来源：央视新闻 责任编辑：【李骏】
 
 ## 相关推荐
 
-- 2026-06-30 08:17 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-30 08:11 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-30 08:24 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-30 08:05 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-30 08:14 - [巴西绝杀日本：漫画般结局换了主角](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
-- 2026-06-30 08:01 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-30 08:11 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-30 08:20 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
-- 2026-06-30 08:19 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-30 08:16 - [王濛回复黄灿灿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
+- 2026-06-30 08:12 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-30 08:29 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-30 08:19 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-30 08:21 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
+- 2026-06-30 08:19 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-30 08:32 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-30 08:33 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-30 08:13 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-30 08:12 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-30 08:18 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:08 - [全新问界M9现身美国街头](https://www.blog.minike.top/Article/details/55663375961.shtml)
-- 2026-06-30 08:24 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/3283055966.shtml)
-- 2026-06-30 08:27 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/45374443360.shtml)
-- 2026-06-30 08:23 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.minike.top/Article/details/723880179529.shtml)
-- 2026-06-30 08:23 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/41634876.shtml)
-- 2026-06-30 08:06 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/078974776824.shtml)
-- 2026-06-30 08:18 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.minike.top/Article/details/0139371.shtml)
-- 2026-06-30 08:12 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/496155.shtml)
-- 2026-06-30 08:16 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/24506641.shtml)
-- 2026-06-30 08:02 - [扬名立万](http://www.share.minike.top/Article/details/567334552122.shtml)
-- 2026-06-30 08:29 - [《男人至死是傻得儿》](https://www.share.minike.top/Article/details/81016552896.shtml)
-- 2026-06-30 08:08 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.share.kurohicncr.top/Article/details/173834395194.shtml)
-- 2026-06-30 08:01 - [请回答王牌2019](https://www.blog.minike.top/Article/details/989530.shtml)
-- 2026-06-30 08:16 - [爱很美味](http://www.share.minike.top/Article/details/644133.shtml)
-- 2026-06-30 08:03 - [金鹰奖视后提名预测](http://www.blog.kurohicncr.top/Article/details/133865.shtml)
+- 2026-06-30 08:34 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/835695.shtml)
+- 2026-06-30 08:14 - [郑钦文温网首轮出局](https://www.share.kurohicncr.top/Article/details/0351603.shtml)
+- 2026-06-30 08:23 - [日本16强魔咒](https://www.share.minike.top/Article/details/91624.shtml)
+- 2026-06-30 08:12 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/36441715980.shtml)
+- 2026-06-30 08:14 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.minike.top/Article/details/250286387.shtml)
+- 2026-06-30 08:16 - [小娘惹](https://www.blog.minike.top/Article/details/36595776682.shtml)
+- 2026-06-30 08:10 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/9445298163.shtml)
+- 2026-06-30 08:16 - [欧洲装一台空调有多难](https://www.blog.kurohicncr.top/Article/details/19826382.shtml)
+- 2026-06-30 08:30 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/15634288587.shtml)
+- 2026-06-30 08:15 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/31813.shtml)
+- 2026-06-30 08:26 - [郑钦文温网一轮游](http://www.share.minike.top/Article/details/825658118221.shtml)
+- 2026-06-30 08:33 - [杨紫肖战余生请多指教拍立得](http://www.blog.kurohicncr.top/Article/details/194329896455.shtml)
+- 2026-06-30 08:35 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/9917995483.shtml)
+- 2026-06-30 08:07 - [日本五次世界杯淘汰赛全败](http://www.blog.kurohicncr.top/Article/details/741155964.shtml)
+- 2026-06-30 08:10 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/0931595367.shtml)

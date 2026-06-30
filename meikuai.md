@@ -1,48 +1,57 @@
-# 浙江：常山世界地质公园揭牌开园
+# 开局起步“十五五”：海南力争2030年商业航天营收达500亿元
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月08日 21:44 来源：中国新闻网 5月8日，常山世界地质公园在浙江省衢州市常山县揭牌开园。该公园覆盖‌常山县全域，总面积1043.10平方千米，是亚洲东部近10亿年地质演化历史中地层序列最连续的地区之一，且拥有中国首枚“金钉子”(学名是全球界线层型剖面和点位)及大量笔石、三叶虫、牙形类等古生物化石。 (项菁 制作 王佳琪） 责任编辑：【卢岩】
+中新网海口6月9日电 (记者 王子谦)《海南省“十五五”高新技术产业发展规划》9日对外发布，明确提出到2030年，商业航天产业营收力争达到500亿元。 根据上述规划，到“十五五”末，海南将形成现代生物医药、商业航天、深海科技、节能环保等4个五百亿级产业集群。其中，将以服务“航天强国”战略为核心，全力推进海南商业航天发射场建设，“以场带产”形成涵盖商业发射、星箭制造、卫星应用等全
 
 ## 正文
 
-发布时间：2026年05月08日 21:44 来源：中国新闻网 5月8日，常山世界地质公园在浙江省衢州市常山县揭牌开园。
+中新网海口6月9日电 (记者 王子谦)《海南省“十五五”高新技术产业发展规划》9日对外发布，明确提出到2030年，商业航天产业营收力争达到500亿元。
 
-该公园覆盖‌常山县全域，总面积1043.10平方千米，是亚洲东部近10亿年地质演化历史中地层序列最连续的地区之一，且拥有中国首枚“金钉子”(学名是全球界线层型剖面和点位)及大量笔石、三叶虫、牙形类等古生物化石。
+根据上述规划，到“十五五”末，海南将形成现代生物医药、商业航天、深海科技、节能环保等4个五百亿级产业集群。
 
-(项菁 制作 王佳琪） 责任编辑：【卢岩】
+其中，将以服务“航天强国”战略为核心，全力推进海南商业航天发射场建设，“以场带产”形成涵盖商业发射、星箭制造、卫星应用等全链条产业集群，打造火箭链、卫星链、数据链和“航天+”产业体系。
+
+在发射场建设方面，围绕“出厂即发射、发射即运营、返回即复用”目标体系，强化商业航天发射场硬基础设施和软实力建设，加快新发射工位和测控、安控、测发等重大基础设施和核心能力建设，探索多元化的商业发射工位融资、建设、运营模式。
+
+加快海上回收平台建设，构建“回收－评估－复用”一条龙的航天绿色制造体系。
+
+逐步建立成熟稳定的商业航天发射任务机制，实现低成本、高频次、安全可持续的商业发射能力。
+
+有关火箭链方面，以火箭总装总测为重点，支持招引重点产业项目落地。
+
+发挥优质企业“头雁效应”，带动国内企业将关键材料和单机研发、分系统和大部段生产等环节在海南布局，重点发展环保型火箭用复合材料、控制类及故障检测类单机、火箭回收和修复技术等，培育一批专精特新企业，建设一批火箭技术平台，积极构建“设计－制造－试验－量产”全链条产业体系。
 
 ## 相关推荐
 
-- 2026-06-30 08:13 - [现在叛逆期的孩子最怕的是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
-- 2026-06-30 08:20 - [女子遭下药退赔偿拟追刑责](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-30 08:14 - [德国罚丢3粒点球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-30 08:19 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-30 08:12 - [恋与深空道歉声明](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-30 08:13 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-30 08:25 - [德国队世界杯点球大战首败](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-30 08:22 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
-- 2026-06-30 08:13 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-30 08:22 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-30 08:19 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
-- 2026-06-30 08:06 - [世界杯巴拉圭点球淘汰德国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-30 08:27 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-30 08:32 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-30 08:07 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
+- 2026-06-30 08:35 - [郑钦文温网首轮出局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-30 08:27 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-30 08:28 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-30 08:20 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-30 08:11 - [感动全网的699分女生想报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-30 08:22 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-30 08:16 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
+- 2026-06-30 08:30 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:08 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/93557680113.shtml)
-- 2026-06-30 08:20 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.minike.top/Article/details/180145557232.shtml)
-- 2026-06-30 08:14 - [王楚钦孙颖莎晋级混双八强](http://www.share.kurohicncr.top/Article/details/740488.shtml)
-- 2026-06-30 08:23 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/3191875.shtml)
-- 2026-06-30 08:17 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.share.minike.top/Article/details/1737885419.shtml)
-- 2026-06-30 08:00 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/2000357.shtml)
-- 2026-06-30 08:19 - [藤森庆子赢得秘鲁总统选举](https://www.blog.minike.top/Article/details/12534657.shtml)
-- 2026-06-30 08:00 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/001259.shtml)
-- 2026-06-30 08:24 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.kurohicncr.top/Article/details/93954042905.shtml)
-- 2026-06-30 08:14 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/08983683.shtml)
-- 2026-06-30 08:02 - [二次元提前预演明日巴西对日本](http://www.share.kurohicncr.top/Article/details/7007943446.shtml)
-- 2026-06-30 08:12 - [苗族银饰](https://www.share.kurohicncr.top/Article/details/885267453506.shtml)
-- 2026-06-30 08:24 - [覃予萱晋级WTT美国大满贯女单32强](http://www.blog.kurohicncr.top/Article/details/28350.shtml)
-- 2026-06-30 08:01 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/61608.shtml)
-- 2026-06-30 08:11 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/24884852819.shtml)
+- 2026-06-30 08:34 - [网瘾賊大的阿嬷](http://www.share.kurohicncr.top/Article/details/31323.shtml)
+- 2026-06-30 08:32 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/286912.shtml)
+- 2026-06-30 08:08 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/1137093282.shtml)
+- 2026-06-30 08:29 - [“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/67577.shtml)
+- 2026-06-30 08:19 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/31161571.shtml)
+- 2026-06-30 08:22 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/761365648700.shtml)
+- 2026-06-30 08:06 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/211153.shtml)
+- 2026-06-30 08:28 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/1827562.shtml)
+- 2026-06-30 08:20 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/98897.shtml)
+- 2026-06-30 08:06 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.blog.minike.top/Article/details/2950486.shtml)
+- 2026-06-30 08:26 - [“柠檬茶能换怀表？”](http://www.share.kurohicncr.top/Article/details/83482.shtml)
+- 2026-06-30 08:21 - [日本半场1比0领先巴西](https://www.share.kurohicncr.top/Article/details/055259569.shtml)
+- 2026-06-30 08:30 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/020306.shtml)
+- 2026-06-30 08:18 - [媒体：手机测评该挤挤水分了](https://www.share.kurohicncr.top/Article/details/47585971987.shtml)
+- 2026-06-30 08:19 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/06893.shtml)

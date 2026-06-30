@@ -1,61 +1,59 @@
-# 思科侯胜利：将AI深度应用于制造业，助力转型升级
+# （乡村行·看振兴）浙江嘉兴：青年入乡描绘产业新图景
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日在北京举行。思科大中华区资深副总裁、首席技术官侯胜利出席并演讲。 侯胜利分享了思客在智能制造领域的实践——如何把AI深度应用到制造业，如何携手国内外合作伙伴打造创新方案，助力制造业转型升级。 今年4月，思客发布了全球工业AI现状报告。报告调研了中国、欧美、亚太等地的制造企业，显示各个
+中新网嘉兴6月9日电(傅飞扬 陈曦)咖啡店体验中心、乡村牛排馆、“馒头酵主”创意店……在浙江嘉兴，“青年入乡、业态兴村”正加速布局，为“强城”“兴村”“融合”三篇文章落地生根注入源源不断的青春动能。 走进嘉兴嘉善县大云镇曹家村，一幢红砖屋顶、水泥外墙的平房格外显眼，这是“95后”主理人张平的乡村牛排馆，粗粝的肌理与精致的牛排形成奇妙反差。 推门而入，100多平方米的空间被打理得
 
 ## 正文
 
-专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日在北京举行。
+中新网嘉兴6月9日电(傅飞扬 陈曦)咖啡店体验中心、乡村牛排馆、“馒头酵主”创意店……在浙江嘉兴，“青年入乡、业态兴村”正加速布局，为“强城”“兴村”“融合”三篇文章落地生根注入源源不断的青春动能。
 
-思科大中华区资深副总裁、首席技术官侯胜利出席并演讲。
+走进嘉兴嘉善县大云镇曹家村，一幢红砖屋顶、水泥外墙的平房格外显眼，这是“95后”主理人张平的乡村牛排馆，粗粝的肌理与精致的牛排形成奇妙反差。
 
-侯胜利分享了思客在智能制造领域的实践——如何把AI深度应用到制造业，如何携手国内外合作伙伴打造创新方案，助力制造业转型升级。
+推门而入，100多平方米的空间被打理得井井有条。
 
-今年4月，思客发布了全球工业AI现状报告。
+“我平时家里也经常吃牛排，就开了这家店，以生鲜配送为主。
 
-报告调研了中国、欧美、亚太等地的制造企业，显示各个地区的企业都在积极推进工业AI落地，安全、机器人、具身智能等技术正在制造场景加速应用。
+”张平介绍，餐厅采取预约制，一周只开两次。
 
-此外，据Gartner预测，到2027年，75%的企业级AI数据将来自工业环境，由传感器、摄像头等终端持续产生。
+牛排馆虽然藏在村里，生意却不差——依托乡村的好环境和不错的地理位置，今年春节期间营业额冲到了六七万元，平时每个月也有3万多元的营收。
 
-在其看来，AI正从生成式AI，向智能体AI、物理世界AI加速演进。
+在曹家村逐梦的青年创客，不止张平一人。
 
-侯胜利指出，制造业领域中，AI应用最集中、最成熟、最能直接产生价值的有三个方向： 一是机器视觉。
+今年，浙江官方提出：将着力为入乡青年打造实习、就业、创业进阶式孵化成长体系，并新建青年入乡实践站点300个以上。
 
 ## 相关推荐
 
-- 2026-06-30 08:08 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-30 08:15 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
-- 2026-06-30 08:05 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
-- 2026-06-30 08:10 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-30 08:06 - [莫兰特被交易到开拓者](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
-- 2026-06-30 08:10 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
-- 2026-06-30 08:03 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-30 08:01 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-30 08:05 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-30 08:08 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-30 08:13 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-30 08:19 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
-- 2026-06-30 08:04 - [三星投资计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-30 08:04 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-30 08:00 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-30 08:18 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-30 08:09 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-30 08:32 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-30 08:32 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-30 08:08 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-30 08:24 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-30 08:17 - [德国罚丢3粒点球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-30 08:08 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-30 08:30 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-30 08:26 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-30 08:26 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
+- 2026-06-30 08:16 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-30 08:09 - [郑钦文温网首轮出局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:21 - [库尼亚赛后伸五指嘲讽日本](https://www.blog.minike.top/Article/details/106100002453.shtml)
-- 2026-06-30 08:23 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/34609344.shtml)
-- 2026-06-30 08:06 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.blog.kurohicncr.top/Article/details/3331290714.shtml)
-- 2026-06-30 08:07 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.kurohicncr.top/Article/details/85462.shtml)
-- 2026-06-30 08:00 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/047998465.shtml)
-- 2026-06-30 08:21 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/8641965093.shtml)
-- 2026-06-30 08:08 - [现在叛逆期的孩子最怕的是什么？](https://www.blog.kurohicncr.top/Article/details/7568636662.shtml)
-- 2026-06-30 08:15 - [点球大战](http://www.blog.kurohicncr.top/Article/details/01243184.shtml)
-- 2026-06-30 08:20 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/709216.shtml)
-- 2026-06-30 08:07 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.minike.top/Article/details/0718040628.shtml)
-- 2026-06-30 08:08 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/04586813.shtml)
-- 2026-06-30 08:27 - [泰山建135公里刀片刺绳隔离网](http://www.share.minike.top/Article/details/7588056.shtml)
-- 2026-06-30 08:19 - [网友写差评被店家“挂”门口避雷](https://www.blog.minike.top/Article/details/679715442.shtml)
-- 2026-06-30 08:23 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/65016188600.shtml)
-- 2026-06-30 08:02 - [日本淘汰](http://www.share.kurohicncr.top/Article/details/244597.shtml)
+- 2026-06-30 08:28 - [日本队主帅道歉](https://www.share.minike.top/Article/details/57301606.shtml)
+- 2026-06-30 08:09 - [这一刀 会很帅](http://www.share.minike.top/Article/details/959294.shtml)
+- 2026-06-30 08:21 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.blog.minike.top/Article/details/529462003110.shtml)
+- 2026-06-30 08:28 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/5020390.shtml)
+- 2026-06-30 08:09 - [【大鸣王潮1566】真拿你没办法](https://www.blog.minike.top/Article/details/5149032767.shtml)
+- 2026-06-30 08:25 - [孙颖莎王楚钦晋级8强](https://www.blog.minike.top/Article/details/66916384659.shtml)
+- 2026-06-30 08:24 - [网友写差评被店家“挂”门口避雷](https://www.blog.minike.top/Article/details/2084563.shtml)
+- 2026-06-30 08:09 - [王曼昱被突如其来的话筒逗笑了](https://www.blog.minike.top/Article/details/88812389076.shtml)
+- 2026-06-30 08:32 - [世界杯欧洲队7战南美仅1胜](http://www.share.minike.top/Article/details/81536943191.shtml)
+- 2026-06-30 08:24 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/201147037.shtml)
+- 2026-06-30 08:28 - [德国vs巴拉圭](https://www.blog.minike.top/Article/details/87402.shtml)
+- 2026-06-30 08:29 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/38064379.shtml)
+- 2026-06-30 08:06 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/5440708.shtml)
+- 2026-06-30 08:09 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.kurohicncr.top/Article/details/87186488.shtml)
+- 2026-06-30 08:25 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/220437427756.shtml)

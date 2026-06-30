@@ -1,61 +1,52 @@
-# 昨夜！美芯片股，大爆发！两大巨头牵手
+# 网易支付被罚220.4万元：违反数据安全管理规定等
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-美股芯片股表现强劲，费城半导体指数涨5.51%，刷新历史新高。 当地时间5月8日（周五），美国三大股指全线收涨，道指涨0.02%报49609.16点，标普500指数涨0.84%报7398.93点，纳指涨1.71%报26247.08点。标普500指数、纳指再创历史新高。本周，道指涨0.22%，标普500指数涨2.33%，纳指涨4.51%。 欧洲三大股指收盘全线下跌，德国DAX指数
+6月8日金融一线消息，中国人民银行浙江省分行公布的行政处罚决定信息公示表显示，网易支付（杭州）有限公司因违反账户管理规定、违反清算管理规定、违反数据安全管理规定、未按照规定开展客户尽职调查共四类违法行为类型，被警告，并处220.4万元罚款。同时，余某（网易支付（杭州）有限公司技术中心）因对网易支付（杭州）有限公司违反数据安全管理规定的违法行为负有责任，被罚4.5万元。朱某（网易
 
 ## 正文
 
-美股芯片股表现强劲，费城半导体指数涨5.51%，刷新历史新高。
+6月8日金融一线消息，中国人民银行浙江省分行公布的行政处罚决定信息公示表显示，网易支付（杭州）有限公司因违反账户管理规定、违反清算管理规定、违反数据安全管理规定、未按照规定开展客户尽职调查共四类违法行为类型，被警告，并处220.4万元罚款。
 
-当地时间5月8日（周五），美国三大股指全线收涨，道指涨0.02%报49609.16点，标普500指数涨0.84%报7398.93点，纳指涨1.71%报26247.08点。
+同时，余某（网易支付（杭州）有限公司技术中心）因对网易支付（杭州）有限公司违反数据安全管理规定的违法行为负有责任，被罚4.5万元。
 
-标普500指数、纳指再创历史新高。
+朱某（网易支付（杭州）有限公司反洗钱中心）因对未按照规定开展客户尽职调查的违法行为负有责任，被罚2.4万元。
 
-本周，道指涨0.22%，标普500指数涨2.33%，纳指涨4.51%。
-
-欧洲三大股指收盘全线下跌，德国DAX指数跌1.32%报24338.63点，法国CAC40指数跌1.09%报8112.57点，英国富时100指数跌0.43%报10233.07点。
-
-本周，德国DAX指数涨0.19%，法国CAC40指数跌0.03%，英国富时100指数跌1.26%。
-
-中概股涨跌不一，纳斯达克中国金龙指数跌0.47%。
-
-热门中概股方面，阿特斯太阳能涨超13%，晶科能源涨逾5%，贝壳涨超2%，理想汽车涨逾2%，万国数据涨超1%；再鼎医药跌近6%，新东方跌近5%，小马智行跌超3%，好未来跌逾2%，百胜中国跌超2%。
+责任编辑：李琳琳
 
 ## 相关推荐
 
-- 2026-06-30 08:21 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-30 08:28 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-30 08:07 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
-- 2026-06-30 08:08 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-30 08:02 - [哈弗茨头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-30 08:06 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-30 08:18 - [感动全网的699分女生想报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-30 08:29 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-30 08:22 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-30 08:24 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-30 08:23 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-30 08:08 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
-- 2026-06-30 08:01 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-30 08:22 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
-- 2026-06-30 08:14 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-30 08:33 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-30 08:11 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-30 08:22 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-30 08:19 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-30 08:13 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-30 08:25 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-30 08:30 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
+- 2026-06-30 08:16 - [媒体：手机测评该挤挤水分了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-30 08:26 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-30 08:19 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-30 08:22 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-30 08:22 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-30 08:28 - [恋与深空道歉声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-30 08:26 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:25 - [韩国球迷凌晨4点接机怒骂主教练](http://www.blog.minike.top/Article/details/6830179516.shtml)
-- 2026-06-30 08:23 - [巴西在进攻三区完成210脚传球](https://www.blog.minike.top/Article/details/0273818.shtml)
-- 2026-06-30 08:28 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://www.share.minike.top/Article/details/566443709420.shtml)
-- 2026-06-30 08:03 - [德国淘汰](http://www.blog.minike.top/Article/details/794334433.shtml)
-- 2026-06-30 08:24 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/995612165829.shtml)
-- 2026-06-30 08:15 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/9339085.shtml)
-- 2026-06-30 08:25 - [爆冷出局！德国点球大战不敌巴拉圭](http://www.share.minike.top/Article/details/26202.shtml)
-- 2026-06-30 08:08 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.minike.top/Article/details/329468835.shtml)
-- 2026-06-30 08:22 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/503130.shtml)
-- 2026-06-30 08:29 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/297613.shtml)
-- 2026-06-30 08:11 - [德国队连续三届世界杯无缘16强](http://www.blog.kurohicncr.top/Article/details/555666790357.shtml)
-- 2026-06-30 08:01 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/625268367.shtml)
-- 2026-06-30 08:20 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/9813347.shtml)
-- 2026-06-30 08:09 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/218687.shtml)
-- 2026-06-30 08:13 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.kurohicncr.top/Article/details/011859267.shtml)
+- 2026-06-30 08:26 - [日本球迷被强行披上巴西国旗](http://www.blog.kurohicncr.top/Article/details/42720812991.shtml)
+- 2026-06-30 08:10 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/44478.shtml)
+- 2026-06-30 08:15 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/3176925.shtml)
+- 2026-06-30 08:17 - [欧洲装一台空调有多难](https://www.blog.kurohicncr.top/Article/details/40893.shtml)
+- 2026-06-30 08:29 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/23681333.shtml)
+- 2026-06-30 08:10 - [委内瑞拉地震死亡人数升至1719人](https://www.blog.minike.top/Article/details/7537168.shtml)
+- 2026-06-30 08:19 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/83194.shtml)
+- 2026-06-30 08:13 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/05565758410.shtml)
+- 2026-06-30 08:17 - [韩国球迷凌晨4点接机怒骂主教练](http://www.blog.kurohicncr.top/Article/details/264388583.shtml)
+- 2026-06-30 08:17 - [锐评T1战胜KC](https://www.blog.kurohicncr.top/Article/details/2947539113.shtml)
+- 2026-06-30 08:34 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/74824690.shtml)
+- 2026-06-30 08:31 - [藤森庆子赢得秘鲁总统选举](https://www.share.kurohicncr.top/Article/details/89505.shtml)
+- 2026-06-30 08:27 - [萨内 看笑了](https://www.blog.minike.top/Article/details/789951.shtml)
+- 2026-06-30 08:25 - [Melo向柳智敏张元英道歉](https://www.share.minike.top/Article/details/1524353904.shtml)
+- 2026-06-30 08:22 - [湖南祁东原文化馆被指贱卖](https://www.blog.minike.top/Article/details/77753843921.shtml)

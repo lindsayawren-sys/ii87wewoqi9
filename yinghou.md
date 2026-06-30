@@ -1,43 +1,59 @@
-# 人民之心·总书记谈政绩观④｜一词一观：钉钉子
+# 港股午评：恒指跌0.15% 科指涨0.62% 油气股下挫 半导体板块回暖
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-统筹：李琳 杨格 策划：叶莉子 设计：杨晨悦 校对：陈学德 素材来源：《人民日报》、新华网
+6月9日消息，港股三大指数涨跌不一。截至午间收盘，恒生指数跌0.15%，报24620.26，恒生科技指数涨0.62%，国企指数涨0.09%。盘面上，科网股涨跌不一，联想、腾讯涨超3%，哔哩哔哩、网易跌超1%；半导体板块回暖，天数智芯涨超11%；光通信板块涨幅居前，长飞光纤光缆涨超6%；油气股走弱，山东墨龙跌超17%。 半导体板块回暖，天数智芯涨超11%。大摩认为，英伟达削减Ve
 
 ## 正文
 
-统筹：李琳 杨格 策划：叶莉子 设计：杨晨悦 校对：陈学德 素材来源：《人民日报》、新华网
+6月9日消息，港股三大指数涨跌不一。
+
+截至午间收盘，恒生指数跌0.15%，报24620.26，恒生科技指数涨0.62%，国企指数涨0.09%。
+
+盘面上，科网股涨跌不一，联想、腾讯涨超3%，哔哩哔哩、网易跌超1%；半导体板块回暖，天数智芯涨超11%；光通信板块涨幅居前，长飞光纤光缆涨超6%；油气股走弱，山东墨龙跌超17%。
+
+半导体板块回暖，天数智芯涨超11%。
+
+大摩认为，英伟达削减Vera Rubin机架内存配置并非AI需求降温，而是DRAM供应短缺加剧的体现。
+
+4月行业数据显示DRAM、NAND销售与价格增长创历史高位，内存仍是AI基础设施最大瓶颈。
+
+基于供需持续紧张，大摩大幅上调半导体行业收入预测，继续看好 美光科技 、闪迪及英伟达等AI与存储产业链龙头。
+
+光通信板块涨幅居前，长飞光纤光缆涨超6%。
 
 ## 相关推荐
 
-- 2026-06-30 08:24 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-30 08:26 - [王楚钦说配合稍微有些陌生感](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-30 08:07 - [藤森庆子赢得秘鲁总统选举](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-30 08:16 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-30 08:18 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-30 08:19 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-30 08:14 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
-- 2026-06-30 08:26 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
-- 2026-06-30 08:18 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
-- 2026-06-30 08:03 - [IGN评测电影版后室](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-30 08:04 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-30 08:14 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-30 08:11 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
+- 2026-06-30 08:25 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-30 08:13 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-30 08:16 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
+- 2026-06-30 08:28 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-30 08:13 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-30 08:21 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-30 08:09 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-30 08:32 - [如果有二次元高中是什么样子的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-30 08:14 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-30 08:21 - [德国队连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-30 08:11 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:03 - [千香](http://www.share.minike.top/Article/details/12213826.shtml)
-- 2026-06-30 08:01 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/479250006125.shtml)
-- 2026-06-30 08:24 - [曝詹姆斯即将与勇士会面](http://www.blog.minike.top/Article/details/974165757491.shtml)
-- 2026-06-30 08:09 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/90560589759.shtml)
-- 2026-06-30 08:23 - [杨紫获白玉兰视后争议不止](https://www.share.kurohicncr.top/Article/details/99516490.shtml)
-- 2026-06-30 08:24 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/1092938.shtml)
-- 2026-06-30 08:04 - [如何改变自己太负责任的性格?](https://www.share.minike.top/Article/details/841007481.shtml)
-- 2026-06-30 08:08 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/3005546443.shtml)
-- 2026-06-30 08:02 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/27965711.shtml)
-- 2026-06-30 08:05 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/8030410.shtml)
-- 2026-06-30 08:03 - [媒体评泰山建135公里刀片刺绳隔离网](http://www.blog.kurohicncr.top/Article/details/934068566.shtml)
-- 2026-06-30 08:28 - [委内瑞拉地震死亡人数升至1719人](https://www.blog.kurohicncr.top/Article/details/64954026.shtml)
-- 2026-06-30 08:26 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/20365457654.shtml)
-- 2026-06-30 08:25 - [这种关系可能正在悄悄“催老”你](https://www.blog.kurohicncr.top/Article/details/263876618948.shtml)
-- 2026-06-30 08:03 - [德国巴拉圭进入点球大战](https://www.share.minike.top/Article/details/49573.shtml)
+- 2026-06-30 08:06 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.minike.top/Article/details/968662679257.shtml)
+- 2026-06-30 08:27 - [董卿父亲在报纸上发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/417622928408.shtml)
+- 2026-06-30 08:27 - [德国连续三届世界杯无缘16强](http://www.blog.minike.top/Article/details/382955.shtml)
+- 2026-06-30 08:06 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/45586.shtml)
+- 2026-06-30 08:30 - [孙颖莎王楚钦晋级8强](http://www.blog.minike.top/Article/details/004906816.shtml)
+- 2026-06-30 08:25 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://www.blog.minike.top/Article/details/53528843113.shtml)
+- 2026-06-30 08:23 - [巴拉圭率先破门](http://www.share.minike.top/Article/details/4106016593.shtml)
+- 2026-06-30 08:24 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/927963056.shtml)
+- 2026-06-30 08:33 - [F1奥地利站赛后复盘](http://www.blog.kurohicncr.top/Article/details/33201371.shtml)
+- 2026-06-30 08:35 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/931549781458.shtml)
+- 2026-06-30 08:12 - [金鹰奖视后提名预测](https://www.share.kurohicncr.top/Article/details/81545.shtml)
+- 2026-06-30 08:22 - [巴西绝杀日本](https://www.blog.kurohicncr.top/Article/details/413317433.shtml)
+- 2026-06-30 08:26 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/97049.shtml)
+- 2026-06-30 08:09 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/278854690407.shtml)
+- 2026-06-30 08:20 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/120788608427.shtml)

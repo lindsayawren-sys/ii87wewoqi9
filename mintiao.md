@@ -1,55 +1,59 @@
-# 可可西里藏羚羊年度迁徙季开启 同比增加近百只
+# 上周才上调展望的高盛称韩股在经历“吓人”的回档后会反弹
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-中新社西宁5月9日电 (潘雨洁)青海省玉树藏族自治州公安局可可西里自然保护区公安局9日消息，5月7日17时，今年首批158只藏羚羊顶着风雪，于三江源国家公园可可西里管理处五道梁保护站辖区(青藏公路3001至3002公里处)向可可西里腹地迁徙，较去年相比，首批迁徙藏羚羊数量增加近百只。 每年5月，来自青海三江源、西藏羌塘、新疆阿尔金山等地的雌性藏羚羊，集结成群，向位于青海省玉树藏
+高盛亚太区首席股票策略师Timothy Moe表示，在触发熔断机制后的下跌之后，韩国股市料将会反弹。 “从长远来看，这将是一次技术性回调，尽管在长期牛市中，这是吓人的回调，”Moe在接受采访时表示，并补充说，“基本面仍然非常非常强劲”。 周一，韩国Kospi指数一度暴跌8.8%，领跌亚洲科技股普遍下跌。此前，受AI乐观情绪推动，科技股曾出现一波强劲上涨，许多投资人利用杠杆追捧少
 
 ## 正文
 
-中新社西宁5月9日电 (潘雨洁)青海省玉树藏族自治州公安局可可西里自然保护区公安局9日消息，5月7日17时，今年首批158只藏羚羊顶着风雪，于三江源国家公园可可西里管理处五道梁保护站辖区(青藏公路3001至3002公里处)向可可西里腹地迁徙，较去年相比，首批迁徙藏羚羊数量增加近百只。
+高盛亚太区首席股票策略师Timothy Moe表示，在触发熔断机制后的下跌之后，韩国股市料将会反弹。
 
-每年5月，来自青海三江源、西藏羌塘、新疆阿尔金山等地的雌性藏羚羊，集结成群，向位于青海省玉树藏族自治州的可可西里“羚羊大产房”卓乃湖区域迁徙，7月中下旬产仔结束后再携幼仔返回原栖息地。
+“从长远来看，这将是一次技术性回调，尽管在长期牛市中，这是吓人的回调，”Moe在接受采访时表示，并补充说，“基本面仍然非常非常强劲”。
 
-目前栖息在可可西里地区的藏羚羊种群数量达7万多只，其迁徙之路被称为“世界最壮观的有蹄类动物大迁徙之一”。
+周一，韩国Kospi指数一度暴跌8.8%，领跌亚洲科技股普遍下跌。
 
-可可西里自然保护区公安局索南达杰生态警务室负责人旦正才旦表示，藏羚羊迁徙季开启后，警方对羊群经过的青藏公路109国道沿线加大巡护频次，实行24小时不间断值守，疏通往来车辆、及时交通管制，加强藏羚羊保护知识科普，减少人类活动对迁徙的干扰。
+此前，受AI乐观情绪推动，科技股曾出现一波强劲上涨，许多投资人利用杠杆追捧少数半导体和科技股。
 
-(完)
+“很明显，投机活动有所增加，尤其是在韩国的散户投资者中，特别是那些涌入杠杆型ETF的投资者，”Moe表示。
+
+高盛上周上调了对韩国股市的展望，预期AI的蓬勃发展将推动以科技股为主的市场获利增长。
+
+Moe周一表示，韩国股市的估值非常合理，并预计其潜在利润将继续推动增长。
+
+“我们认为，经过震荡后，股市将重新站稳脚跟，并创下更高的高点，”他说。
 
 ## 相关推荐
 
-- 2026-06-30 08:21 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
-- 2026-06-30 08:06 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-30 08:16 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-30 08:12 - [巴拉圭点球大战淘汰德国进16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-30 08:02 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-30 08:29 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
-- 2026-06-30 08:05 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-30 08:09 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-30 08:05 - [日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
-- 2026-06-30 08:26 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-30 08:05 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-30 08:10 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-30 08:25 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-30 08:22 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-30 08:12 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-30 08:19 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-30 08:09 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-30 08:32 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
+- 2026-06-30 08:18 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
+- 2026-06-30 08:20 - [老外对中国cosplay竟这样评价…](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-30 08:25 - [董路：谁赢谁是“正路子”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-30 08:25 - [杨紫学位证上就是杨紫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
+- 2026-06-30 08:31 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-30 08:23 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-30 08:11 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-30 08:14 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-30 08:18 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-30 08:26 - [张月收到黄灿灿辣货两眼发光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:27 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/231162.shtml)
-- 2026-06-30 08:29 - [世界杯巴拉圭点球淘汰德国](https://www.share.minike.top/Article/details/40443914.shtml)
-- 2026-06-30 08:04 - [刘宇宁高情商化解谁站C位](https://www.share.kurohicncr.top/Article/details/364163940.shtml)
-- 2026-06-30 08:05 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/8267713145.shtml)
-- 2026-06-30 08:07 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/57596178.shtml)
-- 2026-06-30 08:03 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/474765842.shtml)
-- 2026-06-30 08:14 - [一生一世](http://www.share.minike.top/Article/details/58140.shtml)
-- 2026-06-30 08:16 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/404834184611.shtml)
-- 2026-06-30 08:04 - [大学生遇地震裹被子从5楼冲下](https://www.blog.minike.top/Article/details/944542857.shtml)
-- 2026-06-30 08:14 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/35272922806.shtml)
-- 2026-06-30 08:14 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/437538.shtml)
-- 2026-06-30 08:09 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/808665356248.shtml)
-- 2026-06-30 08:10 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/741105.shtml)
-- 2026-06-30 08:23 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/84551826739.shtml)
-- 2026-06-30 08:18 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/99260684.shtml)
+- 2026-06-30 08:11 - [日本淘汰](http://www.blog.minike.top/Article/details/31307.shtml)
+- 2026-06-30 08:34 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/48556.shtml)
+- 2026-06-30 08:26 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/498355885.shtml)
+- 2026-06-30 08:12 - [巴西绝杀日本](https://www.share.minike.top/Article/details/87946354503.shtml)
+- 2026-06-30 08:25 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/8953053650.shtml)
+- 2026-06-30 08:14 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/61368168264.shtml)
+- 2026-06-30 08:31 - [董卿父亲报纸上发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/701316.shtml)
+- 2026-06-30 08:35 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/876645359.shtml)
+- 2026-06-30 08:17 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/70144711233.shtml)
+- 2026-06-30 08:35 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/876514.shtml)
+- 2026-06-30 08:09 - [城市规划有可能成为「屎山代码」吗？](http://www.share.minike.top/Article/details/392854364.shtml)
+- 2026-06-30 08:31 - [董路：谁赢谁是“正路子”](https://www.blog.kurohicncr.top/Article/details/26394941225.shtml)
+- 2026-06-30 08:08 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/746303511142.shtml)
+- 2026-06-30 08:31 - [巴西vs日本](http://www.share.kurohicncr.top/Article/details/80091.shtml)
+- 2026-06-30 08:27 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/379828827584.shtml)

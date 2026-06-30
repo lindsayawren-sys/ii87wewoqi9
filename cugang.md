@@ -1,61 +1,58 @@
-# 保时捷关停三家子公司裁员500人 持续推进业务转型
+# 林州重机（002535）被立案索赔启动，卓朗科技（600225）索赔案已有获赔再提交立案
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-电池技术公司 Cellforce 集团、保时捷电动自行车性能业务及 Cetitec 公司均将关闭 内容速览 保时捷关闭三家子公司，裁员约 500 人，重新聚焦核心主营业务。 保时捷持续加码战略转型，剥离更多非核心资产；新任首席执行官致力于精简集团架构、提升盈利水平。 这家德国豪华跑车制造商于周五宣布，将关停三家子公司，裁员约 500 人。 本次被关停主体包括：电池技术研发企业C
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年5月27日，林州重机（维权）（002535）公告收到证监会下发的《立案告知书》，因公司涉嫌信息披露违法违规，根据《证券法》、《行政处罚法》等法律法规，证监会决定对公司立案调查。 上海久诚律师事务所股票索赔律师许峰提示，林州重机投资者索赔案已初步启动，在2026年5月27日之前买入林州重机股票，并且在2026年5月27日
 
 ## 正文
 
-电池技术公司 Cellforce 集团、保时捷电动自行车性能业务及 Cetitec 公司均将关闭 内容速览 保时捷关闭三家子公司，裁员约 500 人，重新聚焦核心主营业务。
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年5月27日，林州重机（维权）（002535）公告收到证监会下发的《立案告知书》，因公司涉嫌信息披露违法违规，根据《证券法》、《行政处罚法》等法律法规，证监会决定对公司立案调查。
 
-保时捷持续加码战略转型，剥离更多非核心资产；新任首席执行官致力于精简集团架构、提升盈利水平。
+上海久诚律师事务所股票索赔律师许峰提示，林州重机投资者索赔案已初步启动，在2026年5月27日之前买入林州重机股票，并且在2026年5月27日后卖出或持有股票的投资者，目前已可准备发起索赔。
 
-这家德国豪华跑车制造商于周五宣布，将关停三家子公司，裁员约 500 人。
+除了林州重机投资者索赔案启动，2026年6月4日，许峰律师代理的卓朗科技（600225）投资者索赔案也再提交法院立案。
 
-本次被关停主体包括：电池技术研发企业Cellforce 集团、电动自行车驱动系统研发企业保时捷电动自行车性能公司，以及主营数据通信专用软件研发的Cetitec 公司。
+（许峰律师专栏） 前期许峰律师代理的卓朗科技投资者索赔案在法院判决投资者胜诉后已经收到赔偿款项，许峰律师代理的卓朗科技投资者索赔已经获得胜诉以及获赔到位。
 
-保时捷首席执行官迈克尔・莱特斯表示：“保时捷必须重新聚焦核心业务，这是战略重组取得成功不可或缺的基础。
+律师团队同步还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
 
-” 在此之前，保时捷已达成协议，出售其在超跑合资企业布加迪锐马克（Bugatti Rimac）及电动车制造商锐马克集团（Rimac Group）的全部股份；同时，公司已于去年调整电动车发展战略。
+2024年12月25日晚，卓朗科技（600225）公告收到证监会《行政处罚决定书》，经查，2019年至2023年，卓朗科技子公司天津卓朗科技发展有限公司虚构服务器、软件和系统集成服务销售业务，虚增收入和利润。
 
-受电动车市场需求放缓、中国市场表现疲软及美国关税政策影响，保时捷本次战略调整将产生数亿欧元成本，拖累本年度盈利。
+上述虚假销售业务导致卓朗科技2019年至2023年年度报告分别虚增营业收入24，915.28万元、48，912.89万元、33，861.50万元、65，612.78万元、8，225.45万元，占各期对外披露营业收入的21.05%、45.19%、41.60%、72.46%、13.22%；分别虚增利润总额24，915.28万元、30，989.93万元、33，861.50万元、35，713.19万元、8，225.45万元，占各期对外披露利润总额绝对值的33.81%、7.68%、41.26%、86.08%、50.27%。
 
-今年第一季度保时捷汽车交付量同比下滑 15%，营业利润暴跌 22%，降至5.95 亿欧元（折合 6.975 亿美元）。
+专门从事股票索赔法律事务的上海久诚律师事务所主任许峰律师认为，根据前期投资者胜诉判决以及获赔案例，在2019年9月24日到2024年3月15日之间买入卓朗科技股票，并且在2024年3月15日后卖出或持有股票的投资者，目前还可发起索赔。
 
 ## 相关推荐
 
-- 2026-06-30 08:12 - [森保一 保守](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-30 08:07 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-30 08:00 - [世界杯欧洲队7战南美仅1胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-30 08:26 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
-- 2026-06-30 08:14 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-30 08:10 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-30 08:12 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-30 08:04 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
-- 2026-06-30 08:11 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
-- 2026-06-30 08:29 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
-- 2026-06-30 08:14 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-30 08:29 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-30 08:28 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-30 08:12 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-30 08:18 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-30 08:09 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-30 08:21 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-30 08:31 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-30 08:12 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-30 08:07 - [存储芯片龙头提示风险](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-30 08:33 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-30 08:12 - [巴西在进攻三区完成210脚传球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-30 08:30 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-30 08:31 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-30 08:06 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-30 08:12 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-30 08:19 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:21 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/229740.shtml)
-- 2026-06-30 08:26 - [极限挑战第一季](https://www.blog.minike.top/Article/details/0684408319.shtml)
-- 2026-06-30 08:27 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.kurohicncr.top/Article/details/643300182.shtml)
-- 2026-06-30 08:16 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/51257008362.shtml)
-- 2026-06-30 08:08 - [日本16强魔咒](http://www.share.kurohicncr.top/Article/details/97920754.shtml)
-- 2026-06-30 08:16 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/809758496.shtml)
-- 2026-06-30 08:06 - [勇士续约波尔津吉斯](http://www.blog.minike.top/Article/details/7460406.shtml)
-- 2026-06-30 08:21 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/786997398225.shtml)
-- 2026-06-30 08:11 - [巴西2-1绝杀日本](https://www.blog.kurohicncr.top/Article/details/072821283.shtml)
-- 2026-06-30 08:20 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://www.blog.minike.top/Article/details/580123889.shtml)
-- 2026-06-30 08:01 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.kurohicncr.top/Article/details/007368.shtml)
-- 2026-06-30 08:09 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/43355.shtml)
-- 2026-06-30 08:01 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](http://www.share.minike.top/Article/details/3603436.shtml)
-- 2026-06-30 08:05 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/08581.shtml)
-- 2026-06-30 08:08 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/1234261.shtml)
+- 2026-06-30 08:32 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.blog.kurohicncr.top/Article/details/69858500798.shtml)
+- 2026-06-30 08:32 - [德国连续三届世界杯无缘16强](https://www.blog.kurohicncr.top/Article/details/39500.shtml)
+- 2026-06-30 08:16 - [德国连续三届世界杯无缘16强](https://www.blog.minike.top/Article/details/919516.shtml)
+- 2026-06-30 08:09 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/491820311.shtml)
+- 2026-06-30 08:07 - [巴西扳平比分](http://www.share.kurohicncr.top/Article/details/696106.shtml)
+- 2026-06-30 08:18 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/828678.shtml)
+- 2026-06-30 08:10 - [日本进球](https://www.blog.kurohicncr.top/Article/details/9068260812.shtml)
+- 2026-06-30 08:17 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/9940075.shtml)
+- 2026-06-30 08:25 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/8728680.shtml)
+- 2026-06-30 08:34 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/43707199.shtml)
+- 2026-06-30 08:32 - [巴西2比1日本](http://www.blog.kurohicncr.top/Article/details/38256880313.shtml)
+- 2026-06-30 08:23 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.kurohicncr.top/Article/details/53728824302.shtml)
+- 2026-06-30 08:29 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/26042.shtml)
+- 2026-06-30 08:11 - [巴西替补奇兵读秒绝杀](https://www.blog.kurohicncr.top/Article/details/24526643.shtml)
+- 2026-06-30 08:24 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/600853211095.shtml)

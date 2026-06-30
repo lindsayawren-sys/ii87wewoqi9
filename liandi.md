@@ -1,61 +1,57 @@
-# 北京-东盟科技产业推介洽谈会举办 共享合作新机遇
+# 湖南裕能被宁德时代减持背后：48亿定增刚落地H股融资接踵而至 高负债低收现比订单再流失
 
-> 更新时间：2026-06-30 08:30:02 UTC+8
+> 更新时间：2026-06-30 08:36:02 UTC+8
 
 ## 摘要
 
-中新网北京5月9日电 (记者 吕少威)由北京市贸促会主办的第二十八届北京科博会北京-东盟科技产业推介洽谈会8日在国家会议中心二期举办。来自马来西亚、老挝、缅甸、印尼、越南驻华大使馆官员，东盟经济贸易促进会、中国-东盟产业合作发展促进会、中国东盟中心等中外商协会及企业代表，共150余人参加活动。 东盟经济贸易促进会会长波尚琅在致辞中指出，科技是驱动发展的硬实力，也是北京与东盟最具
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经上市公司研究院 作者：昊 6月3日晚间，湖南裕能发布股东减持预披露公告，第二大股东上海津晟新材料科技有限公司与第三大股东宁德时代拟同步减持公司股份，计划减持数量分别不超过2.5%和3%。 值得注意的是，湖南裕能4月初刚刚完成耗时两年半的47.88亿元A股定增，并于一周前宣布H股融资计划。 事实
 
 ## 正文
 
-中新网北京5月9日电 (记者 吕少威)由北京市贸促会主办的第二十八届北京科博会北京-东盟科技产业推介洽谈会8日在国家会议中心二期举办。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-来自马来西亚、老挝、缅甸、印尼、越南驻华大使馆官员，东盟经济贸易促进会、中国-东盟产业合作发展促进会、中国东盟中心等中外商协会及企业代表，共150余人参加活动。
+出品：新浪财经上市公司研究院 作者：昊 6月3日晚间，湖南裕能发布股东减持预披露公告，第二大股东上海津晟新材料科技有限公司与第三大股东宁德时代拟同步减持公司股份，计划减持数量分别不超过2.5%和3%。
 
-东盟经济贸易促进会会长波尚琅在致辞中指出，科技是驱动发展的硬实力，也是北京与东盟最具活力的增长极，务实合作、开放共赢是双方面向未来的共同选择。
+值得注意的是，湖南裕能4月初刚刚完成耗时两年半的47.88亿元A股定增，并于一周前宣布H股融资计划。
 
-参会各方要共同发挥桥梁纽带作用，助力更多企业跨越山海，共享区域一体化带来的巨大机遇。
+事实上，自2018年至今，除2023年以外，湖南裕能每年经营现金流均为负值，叠加连年大额资本开支，公司有息负债特别是短期债务急剧攀升，负债率维持高位，缺钱状况显而易见。
 
-中国-东盟产业合作发展促进会常务会长廖斌在致辞中表示，希望与会嘉宾积极参与打造“北京技术+东盟应用”“北京方案+东盟场景”的协同发展模式，共同打造北京硬核科技与东盟广阔市场的互利共赢生态，深化交流，共建生态，共享商机。
+作为公司主要股东兼大客户，宁德时代近期与容百科技（维权）、富临精工等连签磷酸铁锂大单，导致湖南裕能的订单被大量分流。
 
-在实务分享环节，中国-东盟中心贸易投资部副主任伍开河深入讲述了东盟历史沿革和区域发展现况，对未来东盟以数字经济与绿色经济转型为中心，迈向韧性、创新、活力、以人为本的东盟共同体作了展望。
+由于高度依赖宁德时代和比亚迪，湖南裕能此前收现比就显著低于万润新能和德方纳米。
 
-中关村发展集团以“使命、生态、网络、未来”为主线，系统阐述了中关村作为中国科技创新出发地、原始创新策源地和自主创新主阵地，在科技创新领域的核心功能和开放合作意向，以及与全球伙伴共创未来的愿景。
+连续融资后，宁德时代与第二大股东同日宣布减持，湖南裕能的前景更令市场担忧。
 
-在推介环节，来自越南大使馆、香港投资推广署、北京数字经济企业出海创新服务基地等机构以及泰国万浦投资(中国)、东升智联、优刻得科技、合康新能源等重点企业作了推介，与现场嘉宾从宏观层面的地区发展，到中观层面的园区孵化再到微观层面的重点企业推介，形成不同层面的交流与对话，在对地区环境和产业发展推介的基础上，为企业在出海服务和务实合作方面提供了有力支撑。
+经营现金流长期远低于资本开支 有息负债急剧攀升负债率维持高位 6月3日，湖南裕能公告称，持股7.10%的第三大股东宁德时代计划减持不超过3%的公司股份，同时第二大股东上海津晟新材料科技有限公司同步减持不超过2.5%，两大股东顶格减持金额或超38亿元。
 
 ## 相关推荐
 
-- 2026-06-30 08:21 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-30 08:19 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-30 08:22 - [张雪的一句“是我们”引发岛内热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-30 08:11 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
-- 2026-06-30 08:16 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-30 08:04 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
-- 2026-06-30 08:09 - [泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-30 08:28 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-30 08:28 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-30 08:07 - [诺伊尔尽力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-30 08:06 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-30 08:24 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
-- 2026-06-30 08:06 - [日本队主帅道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-30 08:15 - [齐思钧回复张月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
-- 2026-06-30 08:06 - [电影抓特务上映11天破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-30 08:29 - [第3集丨“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-30 08:27 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-30 08:33 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-30 08:34 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-30 08:16 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-30 08:33 - [巴拉圭点球大战淘汰德国进16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-30 08:12 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-30 08:09 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-30 08:35 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-30 08:34 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-30 08:31 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:18 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.minike.top/Article/details/637872090622.shtml)
-- 2026-06-30 08:01 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/61529.shtml)
-- 2026-06-30 08:22 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/90168.shtml)
-- 2026-06-30 08:10 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.blog.kurohicncr.top/Article/details/574616229098.shtml)
-- 2026-06-30 08:05 - [田中碧失误](https://www.share.kurohicncr.top/Article/details/091782.shtml)
-- 2026-06-30 08:13 - [莫兰特转投开拓者效力](https://www.share.minike.top/Article/details/84283561.shtml)
-- 2026-06-30 08:06 - [李准基参加文彩元婚礼](https://www.blog.kurohicncr.top/Article/details/15723809251.shtml)
-- 2026-06-30 08:22 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.kurohicncr.top/Article/details/75217314.shtml)
-- 2026-06-30 08:27 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/193830309991.shtml)
-- 2026-06-30 08:14 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/22975091666.shtml)
-- 2026-06-30 08:05 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.blog.minike.top/Article/details/17389.shtml)
-- 2026-06-30 08:19 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/2695094.shtml)
-- 2026-06-30 08:00 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/76864.shtml)
-- 2026-06-30 08:19 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/339540620416.shtml)
-- 2026-06-30 08:27 - [感动全网的699分女生想报考清华](http://www.share.kurohicncr.top/Article/details/9870939.shtml)
+- 2026-06-30 08:31 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/182501030213.shtml)
+- 2026-06-30 08:22 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/169264524.shtml)
+- 2026-06-30 08:22 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/27862.shtml)
+- 2026-06-30 08:24 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/8774985283.shtml)
+- 2026-06-30 08:24 - [【大鸣王潮1566】真拿你没办法](http://www.blog.minike.top/Article/details/24216.shtml)
+- 2026-06-30 08:23 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/921326.shtml)
+- 2026-06-30 08:08 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/797461.shtml)
+- 2026-06-30 08:15 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/105353.shtml)
+- 2026-06-30 08:33 - [苗族银饰](http://www.blog.kurohicncr.top/Article/details/9399634117.shtml)
+- 2026-06-30 08:08 - [藤森庆子赢得秘鲁总统选举](http://www.share.kurohicncr.top/Article/details/677777752.shtml)
+- 2026-06-30 08:18 - [韩国道歉完日本道歉](http://www.blog.kurohicncr.top/Article/details/6240308231.shtml)
+- 2026-06-30 08:33 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/97895106.shtml)
+- 2026-06-30 08:33 - [王健林甩卖超80座万达广场](http://www.blog.minike.top/Article/details/58723982.shtml)
+- 2026-06-30 08:32 - [武磊：巴西队赢的并不轻松](https://www.blog.minike.top/Article/details/3719044047.shtml)
+- 2026-06-30 08:28 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/08465754.shtml)
