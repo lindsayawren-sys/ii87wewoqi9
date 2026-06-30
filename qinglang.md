@@ -1,47 +1,46 @@
-<h1>世界最大级别甲醇双燃料集装箱船从江苏出江试航</h1><br>
+<h1>“糖丸爷爷”顾方舟诞辰100周年纪念展在中国科学家博物馆正式开放</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:53:13 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:54:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新社南通5月14日电 (记者 朱晓颖)世界最大级别的甲醇双燃料集装箱船“中远川崎456”轮14日从江苏南通出江，驶往海域开展首次试航作业。 “中远川崎456”轮由南通中远海运川崎船舶工程有限公司建造，船总长399.99米，型宽61.30米，甲板面积相当于3.5个标准足球场，最大载箱量达24168标箱。全船搭载了全球最大的甲醇双燃料动力系统，配备甲醇双燃料主机、辅机，可灵活切换</p><br>
+<p>中新网北京6月16日电 (记者 孙自法)2026年6月16日是守护几代中国人童年的“糖丸爷爷”——“人民科学家”顾方舟诞辰100周年纪念日，主题为“一生一事一方舟”的纪念展当天在北京中国科学家博物馆正式面向公众开放。 “一生一事一方舟——‘人民科学家’顾方舟诞辰100周年纪念展”由中国科协主办，中国科协科学技术传播中心(中国科学家博物馆)、中国医学科学院北京协和医学院、中国医学</p><br>
 <h2>正文</h2><br>
-<p>中新社南通5月14日电 (记者 朱晓颖)世界最大级别的甲醇双燃料集装箱船“中远川崎456”轮14日从江苏南通出江，驶往海域开展首次试航作业。</p><br>
-<p>“中远川崎456”轮由南通中远海运川崎船舶工程有限公司建造，船总长399.99米，型宽61.30米，甲板面积相当于3.5个标准足球场，最大载箱量达24168标箱。</p><br>
-<p>全船搭载了全球最大的甲醇双燃料动力系统，配备甲醇双燃料主机、辅机，可灵活切换甲醇与传统燃油模式，使用甲醇燃料续航里程达15000海里，是目前全球在建吨位最大、技术含量最高的甲醇双燃料动力集装箱船之一。</p><br>
-<p>该轮为同系列7艘船的首艘。</p><br>
-<p>江苏是中国船舶与海洋工程装备产业第一大省，其造船完工量、新接订单量、手持订单量三大造船指标长期居中国前列。</p><br>
-<p>南通市、泰州市、扬州市海工装备和高技术船舶集群，为中国工业和信息化部公布的国家先进制造业集群。</p><br>
-<p>南通海事局统计，今年一季度，南通海事部门已保障33艘次新造船舶出江试航，同比增长17.9%。</p><br>
-<p>(完)</p><br>
+<p>中新网北京6月16日电 (记者 孙自法)2026年6月16日是守护几代中国人童年的“糖丸爷爷”——“人民科学家”顾方舟诞辰100周年纪念日，主题为“一生一事一方舟”的纪念展当天在北京中国科学家博物馆正式面向公众开放。</p><br>
+<p>“一生一事一方舟——‘人民科学家’顾方舟诞辰100周年纪念展”由中国科协主办，中国科协科学技术传播中心(中国科学家博物馆)、中国医学科学院北京协和医学院、中国医学科学院医学生物学研究所联合承办，展览将持续至2026年12月。</p><br>
+<p>据介绍，脊髓灰质炎(小儿麻痹症)曾肆虐全球、严重危害儿童健康，给无数家庭带来沉重伤痛，长期困扰全球公共卫生安全。</p><br>
+<p>新中国成立初期，中国医疗基础薄弱、防疫条件有限，根除脊灰、守护儿童健康，是亟待攻克的民生重任。</p><br>
+<p>作为医学科学家、病毒学专家和医学教育家，顾方舟怀揣医者仁心、秉持科学家担当，带领团队成功研制出脊髓灰质炎活疫苗及糖丸疫苗，成为中国脊髓灰质炎疫苗研发的奠基人和组织者，他以毕生心血守护亿万儿童健康，为中国彻底消灭本土脊髓灰质炎作出卓越贡献。</p><br>
+<p>本次展览将全球脊灰防疫史、中国无脊灰奋斗史与顾方舟百年人生相结合，集中展现以顾方舟为代表的老一辈科学家爱国、创新、求实、奉献、协同、育人的崇高精神，全面诠释其扎根一线、躬身科研、心怀家国、放眼世界的深厚情怀与格局。</p><br>
+<p>展览设有六大篇章：脊灰突袭篇，梳理全球脊灰流行及近代中国防疫困境，梳理新中国防疫体系的艰难起步；医者仁心篇，追溯顾方舟立誓学医报国的纯粹初心；合力铸舟篇，记录他立足中国国情，笃定活疫苗技术路线，扎根云南艰苦攻坚、带领团队突破核心技术的奋斗历程；永恒誓言篇，讲述他创新研制糖丸疫苗、优化配送方案，守护亿万孩童的温暖担当；世界回响篇，展现他积极开展国际交流、分享中国防疫经验，助力全球公共卫生事业的大国情怀；终章最后一役，聚焦全球持续推进脊灰根除行动，免疫防控工作任重道远的现状。</p><br>
+<p>顾方舟曾任北京市科学技术协会第四届主席、中国医学科学院医学生物学研究所副所长、中国医学科学院北京协和医学院院校长，并获颁“人民科学家”国家荣誉称号、“最美奋斗者”、感动中国年度人物。</p><br>
 <h2>相关推荐</h2><br>
-<h3>德国连续三届世界杯无缘16强</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md</p><br>
-<h3>想问一下学日语的大佬，自学日语要怎么学？</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md</p><br>
-<h3>如何评价DeepSeek 提出的 DSpark 推理加速方案？</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md</p><br>
-<h3>日耳曼拖拉机</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md</p><br>
-<h3>疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md</p><br>
-<h3>点球淘汰德国 巴拉圭首都陷入疯狂</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md</p><br>
-<h3>如何改变自己太负责任的性格?</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md</p><br>
-<h3>收到补税提醒尽快办理 明起有滞纳金</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md</p><br>
-<h3>李在明90度鞠躬感谢韩国两大财阀</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md</p><br>
-<h3>德国 传控</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md</p><br>
-<h3>点球大战</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md</p><br>
-<h3>日本将帅赛后采访纷纷哽咽落泪</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md</p><br>
-<h3>金价跳水 水贝市场显现出“两重天”</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md</p><br>
-<h3>萨内 看笑了</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md</p><br>
+<h3>苗族银饰</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md</p><br>
+<h3>世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md</p><br>
+<h3>HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md</p><br>
+<h3>《名肘探科比》：科比大战裂口女</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md</p><br>
+<h3>找到了10年前跪舔b站的视频</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md</p><br>
+<h3>逃狱兄弟</h3><br><p>更新时间：2026-06-30 09:43<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md</p><br>
+<h3>如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md</p><br>
+<h3>欧洲装一台空调有多难</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md</p><br>
+<h3>女心理师</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md</p><br>
+<h3>吴启华卖肖像权拍AI电影</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md</p><br>
+<h3>日耳曼拖拉机</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md</p><br>
+<h3>法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md</p><br>
+<h3>爱直接对嘴喝饮料的人天塌了</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>女子遭家暴逃跑致丈夫身亡二审细节</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md</p><br>
-<h3>德国巴拉圭 折磨</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md</p><br>
-<h3>逃狱兄弟</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md</p><br>
-<h3>杨某诋毁袁隆平院士科研成果被刑拘</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md</p><br>
-<h3>巴西2比1日本</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md</p><br>
-<h3>租房时你会更看重「住得舒服」，还是「每天通勤更方便」？</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md</p><br>
-<h3>如何把斧兵改造成精英怪？提高攻速移速！！！</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md</p><br>
-<h3>点球大战</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md</p><br>
-<h3>名记：灰熊将莫兰特交易至开拓者</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md</p><br>
-<h3>韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md</p><br>
-<h3>女儿从清华毕业 爸爸晒出17年对比照</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md</p><br>
-<h3>FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md</p><br>
-<h3>未来五年，教育强国这样建设</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md</p><br>
-<h3>Melo向柳智敏张元英道歉</h3><br><p>更新时间：2026-06-30 09:50<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md</p><br>
-<h3>如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md</p><br>
+<h3>央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md</p><br>
+<h3>杨紫获白玉兰视后为何争议难平</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md</p><br>
+<h3>最高法出台涉建筑市场最新司法解释</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md</p><br>
+<h3>巴拉圭进球</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md</p><br>
+<h3>巴西替补奇兵读秒绝杀</h3><br><p>更新时间：2026-06-30 09:47<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md</p><br>
+<h3>詹姆斯 勇士</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md</p><br>
+<h3>咕嘎万能小摊1：沉浸式制作惠灵顿牛排</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md</p><br>
+<h3>致敬！中国首批缉毒警已全体退休</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md</p><br>
+<h3>巴西绝杀日本</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md</p><br>
+<h3>豆包收费了，你还会用吗？</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md</p><br>
+<h3>全网说丑的格力玫瑰空调卖了5万台</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md</p><br>
+<h3>花少8要去世界杯举办国</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md</p><br>
+<h3>有人见过武则天的画像吗，非常好奇？</h3><br><p>更新时间：2026-06-30 09:51<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md</p><br>
+<h3>终于把好哥们处成了情侣!</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md</p><br>
+<h3>我设置了全宇宙最安全的密码</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md</p><br>
