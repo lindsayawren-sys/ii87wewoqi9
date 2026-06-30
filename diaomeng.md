@@ -1,58 +1,57 @@
-# 量化策略火热延续！华夏旗下一只基金“一日售罄”，单日吸金超150亿元
+# 税惠赋能科创、制造业 西安税收服务延伸至“神经末梢”
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-每经记者|任飞 每经编辑|肖芮冬 5月16日，华夏智胜全景混合基金配售比例结果公布。基金公司公告显示，该基金末日配售比例为33.25%。根据计划总募集规模50亿元上限的安排，叠加发行当天就结束募集的情形，该基金发行当天被投资人认购的总规模大约在150.37亿元。 今年以来，越来越多的基金出现提前结束募集的情况，特别是权益类基金数量较多。根据Wind数据统计，华夏、易方达、汇添富
+中新网西安4月8日电 (杨英琦)“过去一年，西安全年落实现行支持科技创新和制造业发展的主要政策减税降费及退税321.08亿元，助力科技创新的‘关键变量’转化为高质量发展的‘最大增量’。”国家税务总局西安市税务局党委委员、总经济师程涛8日说。据介绍，目前西安支持科技创新税费优惠政策共50余项，覆盖创业投资、研究与试验开发、成果转化、重点产业发展、全产业链等科技创新全环节。支持制造
 
 ## 正文
 
-每经记者|任飞 每经编辑|肖芮冬 5月16日，华夏智胜全景混合基金配售比例结果公布。
+中新网西安4月8日电 (杨英琦)“过去一年，西安全年落实现行支持科技创新和制造业发展的主要政策减税降费及退税321.08亿元，助力科技创新的‘关键变量’转化为高质量发展的‘最大增量’。
 
-基金公司公告显示，该基金末日配售比例为33.25%。
+”国家税务总局西安市税务局党委委员、总经济师程涛8日说。
 
-根据计划总募集规模50亿元上限的安排，叠加发行当天就结束募集的情形，该基金发行当天被投资人认购的总规模大约在150.37亿元。
+据介绍，目前西安支持科技创新税费优惠政策共50余项，覆盖创业投资、研究与试验开发、成果转化、重点产业发展、全产业链等科技创新全环节。
 
-今年以来，越来越多的基金出现提前结束募集的情况，特别是权益类基金数量较多。
+支持制造业发展税费优惠政策共31项，包括支持制造业发展专项政策，以及普惠性政策中对制造业发展支持力度较大的减税降费政策。
 
-根据Wind数据统计，华夏、易方达、汇添富、景顺长城等多家公募旗下的近60只基金发行当天就结束募集。
+为了精准高效地把税费优惠政策送到企业手中，西安聚焦重点领域，强化产业支撑。
 
-上周五（5月5日），华夏基金发布一则公告，称旗下华夏智胜全景混合基金提前结束募集，发行当天募集的规模已经超过了募集总上限。
+紧盯科技创新、绿色转型、先进制造业等关键赛道，充分释放税费优惠的叠加、放大和倍增效应，加快培育先导性和支柱性产业，助力企业形成“研发投入—享受优惠—研发再投入”的良性循环。
 
-据悉，这是一只偏股混合型基金，拟任基金经理为百亿基金经理孙蒙。
+同时，通过“税收大数据”为企业“画像”，精准分析企业政策需求，常态化开展“税企联动”和“政策上门”活动，主动帮助企业掌握政策要点、规范内控流程，确保合规享受红利。
 
-2026年一季度末统计数据显示，孙蒙在任基金数量10只，管理规模超过290亿元。
+细化征管规定及配套措施，优化办税系统功能，大幅提升政策享受便利度。
 
 ## 相关推荐
 
-- 2026-06-30 07:49 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
-- 2026-06-30 08:11 - [德国 传控](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
-- 2026-06-30 08:15 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
-- 2026-06-30 08:10 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
-- 2026-06-30 08:06 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-30 07:56 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
-- 2026-06-30 08:15 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
-- 2026-06-30 08:02 - [德国连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-30 07:54 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-30 08:09 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
-- 2026-06-30 07:50 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-30 07:52 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-30 08:02 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-30 08:06 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-30 08:11 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-30 07:54 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-30 08:11 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-30 08:05 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-30 08:09 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-30 08:17 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-30 08:03 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-30 08:08 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-30 08:01 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:54 - [起风了](https://www.share.minike.top/Article/details/149796607128.shtml)
-- 2026-06-30 08:17 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/800445.shtml)
-- 2026-06-30 08:17 - [田中碧失误](https://www.blog.minike.top/Article/details/837843165.shtml)
-- 2026-06-30 08:16 - [索马里女大使：想和中国一起搞事业](https://www.blog.kurohicncr.top/Article/details/13978.shtml)
-- 2026-06-30 07:53 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/48559630453.shtml)
-- 2026-06-30 08:11 - [苗族银饰](https://www.share.kurohicncr.top/Article/details/2880650.shtml)
-- 2026-06-30 08:03 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/86795.shtml)
-- 2026-06-30 08:06 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/168995899591.shtml)
-- 2026-06-30 08:16 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/897752000.shtml)
-- 2026-06-30 07:58 - [孙兴慜发长文致歉](http://www.blog.minike.top/Article/details/120879647393.shtml)
-- 2026-06-30 07:51 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/9760838132.shtml)
-- 2026-06-30 08:05 - [委内瑞拉地震死亡人数升至1719人](https://www.share.kurohicncr.top/Article/details/137813667.shtml)
-- 2026-06-30 07:58 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/49025.shtml)
-- 2026-06-30 08:03 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/978978.shtml)
-- 2026-06-30 07:52 - [媒体评泰山建135公里刀片刺绳隔离网](https://www.share.kurohicncr.top/Article/details/592841.shtml)
+- 2026-06-30 07:56 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/783664187076.shtml)
+- 2026-06-30 08:21 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/8091567699.shtml)
+- 2026-06-30 07:56 - [天道](http://www.share.kurohicncr.top/Article/details/94582566.shtml)
+- 2026-06-30 07:55 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/557315008.shtml)
+- 2026-06-30 08:08 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/267202422643.shtml)
+- 2026-06-30 08:08 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/163040723261.shtml)
+- 2026-06-30 07:55 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/21978.shtml)
+- 2026-06-30 07:57 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.share.minike.top/Article/details/483394680.shtml)
+- 2026-06-30 08:20 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/1612929285.shtml)
+- 2026-06-30 07:55 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/157241.shtml)
+- 2026-06-30 08:02 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/69535.shtml)
+- 2026-06-30 07:59 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/70932642475.shtml)
+- 2026-06-30 07:56 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/39111.shtml)
+- 2026-06-30 08:13 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/6020219348.shtml)
+- 2026-06-30 08:00 - [巴西补时绝杀日本](https://www.share.kurohicncr.top/Article/details/797227998371.shtml)

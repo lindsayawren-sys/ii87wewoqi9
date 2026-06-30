@@ -1,61 +1,57 @@
-# 百家台企龙江行 共话向北发展
+# 国防部：中方在伊朗问题上坦坦荡荡、正大光明
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-中新网哈尔滨5月19日电(记者 王妮娜)5月18日，“融通发展·共创未来—百家台企龙江行”活动在哈尔滨启幕。来自数字经济、现代农业、商贸流通等领域的百余名台商代表齐聚冰城，共觅合作新机。 在开幕式暨推介洽谈会上，黑龙江省农业农村厅重点推介“黑土优品”省级农业品牌及定制农业项目，展现大粮仓的现代发展潜力。更引人注目的是，哈尔滨工业大学、东北农业大学等4所高校集中发布智能光学变色材
+中新社北京4月9日电 (记者 李纯)中国国防部新闻发言人张晓刚9日就近期涉军问题发布消息。他表示，中方在伊朗问题上坦坦荡荡、正大光明，始终秉持客观公正立场，一直在为劝和促谈而努力。 有记者问，有报道称，中芯国际向伊朗军方提供芯片制造设备，中国商业卫星公司公开美军中东基地影像。美官员声称清楚中俄为帮助伊朗所采取的行动，必要时将对这些行动加以应对。请问对此有何评论？ 张晓刚指出，我
 
 ## 正文
 
-中新网哈尔滨5月19日电(记者 王妮娜)5月18日，“融通发展·共创未来—百家台企龙江行”活动在哈尔滨启幕。
+中新社北京4月9日电 (记者 李纯)中国国防部新闻发言人张晓刚9日就近期涉军问题发布消息。
 
-来自数字经济、现代农业、商贸流通等领域的百余名台商代表齐聚冰城，共觅合作新机。
+他表示，中方在伊朗问题上坦坦荡荡、正大光明，始终秉持客观公正立场，一直在为劝和促谈而努力。
 
-在开幕式暨推介洽谈会上，黑龙江省农业农村厅重点推介“黑土优品”省级农业品牌及定制农业项目，展现大粮仓的现代发展潜力。
+有记者问，有报道称，中芯国际向伊朗军方提供芯片制造设备，中国商业卫星公司公开美军中东基地影像。
 
-更引人注目的是，哈尔滨工业大学、东北农业大学等4所高校集中发布智能光学变色材料、智慧灌溉、工厂化养殖精准控制等一批前沿科技成果，为台商投资战略性新兴产业提供了“硬核”选项。
+美官员声称清楚中俄为帮助伊朗所采取的行动，必要时将对这些行动加以应对。
 
-此外，来自全省的10家企业围绕生物经济、新能源、跨境电商等方向作了推介，全方位展示龙江多元产业生态。
+请问对此有何评论？
 
-与会台商对黑龙江的优质农产品和科教资源表现出浓厚兴趣。
+张晓刚指出，我们坚决反对有关方散布针对中方的猜测性、影射性虚假信息。
 
-多位台商表示，黑龙江现代农业优势突出、科教资源富集、对俄区位独特，与台湾在精致农业、科技应用、跨境贸易等领域互补性强，期待通过实地考察找到合作契合点。
+中方在伊朗问题上坦坦荡荡、正大光明，始终秉持客观公正立场，一直在为劝和促谈而努力，从不做拱火浇油的事。
 
-据了解，本次活动期间还将举办“黑土优品·韵味龙江”农产品推介品鉴会，并组织台商赴哈尔滨、大庆等地实地考察，推动龙台经济合作走深走实。
+谁在说一套做一套，谁在到处制造战乱冲突，国际社会看得清清楚楚。
 
 ## 相关推荐
 
-- 2026-06-30 08:02 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
-- 2026-06-30 08:12 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
-- 2026-06-30 07:50 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
-- 2026-06-30 08:12 - [孙颖莎王楚钦晋级8强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
-- 2026-06-30 07:51 - [索马里女大使：想和中国一起搞事业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-30 08:16 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-30 08:15 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-30 08:15 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
-- 2026-06-30 08:13 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-30 08:09 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-30 08:10 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
-- 2026-06-30 08:15 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-30 08:07 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-30 07:49 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-30 08:08 - [泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-30 08:06 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-30 08:19 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
+- 2026-06-30 08:03 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-30 08:11 - [德国罚丢3粒点球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-30 08:22 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-30 08:20 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-30 07:55 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-30 08:04 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-30 07:58 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-30 08:15 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-30 08:00 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:09 - [泰山景区回应修建刀片刺绳隔离网](http://www.share.kurohicncr.top/Article/details/596110209.shtml)
-- 2026-06-30 07:53 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/09962361964.shtml)
-- 2026-06-30 07:50 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/94595986.shtml)
-- 2026-06-30 07:57 - [本科毕业生为何涌入专科学校](https://www.blog.kurohicncr.top/Article/details/991120.shtml)
-- 2026-06-30 07:49 - [日本球员说被绝杀非常不甘心](https://www.blog.minike.top/Article/details/13933.shtml)
-- 2026-06-30 08:00 - [人类...完蛋了...](https://www.blog.minike.top/Article/details/44197.shtml)
-- 2026-06-30 08:07 - [巴西在进攻三区完成210脚传球](https://www.blog.minike.top/Article/details/3501000.shtml)
-- 2026-06-30 08:08 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.kurohicncr.top/Article/details/4955923.shtml)
-- 2026-06-30 08:00 - [王欣瑜连续4年晋级温网第二轮](http://www.share.minike.top/Article/details/58887258.shtml)
-- 2026-06-30 07:55 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/5292429918.shtml)
-- 2026-06-30 08:07 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.share.minike.top/Article/details/205531570599.shtml)
-- 2026-06-30 07:56 - [韩国球迷凌晨4点接机怒骂主教练](http://www.share.kurohicncr.top/Article/details/339481689884.shtml)
-- 2026-06-30 07:54 - [孙兴慜道歉](https://www.blog.kurohicncr.top/Article/details/57417.shtml)
-- 2026-06-30 07:52 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/9050550.shtml)
-- 2026-06-30 07:49 - [IGN评测电影版后室](https://www.blog.minike.top/Article/details/43382132908.shtml)
+- 2026-06-30 08:09 - [德国巴拉圭加时](http://www.blog.minike.top/Article/details/46508336097.shtml)
+- 2026-06-30 07:58 - [感动全网的699分女生想报考清华](http://www.blog.minike.top/Article/details/92167827513.shtml)
+- 2026-06-30 08:21 - [流金岁月](http://www.share.kurohicncr.top/Article/details/90542028554.shtml)
+- 2026-06-30 07:57 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/90092.shtml)
+- 2026-06-30 08:20 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/1612385502.shtml)
+- 2026-06-30 08:15 - [AI手机进入Agent时代](http://www.share.kurohicncr.top/Article/details/516095449523.shtml)
+- 2026-06-30 08:23 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/326597.shtml)
+- 2026-06-30 08:22 - [斛珠夫人](http://www.blog.minike.top/Article/details/4944620.shtml)
+- 2026-06-30 08:22 - [花少8要去世界杯举办国](https://www.share.minike.top/Article/details/48738.shtml)
+- 2026-06-30 08:23 - [警犬“多多”助民警寻回失联老人](http://www.blog.minike.top/Article/details/594990787.shtml)
+- 2026-06-30 07:58 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/155529161142.shtml)
+- 2026-06-30 08:00 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/4440595.shtml)
+- 2026-06-30 08:15 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/08119214.shtml)
+- 2026-06-30 07:58 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/691780052750.shtml)
+- 2026-06-30 08:18 - [巴西绝杀](https://www.blog.kurohicncr.top/Article/details/191819095.shtml)

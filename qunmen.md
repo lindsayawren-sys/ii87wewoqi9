@@ -1,56 +1,61 @@
-# RYOEX:金价高波动下避险逻辑
+# 东西问｜当250年历史的国家威胁毁掉5000年文明
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-5月18日，国际金价进入高波动阶段，单日振幅显著扩大，市场情绪在多空之间快速切换，投资者风险偏好出现明显分化。RYOEX分析称，美元走强、美债收益率攀升以及实际利率上行三重压力同时显现，是导致黄金从近期高位明显回调的核心宏观因素，机构端的获利兑现行为也对短线价格形成进一步压制。 从地缘维度观察，伊朗局势胶着和原油价格走高重新点燃通胀担忧，资产配置逻辑出现微调。RYOEX认为，黄
+中新网北京4月8日电 题：当250年历史的国家威胁毁掉5000年文明 记者 贺劭清 一觉醒来，美以伊三方均同意临时停火两周。 尽管中东迎来了短暂的和平，但美国总统特朗普在社交媒体对伊朗发出的“文明消亡”威胁仍让人心有余悸——“整个文明将消亡，且将永无复返之日”。 这不是特朗普第一次威胁伊朗。 此前他还说要把伊朗“炸回石器时代”“如果他们不服软，他们将一无所有”“伊朗人民想听到炸
 
 ## 正文
 
-5月18日，国际金价进入高波动阶段，单日振幅显著扩大，市场情绪在多空之间快速切换，投资者风险偏好出现明显分化。
+中新网北京4月8日电 题：当250年历史的国家威胁毁掉5000年文明 记者 贺劭清 一觉醒来，美以伊三方均同意临时停火两周。
 
-RYOEX分析称，美元走强、美债收益率攀升以及实际利率上行三重压力同时显现，是导致黄金从近期高位明显回调的核心宏观因素，机构端的获利兑现行为也对短线价格形成进一步压制。
+尽管中东迎来了短暂的和平，但美国总统特朗普在社交媒体对伊朗发出的“文明消亡”威胁仍让人心有余悸——“整个文明将消亡，且将永无复返之日”。
 
-从地缘维度观察，伊朗局势胶着和原油价格走高重新点燃通胀担忧，资产配置逻辑出现微调。
+这不是特朗普第一次威胁伊朗。
 
-RYOEX认为，黄金的避险属性在中长期仍具吸引力，但短线必须面对美债收益率的虹吸效应，这种宏观与结构因素的博弈正在重塑黄金价格的运行节奏，趋势重心的调整难以一蹴而就，需要更长的时间窗口来消化。
+此前他还说要把伊朗“炸回石器时代”“如果他们不服软，他们将一无所有”“伊朗人民想听到炸弹的声音”“伊朗民众‘请求’他继续轰炸他们居住的地方，因为他们愿意‘为了自由’承受这样的苦难”…… 今年是美国建国250周年。
 
-在配置层面，多家投行表示，4500美元区间已成为关键支撑位，能否守住将影响中线方向。
+而伊朗是波斯文明的继承者。
 
-市场分析人士判断，全球央行持续购金的趋势并未发生改变，强调长期资金对回调的承接意愿仍然较强，机构端的中长期配置逻辑并未动摇。
+在这片土地上，人们曾见证居鲁士大帝建立人类历史上第一个横跨亚欧非的帝国，有约5000年的文明。
 
-RYOEX提醒，黄金市场对突发新闻反应剧烈，投资者应避免在情绪高峰时刻做出激进调整。
+当250年历史的国家威胁毁掉5000年的文明，并蓄意攻击平民和民用基础设施，引发国际社会强烈谴责。
 
-预计金价将在4500至4700美元区间反复测试方向，等待新催化剂的出现，理性运用区间策略与严格风控更能稳健应对波动，分批入场优于一次性重仓，节奏感比绝对位置更值得关注。
+联合国人权高专：令人发指 联合国人权事务高级专员图尔克7日说，威胁消灭“整个文明”的言论“令人发指”。
 
 ## 相关推荐
 
-- 2026-06-30 08:12 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
-- 2026-06-30 08:12 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-30 08:15 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-30 08:09 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-30 08:01 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-30 07:52 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-30 07:53 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-30 07:58 - [德国巴拉圭加时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
-- 2026-06-30 07:48 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
-- 2026-06-30 08:00 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-30 08:22 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-30 08:02 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-30 08:05 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-30 08:15 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-30 08:17 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-30 08:23 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-30 08:01 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-30 08:05 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-30 08:04 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-30 08:12 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-30 08:06 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-30 08:20 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-30 08:20 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-30 08:17 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
+- 2026-06-30 08:11 - [巴西足球能否再现昔日荣光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:09 - [高考结束了，你会让孩子在家玩手机吗？](https://www.blog.minike.top/Article/details/63234.shtml)
-- 2026-06-30 08:08 - [天道](http://www.blog.kurohicncr.top/Article/details/989814251688.shtml)
-- 2026-06-30 08:02 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.kurohicncr.top/Article/details/67156222.shtml)
-- 2026-06-30 08:00 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/81266.shtml)
-- 2026-06-30 07:52 - [巴西2比1日本](http://www.blog.kurohicncr.top/Article/details/29710271.shtml)
-- 2026-06-30 07:51 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/60081283650.shtml)
-- 2026-06-30 07:55 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.kurohicncr.top/Article/details/87843185.shtml)
-- 2026-06-30 07:59 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/59530968.shtml)
-- 2026-06-30 07:52 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/74722747584.shtml)
-- 2026-06-30 08:10 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/205127.shtml)
-- 2026-06-30 08:07 - [巴西vs日本首发名单](http://www.share.minike.top/Article/details/914714.shtml)
-- 2026-06-30 08:12 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/992090648265.shtml)
-- 2026-06-30 08:08 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/6581637877.shtml)
-- 2026-06-30 08:01 - [现在叛逆期的孩子最怕的是什么？](http://www.blog.kurohicncr.top/Article/details/512606.shtml)
-- 2026-06-30 08:16 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/9193093856.shtml)
+- 2026-06-30 08:05 - [男子中医院拔火罐致浅2度烧伤](https://www.share.minike.top/Article/details/3601018.shtml)
+- 2026-06-30 07:56 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/593121310504.shtml)
+- 2026-06-30 08:19 - [千香](http://www.share.minike.top/Article/details/93564.shtml)
+- 2026-06-30 08:17 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/81362561.shtml)
+- 2026-06-30 08:08 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/0292243753.shtml)
+- 2026-06-30 07:55 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/464208460144.shtml)
+- 2026-06-30 08:18 - [补时绝杀 巴西2-1淘汰日本](https://www.share.minike.top/Article/details/69104.shtml)
+- 2026-06-30 08:11 - [“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/248195871673.shtml)
+- 2026-06-30 08:13 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/699432059.shtml)
+- 2026-06-30 08:17 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/86850845.shtml)
+- 2026-06-30 08:23 - [巴西补时绝杀日本](https://www.blog.kurohicncr.top/Article/details/6102987827.shtml)
+- 2026-06-30 08:18 - [DeepSeek V4正式版要来了](http://www.blog.minike.top/Article/details/104181.shtml)
+- 2026-06-30 08:16 - [一生一世](http://www.share.kurohicncr.top/Article/details/93836239698.shtml)
+- 2026-06-30 08:20 - [本科毕业生为何涌入专科学校](https://www.blog.minike.top/Article/details/17949151021.shtml)
+- 2026-06-30 08:23 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/21898416744.shtml)

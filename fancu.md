@@ -1,56 +1,59 @@
-# 追觅俞浩：非常认可胖东来，我们有很多东西内里高度一致
+# 宇树科技和阿里将有出海战略级合作：宇树机器人上手阿里电脑打字 或将落地速卖通
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-做企业不是开故事会，发展才能解释问题，发展才能解决问题 文|《中国企业家》记者 李艳艳 见习编辑|李原编辑|何伊凡 头图摄影|邓攀 在成为世界首富之前，追觅科技创始人俞浩先打破了一项世界纪录：社交媒体上最活跃的CEO。从5月6日到5月12日，一周之内，他发了409条抖音、376条视频号、291条小红书、393条微博，平均每天12条朋友圈。 这还不包括追觅员工、高管发布的内容，他
+快科技4月9日消息，据申妈的朋友圈今日消息，知情人士透露，宇树科技与阿里正酝酿一项重要的出海战略合作。宇树科技的最新款机器人R1 近日出现在阿里西溪园区，机器人坐在阿里园区公共区域、在一台电脑前呈打字状态，电脑屏幕上是“邀请函”三个字，并有宇树科技的工作人员随行。 消息提到，围观员工透露，工作人员在现场解释称，此次到访是为一个名为“树卖通”的新项目做准备。该项目预计将在 4 月
 
 ## 正文
 
-做企业不是开故事会，发展才能解释问题，发展才能解决问题 文|《中国企业家》记者 李艳艳 见习编辑|李原编辑|何伊凡 头图摄影|邓攀 在成为世界首富之前，追觅科技创始人俞浩先打破了一项世界纪录：社交媒体上最活跃的CEO。
+快科技4月9日消息，据申妈的朋友圈今日消息，知情人士透露，宇树科技与阿里正酝酿一项重要的出海战略合作。
 
-从5月6日到5月12日，一周之内，他发了409条抖音、376条视频号、291条小红书、393条微博，平均每天12条朋友圈。
+宇树科技的最新款机器人R1 近日出现在阿里西溪园区，机器人坐在阿里园区公共区域、在一台电脑前呈打字状态，电脑屏幕上是“邀请函”三个字，并有宇树科技的工作人员随行。
 
-这还不包括追觅员工、高管发布的内容，他要求所有员工开通所有社交媒体的账号，每天至少发3条视频。
+消息提到，围观员工透露，工作人员在现场解释称，此次到访是为一个名为“树卖通”的新项目做准备。
 
-视频中的俞浩，情绪起伏极大，几乎每句话都用叹号收尾。
+该项目预计将在 4 月中旬于深圳的一场品牌大会上正式对外官宣。
 
-有时快意恩仇：“夸我们的人，都长得比较帅！
+对于“树卖通”项目，有接近阿里的人士分析认为，从项目名称及宇树科技的海外发展计划来看，此次合作极有可能与阿里巴巴旗下的跨境电商平台 —— 速卖通（AliExpress）相关。
 
-骂我们的人，都长得比较丑！
+值得关注的是，宇树科技与阿里巴巴之间存在业务合作与资本投资的双重关系。
 
-”有时咬牙切齿：“反正谁都不要随便招惹老子！
+具体表现为，在2025年6月19日，阿里巴巴作为领投方之一参与了宇树科技的C轮融资。
 
-我有仇必报！
+据悉，本轮融资始于2024年9月，由中国移动旗下基金、腾讯、锦秋基金、阿里巴巴、蚂蚁集团、吉利资本联合领投，原股东阵营亦大规模跟投。
 
 ## 相关推荐
 
-- 2026-06-30 07:59 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-30 08:02 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-30 08:05 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-30 08:04 - [世界杯巴拉圭点球淘汰德国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
-- 2026-06-30 07:54 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-30 08:13 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-30 08:02 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
-- 2026-06-30 08:13 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
-- 2026-06-30 08:04 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
-- 2026-06-30 08:02 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-30 08:08 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-30 08:15 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-30 08:19 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-30 08:03 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-30 07:57 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-30 08:23 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-30 08:03 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-30 08:10 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
+- 2026-06-30 08:12 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-30 08:14 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-30 08:01 - [德国进球被吹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-30 07:54 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
+- 2026-06-30 08:20 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:08 - [全新问界M9现身美国街头](http://www.blog.kurohicncr.top/Article/details/449555198.shtml)
-- 2026-06-30 07:48 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/28694217707.shtml)
-- 2026-06-30 08:03 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/20345696.shtml)
-- 2026-06-30 08:11 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/64893804.shtml)
-- 2026-06-30 08:14 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/896955003453.shtml)
-- 2026-06-30 08:05 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/16416.shtml)
-- 2026-06-30 08:17 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/34157790.shtml)
-- 2026-06-30 08:12 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/97569031645.shtml)
-- 2026-06-30 08:13 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://www.share.minike.top/Article/details/46923290.shtml)
-- 2026-06-30 08:17 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.minike.top/Article/details/7641104442.shtml)
-- 2026-06-30 08:13 - [媒体评泰山建135公里刀片刺绳隔离网](https://www.share.minike.top/Article/details/47146261153.shtml)
-- 2026-06-30 07:59 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/88673084013.shtml)
-- 2026-06-30 07:51 - [巴西替补奇兵读秒绝杀](http://www.blog.minike.top/Article/details/39315301.shtml)
-- 2026-06-30 08:17 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/17530.shtml)
-- 2026-06-30 07:56 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/09787640535.shtml)
+- 2026-06-30 07:56 - [巴拉圭先进球了](https://www.share.minike.top/Article/details/95488210230.shtml)
+- 2026-06-30 08:16 - [问心2神一集鬼三集](https://www.share.kurohicncr.top/Article/details/50208104.shtml)
+- 2026-06-30 08:20 - [内马尔替补](http://www.share.minike.top/Article/details/840000276441.shtml)
+- 2026-06-30 08:19 - [美人鱼](http://www.share.minike.top/Article/details/9327556856.shtml)
+- 2026-06-30 08:23 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/6253339425.shtml)
+- 2026-06-30 08:23 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/372887369.shtml)
+- 2026-06-30 08:12 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/2056170.shtml)
+- 2026-06-30 08:03 - [韩国球迷凌晨4点接机怒骂主教练](http://www.blog.kurohicncr.top/Article/details/50695685.shtml)
+- 2026-06-30 08:07 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/07072346577.shtml)
+- 2026-06-30 08:13 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.kurohicncr.top/Article/details/937170095.shtml)
+- 2026-06-30 08:06 - [我觉得你是在无中生友](http://www.blog.kurohicncr.top/Article/details/77508428.shtml)
+- 2026-06-30 08:09 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/061904970.shtml)
+- 2026-06-30 08:09 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/4633040575.shtml)
+- 2026-06-30 08:19 - [曝老詹对自由市场态度与以往截然不同](http://www.share.kurohicncr.top/Article/details/487117080.shtml)
+- 2026-06-30 08:15 - [亚洲球队全部出局](http://www.share.minike.top/Article/details/86605.shtml)

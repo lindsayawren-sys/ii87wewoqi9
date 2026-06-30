@@ -1,59 +1,61 @@
-# 特斯拉首席执行官马斯克：无人驾驶无人监管车辆今年将在美国大范围普及
+# 监管出手！分红险告别“高收益想象”， 销售与演示利率双双收紧
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-特斯拉首席执行官埃隆・马斯克于周一表示，继无安全员值守的全自动自动驾驶车辆已在得克萨斯州落地运营后，他预计这类车辆将于今年下半年在美国进一步普及。 马斯克通过视频连线出席特拉维夫智能出行峰会时称，目前得克萨斯州已有无安全人员随车值守的自动驾驶汽车上路行驶，今年这一模式将推广至全美各地。 近期特斯拉汽车销量增速放缓，该公司现已在奥斯汀、达拉斯与休斯顿投放自动驾驶网约车。不过记者实
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！界面新闻记者 | 吕文琦 在人身险转型的关键阶段，监管正在对分红险“踩下刹车”。 近日，界面新闻记者从业内获悉，国家金融监督管理总局向各人身险公司下发《人身保险产品“负面清单”（2026版）》。相较2025版，新版清单扩展至105条，继续从产品条款、责任设计、费率厘定及精算假设、报备管理等维度，对行业进行细
 
 ## 正文
 
-特斯拉首席执行官埃隆・马斯克于周一表示，继无安全员值守的全自动自动驾驶车辆已在得克萨斯州落地运营后，他预计这类车辆将于今年下半年在美国进一步普及。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-马斯克通过视频连线出席特拉维夫智能出行峰会时称，目前得克萨斯州已有无安全人员随车值守的自动驾驶汽车上路行驶，今年这一模式将推广至全美各地。
+界面新闻记者 | 吕文琦 在人身险转型的关键阶段，监管正在对分红险“踩下刹车”。
 
-近期特斯拉汽车销量增速放缓，该公司现已在奥斯汀、达拉斯与休斯顿投放自动驾驶网约车。
+近日，界面新闻记者从业内获悉，国家金融监督管理总局向各人身险公司下发《人身保险产品“负面清单”（2026版）》。
 
-不过记者实地体验后发现，这项服务普遍存在等候时间过长、时常无车可约的问题，部分行程的下车点也距离乘客目的地较远。
+相较2025版，新版清单扩展至105条，继续从产品条款、责任设计、费率厘定及精算假设、报备管理等维度，对行业进行细化约束。
 
-去年11月，特斯拉获批在亚利桑那州开展网约车出行服务。
+其中，一项新增内容直指分红险销售中的核心问题——收益预期管理。
 
-十余年来，马斯克多次对自动驾驶行业做出大胆预判，其中多数未能如期落地，但他依旧乐观认为，无人自动驾驶汽车十年内将随处可见。
+新版负面清单明确，将“分红型保险产品说明书中红利分配政策承诺的分配比例高于利益演示水平”的情形列为违规。
 
-他表示：“五年之后，乃至十年之后，公路上约九成的行驶里程都将由自动驾驶汽车的人工智能系统完成。
+这意味着，保险公司不得在产品说明或销售过程中，给出超出精算演示的红利承诺。
 
-十年后，人类亲自驾驶汽车反而会成为十分小众的行为。
+负面清单划出收益承诺红线 北美精算师陈放对界面新闻记者分析称，当前分红险销售规范的收紧，与既有监管框架之间存在一定的制度衔接逻辑。
 
 ## 相关推荐
 
-- 2026-06-30 08:06 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-30 08:08 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
-- 2026-06-30 07:52 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
-- 2026-06-30 07:58 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-30 08:03 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
-- 2026-06-30 08:15 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-30 08:01 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-30 08:08 - [锐评T1战胜KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-30 07:58 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-30 07:48 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-30 08:02 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-30 08:02 - [全球芯片巨头史诗级扩产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-30 07:49 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-30 07:58 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-30 08:03 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-30 07:56 - [孙颖莎王楚钦晋级8强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-30 08:23 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-30 08:03 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-30 08:21 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
+- 2026-06-30 08:23 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-30 07:58 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-30 08:14 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-30 08:18 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-30 08:17 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-30 08:19 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-30 08:23 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-30 08:07 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-30 08:08 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:05 - [日本遭读秒绝杀 森保一：我水平不够](https://www.blog.kurohicncr.top/Article/details/127093.shtml)
-- 2026-06-30 08:12 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/1220845.shtml)
-- 2026-06-30 07:52 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/25338.shtml)
-- 2026-06-30 07:50 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/290670921.shtml)
-- 2026-06-30 07:49 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/205431852748.shtml)
-- 2026-06-30 08:14 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/1294588.shtml)
-- 2026-06-30 07:50 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/007117155.shtml)
-- 2026-06-30 08:11 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/556455728587.shtml)
-- 2026-06-30 08:05 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/635155735.shtml)
-- 2026-06-30 07:52 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/03457904337.shtml)
-- 2026-06-30 08:12 - [有什么好的高中网课推荐吗？](https://www.share.minike.top/Article/details/577820.shtml)
-- 2026-06-30 07:52 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/53879349.shtml)
-- 2026-06-30 08:05 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.blog.minike.top/Article/details/99195.shtml)
-- 2026-06-30 07:51 - [周冬雨多次说演不了话剧文城](https://www.blog.minike.top/Article/details/43858239.shtml)
-- 2026-06-30 08:05 - [安切洛蒂 换人](http://www.blog.minike.top/Article/details/647564.shtml)
+- 2026-06-30 08:22 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/8523978.shtml)
+- 2026-06-30 08:20 - [安切洛蒂 换人](http://www.blog.kurohicncr.top/Article/details/918724609650.shtml)
+- 2026-06-30 08:20 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/918553373809.shtml)
+- 2026-06-30 08:05 - [日本五次世界杯淘汰赛全败](http://www.share.kurohicncr.top/Article/details/230351279.shtml)
+- 2026-06-30 07:58 - [女心理师](http://www.blog.minike.top/Article/details/41279.shtml)
+- 2026-06-30 08:15 - [曝灰熊将莫兰特交易至开拓者](https://www.share.kurohicncr.top/Article/details/164613853.shtml)
+- 2026-06-30 07:59 - [花少8要去世界杯举办国](https://www.blog.kurohicncr.top/Article/details/113492.shtml)
+- 2026-06-30 08:20 - [问心2神一集鬼三集](https://www.share.kurohicncr.top/Article/details/151982361.shtml)
+- 2026-06-30 08:11 - [王濛回复黄灿灿](https://www.blog.minike.top/Article/details/196452824981.shtml)
+- 2026-06-30 07:58 - [美股](https://www.blog.kurohicncr.top/Article/details/53665150776.shtml)
+- 2026-06-30 07:55 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/2673561064.shtml)
+- 2026-06-30 07:56 - [勇士续约波尔津吉斯](http://www.blog.kurohicncr.top/Article/details/95870.shtml)
+- 2026-06-30 07:59 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/12146.shtml)
+- 2026-06-30 08:13 - [吴易昺不敌德约科维奇 止步温网首轮](http://www.share.kurohicncr.top/Article/details/39840599643.shtml)
+- 2026-06-30 07:54 - [千万不要随便扣肚脐](https://www.share.kurohicncr.top/Article/details/851782036181.shtml)

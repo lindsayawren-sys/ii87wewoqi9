@@ -1,57 +1,56 @@
-# 第79届世界卫生大会中国代表团：中国深化卫生领域创新合作 贡献中国经验助力全球卫生治理
+# 美国持续申领失业救济人数降至接近两年最低 表明劳动力市场企稳
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-新华社日内瓦5月17日电(记者王露 陈俊侠)出席第79届世界卫生大会的中国代表团17日在瑞士日内瓦举办媒体吹风会。中国国家卫生健康委主任雷海潮、中国常驻联合国日内瓦办事处和瑞士其他国际组织代表贾桂德、中国国家疾病预防控制局局长沈洪兵出席吹风会并答记者问。作为中国代表团团长，雷海潮在吹风会上介绍了健康中国建设工作的进展。他表示，过去十年，中国卫生健康事业的发展和建设主要呈现出以下
+美国持续申领失业金人数降至接近两年来最低水平，进一步表明劳动力市场企稳。 截至3月28日当周，持续申领失业救济人数——也是衡量领取救济人数的替代指标——降至179万人，为2024年5月份以来最低，也低于彭博调查中所有经济学家的预估。截至4月4日当周，首次申领失业救济人数升至21.9万人。 周四公布的数据表明，劳动力市场仍处于“低招聘、低裁员”环境，申领失业救济人数接近历史低位。
 
 ## 正文
 
-新华社日内瓦5月17日电(记者王露 陈俊侠)出席第79届世界卫生大会的中国代表团17日在瑞士日内瓦举办媒体吹风会。
+美国持续申领失业金人数降至接近两年来最低水平，进一步表明劳动力市场企稳。
 
-中国国家卫生健康委主任雷海潮、中国常驻联合国日内瓦办事处和瑞士其他国际组织代表贾桂德、中国国家疾病预防控制局局长沈洪兵出席吹风会并答记者问。
+截至3月28日当周，持续申领失业救济人数——也是衡量领取救济人数的替代指标——降至179万人，为2024年5月份以来最低，也低于彭博调查中所有经济学家的预估。
 
-作为中国代表团团长，雷海潮在吹风会上介绍了健康中国建设工作的进展。
+截至4月4日当周，首次申领失业救济人数升至21.9万人。
 
-他表示，过去十年，中国卫生健康事业的发展和建设主要呈现出以下几个方面的积极变化，包括贯彻预防为主的理念，公共卫生体系持续提升，能力水平大幅改善；医疗服务体系的能力不断增强，在服务可及性、城乡公平性、均等化与覆盖面，以及居民就医便利性等方面均有显著提升；传统医药的传承与发展也取得了新的进步。
+周四公布的数据表明，劳动力市场仍处于“低招聘、低裁员”环境，申领失业救济人数接近历史低位。
 
-同时，在健康中国建设过程中，全社会和全民的广泛参与得到了高度重视。
+政府月度就业报告显示，3月份众多行业的招聘出现反弹，同时失业率小幅下降。
 
-雷海潮同时表示，中国愿将卫生治理的经验与技术同世界各国分享，积极推动“一带一路”卫生合作，并持续向广大发展中国家派遣常驻医疗队。
+不过，经济学家表示，与伊朗战争以及能源成本上升相关的不确定性可能打击企业信心，进而导致企业在未来几个月缩减招聘计划。
 
-目前仍有60多支中国医疗队在海外服务，在非洲、拉美等国家发挥重要作用——不仅提供医疗服务，还传授中国医务人员掌握的先进技术与管理经验，为当地培养大量适宜人才。
-
-这是中国在解决自身健康问题的同时，为国际社会作出的重要贡献。
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-30 07:56 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-30 07:53 - [郑钦文温网一轮游](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-30 08:09 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-30 08:03 - [日本博主：日本足球真的垃圾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-30 08:14 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-30 08:03 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
-- 2026-06-30 07:56 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-30 08:16 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-30 08:01 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-30 08:17 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
-- 2026-06-30 08:04 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-30 08:01 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-30 08:17 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-30 08:08 - [日本五次世界杯淘汰赛全败](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-30 08:09 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-30 08:08 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-30 07:55 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-30 07:57 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-30 08:04 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-30 08:15 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-30 08:07 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-30 08:02 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
+- 2026-06-30 08:16 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:59 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/20425863832.shtml)
-- 2026-06-30 07:50 - [韩乔生吐槽世界杯扩军](http://www.blog.kurohicncr.top/Article/details/1207680.shtml)
-- 2026-06-30 07:51 - [郑钦文温网首轮出局](https://www.share.kurohicncr.top/Article/details/9255095641.shtml)
-- 2026-06-30 07:52 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.kurohicncr.top/Article/details/6241494.shtml)
-- 2026-06-30 08:06 - [这种关系可能正在悄悄“催老”你](https://www.share.minike.top/Article/details/47741748753.shtml)
-- 2026-06-30 07:50 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/906710.shtml)
-- 2026-06-30 08:14 - [青春环游记第三季](https://www.blog.minike.top/Article/details/1313528.shtml)
-- 2026-06-30 08:04 - [老外对中国cosplay竟这样评价…](https://www.share.kurohicncr.top/Article/details/6165516.shtml)
-- 2026-06-30 07:49 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/150294.shtml)
-- 2026-06-30 07:50 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/780529126.shtml)
-- 2026-06-30 08:13 - [杨紫被质疑未使用原名纯属误解](http://www.share.kurohicncr.top/Article/details/94820225.shtml)
-- 2026-06-30 07:55 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/3447792.shtml)
-- 2026-06-30 08:00 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/01819.shtml)
-- 2026-06-30 07:54 - [请回答王牌2019](http://www.blog.minike.top/Article/details/867554392489.shtml)
-- 2026-06-30 07:59 - [点球大战 残酷](https://www.share.kurohicncr.top/Article/details/1035766.shtml)
+- 2026-06-30 08:21 - [张月收到黄灿灿辣货两眼发光](http://www.share.kurohicncr.top/Article/details/409805224.shtml)
+- 2026-06-30 08:17 - [峡谷事故团队组队时有人提醒会下雨](http://www.blog.minike.top/Article/details/34897.shtml)
+- 2026-06-30 08:23 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/85030.shtml)
+- 2026-06-30 08:03 - [巴西vs日本](http://www.blog.minike.top/Article/details/4812235394.shtml)
+- 2026-06-30 08:11 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/7716519515.shtml)
+- 2026-06-30 08:01 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/40103.shtml)
+- 2026-06-30 08:22 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/5048701988.shtml)
+- 2026-06-30 08:08 - [周生如故](https://www.blog.kurohicncr.top/Article/details/582017546398.shtml)
+- 2026-06-30 08:22 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/8949783221.shtml)
+- 2026-06-30 08:14 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/9522908086.shtml)
+- 2026-06-30 08:14 - [日本五次世界杯淘汰赛全败](http://www.share.kurohicncr.top/Article/details/441680580109.shtml)
+- 2026-06-30 08:23 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.share.kurohicncr.top/Article/details/72355838.shtml)
+- 2026-06-30 07:56 - [武磊：日本队有能力跟任何强队抗衡](http://www.blog.kurohicncr.top/Article/details/267902771670.shtml)
+- 2026-06-30 07:59 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/8571649.shtml)
+- 2026-06-30 08:01 - [输球后日本球迷被强行披上巴西国旗](https://www.share.minike.top/Article/details/805591.shtml)

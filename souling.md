@@ -1,60 +1,57 @@
-# 酒价内参5月19日价格发布：古井贡古20下跌6元跌幅居前
+# “西气东输第一源”诞生第七口百亿立方米气井
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月19日整体窄幅波动。如果主要单品各取一瓶整体打包售卖，今日总售价为10012元，较昨日小幅下跌18元。得益于茅台系两款产品特别是飞天茅台的大幅走强，总价依然稳居万元整数关口上方。市场在昨日大幅冲高后今日出现技术性回调，终端交投情绪保持平稳，核心单品的涨跌分化依然显著。 今日白酒市场11大单
+中新网乌鲁木齐4月9日电 (胡嘉琛)记者9日从中国石油塔里木油田获悉，截至4月8日，该油田克拉2-5井累计生产天然气突破100亿立方米，成为克拉2气田第七口累产天然气超百亿立方米的高产气井。 克拉2-5井与此前诞生的6口百亿立方米气井共同组成中国最大规模的百亿立方米高产气井群，保持着中国单个气田平均单井产量最高纪录，进一步夯实了克拉2气田“西气东输第一源”的重要地位。 克拉2-
 
 ## 正文
 
-新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月19日整体窄幅波动。
+中新网乌鲁木齐4月9日电 (胡嘉琛)记者9日从中国石油塔里木油田获悉，截至4月8日，该油田克拉2-5井累计生产天然气突破100亿立方米，成为克拉2气田第七口累产天然气超百亿立方米的高产气井。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为10012元，较昨日小幅下跌18元。
+克拉2-5井与此前诞生的6口百亿立方米气井共同组成中国最大规模的百亿立方米高产气井群，保持着中国单个气田平均单井产量最高纪录，进一步夯实了克拉2气田“西气东输第一源”的重要地位。
 
-得益于茅台系两款产品特别是飞天茅台的大幅走强，总价依然稳居万元整数关口上方。
+克拉2-5井所在的克拉2气田，坐落于塔里木盆地北缘的天山南麓库车坳陷。
 
-市场在昨日大幅冲高后今日出现技术性回调，终端交投情绪保持平稳，核心单品的涨跌分化依然显著。
+塔里木油田历经多年勘探攻关，于1998年在克拉2井斩获高产天然气流，发现了中国当时最大的特高压、特高产、特高丰度整装气田——克拉2气田，并直接促成西气东输工程的启动建设。
 
-今日白酒市场11大单品三涨七跌一平，输家占据明显优势。
+2004年12月，克拉2气田正式投产向西气东输管道供气。
 
-上涨方面，飞天茅台一马当先，上涨10元/瓶，创下近一月最高价纪录；精品茅台上涨3元/瓶，喜获六连阳继续高位运行；水晶剑南春上涨1元/瓶。
+历时二十余载开发，克拉2气田保持稳产态势，连续10年稳产60亿立方米左右，累计生产天然气近1530亿立方米。
 
-下跌方面，国窖1573与古井贡古20跌幅居前，均下跌6元/瓶，都回吐了昨日全部涨幅；青花汾20、习酒君品及青花郎均下跌5元/瓶，昨天涨幅也是尽数失守；洋河梦之蓝M6+下跌4元/瓶；五粮液普五八代小幅下跌1元/瓶。
+气田先后诞生7口累产超100亿立方米、12口累产超10亿立方米的高产气井，实现从高产到长期稳产的跨越式发展。
 
-五粮液1618的价格环比保持不变，近半月的走势相对平稳。
+随着天然气勘探开发的不断深入，塔里木油田还建成年最大供气能力达400亿立方米的“西气东输第一站”，开发建设了克深、博孜、大北等19座大中型气田。
 
 ## 相关推荐
 
-- 2026-06-30 08:02 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-30 08:03 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-30 07:57 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-30 07:59 - [巴拉圭率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-30 07:51 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
-- 2026-06-30 08:13 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
-- 2026-06-30 08:04 - [德国队世界杯点球大战首败](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
-- 2026-06-30 08:11 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
-- 2026-06-30 07:57 - [德国巴拉圭加时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-30 07:55 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
-- 2026-06-30 07:55 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
-- 2026-06-30 08:12 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-30 07:56 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
-- 2026-06-30 07:51 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-30 08:11 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-30 08:17 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-30 08:03 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-30 08:20 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-30 08:07 - [点球大战 残酷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-30 08:01 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
+- 2026-06-30 08:08 - [金鹰奖视后提名预测](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-30 08:07 - [女子遭下药退赔偿拟追刑责](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-30 08:07 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-30 08:19 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-30 08:21 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:48 - [巴西2-1绝杀日本](http://www.blog.minike.top/Article/details/78054761.shtml)
-- 2026-06-30 07:56 - [巴西足球能否再现昔日荣光](https://www.share.kurohicncr.top/Article/details/2988511117.shtml)
-- 2026-06-30 07:52 - [森保一 保守](http://www.share.minike.top/Article/details/413007.shtml)
-- 2026-06-30 08:03 - [本届世界杯已有5名球员被控强奸](https://www.blog.kurohicncr.top/Article/details/198281.shtml)
-- 2026-06-30 07:53 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.minike.top/Article/details/8501936.shtml)
-- 2026-06-30 08:02 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/97648.shtml)
-- 2026-06-30 08:07 - [巴西绝杀日本](https://www.blog.kurohicncr.top/Article/details/2950960226.shtml)
-- 2026-06-30 08:15 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.kurohicncr.top/Article/details/60516473165.shtml)
-- 2026-06-30 08:17 - [锐评T1战胜KC](http://www.blog.minike.top/Article/details/224989.shtml)
-- 2026-06-30 08:01 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/7698247538.shtml)
-- 2026-06-30 07:54 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/2946623.shtml)
-- 2026-06-30 08:05 - [德国 传控](http://www.blog.kurohicncr.top/Article/details/62832140.shtml)
-- 2026-06-30 08:10 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/97235.shtml)
-- 2026-06-30 07:48 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/3944386.shtml)
-- 2026-06-30 08:01 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/2645899778.shtml)
+- 2026-06-30 08:17 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/0396303.shtml)
+- 2026-06-30 07:59 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/63488958581.shtml)
+- 2026-06-30 08:11 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](http://www.share.minike.top/Article/details/18905.shtml)
+- 2026-06-30 08:03 - [有什么好的高中网课推荐吗？](https://www.blog.kurohicncr.top/Article/details/800336378.shtml)
+- 2026-06-30 08:12 - [佐野海舟远射破门](https://www.share.kurohicncr.top/Article/details/70851.shtml)
+- 2026-06-30 08:00 - [媒体评泰山建135公里刀片刺绳隔离网](https://www.share.kurohicncr.top/Article/details/96232.shtml)
+- 2026-06-30 08:15 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/28361115.shtml)
+- 2026-06-30 07:57 - [男子醉酒溺水获救后同行人拒协助抬人](http://www.share.minike.top/Article/details/21784616.shtml)
+- 2026-06-30 07:57 - [孙兴慜发长文致歉](https://www.share.minike.top/Article/details/56224797.shtml)
+- 2026-06-30 08:19 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/41210984113.shtml)
+- 2026-06-30 08:19 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/71258037.shtml)
+- 2026-06-30 08:01 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/995414051889.shtml)
+- 2026-06-30 08:10 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.kurohicncr.top/Article/details/178848587.shtml)
+- 2026-06-30 08:19 - [恋与深空道歉声明](https://www.share.kurohicncr.top/Article/details/9873857298.shtml)
+- 2026-06-30 07:54 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/24431811.shtml)

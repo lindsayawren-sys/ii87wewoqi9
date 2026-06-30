@@ -1,50 +1,53 @@
-# 中新控股完成配售1544万股 净筹约610万港元
+# 美国油价自停火协议达成以来首次突破100美元
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-中新控股（08125）发布公告，配售协议所载的所有条件均已达成及配售事项已根据配售协议的条款及条件于2026年5月15日完成。配售代理已按配售价每股配售股份0.425港元成功向三名承配人（即崔峰先生、张悦女士及郭磊先生）配售1544万股配售股份，相当于紧随配售事项完成后本公司已发行股本的约 8.55%。 配售事项的所得款项净额（扣除配售事项的配售佣金及其他相关开支（包括（其中包
+由于霍尔木兹海峡迅速恢复通行的预期逐渐落空，美国原油价格自美伊达成停火协议以来，首次升至每桶 100 美元上方。尽管已签署协议，伊朗仍继续控制着这条航道，目前通过该海峡的船只数量少于海峡遭封锁之前。受美国和伊朗达成协议的影响，WTI 原油期货（5 月交割）前一日下跌 16%，随后上涨超过 6%，最高达到每桶 100.29 美元。国际原油基准布伦特原油6月交割价格上涨3.6%，至
 
 ## 正文
 
-中新控股（08125）发布公告，配售协议所载的所有条件均已达成及配售事项已根据配售协议的条款及条件于2026年5月15日完成。
+由于霍尔木兹海峡迅速恢复通行的预期逐渐落空，美国原油价格自美伊达成停火协议以来，首次升至每桶 100 美元上方。
 
-配售代理已按配售价每股配售股份0.425港元成功向三名承配人（即崔峰先生、张悦女士及郭磊先生）配售1544万股配售股份，相当于紧随配售事项完成后本公司已发行股本的约 8.55%。
+尽管已签署协议，伊朗仍继续控制着这条航道，目前通过该海峡的船只数量少于海峡遭封锁之前。
 
-配售事项的所得款项净额（扣除配售事项的配售佣金及其他相关开支（包括（其中包括）专业费用）后）约为610万港元。
+受美国和伊朗达成协议的影响，WTI 原油期货（5 月交割）前一日下跌 16%，随后上涨超过 6%，最高达到每桶 100.29 美元。
 
-责任编辑：卢昱君
+国际原油基准布伦特原油6月交割价格上涨3.6%，至每桶98.06美元。
+
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-30 08:07 - [周冬雨多次说演不了话剧文城](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
-- 2026-06-30 08:03 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
-- 2026-06-30 07:52 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-30 07:58 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
-- 2026-06-30 07:59 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-30 07:51 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-30 08:11 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
-- 2026-06-30 08:07 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-30 08:12 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-30 08:00 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
-- 2026-06-30 08:07 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
-- 2026-06-30 08:10 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-30 08:16 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-30 08:00 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-30 08:13 - [巴拉圭率先破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-30 08:11 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-30 08:00 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-30 08:21 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-30 08:16 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-30 08:13 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-30 08:06 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-30 08:09 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-30 07:56 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-30 08:06 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-30 08:02 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:16 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/15689168.shtml)
-- 2026-06-30 08:12 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/85704831832.shtml)
-- 2026-06-30 07:53 - [沙丘](http://www.share.kurohicncr.top/Article/details/3306511678.shtml)
-- 2026-06-30 08:16 - [日本遭读秒绝杀 森保一：我水平不够](http://www.share.minike.top/Article/details/757840.shtml)
-- 2026-06-30 07:59 - [网瘾賊大的阿嬷](https://www.share.minike.top/Article/details/1132117383.shtml)
-- 2026-06-30 08:15 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/13952683.shtml)
-- 2026-06-30 08:17 - [诺伊尔尽力了](https://www.blog.minike.top/Article/details/71716.shtml)
-- 2026-06-30 07:52 - [巴西把自己踢晕了](https://www.blog.minike.top/Article/details/9616287.shtml)
-- 2026-06-30 08:06 - [网瘾賊大的阿嬷](https://www.blog.minike.top/Article/details/929778665.shtml)
-- 2026-06-30 08:11 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/1407879422.shtml)
-- 2026-06-30 08:08 - [亚洲球队全部告别世界杯](https://www.blog.kurohicncr.top/Article/details/04329482.shtml)
-- 2026-06-30 08:11 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/08351.shtml)
-- 2026-06-30 07:48 - [巴西2比1日本](http://www.share.minike.top/Article/details/58439044.shtml)
-- 2026-06-30 08:05 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/33112598.shtml)
-- 2026-06-30 08:04 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/695476232.shtml)
+- 2026-06-30 08:07 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/34263.shtml)
+- 2026-06-30 08:09 - [为什么会有「念旧」的心理？](https://www.blog.kurohicncr.top/Article/details/1273628392.shtml)
+- 2026-06-30 08:13 - [本届世界杯已有5名球员被控强奸](http://www.share.minike.top/Article/details/186400086.shtml)
+- 2026-06-30 08:19 - [日本 高位逼抢](http://www.share.minike.top/Article/details/50148.shtml)
+- 2026-06-30 08:16 - [杨紫被质疑未使用原名纯属误解](https://www.blog.minike.top/Article/details/142849610424.shtml)
+- 2026-06-30 08:14 - [巴西扳平比分](http://www.share.kurohicncr.top/Article/details/9244957013.shtml)
+- 2026-06-30 08:11 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/086801476497.shtml)
+- 2026-06-30 08:09 - [恋与深空制作组回应近期争议](https://www.share.kurohicncr.top/Article/details/98695.shtml)
+- 2026-06-30 08:15 - [巴拉圭先进球了](http://www.share.minike.top/Article/details/9578065882.shtml)
+- 2026-06-30 08:23 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/113180.shtml)
+- 2026-06-30 08:11 - [韩国球迷凌晨4点接机怒骂主教练](https://www.share.minike.top/Article/details/729025.shtml)
+- 2026-06-30 07:58 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/09766.shtml)
+- 2026-06-30 08:22 - [人类...完蛋了...](https://www.blog.minike.top/Article/details/80636.shtml)
+- 2026-06-30 08:06 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/1962700802.shtml)
+- 2026-06-30 08:07 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/028412603058.shtml)

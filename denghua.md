@@ -1,58 +1,53 @@
-# 第一国民银行再获南卡罗来纳州最佳职场及军属最佳雇主双项殊荣
+# 白宫宣称对伊朗取得“军事胜利”
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-新增两项职场荣誉 第一国民银行（F.N.B． Corporation）宣布，被命名为2026年度南卡罗来纳州最佳职场，这是FNB第三次入选该州最具活力和以人为本的公司榜单。此外，公司还同时获评为军属最佳雇主。 公司董事长、总裁兼首席执行官Vincent J． Delie， Jr．表示，这些荣誉反映了公司在建设职场文化方面所做的努力，这种文化支持员工敬业度、强业绩并为利益相关者带
+白宫新闻秘书莱维特周三继续将特朗普促成的停火协议誉为一次毫无疑问的成功。 莱维特在一场新闻发布会的开场白中说：“在总司令的指挥下，我们的战士表现卓越，世界因此见证了一场史无前例的、迅速而成功的军事胜利。” 她说，美国军方已重创伊朗的防御能力，并断言德黑兰将无法再获得核武器。莱维特还提到了在战争中牺牲的美国军人。 这场战争在政治上不得人心，也在特朗普所属的共和党部分成员中引发了日
 
 ## 正文
 
-新增两项职场荣誉 第一国民银行（F.N.B． Corporation）宣布，被命名为2026年度南卡罗来纳州最佳职场，这是FNB第三次入选该州最具活力和以人为本的公司榜单。
+白宫新闻秘书莱维特周三继续将特朗普促成的停火协议誉为一次毫无疑问的成功。
 
-此外，公司还同时获评为军属最佳雇主。
+莱维特在一场新闻发布会的开场白中说：“在总司令的指挥下，我们的战士表现卓越，世界因此见证了一场史无前例的、迅速而成功的军事胜利。
 
-公司董事长、总裁兼首席执行官Vincent J． Delie， Jr．表示，这些荣誉反映了公司在建设职场文化方面所做的努力，这种文化支持员工敬业度、强业绩并为利益相关者带来有意义的积极影响。
+” 她说，美国军方已重创伊朗的防御能力，并断言德黑兰将无法再获得核武器。
 
-他强调，南卡罗来纳州等令人兴奋的高增长市场对公司持续增长至关重要，公司的成功直接反映了对人才和当地社区的投资。
+莱维特还提到了在战争中牺牲的美国军人。
 
-评选依据与员工反馈 最佳职场奖项由独立研究公司Energage管理，完全基于匿名的员工反馈，从价值观、沟通和领导力等多个维度对工作场所进行评估，仅有排名最高的公司才能因其企业文化获得认可。
+这场战争在政治上不得人心，也在特朗普所属的共和党部分成员中引发了日益加剧的不安，而莱维特的上述声明正迎合了特朗普希望尽快翻过这一页的想法。
 
-支持军属的承诺 FNB被认定为军属最佳雇主，反映了其为军人家庭创造包容和支持性工作场所的承诺。
-
-公司优先考虑灵活的就业机会、有竞争力的福利以及针对军属经常面临的搬迁和部署过渡等挑战而制定的周全政策。
-
-通过积极的招聘工作、职业发展支持以及与军人家庭支持组织的合作，FNB使军属和退伍军人能够在平衡其特殊环境需求的同时，建立有意义且长期的职业生涯。
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-30 08:08 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
-- 2026-06-30 07:50 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
-- 2026-06-30 08:11 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-30 08:02 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-30 08:09 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-30 07:57 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
-- 2026-06-30 08:11 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
-- 2026-06-30 08:16 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
-- 2026-06-30 07:49 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-30 07:52 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-30 07:49 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-30 08:16 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
+- 2026-06-30 08:18 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-30 08:12 - [中国新一轮出口管制直指日本命脉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
+- 2026-06-30 08:16 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-30 07:57 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-30 08:11 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-30 08:21 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-30 08:18 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-30 08:02 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
+- 2026-06-30 08:21 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
+- 2026-06-30 08:19 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-30 08:02 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:10 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/03202392098.shtml)
-- 2026-06-30 08:01 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/436773.shtml)
-- 2026-06-30 08:03 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.minike.top/Article/details/68050178.shtml)
-- 2026-06-30 07:56 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/93286316507.shtml)
-- 2026-06-30 08:07 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/54322302.shtml)
-- 2026-06-30 07:49 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/5378181.shtml)
-- 2026-06-30 08:16 - [媒体评泰山建135公里刀片刺绳隔离网](https://www.blog.kurohicncr.top/Article/details/12295682.shtml)
-- 2026-06-30 07:51 - [日本淘汰](https://www.share.kurohicncr.top/Article/details/88129936.shtml)
-- 2026-06-30 08:10 - [网红峡谷5人溺亡 有人提醒会下雨](http://www.share.kurohicncr.top/Article/details/248488731.shtml)
-- 2026-06-30 08:17 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/49313879.shtml)
-- 2026-06-30 07:53 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/115078955776.shtml)
-- 2026-06-30 08:08 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/34856.shtml)
-- 2026-06-30 08:02 - [扬名立万](http://www.blog.minike.top/Article/details/374108526.shtml)
-- 2026-06-30 08:03 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/20880.shtml)
-- 2026-06-30 08:09 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/14980932.shtml)
+- 2026-06-30 08:09 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/3446798.shtml)
+- 2026-06-30 07:59 - [免费试吃发差评被店家挂店门避雷](https://www.blog.minike.top/Article/details/292086.shtml)
+- 2026-06-30 08:12 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/6006143.shtml)
+- 2026-06-30 08:11 - [巴拉圭率先破门](https://www.blog.minike.top/Article/details/26625.shtml)
+- 2026-06-30 08:08 - [《共患难》](https://www.blog.minike.top/Article/details/7980663057.shtml)
+- 2026-06-30 08:21 - [世界杯](http://www.share.minike.top/Article/details/90813976667.shtml)
+- 2026-06-30 08:11 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/21071.shtml)
+- 2026-06-30 08:19 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/7058911.shtml)
+- 2026-06-30 07:55 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/14957.shtml)
+- 2026-06-30 08:15 - [巴西把自己踢晕了](http://www.share.minike.top/Article/details/1854270148.shtml)
+- 2026-06-30 08:06 - [二次元提前预演明日巴西对日本](http://www.share.minike.top/Article/details/3291218.shtml)
+- 2026-06-30 08:13 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/16340.shtml)
+- 2026-06-30 08:23 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/2853772.shtml)
+- 2026-06-30 08:19 - [萨内 看笑了](http://www.share.kurohicncr.top/Article/details/76462.shtml)
+- 2026-06-30 08:04 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/216137306173.shtml)

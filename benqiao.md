@@ -1,49 +1,60 @@
-# 兴福电子:大基金二期拟减持不超2%公司股份
+# 海南今年平均降水量偏少约七成 全岛各市县均出现气象干旱
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：财联社 《科创板日报》19日讯，兴福电子（688545.SH）公告称，持股5%以上股东国家集成电路产业投资基金二期股份有限公司因自身资金安排需要，拟通过：集中竞价或大宗交易方式减持公司股份不超过720万股，即不超过公司总股本的2%。减持期间为2026年6月11日至2026年9月10日。责任编辑：宋雅芳
+中新网海口4月8日电 (记者 王子谦)近日，海南出现高温少雨天气，旱情持续发展。记者8日从海南省气候中心获悉，截至4月7日，今年海南省平均降水量较常年同期偏少约70%，位居历史同期第二少值。专家表示，今年海南春季气象干旱整体较往年同期更为严重。气象监测显示，截至4月7日，今年海南省平均降水量为31.1毫米，仅高于平均降水量30毫米的1971年。 据悉，截至4月7日，海南岛18个
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网海口4月8日电 (记者 王子谦)近日，海南出现高温少雨天气，旱情持续发展。
 
-来源：财联社 《科创板日报》19日讯，兴福电子（688545.SH）公告称，持股5%以上股东国家集成电路产业投资基金二期股份有限公司因自身资金安排需要，拟通过：集中竞价或大宗交易方式减持公司股份不超过720万股，即不超过公司总股本的2%。
+记者8日从海南省气候中心获悉，截至4月7日，今年海南省平均降水量较常年同期偏少约70%，位居历史同期第二少值。
 
-减持期间为2026年6月11日至2026年9月10日。
+专家表示，今年海南春季气象干旱整体较往年同期更为严重。
 
-责任编辑：宋雅芳
+气象监测显示，截至4月7日，今年海南省平均降水量为31.1毫米，仅高于平均降水量30毫米的1971年。
+
+据悉，截至4月7日，海南岛18个市县均出现了不同程度的气象干旱。
+
+其中，文昌和琼海出现重度气象干旱，海口、澄迈、临高、儋州、白沙、五指山、保亭、陵水、琼中、万宁、屯昌和定安12个市县出现中度气象干旱，昌江、东方、乐东和三亚4个市县出现轻度气象干旱。
+
+海南省气候中心专家认为，今年海南异常高温与厄尔尼诺现象无直接关系，而是副热带高压偏强、西南干热气流和焚风效应的共同作用。
+
+当前海南受副热带高压控制，空气下沉过程中压缩增温，加之晴朗少云天气使太阳辐射直接加热地面，进一步推高气温；同时，岛内中低层受西南干热气流影响，气流翻越五指山脉形成焚风效应，在下降过程中加速升温，导致北部和西部地区更易出现极端高温。
 
 ## 相关推荐
 
-- 2026-06-30 08:09 - [库尼亚赛后伸五指嘲讽日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
-- 2026-06-30 08:09 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-30 07:59 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-30 08:06 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-30 07:56 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-30 08:08 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-30 07:58 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-30 07:59 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-30 07:57 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
-- 2026-06-30 07:59 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-30 07:59 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-30 08:01 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-30 08:19 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-30 08:19 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-30 08:18 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
+- 2026-06-30 07:54 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-30 08:05 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-30 08:23 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-30 08:06 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-30 07:54 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-30 08:02 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-30 08:22 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-30 07:58 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
+- 2026-06-30 08:23 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-30 07:59 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:01 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/834918030.shtml)
-- 2026-06-30 08:14 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/6958712.shtml)
-- 2026-06-30 07:52 - [豆包收费了，你还会用吗？](http://www.share.minike.top/Article/details/70386.shtml)
-- 2026-06-30 08:09 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/912227167.shtml)
-- 2026-06-30 07:54 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.kurohicncr.top/Article/details/4042987216.shtml)
-- 2026-06-30 07:57 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/80181231.shtml)
-- 2026-06-30 08:02 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/985436642.shtml)
-- 2026-06-30 07:58 - [中国新一轮出口管制直指日本命脉](https://www.blog.kurohicncr.top/Article/details/05816896188.shtml)
-- 2026-06-30 07:48 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/8953119.shtml)
-- 2026-06-30 07:59 - [齐思钧回复张月](https://www.share.kurohicncr.top/Article/details/67563587.shtml)
-- 2026-06-30 08:11 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.minike.top/Article/details/739060960086.shtml)
-- 2026-06-30 07:52 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/5060796.shtml)
-- 2026-06-30 08:00 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/9072289.shtml)
-- 2026-06-30 07:59 - [美股深夜大反弹 特斯拉飙涨8%](https://www.share.minike.top/Article/details/52367.shtml)
-- 2026-06-30 07:54 - [沙丘](http://www.share.kurohicncr.top/Article/details/3896965.shtml)
+- 2026-06-30 08:02 - [世界杯](https://www.blog.kurohicncr.top/Article/details/5238754358.shtml)
+- 2026-06-30 08:10 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/06933014.shtml)
+- 2026-06-30 08:09 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/27967.shtml)
+- 2026-06-30 08:10 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/322930.shtml)
+- 2026-06-30 08:11 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/61427403045.shtml)
+- 2026-06-30 08:06 - [德国队世界杯点球大战首败](http://www.blog.kurohicncr.top/Article/details/32258830004.shtml)
+- 2026-06-30 08:12 - [马耳他著名拱门坍塌致中国男子身亡](http://www.blog.kurohicncr.top/Article/details/84442559.shtml)
+- 2026-06-30 08:09 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/063581.shtml)
+- 2026-06-30 08:15 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/0899997350.shtml)
+- 2026-06-30 08:03 - [巴西在进攻三区完成210脚传球](https://www.blog.minike.top/Article/details/9517975689.shtml)
+- 2026-06-30 08:14 - [日本16强魔咒](http://www.share.kurohicncr.top/Article/details/5807613211.shtml)
+- 2026-06-30 08:08 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/58279778265.shtml)
+- 2026-06-30 08:11 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/572940467679.shtml)
+- 2026-06-30 08:10 - [第一炉香](http://www.share.minike.top/Article/details/770030800907.shtml)
+- 2026-06-30 08:08 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/67029540695.shtml)

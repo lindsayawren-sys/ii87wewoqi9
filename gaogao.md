@@ -1,56 +1,58 @@
-# 尾盘爆发！多股20%涨停！
+# 专家呼吁全社会重视遗传咨询 健康夫妻也可能生下“缺陷儿”
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-5月19日，A股午后发力拉升，沪指涨近1%，科创综指涨超2%；港股亦上扬，两大股指小幅走高。 具体来看，沪指早盘窄幅震荡，午后在金融、酿酒等板块的带动下强势上扬，科创综指亦大幅走高。截至收盘，沪指涨0.92%报4169.54点，深证成指涨0.26%，创业板指跌0.16%，科创综指涨2.62%，沪深北三市合计成交约2.91万亿元。 A股市场超3600股飘红，电力板块再度爆发，京能
+中新网上海4月8日电(记者 陈静)遗传咨询是预防出生缺陷、保障家庭幸福和社会人口素质的关键一环。它并非“有病才去”的补救措施，而是一种主动的、科学的健康管理行为。 “三类人群应优先进行遗传咨询：一是高龄夫妇，年龄增长会显著增加胎儿染色体异常的风险；二是有不良妊娠史的夫妻，例如：反复流产、曾生育过发育异常或畸形儿；三是家族中有明确遗传性疾病的人群。”中国优生优育协会孕育与生殖专委
 
 ## 正文
 
-5月19日，A股午后发力拉升，沪指涨近1%，科创综指涨超2%；港股亦上扬，两大股指小幅走高。
+中新网上海4月8日电(记者 陈静)遗传咨询是预防出生缺陷、保障家庭幸福和社会人口素质的关键一环。
 
-具体来看，沪指早盘窄幅震荡，午后在金融、酿酒等板块的带动下强势上扬，科创综指亦大幅走高。
+它并非“有病才去”的补救措施，而是一种主动的、科学的健康管理行为。
 
-截至收盘，沪指涨0.92%报4169.54点，深证成指涨0.26%，创业板指跌0.16%，科创综指涨2.62%，沪深北三市合计成交约2.91万亿元。
+“三类人群应优先进行遗传咨询：一是高龄夫妇，年龄增长会显著增加胎儿染色体异常的风险；二是有不良妊娠史的夫妻，例如：反复流产、曾生育过发育异常或畸形儿；三是家族中有明确遗传性疾病的人群。
 
-A股市场超3600股飘红，电力板块再度爆发，京能电力斩获5连板，上海电力、涪陵电力等涨停；半导体板块强势，耐科装备、沪硅产业、光莆股份（300632）等尾盘20%涨停，市值超1500亿元的芯原股份盘中突破300元大关，再创新高；寒武纪大涨超8%；CPO概念热度不减，弘信电子两连板，剑桥科技、光迅科技等尾盘涨停；脑机接口概念崛起，创新医疗涨停，倍益康涨超10%；值得注意的是，多只强势股连续封板，如利仁科技斩获7连板，威龙股份、北自科技分别斩获5连板和4连板，合肥城建近6日收获5板。
+”中国优生优育协会孕育与生殖专委会副主任委员蒋宇林教授8日在此间对记者表示，“如果家里已经有遗传病患者，夫妇两人一定要在计划怀孕前到遗传咨询门诊做全面评估，搞清楚是什么基因或染色体导致的。
 
-半导体板块强势 半导体板块今日再度走强，截至收盘，耐科装备、沪硅产业、光莆股份尾盘20%涨停；芯原股份涨超15%，盘中突破300元大关，再创新高，最新市值达1577亿元。
+现有技术手段完全可以为这类家庭保驾护航。
 
-此外，中微公司涨超9%，寒武纪涨超8%。
+” “遗传咨询是指由遗传专业人员帮助咨询者理解遗传疾病的发生、传播风险、检测手段及应对策略，并做出知情决策的过程。
 
-消息面上，2026年以来，全球半导体行业的涨价潮持续发酵，从上游晶圆代工、封测环节，到下游各类芯片产品，涨价范围不断扩大、涨幅逐步攀升。
+”蒋宇林介绍，“大家听到遗传咨询这个名词，可能觉得陌生又紧张。
 
-近期，半导体涨价潮蔓延至电源管理IC领域。
+其实不必把它想象得那么严肃。
 
 ## 相关推荐
 
-- 2026-06-30 07:54 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-30 07:54 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-30 07:56 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-30 07:48 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-30 07:59 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-30 07:57 - [德国进球被吹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-30 08:08 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
-- 2026-06-30 07:55 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
-- 2026-06-30 08:13 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-30 08:14 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-30 08:17 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-30 08:14 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-30 08:16 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-30 08:02 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-30 08:17 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-30 08:06 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-30 08:19 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-30 08:21 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-30 08:12 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
+- 2026-06-30 08:04 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
+- 2026-06-30 08:20 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-30 08:08 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:12 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/214901.shtml)
-- 2026-06-30 08:07 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/391386080396.shtml)
-- 2026-06-30 08:02 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/7570734632.shtml)
-- 2026-06-30 08:16 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/264795.shtml)
-- 2026-06-30 08:10 - [点球大战 残酷](http://www.blog.minike.top/Article/details/17359.shtml)
-- 2026-06-30 07:53 - [斛珠夫人](http://www.blog.minike.top/Article/details/43337907163.shtml)
-- 2026-06-30 07:54 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/983451663394.shtml)
-- 2026-06-30 08:01 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/028904136760.shtml)
-- 2026-06-30 08:08 - [又一美国科技巨头转向中国大模型](http://www.blog.kurohicncr.top/Article/details/15219427.shtml)
-- 2026-06-30 07:52 - [警犬“多多”助民警寻回失联老人](https://www.blog.kurohicncr.top/Article/details/40058.shtml)
-- 2026-06-30 08:15 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/514283064.shtml)
-- 2026-06-30 08:11 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/375214481292.shtml)
-- 2026-06-30 07:56 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/092062939125.shtml)
-- 2026-06-30 07:51 - [武磊：巴西队赢的并不轻松](https://www.blog.minike.top/Article/details/040008.shtml)
-- 2026-06-30 08:01 - [巴西vs日本首发名单](https://www.blog.kurohicncr.top/Article/details/340225685943.shtml)
+- 2026-06-30 08:21 - [张雪的一句“是我们”引发岛内热议](https://www.blog.kurohicncr.top/Article/details/436297706564.shtml)
+- 2026-06-30 08:14 - [一生一世](https://www.share.minike.top/Article/details/6162548.shtml)
+- 2026-06-30 08:10 - [亚洲球队全部出局](https://www.share.minike.top/Article/details/228521352.shtml)
+- 2026-06-30 08:12 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/169562796.shtml)
+- 2026-06-30 08:19 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/11674780.shtml)
+- 2026-06-30 08:04 - [日本反击率先破门](https://www.blog.minike.top/Article/details/15132.shtml)
+- 2026-06-30 08:07 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/003319.shtml)
+- 2026-06-30 08:21 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/2321045967.shtml)
+- 2026-06-30 08:09 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/995685.shtml)
+- 2026-06-30 08:19 - [巴西2-1绝杀日本](https://www.share.minike.top/Article/details/0605959.shtml)
+- 2026-06-30 08:12 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/81400.shtml)
+- 2026-06-30 08:20 - [输球后日本球迷被强行披上巴西国旗](http://www.blog.minike.top/Article/details/649438845779.shtml)
+- 2026-06-30 08:18 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.minike.top/Article/details/117942159460.shtml)
+- 2026-06-30 08:10 - [本届世界杯已有5名球员被控强奸](https://www.share.kurohicncr.top/Article/details/246502412.shtml)
+- 2026-06-30 08:07 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/005335887.shtml)

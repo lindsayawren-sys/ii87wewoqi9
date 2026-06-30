@@ -1,50 +1,56 @@
-# 小红书总编辑：普通人的互动能成最坚实的跨国桥梁
+# 新增11座车站50趟动车 高铁宠物托运今起优化
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月19日 16:29 来源：中国新闻网 在2026年中国网络文明大会网络文明国际交流互鉴分论坛上，小红书总编辑刘东表示：国际传播正在变轻。普通人的问候、分享、互动，能成为最坚实的跨国桥梁。春节期间，“全球IP评论区拜年”活动，来自数十个国家和地区的用户用母语、中文、方言送上祝福，短短几天收获超10万条温暖语音。一生说德语的母亲笨拙却真诚地说“谢谢，我爱中
+中新网4月8日电 据中国铁路微信公众号消息，自2026年4月8日起，铁路部门在前期高铁宠物托运服务成功试行的基础上，推出“爱宠行”服务，提供“携宠出行”与“爱宠单独行”两种托运模式，办理宠物托运业务的高铁站增至121座、列车增至228趟，将更好地满足旅客多样化需求。 2025年4月8日，铁路部门试行高铁宠物托运服务以来，运行情况良好，受到市场欢迎，一年来累计安全托运宠物1.5万
 
 ## 正文
 
-发布时间：2026年05月19日 16:29 来源：中国新闻网 在2026年中国网络文明大会网络文明国际交流互鉴分论坛上，小红书总编辑刘东表示：国际传播正在变轻。
+中新网4月8日电 据中国铁路微信公众号消息，自2026年4月8日起，铁路部门在前期高铁宠物托运服务成功试行的基础上，推出“爱宠行”服务，提供“携宠出行”与“爱宠单独行”两种托运模式，办理宠物托运业务的高铁站增至121座、列车增至228趟，将更好地满足旅客多样化需求。
 
-普通人的问候、分享、互动，能成为最坚实的跨国桥梁。
+2025年4月8日，铁路部门试行高铁宠物托运服务以来，运行情况良好，受到市场欢迎，一年来累计安全托运宠物1.5万多只，为旅客携带宠物出行提供了极大便利。
 
-春节期间，“全球IP评论区拜年”活动，来自数十个国家和地区的用户用母语、中文、方言送上祝福，短短几天收获超10万条温暖语音。
+在深入总结试行经验的基础上，铁路部门广泛听取旅客意见，坚持以市场需求为导向，充分利用高铁动车组和中铁快运网点资源，进一步优化高铁宠物托运产品，丰富服务场景，提升运营品质，推出“爱宠行”服务，提供“携宠出行”与“爱宠单独行”两种托运模式，为旅客提供更多选择。
 
-一生说德语的母亲笨拙却真诚地说“谢谢，我爱中国”，热心网友在线讲解火锅吃法与年俗……文字有距离，情感无国界，一声问候，让跨文化交流从了解变成亲近。
+“爱宠行”服务主要适用于家庭驯养且健康状况良好、单只体重不超过15千克、肩高不超过40厘米、身长不超过52厘米的猫、犬类宠物。
 
-责任编辑：【王祎】
+其中，“携宠出行”服务主要针对购票旅客，旅客可通过铁路12306客户端“宠物托运”功能查询车票及宠物托运仓位，提供宠物托运服务的车次标注有“宠”字，旅客可线上购买车票并预约同车宠物托运服务，每日12时前最早可预约次日仓位，12时(含)后最早可预约第三日仓位，每名旅客最多可同车托运2只符合规定的宠物。
+
+“爱宠单独行”主要针对购票旅客以外的客户，客户可于托运日前2至5天，通过“中铁快运”微信小程序预约并提交宠物相关信息及照片，每名客户单趟列车最多可托运1只符合规定的宠物。
+
+预约成功后，旅客或客户需按约定时间携带宠物、有效身份证件、有效期内的《动物检疫合格证明》，前往出发高铁站的中铁快运营业部办理托运手续。
+
+抵达目的地车站后，可根据中铁快运短信提示领取宠物。
 
 ## 相关推荐
 
-- 2026-06-30 08:09 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-30 07:49 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-30 08:01 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-30 08:13 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-30 08:06 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
-- 2026-06-30 08:16 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
-- 2026-06-30 08:14 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
-- 2026-06-30 08:07 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
-- 2026-06-30 08:10 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-30 08:07 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
+- 2026-06-30 08:12 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-30 08:19 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-30 08:00 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-30 08:12 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
+- 2026-06-30 08:18 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-30 08:04 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-30 08:06 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-30 08:15 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-30 08:00 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-30 08:17 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:54 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/452732108.shtml)
-- 2026-06-30 07:50 - [青春环游记第三季](https://www.share.minike.top/Article/details/990256433021.shtml)
-- 2026-06-30 08:17 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/863149023371.shtml)
-- 2026-06-30 08:08 - [沉睡花园](https://www.blog.minike.top/Article/details/4610230977.shtml)
-- 2026-06-30 07:49 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/0579720219.shtml)
-- 2026-06-30 07:49 - [孙兴慜道歉](http://www.share.minike.top/Article/details/89415145.shtml)
-- 2026-06-30 08:14 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.blog.kurohicncr.top/Article/details/436818400662.shtml)
-- 2026-06-30 08:14 - [小娘惹](http://www.share.minike.top/Article/details/742935935.shtml)
-- 2026-06-30 08:13 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/862414.shtml)
-- 2026-06-30 08:15 - [普京间接喊话特朗普有何考量](http://www.blog.kurohicncr.top/Article/details/8832595329.shtml)
-- 2026-06-30 08:11 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/8780392.shtml)
-- 2026-06-30 08:16 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/2263030.shtml)
-- 2026-06-30 07:51 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/563176630.shtml)
-- 2026-06-30 07:54 - [峡谷事故团队组队时有人提醒会下雨](https://www.blog.kurohicncr.top/Article/details/955121880.shtml)
-- 2026-06-30 08:16 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/187833440405.shtml)
+- 2026-06-30 08:01 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/6725390.shtml)
+- 2026-06-30 08:14 - [如果有二次元高中是什么样子的？](https://www.blog.minike.top/Article/details/77450.shtml)
+- 2026-06-30 08:12 - [巴西把自己踢晕了](https://www.blog.kurohicncr.top/Article/details/6945992.shtml)
+- 2026-06-30 08:12 - [王濛回复黄灿灿](https://www.blog.kurohicncr.top/Article/details/65624925.shtml)
+- 2026-06-30 08:20 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/014588234.shtml)
+- 2026-06-30 08:19 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/170862177800.shtml)
+- 2026-06-30 07:56 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/20340105.shtml)
+- 2026-06-30 08:08 - [徐亮怒斥世界杯踢假球](http://www.share.kurohicncr.top/Article/details/83713.shtml)
+- 2026-06-30 07:54 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/44520544.shtml)
+- 2026-06-30 07:59 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/12332379026.shtml)
+- 2026-06-30 08:01 - [小娘惹](http://www.blog.minike.top/Article/details/02706931873.shtml)
+- 2026-06-30 07:56 - [本届世界杯已有5名球员被控强奸](http://www.share.minike.top/Article/details/2405735063.shtml)
+- 2026-06-30 08:18 - [德国罚丢3粒点球](https://www.share.minike.top/Article/details/22504962.shtml)
+- 2026-06-30 08:12 - [日本16强魔咒](https://www.blog.minike.top/Article/details/875839.shtml)
+- 2026-06-30 08:09 - [巴西半场0比1日本](http://www.blog.kurohicncr.top/Article/details/780854057.shtml)

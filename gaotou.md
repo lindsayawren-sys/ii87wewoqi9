@@ -1,48 +1,58 @@
-# 大美边疆看我家丨云南丽江：俯瞰雪山与古城同框的绝美画卷
+# 涉案金额近10亿 内蒙古警方摧毁特大“跑分”洗钱团伙
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月19日 16:19 来源：中国新闻网 近日，云南丽江，晨曦穿过云贵高原的薄雾，丽江古城与玉龙雪山相互映衬，形成一幅绝美的画卷。万古楼的飞檐翘角间，玉龙雪山洁白巍峨，万年冰川与青瓦白墙隔空相望，古老与现代交相辉映，尽显这座城市的包容、澄澈的底色。(作者：赵凤铭） 责任编辑：【魏聪聪】
+中新网通辽4月9日电(记者 张林虎)9日，记者从内蒙古自治区通辽市科左后旗公安局获悉，该局打掉一特大“跑分”洗钱团伙，抓获犯罪嫌疑人6名，该团伙自去年6月以来，累计为境外诈骗团伙洗钱近10亿元。 2026年2月，居民包某报案称遭遇投资诈骗。包某回忆，去年10月，她在网络上结识一名自称“现役军官”的男子，二人每天互道平安、嘘寒问暖，经过近4个月的网络沟通，迅速建立了“网络爱人”这
 
 ## 正文
 
-发布时间：2026年05月19日 16:19 来源：中国新闻网 近日，云南丽江，晨曦穿过云贵高原的薄雾，丽江古城与玉龙雪山相互映衬，形成一幅绝美的画卷。
+中新网通辽4月9日电(记者 张林虎)9日，记者从内蒙古自治区通辽市科左后旗公安局获悉，该局打掉一特大“跑分”洗钱团伙，抓获犯罪嫌疑人6名，该团伙自去年6月以来，累计为境外诈骗团伙洗钱近10亿元。
 
-万古楼的飞檐翘角间，玉龙雪山洁白巍峨，万年冰川与青瓦白墙隔空相望，古老与现代交相辉映，尽显这座城市的包容、澄澈的底色。
+2026年2月，居民包某报案称遭遇投资诈骗。
 
-(作者：赵凤铭） 责任编辑：【魏聪聪】
+包某回忆，去年10月，她在网络上结识一名自称“现役军官”的男子，二人每天互道平安、嘘寒问暖，经过近4个月的网络沟通，迅速建立了“网络爱人”这一亲密关系。
+
+确认关系后，对方以投资理财、稳赚不赔为由，诱导其下载虚假投资平台。
+
+起初包某试探性投资总能得到高额回报，久而久之便对其言听计从。
+
+直至今年2月，包某在投入9万余元后准备提现时，却发现平台无法操作，“军官男友”也彻底失联。
+
+接到报案后，科左后旗公安局反诈中心民警立即对涉案资金开展研判。
+
+经查，被骗资金被拆分后快速流向多张银行卡，这些账户短期内流水巨大，单笔流水可达数千万元，明显涉嫌洗钱犯罪。
 
 ## 相关推荐
 
-- 2026-06-30 08:04 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-30 08:02 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
-- 2026-06-30 08:10 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
-- 2026-06-30 08:11 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
-- 2026-06-30 08:15 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
-- 2026-06-30 08:07 - [索马里女大使：想和中国一起搞事业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-30 07:59 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-30 07:49 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-30 08:01 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-30 08:05 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-30 08:01 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-30 07:58 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-30 08:19 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-30 08:02 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-30 07:54 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
+- 2026-06-30 08:23 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
+- 2026-06-30 07:57 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-30 08:22 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
+- 2026-06-30 08:22 - [巴西扳平比分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-30 07:58 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-30 08:05 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-30 08:11 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-30 08:08 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-30 08:18 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:50 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/2605588163.shtml)
-- 2026-06-30 07:58 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/077015.shtml)
-- 2026-06-30 07:49 - [孙兴慜发长文致歉](https://www.share.kurohicncr.top/Article/details/435954.shtml)
-- 2026-06-30 08:01 - [曝詹姆斯即将与勇士会面](http://www.share.kurohicncr.top/Article/details/32587.shtml)
-- 2026-06-30 07:48 - [女心理师](http://www.share.minike.top/Article/details/63796384.shtml)
-- 2026-06-30 08:13 - [锐评T1战胜KC](https://www.share.minike.top/Article/details/81456060502.shtml)
-- 2026-06-30 08:05 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/2737509.shtml)
-- 2026-06-30 07:52 - [日本16强魔咒](http://www.blog.kurohicncr.top/Article/details/8870662029.shtml)
-- 2026-06-30 07:49 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://www.share.minike.top/Article/details/582291.shtml)
-- 2026-06-30 07:57 - [美人鱼](http://www.blog.minike.top/Article/details/284049808874.shtml)
-- 2026-06-30 08:15 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/29350714331.shtml)
-- 2026-06-30 08:07 - [峡谷事故团队组队时有人提醒会下雨](http://www.blog.minike.top/Article/details/8602888655.shtml)
-- 2026-06-30 07:50 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.kurohicncr.top/Article/details/36981190852.shtml)
-- 2026-06-30 08:11 - [德国巴拉圭 折磨](https://www.blog.minike.top/Article/details/534995418.shtml)
-- 2026-06-30 08:12 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/4362252.shtml)
+- 2026-06-30 08:12 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/04038833.shtml)
+- 2026-06-30 08:11 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.minike.top/Article/details/94432.shtml)
+- 2026-06-30 07:57 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/74765798.shtml)
+- 2026-06-30 07:58 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://www.share.minike.top/Article/details/57513110903.shtml)
+- 2026-06-30 08:10 - [张凌赫杨超越 峨眉](https://www.blog.minike.top/Article/details/32020234490.shtml)
+- 2026-06-30 07:55 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/755597.shtml)
+- 2026-06-30 08:12 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/494029727.shtml)
+- 2026-06-30 08:03 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/091178808452.shtml)
+- 2026-06-30 08:16 - [男子醉酒溺水获救后同行人拒协助抬人](https://www.blog.kurohicncr.top/Article/details/02731.shtml)
+- 2026-06-30 08:13 - [张雪的一句“是我们”引发岛内热议](http://www.share.minike.top/Article/details/03768.shtml)
+- 2026-06-30 08:12 - [沙丘](https://www.blog.minike.top/Article/details/44059191378.shtml)
+- 2026-06-30 08:02 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/554678.shtml)
+- 2026-06-30 08:15 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/3031875.shtml)
+- 2026-06-30 08:15 - [巴西足球能否再现昔日荣光](https://www.blog.minike.top/Article/details/606806.shtml)
+- 2026-06-30 08:12 - [4000美元是黄金新一轮下跌的开始吗](https://www.blog.minike.top/Article/details/05180776752.shtml)

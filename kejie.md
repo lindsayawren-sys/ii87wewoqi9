@@ -1,61 +1,57 @@
-# 外交部：台湾当局派人四处“蹭会”刷存在感无异于跳梁小丑
+# 味好美这笔650亿美元交易为何有望真正成功
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-中新网北京5月18日电 (记者 黄钰钦 曾玥)中国外交部发言人郭嘉昆18日主持例行记者会。 有记者提问：有媒体报道称，台湾的林佳龙正身处日内瓦，将出席与世界卫生大会同期举行的各项活动。中国已向瑞士方面就台湾地区参与这些活动事宜进行了接洽。请问发言人有何评论？ 郭嘉昆：我们此前已经阐明了中方的严正立场，世界上只有一个中国，台湾是中国领土不可分割的一部分，中华人民共和国政府是代表全
+大型食品企业并购往往事与愿违，但味好美与联合利华的联姻或许会成为例外 味好美高管表示，通过与联合利华合并，公司每年将实现 6 亿美元的成本节约。 大型食品企业并购在纸面上往往听起来十分美好，实际落地却常常惨不忍睹。 这类交易通常会让合并后的公司陷入管理复杂化、品牌增长停滞以及巨额债务压身的困境。因此，当联合利华上周宣布将其食品业务与味好美合并、打造一家市值 650 亿美元的行业
 
 ## 正文
 
-中新网北京5月18日电 (记者 黄钰钦 曾玥)中国外交部发言人郭嘉昆18日主持例行记者会。
+大型食品企业并购往往事与愿违，但味好美与联合利华的联姻或许会成为例外 味好美高管表示，通过与联合利华合并，公司每年将实现 6 亿美元的成本节约。
 
-有记者提问：有媒体报道称，台湾的林佳龙正身处日内瓦，将出席与世界卫生大会同期举行的各项活动。
+大型食品企业并购在纸面上往往听起来十分美好，实际落地却常常惨不忍睹。
 
-中国已向瑞士方面就台湾地区参与这些活动事宜进行了接洽。
+这类交易通常会让合并后的公司陷入管理复杂化、品牌增长停滞以及巨额债务压身的困境。
 
-请问发言人有何评论？
+因此，当联合利华上周宣布将其食品业务与味好美合并、打造一家市值 650 亿美元的行业巨头时，两家公司的股价均遭到投资者抛售。
 
-郭嘉昆：我们此前已经阐明了中方的严正立场，世界上只有一个中国，台湾是中国领土不可分割的一部分，中华人民共和国政府是代表全中国的唯一合法政府，世界卫生组织等国际组织处理涉台问题，必须按照一个中国原则来处理。
+尽管如此，这笔交易仍有可能成为行业惯例中的例外。
 
-这也是联合国大会第2758号决议和世界卫生大会25.1号决议确认的根本原则。
+交易结构恰恰揭示了其中缘由：本次并购采用 反向莫里斯信托（Reverse Morris Trust） 模式，允许企业剥离业务部门，同时避免产生高额税单。
 
-中方一贯坚决反对建交国同中国台湾地区开展任何形式的官方往来，坚决反对为“台独”分裂活动提供平台。
+具体而言，联合利华的食品业务将先分拆给其现有股东，再与味好美完成合并。
 
-台湾当局派人四处“蹭会”刷存在感，无异于跳梁小丑，只能是自取其辱，注定失败。
+这种方式避免了直接出售非核心业务可能产生的大额应税收益，新成立的公司将由味好美管理团队掌舵。
 
 ## 相关推荐
 
-- 2026-06-30 08:05 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-30 08:09 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-30 08:13 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-30 08:14 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-30 08:11 - [巴西在进攻三区完成210脚传球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-30 07:53 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-30 08:00 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-30 07:48 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
-- 2026-06-30 07:54 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
-- 2026-06-30 07:58 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
-- 2026-06-30 07:53 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-30 08:06 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-30 07:50 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-30 08:13 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-30 07:58 - [泰山景区回应修建刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-30 08:07 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-30 08:09 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
+- 2026-06-30 08:14 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-30 07:54 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-30 08:14 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-30 08:13 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-30 08:23 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-30 08:20 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-30 07:56 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-30 08:11 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-30 07:54 - [德国进球被吹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:54 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/85682824682.shtml)
-- 2026-06-30 08:15 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/786015.shtml)
-- 2026-06-30 08:04 - [亚洲球队全部出局](http://www.share.kurohicncr.top/Article/details/8342654.shtml)
-- 2026-06-30 07:59 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/5397866164.shtml)
-- 2026-06-30 08:09 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/95696283.shtml)
-- 2026-06-30 08:12 - [德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/415554448.shtml)
-- 2026-06-30 08:15 - [武磊：巴西队赢的并不轻松](http://www.blog.minike.top/Article/details/497817849269.shtml)
-- 2026-06-30 08:16 - [巴拉圭进球](http://www.blog.minike.top/Article/details/641332.shtml)
-- 2026-06-30 07:49 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/41410900.shtml)
-- 2026-06-30 08:07 - [南北多地暴雨和强对流天气持续](https://www.blog.kurohicncr.top/Article/details/35145276.shtml)
-- 2026-06-30 07:52 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/422195257.shtml)
-- 2026-06-30 08:14 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/06359428755.shtml)
-- 2026-06-30 08:17 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/665128760.shtml)
-- 2026-06-30 07:49 - [覃予萱晋级WTT美国大满贯女单32强](http://www.share.kurohicncr.top/Article/details/79078.shtml)
-- 2026-06-30 07:57 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/4141298.shtml)
+- 2026-06-30 08:14 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/843229.shtml)
+- 2026-06-30 08:19 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/01437.shtml)
+- 2026-06-30 08:17 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/3512172.shtml)
+- 2026-06-30 08:07 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/03435847.shtml)
+- 2026-06-30 08:07 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/99867.shtml)
+- 2026-06-30 08:16 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/98986.shtml)
+- 2026-06-30 08:10 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.kurohicncr.top/Article/details/710056066.shtml)
+- 2026-06-30 08:15 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/43185401334.shtml)
+- 2026-06-30 08:21 - [董卿父亲在报纸上发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/050874221.shtml)
+- 2026-06-30 08:23 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://www.share.minike.top/Article/details/7362088576.shtml)
+- 2026-06-30 08:22 - [巴拉圭率先破门](https://www.share.minike.top/Article/details/528183975208.shtml)
+- 2026-06-30 08:03 - [千与千寻](http://www.share.minike.top/Article/details/076047.shtml)
+- 2026-06-30 08:07 - [中国新一轮出口管制直指日本命脉](http://www.blog.minike.top/Article/details/68713.shtml)
+- 2026-06-30 08:06 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/38457187419.shtml)
+- 2026-06-30 07:55 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/36154924.shtml)

@@ -1,46 +1,60 @@
-# 花旗集团认为铝价迎来50年来最看涨行情
+# （乡村行·看振兴）春和景明菌飘香 山西忻州采收羊肚菌撑开“致富伞”
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-花旗集团预计，今年下半年铝价将涨至每吨4000美元，并表示中东地区的干扰将构成该行业有史以来最大的供应冲击之一。 “闲置产能接近于零，冲击发生前的库存已处于历史低位，且铜和塑料等替代品的成本极高，”Wenyu Yao等分析师在电子邮件报告中写道 该行预测第三季度和第四季度的LME铝均价将达到每吨4，000美元 中东地区的供应减少是自20世纪70年代能源危机以来铝行业遭遇的最大供
+中新网忻州4月9日电 (杨佩佩 张媛)春和景明，菌香四溢。走进山西忻州忻府区的现代农业示范园区，一排排标准化大棚错落有致，棚内，褐亮饱满的羊肚菌破土而出，蜂窝状的菌盖裹着晶莹露珠，透着沁人心脾的鲜气。 园区负责人侯学光介绍，忻府区昼夜温差适宜、土壤疏松透气，为羊肚菌生长提供了得天独厚的自然条件。依托多年种植经验，园区精准选育出适配本地气候的“六妹”优质菌种，让这一珍稀菌菇在忻府
 
 ## 正文
 
-花旗集团预计，今年下半年铝价将涨至每吨4000美元，并表示中东地区的干扰将构成该行业有史以来最大的供应冲击之一。
+中新网忻州4月9日电 (杨佩佩 张媛)春和景明，菌香四溢。
 
-“闲置产能接近于零，冲击发生前的库存已处于历史低位，且铜和塑料等替代品的成本极高，”Wenyu Yao等分析师在电子邮件报告中写道 该行预测第三季度和第四季度的LME铝均价将达到每吨4，000美元 中东地区的供应减少是自20世纪70年代能源危机以来铝行业遭遇的最大供应冲击 “铝市场不再需要强劲的需求增长来维持结构性紧缺” 库存正迈向新低，似乎只有类似“沃尔克时代经济衰退”或2008/2009年金融危机那样的严重衰退，才足以使库存趋于稳定 LME铝价的最新交易价为每吨3，575.50美元责任编辑：于健 SF069
+走进山西忻州忻府区的现代农业示范园区，一排排标准化大棚错落有致，棚内，褐亮饱满的羊肚菌破土而出，蜂窝状的菌盖裹着晶莹露珠，透着沁人心脾的鲜气。
+
+园区负责人侯学光介绍，忻府区昼夜温差适宜、土壤疏松透气，为羊肚菌生长提供了得天独厚的自然条件。
+
+依托多年种植经验，园区精准选育出适配本地气候的“六妹”优质菌种，让这一珍稀菌菇在忻府区的土地上扎稳根系、蓬勃生长。
+
+作为忻府区设施农业的标杆项目，该园区的羊肚菌实现规模化落地、标准化产出。
+
+侯学光说：“园区实行标准化培育、精细化管理，从播种覆土、营养调配到温湿度调控，每一个环节都严守技术规范，就是为了保障羊肚菌品质上乘、营养富集。
+
+” 羊肚菌的“金贵”，离不开严苛的生长环境，菌丝生长温度不得超过16℃，光照需严格控制为散射光。
+
+为满足这些要求，大棚实时监测，精准调控温湿度、光照，用科技手段为羊肚菌的优质高产保驾护航。
 
 ## 相关推荐
 
-- 2026-06-30 07:48 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-30 07:53 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-30 08:14 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-30 07:51 - [金鹰奖视后提名预测](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-30 08:14 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-30 07:58 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
-- 2026-06-30 07:53 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
-- 2026-06-30 08:02 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-30 08:07 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-30 08:13 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-30 08:08 - [网瘾賊大的阿嬷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-30 08:03 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
+- 2026-06-30 08:06 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-30 07:54 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-30 08:18 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-30 08:20 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-30 07:57 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-30 08:11 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-30 08:02 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-30 08:10 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-30 07:57 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-30 07:55 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-30 08:18 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-30 08:17 - [莫兰特被交易到开拓者](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-30 08:17 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-30 07:54 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:54 - [苗族银饰](http://www.share.kurohicncr.top/Article/details/13473089.shtml)
-- 2026-06-30 07:55 - [媒体评泰山建135公里刀片刺绳隔离网](http://www.blog.kurohicncr.top/Article/details/15798.shtml)
-- 2026-06-30 08:15 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.minike.top/Article/details/41751193.shtml)
-- 2026-06-30 08:02 - [德国淘汰](https://www.share.kurohicncr.top/Article/details/3952506034.shtml)
-- 2026-06-30 08:06 - [点球大战](http://www.share.minike.top/Article/details/322556873314.shtml)
-- 2026-06-30 08:01 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/853938.shtml)
-- 2026-06-30 08:15 - [泰山景区回应修建刀片刺绳隔离网](http://www.share.kurohicncr.top/Article/details/81086783.shtml)
-- 2026-06-30 08:01 - [网瘾賊大的阿嬷](http://www.share.kurohicncr.top/Article/details/75264.shtml)
-- 2026-06-30 08:14 - [一生一世](http://www.share.minike.top/Article/details/3885492.shtml)
-- 2026-06-30 07:55 - [安切洛蒂 换人](https://www.share.minike.top/Article/details/51784.shtml)
-- 2026-06-30 07:50 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/07667.shtml)
-- 2026-06-30 07:50 - [藤森庆子赢得秘鲁总统选举](http://www.blog.minike.top/Article/details/366376.shtml)
-- 2026-06-30 07:55 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/5579278.shtml)
-- 2026-06-30 08:12 - [孙兴慜发长文致歉](https://www.share.minike.top/Article/details/74402.shtml)
-- 2026-06-30 08:04 - [世界杯巴拉圭点球淘汰德国](https://www.blog.minike.top/Article/details/21909980.shtml)
+- 2026-06-30 08:14 - [南北多地暴雨和强对流天气持续](https://www.blog.minike.top/Article/details/14622266.shtml)
+- 2026-06-30 08:02 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/156255.shtml)
+- 2026-06-30 08:19 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.minike.top/Article/details/070563.shtml)
+- 2026-06-30 08:04 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/642794.shtml)
+- 2026-06-30 08:07 - [人类...完蛋了...](http://www.share.kurohicncr.top/Article/details/915946532910.shtml)
+- 2026-06-30 08:01 - [萨内 看笑了](http://www.blog.minike.top/Article/details/594426559.shtml)
+- 2026-06-30 08:04 - [张雪的一句“是我们”引发岛内热议](https://www.share.kurohicncr.top/Article/details/649942898.shtml)
+- 2026-06-30 08:07 - [马耳他著名拱门坍塌致中国男子身亡](http://www.share.minike.top/Article/details/8060256347.shtml)
+- 2026-06-30 08:19 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/13453.shtml)
+- 2026-06-30 08:20 - [张帅时隔四年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/476055613403.shtml)
+- 2026-06-30 07:56 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/010890463.shtml)
+- 2026-06-30 08:23 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/7796369609.shtml)
+- 2026-06-30 08:23 - [巴西绝杀日本](https://www.share.kurohicncr.top/Article/details/244805818.shtml)
+- 2026-06-30 07:58 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/1196445.shtml)
+- 2026-06-30 08:16 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/018986.shtml)

@@ -1,61 +1,60 @@
-# 沃什将于周五宣誓就任美联储主席：时隔15年后回归，将带来哪些改变
+# 第十五届中国国际园林博览会开幕在即 中外园林“美美与共”
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-时隔15年，沃什即将重返美联储并接棒鲍威尔出任主席一职，他宣称要“重塑美联储”。 5月19日，据新华社援引多家美国媒体报道，凯文·沃什将于5月22日（本周五）宣誓就任美国联邦储备委员会主席一职。一名白宫官员表示，美国总统特朗普届时将在白宫为沃什举行就职仪式。 现年56岁的沃什曾在2006年至2011年担任美联储理事，因反对第二轮量化宽松政策（QE）而辞职。此后，他常以美联储批评
+中新网温州4月8日电(周健)中国国际园林博览会是中国园林绿化行业最有代表性和最具国际影响力的综合性展会。4月8日，浙江省人民政府新闻办公室在该省温州市召开新闻发布会，宣布第十五届中国国际园林博览会(以下简称“园博会”)将于4月15日在温州正式开幕。 本届园博会以“诗画山海·共享绿色生活”为主题，围绕“百姓园博、国际园博、先锋园博、文化园博、全城园博”五大理念，构建起“1个主会场
 
 ## 正文
 
-时隔15年，沃什即将重返美联储并接棒鲍威尔出任主席一职，他宣称要“重塑美联储”。
+中新网温州4月8日电(周健)中国国际园林博览会是中国园林绿化行业最有代表性和最具国际影响力的综合性展会。
 
-5月19日，据新华社援引多家美国媒体报道，凯文·沃什将于5月22日（本周五）宣誓就任美国联邦储备委员会主席一职。
+4月8日，浙江省人民政府新闻办公室在该省温州市召开新闻发布会，宣布第十五届中国国际园林博览会(以下简称“园博会”)将于4月15日在温州正式开幕。
 
-一名白宫官员表示，美国总统特朗普届时将在白宫为沃什举行就职仪式。
+本届园博会以“诗画山海·共享绿色生活”为主题，围绕“百姓园博、国际园博、先锋园博、文化园博、全城园博”五大理念，构建起“1个主会场+13个分会场+49个博览点”以及主会场“1个主题园+34个城市展园+6个主题展区”的展园体系。
 
-现年56岁的沃什曾在2006年至2011年担任美联储理事，因反对第二轮量化宽松政策（QE）而辞职。
+值得一提的是，34个城市展园中包含了11个国际城市展园，IFLA(国际风景园林师联合会)首次将其主题展园落户中国并永久设立“IFLA国际合作交流中心”，搭建起高端国际交流的固定平台。
 
-此后，他常以美联储批评者的姿态出现在公共场合。
+放眼其中，乌兹别克斯坦展园以拼花马赛克外立面勾勒出中亚伊斯兰文化韵味，英国展园以六色交织的外墙瓷砖呈现英伦格调……据悉，乌兹别克斯坦、意大利、英国、法国、荷兰、泰国、加拿大等7个国家的城市展园设计方案，由海外温籍侨团、侨商代表捐赠。
 
-特别是近一两年，他对鲍威尔的货币政策批评尤甚。
+“温籍华侨积极响应、主动参与，12位侨胞受聘担任国际园博大使，有的6次打‘飞的’回国沟通设计方案，还通过‘越洋视频’实时跟进建设进度。
 
-入主美联储后，沃什将如何重塑美联储？
+”温州市委副书记、市长张文杰介绍道。
 
-首先，货币政策方面，沃什提出了“缩表+降息”组合。
+让盛会成果惠及万千百姓，是温州园博会的出发点和落脚点。
 
 ## 相关推荐
 
-- 2026-06-30 07:58 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-30 07:50 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-30 08:02 - [巴西足球能否再现昔日荣光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-30 08:14 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-30 08:02 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-30 08:07 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-30 08:01 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-30 07:49 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-30 07:57 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-30 08:10 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
-- 2026-06-30 08:09 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
-- 2026-06-30 07:57 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
-- 2026-06-30 08:17 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-30 08:07 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-30 08:16 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-30 08:16 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-30 08:21 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-30 08:21 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-30 08:16 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-30 08:05 - [莫兰特转投开拓者效力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-30 08:20 - [郑钦文温网三连败西尼亚科娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-30 08:21 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-30 07:55 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-30 08:01 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-30 08:12 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-30 08:19 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-30 08:01 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-30 07:59 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-30 08:03 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:14 - [德国罚丢3粒点球](https://www.share.minike.top/Article/details/50142477.shtml)
-- 2026-06-30 08:02 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/0566655.shtml)
-- 2026-06-30 08:04 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/57030.shtml)
-- 2026-06-30 08:16 - [F1奥地利站赛后复盘](https://www.share.kurohicncr.top/Article/details/26974527.shtml)
-- 2026-06-30 07:51 - [覃予萱晋级WTT美国大满贯女单32强](http://www.blog.kurohicncr.top/Article/details/17492179.shtml)
-- 2026-06-30 07:53 - [女子清吧被陌生人投放伟哥](https://www.share.minike.top/Article/details/095648455.shtml)
-- 2026-06-30 08:04 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/362459173.shtml)
-- 2026-06-30 08:09 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/498387451.shtml)
-- 2026-06-30 07:58 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/79928796.shtml)
-- 2026-06-30 08:08 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/54670.shtml)
-- 2026-06-30 08:11 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/26918450.shtml)
-- 2026-06-30 07:57 - [齐思钧回复张月](https://www.share.kurohicncr.top/Article/details/76064467849.shtml)
-- 2026-06-30 08:05 - [王楚钦说配合稍微有些陌生感](http://www.share.minike.top/Article/details/890096.shtml)
-- 2026-06-30 07:48 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/43818937.shtml)
-- 2026-06-30 08:03 - [张碧晨一开口梦回逐玉](https://www.blog.minike.top/Article/details/9162659193.shtml)
+- 2026-06-30 08:22 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.minike.top/Article/details/954202031972.shtml)
+- 2026-06-30 08:04 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/59529.shtml)
+- 2026-06-30 08:17 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/77150.shtml)
+- 2026-06-30 08:17 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/129055.shtml)
+- 2026-06-30 08:07 - [郑钦文温网首轮出局](http://www.blog.minike.top/Article/details/3327801576.shtml)
+- 2026-06-30 07:57 - [日本领先巴西](http://www.blog.kurohicncr.top/Article/details/58516.shtml)
+- 2026-06-30 08:06 - [AI手机进入Agent时代](https://www.blog.kurohicncr.top/Article/details/71927163634.shtml)
+- 2026-06-30 08:18 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/84550309504.shtml)
+- 2026-06-30 07:57 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/765447.shtml)
+- 2026-06-30 08:13 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/70722463.shtml)
+- 2026-06-30 08:19 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/7686419696.shtml)
+- 2026-06-30 08:18 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/027552.shtml)
+- 2026-06-30 07:54 - [杨紫被质疑未使用原名纯属误解](https://www.blog.minike.top/Article/details/66349634.shtml)
+- 2026-06-30 08:13 - [电影抓特务上映11天破亿](http://www.share.minike.top/Article/details/46435.shtml)
+- 2026-06-30 08:10 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/28510625.shtml)

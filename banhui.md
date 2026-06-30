@@ -1,44 +1,48 @@
-# 调拨1万件中央救灾物资 支持广西做好地震、洪涝灾害应急处置和救灾救助工作
+# 告别“抢号”难 沈阳推出“候补挂号”机制
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-中新网5月18日电 据应急管理部微信公众号消息，5月18日，针对广西柳州市柳南区5.2级地震及部分地区洪涝等灾害应急处置和救灾救助工作需要，国家防灾减灾救灾委员会办公室、应急管理部会同国家粮食和物资储备局向广西紧急调拨帐篷、折叠床、夏凉被、毛巾被、折叠桌凳等共1万件中央救灾物资，支持当地妥善做好受灾群众紧急避险、转移安置和救灾救助工作。
+发布时间：2026年04月08日 22:07 来源：中国新闻网 作为东北地区医疗行业影响力较广的三甲医院，中国医科大学附属医院承载着区域核心诊疗重任。针对民众反映强烈的“挂号难”、号贩子“倒号”等痛点。近日，中国医科大学附属第一医院与中国医科大学附属盛京医院借鉴铁路售票机制，先后上线了“候补挂号”服务。 (禹瑞斋 李雪飞 王涵 辽宁沈阳报道） 责任编辑：【于晓】
 
 ## 正文
 
-中新网5月18日电 据应急管理部微信公众号消息，5月18日，针对广西柳州市柳南区5.2级地震及部分地区洪涝等灾害应急处置和救灾救助工作需要，国家防灾减灾救灾委员会办公室、应急管理部会同国家粮食和物资储备局向广西紧急调拨帐篷、折叠床、夏凉被、毛巾被、折叠桌凳等共1万件中央救灾物资，支持当地妥善做好受灾群众紧急避险、转移安置和救灾救助工作。
+发布时间：2026年04月08日 22:07 来源：中国新闻网 作为东北地区医疗行业影响力较广的三甲医院，中国医科大学附属医院承载着区域核心诊疗重任。
+
+针对民众反映强烈的“挂号难”、号贩子“倒号”等痛点。
+
+近日，中国医科大学附属第一医院与中国医科大学附属盛京医院借鉴铁路售票机制，先后上线了“候补挂号”服务。
+
+(禹瑞斋 李雪飞 王涵 辽宁沈阳报道） 责任编辑：【于晓】
 
 ## 相关推荐
 
-- 2026-06-30 08:12 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
-- 2026-06-30 07:55 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
-- 2026-06-30 08:13 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-30 07:59 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-30 08:08 - [巴拉圭率先破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-30 07:59 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
-- 2026-06-30 08:00 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-30 08:09 - [日本队5进世界杯淘汰赛0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-30 08:04 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
-- 2026-06-30 07:52 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-30 08:04 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-30 08:15 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-30 08:04 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-30 08:16 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-30 08:18 - [现在叛逆期的孩子最怕的是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-30 08:21 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-30 08:12 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-30 07:54 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-30 07:57 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-30 08:16 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-30 08:16 - [德国4比5巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
+- 2026-06-30 08:00 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:05 - [日本淘汰](http://www.share.kurohicncr.top/Article/details/473465230860.shtml)
-- 2026-06-30 07:50 - [开电动汽车真的很省钱吗？](https://www.share.kurohicncr.top/Article/details/220987.shtml)
-- 2026-06-30 08:17 - [库尼亚赛后伸五指嘲讽日本](https://www.share.minike.top/Article/details/25275.shtml)
-- 2026-06-30 07:51 - [一见倾心](https://www.blog.minike.top/Article/details/013431944.shtml)
-- 2026-06-30 08:00 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/85034527208.shtml)
-- 2026-06-30 08:07 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/53009203.shtml)
-- 2026-06-30 08:17 - [免费试吃发差评被店家挂店门避雷](https://www.blog.minike.top/Article/details/6038693802.shtml)
-- 2026-06-30 07:56 - [流金岁月](http://www.blog.minike.top/Article/details/3831166825.shtml)
-- 2026-06-30 08:02 - [世界杯](https://www.share.kurohicncr.top/Article/details/60925188194.shtml)
-- 2026-06-30 08:10 - [卢卡申科发布解放军仪仗队视频](https://www.share.kurohicncr.top/Article/details/24584252.shtml)
-- 2026-06-30 08:03 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/438176.shtml)
-- 2026-06-30 08:06 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/794948618022.shtml)
-- 2026-06-30 07:50 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/4220855.shtml)
-- 2026-06-30 08:06 - [徐亮怒斥世界杯踢假球](https://www.blog.minike.top/Article/details/74709791.shtml)
-- 2026-06-30 07:50 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.kurohicncr.top/Article/details/3086990.shtml)
+- 2026-06-30 07:57 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.kurohicncr.top/Article/details/653200999808.shtml)
+- 2026-06-30 08:19 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.kurohicncr.top/Article/details/22767.shtml)
+- 2026-06-30 08:09 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/5513563994.shtml)
+- 2026-06-30 07:57 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/1400770.shtml)
+- 2026-06-30 08:13 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/32929.shtml)
+- 2026-06-30 07:57 - [沉睡花园](http://www.share.minike.top/Article/details/0312831.shtml)
+- 2026-06-30 08:02 - [补时绝杀 巴西2-1淘汰日本](http://www.share.kurohicncr.top/Article/details/188510.shtml)
+- 2026-06-30 07:58 - [德国爆冷点球大战不敌巴拉圭](http://www.blog.minike.top/Article/details/51255758.shtml)
+- 2026-06-30 08:15 - [世界杯巴拉圭点球淘汰德国](http://www.blog.kurohicncr.top/Article/details/7401469.shtml)
+- 2026-06-30 08:14 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/7467461.shtml)
+- 2026-06-30 08:00 - [恋与深空道歉声明](http://www.share.minike.top/Article/details/1100843.shtml)
+- 2026-06-30 08:17 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/6871360.shtml)
+- 2026-06-30 08:01 - [詹姆斯 勇士](https://www.share.kurohicncr.top/Article/details/98708.shtml)
+- 2026-06-30 08:02 - [恋与深空道歉声明](http://www.share.kurohicncr.top/Article/details/9831618.shtml)
+- 2026-06-30 08:10 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/801788.shtml)

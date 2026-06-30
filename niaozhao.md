@@ -1,60 +1,61 @@
-# 家得宝：核心消费群体顶住油价上涨压力 营收同比增长5%
+# 中越“边关好姐妹”携手体验民俗文化
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 核心要点 家得宝周二发布财报称，尽管油价上涨、民众消费信心骤降，其主力家装消费客群依旧具备较强消费韧性。公司一季度业绩超出市场预期，并确认维持此前制定的全年经营目标。 公司首席财务官理查德・麦克菲尔在接受美国消费者新闻与商业频道采访时表示：“相比其他消费群体，自住业主群体的财务状况抗压能力更强，因此消费需求依旧稳定。” 但他同时坦言，在地缘
+广西云-广西日报记者管林华 通讯员冯美秀 三月三 趣广西 本报讯 (广西云-广西日报记者管林华 通讯员冯美秀)春风拂边关，欢歌庆佳节。4月5日，“同心绘锦绣 携手共芳华——2026年中越‘边关好姐妹’跨境联谊活动”在崇左市大新县宝圩乡举行。两国妇女代表欢聚一堂，同赏民族文化，共话姐妹情谊，架起中越边境友好连心桥。 活动现场除了主题宣讲，中越姐妹还携手制作传统手工艺品，一针一线间
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 核心要点 家得宝周二发布财报称，尽管油价上涨、民众消费信心骤降，其主力家装消费客群依旧具备较强消费韧性。
+广西云-广西日报记者管林华 通讯员冯美秀 三月三 趣广西 本报讯 (广西云-广西日报记者管林华 通讯员冯美秀)春风拂边关，欢歌庆佳节。
 
-公司一季度业绩超出市场预期，并确认维持此前制定的全年经营目标。
+4月5日，“同心绘锦绣 携手共芳华——2026年中越‘边关好姐妹’跨境联谊活动”在崇左市大新县宝圩乡举行。
 
-公司首席财务官理查德・麦克菲尔在接受美国消费者新闻与商业频道采访时表示：“相比其他消费群体，自住业主群体的财务状况抗压能力更强，因此消费需求依旧稳定。
+两国妇女代表欢聚一堂，同赏民族文化，共话姐妹情谊，架起中越边境友好连心桥。
 
-” 但他同时坦言，在地缘政治局势紧张、消费信心低迷、楼市行情疲软的大环境下，这类消费者的消费意愿存在上限。
+活动现场除了主题宣讲，中越姐妹还携手制作传统手工艺品，一针一线间尽显两国文化交融的韵味；大家亲手制作五色糯米饭、糍粑等壮族特色美食，在烟火气中拉近彼此距离。
 
-“消费者普遍表示会暂缓大额家装项目开支，这一心态与过去几年保持一致。
+随后，踩高跷、抛绣球、套圈等趣味游戏轮番上演，姐妹们踊跃参与，欢声笑语不断。
 
-” 一季度业绩对比（市场分析师预期） 截至 5 月 3 日的一季度财报显示，公司当期净利润 32.9 亿美元，折合每股收益 3.30 美元；去年同期净利润 34.3 亿美元，每股收益 3.45 美元。
+活动尾声，伴随《大地飞歌》的旋律，中越姐妹手拉手、肩并肩，踏着节拍翩然起舞，将现场气氛推向高潮。
 
-剔除无形资产减值等一次性损益后，调整后每股收益为 3.43 美元。
+“这是我第一次在‘三月三’前在大新参加活动，太开心了！
 
-本期营收达 417.7 亿美元，较去年同期 398.6 亿美元同比上涨近 5%。
+”越南妇女代表阮氏水兴奋地说，“这里的姐妹特别热情，五色糯米饭、壮锦、抛绣球都很有意思。
 
 ## 相关推荐
 
-- 2026-06-30 07:59 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-30 07:57 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-30 07:54 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-30 08:01 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-30 07:56 - [金鹰奖视后提名预测](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-30 08:04 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-30 07:56 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-30 07:52 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-30 07:48 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
-- 2026-06-30 07:55 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-30 07:59 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-30 08:13 - [德国进球被吹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
-- 2026-06-30 08:12 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
-- 2026-06-30 08:14 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-30 08:23 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-30 07:59 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-30 08:19 - [存储芯片龙头提示风险](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-30 08:13 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-30 08:10 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-30 08:20 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-30 07:57 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-30 08:19 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-30 08:23 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-30 08:05 - [周冬雨多次说演不了话剧文城](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-30 08:02 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-30 08:03 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-30 07:58 - [男子在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-30 08:20 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-30 08:04 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:00 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/865621124125.shtml)
-- 2026-06-30 08:17 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/63776.shtml)
-- 2026-06-30 08:03 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/75997194406.shtml)
-- 2026-06-30 08:05 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/51113156644.shtml)
-- 2026-06-30 07:49 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.kurohicncr.top/Article/details/118198805.shtml)
-- 2026-06-30 08:05 - [韩乔生吐槽世界杯扩军](http://www.share.minike.top/Article/details/3879008007.shtml)
-- 2026-06-30 07:57 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/63015949409.shtml)
-- 2026-06-30 08:06 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.share.kurohicncr.top/Article/details/62415.shtml)
-- 2026-06-30 08:09 - [哈弗茨头球破门](https://www.share.minike.top/Article/details/202557.shtml)
-- 2026-06-30 07:55 - [巴西2比1日本](http://www.share.kurohicncr.top/Article/details/57124320.shtml)
-- 2026-06-30 08:04 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/3440303283.shtml)
-- 2026-06-30 07:50 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.minike.top/Article/details/05719268477.shtml)
-- 2026-06-30 07:49 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/598750902118.shtml)
-- 2026-06-30 08:10 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/03025.shtml)
-- 2026-06-30 07:57 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/6315818382.shtml)
+- 2026-06-30 08:09 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/07132327.shtml)
+- 2026-06-30 07:56 - [上市央企地产商 两年换了三任董事长](https://www.share.kurohicncr.top/Article/details/53735932654.shtml)
+- 2026-06-30 08:19 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.minike.top/Article/details/71522342.shtml)
+- 2026-06-30 08:14 - [恋与深空道歉声明](https://www.share.kurohicncr.top/Article/details/193460828.shtml)
+- 2026-06-30 08:21 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/8386028001.shtml)
+- 2026-06-30 08:01 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/5004852621.shtml)
+- 2026-06-30 08:17 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/89225.shtml)
+- 2026-06-30 07:54 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/136616951882.shtml)
+- 2026-06-30 08:02 - [点球大战](https://www.blog.minike.top/Article/details/89404.shtml)
+- 2026-06-30 08:07 - [女子清吧被陌生人投放伟哥](http://www.blog.minike.top/Article/details/36232391.shtml)
+- 2026-06-30 08:14 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.minike.top/Article/details/603323144.shtml)
+- 2026-06-30 07:54 - [本届世界杯已有5名球员被控强奸](https://www.blog.minike.top/Article/details/348405485.shtml)
+- 2026-06-30 08:23 - [莫兰特转投开拓者效力](http://www.share.kurohicncr.top/Article/details/128313786637.shtml)
+- 2026-06-30 08:02 - [如果有二次元高中是什么样子的？](https://www.share.kurohicncr.top/Article/details/7151865788.shtml)
+- 2026-06-30 07:57 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/11494183152.shtml)

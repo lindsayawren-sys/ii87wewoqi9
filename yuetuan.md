@@ -1,56 +1,56 @@
-# 33亿“老鼠仓”案落槌：华泰资产的“防火墙”为何没挡住内鬼？
+# 伊朗副外长称想要通过霍尔木兹海峡的船只须先与军方取得联系
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！作者 | 刘银平 编辑 | 付影 来源 | 独角金融 5月15日，上海市第三中级人民法院公开了一起利用未公开信息交易罪案件的一审判决：被告人刘某义——公开信息指向华泰资产管理有限公司（简称“华泰资产”）前投资经理刘建义——被判处有期徒刑5年，并处罚金2100万元。 至此，这起涉案金额33亿余元、刷新了保险资
+伊朗副外长在接受ITV电视采访时表示，油轮和其他希望通过霍尔木兹海峡的船只，必须与伊朗军方联系，以确保安全通行。 “霍尔木兹海峡是开放的，但当然，每艘油轮和船只都应与伊朗当局作出必要安排，以安全通过，”Saeed Khatibzadeh表示。他表示，近期针对伊朗的袭击以及这条水道本身较为狭窄，带来了“技术限制”，因此需要谨慎行事。 尽管总统唐纳德·特朗普周二表示，美伊为期14天
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+伊朗副外长在接受ITV电视采访时表示，油轮和其他希望通过霍尔木兹海峡的船只，必须与伊朗军方联系，以确保安全通行。
 
-作者 | 刘银平 编辑 | 付影 来源 | 独角金融 5月15日，上海市第三中级人民法院公开了一起利用未公开信息交易罪案件的一审判决：被告人刘某义——公开信息指向华泰资产管理有限公司（简称“华泰资产”）前投资经理刘建义——被判处有期徒刑5年，并处罚金2100万元。
+“霍尔木兹海峡是开放的，但当然，每艘油轮和船只都应与伊朗当局作出必要安排，以安全通过，”Saeed Khatibzadeh表示。
 
-至此，这起涉案金额33亿余元、刷新了保险资管领域纪录的“老鼠仓”案，完成了“行政+刑事”的双重追责。
+他表示，近期针对伊朗的袭击以及这条水道本身较为狭窄，带来了“技术限制”，因此需要谨慎行事。
 
-就在一年多前，2025年1月，辽宁证监局已对其开出行政处罚决定书：合计罚没约6432万元，并处以10年证券市场禁入。
+尽管总统唐纳德·特朗普周二表示，美伊为期14天的停火取决于霍尔木兹海峡重新开放，而德黑兰也同意恢复通航是可能的，但通过这一关键海上咽喉要道的航运目前仍大致处于停滞状态。
 
-这些数字构成了金融从业者铤而走险的警示牌，此案主角刘建义或许未曾想到，从入职次月开始持续两年半的“老鼠仓”操作，等待他的将是这样的结局。
+伦敦油价周四反弹至每桶98美元上方，此前周三曾暴跌逾13%。
 
-一个值得追问的问题是：刘建义从入职到离职总共两年半的时间，华泰资产号称“全员参与、全面覆盖”的风控体系为何未能及时拦截？
+Khatibzadeh对ITV表示：“所有希望通过霍尔木兹海峡的船只，都必须与我们的陆军和军方沟通。
 
-当处罚全部落在个人身上时，机构是否可以置身事外？
+任何与伊朗当局沟通的船只都已获得许可。
 
-1 33亿“老鼠仓”的操作路径： 两年半持续作案获利2473万 刘建义，1986年11月出生，2021年2月入职华泰资产，先后担任权益投资部投资经理助理、投资经理。
+” 不过，如果这一安排付诸实施，可能会面临实际操作上的困难。
 
 ## 相关推荐
 
-- 2026-06-30 07:55 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-30 08:13 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-30 07:59 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-30 08:12 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
-- 2026-06-30 08:16 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-30 07:58 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
-- 2026-06-30 08:03 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
-- 2026-06-30 07:49 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
-- 2026-06-30 07:48 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-30 08:14 - [巴西vs日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-30 08:08 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-30 08:12 - [德国连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-30 08:23 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-30 08:13 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-30 07:59 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-30 08:11 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-30 08:07 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-30 08:22 - [金鹰奖视后提名预测](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-30 08:03 - [诺伊尔尽力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
+- 2026-06-30 08:20 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:12 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/784519554341.shtml)
-- 2026-06-30 08:17 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/16658121796.shtml)
-- 2026-06-30 08:02 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/56664738.shtml)
-- 2026-06-30 07:50 - [金鹰奖视后提名预测](http://www.share.minike.top/Article/details/78350.shtml)
-- 2026-06-30 07:48 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/97105166.shtml)
-- 2026-06-30 07:50 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/169648.shtml)
-- 2026-06-30 07:48 - [输球后日本球迷被强行披上巴西国旗](http://www.blog.minike.top/Article/details/41107751.shtml)
-- 2026-06-30 07:55 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/115619650087.shtml)
-- 2026-06-30 08:05 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/60087068.shtml)
-- 2026-06-30 08:07 - [马耳他著名拱门坍塌致一中国男子身亡](http://www.blog.kurohicncr.top/Article/details/39730.shtml)
-- 2026-06-30 07:51 - [曝詹姆斯即将与勇士会面](http://www.blog.kurohicncr.top/Article/details/9377034.shtml)
-- 2026-06-30 08:05 - [人类...完蛋了...](https://www.share.minike.top/Article/details/99131832470.shtml)
-- 2026-06-30 08:13 - [日本遭读秒绝杀 森保一：我水平不够](https://www.share.kurohicncr.top/Article/details/1195362393.shtml)
-- 2026-06-30 08:10 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/624367590.shtml)
-- 2026-06-30 08:15 - [哈弗茨头球破门](https://www.blog.kurohicncr.top/Article/details/17015749017.shtml)
+- 2026-06-30 08:00 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/29075.shtml)
+- 2026-06-30 08:04 - [警犬“多多”助民警寻回失联老人](http://www.blog.kurohicncr.top/Article/details/8656549.shtml)
+- 2026-06-30 08:02 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/71486.shtml)
+- 2026-06-30 07:54 - [德国队连续三届世界杯无缘16强](https://www.blog.minike.top/Article/details/3637263164.shtml)
+- 2026-06-30 08:20 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/39622323678.shtml)
+- 2026-06-30 08:08 - [老外对中国cosplay竟这样评价…](http://www.blog.minike.top/Article/details/51678792735.shtml)
+- 2026-06-30 08:12 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/998187195712.shtml)
+- 2026-06-30 08:01 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/428843774674.shtml)
+- 2026-06-30 07:57 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://www.share.minike.top/Article/details/439567016342.shtml)
+- 2026-06-30 08:17 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/28881345.shtml)
+- 2026-06-30 08:05 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://www.blog.kurohicncr.top/Article/details/2832182.shtml)
+- 2026-06-30 08:21 - [【大鸣王潮1566】真拿你没办法](https://www.share.minike.top/Article/details/40794.shtml)
+- 2026-06-30 07:59 - [巴拉圭点球大战淘汰德国进16强](https://www.share.kurohicncr.top/Article/details/78306.shtml)
+- 2026-06-30 08:06 - [巴西醒醒 这是淘汰赛](https://www.share.kurohicncr.top/Article/details/1990404.shtml)
+- 2026-06-30 08:19 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/471417636.shtml)

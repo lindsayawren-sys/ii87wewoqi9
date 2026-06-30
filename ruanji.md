@@ -1,60 +1,51 @@
-# 万名健身爱好者共赴室内极限运动 是花钱找虐还是社交货币
+# VALA授出合共1.30亿股奖励股份
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-推动雪橇机，拉起划船机，扛起沙包负重前行，近万名参赛者在赛道上汗水飞溅，于全场观众的助威声中全力冲刺。上周末，2026 HYROX健身跑上海站在世博展览馆激情开赛(见右图，代杨龙 摄)，场馆的每一处角落都被滚烫的运动荷尔蒙填满。继骑行、攀岩、陆冲、匹克球之后，HYROX成为又一个现象级运动热潮。这项起源于德国的综合体能赛事，不仅以高强度、高观赏性的比拼点燃运动热情，更以强大的辐
+VALA（02051）发布公告，于2026年4月8日，董事会已议决根据2026年股份奖励计划，有条件向10名经选定参与者授出奖励，合共涉及1.30亿股奖励股份，而该计划已由董事会于2026年3月27日有条件采纳，并须待股东于公司股东大会上批准后，方可生效。根据建议授出，其建议向董事会主席、公司行政总裁、执行董事兼主要股东孙先生授出6519.94万股奖励股份；建议向公司副总裁兼执
 
 ## 正文
 
-推动雪橇机，拉起划船机，扛起沙包负重前行，近万名参赛者在赛道上汗水飞溅，于全场观众的助威声中全力冲刺。
+VALA（02051）发布公告，于2026年4月8日，董事会已议决根据2026年股份奖励计划，有条件向10名经选定参与者授出奖励，合共涉及1.30亿股奖励股份，而该计划已由董事会于2026年3月27日有条件采纳，并须待股东于公司股东大会上批准后，方可生效。
 
-上周末，2026 HYROX健身跑上海站在世博展览馆激情开赛(见右图，代杨龙 摄)，场馆的每一处角落都被滚烫的运动荷尔蒙填满。
+根据建议授出，其建议向董事会主席、公司行政总裁、执行董事兼主要股东孙先生授出6519.94万股奖励股份；建议向公司副总裁兼执行董事吴女士授出1203万股奖励股份；及建议向8名雇员承授人授出5316.94万股奖励股份。
 
-继骑行、攀岩、陆冲、匹克球之后，HYROX成为又一个现象级运动热潮。
-
-这项起源于德国的综合体能赛事，不仅以高强度、高观赏性的比拼点燃运动热情，更以强大的辐射力带动体育消费、城市文旅、品牌展示全面升温，成为上海文商旅体展融合的全新增长点。
-
-在“找虐”中体验运动乐趣 HYROX，全称是Hybrid Fitness Race，即混合健身竞速赛。
-
-它全程由8组“1km跑步+1项功能训练”组成，包括滑雪机、推雪橇车、拉雪橇车、波比跳远、划船机、农夫行走、负重箭步蹲和投掷药球，涵盖有氧耐力、力量和爆发力等体能维度。
-
-2017年，首届HYROX比赛在德国汉堡举行，不设关门时间，不设专业门槛，面向大众开放。
-
-这样的基本赛制沿用至今，从健身新手到资深运动员，从单人挑战到双人、四人接力组合，所有人都能找到属于自己的挑战目标。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 08:07 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
-- 2026-06-30 08:08 - [点球大战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-30 07:49 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-30 08:04 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-30 07:58 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
-- 2026-06-30 08:14 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
-- 2026-06-30 07:52 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-30 07:51 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
-- 2026-06-30 07:50 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-30 07:52 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-30 08:15 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-30 08:04 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-30 08:05 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-30 08:06 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-30 07:56 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-30 07:57 - [王濛回复黄灿灿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-30 08:09 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-30 08:15 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-30 08:02 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-30 08:18 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-30 08:17 - [郑钦文温网一轮游](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-30 07:55 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-30 08:08 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-30 07:58 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
+- 2026-06-30 08:21 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-30 08:06 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-30 07:58 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
+- 2026-06-30 07:55 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-30 07:59 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:53 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/193471356424.shtml)
-- 2026-06-30 07:50 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/861068.shtml)
-- 2026-06-30 07:57 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.kurohicncr.top/Article/details/793086261.shtml)
-- 2026-06-30 08:07 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/513298.shtml)
-- 2026-06-30 07:55 - [恋与深空道歉声明](https://www.share.minike.top/Article/details/7912918122.shtml)
-- 2026-06-30 07:59 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.kurohicncr.top/Article/details/8387131607.shtml)
-- 2026-06-30 07:55 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/5727346070.shtml)
-- 2026-06-30 08:06 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/7256413.shtml)
-- 2026-06-30 08:13 - [日本半场1比0领先巴西](http://www.share.minike.top/Article/details/6065933.shtml)
-- 2026-06-30 07:52 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/233586.shtml)
-- 2026-06-30 08:06 - [日本 高位逼抢](https://www.share.kurohicncr.top/Article/details/02971952562.shtml)
-- 2026-06-30 08:00 - [田中碧失误](http://www.share.kurohicncr.top/Article/details/07590.shtml)
-- 2026-06-30 08:17 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/7285694183.shtml)
-- 2026-06-30 07:55 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.blog.minike.top/Article/details/59504.shtml)
-- 2026-06-30 07:51 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/677184902.shtml)
+- 2026-06-30 08:02 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/108403101641.shtml)
+- 2026-06-30 07:56 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.kurohicncr.top/Article/details/95607144.shtml)
+- 2026-06-30 07:54 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/3317144.shtml)
+- 2026-06-30 08:07 - [内马尔中场休息积极鼓励队友](https://www.share.minike.top/Article/details/5168517.shtml)
+- 2026-06-30 07:58 - [巴西绝杀](https://www.share.kurohicncr.top/Article/details/325295239.shtml)
+- 2026-06-30 08:19 - [网友写差评被店家“挂”门口避雷](http://www.share.kurohicncr.top/Article/details/16082407924.shtml)
+- 2026-06-30 07:55 - [马耳他著名拱门坍塌致一中国男子身亡](http://www.blog.minike.top/Article/details/6574130631.shtml)
+- 2026-06-30 08:23 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/59011.shtml)
+- 2026-06-30 08:14 - [苗族银饰](https://www.blog.kurohicncr.top/Article/details/341557.shtml)
+- 2026-06-30 08:19 - [巴西vs日本](https://www.share.minike.top/Article/details/278575.shtml)
+- 2026-06-30 08:07 - [扬名立万](http://www.share.minike.top/Article/details/5078806.shtml)
+- 2026-06-30 07:58 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/397800866.shtml)
+- 2026-06-30 08:03 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/346637416.shtml)
+- 2026-06-30 08:23 - [泰山景区回应修建刀片刺绳隔离网](https://www.share.kurohicncr.top/Article/details/59912088.shtml)
+- 2026-06-30 07:55 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/8476467919.shtml)

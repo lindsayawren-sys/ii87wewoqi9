@@ -1,60 +1,59 @@
-# 中国佛教协会代表团赴台湾出席佛光山开山60周年系列纪念活动
+# 马斯克回应美国首条高铁造价或高达1260亿美元
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-中新社北京5月18日电 中国佛教协会官方网站18日介绍，应台湾中华人间佛教联合总会邀请，中国佛教协会会长演觉法师率团于5月13日至16日赴台，出席佛光山开山60周年系列纪念活动并开展友好交流。 消息指出，5月16日上午，演觉在台湾高雄佛光山出席纪念活动并致辞。他表示，佛光山开山六十年来，始终秉持星云长老的宏深悲愿，以文化弘法、以教育育人、以慈善利生、以共修净心，将佛法智慧播撒至
+据报道，美国官员表示，他们现在认为连接洛杉矶和旧金山的高速铁路最终造价可能达到1260亿美元左右，是最初批准造价的三倍多。 马斯克在X上回应网友转发的相关报道称：“如果由Boring Company建造一条从旧金山市中心到洛杉矶市中心的超级高铁隧道，成本将不到这一数字的5%，而且这将是一项超越地球上任何高速铁路的技术奇迹。” 有网友问：“为什么Boring Company不做呢
 
 ## 正文
 
-中新社北京5月18日电 中国佛教协会官方网站18日介绍，应台湾中华人间佛教联合总会邀请，中国佛教协会会长演觉法师率团于5月13日至16日赴台，出席佛光山开山60周年系列纪念活动并开展友好交流。
+据报道，美国官员表示，他们现在认为连接洛杉矶和旧金山的高速铁路最终造价可能达到1260亿美元左右，是最初批准造价的三倍多。
 
-消息指出，5月16日上午，演觉在台湾高雄佛光山出席纪念活动并致辞。
+马斯克在X上回应网友转发的相关报道称：“如果由Boring Company建造一条从旧金山市中心到洛杉矶市中心的超级高铁隧道，成本将不到这一数字的5%，而且这将是一项超越地球上任何高速铁路的技术奇迹。
 
-他表示，佛光山开山六十年来，始终秉持星云长老的宏深悲愿，以文化弘法、以教育育人、以慈善利生、以共修净心，将佛法智慧播撒至五洲四海，让佛教的慈悲、智慧、平等、中道、圆融、和平精神深入人心，为佛教健康传承、促进人心向善、推动文明交流互鉴作出了积极贡献。
+” 有网友问：“为什么Boring Company不做呢？
 
-演觉指出，星云长老毕生坚守两岸佛教同根同源、两岸同胞血脉相连的信念，大力推动两岸佛教交流、文化交流和民间往来，在两岸同胞间架起沟通心灵的文化桥梁，为两岸佛教界留下了宝贵的精神财富。
+！
 
-中国佛教协会愿与台湾地区佛教界携手同心，赓续两岸佛教传统法谊，凝聚起更多向善向上的力量，共同推动佛教健康传承，弘扬中华优秀传统文化，促进两岸同胞心灵契合，共享中华民族伟大复兴的荣光。
+” 马斯克回应称：“这条‘高铁’的真正目的并非为了交通，而是为了给官僚、顾问和工会洗钱。
 
-在台期间，中国佛教协会代表团与台湾中国佛教会、中华人间佛教联合总会、佛光山、中台禅寺、法鼓山、慈济基金会、灵鹫山等台湾地区佛教界主要组织和寺院，就两岸佛教文化和佛教教育等内容进行了积极深入交流。
+迄今为止投入大量资金都用在了这些方面。
 
-台湾地区佛教界认为，两岸佛教法乳一脉、同文同种，在民间交流中具有天然的优势，是推动两岸关系和平发展的重要力量。
+这就是为什么他们不想要一个真正经济高效的高速交通系统。
 
-他们表示，愿进一步加强与大陆佛教界的交流，深化在佛教教育、文化、僧才培养等方面的务实合作，鼓励两岸中青代僧才互访交流，共同为增进两岸同胞福祉贡献力量。
+” 责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-30 07:53 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-30 08:13 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-30 07:49 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
-- 2026-06-30 08:15 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-30 07:49 - [德国进球被吹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-30 07:56 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-30 07:57 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-30 08:04 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-30 07:50 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-30 08:04 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
-- 2026-06-30 07:55 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-30 08:00 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-30 08:13 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-30 08:17 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-30 08:10 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-30 08:14 - [齐思钧回复张月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-30 08:13 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-30 08:07 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-30 08:22 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-30 07:55 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-30 08:07 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
+- 2026-06-30 08:05 - [网友写差评被店家“挂”门口避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-30 08:06 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-30 08:01 - [日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-30 08:15 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-30 07:59 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-30 08:11 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:08 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/929206243.shtml)
-- 2026-06-30 08:05 - [啊啊啊](https://www.share.minike.top/Article/details/08902524.shtml)
-- 2026-06-30 08:08 - [日本反击率先破门](http://www.blog.minike.top/Article/details/173067079428.shtml)
-- 2026-06-30 08:06 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.kurohicncr.top/Article/details/603624637.shtml)
-- 2026-06-30 08:15 - [女心理师](https://www.share.kurohicncr.top/Article/details/821866477.shtml)
-- 2026-06-30 08:09 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/32478963191.shtml)
-- 2026-06-30 07:49 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/10155.shtml)
-- 2026-06-30 08:10 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/314264823.shtml)
-- 2026-06-30 07:48 - [金牌调解](https://www.share.kurohicncr.top/Article/details/7465197.shtml)
-- 2026-06-30 07:49 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/01042.shtml)
-- 2026-06-30 07:57 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/284151568675.shtml)
-- 2026-06-30 08:05 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/946219604.shtml)
-- 2026-06-30 07:49 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.minike.top/Article/details/40832462.shtml)
-- 2026-06-30 08:06 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/776545795.shtml)
-- 2026-06-30 07:54 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/6241163115.shtml)
+- 2026-06-30 08:18 - [王楚钦说配合稍微有些陌生感](https://www.blog.minike.top/Article/details/87390.shtml)
+- 2026-06-30 08:04 - [爆冷出局！德国点球大战不敌巴拉圭](https://www.share.kurohicncr.top/Article/details/592424504.shtml)
+- 2026-06-30 08:03 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/026150.shtml)
+- 2026-06-30 07:54 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.kurohicncr.top/Article/details/9447356753.shtml)
+- 2026-06-30 08:18 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/233617832.shtml)
+- 2026-06-30 08:16 - [又一家县级医院关停门诊输液大厅](http://www.blog.kurohicncr.top/Article/details/77820164.shtml)
+- 2026-06-30 07:58 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/588971.shtml)
+- 2026-06-30 08:20 - [孙颖莎王楚钦晋级8强](https://www.blog.kurohicncr.top/Article/details/64390797906.shtml)
+- 2026-06-30 08:09 - [有酒店推行24小时退房制](https://www.share.kurohicncr.top/Article/details/681588.shtml)
+- 2026-06-30 07:54 - [吴易昺不敌德约科维奇 止步温网首轮](http://www.blog.minike.top/Article/details/74798197.shtml)
+- 2026-06-30 08:15 - [《共患难》](https://www.share.kurohicncr.top/Article/details/461528.shtml)
+- 2026-06-30 08:13 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/9267096586.shtml)
+- 2026-06-30 07:56 - [德国4比5巴拉圭](https://www.share.kurohicncr.top/Article/details/775923.shtml)
+- 2026-06-30 08:15 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/68147717206.shtml)
+- 2026-06-30 08:14 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.minike.top/Article/details/17865079781.shtml)

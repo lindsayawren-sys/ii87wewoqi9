@@ -1,57 +1,60 @@
-# 印尼盾盘中跌穿17700 刷新历史新低
+# 国台办评所谓美对台“优惠待遇”：实为霸凌压榨
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-中新社雅加达5月19日电 (记者 李志全)印度尼西亚本币印尼盾再度走弱。19日开盘后，印尼盾对美元汇率跌穿17700关口，一度触及1美元兑17728印尼盾，刷新历史新低。 尽管印尼央行近期频频干预汇市，市场抛压仍未缓解。本月以来，印尼盾已连续跌破17400、17500和17600等多个关口。 一天前，印尼国会专门就印尼盾汇率等问题召开听证会。印尼央行行长佩里·瓦吉约表示，印尼央
+中新社北京4月8日电 (记者 张杨彬)美国近日宣布将对进口专利药及制药成分加征100%关税，台方未被列入民进党当局宣称已争取到的“优惠名单”。国务院台办发言人朱凤莲8日应询指出，所谓“优惠待遇”实为美国对台湾的霸凌压榨。在当天于北京举行的国台办例行新闻发布会上，朱凤莲提及，越来越多的事实让台湾民众认识到，美国的强取豪夺不会讲什么道理，民进党当局的奴颜婢膝换不来任何怜悯。 她续指
 
 ## 正文
 
-中新社雅加达5月19日电 (记者 李志全)印度尼西亚本币印尼盾再度走弱。
+中新社北京4月8日电 (记者 张杨彬)美国近日宣布将对进口专利药及制药成分加征100%关税，台方未被列入民进党当局宣称已争取到的“优惠名单”。
 
-19日开盘后，印尼盾对美元汇率跌穿17700关口，一度触及1美元兑17728印尼盾，刷新历史新低。
+国务院台办发言人朱凤莲8日应询指出，所谓“优惠待遇”实为美国对台湾的霸凌压榨。
 
-尽管印尼央行近期频频干预汇市，市场抛压仍未缓解。
+在当天于北京举行的国台办例行新闻发布会上，朱凤莲提及，越来越多的事实让台湾民众认识到，美国的强取豪夺不会讲什么道理，民进党当局的奴颜婢膝换不来任何怜悯。
 
-本月以来，印尼盾已连续跌破17400、17500和17600等多个关口。
+她续指，民进党当局所谓的“优惠待遇”，实际上就是美国对台湾的霸凌压榨，是民进党当局以台湾经济为代价的献媚输诚，包藏的是民进党“倚美谋独”的祸心。
 
-一天前，印尼国会专门就印尼盾汇率等问题召开听证会。
+民进党当局领导人赖清德近日称，美国已成为台湾最大对外投资目的地与出口市场，台湾对大陆投资大幅下降，将持续与美国深化合作。
 
-印尼央行行长佩里·瓦吉约表示，印尼央行衡量印尼盾稳定性，并不仅仅看汇率水平本身，还关注其波动性。
+朱凤莲表示，赖清德当局所说的“与美深化合作，维护全球供应链安全”，本质上是“倚美卖台”，更加暴露其为了“倚外谋独”而处心积虑、不择手段。
 
-他称，今年以来印尼盾波动率为5.4%，央行仍认为处于相对稳定水平。
+她介绍了海关总署的一组数据——今年前两个月，两岸贸易总额保持稳定增长势头，达525.4亿美元，其中大陆对台出口增长28.1%，大陆自台进口增长19%。
 
-面对印尼盾持续承压，印尼政府多次强调，印尼经济基本面依然稳健。
+朱凤莲认为，这充分说明两岸经济脱不了钩、断不了链，深化两岸融合发展符合两岸同胞共同利益和市场规律。
 
 ## 相关推荐
 
-- 2026-06-30 08:01 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-30 07:49 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-30 08:07 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-30 07:50 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-30 07:49 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
-- 2026-06-30 08:15 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-30 08:11 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
-- 2026-06-30 08:06 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
-- 2026-06-30 08:00 - [现在叛逆期的孩子最怕的是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
-- 2026-06-30 08:01 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-30 08:01 - [IGN评测电影版后室](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-30 08:14 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-30 08:12 - [王楚钦说配合稍微有些陌生感](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-30 08:01 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-30 08:17 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-30 08:17 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-30 07:57 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-30 08:19 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-30 08:23 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-30 08:12 - [媒体：手机测评该挤挤水分了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-30 08:11 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-30 08:17 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-30 08:23 - [马耳他著名拱门坍塌致中国男子身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-30 08:21 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-30 08:07 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:57 - [杨紫被质疑未使用原名纯属误解](https://www.blog.kurohicncr.top/Article/details/113025.shtml)
-- 2026-06-30 08:17 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/5841505441.shtml)
-- 2026-06-30 08:10 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/367393.shtml)
-- 2026-06-30 07:56 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/05128.shtml)
-- 2026-06-30 07:58 - [日本领先巴西](https://www.share.minike.top/Article/details/462724530.shtml)
-- 2026-06-30 07:50 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.minike.top/Article/details/1300781.shtml)
-- 2026-06-30 07:52 - [郑钦文温网首轮出局](http://www.blog.minike.top/Article/details/7569079861.shtml)
-- 2026-06-30 08:10 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/5904719.shtml)
-- 2026-06-30 07:58 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/45105.shtml)
-- 2026-06-30 08:08 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/564047283562.shtml)
-- 2026-06-30 08:12 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.kurohicncr.top/Article/details/654772406956.shtml)
-- 2026-06-30 07:54 - [网瘾賊大的阿嬷](https://www.share.minike.top/Article/details/470265.shtml)
-- 2026-06-30 07:51 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.minike.top/Article/details/88235958928.shtml)
-- 2026-06-30 08:02 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/72862944.shtml)
-- 2026-06-30 08:16 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/55559.shtml)
+- 2026-06-30 08:07 - [巴西醒醒 这是淘汰赛](http://www.blog.minike.top/Article/details/96933.shtml)
+- 2026-06-30 08:06 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/5153850708.shtml)
+- 2026-06-30 08:12 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/313423324.shtml)
+- 2026-06-30 08:15 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.kurohicncr.top/Article/details/76172695229.shtml)
+- 2026-06-30 07:56 - [曝詹姆斯即将与勇士会面](http://www.share.kurohicncr.top/Article/details/9307388.shtml)
+- 2026-06-30 07:54 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.kurohicncr.top/Article/details/0239561360.shtml)
+- 2026-06-30 08:06 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/498080415.shtml)
+- 2026-06-30 08:07 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/539858155310.shtml)
+- 2026-06-30 07:56 - [中国新一轮出口管制直指日本命脉](https://www.share.kurohicncr.top/Article/details/529542.shtml)
+- 2026-06-30 08:02 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/857756873435.shtml)
+- 2026-06-30 08:03 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/820156612.shtml)
+- 2026-06-30 07:56 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/335637037972.shtml)
+- 2026-06-30 08:12 - [孙颖莎王楚钦晋级8强](http://www.blog.minike.top/Article/details/751759.shtml)
+- 2026-06-30 08:03 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/2557396.shtml)
+- 2026-06-30 08:21 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/16561619219.shtml)

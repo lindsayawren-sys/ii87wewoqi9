@@ -1,60 +1,60 @@
-# 注意“老来瘦” 小心肌少症
+# AI赋能 港科大探寻华人健康长寿“密码”
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-随着年龄增长，肌肉会自然流失。专家提醒，如果家中老人出现洗脸毛巾拧不干、打不开矿泉水瓶盖等情况，要警惕或许是肌少症找上了门。 肌少症，是一种以骨骼肌质量、力量和功能的进行性和系统性丧失为特征的老年综合征。天津市天津医院康复医学科副主任医师李奇表示，肌少症常导致老年人体力下降、行动受限、跌倒风险增加、生活质量下降，甚至还会增加死亡风险。 天津中医药大学第一附属医院老年病科副主任医
+中新网香港4月8日电 (记者 邱兆翔)香港科技大学(简称“港科大”)8日宣布，校方将开展“科大华人健康长寿研究”。该研究为期5年，致力于通过研究华人群体中影响健康长寿的因素，以为该群体制定健康管理策略。 作为研究团队的领导者，港科大校长叶玉如表示，人口老龄化是香港乃至全球共同面对的一大挑战。该研究有三个重要目的：一是系统识别与健康长寿有关的因素；二是找出在华人群体中与健康长寿有
 
 ## 正文
 
-随着年龄增长，肌肉会自然流失。
+中新网香港4月8日电 (记者 邱兆翔)香港科技大学(简称“港科大”)8日宣布，校方将开展“科大华人健康长寿研究”。
 
-专家提醒，如果家中老人出现洗脸毛巾拧不干、打不开矿泉水瓶盖等情况，要警惕或许是肌少症找上了门。
+该研究为期5年，致力于通过研究华人群体中影响健康长寿的因素，以为该群体制定健康管理策略。
 
-肌少症，是一种以骨骼肌质量、力量和功能的进行性和系统性丧失为特征的老年综合征。
+作为研究团队的领导者，港科大校长叶玉如表示，人口老龄化是香港乃至全球共同面对的一大挑战。
 
-天津市天津医院康复医学科副主任医师李奇表示，肌少症常导致老年人体力下降、行动受限、跌倒风险增加、生活质量下降，甚至还会增加死亡风险。
+该研究有三个重要目的：一是系统识别与健康长寿有关的因素；二是找出在华人群体中与健康长寿有关的基因；三是建立一个针对长寿华人的生物样本数据库，为后续的临床医学研究打下基础。
 
-天津中医药大学第一附属医院老年病科副主任医师杨玉超表示，肌少症的发生机制非常复杂，最主要的是年龄因素，年龄越大，发病率越高。
+据研究团队介绍，目前关于健康长寿的研究，主要以西方人群为样本，且大多数仅针对单一因素进行研究，缺乏个人化的全方位评估。
 
-此外，蛋白质和维生素D等营养素摄入不足、活动减少、慢性疾病、遗传等也是导致肌少症的危险因素。
+负责此次研究的跨学科团队由临床医生、生物学家、工程师、人工智能(AI)专家等多学科专家组成。
 
-肌少症的发生往往悄无声息，但也会留下些蛛丝马迹。
+团队将利用AI大模型，通过对样本人群的脑健康、代谢、炎症等多指标监测与分析，发掘影响健康长寿的遗传与可调控因素。
 
-杨玉超说，老年人身上有以下3种情况出现时，需要及时进行肌少症筛查：患有多种慢性疾病，如慢性心力衰竭、慢性肺病、糖尿病、慢性肾病、结缔组织病、结核菌感染及其他慢性消耗性疾病等；没有刻意减肥，6个月内体重却不知不觉地下降超过5%；出现消瘦、虚弱、四肢纤细无力、易跌倒、行走困难等现象。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 08:17 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
-- 2026-06-30 08:13 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
-- 2026-06-30 08:15 - [世界杯欧洲队7战南美仅1胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-30 07:57 - [女子遭下药退赔偿拟追刑责](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-30 08:03 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-30 08:07 - [德国罚丢3粒点球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-30 08:02 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-30 08:00 - [点球大战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
-- 2026-06-30 07:56 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
-- 2026-06-30 07:54 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-30 08:15 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-30 07:54 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-30 08:16 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
-- 2026-06-30 08:14 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-30 07:56 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-30 07:59 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-30 08:23 - [森保一致歉：世界第一目标没能实现](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-30 08:17 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-30 08:02 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-30 07:56 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
+- 2026-06-30 08:01 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-30 08:21 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-30 08:16 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-30 08:00 - [媒体：手机测评该挤挤水分了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-30 08:08 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-30 08:18 - [马耳他著名拱门坍塌致中国男子身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-30 07:54 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-30 08:15 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:05 - [日本博主：日本足球真的垃圾](http://www.share.kurohicncr.top/Article/details/001509991.shtml)
-- 2026-06-30 07:51 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/31922119040.shtml)
-- 2026-06-30 07:49 - [日本反击率先破门](https://www.share.kurohicncr.top/Article/details/540256980.shtml)
-- 2026-06-30 08:07 - [千香](http://www.blog.kurohicncr.top/Article/details/01311.shtml)
-- 2026-06-30 07:52 - [孙颖莎王楚钦晋级8强](https://www.share.minike.top/Article/details/515099716134.shtml)
-- 2026-06-30 08:11 - [IGN评测电影版后室](http://www.share.kurohicncr.top/Article/details/58210.shtml)
-- 2026-06-30 08:11 - [诺伊尔尽力了](http://www.blog.kurohicncr.top/Article/details/865562326442.shtml)
-- 2026-06-30 08:13 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/187199946.shtml)
-- 2026-06-30 07:57 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/18192180867.shtml)
-- 2026-06-30 08:01 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/331782155.shtml)
-- 2026-06-30 08:04 - [大蒜晒外面被路过女子连盆端走](https://www.blog.minike.top/Article/details/7994560431.shtml)
-- 2026-06-30 07:54 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/35763866035.shtml)
-- 2026-06-30 08:05 - [武磊：巴西队赢的并不轻松](https://www.blog.minike.top/Article/details/10649311360.shtml)
-- 2026-06-30 08:09 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://www.blog.kurohicncr.top/Article/details/85793062747.shtml)
-- 2026-06-30 07:51 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/2508569.shtml)
+- 2026-06-30 08:21 - [金牌调解](http://www.share.kurohicncr.top/Article/details/73718600513.shtml)
+- 2026-06-30 08:19 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/557985.shtml)
+- 2026-06-30 08:13 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/47058.shtml)
+- 2026-06-30 08:03 - [森保一 保守](https://www.blog.minike.top/Article/details/911334088555.shtml)
+- 2026-06-30 08:08 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/03940828530.shtml)
+- 2026-06-30 07:57 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/77208.shtml)
+- 2026-06-30 08:18 - [巴西扳平比分](http://www.blog.minike.top/Article/details/676782.shtml)
+- 2026-06-30 08:00 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/7579970.shtml)
+- 2026-06-30 08:11 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.minike.top/Article/details/99398401438.shtml)
+- 2026-06-30 08:05 - [齐思钧回复张月](http://www.blog.kurohicncr.top/Article/details/7558344892.shtml)
+- 2026-06-30 08:10 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/664418.shtml)
+- 2026-06-30 08:22 - [毒液2](http://www.blog.kurohicncr.top/Article/details/355435277140.shtml)
+- 2026-06-30 08:11 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/451728.shtml)
+- 2026-06-30 08:20 - [张雪的一句“是我们”引发岛内热议](https://www.blog.kurohicncr.top/Article/details/374463.shtml)
+- 2026-06-30 08:18 - [巴西绝杀](https://www.blog.kurohicncr.top/Article/details/801288.shtml)

@@ -1,59 +1,59 @@
-# 铁矿：供需面临转折，成本支撑仍存
+# 豪买两年半后，邓晓峰罕见减持京东方A
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-广发期货研究 证监许可【2011】1292号 | 徐艺丹 Z0020017 | 2026年5月19日 星期二 今日行情：铁矿主力合约小幅下跌，盘面持仓持续下降。螺矿比延续触底反弹趋势，9-1月差维持震荡运行。截至收盘，铁矿主力合约下跌0.87%，收于798.5元/吨。现货方面，港口铁矿主流品种报价较上一工作日小幅下跌，贸易商报盘积极性尚可，买方询盘偏少，钢厂采购计划有限。山东港
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！在重金买入两年半之后，邓晓峰减仓面板股。 面板龙头京东方A最新披露的2025年报以及回购公告显示，今年一季度，高毅资产首席投资官邓晓峰管理的两只产品合计减持该公司2900万股。这是上述两只产品自2023年三季度首次在京东方A股东名单中现身以来，罕见地减持如此多的股份。 一季度减持2900万股 根据面板龙头公
 
 ## 正文
 
-广发期货研究 证监许可【2011】1292号 | 徐艺丹 Z0020017 | 2026年5月19日 星期二 今日行情：铁矿主力合约小幅下跌，盘面持仓持续下降。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-螺矿比延续触底反弹趋势，9-1月差维持震荡运行。
+在重金买入两年半之后，邓晓峰减仓面板股。
 
-截至收盘，铁矿主力合约下跌0.87%，收于798.5元/吨。
+面板龙头京东方A最新披露的2025年报以及回购公告显示，今年一季度，高毅资产首席投资官邓晓峰管理的两只产品合计减持该公司2900万股。
 
-现货方面，港口铁矿主流品种报价较上一工作日小幅下跌，贸易商报盘积极性尚可，买方询盘偏少，钢厂采购计划有限。
+这是上述两只产品自2023年三季度首次在京东方A股东名单中现身以来，罕见地减持如此多的股份。
 
-山东港口市场60.8%PB粉主流在770-775；超特粉主流在630-635；麦克粉主流在765-770。
+一季度减持2900万股 根据面板龙头公司京东方A2025年年报和回购公告，截至今年3月底，邓晓峰管理的高毅晓峰2号致信基金持有该公司3.37亿股，他管理的另一只产品高毅晓峰鸿远集合资金信托计划持有3.07亿股。
 
-供应持续走高，非主流维持强劲表现 近期，铁矿石发运中枢上移，绝对值维持历史同期偏高水平，这主要与季节性因素消除、非主流增长强劲以及矿山财年冲量等因素相关。
+同2025年底相比，分别减少1500万股和1400万股。
 
-具体来看，进入5月后，铁矿发运的天气扰动因素基本消除，澳洲巴西雨季影响减弱，铁矿石发运中枢逐步向旺季高点靠拢。
+根据京东方A定期报告，2023年三季度，邓晓峰管理的上述两只产品首次在该公司前十大股东名单中现身，截至2023年三季度末，高毅晓峰2号致信基金、高毅晓峰鸿远集合资金信托计划分别持有3.5亿股、3.3亿股，持仓市值分别为13.51亿元和12.74亿元。
 
-其次，矿价仍维持在历史同期相对高位水平，前期一度突破110美金，对非主流发运增量有明显支撑。
+从季度持仓变动情况看，邓晓峰重金买入两年多来，尽管偶有小幅减持，但始终是重仓持有。
 
 ## 相关推荐
 
-- 2026-06-30 07:48 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-30 08:12 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-30 08:01 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-30 08:15 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
-- 2026-06-30 07:48 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
-- 2026-06-30 07:51 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
-- 2026-06-30 08:08 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-30 08:09 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-30 07:54 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
-- 2026-06-30 08:06 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-30 08:03 - [点球大战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-30 08:03 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-30 08:11 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-30 08:18 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-30 08:00 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-30 08:08 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-30 08:15 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-30 08:18 - [张月收到黄灿灿辣货两眼发光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-30 07:58 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-30 08:08 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-30 08:12 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-30 08:17 - [日本博主：日本足球真的垃圾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-30 08:16 - [日本球迷被强行披上巴西国旗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-30 07:59 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-30 08:13 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-30 08:11 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:51 - [德国巴拉圭加时](https://www.share.minike.top/Article/details/06265752419.shtml)
-- 2026-06-30 08:06 - [媒体：手机测评该挤挤水分了](http://www.blog.minike.top/Article/details/85538.shtml)
-- 2026-06-30 07:57 - [有什么好的高中网课推荐吗？](https://www.share.minike.top/Article/details/5704708.shtml)
-- 2026-06-30 07:48 - [内马尔中场休息积极鼓励队友](http://www.share.kurohicncr.top/Article/details/3997700036.shtml)
-- 2026-06-30 08:03 - [点球大战](http://www.blog.kurohicncr.top/Article/details/1589827929.shtml)
-- 2026-06-30 07:53 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/9632624.shtml)
-- 2026-06-30 07:54 - [德国4比5巴拉圭](https://www.blog.minike.top/Article/details/807298965.shtml)
-- 2026-06-30 08:12 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/4784737.shtml)
-- 2026-06-30 08:16 - [感动全网的699分女生想报考清华](http://www.blog.kurohicncr.top/Article/details/68263438537.shtml)
-- 2026-06-30 07:54 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/815265.shtml)
-- 2026-06-30 08:13 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/5938420.shtml)
-- 2026-06-30 08:00 - [杨紫获白玉兰视后争议不止](https://www.blog.minike.top/Article/details/753445.shtml)
-- 2026-06-30 07:51 - [巴西替补奇兵读秒绝杀](https://www.blog.kurohicncr.top/Article/details/295802882.shtml)
-- 2026-06-30 07:59 - [爱很美味](https://www.blog.minike.top/Article/details/715411.shtml)
-- 2026-06-30 08:00 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.minike.top/Article/details/36143.shtml)
+- 2026-06-30 08:17 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/55389147991.shtml)
+- 2026-06-30 08:10 - [美股](http://www.blog.minike.top/Article/details/6840343.shtml)
+- 2026-06-30 07:57 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/123996.shtml)
+- 2026-06-30 08:22 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/78538.shtml)
+- 2026-06-30 08:23 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/62176673929.shtml)
+- 2026-06-30 07:55 - [日本 高位逼抢](http://www.blog.kurohicncr.top/Article/details/63074125.shtml)
+- 2026-06-30 08:02 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/907266.shtml)
+- 2026-06-30 08:15 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/2469957.shtml)
+- 2026-06-30 07:55 - [金刚川](http://www.share.minike.top/Article/details/000648.shtml)
+- 2026-06-30 08:08 - [王濛回复黄灿灿](http://www.blog.minike.top/Article/details/455791407317.shtml)
+- 2026-06-30 08:23 - [杨紫学位证上就是杨紫](https://www.blog.minike.top/Article/details/5577092.shtml)
+- 2026-06-30 08:16 - [董卿父亲在报纸上发文悼念亡妻](https://www.blog.minike.top/Article/details/893442226765.shtml)
+- 2026-06-30 08:01 - [天道](https://www.blog.kurohicncr.top/Article/details/55958.shtml)
+- 2026-06-30 08:16 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/54054381784.shtml)
+- 2026-06-30 08:07 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/757826279.shtml)

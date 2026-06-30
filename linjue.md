@@ -1,56 +1,59 @@
-# 自费流感疫苗也可医保报销了
+# 停火后已有两艘船只通过霍尔木兹海峡，但仍有数百艘被困
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-“疫苗不报销”将成为过去式。近日，允许医保个账支付自费疫苗的全国性文件终于出炉，首个惠及的苗种是流感疫苗。 国家医保局办公室、财政部办公厅5月19日发布《关于进一步加强定点零售药店职工基本医疗保险个人账户使用监督管理的通知》，明确建立定点零售药店职工医保个人账户支付白名单制度。与此同时，此次文件首次以部委发文的形式明确“允许使用职工医保个人账户支付在定点医疗机构发生的流感疫苗费
+希腊散货船 NJ Earth 号周三被追踪到通过霍尔木兹海峡。 据海运交通数据平台 MarineTraffic 最新数据，伊朗、美国与以色列宣布停火后，已有至少两艘船只安全通过霍尔木兹海峡。 不过，这与滞留在波斯湾的大量积压船只相比，只是杯水车薪。MarineTraffic 周三表示，该地区仍有数百艘船只被困，其中包括 426 艘油轮、34 艘液化石油气运输船和 19 艘液化天
 
 ## 正文
 
-“疫苗不报销”将成为过去式。
+希腊散货船 NJ Earth 号周三被追踪到通过霍尔木兹海峡。
 
-近日，允许医保个账支付自费疫苗的全国性文件终于出炉，首个惠及的苗种是流感疫苗。
+据海运交通数据平台 MarineTraffic 最新数据，伊朗、美国与以色列宣布停火后，已有至少两艘船只安全通过霍尔木兹海峡。
 
-国家医保局办公室、财政部办公厅5月19日发布《关于进一步加强定点零售药店职工基本医疗保险个人账户使用监督管理的通知》，明确建立定点零售药店职工医保个人账户支付白名单制度。
+不过，这与滞留在波斯湾的大量积压船只相比，只是杯水车薪。
 
-与此同时，此次文件首次以部委发文的形式明确“允许使用职工医保个人账户支付在定点医疗机构发生的流感疫苗费用”。
+MarineTraffic 周三表示，该地区仍有数百艘船只被困，其中包括 426 艘油轮、34 艘液化石油气运输船和 19 艘液化天然气运输船。
 
-此前，受制于上位法对医保待遇边界的约束和医疗保险的传统逻辑，成人疫苗长期由公共卫生领域的财政资金直接提供，基本医保和商业健康保险均不予承担。
+追踪数据显示，周三世界协调时上午 8 点 44 分，希腊籍散货船 NJ Earth 号驶过海峡。
 
-国家医保局曾在2020年发布的《基本医疗保险用药管理暂行办法》中提出，预防性疫苗不纳入医保支付范围。
+据 MarineTraffic 信息，在此前约两小时，挂利比里亚旗的散货船 Daytona Beach 号已驶入阿曼湾。
 
-而前述由国家医保局和财政部共同作出的破冰之举，在不少受访业界人士看来早有预兆。
+两艘船只似乎均选择了途经伊朗拉腊克岛的航线。
 
-他们的理由至少有三：首先，部分非免疫规划疫苗纳入医保个人账户的合理性证据已较为充分，疫苗接种作为成本效益显著的预防手段，其投入远低于相关疾病的治疗开支。
+劳氏航运情报（Lloyd’s List Intelligence）此前曾报道，该岛是伊朗伊斯兰革命卫队管控海峡通行的检查站。
 
 ## 相关推荐
 
-- 2026-06-30 07:59 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
-- 2026-06-30 08:12 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
-- 2026-06-30 07:49 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-30 08:13 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
-- 2026-06-30 07:56 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
-- 2026-06-30 08:02 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
-- 2026-06-30 08:05 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-30 08:10 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-30 07:55 - [媒体：手机测评该挤挤水分了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-30 08:05 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-30 08:14 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-30 08:10 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-30 08:17 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-30 08:18 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-30 07:58 - [全新问界M9现身美国街头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-30 08:15 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-30 07:56 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-30 08:00 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-30 08:08 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-30 07:55 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-30 08:15 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-30 08:22 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-30 08:15 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:04 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/5578911556.shtml)
-- 2026-06-30 08:02 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/346708.shtml)
-- 2026-06-30 07:49 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/580434009166.shtml)
-- 2026-06-30 08:03 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](http://www.blog.kurohicncr.top/Article/details/02686783976.shtml)
-- 2026-06-30 07:55 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/8941914.shtml)
-- 2026-06-30 08:04 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/71263909.shtml)
-- 2026-06-30 07:55 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/1423043784.shtml)
-- 2026-06-30 08:09 - [F1奥地利站赛后复盘](https://www.blog.kurohicncr.top/Article/details/009753.shtml)
-- 2026-06-30 07:57 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/067825813911.shtml)
-- 2026-06-30 08:17 - [“柠檬茶能换怀表？”](https://www.share.kurohicncr.top/Article/details/73800099261.shtml)
-- 2026-06-30 07:53 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/9137757.shtml)
-- 2026-06-30 07:58 - [日本16强魔咒](http://www.share.kurohicncr.top/Article/details/9797344.shtml)
-- 2026-06-30 08:05 - [巴拉圭进球](http://www.blog.kurohicncr.top/Article/details/80277011.shtml)
-- 2026-06-30 08:09 - [女子清吧被陌生人投放伟哥](https://www.share.minike.top/Article/details/56081623842.shtml)
-- 2026-06-30 08:09 - [千香](https://www.share.kurohicncr.top/Article/details/84964.shtml)
+- 2026-06-30 08:19 - [为什么会有「念旧」的心理？](http://www.blog.kurohicncr.top/Article/details/3014031081.shtml)
+- 2026-06-30 08:15 - [警犬“多多”助民警寻回失联老人](http://www.share.minike.top/Article/details/93038.shtml)
+- 2026-06-30 08:22 - [“草莓月亮”浪漫现身](http://www.share.kurohicncr.top/Article/details/766264211210.shtml)
+- 2026-06-30 08:12 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.blog.minike.top/Article/details/1727295052.shtml)
+- 2026-06-30 08:09 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/00359.shtml)
+- 2026-06-30 08:14 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/64422.shtml)
+- 2026-06-30 08:03 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/403804.shtml)
+- 2026-06-30 08:09 - [扫黑风暴](http://www.share.minike.top/Article/details/07227965.shtml)
+- 2026-06-30 08:06 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/05990830359.shtml)
+- 2026-06-30 08:19 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/919633222726.shtml)
+- 2026-06-30 08:12 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/617971793.shtml)
+- 2026-06-30 08:09 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/9298951382.shtml)
+- 2026-06-30 08:15 - [郑钦文温网三连败西尼亚科娃](https://www.share.minike.top/Article/details/87071029.shtml)
+- 2026-06-30 07:59 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/538538.shtml)
+- 2026-06-30 08:21 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.minike.top/Article/details/996502229.shtml)

@@ -1,50 +1,58 @@
-# 从有机杂粮到非遗美食 哈洽会黑河分会场“圈粉”中外展商
+# 中信建投期货：4月9日工业品早报
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月18日 23:52 来源：中国新闻网 5月17日，第三十五届哈尔滨国际经济贸易洽谈会启幕，黑河市在主会场和分会场同步发力。在哈尔滨主会场，黑河市从中俄合作、供需合作、产业合作三个维度，立体呈现黑河的生态优势、开放平台与创新动能。与此同时，在黑河分会场，从安格斯牛肉到天然浆果，从有机杂粮到非遗美食，处处彰显黑河“生态优先、绿色发展”的底色，充分彰显了作为
+铜：地缘扰动仍存，铜价高位整理 隔夜沪铜主力涨超1%至98330元，伦铜收涨12321美金。 宏观中性。以色列对黎巴嫩发动大规模打击，伊朗再度关闭霍尔木兹海峡并计划收取过航费用。货币政策方面，3月FOMC会议后，美联储内部倾向于在战争影响期间维持利率不变。 基本面中性。昨日上期所铜仓单减少5202吨至18.6万吨，LME铜累库6500吨至38.5万吨。日本泛太平洋铜业2026、
 
 ## 正文
 
-发布时间：2026年05月18日 23:52 来源：中国新闻网 5月17日，第三十五届哈尔滨国际经济贸易洽谈会启幕，黑河市在主会场和分会场同步发力。
+铜：地缘扰动仍存，铜价高位整理 隔夜沪铜主力涨超1%至98330元，伦铜收涨12321美金。
 
-在哈尔滨主会场，黑河市从中俄合作、供需合作、产业合作三个维度，立体呈现黑河的生态优势、开放平台与创新动能。
+宏观中性。
 
-与此同时，在黑河分会场，从安格斯牛肉到天然浆果，从有机杂粮到非遗美食，处处彰显黑河“生态优先、绿色发展”的底色，充分彰显了作为向北开放新高地窗口城市的平台作用与发展潜力。
+以色列对黎巴嫩发动大规模打击，伊朗再度关闭霍尔木兹海峡并计划收取过航费用。
 
-(王畅达 申杨 张志国 制作 姜禹帆 视频来源 黑河市融媒体中心) 责任编辑：【张令旗】
+货币政策方面，3月FOMC会议后，美联储内部倾向于在战争影响期间维持利率不变。
+
+基本面中性。
+
+昨日上期所铜仓单减少5202吨至18.6万吨，LME铜累库6500吨至38.5万吨。
+
+日本泛太平洋铜业2026、2027财年精铜产量预计同比增长3.3%，主要与电力需求推动有关。
+
+总体来看，地缘不确定性扰动仍存，叠加铜自身偏强的基本面支撑，预计短期价格或维持宽幅整理，等待更多宏观指引。
 
 ## 相关推荐
 
-- 2026-06-30 08:00 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
-- 2026-06-30 07:57 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-30 08:03 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-30 07:54 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-30 08:13 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-30 08:13 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-30 07:56 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-30 08:07 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-30 08:08 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-30 07:58 - [德国连续三届世界杯无缘16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
-- 2026-06-30 08:16 - [郑钦文温网一轮游](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-30 08:15 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-30 08:13 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-30 08:15 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-30 08:19 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-30 08:14 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-30 07:58 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-30 08:16 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-30 07:58 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-30 08:20 - [大蒜晒外面被路过女子连盆端走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-30 08:04 - [全新问界M9现身美国街头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-30 08:07 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-30 08:06 - [孙颖莎王楚钦晋级8强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-30 08:05 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:09 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/713106350197.shtml)
-- 2026-06-30 08:01 - [世界杯欧洲队7战南美仅1胜](https://www.blog.kurohicncr.top/Article/details/6971152286.shtml)
-- 2026-06-30 07:50 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/7130244754.shtml)
-- 2026-06-30 08:08 - [一见倾心](http://www.share.kurohicncr.top/Article/details/697328860.shtml)
-- 2026-06-30 08:05 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/46537.shtml)
-- 2026-06-30 07:48 - [周生如故](http://www.share.kurohicncr.top/Article/details/465736860.shtml)
-- 2026-06-30 08:08 - [男子身高一米八二仍做断骨增高](https://www.share.kurohicncr.top/Article/details/7273186.shtml)
-- 2026-06-30 07:50 - [德国巴拉圭 折磨](https://www.blog.kurohicncr.top/Article/details/75576.shtml)
-- 2026-06-30 08:03 - [巴拉圭点球大战淘汰德国进16强](http://www.share.kurohicncr.top/Article/details/65631.shtml)
-- 2026-06-30 08:07 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/763196222876.shtml)
-- 2026-06-30 08:12 - [高质量发展看新疆](https://www.share.minike.top/Article/details/14715.shtml)
-- 2026-06-30 08:07 - [网红峡谷5人溺亡 有人提醒会下雨](https://www.blog.minike.top/Article/details/661683.shtml)
-- 2026-06-30 07:57 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/3694194.shtml)
-- 2026-06-30 07:54 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/864235222841.shtml)
-- 2026-06-30 08:03 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/0817604780.shtml)
+- 2026-06-30 08:04 - [森保一 保守](http://www.blog.kurohicncr.top/Article/details/171320949642.shtml)
+- 2026-06-30 08:14 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/857942.shtml)
+- 2026-06-30 08:23 - [感动全网的699分女生想报考清华](http://www.share.kurohicncr.top/Article/details/11621178.shtml)
+- 2026-06-30 08:22 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/11797741866.shtml)
+- 2026-06-30 08:00 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/820010649.shtml)
+- 2026-06-30 08:11 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/938386915900.shtml)
+- 2026-06-30 08:06 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/27193134.shtml)
+- 2026-06-30 08:17 - [峡谷事故团队组队时有人提醒会下雨](https://www.blog.minike.top/Article/details/827811.shtml)
+- 2026-06-30 08:04 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/85917619393.shtml)
+- 2026-06-30 08:20 - [女子遭下药退赔偿拟追刑责](https://www.share.kurohicncr.top/Article/details/676422401898.shtml)
+- 2026-06-30 07:54 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/32900.shtml)
+- 2026-06-30 08:02 - [Melo向柳智敏张元英道歉](https://www.blog.minike.top/Article/details/4487180017.shtml)
+- 2026-06-30 08:21 - [锐评T1战胜KC](https://www.share.kurohicncr.top/Article/details/96477679683.shtml)
+- 2026-06-30 08:07 - [郑钦文温网首轮出局](http://www.blog.minike.top/Article/details/430137508558.shtml)
+- 2026-06-30 08:10 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/543733710.shtml)

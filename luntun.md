@@ -1,56 +1,44 @@
-# 最高检联合中国残联发布残疾未成年人权益保护典型案例
+# “吒儿跃过泰坦尼克号” 《哪吒2》成为全球影史票房第四电影
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-中新网5月18日电 据最高检网站消息，近日，最高人民检察院联合中国残疾人联合会发布一批残疾未成年人权益保护典型案例。 7个案例分别为：立足高质效综合履职、维护残疾未成年人民事权益的李某甲交通事故赔偿支持起诉、民事执行监督案；紧盯专项资金落地、守护残疾学生教育权益的残疾未成年学生教育资助金公益诉讼案；着眼长远发展、以机制创新铺就逐梦之路的李某性侵案；发挥民事检察监督职能、维护残疾
+中新网4月8日电(记者 吴家驹)据票房数据网站BoxOfficeMojo统计，北京时间4月8日，《哪吒2》全球累计票房达到22.67亿美元，超过《泰坦尼克号》，成为全球影史票房第四的电影。
 
 ## 正文
 
-中新网5月18日电 据最高检网站消息，近日，最高人民检察院联合中国残疾人联合会发布一批残疾未成年人权益保护典型案例。
-
-7个案例分别为：立足高质效综合履职、维护残疾未成年人民事权益的李某甲交通事故赔偿支持起诉、民事执行监督案；紧盯专项资金落地、守护残疾学生教育权益的残疾未成年学生教育资助金公益诉讼案；着眼长远发展、以机制创新铺就逐梦之路的李某性侵案；发挥民事检察监督职能、维护残疾未成年人人身损害赔偿权的宋某某医疗损害责任纠纷民事检察监督抗诉案；跨越地域协同施策、多元联动救助的赵某乙被遗弃案；检察机关和残联组织全程联动、保障多残疾人家庭基本生活的赵某甲抚养费纠纷案；以及纾解因案致困残疾人家庭生活困难的孙某某诈骗再审抗诉案。
-
-此次发布的典型案例涵盖刑事、民事、行政、公益诉讼“四大检察”职能，聚焦残疾未成年人在交通事故赔偿、受教育权保障、遗弃救助、医疗损害追偿等领域的现实困境和依法维权所面临的痛点难点，旨在以高质效检察履职守护这一特殊群体的合法权益，是检察机关以法治力量回应民生关切的生动缩影。
-
-这批案例有两个鲜明特点。
-
-一是多部门协同作战，织密保护网。
-
-例如，在残疾未成年学生教育资助金公益诉讼案中，检察机关与残联共同建立“教育牵头、部门协同、检察监督”的长效机制，确保资助金精准“滴灌”到最需要的孩子身上。
-
-二是不止于解决眼前困难，更着眼残疾未成年人的长远发展。
-
-例如，在李某性侵案中，检察官了解到被侵害少女的特长及意愿后，联动残联为其组建“一对一成长培育专班”。
+中新网4月8日电(记者 吴家驹)据票房数据网站BoxOfficeMojo统计，北京时间4月8日，《哪吒2》全球累计票房达到22.67亿美元，超过《泰坦尼克号》，成为全球影史票房第四的电影。
 
 ## 相关推荐
 
-- 2026-06-30 08:06 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-30 08:05 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-30 07:51 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-30 08:00 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-30 07:50 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-30 08:09 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-30 08:01 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-30 07:54 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-30 08:17 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
-- 2026-06-30 08:13 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-30 08:12 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-30 07:54 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-30 07:57 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
+- 2026-06-30 08:22 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-30 08:16 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-30 07:55 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-30 07:55 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-30 08:00 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-30 08:07 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-30 08:19 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-30 08:01 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-30 08:01 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:14 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/93155.shtml)
-- 2026-06-30 07:51 - [德国淘汰](http://www.share.minike.top/Article/details/83280171.shtml)
-- 2026-06-30 08:03 - [点球大战](https://www.blog.minike.top/Article/details/047166314.shtml)
-- 2026-06-30 08:02 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/89704580962.shtml)
-- 2026-06-30 08:07 - [4000美元是黄金新一轮下跌的开始吗](http://www.share.kurohicncr.top/Article/details/69552985733.shtml)
-- 2026-06-30 08:12 - [金鹰奖视后提名预测](https://www.share.minike.top/Article/details/3673368.shtml)
-- 2026-06-30 08:17 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/671828.shtml)
-- 2026-06-30 08:17 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/8860390.shtml)
-- 2026-06-30 08:14 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/98793807.shtml)
-- 2026-06-30 08:02 - [莫兰特转投开拓者效力](https://www.share.minike.top/Article/details/86698361.shtml)
-- 2026-06-30 07:53 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/3832015.shtml)
-- 2026-06-30 08:12 - [马耳他著名拱门坍塌致一中国男子身亡](http://www.blog.kurohicncr.top/Article/details/638599102.shtml)
-- 2026-06-30 08:08 - [这几秒成世界杯最值钱广告位](https://www.blog.minike.top/Article/details/05522.shtml)
-- 2026-06-30 08:05 - [德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/59344679.shtml)
-- 2026-06-30 08:16 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/3122919668.shtml)
+- 2026-06-30 07:55 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/1804220.shtml)
+- 2026-06-30 08:19 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/71492.shtml)
+- 2026-06-30 08:04 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/0703585.shtml)
+- 2026-06-30 08:03 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.minike.top/Article/details/2371726.shtml)
+- 2026-06-30 08:14 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/26581089.shtml)
+- 2026-06-30 07:57 - [本届世界杯已有5名球员被控强奸](https://www.share.minike.top/Article/details/052063019896.shtml)
+- 2026-06-30 08:14 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/61697.shtml)
+- 2026-06-30 08:01 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/00832068927.shtml)
+- 2026-06-30 08:05 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/31863.shtml)
+- 2026-06-30 08:00 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/37685377.shtml)
+- 2026-06-30 08:18 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/933923177221.shtml)
+- 2026-06-30 08:18 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.minike.top/Article/details/38486400.shtml)
+- 2026-06-30 08:11 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/5206612.shtml)
+- 2026-06-30 08:04 - [峡谷事故团队组队时有人提醒会下雨](http://www.blog.minike.top/Article/details/48366.shtml)
+- 2026-06-30 08:06 - [美股](http://www.share.kurohicncr.top/Article/details/1477835.shtml)

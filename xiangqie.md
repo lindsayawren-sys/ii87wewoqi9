@@ -1,56 +1,55 @@
-# AI进入“结果交付时代”，百度率先跨过价值拐点
+# 大雾黄色预警：京津冀等9省市部分地区有大雾 局地有浓雾
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-昨日晚间，百度发布2026年第一季度财报。季度总营收321亿元，其中百度一般性业务收入260亿元，同比增长2%，超出市场预期。更具标志性意义的是，百度核心AI新业务收入达136亿元，占一般性业务收入的52%，同比增长49%，首次过半。 对于此次财报发布，百度创始人李彦宏点评道：“AI业务收入占比的首次过半，标志着AI已成为百度的核心驱动力。”百度首席财务官何海健同样指出，这是一
+中国天气网讯 中央气象台4月9日18时继续发布大雾黄色预警： 预计，4月9日夜间至10日上午，渤海、渤海海峡、黄海北部和西部海域、东海西北部海域、长江口附近海域将有能见度不足1公里的大雾。此外，河北中南部、北京南部、天津西部、河南东北部、山东西部和北部、江苏北部、安徽中南部、湖北东部、湖南东北部等地的部分地区有大雾天气，局地有能见度不足500米的浓雾。 防御指南： 1、由于陆地
 
 ## 正文
 
-昨日晚间，百度发布2026年第一季度财报。
+中国天气网讯 中央气象台4月9日18时继续发布大雾黄色预警： 预计，4月9日夜间至10日上午，渤海、渤海海峡、黄海北部和西部海域、东海西北部海域、长江口附近海域将有能见度不足1公里的大雾。
 
-季度总营收321亿元，其中百度一般性业务收入260亿元，同比增长2%，超出市场预期。
+此外，河北中南部、北京南部、天津西部、河南东北部、山东西部和北部、江苏北部、安徽中南部、湖北东部、湖南东北部等地的部分地区有大雾天气，局地有能见度不足500米的浓雾。
 
-更具标志性意义的是，百度核心AI新业务收入达136亿元，占一般性业务收入的52%，同比增长49%，首次过半。
+防御指南： 1、由于陆地能见度较低，驾驶人员应控制速度，确保安全。
 
-对于此次财报发布，百度创始人李彦宏点评道：“AI业务收入占比的首次过半，标志着AI已成为百度的核心驱动力。
+2、机场、高速公路、轮渡码头采取措施，保障交通安全。
 
-”百度首席财务官何海健同样指出，这是一个重要的里程碑，“既体现了AI技术对公司贡献的持续提升，也说明我们的收入结构正在变得更加多元化。
-
-” 当行业仍在争论大模型参数与算力规模时，百度开始用财务数据证明：AI的竞争正从“模型能力”转向“结果交付”。
-
-收入结构质变：AI业务占比过半，利润率进入扩张通道 此次财报发布，清晰呈现出了百度收入结构的根本性转向。
-
-2026年第一季度，百度核心AI新业务收入136亿元，在一般性业务中的占比从2025年第一季度的36%跃升至52%，连续多个季度保持增长态势。
+3、航行、作业的船舶应加强瞭望，控制航速，保持航行安全距离，谨慎驾驶，确保航行安全。
 
 ## 相关推荐
 
-- 2026-06-30 08:11 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-30 08:14 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
-- 2026-06-30 08:13 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-30 07:59 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-30 08:09 - [日本五次世界杯淘汰赛全败](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-30 08:16 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-30 07:57 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-30 08:06 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-30 08:02 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
-- 2026-06-30 07:56 - [巴拉圭率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-30 07:56 - [森保一致歉：世界第一目标没能实现](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-30 08:02 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-30 08:14 - [二次元提前预演明日巴西对日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-30 08:01 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-30 08:20 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-30 08:17 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-30 08:12 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-30 08:07 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
+- 2026-06-30 08:11 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
+- 2026-06-30 07:56 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-30 07:58 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-30 08:13 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
+- 2026-06-30 07:59 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-30 07:54 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
+- 2026-06-30 08:19 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:51 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/313416.shtml)
-- 2026-06-30 08:11 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/24883039.shtml)
-- 2026-06-30 08:00 - [郑钦文温网一轮游](http://www.share.minike.top/Article/details/83237134170.shtml)
-- 2026-06-30 07:57 - [德国进球被吹](https://www.blog.minike.top/Article/details/4535329827.shtml)
-- 2026-06-30 07:49 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/84594756515.shtml)
-- 2026-06-30 08:08 - [网瘾賊大的阿嬷](http://www.blog.kurohicncr.top/Article/details/1643315539.shtml)
-- 2026-06-30 07:58 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/872685915167.shtml)
-- 2026-06-30 08:02 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/13556681219.shtml)
-- 2026-06-30 08:09 - [花少8要去世界杯举办国](http://www.share.kurohicncr.top/Article/details/19957.shtml)
-- 2026-06-30 08:03 - [巴拉圭点球大战淘汰德国进16强](https://www.share.minike.top/Article/details/330589.shtml)
-- 2026-06-30 07:55 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.minike.top/Article/details/03115267454.shtml)
-- 2026-06-30 07:59 - [Melo向柳智敏张元英道歉](http://www.blog.kurohicncr.top/Article/details/799921167525.shtml)
-- 2026-06-30 07:49 - [张月感谢了每一公的队友](https://www.share.minike.top/Article/details/85854711640.shtml)
-- 2026-06-30 08:10 - [媒体评泰山建135公里刀片刺绳隔离网](http://www.blog.kurohicncr.top/Article/details/747300383.shtml)
-- 2026-06-30 08:15 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.minike.top/Article/details/608507375.shtml)
+- 2026-06-30 08:03 - [斛珠夫人](http://www.blog.minike.top/Article/details/722239073127.shtml)
+- 2026-06-30 08:23 - [点球大战 残酷](https://www.share.kurohicncr.top/Article/details/406173563.shtml)
+- 2026-06-30 08:00 - [佐野海舟远射破门](http://www.blog.minike.top/Article/details/48589194.shtml)
+- 2026-06-30 07:56 - [峡谷事故团队组队时有人提醒会下雨](https://www.share.kurohicncr.top/Article/details/65926514729.shtml)
+- 2026-06-30 07:55 - [巴拉圭先进球了](http://www.blog.minike.top/Article/details/109687868.shtml)
+- 2026-06-30 07:57 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.kurohicncr.top/Article/details/359180.shtml)
+- 2026-06-30 07:57 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/2027821752.shtml)
+- 2026-06-30 08:17 - [千与千寻](http://www.share.kurohicncr.top/Article/details/9110955796.shtml)
+- 2026-06-30 08:08 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/025277718977.shtml)
+- 2026-06-30 08:17 - [问心2神一集鬼三集](https://www.share.kurohicncr.top/Article/details/359481045600.shtml)
+- 2026-06-30 07:55 - [森保一致歉：世界第一目标没能实现](https://www.blog.minike.top/Article/details/90000825.shtml)
+- 2026-06-30 08:19 - [世界杯：德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/282508440422.shtml)
+- 2026-06-30 08:04 - [曝詹姆斯即将与勇士会面](http://www.share.kurohicncr.top/Article/details/90775324.shtml)
+- 2026-06-30 08:14 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/685185748122.shtml)
+- 2026-06-30 08:16 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/298844.shtml)

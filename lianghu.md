@@ -1,50 +1,52 @@
-# 美国电价飙升美国电价飙升背后原因
+# 里昂：升上海医药目标价至15.2港元 评级“跑赢大市”
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-来源：@央视财经微博 【#美国电价飙升##美国电价飙升背后原因#】美国一家分析机构近日发布的报告显示，今年一季度，美国区域输电组织PJM的批发电价同比上涨超过70%。电价上涨加重了民众生活负担，据美联社报道，目前美国至少有六个州的官员已着手阻止电力企业上调电价。国际能源价格飙升以及数据中心用电需求激增等成为主要推动因素，多家美国电力企业纷纷宣布上调电价。例如费城电力公司日前表示
+里昂发布研报称，上海医药（02607） 2025财年收入2，836亿元人民币，同比增加3%，净利润57.3亿元人民币，同比增加25.7%，均与市场预期基本一致。中药一直是公司生产业务的核心驱动力，公司将继续优先发展创新药物研发以推动增长。该行将其目标价由14.2港元上调至15.2港元，维持“跑赢大市”评级。责任编辑：史丽君
 
 ## 正文
 
-来源：@央视财经微博 【#美国电价飙升##美国电价飙升背后原因#】美国一家分析机构近日发布的报告显示，今年一季度，美国区域输电组织PJM的批发电价同比上涨超过70%。
+里昂发布研报称，上海医药（02607） 2025财年收入2，836亿元人民币，同比增加3%，净利润57.3亿元人民币，同比增加25.7%，均与市场预期基本一致。
 
-电价上涨加重了民众生活负担，据美联社报道，目前美国至少有六个州的官员已着手阻止电力企业上调电价。
+中药一直是公司生产业务的核心驱动力，公司将继续优先发展创新药物研发以推动增长。
 
-国际能源价格飙升以及数据中心用电需求激增等成为主要推动因素，多家美国电力企业纷纷宣布上调电价。
+该行将其目标价由14.2港元上调至15.2港元，维持“跑赢大市”评级。
 
-例如费城电力公司日前表示，计划将电价上调12.5%，分析认为，这一调价方案意味着普通居民每月电费平均会增加20美元（约合人民币136元）。
-
-有消费维权 【下载黑猫投诉客户端】人士称，虽然确实存在能源价格走高和用电需求增长的因素，但部分电力企业借此谋求更高利润，电价上涨幅度明显过高。
+责任编辑：史丽君
 
 ## 相关推荐
 
-- 2026-06-30 08:10 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-30 08:01 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-30 08:17 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
-- 2026-06-30 08:01 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-30 08:10 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-30 08:11 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-30 08:14 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-30 08:03 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-30 08:13 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-30 08:05 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
+- 2026-06-30 08:04 - [现在叛逆期的孩子最怕的是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-30 08:09 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-30 08:13 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-30 08:11 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
+- 2026-06-30 08:08 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-30 08:05 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-30 07:57 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-30 08:11 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-30 08:22 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-30 08:09 - [诺伊尔尽力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-30 08:12 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-30 08:13 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-30 08:05 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-30 08:19 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:54 - [日本进球](https://www.blog.minike.top/Article/details/58116074104.shtml)
-- 2026-06-30 07:51 - [金鹰奖视后提名预测](https://www.share.kurohicncr.top/Article/details/15629201615.shtml)
-- 2026-06-30 07:53 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.kurohicncr.top/Article/details/159268700.shtml)
-- 2026-06-30 08:09 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/68950.shtml)
-- 2026-06-30 07:58 - [巴西足球能否再现昔日荣光](https://www.blog.kurohicncr.top/Article/details/574222.shtml)
-- 2026-06-30 08:00 - [巴拉圭进球](https://www.blog.minike.top/Article/details/697442961869.shtml)
-- 2026-06-30 08:15 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/479272632.shtml)
-- 2026-06-30 07:57 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/37747717.shtml)
-- 2026-06-30 07:55 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/4846065.shtml)
-- 2026-06-30 08:02 - [被巴西绝杀后 日球员田中碧跪地痛哭](http://www.blog.kurohicncr.top/Article/details/847059.shtml)
-- 2026-06-30 08:09 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/73621.shtml)
-- 2026-06-30 08:09 - [森保一 保守](https://www.blog.minike.top/Article/details/306273.shtml)
-- 2026-06-30 08:12 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/15557.shtml)
-- 2026-06-30 08:14 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/3666667.shtml)
-- 2026-06-30 08:15 - [啊啊啊](http://www.share.minike.top/Article/details/2507742040.shtml)
+- 2026-06-30 08:05 - [周生如故](https://www.share.kurohicncr.top/Article/details/584620.shtml)
+- 2026-06-30 08:13 - [世界杯“美洲德比”7月1日开打](https://www.share.kurohicncr.top/Article/details/92553873675.shtml)
+- 2026-06-30 08:06 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/233516.shtml)
+- 2026-06-30 08:18 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/59004919.shtml)
+- 2026-06-30 07:55 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/4011377332.shtml)
+- 2026-06-30 08:22 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/258234677896.shtml)
+- 2026-06-30 07:58 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/95210.shtml)
+- 2026-06-30 08:10 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/3903454064.shtml)
+- 2026-06-30 07:54 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](http://www.blog.minike.top/Article/details/057632215.shtml)
+- 2026-06-30 08:19 - [千与千寻](https://www.share.kurohicncr.top/Article/details/3045623.shtml)
+- 2026-06-30 08:13 - [流金岁月](http://www.blog.minike.top/Article/details/23805.shtml)
+- 2026-06-30 08:21 - [詹姆斯下赛季去哪](https://www.blog.minike.top/Article/details/18285.shtml)
+- 2026-06-30 07:59 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/613031483790.shtml)
+- 2026-06-30 08:22 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/2556307993.shtml)
+- 2026-06-30 07:54 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/911459097063.shtml)

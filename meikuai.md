@@ -1,52 +1,53 @@
-# 马斯克预计今年美国将广泛使用自动驾驶汽车
+# 四部门部署规范动力及储能电池行业竞争秩序
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-埃隆·马斯克周一表示，他预计今年晚些时候，无需人类驾驶的自动驾驶汽车将在美国更加普及。 马斯克通过视频连线在特拉维夫举行的“智能出行峰会”上发言时称，得克萨斯州的三个城市已有无人驾驶汽车在没有安全监视员的情况下运行，并补充说今年这一模式将扩展至全美。 “五年后，甚至十年后……大概90%的行驶里程都将由自动驾驶汽车中的人工智能来完成，”他说，“因此，十年后，亲自驾驶汽车将成为一种
+新华社北京4月9日电(记者周圆)4月9日，工业和信息化部、国家发展改革委、市场监管总局、国家能源局相关司局联合召开动力及储能电池行业企业座谈会，部署规范产业竞争秩序相关工作。 会议提出，要深刻认识治理“内卷式”竞争的重要性和紧迫性，坚决抵制不合理、不正当竞争行为，维护健康有序市场环境。持续深入推进产能预警调控、规范价格竞争、压缩供应商账期、加强产品质量监管、打击知识产权侵权、治
 
 ## 正文
 
-埃隆·马斯克周一表示，他预计今年晚些时候，无需人类驾驶的自动驾驶汽车将在美国更加普及。
+新华社北京4月9日电(记者周圆)4月9日，工业和信息化部、国家发展改革委、市场监管总局、国家能源局相关司局联合召开动力及储能电池行业企业座谈会，部署规范产业竞争秩序相关工作。
 
-马斯克通过视频连线在特拉维夫举行的“智能出行峰会”上发言时称，得克萨斯州的三个城市已有无人驾驶汽车在没有安全监视员的情况下运行，并补充说今年这一模式将扩展至全美。
+会议提出，要深刻认识治理“内卷式”竞争的重要性和紧迫性，坚决抵制不合理、不正当竞争行为，维护健康有序市场环境。
 
-“五年后，甚至十年后……大概90%的行驶里程都将由自动驾驶汽车中的人工智能来完成，”他说，“因此，十年后，亲自驾驶汽车将成为一种相当小众的行为。
+持续深入推进产能预警调控、规范价格竞争、压缩供应商账期、加强产品质量监管、打击知识产权侵权、治理“内卷外化”等工作，并对地方招商引资行为予以规范引导。
 
-”责任编辑：王永生
+此外，会议还讨论了动力及储能电池行业非理性竞争负面行为清单。
 
 ## 相关推荐
 
-- 2026-06-30 07:57 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
-- 2026-06-30 08:12 - [网友写差评被店家“挂”门口避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-30 08:15 - [4000美元是黄金新一轮下跌的开始吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-30 07:49 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-30 08:06 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-30 07:53 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
-- 2026-06-30 07:59 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-30 08:07 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-30 08:03 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-30 08:08 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-30 07:59 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-30 08:01 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-30 08:14 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-30 07:58 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-30 07:55 - [媒体：手机测评该挤挤水分了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-30 08:03 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-30 08:13 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
+- 2026-06-30 08:10 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
+- 2026-06-30 08:23 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-30 08:04 - [曝老詹对自由市场态度与以往截然不同](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-30 08:15 - [莫兰特被交易到开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-30 08:20 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-30 08:17 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-30 08:20 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-30 08:12 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-30 08:13 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-30 08:16 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
+- 2026-06-30 08:01 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-30 07:58 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:51 - [巴拉圭先进球了](https://www.blog.kurohicncr.top/Article/details/6752952779.shtml)
-- 2026-06-30 08:15 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/08748655933.shtml)
-- 2026-06-30 08:10 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/83723622452.shtml)
-- 2026-06-30 08:17 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/20752.shtml)
-- 2026-06-30 08:05 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/503369732039.shtml)
-- 2026-06-30 08:03 - [詹姆斯 勇士](http://www.share.kurohicncr.top/Article/details/156650.shtml)
-- 2026-06-30 08:10 - [巴西醒醒 这是淘汰赛](https://www.blog.minike.top/Article/details/234382.shtml)
-- 2026-06-30 07:55 - [一见倾心](http://www.share.kurohicncr.top/Article/details/25645104908.shtml)
-- 2026-06-30 08:09 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/45593041570.shtml)
-- 2026-06-30 08:11 - [曝灰熊将莫兰特交易至开拓者](https://www.blog.minike.top/Article/details/35348.shtml)
-- 2026-06-30 07:55 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/8490620.shtml)
-- 2026-06-30 07:55 - [全球芯片巨头史诗级扩产](http://www.share.minike.top/Article/details/9233847712.shtml)
-- 2026-06-30 08:06 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/056229.shtml)
-- 2026-06-30 08:08 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/6429242.shtml)
-- 2026-06-30 08:17 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/322174.shtml)
+- 2026-06-30 08:23 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/85748018.shtml)
+- 2026-06-30 08:08 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/4734776.shtml)
+- 2026-06-30 08:00 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/77223153855.shtml)
+- 2026-06-30 07:54 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/54972614.shtml)
+- 2026-06-30 07:59 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/36406.shtml)
+- 2026-06-30 08:09 - [德国巴拉圭 折磨](https://www.share.kurohicncr.top/Article/details/18466.shtml)
+- 2026-06-30 08:16 - [歌剧老师锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/23011.shtml)
+- 2026-06-30 08:20 - [王健林甩卖超80座万达广场](http://www.blog.minike.top/Article/details/05459.shtml)
+- 2026-06-30 08:12 - [巴西半场0比1日本](http://www.share.kurohicncr.top/Article/details/3935291.shtml)
+- 2026-06-30 08:04 - [达美乐运输面团时被雨淋到 客服回应](http://www.share.kurohicncr.top/Article/details/0505449462.shtml)
+- 2026-06-30 08:20 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/04591.shtml)
+- 2026-06-30 08:01 - [网红峡谷5人溺亡 有人提醒会下雨](http://www.share.minike.top/Article/details/83582274435.shtml)
+- 2026-06-30 07:57 - [库尼亚赛后伸五指嘲讽日本](http://www.blog.kurohicncr.top/Article/details/7075054185.shtml)
+- 2026-06-30 07:58 - [德国连续三届世界杯无缘16强](https://www.share.kurohicncr.top/Article/details/352364458.shtml)
+- 2026-06-30 07:58 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/38063045.shtml)

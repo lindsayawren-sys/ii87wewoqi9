@@ -1,61 +1,48 @@
-# 辛纳获罗马大师赛冠军 成史上最年轻“金大师”
+# 徐梦桃谈六战冬奥会：要有信心和恒心
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-中新社北京5月18日电 当地时间17日进行的男子职业网球选手协会(ATP)1000罗马大师赛男单决赛中，意大利名将、世界排名第一的辛纳以2:0战胜赛会23号种子、挪威选手鲁德，首夺赛会冠军，并成为历史上最年轻获得“金大师”(即职业生涯集齐全部九站ATP1000大师赛冠军)荣誉的球员。辛纳和鲁德此前交手四次，辛纳均直落两盘获胜。本次比赛，鲁德开局即通过多拍回合以及放小球与辛纳展开
+发布时间：2026年04月08日 10:30 来源：中国新闻网 在4月7日接受中国新闻网采访时，自由式滑雪空中技巧奥运冠军、五战冬奥的老将徐梦桃谈到了2030年法国阿尔卑斯冬奥会的备战，她表示，首先要收心，其次要有决心、信心和恒心！(记者 刘星晨） 责任编辑：【岳川】
 
 ## 正文
 
-中新社北京5月18日电 当地时间17日进行的男子职业网球选手协会(ATP)1000罗马大师赛男单决赛中，意大利名将、世界排名第一的辛纳以2:0战胜赛会23号种子、挪威选手鲁德，首夺赛会冠军，并成为历史上最年轻获得“金大师”(即职业生涯集齐全部九站ATP1000大师赛冠军)荣誉的球员。
+发布时间：2026年04月08日 10:30 来源：中国新闻网 在4月7日接受中国新闻网采访时，自由式滑雪空中技巧奥运冠军、五战冬奥的老将徐梦桃谈到了2030年法国阿尔卑斯冬奥会的备战，她表示，首先要收心，其次要有决心、信心和恒心！
 
-辛纳和鲁德此前交手四次，辛纳均直落两盘获胜。
-
-本次比赛，鲁德开局即通过多拍回合以及放小球与辛纳展开对抗，在第二局率先破发，辛纳随之回破。
-
-双方战至4:4平后，辛纳在第九局凭借精准放小球成功兑现第二个破发点，之后顺势保发，以6:4拿下首盘。
-
-第二盘，辛纳率先破发，尽管在第八局因为高压球失误送出破发点，但在关键时刻凭借强势发球顽强保发，以6:4获胜。
-
-凭借罗马大师赛的冠军，辛纳豪取ATP1000大师赛34连胜，斩获职业生涯巡回赛第29个冠军。
-
-他成为继24个大满贯冠军德约科维奇之后，历史上第二位集齐全部九站大师赛冠军的“金大师”，也是史上首位连续夺得六站大师赛冠军的选手。
-
-此外，2001年出生的辛纳还是1976年后首位夺得赛会单打冠军的意大利本土选手。
+(记者 刘星晨） 责任编辑：【岳川】
 
 ## 相关推荐
 
-- 2026-06-30 08:02 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
-- 2026-06-30 07:56 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
-- 2026-06-30 08:13 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-30 08:06 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-30 08:12 - [男子在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-30 07:53 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-30 07:59 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-30 08:12 - [德国爆冷点球大战不敌巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-30 07:51 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
-- 2026-06-30 08:07 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-30 08:15 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-30 08:06 - [世界杯巴拉圭点球淘汰德国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
-- 2026-06-30 07:50 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-30 08:16 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
-- 2026-06-30 07:50 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-30 08:04 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
+- 2026-06-30 08:22 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-30 08:03 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-30 08:16 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-30 07:56 - [勇士续约波尔津吉斯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-30 07:57 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
+- 2026-06-30 08:16 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-30 08:10 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-30 08:22 - [巴拉圭进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-30 08:05 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-30 08:03 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
+- 2026-06-30 08:05 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-30 07:54 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-30 08:10 - [周冬雨多次说演不了话剧文城](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:00 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/051592662154.shtml)
-- 2026-06-30 07:51 - [卡塞米罗头球破门 巴西扳平日本](https://www.share.kurohicncr.top/Article/details/06675670.shtml)
-- 2026-06-30 08:12 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/644207932370.shtml)
-- 2026-06-30 08:16 - [德国连续三届世界杯无缘16强](https://www.blog.minike.top/Article/details/29295.shtml)
-- 2026-06-30 07:55 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/1775390177.shtml)
-- 2026-06-30 08:04 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/001595531556.shtml)
-- 2026-06-30 08:17 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/9878754078.shtml)
-- 2026-06-30 07:52 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/7188152200.shtml)
-- 2026-06-30 08:14 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/36716494.shtml)
-- 2026-06-30 08:07 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/3592263.shtml)
-- 2026-06-30 08:13 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/265789.shtml)
-- 2026-06-30 08:04 - [庆祝中国共产党成立105周年大会将举行](http://www.share.minike.top/Article/details/5220190712.shtml)
-- 2026-06-30 07:49 - [孙兴慜发长文致歉](https://www.share.kurohicncr.top/Article/details/042216136921.shtml)
-- 2026-06-30 07:58 - [亚洲球队全部出局](https://www.share.minike.top/Article/details/42632752620.shtml)
-- 2026-06-30 08:09 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/862938.shtml)
+- 2026-06-30 07:55 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.kurohicncr.top/Article/details/6387284.shtml)
+- 2026-06-30 08:06 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/6413786.shtml)
+- 2026-06-30 08:22 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/1699558211.shtml)
+- 2026-06-30 07:58 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/76692200524.shtml)
+- 2026-06-30 08:15 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/983447933.shtml)
+- 2026-06-30 08:04 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/69588.shtml)
+- 2026-06-30 08:07 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/939870.shtml)
+- 2026-06-30 08:13 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/359135864049.shtml)
+- 2026-06-30 08:01 - [杨紫获白玉兰视后争议不止](https://www.blog.kurohicncr.top/Article/details/095316461355.shtml)
+- 2026-06-30 08:10 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/6219760.shtml)
+- 2026-06-30 08:19 - [人类...完蛋了...](http://www.share.kurohicncr.top/Article/details/24288.shtml)
+- 2026-06-30 08:13 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.kurohicncr.top/Article/details/78466286.shtml)
+- 2026-06-30 08:19 - [感动全网的699分女生想报考清华](https://www.blog.minike.top/Article/details/83638591815.shtml)
+- 2026-06-30 07:54 - [现在叛逆期的孩子最怕的是什么？](https://www.blog.minike.top/Article/details/80211026.shtml)
+- 2026-06-30 08:14 - [建议不要突然完全停止喝咖啡](https://www.share.minike.top/Article/details/615452197.shtml)

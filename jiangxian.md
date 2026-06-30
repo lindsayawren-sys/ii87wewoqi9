@@ -1,55 +1,56 @@
-# 中国第42次南极考察队“雪龙2”号凯旋
+# 孩子减重路上有哪些“绊脚石”？如何不减营养只减“多余能量”？｜五健“童”行向未来
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-中新社上海5月18日电 5月18日，“雪龙2”号极地科考破冰船返回国内抵达上海，标志着中国第42次南极考察圆满结束。 本次南极考察由中国自然资源部组织，由“雪龙”号和“雪龙2”号两船共同保障，于2025年11月1日从上海同时出发。“雪龙”号于2026年4月9日返回，历时160天，总航程3.4万余海里。“雪龙2”号在完成南极普里兹湾“秋季南大洋生态系统”联合航次任务后，于2026
+孩子：“妈妈，我想喝奶茶！” 妈妈：“不行，太甜了。” 孩子：“就一次嘛，同学都喝……” 妈妈：“好吧，只喝这一次。” 这样的场景，不少家长都经历过。家长常常陷入两难：拒绝孩子喝奶茶，孩子会哭闹；同意孩子喝奶茶，心里又隐隐担心会引发孩子肥胖。 在儿童科学减重的路上，真正的“绊脚石”往往藏在三餐之间，尤其是那些不起眼的零食。 一杯500毫升的奶茶，含糖量高达50克，相当于10~1
 
 ## 正文
 
-中新社上海5月18日电 5月18日，“雪龙2”号极地科考破冰船返回国内抵达上海，标志着中国第42次南极考察圆满结束。
+孩子：“妈妈，我想喝奶茶！
 
-本次南极考察由中国自然资源部组织，由“雪龙”号和“雪龙2”号两船共同保障，于2025年11月1日从上海同时出发。
+” 妈妈：“不行，太甜了。
 
-“雪龙”号于2026年4月9日返回，历时160天，总航程3.4万余海里。
+” 孩子：“就一次嘛，同学都喝……” 妈妈：“好吧，只喝这一次。
 
-“雪龙2”号在完成南极普里兹湾“秋季南大洋生态系统”联合航次任务后，于2026年5月18日返回，历时199天，总航程约3.5万海里。
+” 这样的场景，不少家长都经历过。
 
-中国第42次南极考察由来自国内外125家单位的550名队员组成，考察人员规模、常规物资量和任务量等再创新高，考察队克服复杂冰情、恶劣海况、大风和低温等多重困难，取得丰硕考察成果。
+家长常常陷入两难：拒绝孩子喝奶茶，孩子会哭闹；同意孩子喝奶茶，心里又隐隐担心会引发孩子肥胖。
 
-本次考察是中国在“十五五”开局之年实施完成的重要科学考察，在重大项目建设、科研调查监测、自主装备测试应用、国际合作等方面取得了新突破，为中国和国际社会深入研究南极快速变化、有效应对全球气候变化、积极参与南极治理提供了有力支撑。
+在儿童科学减重的路上，真正的“绊脚石”往往藏在三餐之间，尤其是那些不起眼的零食。
 
-(完)
+一杯500毫升的奶茶，含糖量高达50克，相当于10~12块方糖。
+
+而6~10岁的孩子每日添加糖推荐量仅为20~25克，一杯奶茶就“超标”了一倍。
 
 ## 相关推荐
 
-- 2026-06-30 07:57 - [王楚钦孙颖莎晋级混双八强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-30 07:53 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-30 08:03 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-30 07:52 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
-- 2026-06-30 08:11 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-30 08:00 - [IGN评测电影版后室](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
-- 2026-06-30 08:10 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-30 07:54 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-30 08:14 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
-- 2026-06-30 08:03 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-30 08:11 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
+- 2026-06-30 08:12 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-30 08:04 - [全新问界M9现身美国街头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
+- 2026-06-30 08:06 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-30 08:20 - [巴西绝杀日本：漫画般结局换了主角](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-30 08:12 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-30 08:00 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-30 08:23 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-30 08:15 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-30 08:00 - [巴西足球能否再现昔日荣光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-30 08:20 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:56 - [恋与深空道歉声明](https://www.blog.kurohicncr.top/Article/details/7559487766.shtml)
-- 2026-06-30 08:15 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.kurohicncr.top/Article/details/0962572984.shtml)
-- 2026-06-30 08:07 - [曝詹姆斯即将与勇士会面](https://www.blog.minike.top/Article/details/4641745.shtml)
-- 2026-06-30 08:17 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/21122047559.shtml)
-- 2026-06-30 08:02 - [张帅晋级温网次轮](https://www.blog.kurohicncr.top/Article/details/03423290.shtml)
-- 2026-06-30 08:07 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/39697.shtml)
-- 2026-06-30 08:07 - [齐思钧回复张月](https://www.blog.kurohicncr.top/Article/details/157163.shtml)
-- 2026-06-30 07:53 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/90966346.shtml)
-- 2026-06-30 07:52 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/87291692.shtml)
-- 2026-06-30 08:02 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.blog.minike.top/Article/details/346587890907.shtml)
-- 2026-06-30 08:02 - [如何改变自己太负责任的性格?](https://www.blog.kurohicncr.top/Article/details/4712586.shtml)
-- 2026-06-30 07:49 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/0652783.shtml)
-- 2026-06-30 08:17 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/56931085.shtml)
-- 2026-06-30 07:52 - [《男人至死是傻得儿》](http://www.share.minike.top/Article/details/201935639260.shtml)
-- 2026-06-30 08:02 - [好像看到了人类带孩子崩溃的样子](https://www.share.minike.top/Article/details/3546180.shtml)
+- 2026-06-30 08:05 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/3541941392.shtml)
+- 2026-06-30 08:07 - [森保一 保守](http://www.share.minike.top/Article/details/9672958718.shtml)
+- 2026-06-30 07:56 - [免费试吃发差评被店家挂店门避雷](http://www.blog.minike.top/Article/details/5797650264.shtml)
+- 2026-06-30 08:02 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/62407043.shtml)
+- 2026-06-30 08:03 - [巴拉圭先进球了](http://www.blog.minike.top/Article/details/90501916763.shtml)
+- 2026-06-30 08:07 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/22235110334.shtml)
+- 2026-06-30 08:16 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.kurohicncr.top/Article/details/324863939.shtml)
+- 2026-06-30 07:55 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/8639075.shtml)
+- 2026-06-30 08:12 - [德国 传控](https://www.share.kurohicncr.top/Article/details/413778152.shtml)
+- 2026-06-30 08:21 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/1990449.shtml)
+- 2026-06-30 08:17 - [孙兴慜发长文致歉](http://www.share.kurohicncr.top/Article/details/546184.shtml)
+- 2026-06-30 07:54 - [巴西半场0比1日本](http://www.blog.minike.top/Article/details/977275.shtml)
+- 2026-06-30 08:07 - [德国4比5巴拉圭](http://www.share.minike.top/Article/details/990283326.shtml)
+- 2026-06-30 08:14 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/67059207221.shtml)
+- 2026-06-30 08:10 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.blog.minike.top/Article/details/77696721501.shtml)

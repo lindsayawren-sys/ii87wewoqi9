@@ -1,57 +1,57 @@
-# 策略师警示市场停滞迹象
+# 起亚计划到2030年在设施和研发方面投入330亿美元
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-尽管SPDR标普500 ETF信托基金仍处于高位附近，技术面却显示在长期收益率上升和每股收益预期下调的背景下，市场出现早期疲态。策略师指出，推动指数上涨的股票范围正在收窄，宽度指标出现恶化迹象。长期收益率的攀升对金融、公用事业等板块形成支撑，但正在侵蚀科技和消费类股票的高估值。盈利预期的下调往往滞后于股价表现，若趋势持续，可能触发更广泛的回调。投资者被建议关注防御性板块并适当降
+韩国起亚汽车公司周四表示，计划到2030年在设施和研发方面投入49万亿韩元（约合330亿美元），以加强其在未来出行领域的地位。 该公司在一份声明中表示，2026-2030年的计划投资比上一个五年计划增加了7万亿韩元，其中43%将用于电气化、自动驾驶和机器人技术。 起亚计划将其电动汽车产品阵容从2026年的11款车型扩展至2030年的14款，目标是在全球电动汽车销量达到100万辆
 
 ## 正文
 
-尽管SPDR标普500 ETF信托基金仍处于高位附近，技术面却显示在长期收益率上升和每股收益预期下调的背景下，市场出现早期疲态。
+韩国起亚汽车公司周四表示，计划到2030年在设施和研发方面投入49万亿韩元（约合330亿美元），以加强其在未来出行领域的地位。
 
-策略师指出，推动指数上涨的股票范围正在收窄，宽度指标出现恶化迹象。
+该公司在一份声明中表示，2026-2030年的计划投资比上一个五年计划增加了7万亿韩元，其中43%将用于电气化、自动驾驶和机器人技术。
 
-长期收益率的攀升对金融、公用事业等板块形成支撑，但正在侵蚀科技和消费类股票的高估值。
+起亚计划将其电动汽车产品阵容从2026年的11款车型扩展至2030年的14款，目标是在全球电动汽车销量达到100万辆，尽管行业增长持续放缓。
 
-盈利预期的下调往往滞后于股价表现，若趋势持续，可能触发更广泛的回调。
+与此同时，该公司将继续拓展其内燃机和混合动力汽车（HEV）产品线，以弥补电动汽车需求的疲软。
 
-投资者被建议关注防御性板块并适当降低仓位。
+混合动力汽车包括传统汽油混合动力车型和插电式混合动力车型。
 
-责任编辑：张俊 SF065
+在自动驾驶领域，起亚计划于2027年推出首款软件定义车辆（SDV），该车辆将具备L2级高速公路驾驶能力。
+
+到2029年初，该公司计划部署增强型L2++系统，使其能够在高速公路和城市道路上运行。
+
+L2级系统要求驾驶员保持专注，持续监控路况，并随时准备接管车辆控制权。
 
 ## 相关推荐
 
-- 2026-06-30 07:56 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-30 07:48 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-30 08:15 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-30 08:07 - [森保一 保守](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
-- 2026-06-30 08:11 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-30 08:15 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
-- 2026-06-30 07:50 - [巴拉圭进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
-- 2026-06-30 07:58 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-30 08:14 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-30 08:02 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-30 07:57 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-30 08:06 - [德国队世界杯点球大战首败](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-30 07:48 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
-- 2026-06-30 07:57 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-30 08:05 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-30 08:11 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-30 07:58 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
+- 2026-06-30 08:03 - [德国爆冷点球大战不敌巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-30 08:15 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-30 07:56 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
+- 2026-06-30 08:16 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-30 08:16 - [王楚钦孙颖莎晋级混双八强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-30 08:13 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-30 08:14 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
+- 2026-06-30 08:16 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-30 08:19 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:51 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.minike.top/Article/details/81536.shtml)
-- 2026-06-30 08:02 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/093155231.shtml)
-- 2026-06-30 08:09 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/489380241.shtml)
-- 2026-06-30 08:13 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/65540.shtml)
-- 2026-06-30 08:13 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/530379173495.shtml)
-- 2026-06-30 07:52 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/8553800.shtml)
-- 2026-06-30 08:15 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/78327.shtml)
-- 2026-06-30 08:08 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/726896541.shtml)
-- 2026-06-30 07:56 - [中国18岁小将再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/631918.shtml)
-- 2026-06-30 08:15 - [苗族银饰](http://www.share.minike.top/Article/details/82352913705.shtml)
-- 2026-06-30 08:04 - [德国爆冷点球大战不敌巴拉圭](https://www.blog.minike.top/Article/details/567661988985.shtml)
-- 2026-06-30 08:04 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/67976079617.shtml)
-- 2026-06-30 08:14 - [卢卡申科发布解放军仪仗队视频](https://www.share.minike.top/Article/details/591789.shtml)
-- 2026-06-30 07:58 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.minike.top/Article/details/2738260575.shtml)
-- 2026-06-30 08:05 - [人类...完蛋了...](http://www.share.kurohicncr.top/Article/details/171302433.shtml)
+- 2026-06-30 08:22 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/77804396287.shtml)
+- 2026-06-30 08:16 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/02044642637.shtml)
+- 2026-06-30 07:58 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/032102114525.shtml)
+- 2026-06-30 08:04 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/1201134307.shtml)
+- 2026-06-30 08:22 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.kurohicncr.top/Article/details/03042.shtml)
+- 2026-06-30 08:06 - [金牌调解](https://www.share.minike.top/Article/details/425398.shtml)
+- 2026-06-30 08:02 - [一见倾心](https://www.share.kurohicncr.top/Article/details/9071217979.shtml)
+- 2026-06-30 08:11 - [卡塞米罗头球破门](https://www.blog.kurohicncr.top/Article/details/83848.shtml)
+- 2026-06-30 08:19 - [德国连续三届世界杯无缘16强](https://www.share.minike.top/Article/details/59828868069.shtml)
+- 2026-06-30 08:17 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/459773936.shtml)
+- 2026-06-30 08:03 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/73274486.shtml)
+- 2026-06-30 08:14 - [日本领先巴西](https://www.blog.kurohicncr.top/Article/details/99953958.shtml)
+- 2026-06-30 08:12 - [毒液2](http://www.blog.minike.top/Article/details/764934.shtml)
+- 2026-06-30 08:09 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/92452.shtml)
+- 2026-06-30 07:56 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/87996787194.shtml)

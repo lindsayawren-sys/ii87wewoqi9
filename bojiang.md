@@ -1,58 +1,59 @@
-# 澳大利亚白喉疫情蔓延 官员称或为数十年来最大规模
+# 特朗普认为是中国促使伊朗同意停火？中方回应
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-中新社悉尼5月19日电 (记者 薄雯雯)澳大利亚当前暴发的白喉疫情已从北领地蔓延至多个州。澳卫生和老年护理部长马克·巴特勒19日表示，这可能是该国“数十年来规模最大的白喉疫情”。 据澳大利亚广播公司19日报道，澳大利亚国家法定传染病监测系统(NNDSS)数据显示，今年以来，北领地累计报告白喉病例133例，西澳大利亚州79例，南澳大利亚州6例，昆士兰州至多5例。 报道称，本轮疫情
+中新网北京4月8日电(记者 郭超凯)中国外交部发言人毛宁4月8日主持例行记者会。 有记者提问：美国总统特朗普表示他认为是中国促使伊朗同意停火，发言人能否证实？如中方参与其中，能否提供更多细节？ 毛宁：伊朗战事爆发以来，中方一直积极致力于促和止战。王毅外长同相关国家外长先后26次通话。中国政府中东问题特使赴海湾和中东地区穿梭访问。中国和巴基斯坦还共同提出了关于恢复海湾和中东地区和
 
 ## 正文
 
-中新社悉尼5月19日电 (记者 薄雯雯)澳大利亚当前暴发的白喉疫情已从北领地蔓延至多个州。
+中新网北京4月8日电(记者 郭超凯)中国外交部发言人毛宁4月8日主持例行记者会。
 
-澳卫生和老年护理部长马克·巴特勒19日表示，这可能是该国“数十年来规模最大的白喉疫情”。
+有记者提问：美国总统特朗普表示他认为是中国促使伊朗同意停火，发言人能否证实？
 
-据澳大利亚广播公司19日报道，澳大利亚国家法定传染病监测系统(NNDSS)数据显示，今年以来，北领地累计报告白喉病例133例，西澳大利亚州79例，南澳大利亚州6例，昆士兰州至多5例。
+如中方参与其中，能否提供更多细节？
 
-报道称，本轮疫情主要集中在澳大利亚北部和中部偏远地区，原住民社区受影响尤为严重。
+毛宁：伊朗战事爆发以来，中方一直积极致力于促和止战。
 
-当地卫生机构表示，多数重症病例与未接种疫苗或未及时接种加强针有关。
+王毅外长同相关国家外长先后26次通话。
 
-巴特勒当天接受采访时表示，北领地疫情形势严峻，他对此“非常担忧”。
+中国政府中东问题特使赴海湾和中东地区穿梭访问。
 
-他称，联邦政府正与北领地政府及原住民医疗机构合作，加强疫苗接种工作，并呼吁民众及时接种加强针。
+中国和巴基斯坦还共同提出了关于恢复海湾和中东地区和平稳定的五点倡议。
 
-白喉是由白喉棒状杆菌引起的急性传染病，可通过飞沫或密切接触传播。
+作为负责任大国，中国将继续发挥建设性作用，为恢复海湾和中东地区和平安全作出贡献。
 
 ## 相关推荐
 
-- 2026-06-30 08:12 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-30 07:56 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-30 08:09 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-30 08:07 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-30 08:07 - [巴西足球能否再现昔日荣光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-30 08:14 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-30 08:14 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
-- 2026-06-30 08:08 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-30 07:55 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
-- 2026-06-30 08:11 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
-- 2026-06-30 07:54 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
-- 2026-06-30 08:02 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
+- 2026-06-30 08:10 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-30 08:17 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-30 08:00 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
+- 2026-06-30 08:09 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-30 08:08 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-30 08:22 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-30 08:05 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-30 08:17 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-30 08:20 - [德国队连续三届世界杯无缘16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-30 08:09 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-30 08:17 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-30 08:18 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
+- 2026-06-30 07:55 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:50 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/59128240748.shtml)
-- 2026-06-30 07:59 - [第一炉香](http://www.blog.minike.top/Article/details/96784873072.shtml)
-- 2026-06-30 07:50 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/7745513072.shtml)
-- 2026-06-30 08:07 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/68246036.shtml)
-- 2026-06-30 07:53 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/99883.shtml)
-- 2026-06-30 08:16 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/9686535.shtml)
-- 2026-06-30 08:02 - [德国4比5巴拉圭](http://www.share.minike.top/Article/details/0633665270.shtml)
-- 2026-06-30 07:51 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/247703747.shtml)
-- 2026-06-30 07:55 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/14414397.shtml)
-- 2026-06-30 08:17 - [巴西2比1日本](https://www.blog.minike.top/Article/details/61046112056.shtml)
-- 2026-06-30 07:50 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/86483719077.shtml)
-- 2026-06-30 08:15 - [日本16强魔咒](http://www.share.minike.top/Article/details/647733.shtml)
-- 2026-06-30 08:06 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/631249150592.shtml)
-- 2026-06-30 07:50 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/786989491.shtml)
-- 2026-06-30 07:54 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/14565236189.shtml)
+- 2026-06-30 08:18 - [我觉得你是在无中生友](https://www.share.kurohicncr.top/Article/details/155180146.shtml)
+- 2026-06-30 08:07 - [马耳他著名拱门坍塌致中国男子身亡](http://www.share.minike.top/Article/details/7893300550.shtml)
+- 2026-06-30 08:15 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.blog.minike.top/Article/details/40704105680.shtml)
+- 2026-06-30 08:04 - [美股深夜大反弹 特斯拉飙涨8%](https://www.blog.kurohicncr.top/Article/details/796323.shtml)
+- 2026-06-30 08:03 - [DeepSeek启动成立来最大规模招聘](https://www.blog.minike.top/Article/details/43580.shtml)
+- 2026-06-30 08:11 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/90119.shtml)
+- 2026-06-30 08:20 - [DeepSeek V4正式版要来了](http://www.share.minike.top/Article/details/01503.shtml)
+- 2026-06-30 08:21 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/667458.shtml)
+- 2026-06-30 08:12 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/211836392.shtml)
+- 2026-06-30 08:01 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/7040464413.shtml)
+- 2026-06-30 08:07 - [爆冷出局！德国点球大战不敌巴拉圭](http://www.blog.minike.top/Article/details/240769439.shtml)
+- 2026-06-30 08:09 - [德国淘汰](http://www.share.minike.top/Article/details/68269747035.shtml)
+- 2026-06-30 08:10 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/57245.shtml)
+- 2026-06-30 07:56 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/547459949735.shtml)
+- 2026-06-30 08:06 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/321731.shtml)

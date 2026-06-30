@@ -1,59 +1,59 @@
-# 韩正出席2026年全球贸易投资促进峰会开幕式并致辞
+# 瑞浦兰钧早盘涨逾7% 储能电芯进入供不应求状态
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-中新社北京5月18日电 5月18日，中国国家副主席韩正在北京出席2026年全球贸易投资促进峰会开幕式并致辞。 韩正表示，当前国际形势变乱交织，全球经贸秩序遭受严重冲击。习近平主席指出，面对风险和挑战，任何国家都不可能独善其身，坚持团结合作、开放包容才是人间正道。我们要坚定信念、携手前行，有效把握新机遇、应对新挑战，实现互利共赢基础上的共同发展。 韩正提出4点建议，一是共同营造开
+瑞浦兰钧（00666）盘中涨超7%，截至发稿，股价上涨6.68%，现报16.30港元，成交额5919.76万港元。 据21世纪经济报道，记者近日多方采访获悉，当前国内储能电芯产能已全面进入供不应求状态，已有头部企业储能电芯订单排期至2027年一季度末。而电芯现货价格较2025年低点大幅反弹，行业议价权反转。另据电池中国，4月储能电芯排产创新高， 头部厂商开始“挑订单”。 值得一
 
 ## 正文
 
-中新社北京5月18日电 5月18日，中国国家副主席韩正在北京出席2026年全球贸易投资促进峰会开幕式并致辞。
+瑞浦兰钧（00666）盘中涨超7%，截至发稿，股价上涨6.68%，现报16.30港元，成交额5919.76万港元。
 
-韩正表示，当前国际形势变乱交织，全球经贸秩序遭受严重冲击。
+据21世纪经济报道，记者近日多方采访获悉，当前国内储能电芯产能已全面进入供不应求状态，已有头部企业储能电芯订单排期至2027年一季度末。
 
-习近平主席指出，面对风险和挑战，任何国家都不可能独善其身，坚持团结合作、开放包容才是人间正道。
+而电芯现货价格较2025年低点大幅反弹，行业议价权反转。
 
-我们要坚定信念、携手前行，有效把握新机遇、应对新挑战，实现互利共赢基础上的共同发展。
+另据电池中国，4月储能电芯排产创新高， 头部厂商开始“挑订单”。
 
-韩正提出4点建议，一是共同营造开放合作的国际经济环境，坚定维护多边主义和开放合作，持续推动全球贸易投资自由化便利化。
+值得一提的是，瑞浦兰钧2025年度业绩显示，该集团取得收入243.34亿元（人民币，下同），同比增长36.74%；毛利27.21亿元，同比增长269.24%；母公司拥有人应占溢利6.23亿元，同比扭亏为盈。
 
-二是共同塑造创新发展新优势，充分发挥新技术的驱动和赋能作用，让科技创新成果更好造福各国人民。
+根据上海有色网统计，2025年，集团在全球储能电芯出货量位列全球前五，户用储能电芯出货量位列全球第一。
 
-三是共同提升产业链供应链韧性，加强产业协同、技术交流和标准对接。
-
-四是共同推动全球经济治理体系改革，积极落实全球治理倡议，坚持共商共建共享，坚定维护以世贸组织为核心、以规则为基础的多边贸易体制。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 08:10 - [锐评T1战胜KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
-- 2026-06-30 08:06 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-30 07:54 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-30 08:08 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-30 07:49 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-30 07:55 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-30 08:06 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
-- 2026-06-30 08:12 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-30 07:48 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-30 07:57 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-30 08:15 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-30 08:13 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-30 07:52 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-30 08:14 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-30 08:12 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-30 08:12 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-30 08:00 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-30 08:14 - [莫兰特被交易到开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-30 08:17 - [勇士续约波尔津吉斯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-30 07:59 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-30 07:59 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-30 08:05 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-30 08:12 - [网瘾賊大的阿嬷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
+- 2026-06-30 07:55 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
+- 2026-06-30 08:22 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-30 07:57 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-30 08:10 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
+- 2026-06-30 08:07 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:50 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/3267290.shtml)
-- 2026-06-30 07:50 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/290998.shtml)
-- 2026-06-30 07:56 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.share.kurohicncr.top/Article/details/786783145.shtml)
-- 2026-06-30 08:00 - [千香](http://www.share.kurohicncr.top/Article/details/4302509.shtml)
-- 2026-06-30 07:50 - [美股深夜大反弹 特斯拉飙涨8%](https://www.blog.kurohicncr.top/Article/details/31978.shtml)
-- 2026-06-30 08:13 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/745302123760.shtml)
-- 2026-06-30 08:16 - [索马里女大使：想和中国一起搞事业](http://www.share.kurohicncr.top/Article/details/953429639832.shtml)
-- 2026-06-30 07:51 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/573499470.shtml)
-- 2026-06-30 07:59 - [爆冷出局！德国点球大战不敌巴拉圭](https://www.blog.minike.top/Article/details/946221943107.shtml)
-- 2026-06-30 08:02 - [刘宇宁是去进货了吗](https://www.share.minike.top/Article/details/787489.shtml)
-- 2026-06-30 08:14 - [巴拉圭点球大战淘汰德国进16强](http://www.share.minike.top/Article/details/42345593654.shtml)
-- 2026-06-30 08:06 - [巴拉圭点球大战淘汰德国进16强](http://www.blog.kurohicncr.top/Article/details/74885180189.shtml)
-- 2026-06-30 08:17 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/04015649.shtml)
-- 2026-06-30 08:15 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/33517.shtml)
-- 2026-06-30 07:50 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/06969043795.shtml)
+- 2026-06-30 08:04 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/689327.shtml)
+- 2026-06-30 07:59 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/931420.shtml)
+- 2026-06-30 08:00 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/60628.shtml)
+- 2026-06-30 07:56 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/79994885.shtml)
+- 2026-06-30 08:18 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://www.blog.kurohicncr.top/Article/details/1873353876.shtml)
+- 2026-06-30 08:23 - [巴西绝杀日本：漫画般结局换了主角](http://www.blog.kurohicncr.top/Article/details/9448706843.shtml)
+- 2026-06-30 07:56 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.kurohicncr.top/Article/details/590325831.shtml)
+- 2026-06-30 08:08 - [金鹰奖视后提名预测](https://www.share.minike.top/Article/details/77159020.shtml)
+- 2026-06-30 08:21 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/867698.shtml)
+- 2026-06-30 08:04 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/06014740730.shtml)
+- 2026-06-30 08:03 - [国务院：探索延长义务教育年限](http://www.blog.kurohicncr.top/Article/details/383896448.shtml)
+- 2026-06-30 08:02 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/0915088143.shtml)
+- 2026-06-30 08:21 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/7830110.shtml)
+- 2026-06-30 08:16 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/804727515.shtml)
+- 2026-06-30 08:02 - [武磊：巴西队赢的并不轻松](https://www.share.minike.top/Article/details/2899934.shtml)

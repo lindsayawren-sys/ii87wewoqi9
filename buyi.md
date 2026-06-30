@@ -1,61 +1,57 @@
-# 碳酸锂：澳洲Bald Hill锂矿重启，供应还紧张吗？
+# 美伊停火令原油价格暴跌，但航空燃油价格仍然高企
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-作者：谷静/F3016772、Z0013246/ 一德期货有色金属分析师 要点速览版 下跌原因 供应恢复预期增强：Bald Hill矿山重启：计划7月产出首批精矿； 进口持续放量：智利大量进口补给大幅收窄了国内供应缺口； 高价抑制需求：锂价重回20万元以上后，国内储能项目IRR已跌破国企投资收益阈值。 后市展望 津巴布韦矿5-6月有断层，储能实际消费增速依然强劲，现有复产规模尚
+尽管油价回落，航空公司仍面临持续的成本压力，导致票价上涨和运力削减 航空公司高管们开始看到宏观背景出现初步转变，但这种缓解可能更多是表面现象而非根本性的。 国际航空运输协会理事长威利·沃尔什（Willie Walsh）将美国与伊朗之间为期两周的停火视为积极的一步，指出这可能使部分石油流动得以恢复。尽管如此，正常化进程似乎缓慢，仍有超过800艘船只滞留在波斯湾，航运活动尚未完全恢
 
 ## 正文
 
-作者：谷静/F3016772、Z0013246/ 一德期货有色金属分析师 要点速览版 下跌原因 供应恢复预期增强：Bald Hill矿山重启：计划7月产出首批精矿； 进口持续放量：智利大量进口补给大幅收窄了国内供应缺口； 高价抑制需求：锂价重回20万元以上后，国内储能项目IRR已跌破国企投资收益阈值。
+尽管油价回落，航空公司仍面临持续的成本压力，导致票价上涨和运力削减 航空公司高管们开始看到宏观背景出现初步转变，但这种缓解可能更多是表面现象而非根本性的。
 
-后市展望 津巴布韦矿5-6月有断层，储能实际消费增速依然强劲，现有复产规模尚难改变年度供需偏紧格局。
+国际航空运输协会理事长威利·沃尔什（Willie Walsh）将美国与伊朗之间为期两周的停火视为积极的一步，指出这可能使部分石油流动得以恢复。
 
-前期，碳酸锂在月度累库再次转为去库以及锂产业链公布一季度业绩向好的刺激下，资金情绪高涨，盘面一度突破20万整数关口。
+尽管如此，正常化进程似乎缓慢，仍有超过800艘船只滞留在波斯湾，航运活动尚未完全恢复。
 
-近期盘面持续回落，且日内盘面跌幅较大。
+即使在唐纳德·特朗普宣布停火后原油价格下跌了16%，航空燃油的价格传导似乎也存在延迟，这表明航空公司在短期内可能继续在高成本条件下运营。
 
-原因剖析 昨日（5月18日）Mineral Resources发布重启Bald Hill锂矿的公告，其中提到重启决定是基于锂价显著且持续回升，公布了重启流程：5月下旬启动，6月开始采矿与破碎作业，7月首批锂辉石精矿产出，该矿山年生产能力16.5万干吨，折合SC6锂精矿14万吨，约1.75万吨LCE。
+成本方面的压力仍然是核心问题。
 
-同时，智利出口量维持较高水平，海关公布数据显示，智利4月锂出口量为30，575吨，其中碳酸锂29，526吨，当月对中国出口碳酸锂量22，957吨。
+Walsh表示，航空燃油价格可能会在一段时间内保持高位，随着航空公司试图抵消投入成本通胀，这可能会转化为持续上涨的机票价格。
 
-南美锂盐的进口补给，大大收缩了国内月度供应缺口。
+与此同时，供应短缺的风险尚未完全消除，亚洲被描述为最脆弱的地区，其次是非洲和欧洲。
 
-消费端，碳酸锂价格上涨至20万以上后，国内储能100MW/200MWh项目的IRR跌至国企储能项目投资收益阈值6%之下，市场因此对后期国内储能消费增速的可持续性产生质疑。
+在整个行业范围内，自冲突开始以来，航空公司仍在应对航空燃油成本翻倍有余的局面，这一动态已经在影响运营决策。
 
 ## 相关推荐
 
-- 2026-06-30 07:58 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-30 07:59 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-30 08:11 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-30 08:11 - [全球芯片巨头史诗级扩产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-30 08:01 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-30 08:16 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-30 08:00 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
-- 2026-06-30 08:17 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-30 08:16 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-30 07:51 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-30 08:02 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-30 08:08 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-30 08:01 - [莫兰特转投开拓者效力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-30 08:07 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-30 08:02 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-30 07:56 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-30 07:55 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-30 08:18 - [恋与深空道歉声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-30 08:01 - [世界杯欧洲队7战南美仅1胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-30 07:55 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-30 07:58 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
+- 2026-06-30 08:22 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-30 08:08 - [德国爆冷点球大战不敌巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-30 08:21 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-30 08:04 - [感动全网的699分女生想报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-30 07:58 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:05 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/943739773808.shtml)
-- 2026-06-30 08:11 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/7985317926.shtml)
-- 2026-06-30 08:07 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/184249007.shtml)
-- 2026-06-30 08:04 - [德国巴拉圭加时](http://www.blog.minike.top/Article/details/070732818.shtml)
-- 2026-06-30 08:08 - [亚洲球队全部告别世界杯](https://www.share.kurohicncr.top/Article/details/535421.shtml)
-- 2026-06-30 08:01 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/2767468348.shtml)
-- 2026-06-30 07:57 - [点球大战](https://www.share.kurohicncr.top/Article/details/6704729002.shtml)
-- 2026-06-30 08:04 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/2646051636.shtml)
-- 2026-06-30 07:54 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/8223417.shtml)
-- 2026-06-30 08:12 - [武磊：巴西队赢的并不轻松](https://www.share.minike.top/Article/details/36393.shtml)
-- 2026-06-30 07:54 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/44195716.shtml)
-- 2026-06-30 08:10 - [郑钦文温网首轮出局](http://www.share.minike.top/Article/details/4838463497.shtml)
-- 2026-06-30 08:10 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/7614452512.shtml)
-- 2026-06-30 08:03 - [爆冷出局！德国点球大战不敌巴拉圭](https://www.blog.minike.top/Article/details/0104890.shtml)
-- 2026-06-30 07:55 - [美人鱼](https://www.share.minike.top/Article/details/5192945928.shtml)
+- 2026-06-30 08:02 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/144873958.shtml)
+- 2026-06-30 08:08 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](http://www.share.minike.top/Article/details/11740396.shtml)
+- 2026-06-30 08:07 - [网友写差评被店家“挂”门口避雷](http://www.blog.minike.top/Article/details/298194877128.shtml)
+- 2026-06-30 08:16 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/526259137.shtml)
+- 2026-06-30 07:57 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/684506.shtml)
+- 2026-06-30 07:56 - [郑钦文温网三连败西尼亚科娃](http://www.share.minike.top/Article/details/0316347958.shtml)
+- 2026-06-30 07:54 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/5680485560.shtml)
+- 2026-06-30 08:16 - [巴西把自己踢晕了](http://www.blog.kurohicncr.top/Article/details/50524272.shtml)
+- 2026-06-30 08:03 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/819527768601.shtml)
+- 2026-06-30 08:12 - [美股深夜大反弹 特斯拉飙涨8%](https://www.share.kurohicncr.top/Article/details/50937522697.shtml)
+- 2026-06-30 08:12 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/612804653.shtml)
+- 2026-06-30 08:14 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/9604498.shtml)
+- 2026-06-30 08:01 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/4379301164.shtml)
+- 2026-06-30 08:08 - [巴西替补奇兵读秒绝杀](http://www.blog.kurohicncr.top/Article/details/693934.shtml)
+- 2026-06-30 08:13 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/904887836556.shtml)

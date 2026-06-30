@@ -1,46 +1,61 @@
-# 奔赴山野，枕戈待旦！国防科大学子开展综合实战演练
+# 法国德西尼布集团继续推进Commonwealth LNG项目的EPC工作
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月18日 14:32 来源：中国新闻网 近日，国防科技大学外国语学院组织开展“锤炼-2026”毕业综合演练，完成6个方向8类70多个演练科目，毕业学员们以实战演练为作为“终章答卷”，在不同战场淬炼过硬本领，奔赴未来战场。(作者：张笑宇 代雨非 江夏 朱弘叙 章战 缪华 朱桐仪 姚天宝） 责任编辑：【魏聪聪】
+随着路易斯安那州Commonwealth LNG项目朝着最终投资决策推进，法国工程与技术公司企业德西尼布集团公司（Technip Energies）已获得一项重大授权，以继续该项目的相关工作。 该授权由Commonwealth LNG授予，允许该公司根据现有EPC合同继续进行关键的工程设计、采购和施工活动。 Technip Energies表示，此项授权支持正在进行的项目执行，
 
 ## 正文
 
-发布时间：2026年05月18日 14:32 来源：中国新闻网 近日，国防科技大学外国语学院组织开展“锤炼-2026”毕业综合演练，完成6个方向8类70多个演练科目，毕业学员们以实战演练为作为“终章答卷”，在不同战场淬炼过硬本领，奔赴未来战场。
+随着路易斯安那州Commonwealth LNG项目朝着最终投资决策推进，法国工程与技术公司企业德西尼布集团公司（Technip Energies）已获得一项重大授权，以继续该项目的相关工作。
 
-(作者：张笑宇 代雨非 江夏 朱弘叙 章战 缪华 朱桐仪 姚天宝） 责任编辑：【魏聪聪】
+该授权由Commonwealth LNG授予，允许该公司根据现有EPC合同继续进行关键的工程设计、采购和施工活动。
+
+Technip Energies表示，此项授权支持正在进行的项目执行，并且是在此前涵盖长周期设备订单的授权之后作出的。
+
+拟建项目位于卡梅伦教区，设计年产950万吨液化天然气，将由六套液化装置组成。
+
+这些装置将采用Technip Energies的SnapLNG模块化技术，旨在提高可扩展性和施工效率。
+
+Technip Energies首席执行官Arnaud Pieton表示：“我们很高兴能够继续推进Commonwealth LNG项目的工作，为项目成功且及时地做出最终投资决策做好准备。
+
+这项新授权是Commonwealth LNG项目向前迈出的实质性一步。
+
+它反映了对项目基本面、执行策略及其对全球能源安全的长期重要性的信心。
 
 ## 相关推荐
 
-- 2026-06-30 07:57 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
-- 2026-06-30 08:03 - [全球芯片巨头史诗级扩产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-30 08:00 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
-- 2026-06-30 08:10 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-30 07:48 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-30 07:58 - [德国4比5巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-30 08:17 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
-- 2026-06-30 07:49 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-30 07:58 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-30 07:50 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-30 07:55 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
-- 2026-06-30 07:59 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-30 08:01 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
+- 2026-06-30 08:22 - [全球芯片巨头史诗级扩产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-30 08:14 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-30 08:04 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-30 08:12 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-30 08:06 - [电影抓特务上映11天破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-30 07:55 - [锐评T1战胜KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-30 08:12 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-30 08:03 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-30 08:18 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-30 07:57 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-30 08:16 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-30 08:11 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-30 08:22 - [莫兰特被交易到开拓者](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
+- 2026-06-30 08:23 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:51 - [世界杯：德国vs巴拉圭](https://www.blog.minike.top/Article/details/8436311.shtml)
-- 2026-06-30 08:01 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/803705720948.shtml)
-- 2026-06-30 07:48 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.minike.top/Article/details/208765.shtml)
-- 2026-06-30 08:01 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.kurohicncr.top/Article/details/26474616.shtml)
-- 2026-06-30 08:04 - [全新问界M9现身美国街头](https://www.blog.minike.top/Article/details/39299.shtml)
-- 2026-06-30 07:58 - [金刚川](https://www.share.minike.top/Article/details/211615.shtml)
-- 2026-06-30 07:53 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/83869570.shtml)
-- 2026-06-30 07:50 - [现在叛逆期的孩子最怕的是什么？](https://www.blog.kurohicncr.top/Article/details/1866126.shtml)
-- 2026-06-30 08:05 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/08678140.shtml)
-- 2026-06-30 07:50 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.minike.top/Article/details/575522235161.shtml)
-- 2026-06-30 08:10 - [4000美元是黄金新一轮下跌的开始吗](https://www.share.kurohicncr.top/Article/details/4756750.shtml)
-- 2026-06-30 08:02 - [金鹰奖视后提名预测](https://www.blog.minike.top/Article/details/318808144975.shtml)
-- 2026-06-30 08:09 - [索马里女大使：想和中国一起搞事业](http://www.share.minike.top/Article/details/501765.shtml)
-- 2026-06-30 08:04 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/4950594.shtml)
-- 2026-06-30 08:06 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/79389.shtml)
+- 2026-06-30 07:58 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/19924992.shtml)
+- 2026-06-30 08:09 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/3326956.shtml)
+- 2026-06-30 08:15 - [莫兰特转投开拓者效力](https://www.share.minike.top/Article/details/753428244339.shtml)
+- 2026-06-30 07:58 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/6845081.shtml)
+- 2026-06-30 08:02 - [曝老詹对自由市场态度与以往截然不同](http://www.share.minike.top/Article/details/26462266414.shtml)
+- 2026-06-30 07:56 - [扬名立万](http://www.blog.minike.top/Article/details/16187142355.shtml)
+- 2026-06-30 08:23 - [张月收到黄灿灿辣货两眼发光](http://www.share.kurohicncr.top/Article/details/36903624146.shtml)
+- 2026-06-30 08:04 - [本科毕业生为何涌入专科学校](http://www.blog.kurohicncr.top/Article/details/581420.shtml)
+- 2026-06-30 07:56 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/0034297022.shtml)
+- 2026-06-30 08:03 - [刘必安等16人非法集资案二审宣判](http://www.share.minike.top/Article/details/1097176688.shtml)
+- 2026-06-30 08:04 - [詹姆斯 勇士](http://www.share.kurohicncr.top/Article/details/536732057603.shtml)
+- 2026-06-30 08:06 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/033443588870.shtml)
+- 2026-06-30 08:19 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/870164053.shtml)
+- 2026-06-30 08:11 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.minike.top/Article/details/1114682422.shtml)
+- 2026-06-30 08:12 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/8340578.shtml)

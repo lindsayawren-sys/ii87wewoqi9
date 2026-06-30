@@ -1,59 +1,57 @@
-# 追觅俞浩：雷军治好了我的抑郁症
+# 特朗普称能轻易恢复对伊朗动武
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-做企业不是开故事会，发展才能解释问题，发展才能解决问题 文|《中国企业家》记者 李艳艳 见习编辑|李原编辑|何伊凡 头图摄影|邓攀 在成为世界首富之前，追觅科技创始人俞浩先打破了一项世界纪录：社交媒体上最活跃的CEO。从5月6日到5月12日，一周之内，他发了409条抖音、376条视频号、291条小红书、393条微博，平均每天12条朋友圈。 这还不包括追觅员工、高管发布的内容，他
+新华社伦敦4月8日电(记者于艾岑)美国总统特朗普8日表示，如果美国同伊朗谈判不顺，美方将能轻易恢复对伊朗的军事行动。 特朗普当天接受英国天空新闻网采访时说，美伊两周停火“非常好”，在伊朗的所有军事目标都已经达成，“我们在军事上已经完成一切想做的事，美国在军事上取得了完全胜利”。 当记者问伊朗提出的10项停战条款不可能被美方接受时，特朗普说：“你不知道那些具体条款是什么，我知道。
 
 ## 正文
 
-做企业不是开故事会，发展才能解释问题，发展才能解决问题 文|《中国企业家》记者 李艳艳 见习编辑|李原编辑|何伊凡 头图摄影|邓攀 在成为世界首富之前，追觅科技创始人俞浩先打破了一项世界纪录：社交媒体上最活跃的CEO。
+新华社伦敦4月8日电(记者于艾岑)美国总统特朗普8日表示，如果美国同伊朗谈判不顺，美方将能轻易恢复对伊朗的军事行动。
 
-从5月6日到5月12日，一周之内，他发了409条抖音、376条视频号、291条小红书、393条微博，平均每天12条朋友圈。
+特朗普当天接受英国天空新闻网采访时说，美伊两周停火“非常好”，在伊朗的所有军事目标都已经达成，“我们在军事上已经完成一切想做的事，美国在军事上取得了完全胜利”。
 
-这还不包括追觅员工、高管发布的内容，他要求所有员工开通所有社交媒体的账号，每天至少发3条视频。
+当记者问伊朗提出的10项停战条款不可能被美方接受时，特朗普说：“你不知道那些具体条款是什么，我知道。
 
-视频中的俞浩，情绪起伏极大，几乎每句话都用叹号收尾。
+其中很多条款非常好，并且大部分已完成谈判。
 
-有时快意恩仇：“夸我们的人，都长得比较帅！
+” 数小时前，特朗普在社交媒体上发文说，美方收到伊朗方面提出的10项停战条款，并认为该提案可作为开展谈判的可行基础。
 
-骂我们的人，都长得比较丑！
-
-”有时咬牙切齿：“反正谁都不要随便招惹老子！
-
-我有仇必报！
+与此同时，伊朗最高国家安全委员会8日发表声明说，敌人对伊朗发动的战争遭遇失败，被迫接受伊朗提出的10项停战条款，伊朗取得了巨大的胜利。
 
 ## 相关推荐
 
-- 2026-06-30 07:54 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-30 07:48 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
-- 2026-06-30 08:08 - [莫兰特转投开拓者效力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-30 07:59 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
-- 2026-06-30 07:49 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-30 08:17 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-30 08:13 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-30 08:10 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-30 07:49 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-30 07:56 - [德国队世界杯点球大战首败](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-30 07:56 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-30 08:15 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-30 07:58 - [F1奥地利站赛后复盘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-30 08:22 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-30 07:56 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-30 08:15 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
+- 2026-06-30 08:01 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-30 08:10 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-30 07:57 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-30 08:07 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-30 08:04 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-30 08:06 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-30 08:10 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-30 08:22 - [网瘾賊大的阿嬷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-30 07:57 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-30 08:16 - [世界杯巴拉圭点球淘汰德国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-30 07:54 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-30 08:05 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:09 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/32631961.shtml)
-- 2026-06-30 08:13 - [韩国球迷凌晨4点接机怒骂主教练](http://www.share.kurohicncr.top/Article/details/481757294.shtml)
-- 2026-06-30 07:56 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/801299124632.shtml)
-- 2026-06-30 07:54 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/7254283128.shtml)
-- 2026-06-30 08:08 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/3016835000.shtml)
-- 2026-06-30 08:02 - [巴西在进攻三区完成210脚传球](http://www.share.kurohicncr.top/Article/details/534993243.shtml)
-- 2026-06-30 08:17 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/36259.shtml)
-- 2026-06-30 07:56 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/7300664.shtml)
-- 2026-06-30 07:48 - [上市央企地产商 两年换了三任董事长](http://www.share.kurohicncr.top/Article/details/9514143.shtml)
-- 2026-06-30 08:08 - [曝灰熊将莫兰特交易至开拓者](https://www.share.minike.top/Article/details/538376722778.shtml)
-- 2026-06-30 08:00 - [世界杯“美洲德比”7月1日开打](http://www.share.kurohicncr.top/Article/details/288724938831.shtml)
-- 2026-06-30 08:17 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/6211332.shtml)
-- 2026-06-30 07:52 - [请回答王牌2019](http://www.blog.minike.top/Article/details/4604992.shtml)
-- 2026-06-30 08:02 - [网红峡谷5人溺亡 有人提醒会下雨](https://www.share.kurohicncr.top/Article/details/418392.shtml)
-- 2026-06-30 08:11 - [点球大战](https://www.share.kurohicncr.top/Article/details/937029.shtml)
+- 2026-06-30 08:21 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/987044.shtml)
+- 2026-06-30 08:00 - [日本球迷被强行披上巴西国旗](https://www.share.minike.top/Article/details/7451024718.shtml)
+- 2026-06-30 08:16 - [国务院：稳步推进研究生考试招生改革](https://www.share.kurohicncr.top/Article/details/879244135.shtml)
+- 2026-06-30 08:18 - [高考结束了，你会让孩子在家玩手机吗？](http://www.share.kurohicncr.top/Article/details/0601316415.shtml)
+- 2026-06-30 08:03 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/7153927343.shtml)
+- 2026-06-30 08:19 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.kurohicncr.top/Article/details/27800.shtml)
+- 2026-06-30 08:11 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/0129232.shtml)
+- 2026-06-30 07:56 - [武磊：日本队有能力跟任何强队抗衡](http://www.share.minike.top/Article/details/4472733244.shtml)
+- 2026-06-30 08:21 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/11807.shtml)
+- 2026-06-30 08:14 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/476167.shtml)
+- 2026-06-30 07:56 - [为什么会有「念旧」的心理？](http://www.share.minike.top/Article/details/891251.shtml)
+- 2026-06-30 08:08 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/932636654105.shtml)
+- 2026-06-30 08:17 - [媒体评泰山建135公里刀片刺绳隔离网](http://www.blog.kurohicncr.top/Article/details/0977870.shtml)
+- 2026-06-30 08:22 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/282153.shtml)
+- 2026-06-30 08:02 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/599322.shtml)

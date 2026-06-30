@@ -1,56 +1,56 @@
-# 供应中断担忧缓解 亚市早盘油价下跌
+# 震荡不明关注宽基，中证A500指数的估值与股息优势逐步凸显
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-专题：获利盘回吐压力显现 中期上行趋势不改 在供应中断担忧缓解之际，油价在早盘交易中下跌。近月西得州中质油期货下跌1.3%，报每桶107.28美元；近月布伦特原油期货下跌2.7%，报每桶109.11美元。美国总统特朗普表示，应海湾国家领导人的要求，他将推迟原计划的美国对伊朗的袭击，以为与德黑兰就结束战争可能达成的协议进行谈判留出空间。”（油价的）上涨势头并非没有极限，”Trad
+据央视新闻报道，2026年4月9日凌晨，霍尔木兹海峡再度关闭，已有油轮被迫返航。受此影响，国际油价明显反弹，WTI原油盘中一度涨超3%。美国警告称，停火协议可能因此终止。地缘风险再度升温，市场风险偏好显著回落，A股随之震荡回调。 外部扰动频发之际，外资机构对中国资产的关注度却在上升。摩根士丹利首席近日表示，在中东冲突、能源市场剧烈波动、通胀压力重新抬头的背景下，宏观层面看好中国
 
 ## 正文
 
-专题：获利盘回吐压力显现 中期上行趋势不改 在供应中断担忧缓解之际，油价在早盘交易中下跌。
+据央视新闻报道，2026年4月9日凌晨，霍尔木兹海峡再度关闭，已有油轮被迫返航。
 
-近月西得州中质油期货下跌1.3%，报每桶107.28美元；近月布伦特原油期货下跌2.7%，报每桶109.11美元。
+受此影响，国际油价明显反弹，WTI原油盘中一度涨超3%。
 
-美国总统特朗普表示，应海湾国家领导人的要求，他将推迟原计划的美国对伊朗的袭击，以为与德黑兰就结束战争可能达成的协议进行谈判留出空间。
+美国警告称，停火协议可能因此终止。
 
-”（油价的）上涨势头并非没有极限，”Tradu.com的Nikos Tzabouras在一封电子邮件中说。
+地缘风险再度升温，市场风险偏好显著回落，A股随之震荡回调。
 
-“特朗普一直表示倾向于达成协议，并维持了停火状态，为外交解决敞开了大门，“该高级市场分析师补充道。
+外部扰动频发之际，外资机构对中国资产的关注度却在上升。
 
-责任编辑：王永生
+摩根士丹利首席近日表示，在中东冲突、能源市场剧烈波动、通胀压力重新抬头的背景下，宏观层面看好中国经济的韧性与“反内卷”之后的产业重塑；策略层面，A股市场抵御外部波动的能力较强，高端制造产业链蕴含丰富机遇，有望进一步吸引外资流入 在外部扰动与内部轮动交织的背景下，具备分散布局特征、覆盖各行业优质资产的核心宽基指数，其权益底仓的配置价值有望进一步提升。
+
+均衡覆盖A股核心资产的A500ETF华泰柏瑞（563360）交投活跃，最新规模374亿元、单日成交额达70亿元、单日净流入额达1.2亿元，规模与流动性优势较突出。
+
+经过前期震荡调整，中证A500指数的估值与股息优势正逐步凸显。
 
 ## 相关推荐
 
-- 2026-06-30 08:07 - [金鹰奖视后提名预测](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-30 07:55 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-30 08:15 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-30 07:52 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-30 08:06 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
-- 2026-06-30 08:15 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-30 08:12 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-30 07:54 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
-- 2026-06-30 08:14 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-30 07:58 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-30 07:52 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-30 08:07 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-30 08:12 - [世界杯巴拉圭点球淘汰德国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-30 08:15 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-30 08:07 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-30 08:12 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-30 08:17 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-30 08:12 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-30 08:15 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-30 08:07 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-30 08:07 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-30 08:09 - [巴拉圭进球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-30 08:17 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-30 07:59 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:01 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.kurohicncr.top/Article/details/9979882557.shtml)
-- 2026-06-30 07:48 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/643109399875.shtml)
-- 2026-06-30 08:13 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/4960681366.shtml)
-- 2026-06-30 08:02 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/82121.shtml)
-- 2026-06-30 08:00 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.blog.kurohicncr.top/Article/details/35770174.shtml)
-- 2026-06-30 07:56 - [曝灰熊将莫兰特交易至开拓者](https://www.share.kurohicncr.top/Article/details/622708721.shtml)
-- 2026-06-30 08:12 - [现在叛逆期的孩子最怕的是什么？](http://www.blog.minike.top/Article/details/9679159.shtml)
-- 2026-06-30 07:59 - [锐评T1战胜KC](http://www.blog.minike.top/Article/details/92305454.shtml)
-- 2026-06-30 08:12 - [逃狱兄弟](http://www.blog.minike.top/Article/details/850498.shtml)
-- 2026-06-30 08:03 - [乔家的儿女](https://www.blog.minike.top/Article/details/147895581141.shtml)
-- 2026-06-30 08:00 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/72545645730.shtml)
-- 2026-06-30 07:58 - [三星投资计划](http://www.blog.kurohicncr.top/Article/details/9016672.shtml)
-- 2026-06-30 08:03 - [金牌调解](https://www.share.kurohicncr.top/Article/details/233842845755.shtml)
-- 2026-06-30 08:08 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/751930171054.shtml)
-- 2026-06-30 08:11 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/342371787.shtml)
+- 2026-06-30 07:57 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/112759.shtml)
+- 2026-06-30 08:23 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/98921801615.shtml)
+- 2026-06-30 07:58 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/243618352.shtml)
+- 2026-06-30 08:10 - [巴拉圭点球大战淘汰德国进16强](http://www.blog.kurohicncr.top/Article/details/506306635838.shtml)
+- 2026-06-30 08:11 - [韩乔生吐槽世界杯扩军](https://www.blog.kurohicncr.top/Article/details/0397919.shtml)
+- 2026-06-30 08:13 - [杨紫获白玉兰视后为何争议难平](https://www.blog.kurohicncr.top/Article/details/45208.shtml)
+- 2026-06-30 08:22 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/01137961.shtml)
+- 2026-06-30 08:04 - [王濛回复黄灿灿](https://www.share.kurohicncr.top/Article/details/709223674.shtml)
+- 2026-06-30 08:07 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/0014097.shtml)
+- 2026-06-30 08:11 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/66467.shtml)
+- 2026-06-30 07:55 - [董卿父亲在报纸上发文悼念亡妻](https://www.blog.minike.top/Article/details/46408.shtml)
+- 2026-06-30 07:55 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/4447384416.shtml)
+- 2026-06-30 08:20 - [三星投资计划](http://www.blog.minike.top/Article/details/8596033.shtml)
+- 2026-06-30 08:18 - [泰山景区回应修建刀片刺绳隔离网](https://www.share.kurohicncr.top/Article/details/265629.shtml)
+- 2026-06-30 07:59 - [藤森庆子赢得秘鲁总统选举](http://www.blog.minike.top/Article/details/63838382.shtml)

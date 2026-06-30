@@ -1,58 +1,52 @@
-# 花旗与贝莱德旗下HPS启动150亿欧元欧洲私募信贷计划
+# 国资委公布4户中央企业外部董事职务变动
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-战略合作详情 花旗集团与贝莱德旗下的HPS投资伙伴公司于周一共同宣布，双方已达成一项为期五年的战略合作协议，计划在欧洲、中东和非洲地区部署高达150亿欧元的私募信贷资金。根据协议，花旗将利用其广泛的投资银行和企业银行网络来发掘和发起交易机会，而HPS则负责提供资本并进行信贷决策。该计划将主要聚焦于为欧洲大陆和英国的企业及私募股权客户提供广泛的非投资级债务工具，并计划在未来将业务
+中新网4月9日电 据国资委网站消息，国资委9日公布4户中央企业外部董事职务变动。 中国航天科工集团有限公司 经研究，聘任曹光祥为中国航天科工集团有限公司外部董事。 中国海洋石油集团有限公司经研究，聘任李永林、范夏夏为中国海洋石油集团有限公司外部董事，郭建新、邵开文、江正洪不再担任中国海洋石油集团有限公司外部董事职务。 中国大唐集团有限公司 经研究，聘任黄永达、陈建华、江正洪为中
 
 ## 正文
 
-战略合作详情 花旗集团与贝莱德旗下的HPS投资伙伴公司于周一共同宣布，双方已达成一项为期五年的战略合作协议，计划在欧洲、中东和非洲地区部署高达150亿欧元的私募信贷资金。
+中新网4月9日电 据国资委网站消息，国资委9日公布4户中央企业外部董事职务变动。
 
-根据协议，花旗将利用其广泛的投资银行和企业银行网络来发掘和发起交易机会，而HPS则负责提供资本并进行信贷决策。
+中国航天科工集团有限公司 经研究，聘任曹光祥为中国航天科工集团有限公司外部董事。
 
-该计划将主要聚焦于为欧洲大陆和英国的企业及私募股权客户提供广泛的非投资级债务工具，并计划在未来将业务扩展至中东地区。
+中国海洋石油集团有限公司经研究，聘任李永林、范夏夏为中国海洋石油集团有限公司外部董事，郭建新、邵开文、江正洪不再担任中国海洋石油集团有限公司外部董事职务。
 
-银行为应对监管和需求变化向轻资产模式转型 此次合作是传统银行与私募资本巨头从竞争对手转变为合作伙伴的标志性事件。
+中国大唐集团有限公司 经研究，聘任黄永达、陈建华、江正洪为中国大唐集团有限公司外部董事，王守东不再担任中国大唐集团有限公司外部董事职务。
 
-在资本要求日益严格的环境下，银行正在寻求通过“发起-分销”的轻资产模式来保留费用收入，同时避免将大量债务留在资产负债表上。
-
-花旗债务资本市场联席主管John McAuley表示，该计划旨在结合花旗的客户关系和发起能力与HPS的资本和结构化专业知识，为EMEA地区的客户提供定制化的解决方案。
-
-金融机构持续加码背后，行业正处动荡期 这笔交易恰逢私募信贷市场面临赎回压力和更严格监管审查之际。
-
-尽管由人工智能等技术变革引发的市场波动和流动性错配担忧动摇了部分投资者信心，但花旗和贝莱德等大型机构的此举表明，他们对这一高速增长资产类别的长期前景依然看好，并利用当前的市场动荡以更有利的条款进行投资。
+中国电信集团有限公司 经研究，聘任刘冬为中国电信集团有限公司外部董事，段洪义不再担任中国电信集团有限公司外部董事职务。
 
 ## 相关推荐
 
-- 2026-06-30 07:50 - [高质量发展看新疆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-30 08:16 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-30 07:56 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-30 07:54 - [男子在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-30 07:59 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
-- 2026-06-30 07:58 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
-- 2026-06-30 08:04 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
-- 2026-06-30 08:03 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-30 08:10 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-30 07:55 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-30 08:02 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-30 08:17 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-30 08:17 - [感动全网的699分女生想报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-30 08:02 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
+- 2026-06-30 08:00 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
+- 2026-06-30 07:54 - [孙颖莎王楚钦晋级8强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-30 08:13 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-30 07:57 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-30 08:19 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-30 07:58 - [三星投资计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-30 08:00 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-30 08:08 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-30 08:06 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-30 08:14 - [田中碧失误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:49 - [日本 高位逼抢](http://www.blog.minike.top/Article/details/920946616.shtml)
-- 2026-06-30 07:52 - [世界杯：德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/770448229.shtml)
-- 2026-06-30 07:57 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/400651304815.shtml)
-- 2026-06-30 08:03 - [王欣瑜2-1击败科恰雷托](http://www.share.minike.top/Article/details/683440.shtml)
-- 2026-06-30 08:13 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/815280995351.shtml)
-- 2026-06-30 08:12 - [内马尔替补](https://www.share.minike.top/Article/details/91345.shtml)
-- 2026-06-30 08:09 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/6244352883.shtml)
-- 2026-06-30 08:13 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/044350736219.shtml)
-- 2026-06-30 07:53 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/196377.shtml)
-- 2026-06-30 08:09 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/8290174.shtml)
-- 2026-06-30 08:13 - [德国淘汰](https://www.share.kurohicncr.top/Article/details/7838106415.shtml)
-- 2026-06-30 08:03 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/19766857956.shtml)
-- 2026-06-30 08:03 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/594877.shtml)
-- 2026-06-30 07:57 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.kurohicncr.top/Article/details/342095201.shtml)
-- 2026-06-30 08:17 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/40078751.shtml)
+- 2026-06-30 08:14 - [巴拉圭进球](https://www.blog.kurohicncr.top/Article/details/994584539747.shtml)
+- 2026-06-30 08:01 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/61768937.shtml)
+- 2026-06-30 08:17 - [库尼亚赛后伸五指嘲讽日本](https://www.share.minike.top/Article/details/861544.shtml)
+- 2026-06-30 08:03 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/8884866796.shtml)
+- 2026-06-30 08:03 - [卢卡申科发布解放军仪仗队视频](http://www.blog.minike.top/Article/details/87846.shtml)
+- 2026-06-30 08:15 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/503502.shtml)
+- 2026-06-30 08:00 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/2938546.shtml)
+- 2026-06-30 08:10 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/298708.shtml)
+- 2026-06-30 08:17 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/119311173.shtml)
+- 2026-06-30 08:07 - [这种关系可能正在悄悄“催老”你](http://www.blog.minike.top/Article/details/524030834.shtml)
+- 2026-06-30 08:14 - [齐思钧回复张月](http://www.share.minike.top/Article/details/685328080.shtml)
+- 2026-06-30 07:54 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/9600435157.shtml)
+- 2026-06-30 08:23 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/6127909.shtml)
+- 2026-06-30 08:12 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/247610308.shtml)
+- 2026-06-30 08:23 - [苗族银饰](http://www.blog.kurohicncr.top/Article/details/85855334.shtml)

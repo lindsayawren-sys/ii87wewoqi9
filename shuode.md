@@ -1,56 +1,56 @@
-# 第一届亚洲跳跃锦标赛在重庆开赛
+# 长三角国际田径钻石赛将于绍兴开赛 22名世界冠军参赛
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-中新网重庆5月18日电 (记者 钟旖)第一届亚洲跳跃锦标赛暨第四届“一带一路”田径邀请赛暨2026年全国田径大奖赛(第3站)18日在重庆市长寿区开赛，吸引来自哈萨克斯坦、马来西亚、菲律宾、卡塔尔、新加坡等23个国家和地区的552名运动员参赛。其中，第一届亚洲跳跃锦标赛是亚洲田径联合会全新打造的专项顶级赛事，也是亚洲跳跃项目最高水平的竞技舞台，标志着亚洲田径向专业化、国际化发展方
+中新网绍兴4月9日电(张煜欢)9日，2026长三角国际田径钻石赛(上海/绍兴柯桥)在浙江绍兴举行启动仪式暨新闻发布会，会上公布了首批44名明星选手阵容，包括杜普兰蒂斯、瓦尔霍姆、赫尔、吉普耶根、阿姆桑等5名世界纪录保持者在内，共计有22名奥运会或世锦赛冠军确认参加今年的比赛。他们将在5月16日登上中国轻纺城体育中心体育场的舞台，为观众献上一场颠覆对决。 值得一提的是，今年的长三
 
 ## 正文
 
-中新网重庆5月18日电 (记者 钟旖)第一届亚洲跳跃锦标赛暨第四届“一带一路”田径邀请赛暨2026年全国田径大奖赛(第3站)18日在重庆市长寿区开赛，吸引来自哈萨克斯坦、马来西亚、菲律宾、卡塔尔、新加坡等23个国家和地区的552名运动员参赛。
+中新网绍兴4月9日电(张煜欢)9日，2026长三角国际田径钻石赛(上海/绍兴柯桥)在浙江绍兴举行启动仪式暨新闻发布会，会上公布了首批44名明星选手阵容，包括杜普兰蒂斯、瓦尔霍姆、赫尔、吉普耶根、阿姆桑等5名世界纪录保持者在内，共计有22名奥运会或世锦赛冠军确认参加今年的比赛。
 
-其中，第一届亚洲跳跃锦标赛是亚洲田径联合会全新打造的专项顶级赛事，也是亚洲跳跃项目最高水平的竞技舞台，标志着亚洲田径向专业化、国际化发展方向迈进。
+他们将在5月16日登上中国轻纺城体育中心体育场的舞台，为观众献上一场颠覆对决。
 
-该项赛事面向亚田联全部会员协会开放，设男女子跳远、三级跳远、跳高、撑竿跳高共8个正式项目。
+值得一提的是，今年的长三角国际田径钻石赛将作为钻石联赛2026赛季的揭幕战精彩呈现，这也是本站赛事设立20多年来首度担纲这一重要角色。
 
-截至目前吸引18个国家和地区共计181人参赛。
+长三角国际田径钻石赛的前身可以追溯到2005年落户上海的国际田径黄金大奖赛及其在2010年升级而来的钻石联赛-上海站。
 
-中国选手方面，短跑亚运冠军陈佳鹏，女子100米栏选手林雨薇、女子跨栏选手莫家蝶、女子撑竿跳高选手牛春格、女子跳高选手陆佳雯将悉数登场。
+作为世界田联(World Athletics)旗下覆盖全球的顶级田径系列赛事的分站之一，长三角国际田径钻石赛去年首度移师绍兴柯桥举办，吸引近17000名观众现场观赛，不仅延展了长三角区域联合举办国际体育赛事的空间广度和合作深度，也持续深化了文、商、旅、体、展协同发展的全领域探索。
 
-国际选手方面，奥运冠军、卡塔尔跳高名将穆塔兹·伊萨·巴尔希姆(Mutaz Essa Barshim)等高水平运动员确认参赛。
+除了国内仅此一站的男子撑竿跳项目，今年的长三角国际田径钻石赛还将首度迎来男子300米栏的比拼。
 
-记者了解到，在为期两天的赛期中，第一届亚洲跳跃锦标赛暨第四届“一带一路”田径邀请赛暨2026年全国田径大奖赛(第3站)(即“三赛合一”)共设男子16项、女子16项及混合1项，总项目数达33项。
+这是世界田联在去年推出的全新项目，竞争也格外激烈。
 
-赛事组委会介绍，赛事严格对标国际标准办赛，面向公众免费开放并全程直播，当地同期配套文体旅活动，以“赛事+”模式推动体育与文化、旅游融合发展。
+柯桥观众可以在“家门口”看到男子400米栏世界纪录保持者瓦尔霍姆、尤金世锦赛男子400米栏冠军多斯桑托斯、男子400米栏赛会纪录保持者桑巴等名将出战这一全新竞技项目。
 
 ## 相关推荐
 
-- 2026-06-30 07:51 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
-- 2026-06-30 08:15 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-30 07:53 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-30 08:15 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
-- 2026-06-30 07:58 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-30 08:01 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-30 07:50 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-30 08:00 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-30 08:04 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-30 08:01 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-30 08:01 - [德国4比5巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-30 08:03 - [库尼亚赛后伸五指嘲讽日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
+- 2026-06-30 08:07 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-30 08:19 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-30 08:11 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-30 08:13 - [德国连续三届世界杯无缘16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
+- 2026-06-30 08:09 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-30 08:20 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-30 08:19 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-30 07:54 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:17 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/1854799306.shtml)
-- 2026-06-30 08:16 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/530704719.shtml)
-- 2026-06-30 07:55 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/5164576427.shtml)
-- 2026-06-30 08:02 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.minike.top/Article/details/88921202750.shtml)
-- 2026-06-30 08:16 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/699561.shtml)
-- 2026-06-30 08:15 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/235009781.shtml)
-- 2026-06-30 08:07 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/216531172.shtml)
-- 2026-06-30 07:56 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/3709465.shtml)
-- 2026-06-30 07:59 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/4637193678.shtml)
-- 2026-06-30 08:03 - [萨内 看笑了](http://www.share.minike.top/Article/details/54485189.shtml)
-- 2026-06-30 07:52 - [王欣瑜2-1击败科恰雷托](http://www.share.minike.top/Article/details/3364391.shtml)
-- 2026-06-30 08:10 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/145532984831.shtml)
-- 2026-06-30 08:04 - [一生一世](https://www.share.kurohicncr.top/Article/details/14737066555.shtml)
-- 2026-06-30 08:01 - [张月感谢了每一公的队友](https://www.share.minike.top/Article/details/0000068.shtml)
-- 2026-06-30 07:54 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/121274079.shtml)
+- 2026-06-30 08:17 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/817675.shtml)
+- 2026-06-30 08:06 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/389073295896.shtml)
+- 2026-06-30 07:56 - [高考填志愿父亲和女儿产生分歧](http://www.share.minike.top/Article/details/92065.shtml)
+- 2026-06-30 08:02 - [巴西替补奇兵读秒绝杀](https://www.blog.minike.top/Article/details/26776.shtml)
+- 2026-06-30 08:06 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.kurohicncr.top/Article/details/120835633462.shtml)
+- 2026-06-30 07:57 - [郑钦文温网一轮游](https://www.share.minike.top/Article/details/2919723679.shtml)
+- 2026-06-30 08:16 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/8833512.shtml)
+- 2026-06-30 08:11 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/7890674.shtml)
+- 2026-06-30 08:16 - [王欣瑜连续4年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/44254695331.shtml)
+- 2026-06-30 08:12 - [巴西2比1日本](http://www.blog.minike.top/Article/details/04214232.shtml)
+- 2026-06-30 08:03 - [美股](http://www.share.kurohicncr.top/Article/details/579254123904.shtml)
+- 2026-06-30 08:01 - [德国vs巴拉圭](https://www.share.minike.top/Article/details/59334471844.shtml)
+- 2026-06-30 07:57 - [存储芯片龙头提示风险](https://www.share.kurohicncr.top/Article/details/551528.shtml)
+- 2026-06-30 08:07 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/6371052.shtml)
+- 2026-06-30 07:57 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/866418814052.shtml)

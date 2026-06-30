@@ -1,61 +1,59 @@
-# 误传！这家“国有银行关停信用卡APP”并非“首家”
+# 2026年证券公司投资者教育评估工作启动 弄虚作假将从严惩戒
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-来源：老董聊卡 最近一段时间，网络上对中国银行官宣将于6月底关停信用卡“缤纷生活APP”一事开始了一轮热议，解读也是五花八门，最多的就是把这次关停定义为“首家国有大行”，但是这却是一个“乌龙”！ 中行在去年9月发布公告，将针对信用卡“缤纷生活APP”停止新增注册，后逐步关停，将全部功能和服务迁移至“中国银行APP”中。3月底已经停止新用户注册及绑卡功能，5月13日正式官宣将于6
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新一轮证券业投资者教育工作年度“大考”全面启动。 中国证券报·中证金牛座记者4月9日从业内独家获悉，中国证券业协会、上海证券交易所、深圳证券交易所及全国股转公司四家单位近日在业内联合下发通知，全面启动2026年证券公司投资者教育评估工作，评估期间为2025年4月1日至2026年3月31日，评估对象涵盖所有从
 
 ## 正文
 
-来源：老董聊卡 最近一段时间，网络上对中国银行官宣将于6月底关停信用卡“缤纷生活APP”一事开始了一轮热议，解读也是五花八门，最多的就是把这次关停定义为“首家国有大行”，但是这却是一个“乌龙”！
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-中行在去年9月发布公告，将针对信用卡“缤纷生活APP”停止新增注册，后逐步关停，将全部功能和服务迁移至“中国银行APP”中。
+新一轮证券业投资者教育工作年度“大考”全面启动。
 
-3月底已经停止新用户注册及绑卡功能，5月13日正式官宣将于6月底关停。
+中国证券报·中证金牛座记者4月9日从业内独家获悉，中国证券业协会、上海证券交易所、深圳证券交易所及全国股转公司四家单位近日在业内联合下发通知，全面启动2026年证券公司投资者教育评估工作，评估期间为2025年4月1日至2026年3月31日，评估对象涵盖所有从事经纪业务的证券公司。
 
-看到网络上几乎异口同声地提到这次关停是“国有银行中的首家”，但是这个提法是错的，真正“首家”关停的信用卡APP是建行的“掌上龙卡”，大概是在2017年前后就已经关停，迁移至建行APP中。
+与往年一脉相承，评估体系遵照《证券公司投资者教育工作评估指南》要求，基准分为100分，另附加分项最高4分。
 
-网上可以看到当年的痕迹。
+具体来看，券商投教工作评估内容分为投资者教育工作基本要求（10分）、投资者教育工作管理体系（20分）、投资者教育日常工作（40分）、参与或配合四家单位开展投资者教育工作情况（30分）、加分项目（最高4分）和被采取自律监管措施情况六个模块。
 
-目前，在六家国有银行中，建行和农行没有独立运营的信用卡APP，此次随着中行关停信用卡APP后，还有工行、交行和邮储仍在运营中，而被冠以“国有银行首家”都是以讹传讹。
+其中，最高4分的加分项目明确指向各券商推进投资者教育纳入国民教育体系情况以及券商制作的获省部级以上奖项的投教产品、举办的投教活动等，鼓励券商将投教工作前移至校园、下沉至社区，塑造行业长远发展的良性生态。
 
-信用卡APP，其实是个“非刚需” 在2010年随着移动互联网浪潮的到来，同时为了适应数字化时代发展趋势，主要银行推出信用卡APP，以招行“掌上生活”为代表的、以延伸用户服务为目的的大批信用卡APP应运而生，完成信用卡业务的服务体系从PC端向移动端的转型。
+评估还设定了严格的核查与惩罚机制，通知明确指出，四家单位根据工作要求可通过现场检查、非现场检查等方式，对券商投教工作情况进行核查。
 
-在增量发展时期，用户通过信用卡APP可以随时随地申请信用卡，并通过所提供的服务和权益，增强了用户的粘性。
+核查过程中，如发现公司存在弄虚作假、漏报瞒报等情形的，将依照《评估指南》的规定，对相关项目给予加倍扣分。
 
 ## 相关推荐
 
-- 2026-06-30 08:09 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-30 07:54 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-30 07:55 - [萨内 看笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-30 07:59 - [勇士续约波尔津吉斯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-30 08:09 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-30 08:15 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-30 08:03 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
-- 2026-06-30 07:57 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-30 08:13 - [森保一致歉：世界第一目标没能实现](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-30 08:01 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-30 08:04 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-30 07:50 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-30 07:49 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
-- 2026-06-30 07:52 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-30 07:52 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
+- 2026-06-30 08:08 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-30 08:10 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-30 08:01 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-30 08:05 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-30 08:01 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-30 08:03 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-30 08:07 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-30 07:55 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-30 08:06 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-30 08:04 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-30 08:03 - [德国队连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-30 08:05 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-30 08:23 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:50 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/494274564034.shtml)
-- 2026-06-30 08:04 - [王濛回复黄灿灿](https://www.blog.kurohicncr.top/Article/details/301818356084.shtml)
-- 2026-06-30 08:17 - [德国连续三届世界杯无缘16强](https://www.share.kurohicncr.top/Article/details/444336513934.shtml)
-- 2026-06-30 08:18 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/18071515695.shtml)
-- 2026-06-30 08:10 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/6551205.shtml)
-- 2026-06-30 08:09 - [郑钦文温网三连败西尼亚科娃](https://www.blog.kurohicncr.top/Article/details/9983600249.shtml)
-- 2026-06-30 07:59 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/973992741500.shtml)
-- 2026-06-30 08:11 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/49734025341.shtml)
-- 2026-06-30 08:14 - [网瘾賊大的阿嬷](http://www.blog.kurohicncr.top/Article/details/6740502522.shtml)
-- 2026-06-30 07:49 - [日本16强魔咒](http://www.blog.kurohicncr.top/Article/details/35762493828.shtml)
-- 2026-06-30 07:52 - [德国巴拉圭 折磨](http://www.share.kurohicncr.top/Article/details/15533575483.shtml)
-- 2026-06-30 07:53 - [DeepSeek V4正式版要来了](http://www.share.kurohicncr.top/Article/details/4329928006.shtml)
-- 2026-06-30 08:06 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/6124099132.shtml)
-- 2026-06-30 08:02 - [马耳他著名拱门坍塌致中国男子身亡](http://www.share.kurohicncr.top/Article/details/941250021146.shtml)
-- 2026-06-30 07:54 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/24573881310.shtml)
+- 2026-06-30 07:56 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/25349081.shtml)
+- 2026-06-30 08:12 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/6651109.shtml)
+- 2026-06-30 08:22 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/27252.shtml)
+- 2026-06-30 08:05 - [巴西醒醒 这是淘汰赛](https://www.share.minike.top/Article/details/4131871.shtml)
+- 2026-06-30 08:00 - [日本遭读秒绝杀 森保一：我水平不够](http://www.share.kurohicncr.top/Article/details/4318901749.shtml)
+- 2026-06-30 07:55 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/29824691.shtml)
+- 2026-06-30 08:11 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/038196788854.shtml)
+- 2026-06-30 08:19 - [巴西半场0比1日本](http://www.share.kurohicncr.top/Article/details/140996168142.shtml)
+- 2026-06-30 08:12 - [王灿兮被烫伤两年后维权成功](http://www.blog.minike.top/Article/details/887790608878.shtml)
+- 2026-06-30 08:06 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/4778277666.shtml)
+- 2026-06-30 08:22 - [杨紫获白玉兰视后争议不止](http://www.share.minike.top/Article/details/050075353.shtml)
+- 2026-06-30 08:10 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/80697738557.shtml)
+- 2026-06-30 08:15 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/565441970069.shtml)
+- 2026-06-30 08:16 - [网瘾賊大的阿嬷](http://www.share.minike.top/Article/details/4571123.shtml)
+- 2026-06-30 07:57 - [流金岁月](http://www.blog.minike.top/Article/details/89905780619.shtml)

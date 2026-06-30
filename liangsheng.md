@@ -1,59 +1,57 @@
-# 破壁垒、畅循环，让统一大市场活力奔涌
+# 俄罗斯对外情报局：欧盟已秘密启动研制核武器相关工作
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-好评中国·“经”彩开局｜破壁垒、畅循环，让统一大市场活力奔涌 市场监管总局近日正式印发专项行动方案，自今年5月至12月，在全系统组织开展破除妨碍统一市场和公平竞争卡点堵点专项行动，以更大力度和更实举措规范竞争秩序，力争到2026年底，废止、整合一批地方标准，基本消除地方标准造成的潜在市场分割和地方保护。 高质量发展是全面建设社会主义现代化国家的首要任务。高质量发展的一个核心特征
+中新网4月9日电 据俄罗斯媒体当地时间8日报道，俄罗斯对外情报局表示，欧盟已秘密启动建立自身核武器生产潜能的相关问题研究工作。 报道称，英国和法国正继续加强各自国家核战略的协调，而欧盟则计划正式确立一套“泛欧核威慑学说”，该学说依托英法军事技术能力以及欧盟无核武器国家的资金和基础设施，同时欧盟将为自身保留建立完全自主核力量指挥机构的可能性。 此外，俄对外情报局提到，“德国、意大
 
 ## 正文
 
-好评中国·“经”彩开局｜破壁垒、畅循环，让统一大市场活力奔涌 市场监管总局近日正式印发专项行动方案，自今年5月至12月，在全系统组织开展破除妨碍统一市场和公平竞争卡点堵点专项行动，以更大力度和更实举措规范竞争秩序，力争到2026年底，废止、整合一批地方标准，基本消除地方标准造成的潜在市场分割和地方保护。
+中新网4月9日电 据俄罗斯媒体当地时间8日报道，俄罗斯对外情报局表示，欧盟已秘密启动建立自身核武器生产潜能的相关问题研究工作。
 
-高质量发展是全面建设社会主义现代化国家的首要任务。
+报道称，英国和法国正继续加强各自国家核战略的协调，而欧盟则计划正式确立一套“泛欧核威慑学说”，该学说依托英法军事技术能力以及欧盟无核武器国家的资金和基础设施，同时欧盟将为自身保留建立完全自主核力量指挥机构的可能性。
 
-高质量发展的一个核心特征就是资源的高效配置。
+此外，俄对外情报局提到，“德国、意大利、捷克、比利时、荷兰、瑞典和西班牙在研发核武器部件方面已拥有丰富经验，具备生产此类部件的民用和军工能力，且其境内储存大量来自退役核电站的乏燃料。
 
-在割裂的市场中，劳动力、资本、技术、数据等生产要素难以向效率更高的地区和行业顺畅流动。
+” 俄对外情报局补充道，这些乏燃料可能被未经授权地取出，用于分离制造原子弹所需的钚，德国专家甚至能够在约一个月时间内秘密获取制造一枚核爆炸装置所需的武器级钚。
 
-比如，一个地方为了保护本地落后企业，设置隐性壁垒不让外地优质产品进入，结果就是本地消费者花更高的价格买更低质量的产品，本地资源被低效企业占用，而外地高效企业无法顺利扩大市场。
+俄对外情报局还称：“我们呼吁美国政府和世界各国领导层尽一切努力，阻止欧盟打造自身核武器，否则全球核军备竞赛将不可避免进入新一轮升级。
 
-这样的“内耗”和低水平重复建设，显然是经济高质量发展的绊脚石。
-
-大国经济的优势就是内部可循环，超大规模市场是我国经济发展的内在动力、韧性和潜力所在。
-
-规模越大的市场，越需要规范统一。
+”
 
 ## 相关推荐
 
-- 2026-06-30 08:15 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
-- 2026-06-30 08:08 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
-- 2026-06-30 08:15 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
-- 2026-06-30 07:53 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
-- 2026-06-30 07:56 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-30 08:14 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
-- 2026-06-30 07:49 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-30 08:16 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-30 08:08 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-30 07:59 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-30 08:09 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
-- 2026-06-30 07:50 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-30 08:06 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-30 08:02 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-30 07:58 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
+- 2026-06-30 08:04 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-30 08:14 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-30 08:03 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-30 08:01 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-30 08:13 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-30 08:10 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
+- 2026-06-30 08:13 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-30 08:21 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-30 07:59 - [世界杯欧洲队7战南美仅1胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-30 07:58 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-30 08:14 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-30 07:58 - [日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-30 08:17 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:13 - [覃予萱晋级WTT美国大满贯女单32强](https://www.share.minike.top/Article/details/35274276077.shtml)
-- 2026-06-30 07:48 - [董卿父亲报纸上发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/9010770.shtml)
-- 2026-06-30 07:56 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/54405.shtml)
-- 2026-06-30 08:01 - [德国vs巴拉圭](https://www.share.minike.top/Article/details/946602.shtml)
-- 2026-06-30 08:08 - [孙兴慜道歉](https://www.blog.minike.top/Article/details/868731.shtml)
-- 2026-06-30 07:48 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/80166604343.shtml)
-- 2026-06-30 08:05 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/074161942.shtml)
-- 2026-06-30 07:58 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/199734005.shtml)
-- 2026-06-30 07:58 - [DeepSeek V4正式版要来了](https://www.blog.minike.top/Article/details/795790.shtml)
-- 2026-06-30 08:11 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/72635.shtml)
-- 2026-06-30 08:08 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/2004969620.shtml)
-- 2026-06-30 08:13 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/9223879.shtml)
-- 2026-06-30 08:10 - [勇士续约波尔津吉斯](http://www.share.kurohicncr.top/Article/details/23311036.shtml)
-- 2026-06-30 07:55 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/07607.shtml)
-- 2026-06-30 08:09 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.minike.top/Article/details/004688362820.shtml)
+- 2026-06-30 08:14 - [F1奥地利站赛后复盘](https://www.blog.kurohicncr.top/Article/details/5233562.shtml)
+- 2026-06-30 08:03 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/46811527.shtml)
+- 2026-06-30 08:21 - [“草莓月亮”浪漫现身](http://www.share.minike.top/Article/details/517800483.shtml)
+- 2026-06-30 08:23 - [德国淘汰](https://www.share.kurohicncr.top/Article/details/854284474.shtml)
+- 2026-06-30 08:05 - [F1奥地利站赛后复盘](https://www.blog.kurohicncr.top/Article/details/48220.shtml)
+- 2026-06-30 08:16 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.minike.top/Article/details/81707199.shtml)
+- 2026-06-30 07:54 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/49425.shtml)
+- 2026-06-30 07:56 - [郑钦文温网三连败西尼亚科娃](https://www.share.minike.top/Article/details/52378.shtml)
+- 2026-06-30 07:55 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/6503966127.shtml)
+- 2026-06-30 08:09 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/47520.shtml)
+- 2026-06-30 08:06 - [日本五次世界杯淘汰赛全败](http://www.blog.minike.top/Article/details/365370268815.shtml)
+- 2026-06-30 08:09 - [穆祉丞年度人气艺人](http://www.share.minike.top/Article/details/230627315090.shtml)
+- 2026-06-30 08:23 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.kurohicncr.top/Article/details/613754.shtml)
+- 2026-06-30 07:54 - [德国巴拉圭 折磨](https://www.blog.minike.top/Article/details/762519274481.shtml)
+- 2026-06-30 08:08 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/99578591.shtml)

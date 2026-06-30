@@ -1,56 +1,61 @@
-# 影像双雄全面战争：影石“杀”向大疆腹地，大疆“端”了影石老巢
+# 伊朗导弹命中率增长8倍，美以为何防不胜防？
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！（来源：网易科技）近日，运动相机鼻祖GoPro宣布，其董事会已授权启动一项"战略评估流程"，考虑出售公司或进行合并等多种战略选项，并宣布裁员145人，这是近两年来的第三轮裁员。推动GoPro走向出售日程的，是持续恶化的财务状况。2025年其营收为6.52亿美元（约40.46亿元），同比下降近20%；归母净利
+中新网4月9日电(记者 刁炜)美国智库摩根大通近日称，伊朗导弹对以色列目标的命中率显著上升，已从冲突最初两周的3%增至4月初的27%，这一说法得到了以方信源的间接印证。 外媒称，以色列虽宣布己方反导系统拦截率超过90%，却又坦言无法摧毁伊朗集束弹头的所有子弹药，也不能完全避免导弹碎片造成的附加伤害。 比如据《以色列时报》报道，当地时间3月29日，伊朗导弹碎片击中以色列南部一家化
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网4月9日电(记者 刁炜)美国智库摩根大通近日称，伊朗导弹对以色列目标的命中率显著上升，已从冲突最初两周的3%增至4月初的27%，这一说法得到了以方信源的间接印证。
 
-（来源：网易科技）近日，运动相机鼻祖GoPro宣布，其董事会已授权启动一项"战略评估流程"，考虑出售公司或进行合并等多种战略选项，并宣布裁员145人，这是近两年来的第三轮裁员。
+外媒称，以色列虽宣布己方反导系统拦截率超过90%，却又坦言无法摧毁伊朗集束弹头的所有子弹药，也不能完全避免导弹碎片造成的附加伤害。
 
-推动GoPro走向出售日程的，是持续恶化的财务状况。
+比如据《以色列时报》报道，当地时间3月29日，伊朗导弹碎片击中以色列南部一家化工厂储存设施，引发大火和危险化学品泄漏。
 
-2025年其营收为6.52亿美元（约40.46亿元），同比下降近20%；归母净利润为-8082.00万美元（-5.49亿元），亏损同比扩大73.03%，且2023年至2025年累计亏损约5.8亿美元（39.4亿元）。
+值得注意的是，2025年“12日战争”结束后，《耶路撒冷邮报》曾称以方对伊朗导弹的拦截率约为80%。
 
-就在Go Pro陷入泥潭时，另一家运动影像领域的明星公司——影石创新（以下简称"影石"）刚交出的业绩，也难言乐观。
+而当时，伊朗的反击没有这次强烈持久，以色列的国土反导防空网也比现在体系更严密、弹药更充足。
 
-2025年，影石实现营收97.41亿元，同比增长74.76%，创历史新高；归母净利润仅有9.29亿元，同比下降6.62%，终止了过往盈利持续增长的趋势。
+英国防务智库披露，截至3月下旬，以色列的“箭-2”“箭-3”反导拦截弹已消耗约八成，“大卫投石索”近程拦截弹则剩40%左右。
 
-进入2026年一季度，增收不增利的态势加剧，营收同比增长83.11%至24.81亿元，归母净利润却大幅下滑52.02%至0.85亿元。
+至于新闻中曝光率很高的“铁穹”防空系统，综合各方消息来看，其每次作战少则发射2至3枚，多则发射8至20枚拦截弹，消耗速度同样十分惊人。
 
-从业绩层面，影石早已将GoPro甩在身后。
+既然“盾”逐渐变得薄弱，那么“矛”的突防成功率随之提高，就是自然而然的事情了。
 
 ## 相关推荐
 
-- 2026-06-30 08:14 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-30 07:51 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
-- 2026-06-30 08:06 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-30 08:02 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-30 07:51 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-30 08:01 - [锐评T1战胜KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-30 08:10 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-30 07:48 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-30 07:53 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
-- 2026-06-30 07:48 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-30 08:17 - [德国队世界杯点球大战首败](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-30 07:58 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-30 07:55 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-30 08:03 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-30 07:56 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-30 08:05 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-30 08:15 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-30 08:10 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-30 08:18 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-30 08:01 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
+- 2026-06-30 08:09 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-30 08:00 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-30 07:54 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-30 07:58 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
+- 2026-06-30 07:56 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:54 - [DeepSeek V4正式版要来了](http://www.blog.minike.top/Article/details/056809438368.shtml)
-- 2026-06-30 08:17 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/79710959715.shtml)
-- 2026-06-30 08:04 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/1893106860.shtml)
-- 2026-06-30 08:07 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.kurohicncr.top/Article/details/733785694.shtml)
-- 2026-06-30 07:57 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/682680.shtml)
-- 2026-06-30 07:48 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/7970215.shtml)
-- 2026-06-30 08:01 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/015273374.shtml)
-- 2026-06-30 08:04 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/919339795109.shtml)
-- 2026-06-30 07:49 - [这一刀 会很帅](http://www.share.minike.top/Article/details/366885229.shtml)
-- 2026-06-30 08:14 - [F1奥地利站赛后复盘](http://www.share.minike.top/Article/details/98298969673.shtml)
-- 2026-06-30 08:08 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/49601.shtml)
-- 2026-06-30 07:59 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/778753406.shtml)
-- 2026-06-30 07:53 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/00286.shtml)
-- 2026-06-30 08:11 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/6917876643.shtml)
-- 2026-06-30 08:13 - [男子在京东买到“同仁堂”假药](https://www.share.minike.top/Article/details/622579377311.shtml)
+- 2026-06-30 08:07 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/79712676202.shtml)
+- 2026-06-30 08:14 - [存储芯片龙头提示风险](http://www.share.kurohicncr.top/Article/details/918274175.shtml)
+- 2026-06-30 08:00 - [恋与深空制作组回应近期争议](http://www.share.kurohicncr.top/Article/details/46028669.shtml)
+- 2026-06-30 08:20 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/6680763874.shtml)
+- 2026-06-30 08:12 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/3339236218.shtml)
+- 2026-06-30 07:57 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/760464918691.shtml)
+- 2026-06-30 08:08 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/3640079915.shtml)
+- 2026-06-30 08:15 - [德国爆冷点球大战不敌巴拉圭](https://www.blog.kurohicncr.top/Article/details/399417982.shtml)
+- 2026-06-30 07:55 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/13082513.shtml)
+- 2026-06-30 08:16 - [美股深夜大反弹 特斯拉飙涨8%](http://www.share.minike.top/Article/details/56776017399.shtml)
+- 2026-06-30 08:00 - [千与千寻](http://www.share.minike.top/Article/details/75936411.shtml)
+- 2026-06-30 08:23 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/005325.shtml)
+- 2026-06-30 08:13 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/70466.shtml)
+- 2026-06-30 08:20 - [郑钦文温网首轮出局](https://www.share.minike.top/Article/details/9135943932.shtml)
+- 2026-06-30 08:21 - [郑钦文温网首轮出局](http://www.share.minike.top/Article/details/548969964461.shtml)

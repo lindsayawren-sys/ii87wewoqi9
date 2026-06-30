@@ -1,59 +1,61 @@
-# 明日停牌！3家A股公司将摘帽
+# 四川省委向党外人士通报党风廉政建设和反腐败工作情况
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者丨林芊蔚 编辑丨江佩霞 5月18日晚，3家A股公司集体公告，撤销退市风险警示，5月20日起复牌！ *ST华微（维权）：撤销退市风险警示及其他风险警示 *ST华微（600360.SH）公告称，公司股票将于2026年5月19日停牌一天，自2026年5月20日起复牌并撤销退市风险警示及其他风险警示。撤销后，公
+4月7日，中共四川省委召开党风廉政建设和反腐败工作党外人士专题协商座谈会，向各民主党派省委会、省工商联和无党派人士，民营经济、少数民族和宗教界、港澳台及侨界、新的社会阶层、网络代表人士等通报2025年全省党风廉政建设和反腐败工作情况，听取意见建议。省委常委、省纪委书记、省监委主任廖建宇作工作通报，省委常委、统战部部长普布顿珠主持会议。会议指出，2025年，在中央纪委国家监委和省
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+4月7日，中共四川省委召开党风廉政建设和反腐败工作党外人士专题协商座谈会，向各民主党派省委会、省工商联和无党派人士，民营经济、少数民族和宗教界、港澳台及侨界、新的社会阶层、网络代表人士等通报2025年全省党风廉政建设和反腐败工作情况，听取意见建议。
 
-记者丨林芊蔚 编辑丨江佩霞 5月18日晚，3家A股公司集体公告，撤销退市风险警示，5月20日起复牌！
+省委常委、省纪委书记、省监委主任廖建宇作工作通报，省委常委、统战部部长普布顿珠主持会议。
 
-*ST华微（维权）：撤销退市风险警示及其他风险警示 *ST华微（600360.SH）公告称，公司股票将于2026年5月19日停牌一天，自2026年5月20日起复牌并撤销退市风险警示及其他风险警示。
+会议指出，2025年，在中央纪委国家监委和省委的坚强领导下，省纪委监委增强政治主动、践行精准理念、运用系统思维，强化政治监督服务中心大局，推动作风建设常态化长效化，大力纵深推进群众身边不正之风和腐败问题集中整治，全省党风廉政建设和反腐败工作取得新成效。
 
-撤销后，公司股票简称由“*ST华微”变更为“华微电子”，股票代码不变，日涨跌幅限制由5%变为10%。
+一年来，各民主党派省委会、省工商联、无党派人士提出4个方面26条意见建议，均得到省纪委监委高度重视和认真办理。
 
-4月20日晚间，*ST华微分别披露了2025年年度报告和2026年第一季度报告。
+2026年，全省各级纪检监察机关将持之以恒推进全面从严治党，更加有力有效铲除腐败滋生的土壤和条件，为实现全省“十五五”时期目标任务提供坚强保障。
 
-公告显示，公司2025年实现营业收入22.55亿元，同比增长9.61%；归母净利润1.73亿元，同比增长35.32%。
+会议强调，全省统一战线要认真学习习近平总书记关于党风廉政建设和反腐败斗争的重要论述，积极支持和参与全省党风廉政建设和反腐败工作。
 
-2026年第一季度，公司实现营业收入6.66亿元，同比增长3.61%；归母净利润5790.19万元，同比增长5.44%。
+要履行民主监督职责，发挥“直通车”优势，围绕“十五五”规划制定实施、构建亲清政商关系等重点领域开展监督，切实把民主监督转化为治理效能。
 
-股价方面，*ST华微报11.51元/股，最新市值111亿元。
+要持续加强自身建设，扎实开展“参政为公、实干为民”主题教育，进一步完善内部监督机制，着力营造风清气正政治生态，不断巩固发展多党合作良好政治格局。
 
 ## 相关推荐
 
-- 2026-06-30 08:05 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-30 08:05 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-30 08:15 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-30 08:05 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-30 07:58 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-30 08:07 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-30 08:15 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-30 07:48 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-30 08:07 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-30 08:05 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
-- 2026-06-30 07:59 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-30 08:14 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-30 08:15 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-30 08:14 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-30 08:04 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-30 08:06 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-30 07:59 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-30 07:56 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-30 08:21 - [日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-30 08:21 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-30 08:10 - [田中碧失误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
+- 2026-06-30 07:59 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-30 08:02 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-30 08:15 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
+- 2026-06-30 08:11 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-30 08:03 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-30 08:02 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-30 08:18 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:07 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/837574.shtml)
-- 2026-06-30 07:48 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.minike.top/Article/details/6811888809.shtml)
-- 2026-06-30 07:55 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/39220.shtml)
-- 2026-06-30 08:17 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/98674712911.shtml)
-- 2026-06-30 08:01 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/47781685388.shtml)
-- 2026-06-30 08:01 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.minike.top/Article/details/3404992318.shtml)
-- 2026-06-30 08:15 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.share.minike.top/Article/details/6824921779.shtml)
-- 2026-06-30 08:07 - [张帅晋级温网次轮](https://www.blog.minike.top/Article/details/123285152.shtml)
-- 2026-06-30 07:54 - [哈弗茨头球破门](https://www.blog.minike.top/Article/details/04304.shtml)
-- 2026-06-30 08:15 - [健全中小学教师工资长效联动机制](https://www.blog.minike.top/Article/details/529256.shtml)
-- 2026-06-30 08:06 - [巴西vs日本](http://www.blog.kurohicncr.top/Article/details/471159977216.shtml)
-- 2026-06-30 08:05 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/5378160950.shtml)
-- 2026-06-30 07:48 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/7005945.shtml)
-- 2026-06-30 07:59 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.kurohicncr.top/Article/details/759693834.shtml)
-- 2026-06-30 07:57 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/658735060.shtml)
+- 2026-06-30 07:57 - [爆冷出局！德国点球大战不敌巴拉圭](http://www.share.minike.top/Article/details/5763338144.shtml)
+- 2026-06-30 08:07 - [巴西补时绝杀日本](https://www.blog.minike.top/Article/details/384211684.shtml)
+- 2026-06-30 07:56 - [起风了](https://www.share.minike.top/Article/details/223505992497.shtml)
+- 2026-06-30 07:54 - [为什么会有「念旧」的心理？](https://www.share.kurohicncr.top/Article/details/21681.shtml)
+- 2026-06-30 07:58 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/482101074.shtml)
+- 2026-06-30 08:14 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/0452308327.shtml)
+- 2026-06-30 08:13 - [佐野海舟远射破门](https://www.blog.minike.top/Article/details/22685868.shtml)
+- 2026-06-30 08:11 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/66755628661.shtml)
+- 2026-06-30 08:18 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/43906676.shtml)
+- 2026-06-30 08:06 - [媒体评哈兰德之歌火了](https://www.blog.kurohicncr.top/Article/details/40767905.shtml)
+- 2026-06-30 08:19 - [AI手机进入Agent时代](http://www.blog.kurohicncr.top/Article/details/479797559824.shtml)
+- 2026-06-30 07:57 - [周冬雨多次说演不了话剧文城](http://www.blog.minike.top/Article/details/341077.shtml)
+- 2026-06-30 08:09 - [补时绝杀 巴西2-1淘汰日本](http://www.share.kurohicncr.top/Article/details/99864379.shtml)
+- 2026-06-30 08:09 - [德国 传控](https://www.blog.kurohicncr.top/Article/details/186013623.shtml)
+- 2026-06-30 08:14 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/782578316802.shtml)

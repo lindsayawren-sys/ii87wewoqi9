@@ -1,59 +1,61 @@
-# 华泰期货：郑棉止跌企稳，糖价窄幅波动
+# 刘楚斌卸任总经理 程三平担任长江财险临时负责人
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-来源：华泰期货 作者： 李馨 棉花观点 市场要闻与重要数据 期货方面，昨日收盘棉花2609合约16090元/吨，较前一日变动+5元/吨，幅度+0.03%。现货方面，3128B棉新疆到厂价17556元/吨，较前一日变动-223元/吨，现货基差CF09+1466，较前一日变动-228；3128B棉全国均价17703元/吨，较前一日变动-257元/吨，现货基差CF09+1613，较前
+4月9日金融一线消息，长江财险日前发布公告称，根据工作需要及个人意愿，经公司近期董事会会议审议通过，刘楚斌不再担任公司总经理职务。由程三平担任公司临时负责人，代行总经理职责。 公开资料显示，刘楚斌，1966年11月出生。历任平安产险广东分公司车险部总经理、平安产险江苏分公司副总经理、信达财险业务总监兼广东分公司总经理、国任保险业务总监兼国任学院院长、广州市亚美信息科技有限公司首
 
 ## 正文
 
-来源：华泰期货 作者： 李馨 棉花观点 市场要闻与重要数据 期货方面，昨日收盘棉花2609合约16090元/吨，较前一日变动+5元/吨，幅度+0.03%。
+4月9日金融一线消息，长江财险日前发布公告称，根据工作需要及个人意愿，经公司近期董事会会议审议通过，刘楚斌不再担任公司总经理职务。
 
-现货方面，3128B棉新疆到厂价17556元/吨，较前一日变动-223元/吨，现货基差CF09+1466，较前一日变动-228；3128B棉全国均价17703元/吨，较前一日变动-257元/吨，现货基差CF09+1613，较前一日变动-262。
+由程三平担任公司临时负责人，代行总经理职责。
 
-近期市场资讯，据美国农业部（USDA）报告，5月8日至5月14日，美国2025/26年度棉花分级检验0.15万吨，95.4%的皮棉达到ICE期棉交割要求。
+公开资料显示，刘楚斌，1966年11月出生。
 
-至同期，累计分级检验306.76万吨，81.7%的皮棉达到ICE期棉交割要求。
+历任平安产险广东分公司车险部总经理、平安产险江苏分公司副总经理、信达财险业务总监兼广东分公司总经理、国任保险业务总监兼国任学院院长、广州市亚美信息科技有限公司首席保险顾问等职务。
 
-其中陆地棉检验量为297.91万吨，皮马棉为8.86万吨。
+2021年7月26日，经湖北省委决定，同意刘楚斌为长江财产保险股份有限公司总经理人选，并由其作为公司临时负责人开始履职。
 
-市场分析 昨日郑棉期价止跌企稳。
+2021年9月，刘楚斌正式上任长江财险总经理。
 
-国际方面，中东冲突推高棉花种植成本，26/27年度全球供应减产的预期持续存在，当前北半球正处于关键种植期，市场已进入对天气高度敏感的阶段，推动美棉持续走强。
+程三平，男，1969年5月生，中南财经大学企业财务管理专业毕业，湖北省委党校大学学历，高级会计师。
 
-不过目前市场已对供应缩减预期进行了较为充分的交易，近期美棉产区也迎来降雨，美棉持续上涨动能减弱，短期面临一定回调压力。
+自2021年3月起担任长江财产保险股份有限公司董事，自2021年5月起担任长江财产保险股份有限公司财务负责人。
 
 ## 相关推荐
 
-- 2026-06-30 08:01 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-30 08:09 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
-- 2026-06-30 08:14 - [郑钦文温网首轮出局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-30 08:04 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-30 08:02 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-30 08:04 - [世界杯欧洲队7战南美仅1胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-30 07:51 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
-- 2026-06-30 08:06 - [日本队5进世界杯淘汰赛0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-30 08:01 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-30 08:03 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-30 07:51 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
-- 2026-06-30 07:52 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
-- 2026-06-30 07:48 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-30 08:23 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-30 08:12 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-30 08:05 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-30 08:14 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-30 07:56 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-30 08:01 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-30 08:06 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-30 08:18 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-30 08:17 - [德国淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-30 08:00 - [齐思钧回复张月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-30 07:58 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-30 07:55 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
+- 2026-06-30 08:03 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
+- 2026-06-30 08:12 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-30 07:59 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:53 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/18364769496.shtml)
-- 2026-06-30 08:14 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/587538036811.shtml)
-- 2026-06-30 07:48 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/05617422.shtml)
-- 2026-06-30 08:12 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/4553739636.shtml)
-- 2026-06-30 08:08 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.kurohicncr.top/Article/details/15007.shtml)
-- 2026-06-30 07:53 - [女子遭下药退赔偿拟追刑责](http://www.blog.minike.top/Article/details/723592086.shtml)
-- 2026-06-30 07:56 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://www.share.kurohicncr.top/Article/details/59896235.shtml)
-- 2026-06-30 07:51 - [周生如故](https://www.share.kurohicncr.top/Article/details/647038839.shtml)
-- 2026-06-30 07:54 - [世界杯巴拉圭点球淘汰德国](https://www.blog.kurohicncr.top/Article/details/101937476952.shtml)
-- 2026-06-30 08:07 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/820361.shtml)
-- 2026-06-30 08:14 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/47403.shtml)
-- 2026-06-30 07:49 - [巴拉圭先进球了](http://www.blog.kurohicncr.top/Article/details/52823935.shtml)
-- 2026-06-30 08:01 - [普京间接喊话特朗普有何考量](https://www.blog.kurohicncr.top/Article/details/0512106.shtml)
-- 2026-06-30 07:52 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.minike.top/Article/details/983639649.shtml)
-- 2026-06-30 08:04 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/53256191952.shtml)
+- 2026-06-30 08:01 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/96223751.shtml)
+- 2026-06-30 08:10 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/30438.shtml)
+- 2026-06-30 07:56 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/5054401612.shtml)
+- 2026-06-30 08:19 - [巴西补时绝杀日本](http://www.blog.minike.top/Article/details/89166786327.shtml)
+- 2026-06-30 07:59 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/14140.shtml)
+- 2026-06-30 08:12 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/7262565.shtml)
+- 2026-06-30 08:18 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/9954201630.shtml)
+- 2026-06-30 08:09 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/776223057171.shtml)
+- 2026-06-30 08:10 - [点球大战](https://www.blog.minike.top/Article/details/8878250738.shtml)
+- 2026-06-30 08:09 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/36408264.shtml)
+- 2026-06-30 08:10 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/90976395746.shtml)
+- 2026-06-30 08:03 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/479147.shtml)
+- 2026-06-30 08:14 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/2592803.shtml)
+- 2026-06-30 08:17 - [曝灰熊将莫兰特交易至开拓者](https://www.blog.kurohicncr.top/Article/details/777461298.shtml)
+- 2026-06-30 07:58 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/756944545.shtml)

@@ -1,59 +1,60 @@
-# 渣打银行因加大人工智能应用力度，拟裁员近 8000 人
+# 杨德龙：特朗普如预期宣布停战两周 大盘迎来新一轮大涨机会
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-渣打银行将人工智能确立为全新战略核心，计划裁员近 8000 人，这一举措鲜明体现出人工智能正深刻重塑金融业人力结构。 这家主打亚洲市场的银行于周二宣布，计划到 2030 年将中后台员工数量削减超 15%。 该行首席执行官比尔・温特斯表示，此次人员调整将波及集团全球业务网络内的人力资源、风控及合规等后台职能部门，涉及多地运营中心。 他称：“此举并非单纯削减成本，而是在部分领域用金
+中东战局发生变化，亚太股市暴涨，A股和港股也应声而起。今日沪深港股市均出现暴涨，上证指数大涨2.7%，全天高开高走，收出“光头光脚”大阳线，逼近4000点整数关口；深证成指大涨4.79%，创业板指大涨5.91%，收复了多日失地；恒生指数大涨3%，恒生科技指数大涨约5%。主要市场一扫多日阴霾，出现大幅上涨。今日的上涨无疑受到中东局势出现停战利好的刺激。此前我多次强调，4月份战局将
 
 ## 正文
 
-渣打银行将人工智能确立为全新战略核心，计划裁员近 8000 人，这一举措鲜明体现出人工智能正深刻重塑金融业人力结构。
+中东战局发生变化，亚太股市暴涨，A股和港股也应声而起。
 
-这家主打亚洲市场的银行于周二宣布，计划到 2030 年将中后台员工数量削减超 15%。
+今日沪深港股市均出现暴涨，上证指数大涨2.7%，全天高开高走，收出“光头光脚”大阳线，逼近4000点整数关口；深证成指大涨4.79%，创业板指大涨5.91%，收复了多日失地；恒生指数大涨3%，恒生科技指数大涨约5%。
 
-该行首席执行官比尔・温特斯表示，此次人员调整将波及集团全球业务网络内的人力资源、风控及合规等后台职能部门，涉及多地运营中心。
+主要市场一扫多日阴霾，出现大幅上涨。
 
-他称：“此举并非单纯削减成本，而是在部分领域用金融资本与产业投入，替代低价值人力岗位。
+今日的上涨无疑受到中东局势出现停战利好的刺激。
 
-” 温特斯坦言，未来银行会逐步以智能系统替代人工岗位，且随着人工智能落地深入，这一趋势还会加快；同时银行也会开展员工培训，让部分人员转岗就职。
+此前我多次强调，4月份战局将明朗。
 
-渣打银行表示，已提前达成年度节约 15 亿美元成本的适配增长战略目标。
+特朗普在国内承受着巨大的反战压力，虽然他在口号上一直叫嚣要将伊朗打回石器时代、让伊朗文明消失，但实际上这是一种极限施压手段，目的是为谈判增加筹码。
 
-该行于香港举办投资者日活动期间公布全新发展目标，重心转向提升非利息收入，重点挖掘高净值中国客户、贸易业务及金融机构客户相关业务增量。
+但伊朗已经看透特朗普的伎俩，完全不理会其威胁。
 
-新业绩目标明确：2028 年有形股本回报率提升至 15% 以上，高于此前定下的 2026 年超 12% 的目标；2030 年该指标目标设定为 18% 以上。
+在特朗普极限施压的计谋不能得逞后，他果断选择转向，宣称将停战两周。
 
 ## 相关推荐
 
-- 2026-06-30 08:15 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-30 08:05 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-30 08:16 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
-- 2026-06-30 08:05 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-30 08:04 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
-- 2026-06-30 08:12 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-30 08:10 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-30 07:52 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-30 07:54 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-30 08:00 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
-- 2026-06-30 08:09 - [德国巴拉圭进入点球大战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
-- 2026-06-30 08:17 - [日本博主：日本足球真的垃圾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-30 07:54 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
+- 2026-06-30 08:17 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-30 08:14 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
+- 2026-06-30 08:13 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
+- 2026-06-30 08:23 - [莫兰特转投开拓者效力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
+- 2026-06-30 08:12 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-30 08:14 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-30 08:17 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-30 08:05 - [诺伊尔尽力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-30 08:15 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-30 08:21 - [巴西足球能否再现昔日荣光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-30 08:18 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-30 08:18 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-30 08:21 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-30 08:10 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:52 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/32965724.shtml)
-- 2026-06-30 08:09 - [现在叛逆期的孩子最怕的是什么？](http://www.blog.minike.top/Article/details/200372.shtml)
-- 2026-06-30 07:49 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/5210861824.shtml)
-- 2026-06-30 08:06 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/23156.shtml)
-- 2026-06-30 07:49 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/604591.shtml)
-- 2026-06-30 08:06 - [董卿父亲报纸上发文悼念亡妻](http://www.share.minike.top/Article/details/977584564767.shtml)
-- 2026-06-30 07:54 - [世界杯：德国vs巴拉圭](http://www.blog.minike.top/Article/details/908332613883.shtml)
-- 2026-06-30 08:16 - [刘宇宁是去进货了吗](https://www.blog.minike.top/Article/details/6325808425.shtml)
-- 2026-06-30 08:08 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/38161840.shtml)
-- 2026-06-30 08:11 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.share.minike.top/Article/details/5071446433.shtml)
-- 2026-06-30 07:56 - [赛博朋克边缘行者2预告片](https://www.blog.kurohicncr.top/Article/details/9571545717.shtml)
-- 2026-06-30 08:15 - [AI手机进入Agent时代](http://www.blog.minike.top/Article/details/5604613.shtml)
-- 2026-06-30 08:15 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/010544003442.shtml)
-- 2026-06-30 08:14 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/647411.shtml)
-- 2026-06-30 07:50 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/93691168.shtml)
+- 2026-06-30 08:10 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/1355257301.shtml)
+- 2026-06-30 08:09 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/574253.shtml)
+- 2026-06-30 07:54 - [世界杯巴拉圭点球淘汰德国](http://www.share.kurohicncr.top/Article/details/902427.shtml)
+- 2026-06-30 08:19 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/617721049746.shtml)
+- 2026-06-30 07:59 - [董卿父亲报纸上发文悼念亡妻](https://www.share.minike.top/Article/details/182282675.shtml)
+- 2026-06-30 08:02 - [日本16强魔咒](http://www.blog.minike.top/Article/details/95541315629.shtml)
+- 2026-06-30 07:58 - [世界杯巴拉圭点球淘汰德国](https://www.share.minike.top/Article/details/03264283.shtml)
+- 2026-06-30 08:16 - [沙丘](http://www.share.minike.top/Article/details/40814735713.shtml)
+- 2026-06-30 08:02 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/145945477.shtml)
+- 2026-06-30 08:22 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/6069314.shtml)
+- 2026-06-30 08:01 - [一生一世](http://www.share.minike.top/Article/details/76943186.shtml)
+- 2026-06-30 07:55 - [巴西半场0比1日本](https://www.blog.minike.top/Article/details/6703562.shtml)
+- 2026-06-30 07:59 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.minike.top/Article/details/164486108.shtml)
+- 2026-06-30 07:54 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/4948360.shtml)
+- 2026-06-30 08:12 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.kurohicncr.top/Article/details/137358740.shtml)

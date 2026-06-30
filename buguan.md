@@ -1,61 +1,60 @@
-# 长江有色：中东局势缓和多头试探性修复 19日铅价或涨跌不大
+# 达美航空CEO：公司将大幅削减运力增长计划，旗下炼油厂预计带来3亿美元收益
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-【ccmn.cn铅期货市场】隔周伦铅收跌，开盘报1983.50美元/吨，高点报1987美元，低点报1976美元，尾盘收于1981美元，下跌3美元，跌幅为0.15%，成交量为5608手，持仓量报176718手。 长江铅业网（pb.ccmn.cn）今日现货铅价行情预估：受美联储降息预期降温、获利盘集中兑现及海外高库存压制，隔夜伦铅维持弱势震荡；嘉能可炼厂事故与秘鲁能源危机带来的供应
+达美航空CEO埃德·巴斯蒂安表示，受燃油价格暴涨影响，公司短期内将大幅缩减运力增长计划。受中东战争引发的航空燃油历史性涨价冲击，多家航司已纷纷收缩运力，达美此举进一步确认了这一趋势。 受油价下跌提振，美国航司股价集体走高，达美航空早盘涨幅超8%，竞争对手股价也大幅上涨。 达美周三预测，第二季度调整后每股收益为1至1.5美元，高于分析师预期的1.41美元；营收同比将实现低两位数百
 
 ## 正文
 
-【ccmn.cn铅期货市场】隔周伦铅收跌，开盘报1983.50美元/吨，高点报1987美元，低点报1976美元，尾盘收于1981美元，下跌3美元，跌幅为0.15%，成交量为5608手，持仓量报176718手。
+达美航空CEO埃德·巴斯蒂安表示，受燃油价格暴涨影响，公司短期内将大幅缩减运力增长计划。
 
-长江铅业网（pb.ccmn.cn）今日现货铅价行情预估：受美联储降息预期降温、获利盘集中兑现及海外高库存压制，隔夜伦铅维持弱势震荡；嘉能可炼厂事故与秘鲁能源危机带来的供应担忧，为其提供了坚实底部支撑。
+受中东战争引发的航空燃油历史性涨价冲击，多家航司已纷纷收缩运力，达美此举进一步确认了这一趋势。
 
-与此同时，中东地缘风险缓和叠加美元走弱，国内再生铅供应突发收缩，推动沪铅走出独立上涨行情，供需基本面差异成为内外分化的核心原因。
+受油价下跌提振，美国航司股价集体走高，达美航空早盘涨幅超8%，竞争对手股价也大幅上涨。
 
-原材料与产业链现状 原材料端呈现双紧格局，全球高品位铅精矿供应持续偏紧，进口加工费长期处于历史低位区间，铅精矿进口窗口持续关闭。
+达美周三预测，第二季度调整后每股收益为1至1.5美元，高于分析师预期的1.41美元；营收同比将实现低两位数百分比增长，超过华尔街约10%的预期。
 
-废旧铅酸蓄电池市场回收量不及预期，持货商惜售情绪浓厚，原料价格保持坚挺，对铅价形成强有力的成本支撑。
+达美还表示，全年运力预计将持平。
 
-产业链方面，原生铅炼厂整体盈利状况尚可，受原料供应限制，本月产量出现小幅回落。
+达美称，受燃油成本飙升影响，本季度燃油支出将增加20亿美元。
 
-下游铅酸蓄电池行业仍处于传统消费淡季，生产企业开工率维持在较低水平，经销商库存消化缓慢，市场整体以刚需采购为主，大规模补库意愿不强。
+达美是首家公布一季度财报的美国大型航司，此前美联航、达美等已开始缩减本季度运力。
 
-短期走势预测 今日宏观面焦点仍集中在美伊谈判进展和美联储官员讲话。
+运力缩减往往意味着机票价格上涨，而当前票价本就处于上升通道。
 
 ## 相关推荐
 
-- 2026-06-30 08:02 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-30 07:53 - [勇士续约波尔津吉斯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-30 08:11 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
-- 2026-06-30 07:50 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-30 07:55 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-30 08:09 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
-- 2026-06-30 08:02 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-30 08:07 - [王楚钦说配合稍微有些陌生感](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-30 08:16 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-30 08:00 - [德国巴拉圭 折磨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-30 08:17 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
-- 2026-06-30 07:51 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-30 08:02 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-30 07:53 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
-- 2026-06-30 08:08 - [库尼亚赛后伸五指嘲讽日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-30 08:16 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-30 07:57 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-30 08:23 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-30 08:23 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
+- 2026-06-30 08:23 - [曝老詹对自由市场态度与以往截然不同](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
+- 2026-06-30 07:56 - [感动全网的699分女生想报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
+- 2026-06-30 07:56 - [4000美元是黄金新一轮下跌的开始吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-30 08:19 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-30 07:55 - [德国连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-30 07:55 - [马耳他著名拱门坍塌致一中国男子身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-30 08:23 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-30 08:21 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
+- 2026-06-30 08:23 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-30 08:16 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:11 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/1648241.shtml)
-- 2026-06-30 07:48 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/4766763.shtml)
-- 2026-06-30 07:57 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/74430459306.shtml)
-- 2026-06-30 07:48 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/3477577136.shtml)
-- 2026-06-30 07:58 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/5338875.shtml)
-- 2026-06-30 07:54 - [大蒜晒外面被路过女子连盆端走](http://www.share.minike.top/Article/details/5804141.shtml)
-- 2026-06-30 08:12 - [萨内 看笑了](http://www.share.minike.top/Article/details/2867247987.shtml)
-- 2026-06-30 07:50 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/235183.shtml)
-- 2026-06-30 08:11 - [郑钦文温网一轮游](https://www.share.minike.top/Article/details/9400133886.shtml)
-- 2026-06-30 08:14 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/18656.shtml)
-- 2026-06-30 08:14 - [张雪的一句“是我们”引发岛内热议](http://www.blog.kurohicncr.top/Article/details/786793.shtml)
-- 2026-06-30 08:05 - [二次元提前预演明日巴西对日本](https://www.blog.minike.top/Article/details/5291208.shtml)
-- 2026-06-30 08:15 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/7535826698.shtml)
-- 2026-06-30 08:06 - [F1奥地利站赛后复盘](http://www.blog.minike.top/Article/details/063686026.shtml)
-- 2026-06-30 08:15 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/125327410.shtml)
+- 2026-06-30 08:21 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/8734978483.shtml)
+- 2026-06-30 08:13 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/8494921.shtml)
+- 2026-06-30 08:19 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.kurohicncr.top/Article/details/59964231604.shtml)
+- 2026-06-30 08:22 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/74333558166.shtml)
+- 2026-06-30 08:15 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/0964248.shtml)
+- 2026-06-30 08:06 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/158192854.shtml)
+- 2026-06-30 08:22 - [郑钦文温网三连败西尼亚科娃](https://www.share.minike.top/Article/details/53627.shtml)
+- 2026-06-30 08:06 - [安切洛蒂 换人](https://www.share.minike.top/Article/details/91323287320.shtml)
+- 2026-06-30 08:07 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/41778663.shtml)
+- 2026-06-30 08:12 - [高考填志愿父亲和女儿产生分歧](http://www.share.minike.top/Article/details/2607945758.shtml)
+- 2026-06-30 08:15 - [恋与深空制作组回应近期争议](http://www.blog.minike.top/Article/details/8412476008.shtml)
+- 2026-06-30 08:01 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/125420614746.shtml)
+- 2026-06-30 08:21 - [三星投资计划](http://www.share.minike.top/Article/details/211067.shtml)
+- 2026-06-30 07:58 - [日本博主：日本足球真的垃圾](http://www.blog.minike.top/Article/details/846447455257.shtml)
+- 2026-06-30 08:22 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/64880270514.shtml)

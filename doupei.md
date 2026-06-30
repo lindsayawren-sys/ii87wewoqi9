@@ -1,60 +1,51 @@
-# 10元基数量居首，翻倍基超20只 富国主动权益长短期业绩齐绽放
+# 中软国际获董事会主席陈宇红增持100万股 每股作价约3.43港元
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-近期，A股市场多日连阳后现回调。在前几个交易日的上涨过程中，主要指数不断走高：Wind数据显示，5月14日上证指数突破前期高点，盘中触及4258.86点；万得偏股混合型基金指数亦于5月13日刷新历史高位。在此背景下，富国基金旗下主动权益产品展现出“长短期俱佳”的实力：截至5月14日，全市场复权单位净值超10元的主动权益基金共98只，富国基金以7只的数量位居行业前列。在长期耐力凸
+香港联交所最新资料显示，4月1日，董事会主席陈宇红增持中软国际（00354）100万股，每股作价3.4287港元，总金额为342.87万港元。增持后最新持股数目约为3.25亿股，最新持股比例为11.90%。责任编辑：卢昱君
 
 ## 正文
 
-近期，A股市场多日连阳后现回调。
+香港联交所最新资料显示，4月1日，董事会主席陈宇红增持中软国际（00354）100万股，每股作价3.4287港元，总金额为342.87万港元。
 
-在前几个交易日的上涨过程中，主要指数不断走高：Wind数据显示，5月14日上证指数突破前期高点，盘中触及4258.86点；万得偏股混合型基金指数亦于5月13日刷新历史高位。
+增持后最新持股数目约为3.25亿股，最新持股比例为11.90%。
 
-在此背景下，富国基金旗下主动权益产品展现出“长短期俱佳”的实力：截至5月14日，全市场复权单位净值超10元的主动权益基金共98只，富国基金以7只的数量位居行业前列。
-
-在长期耐力凸显的同时，短期爆发力同样表现不俗，全市场近一年收益率翻倍的主动权益产品共478只，富国基金旗下21只入围，成为全行业仅有的两家“翻倍基”数量超20只的管理人之一。
-
-长期耐力凸显：“10元基”数量行业第一 如今，市场衡量一只基金的优劣，已不仅看阶段涨幅，更看有多少持有人实实在在赚到了钱。
-
-这要求产品净值整体呈现持续向上的趋势。
-
-Wind数据显示，单从5月数据来看，全市场成立满5年的主动权益类产品中，有1260只复权单位净值创出历史新高，复权单位净值在2元以上的达793只。
-
-更引人注目的是，全市场复权单位净值超过10元的主动权益基金已达98只。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 07:48 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
-- 2026-06-30 08:04 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-30 08:08 - [日本五次世界杯淘汰赛全败](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-30 08:03 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-30 07:56 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-30 08:04 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-30 07:49 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-30 08:09 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
-- 2026-06-30 08:13 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-30 08:12 - [现在叛逆期的孩子最怕的是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-30 07:48 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
-- 2026-06-30 08:17 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-30 07:58 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
-- 2026-06-30 08:03 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-30 08:19 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-30 08:20 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-30 08:02 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-30 08:11 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-30 08:17 - [巴西在进攻三区完成210脚传球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-30 08:09 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-30 08:09 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
+- 2026-06-30 08:20 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-30 08:03 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-30 08:19 - [王濛回复黄灿灿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-30 08:15 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-30 07:59 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-30 08:14 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-30 08:17 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
+- 2026-06-30 08:05 - [日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:49 - [卡塞米罗头球破门](http://www.blog.minike.top/Article/details/057522.shtml)
-- 2026-06-30 07:58 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/54030.shtml)
-- 2026-06-30 07:57 - [网瘾賊大的阿嬷](https://www.share.kurohicncr.top/Article/details/195692968816.shtml)
-- 2026-06-30 08:01 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/44486.shtml)
-- 2026-06-30 08:12 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/73668681.shtml)
-- 2026-06-30 08:08 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://www.share.minike.top/Article/details/78253994690.shtml)
-- 2026-06-30 08:15 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/7809897405.shtml)
-- 2026-06-30 08:08 - [“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/9996108466.shtml)
-- 2026-06-30 07:48 - [德国巴拉圭加时](http://www.share.kurohicncr.top/Article/details/12142194.shtml)
-- 2026-06-30 07:53 - [世界杯](https://www.blog.minike.top/Article/details/9107833.shtml)
-- 2026-06-30 08:00 - [委内瑞拉地震死亡人数升至1719人](http://www.share.kurohicncr.top/Article/details/07081535516.shtml)
-- 2026-06-30 08:03 - [王健林甩卖超80座万达广场](http://www.blog.minike.top/Article/details/687330.shtml)
-- 2026-06-30 08:05 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/36473804780.shtml)
-- 2026-06-30 08:12 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/28597460.shtml)
-- 2026-06-30 07:53 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/829676368.shtml)
+- 2026-06-30 08:17 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](http://www.share.kurohicncr.top/Article/details/980176208.shtml)
+- 2026-06-30 08:12 - [AI手机进入Agent时代](https://www.share.minike.top/Article/details/06924854878.shtml)
+- 2026-06-30 08:12 - [巴拉圭先进球了](http://www.share.kurohicncr.top/Article/details/978691630508.shtml)
+- 2026-06-30 08:00 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/075251161.shtml)
+- 2026-06-30 08:01 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/717157344.shtml)
+- 2026-06-30 08:11 - [扬名立万](https://www.share.minike.top/Article/details/083205.shtml)
+- 2026-06-30 07:55 - [日本博主：日本足球真的垃圾](https://www.blog.kurohicncr.top/Article/details/663224604.shtml)
+- 2026-06-30 08:09 - [女子遭下药退赔偿拟追刑责](http://www.blog.minike.top/Article/details/2572787.shtml)
+- 2026-06-30 08:06 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/321924256607.shtml)
+- 2026-06-30 08:12 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/9823921881.shtml)
+- 2026-06-30 08:17 - [男子醉酒溺水获救后同行人拒协助抬人](https://www.share.kurohicncr.top/Article/details/58522.shtml)
+- 2026-06-30 08:22 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.kurohicncr.top/Article/details/5242707856.shtml)
+- 2026-06-30 07:57 - [亚洲球队全部出局](https://www.blog.kurohicncr.top/Article/details/972434723853.shtml)
+- 2026-06-30 08:03 - [逃狱兄弟](http://www.blog.minike.top/Article/details/558757.shtml)
+- 2026-06-30 08:07 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/510939605.shtml)

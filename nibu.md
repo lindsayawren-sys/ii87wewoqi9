@@ -1,49 +1,61 @@
-# 香港科技探索获董事会副主席王维基增持7.8万股 每股均价1.1港元
+# ATFX:霍尔木兹海峡再度关闭 国际油价重新站上90美元
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-香港联交所最新资料显示，5月15日，董事会副主席王维基增持香港科技探索（01137）7.8万股，每股均价1.1港元，总金额为8.58万港元。增持后最新持股数目约为3.59亿股，最新持股比例为45.42%。责任编辑：卢昱君
+专题：ATFX外汇专栏投稿 4月9日，ATFX：本周一，特朗普说要对伊朗进行文明毁灭级的打击；本周二，特朗普说和伊朗签订了两周的停战协议，并且霍尔木兹海峡重新开放；本周三，刚刚开放不足一天的霍尔木兹海峡再度关闭。消息面不断传来与此前相反的消息，投资市场往往表现得无所适从。 伊朗议会议长加里巴尔表示，“我们对美国的深刻历史不信任源于其多次违反各种承诺——遗憾的是，这一模式再次重演
 
 ## 正文
 
-香港联交所最新资料显示，5月15日，董事会副主席王维基增持香港科技探索（01137）7.8万股，每股均价1.1港元，总金额为8.58万港元。
+专题：ATFX外汇专栏投稿 4月9日，ATFX：本周一，特朗普说要对伊朗进行文明毁灭级的打击；本周二，特朗普说和伊朗签订了两周的停战协议，并且霍尔木兹海峡重新开放；本周三，刚刚开放不足一天的霍尔木兹海峡再度关闭。
 
-增持后最新持股数目约为3.59亿股，最新持股比例为45.42%。
+消息面不断传来与此前相反的消息，投资市场往往表现得无所适从。
 
-责任编辑：卢昱君
+伊朗议会议长加里巴尔表示，“我们对美国的深刻历史不信任源于其多次违反各种承诺——遗憾的是，这一模式再次重演。
+
+” 这里所谓的再次重演是指伊朗在停火第一天袭击黎巴嫩。
+
+随着以色列继续攻击黎巴嫩，油轮通过该海峡的航行已被停止。
+
+美国副总统万斯在匈牙利表示，停火本来就是复杂的，并且以色列对黎巴嫩的攻击并不是停火协议条款的一部分。
+
+霍尔木兹海峡从开放到再次封锁，只有两艘油轮顺利过境。
+
+面对再次封锁的霍尔木兹海峡，国际油价从82美元的低位应声上涨是92美元。
 
 ## 相关推荐
 
-- 2026-06-30 08:00 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
-- 2026-06-30 08:16 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-30 08:10 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-30 08:13 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-30 08:04 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-30 07:59 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-30 08:04 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-30 08:02 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-30 08:16 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-30 08:00 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-30 07:55 - [日本博主：日本足球真的垃圾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-30 08:17 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-30 08:05 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-30 08:19 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-30 07:59 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
+- 2026-06-30 07:56 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-30 08:09 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-30 08:00 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-30 08:15 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-30 07:58 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-30 07:58 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-30 08:14 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-30 08:04 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-30 07:57 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-30 08:07 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-30 08:02 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-30 07:54 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
+- 2026-06-30 08:08 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:15 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/6340088895.shtml)
-- 2026-06-30 08:07 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/3673872.shtml)
-- 2026-06-30 07:48 - [美人鱼](http://www.share.kurohicncr.top/Article/details/826567731.shtml)
-- 2026-06-30 08:00 - [苗族银饰](http://www.share.minike.top/Article/details/8348403048.shtml)
-- 2026-06-30 08:17 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/67074.shtml)
-- 2026-06-30 08:14 - [佐野海舟远射破门](https://www.share.kurohicncr.top/Article/details/248467489.shtml)
-- 2026-06-30 08:02 - [索马里女大使：想和中国一起搞事业](https://www.blog.minike.top/Article/details/11197994795.shtml)
-- 2026-06-30 08:05 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/94713.shtml)
-- 2026-06-30 08:10 - [又一家县级医院关停门诊输液大厅](http://www.share.minike.top/Article/details/19148122.shtml)
-- 2026-06-30 08:00 - [中国新一轮出口管制直指日本命脉](http://www.blog.minike.top/Article/details/928677461308.shtml)
-- 2026-06-30 08:00 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.minike.top/Article/details/8686701067.shtml)
-- 2026-06-30 07:57 - [勇士续约波尔津吉斯](https://www.share.kurohicncr.top/Article/details/341337607.shtml)
-- 2026-06-30 08:16 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/3430200.shtml)
-- 2026-06-30 07:55 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/87764194.shtml)
-- 2026-06-30 08:04 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/3795884033.shtml)
+- 2026-06-30 08:15 - [杨紫被质疑未使用原名纯属误解](http://www.share.kurohicncr.top/Article/details/473801462.shtml)
+- 2026-06-30 08:06 - [森保一致歉：世界第一目标没能实现](https://www.blog.minike.top/Article/details/041561.shtml)
+- 2026-06-30 08:22 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/58658841.shtml)
+- 2026-06-30 08:12 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/1731886.shtml)
+- 2026-06-30 07:54 - [巴西绝杀日本：漫画般结局换了主角](https://www.share.minike.top/Article/details/277233.shtml)
+- 2026-06-30 08:08 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.minike.top/Article/details/824977.shtml)
+- 2026-06-30 08:18 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/97576.shtml)
+- 2026-06-30 08:23 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/6244089.shtml)
+- 2026-06-30 08:18 - [起风了](http://www.blog.kurohicncr.top/Article/details/956378.shtml)
+- 2026-06-30 08:23 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/9653212.shtml)
+- 2026-06-30 08:15 - [现在叛逆期的孩子最怕的是什么？](https://www.blog.kurohicncr.top/Article/details/916131815.shtml)
+- 2026-06-30 08:22 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/254500946581.shtml)
+- 2026-06-30 08:21 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/183126.shtml)
+- 2026-06-30 08:00 - [媒体评泰山建135公里刀片刺绳隔离网](https://www.share.kurohicncr.top/Article/details/6524094.shtml)
+- 2026-06-30 08:18 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/339271609.shtml)

@@ -1,59 +1,61 @@
-# 特朗普称美国对台政策没变，外交部：两岸统一才是光明大道
+# 苹果转向三星供应可折叠屏幕 独家协议反映出供应商准备不足
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-5月18日，外交部发言人郭嘉昆主持例行记者会。有记者提问，美国总统特朗普在15日播出的媒体专访中表示，美国对台政策没有改变，他不希望有人独立，不希望有人说“美国支持我们所以我们独立”，美方无意寻求战争，希望两岸保持冷静。对此，台湾当局称“中华民国是主权独立的民主国家，将继续与美深化合作，确保台海和平稳定不受威胁破坏”。发言人对此有何评论？ “我们注意到特朗普总统的表态。”郭嘉昆
+据报道，苹果正转向三星显示作为其可折叠iPhone屏幕的唯一供应商，这一迹象表明该技术在整个行业内仍未广泛成熟。 报道称，苹果已同意就可折叠OLED面板达成为期三年的独家协议，主要原因在于其他供应商尚未达标。京东方的可折叠显示屏被认为不符合苹果的标准，而LG显示尚未扩大可折叠智能手机面板的产能。这使得三星成为目前唯一现实的选择，尽管苹果通常更倾向于与多家供应商合作以降低成本并保
 
 ## 正文
 
-5月18日，外交部发言人郭嘉昆主持例行记者会。
+据报道，苹果正转向三星显示作为其可折叠iPhone屏幕的唯一供应商，这一迹象表明该技术在整个行业内仍未广泛成熟。
 
-有记者提问，美国总统特朗普在15日播出的媒体专访中表示，美国对台政策没有改变，他不希望有人独立，不希望有人说“美国支持我们所以我们独立”，美方无意寻求战争，希望两岸保持冷静。
+报道称，苹果已同意就可折叠OLED面板达成为期三年的独家协议，主要原因在于其他供应商尚未达标。
 
-对此，台湾当局称“中华民国是主权独立的民主国家，将继续与美深化合作，确保台海和平稳定不受威胁破坏”。
+京东方的可折叠显示屏被认为不符合苹果的标准，而LG显示尚未扩大可折叠智能手机面板的产能。
 
-发言人对此有何评论？
+这使得三星成为目前唯一现实的选择，尽管苹果通常更倾向于与多家供应商合作以降低成本并保持灵活性。
 
-“我们注意到特朗普总统的表态。
+根据竞争对手追赶的速度，这种独家供应关系可能持续到2029年或2030年。
 
-”郭嘉昆强调，台湾是中国领土不可分割的一部分，从来不是一个国家，今后也绝无可能。
+在产品方面，苹果似乎采取了审慎的策略。
 
-“台独”与台海和平水火不容，“倚外谋独”是死路一条，两岸统一才是光明大道。
+预计到2026年底，出货量将达到约300万部，远低于此前800万至1000万部的预测。
 
-“民进党当局应该认清大势，面对现实，悬崖勒马。
+定价预计也将走高端路线，起售价接近2325美元，这表明这将更多是一款面向高端、早期采用者的设备，而非面向大众市场的产品。
 
 ## 相关推荐
 
-- 2026-06-30 08:01 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-30 08:14 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
-- 2026-06-30 07:56 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
-- 2026-06-30 08:14 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
-- 2026-06-30 08:06 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
-- 2026-06-30 07:51 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
-- 2026-06-30 08:04 - [哈弗茨头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
-- 2026-06-30 07:56 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-30 08:08 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-30 08:04 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
-- 2026-06-30 07:59 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-30 08:11 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
-- 2026-06-30 08:16 - [郑钦文温网首轮出局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-30 07:59 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-30 08:11 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-30 08:06 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-30 08:16 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-30 07:59 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-30 08:09 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-30 08:02 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-30 08:00 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-30 07:58 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-30 07:55 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-30 08:20 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-30 08:00 - [孙颖莎王楚钦晋级8强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
+- 2026-06-30 08:13 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-30 08:22 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-30 07:59 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:52 - [世界杯巴拉圭点球淘汰德国](https://www.blog.kurohicncr.top/Article/details/938817.shtml)
-- 2026-06-30 07:57 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/174339889150.shtml)
-- 2026-06-30 08:06 - [赛博朋克边缘行者2预告片](http://www.share.minike.top/Article/details/5741642.shtml)
-- 2026-06-30 07:56 - [巴西半场0比1日本](http://www.share.minike.top/Article/details/68395.shtml)
-- 2026-06-30 08:06 - [周冬雨多次说演不了话剧文城](http://www.blog.minike.top/Article/details/658325.shtml)
-- 2026-06-30 08:05 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/78365129.shtml)
-- 2026-06-30 08:06 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/0607528.shtml)
-- 2026-06-30 07:48 - [问心2神一集鬼三集](https://www.share.minike.top/Article/details/4683509242.shtml)
-- 2026-06-30 08:07 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/36850297.shtml)
-- 2026-06-30 08:12 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/67064753955.shtml)
-- 2026-06-30 08:11 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/942572356.shtml)
-- 2026-06-30 08:10 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/1513349914.shtml)
-- 2026-06-30 08:09 - [这几秒成世界杯最值钱广告位](http://www.blog.minike.top/Article/details/161326504.shtml)
-- 2026-06-30 08:03 - [沙丘](http://www.blog.minike.top/Article/details/713077940.shtml)
-- 2026-06-30 07:56 - [泰山景区回应修建刀片刺绳隔离网](http://www.blog.kurohicncr.top/Article/details/53105837558.shtml)
+- 2026-06-30 07:54 - [巴西2比1日本](https://www.blog.minike.top/Article/details/73466257.shtml)
+- 2026-06-30 07:55 - [亚洲球队全部告别世界杯](https://www.blog.kurohicncr.top/Article/details/50305.shtml)
+- 2026-06-30 08:03 - [小勒布伦WTT美国大满贯开门红](https://www.share.minike.top/Article/details/38007699.shtml)
+- 2026-06-30 08:24 - [日本队5进世界杯淘汰赛0胜](https://www.blog.minike.top/Article/details/989588106472.shtml)
+- 2026-06-30 08:02 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/396289129.shtml)
+- 2026-06-30 08:01 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.minike.top/Article/details/197810189713.shtml)
+- 2026-06-30 08:02 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.minike.top/Article/details/8202188557.shtml)
+- 2026-06-30 08:05 - [“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/4915959.shtml)
+- 2026-06-30 08:07 - [张凌赫杨超越 峨眉](https://www.blog.minike.top/Article/details/4947618260.shtml)
+- 2026-06-30 08:08 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/418623192036.shtml)
+- 2026-06-30 07:54 - [巴拉圭点球大战淘汰德国进16强](http://www.blog.kurohicncr.top/Article/details/616162.shtml)
+- 2026-06-30 08:10 - [MSI应援曲 如果季中成回忆](http://www.blog.kurohicncr.top/Article/details/65653.shtml)
+- 2026-06-30 08:02 - [世界杯](http://www.share.minike.top/Article/details/22488.shtml)
+- 2026-06-30 08:21 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.kurohicncr.top/Article/details/721429758.shtml)
+- 2026-06-30 08:17 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/1381029.shtml)

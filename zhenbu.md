@@ -1,59 +1,57 @@
-# OECD：全球经济前景面临进一步恶化风险
+# 金饰价格一夜大涨49元，现货黄金盘中涨超3%！国际油价暴跌近20%
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-经合组织（OECD）秘书长在七国集团（G-7）会议间隙表示，随着中东冲突持续，全球经济面临的风险正在加剧。 “总体评估认为，这给经济增长带来了下行压力，同时给通胀带来了上行压力，”秘书长周二接受采访时称。“我们在3月经济评估中给出过初步预测，但未来几周将正式修订该评估。不过，增长面临下行压力、通胀面临上行压力这一点显而易见。” 早在3月，总部位于巴黎的OECD就成为首个警告伊朗
+北京时间4月8日早盘，现货黄金持续上扬，盘中突破4800美元，最高报4857.550美元/盎司，涨超3%。截至发稿有所回落，报4800.000美元/盎司，涨2.1%。 受此影响，国内品牌金饰价格继续上调。中新经纬8日查询发现，老庙黄金足金饰品报1485元/克，单日涨49元；周生生足金饰品报1471元/克，单日涨37元；老凤祥足金饰品报1470元/克，单日涨35元。 与此同时，原
 
 ## 正文
 
-经合组织（OECD）秘书长在七国集团（G-7）会议间隙表示，随着中东冲突持续，全球经济面临的风险正在加剧。
+北京时间4月8日早盘，现货黄金持续上扬，盘中突破4800美元，最高报4857.550美元/盎司，涨超3%。
 
-“总体评估认为，这给经济增长带来了下行压力，同时给通胀带来了上行压力，”秘书长周二接受采访时称。
+截至发稿有所回落，报4800.000美元/盎司，涨2.1%。
 
-“我们在3月经济评估中给出过初步预测，但未来几周将正式修订该评估。
+受此影响，国内品牌金饰价格继续上调。
 
-不过，增长面临下行压力、通胀面临上行压力这一点显而易见。
+中新经纬8日查询发现，老庙黄金足金饰品报1485元/克，单日涨49元；周生生足金饰品报1471元/克，单日涨37元；老凤祥足金饰品报1470元/克，单日涨35元。
 
-” 早在3月，总部位于巴黎的OECD就成为首个警告伊朗战争将推高物价并抑制经济活动的主要国际机构。
+与此同时，原油价格大跌。
 
-该机构定于6月3日发布最新预测。
+8日早盘，WTI原油一度跌超19%，ICE布油一度跌超16%。
 
-秘书长表示，权衡是否要加息时，各国央行面临的挑战是如何应对通胀风险高企和经济活动疲软并存的局面。
+截至发稿，跌幅均有所收窄。
 
-“通常情况下，能源价格冲击的影响是可预见的，但如果冲击开始更广泛地波及其他价格，如果出现工资上涨等次生影响，那么即使经济增长前景略显疲软，央行也需要采取行动，”秘书长指出。
+消息面上，据央视新闻，美国总统特朗普7日在社交媒体平台发文称：“我同意暂停对伊朗的轰炸和袭击行动，为期两周。
 
 ## 相关推荐
 
-- 2026-06-30 07:48 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
-- 2026-06-30 08:09 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-30 08:14 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-30 08:01 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-30 07:57 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
-- 2026-06-30 08:11 - [莫兰特转投开拓者效力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-30 08:14 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
-- 2026-06-30 07:52 - [日本博主：日本足球真的垃圾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
-- 2026-06-30 07:54 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-30 07:59 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-30 08:01 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-30 08:10 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-30 08:07 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-30 08:10 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-30 08:15 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-30 08:22 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
+- 2026-06-30 08:08 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-30 08:15 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-30 08:14 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-30 08:04 - [金鹰奖视后提名预测](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-30 08:19 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
+- 2026-06-30 07:58 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-30 08:18 - [巴拉圭先进球了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-30 08:00 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:06 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/0543797.shtml)
-- 2026-06-30 08:08 - [德国罚丢3粒点球](https://www.share.minike.top/Article/details/26991.shtml)
-- 2026-06-30 07:51 - [《贺子珍》](https://www.share.minike.top/Article/details/342955449339.shtml)
-- 2026-06-30 08:16 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/187627026.shtml)
-- 2026-06-30 08:06 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.kurohicncr.top/Article/details/96228091.shtml)
-- 2026-06-30 08:12 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/1827204.shtml)
-- 2026-06-30 07:56 - [斗破苍穹](https://www.blog.minike.top/Article/details/01095.shtml)
-- 2026-06-30 08:06 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/497074558.shtml)
-- 2026-06-30 08:01 - [王楚钦说配合稍微有些陌生感](http://www.share.minike.top/Article/details/6261840.shtml)
-- 2026-06-30 08:11 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/9888671.shtml)
-- 2026-06-30 08:05 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/06030706.shtml)
-- 2026-06-30 07:53 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/43452.shtml)
-- 2026-06-30 07:56 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.blog.minike.top/Article/details/9044416820.shtml)
-- 2026-06-30 08:12 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/239931559767.shtml)
-- 2026-06-30 08:03 - [这几秒成世界杯最值钱广告位](http://www.share.kurohicncr.top/Article/details/189320.shtml)
+- 2026-06-30 08:10 - [索马里女大使：想和中国一起搞事业](https://www.blog.minike.top/Article/details/76293.shtml)
+- 2026-06-30 07:54 - [泰山建135公里刀片刺绳隔离网](http://www.blog.minike.top/Article/details/3622899960.shtml)
+- 2026-06-30 08:19 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/802647283.shtml)
+- 2026-06-30 08:02 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/86871675765.shtml)
+- 2026-06-30 08:05 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/935888.shtml)
+- 2026-06-30 08:06 - [请回答王牌2019](http://www.share.minike.top/Article/details/773627510.shtml)
+- 2026-06-30 08:21 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.minike.top/Article/details/45194822.shtml)
+- 2026-06-30 07:56 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.kurohicncr.top/Article/details/541214142898.shtml)
+- 2026-06-30 08:23 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/06155926.shtml)
+- 2026-06-30 07:56 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/4280532.shtml)
+- 2026-06-30 07:57 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/885075082786.shtml)
+- 2026-06-30 08:00 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/00837.shtml)
+- 2026-06-30 08:04 - [MSI应援曲 如果季中成回忆](http://www.blog.kurohicncr.top/Article/details/947024182.shtml)
+- 2026-06-30 08:16 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/00066090185.shtml)
+- 2026-06-30 08:13 - [孙颖莎王楚钦晋级8强](http://www.share.minike.top/Article/details/77727757522.shtml)

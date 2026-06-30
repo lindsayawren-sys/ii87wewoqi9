@@ -1,47 +1,52 @@
-# 美国批准部分俄罗斯石油的销售
+# 台青陶艺家瓷都“驻场”：以瓷为媒 交流创新
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-根据美国财政部在其网站上发布的消息，该部发布了一项许可，批准在6月17日之前部分俄罗斯石油的出售。 该许可适用于截至4月17日已装载到船只上的原油和石油产品。责任编辑：李桐
+发布时间：2026年04月09日 17:10 来源：中国新闻网 来自台湾台南的青年陶艺家苏萱瑄，2024年通过学校交流参加陶溪川文创街区的春秋大集，彼时她惊讶于这里的国际范与热闹氛围。2025年底，她申请驻场再次成为陶溪川文创街区里众多“候鸟”艺术家中的一员。 苏萱瑄高中时便与陶土结缘，作品常以生物、植物的触角形态探讨生命力与生存渴望。在她看来，驻场期间最大的感悟与收获是与来自
 
 ## 正文
 
-根据美国财政部在其网站上发布的消息，该部发布了一项许可，批准在6月17日之前部分俄罗斯石油的出售。
+发布时间：2026年04月09日 17:10 来源：中国新闻网 来自台湾台南的青年陶艺家苏萱瑄，2024年通过学校交流参加陶溪川文创街区的春秋大集，彼时她惊讶于这里的国际范与热闹氛围。
 
-该许可适用于截至4月17日已装载到船只上的原油和石油产品。
+2025年底，她申请驻场再次成为陶溪川文创街区里众多“候鸟”艺术家中的一员。
 
-责任编辑：李桐
+苏萱瑄高中时便与陶土结缘，作品常以生物、植物的触角形态探讨生命力与生存渴望。
+
+在她看来，驻场期间最大的感悟与收获是与来自不同国家和文化背景的艺术家一同交流，保持开放心态、大胆创新，才能让艺术创作迎来更多可能。
+
+(记者 姜涛 李韵涵） 责任编辑：【于晓】
 
 ## 相关推荐
 
-- 2026-06-30 08:05 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
-- 2026-06-30 08:06 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-30 08:05 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
-- 2026-06-30 08:15 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-30 07:49 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-30 07:57 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-30 08:00 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
-- 2026-06-30 07:48 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-30 08:10 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-30 08:09 - [巴拉圭进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-30 08:04 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-30 08:00 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-30 08:20 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-30 08:05 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-30 08:08 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-30 08:14 - [感动全网的699分女生想报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-30 08:04 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-30 08:04 - [萨内 看笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-30 07:56 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-30 07:55 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-30 08:13 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-30 08:20 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-30 08:11 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:02 - [田中碧失误](http://www.share.kurohicncr.top/Article/details/656221.shtml)
-- 2026-06-30 08:15 - [《共患难》](http://www.blog.minike.top/Article/details/1592874.shtml)
-- 2026-06-30 08:05 - [输球后日本球迷被强行披上巴西国旗](https://www.blog.minike.top/Article/details/908151.shtml)
-- 2026-06-30 08:03 - [安切洛蒂 换人](http://www.share.minike.top/Article/details/08512260988.shtml)
-- 2026-06-30 08:09 - [爱很美味](https://www.share.kurohicncr.top/Article/details/878613022.shtml)
-- 2026-06-30 08:15 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/1018922479.shtml)
-- 2026-06-30 07:50 - [诺伊尔尽力了](http://www.blog.minike.top/Article/details/8495524340.shtml)
-- 2026-06-30 08:00 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/91319417763.shtml)
-- 2026-06-30 07:48 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.kurohicncr.top/Article/details/6049546870.shtml)
-- 2026-06-30 07:53 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.kurohicncr.top/Article/details/207085562.shtml)
-- 2026-06-30 08:06 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.minike.top/Article/details/7632616464.shtml)
-- 2026-06-30 08:11 - [日本球员说被绝杀非常不甘心](http://www.share.minike.top/Article/details/048222.shtml)
-- 2026-06-30 07:57 - [《男人至死是傻得儿》](https://www.blog.kurohicncr.top/Article/details/9230496.shtml)
-- 2026-06-30 08:11 - [日本遭读秒绝杀 森保一：我水平不够](http://www.share.kurohicncr.top/Article/details/2576551726.shtml)
-- 2026-06-30 08:05 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.kurohicncr.top/Article/details/23651054301.shtml)
+- 2026-06-30 08:04 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/63686497.shtml)
+- 2026-06-30 08:16 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/76824.shtml)
+- 2026-06-30 08:19 - [巴西补时绝杀日本](http://www.share.kurohicncr.top/Article/details/2528351.shtml)
+- 2026-06-30 08:17 - [内马尔中场休息积极鼓励队友](https://www.share.minike.top/Article/details/0486056816.shtml)
+- 2026-06-30 08:00 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/4949931229.shtml)
+- 2026-06-30 07:58 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/773128.shtml)
+- 2026-06-30 08:22 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/8177150.shtml)
+- 2026-06-30 08:09 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.minike.top/Article/details/012888660849.shtml)
+- 2026-06-30 08:04 - [点球大战](http://www.share.minike.top/Article/details/019323690.shtml)
+- 2026-06-30 08:00 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/26551038.shtml)
+- 2026-06-30 08:23 - [武磊：巴西队赢的并不轻松](http://www.share.kurohicncr.top/Article/details/0762545.shtml)
+- 2026-06-30 08:00 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/92801961554.shtml)
+- 2026-06-30 07:55 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/49219618559.shtml)
+- 2026-06-30 07:54 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/347953.shtml)
+- 2026-06-30 08:10 - [张雪的一句“是我们”引发岛内热议](https://www.share.minike.top/Article/details/072721.shtml)

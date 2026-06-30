@@ -1,60 +1,44 @@
-# 特朗普过去24小时都忙了什么？（2026-05-18）
+# 中俄对涉霍尔木兹海峡决议草案投反对票 伊朗代表：俄中阻止了滥用安理会的行为
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：金十数据 1． 与内塔尼亚胡通话，讨论重启对伊战事可能性——据以媒报道，以色列总理内塔尼亚胡与特朗普通电话，讨论重启对伊朗军事行动的可能性。官员称，若美国恢复对伊朗军事行动，预计以美两国将联合发起空袭。 2． 与李在明通话，讨论韩美联合事实清单——韩国总统李在明与特朗普通电话，韩国政府称，双方讨论了韩
+发布时间：2026年04月08日 10:23 来源：央视新闻客户端 责任编辑：【杜晓姣】
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
-
-来源：金十数据 1． 与内塔尼亚胡通话，讨论重启对伊战事可能性——据以媒报道，以色列总理内塔尼亚胡与特朗普通电话，讨论重启对伊朗军事行动的可能性。
-
-官员称，若美国恢复对伊朗军事行动，预计以美两国将联合发起空袭。
-
-2． 与李在明通话，讨论韩美联合事实清单——韩国总统李在明与特朗普通电话，韩国政府称，双方讨论了韩美联合事实清单问题。
-
-3． 威胁伊朗：时间在流逝，最好赶快行动——特朗普在社交媒体上谈及伊朗问题时表示：“对于伊朗而言，时间正在流逝；他们最好立刻行动起来，而且要快！
-
-否则，他们将彻底不复存在。
-
-时间至关重要！
-
-” 4． 会晤国安高层，讨论伊朗战争的下一步走向——据CNN报道，一位知情人士表示，特朗普周六会见了其国家安全团队的高级成员，讨论伊朗战争的下一步走向。
+发布时间：2026年04月08日 10:23 来源：央视新闻客户端 责任编辑：【杜晓姣】
 
 ## 相关推荐
 
-- 2026-06-30 08:05 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
-- 2026-06-30 07:50 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-30 08:12 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-30 08:02 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
-- 2026-06-30 07:55 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-30 08:16 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
-- 2026-06-30 07:50 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
-- 2026-06-30 07:53 - [泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-30 07:57 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-30 08:10 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-30 08:08 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-30 07:51 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-30 07:57 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-30 07:53 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-30 07:54 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-30 07:57 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-30 08:17 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-30 08:23 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-30 08:11 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-30 08:08 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-30 07:55 - [刘宇宁高情商化解谁站C位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-30 08:12 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-30 08:13 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-30 08:10 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-30 08:01 - [德国连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
+- 2026-06-30 08:16 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:52 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/729567.shtml)
-- 2026-06-30 07:51 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/3167485.shtml)
-- 2026-06-30 08:00 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/289815041102.shtml)
-- 2026-06-30 08:17 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/377844.shtml)
-- 2026-06-30 08:10 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/1054863.shtml)
-- 2026-06-30 08:03 - [藤森庆子赢得秘鲁总统选举](http://www.blog.kurohicncr.top/Article/details/5868374.shtml)
-- 2026-06-30 07:50 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.minike.top/Article/details/68058983505.shtml)
-- 2026-06-30 07:52 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](http://www.blog.minike.top/Article/details/526596191.shtml)
-- 2026-06-30 07:54 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/6681695.shtml)
-- 2026-06-30 07:51 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.minike.top/Article/details/165993021.shtml)
-- 2026-06-30 08:13 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/4527131.shtml)
-- 2026-06-30 08:17 - [速度与激情9](https://www.blog.minike.top/Article/details/665858772.shtml)
-- 2026-06-30 07:58 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/35105936503.shtml)
-- 2026-06-30 07:57 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/36208.shtml)
-- 2026-06-30 07:59 - [三星投资计划](http://www.share.minike.top/Article/details/666742031.shtml)
+- 2026-06-30 08:16 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/01851.shtml)
+- 2026-06-30 08:18 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/7650281135.shtml)
+- 2026-06-30 07:59 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.minike.top/Article/details/3585863.shtml)
+- 2026-06-30 08:13 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/76541349972.shtml)
+- 2026-06-30 08:11 - [张月收到黄灿灿辣货两眼发光](http://www.blog.kurohicncr.top/Article/details/799380283603.shtml)
+- 2026-06-30 08:11 - [郑钦文温网一轮游](https://www.blog.kurohicncr.top/Article/details/3191096371.shtml)
+- 2026-06-30 08:21 - [郑钦文温网三连败西尼亚科娃](https://www.blog.kurohicncr.top/Article/details/2000125.shtml)
+- 2026-06-30 08:00 - [王健林甩卖超80座万达广场](http://www.share.kurohicncr.top/Article/details/206557771510.shtml)
+- 2026-06-30 08:22 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/14820677.shtml)
+- 2026-06-30 08:08 - [覃予萱晋级WTT美国大满贯女单32强](https://www.blog.kurohicncr.top/Article/details/904216.shtml)
+- 2026-06-30 08:02 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/115704833.shtml)
+- 2026-06-30 08:11 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/392813.shtml)
+- 2026-06-30 08:01 - [我觉得你是在无中生友](https://www.blog.minike.top/Article/details/420305080.shtml)
+- 2026-06-30 08:20 - [卢卡申科发布解放军仪仗队视频](https://www.blog.minike.top/Article/details/2124353426.shtml)
+- 2026-06-30 08:13 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/95526166.shtml)

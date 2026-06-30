@@ -1,58 +1,51 @@
-# 新思想引领新征程丨奋力谱写新时代生态文明建设新篇章
+# 苏农银行：王亮董事及行长的任职资格获核准
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-视频：新思想引领新征程丨奋力谱写新时代生态文明建设新篇章来源：央视综合 生态文明建设是关系中华民族永续发展的根本大计。习近平总书记强调，必须以更高站位、更宽视野、更大力度来谋划和推进新征程生态环境保护工作，谱写新时代生态文明建设新篇章。在习近平生态文明思想指引下，“十五五”开局之年，我国以高品质生态环境支撑高质量发展，协同推进降碳、减污、扩绿、增长，在人与自然和谐共生的现代化道
+4月8日金融一线消息，苏农银行发布公告称，王亮担任该行董事及行长的任职资格获核准。 简历显示，王亮，男，1982年2月出生，河北保定人，中共党员，研究生学历。2008年7月参加工作，历任中信银行苏州分行风险管理部员工，信贷管理部员工，人力资源部员工、招聘培训副主管，国际业务部贸易融资副主管，投资银行部直接融资业务副主管、资产管理业务副主管、资产管理业务主管，常熟支行见习行长助理
 
 ## 正文
 
-视频：新思想引领新征程丨奋力谱写新时代生态文明建设新篇章来源：央视综合 生态文明建设是关系中华民族永续发展的根本大计。
+4月8日金融一线消息，苏农银行发布公告称，王亮担任该行董事及行长的任职资格获核准。
 
-习近平总书记强调，必须以更高站位、更宽视野、更大力度来谋划和推进新征程生态环境保护工作，谱写新时代生态文明建设新篇章。
+简历显示，王亮，男，1982年2月出生，河北保定人，中共党员，研究生学历。
 
-在习近平生态文明思想指引下，“十五五”开局之年，我国以高品质生态环境支撑高质量发展，协同推进降碳、减污、扩绿、增长，在人与自然和谐共生的现代化道路上阔步前行。
+2008年7月参加工作，历任中信银行苏州分行风险管理部员工，信贷管理部员工，人力资源部员工、招聘培训副主管，国际业务部贸易融资副主管，投资银行部直接融资业务副主管、资产管理业务副主管、资产管理业务主管，常熟支行见习行长助理，常熟支行见习行长助理兼常熟东南经济开发区支行行长（主管级）；吴江农村商业银行投资银行部总经理，投资银行部总经理兼苏州与异地业务总部对公银行部总经理；苏州农村商业银行投资银行部总经理兼苏州与异地业务总部对公银行部总经理，金融市场总部副总监（主持工作）兼投资银行部、风控综合部总经理，金融市场总部总监兼投资银行部、风控综合部总经理，金融市场总部总监兼投资银行部、风控投研部总经理，金融市场总部总监兼投资银行部总经理；江南农村商业银行党委委员、副行长；扬州农村商业银行党委委员、副行长。
 
-今天的中国，一场关乎人与自然的生态变革正在深刻发生。
+现任苏州农村商业银行党委副书记。
 
-这张日历图记录了北京PM2.5监测13年来的变化，从红色渐少到绿色渐多，PM2.5年均浓度从89.5微克每立方米降到27微克每立方米，“北京蓝”已成常态。
-
-全国大气污染治理交出亮眼的“蓝天成绩单”。
-
-昔日蓝藻泛滥的太湖，如今碧波万顷，水清见底。
-
-十余年间，太湖总磷浓度下降近30%，水质从Ⅳ类升为Ⅲ类。
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-30 07:48 - [德国连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-30 08:01 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
-- 2026-06-30 08:17 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-30 08:14 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-30 08:15 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-30 07:48 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
-- 2026-06-30 07:52 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-30 08:08 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-30 08:10 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-30 08:04 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-30 08:08 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
-- 2026-06-30 07:59 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-30 07:56 - [日本球员说被绝杀非常不甘心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-30 08:08 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-30 08:02 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-30 08:15 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
+- 2026-06-30 08:00 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-30 08:11 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-30 07:59 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-30 08:15 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-30 07:56 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-30 08:00 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
+- 2026-06-30 08:00 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:11 - [卢卡申科发布解放军仪仗队视频](https://www.share.minike.top/Article/details/29312.shtml)
-- 2026-06-30 08:15 - [歌剧老师锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/43432846078.shtml)
-- 2026-06-30 08:11 - [徐亮怒斥世界杯踢假球](http://www.share.minike.top/Article/details/48632.shtml)
-- 2026-06-30 07:59 - [一见倾心](https://www.blog.minike.top/Article/details/51228110.shtml)
-- 2026-06-30 07:56 - [女子遭下药退赔偿拟追刑责](http://www.blog.minike.top/Article/details/52925.shtml)
-- 2026-06-30 07:48 - [巴西vs日本首发名单](http://www.share.kurohicncr.top/Article/details/45756060.shtml)
-- 2026-06-30 08:00 - [4000美元是黄金新一轮下跌的开始吗](https://www.share.kurohicncr.top/Article/details/0923612116.shtml)
-- 2026-06-30 08:12 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/298759.shtml)
-- 2026-06-30 07:54 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.minike.top/Article/details/785852596.shtml)
-- 2026-06-30 08:11 - [日本球员说被绝杀非常不甘心](http://www.blog.minike.top/Article/details/6180444.shtml)
-- 2026-06-30 08:15 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/348466.shtml)
-- 2026-06-30 07:56 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/059880819.shtml)
-- 2026-06-30 08:10 - [萨内 看笑了](https://www.blog.kurohicncr.top/Article/details/0811197129.shtml)
-- 2026-06-30 07:59 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/1855661576.shtml)
-- 2026-06-30 07:54 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/78643564434.shtml)
+- 2026-06-30 07:59 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/3900711974.shtml)
+- 2026-06-30 08:06 - [绘画区你赢了](http://www.share.minike.top/Article/details/714786126284.shtml)
+- 2026-06-30 08:16 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/310171907886.shtml)
+- 2026-06-30 07:59 - [德国 传控](http://www.share.minike.top/Article/details/80089909.shtml)
+- 2026-06-30 07:54 - [本届世界杯已有5名球员被控强奸](https://www.blog.kurohicncr.top/Article/details/32711995010.shtml)
+- 2026-06-30 08:12 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/1523624.shtml)
+- 2026-06-30 07:58 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/614495.shtml)
+- 2026-06-30 08:19 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/49981889620.shtml)
+- 2026-06-30 08:10 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/22062256151.shtml)
+- 2026-06-30 08:10 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/7518385800.shtml)
+- 2026-06-30 08:17 - [网红峡谷5人溺亡 有人提醒会下雨](http://www.share.minike.top/Article/details/650301028.shtml)
+- 2026-06-30 08:16 - [高质量发展看新疆](https://www.blog.kurohicncr.top/Article/details/262599.shtml)
+- 2026-06-30 08:16 - [【大鸣王潮1566】真拿你没办法](http://www.blog.kurohicncr.top/Article/details/154968192242.shtml)
+- 2026-06-30 08:12 - [世界杯“美洲德比”7月1日开打](http://www.share.minike.top/Article/details/550424191729.shtml)
+- 2026-06-30 08:23 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/236376703.shtml)

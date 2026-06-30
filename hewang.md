@@ -1,56 +1,56 @@
-# 长城基金汪立：流动性冲击或为短期扰动
+# 在甘肃永靖，遇见“不黄”的黄河
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-上周行情走势分化，市场主流指数涨跌互现。从申万一级行业来看，通信、电子和机械设备表现较好，有色金属、钢铁和美容护理表现相对一般。 宏观分析：中美元首会晤提振情绪 海外方面，美国劳工部12日发布的数据显示，经季节调整后，4月美国CPI环比上涨0.6%，较3月0.9%的涨幅有所回落；未经季节调整的同比涨幅大幅升至3.8%，较3月的3.3%显著扩大，创阶段性新高。核心CPI（剔除食品
+中新网兰州4月9日电 (马临舟)9日清晨，在甘肃临夏州永靖县城滨河步道驻足远眺，黄河水澄澈碧蓝，静卧于峡谷之间。有游客打趣称，这或许是最不像黄河的黄河。面对这样的评价，永靖人总是淡然一笑，他们深知，这片难得的蓝色背后，凝聚着无数不易的坚守与付出。 黄河干流在永靖境内蜿蜒107公里，洮河、大夏河、湟水河在此汇入，天然造就了刘家峡、八盘峡、盐锅峡三大峡谷，也蓄水形成炳灵湖、太极湖、
 
 ## 正文
 
-上周行情走势分化，市场主流指数涨跌互现。
+中新网兰州4月9日电 (马临舟)9日清晨，在甘肃临夏州永靖县城滨河步道驻足远眺，黄河水澄澈碧蓝，静卧于峡谷之间。
 
-从申万一级行业来看，通信、电子和机械设备表现较好，有色金属、钢铁和美容护理表现相对一般。
+有游客打趣称，这或许是最不像黄河的黄河。
 
-宏观分析：中美元首会晤提振情绪 海外方面，美国劳工部12日发布的数据显示，经季节调整后，4月美国CPI环比上涨0.6%，较3月0.9%的涨幅有所回落；未经季节调整的同比涨幅大幅升至3.8%，较3月的3.3%显著扩大，创阶段性新高。
+面对这样的评价，永靖人总是淡然一笑，他们深知，这片难得的蓝色背后，凝聚着无数不易的坚守与付出。
 
-核心CPI（剔除食品与能源）环比上涨0.4%，同比2.8%，均较前值抬升，通胀粘性凸显。
+黄河干流在永靖境内蜿蜒107公里，洮河、大夏河、湟水河在此汇入，天然造就了刘家峡、八盘峡、盐锅峡三大峡谷，也蓄水形成炳灵湖、太极湖、恐龙湖三座高峡平湖。
 
-整体来看，4月美国核心CPI超预期走高，主要来自居住通胀调整的一次性技术因素。
+该县水域面积达32万多亩，总库容59.7亿立方米，占甘肃省地表水储量的五分之一。
 
-剔除技术调整的杂音后，核心CPI环比温和反弹，且通胀扩散度仍在合理区间，显示油价对通胀的“二轮效应”影响尚不显著，仍待观察。
+近日，永靖县县长刘斌斌在接受专访时说：“黄河对永靖而言，不光是生态之河、文化之河，更是生存之河、发展之河。
 
-国内方面，特朗普上周访华，这是中美两国元首继2025年10月釜山会晤后的再次面对面会见，也是美国总统时隔9年再次访华。
+”在他看来，黄河之于永靖，是刻在县域发展骨子里的命脉。
 
-会晤期间中美双方同意将“中美建设性战略稳定关系”作为两国关系的新定位，为未来3年乃至更长时间的中美关系作出战略指引。
+然而，坐拥如此丰沛的水资源，永靖也曾面临诸多治理难题。
 
 ## 相关推荐
 
-- 2026-06-30 08:17 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-30 08:08 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-30 08:07 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-30 08:03 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-30 07:56 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
-- 2026-06-30 08:06 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
-- 2026-06-30 07:54 - [巴拉圭先进球了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-30 08:10 - [周冬雨多次说演不了话剧文城](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-30 07:59 - [泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-30 08:08 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-30 08:02 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-30 08:18 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-30 08:04 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-30 08:22 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-30 08:13 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-30 08:09 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-30 08:02 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
+- 2026-06-30 08:22 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
+- 2026-06-30 08:00 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-30 08:21 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:52 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/210858.shtml)
-- 2026-06-30 08:05 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/5606577.shtml)
-- 2026-06-30 07:48 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/9184938209.shtml)
-- 2026-06-30 08:13 - [日本半场1比0领先巴西](https://www.share.kurohicncr.top/Article/details/1787408.shtml)
-- 2026-06-30 08:14 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/10299.shtml)
-- 2026-06-30 07:54 - [武磊：巴西队赢的并不轻松](http://www.share.kurohicncr.top/Article/details/708175775.shtml)
-- 2026-06-30 08:13 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/20591.shtml)
-- 2026-06-30 08:13 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/95441142205.shtml)
-- 2026-06-30 08:15 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/3015429.shtml)
-- 2026-06-30 08:14 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/188351934.shtml)
-- 2026-06-30 08:01 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/698918436.shtml)
-- 2026-06-30 08:17 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.kurohicncr.top/Article/details/771614929914.shtml)
-- 2026-06-30 08:05 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/460717.shtml)
-- 2026-06-30 08:07 - [哈弗茨头球破门](https://www.share.kurohicncr.top/Article/details/2872661985.shtml)
-- 2026-06-30 08:07 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/582742144.shtml)
+- 2026-06-30 08:11 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/24851306585.shtml)
+- 2026-06-30 08:01 - [德国巴拉圭进入点球大战](https://www.blog.kurohicncr.top/Article/details/288761318.shtml)
+- 2026-06-30 08:07 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/131089155.shtml)
+- 2026-06-30 08:15 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/05254023.shtml)
+- 2026-06-30 08:03 - [男子身高一米八二仍做断骨增高](https://www.share.kurohicncr.top/Article/details/724876149164.shtml)
+- 2026-06-30 08:11 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/78497.shtml)
+- 2026-06-30 08:01 - [【大鸣王潮1566】真拿你没办法](https://www.share.kurohicncr.top/Article/details/346282700.shtml)
+- 2026-06-30 08:22 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/0414561955.shtml)
+- 2026-06-30 08:03 - [巴西醒醒 这是淘汰赛](http://www.share.minike.top/Article/details/95269317.shtml)
+- 2026-06-30 07:57 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/3973867153.shtml)
+- 2026-06-30 08:11 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/560369493.shtml)
+- 2026-06-30 08:11 - [人类...完蛋了...](http://www.share.kurohicncr.top/Article/details/057584812.shtml)
+- 2026-06-30 08:04 - [花少8要去世界杯举办国](http://www.blog.kurohicncr.top/Article/details/004165.shtml)
+- 2026-06-30 08:09 - [81岁老人被男子买光菜回家车祸去世](http://www.share.kurohicncr.top/Article/details/4325875011.shtml)
+- 2026-06-30 08:20 - [《共患难》](https://www.blog.minike.top/Article/details/5954169.shtml)

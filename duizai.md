@@ -1,58 +1,56 @@
-# 财险利润天平失衡：人保、平安、太保合计超76家非上市险企
+# 巨亏2.66亿！京粮控股上市以来首度年度亏损，休闲食品渠道变革冲击传统业务，计提减值超1亿元
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-“权益市场的波动直接传导到了利润表上，我们这种体量的公司，投资端稍微一晃，季度净利润就可能腰斩。”某中小财险公司财务相关人士对21世纪经济报道记者如此说道。 “车险综合成本率明明在改善，但总利润就是起不来。” 2026年一季度，财产险行业整体保费收入稳步增长，但利润端却遭遇明显滑坡——76家非上市财险公司合计净利润不足30亿元，较去年同期大幅缩水超四成，陷入“增收不增利”的结构
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：上市之家 海南京粮控股股份有限公司（000505.SZ，以下简称“京粮控股”）近日披露2025年年度报告。报告显示，公司全年实现营业收入78.59亿元，同比下降31.28%；归属于上市公司股东的净利润由盈转亏，亏损2.66亿元，而2024年同期为盈利2613.05万元，同比降幅高达1118.30%。
 
 ## 正文
 
-“权益市场的波动直接传导到了利润表上，我们这种体量的公司，投资端稍微一晃，季度净利润就可能腰斩。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-”某中小财险公司财务相关人士对21世纪经济报道记者如此说道。
+来源：上市之家 海南京粮控股股份有限公司（000505.SZ，以下简称“京粮控股”）近日披露2025年年度报告。
 
-“车险综合成本率明明在改善，但总利润就是起不来。
+报告显示，公司全年实现营业收入78.59亿元，同比下降31.28%；归属于上市公司股东的净利润由盈转亏，亏损2.66亿元，而2024年同期为盈利2613.05万元，同比降幅高达1118.30%。
 
-” 2026年一季度，财产险行业整体保费收入稳步增长，但利润端却遭遇明显滑坡——76家非上市财险公司合计净利润不足30亿元，较去年同期大幅缩水超四成，陷入“增收不增利”的结构性困局。
+从业务结构来看，油脂业务仍是京粮控股的绝对支柱，2025年实现营业收入71.27亿元，同比下降32.04%，占公司总营收的90.69%；食品业务实现营业收入6.89亿元，同比下降18.79%，占比8.77%。
 
-在承保端综合成本率普遍改善的同时，投资端权益市场却被“寒意”所笼罩。
+分区域看，华北地区作为核心市场，实现营收49.99亿元，同比降幅18.68%，而华东、东北等区域营收降幅更为显著。
 
-与此同时，财险“老三家”（人保财险、平安产险、太保产险）合计净利润约212.16亿元，远超非上市财险公司合计净利润。
+公司毛利率水平进一步收窄，全年毛利率为4.45%，同比下降0.1个百分点；净利率为-3.81%，较上年同期下降3.85个百分点。
 
-头部险企与中小险企之间的分化进一步拉大，行业马太效应持续加剧。
+其中，第四季度毛利率仅为2.51%，同比下滑3.97个百分点，盈利能力承压明显。
 
-投资端“寒意”袭来 利润端承压是一季度财险行业最显性的特征。
+对于业绩大幅下滑的原因，公司在业绩预告中进行了详细披露。
 
 ## 相关推荐
 
-- 2026-06-30 07:53 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
-- 2026-06-30 08:12 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-30 08:14 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-30 08:08 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-30 07:52 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-30 08:13 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
-- 2026-06-30 07:56 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-30 07:51 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-30 07:54 - [德国队连续三届世界杯无缘16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-30 08:16 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-30 08:09 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-30 08:15 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-30 07:58 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-30 08:17 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
+- 2026-06-30 08:07 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-30 08:15 - [电影抓特务上映11天破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-30 08:18 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-30 08:03 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-30 07:59 - [德国队连续三届世界杯无缘16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-30 08:02 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-30 08:07 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-30 08:04 - [莫兰特转投开拓者效力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:11 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/243903.shtml)
-- 2026-06-30 07:57 - [郑钦文温网一轮游](http://www.share.kurohicncr.top/Article/details/62141.shtml)
-- 2026-06-30 07:53 - [张帅晋级温网次轮](https://www.blog.minike.top/Article/details/87525.shtml)
-- 2026-06-30 07:48 - [起风了](https://www.share.minike.top/Article/details/26686150.shtml)
-- 2026-06-30 08:11 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/339596265113.shtml)
-- 2026-06-30 08:13 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/4766806.shtml)
-- 2026-06-30 08:03 - [问心2神一集鬼三集](https://www.share.kurohicncr.top/Article/details/9748376.shtml)
-- 2026-06-30 08:05 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.kurohicncr.top/Article/details/548511826.shtml)
-- 2026-06-30 07:50 - [勇士续约波尔津吉斯](https://www.blog.minike.top/Article/details/47355447.shtml)
-- 2026-06-30 07:51 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/85531404.shtml)
-- 2026-06-30 08:11 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/0382610836.shtml)
-- 2026-06-30 07:53 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/5534732.shtml)
-- 2026-06-30 08:10 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/3089568772.shtml)
-- 2026-06-30 08:05 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.kurohicncr.top/Article/details/463332572036.shtml)
-- 2026-06-30 08:14 - [三星投资计划](https://www.blog.minike.top/Article/details/384745505669.shtml)
+- 2026-06-30 07:57 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.kurohicncr.top/Article/details/0105085897.shtml)
+- 2026-06-30 08:19 - [巴西半场0比1日本](http://www.share.kurohicncr.top/Article/details/16491914.shtml)
+- 2026-06-30 08:07 - [王濛回复黄灿灿](http://www.blog.minike.top/Article/details/16770944.shtml)
+- 2026-06-30 08:15 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/910626.shtml)
+- 2026-06-30 08:03 - [有什么好的高中网课推荐吗？](http://www.blog.kurohicncr.top/Article/details/67948416753.shtml)
+- 2026-06-30 08:18 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/694663311857.shtml)
+- 2026-06-30 08:15 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/837633109962.shtml)
+- 2026-06-30 08:19 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/612826238.shtml)
+- 2026-06-30 07:59 - [有酒店推行24小时退房制](https://www.blog.minike.top/Article/details/5525428728.shtml)
+- 2026-06-30 07:55 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/58394.shtml)
+- 2026-06-30 07:55 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/7630982.shtml)
+- 2026-06-30 08:02 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/88116188522.shtml)
+- 2026-06-30 08:13 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/04673863450.shtml)
+- 2026-06-30 08:20 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/93552963252.shtml)
+- 2026-06-30 08:13 - [F1奥地利站赛后复盘](https://www.share.minike.top/Article/details/54506588632.shtml)

@@ -1,52 +1,56 @@
-# 凯投宏观：日本本季度GDP增长料将停滞
+# 高盛：上调百威亚太目标价至8.5港元 予“买入”评级
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-在伊朗战争前，日本经济积聚了稳健势头，但凯投宏观认为，本季度和下季度GDP增长将放缓至停滞状态。第一季度数据显示，家庭支出和企业投资均环比上升，此外出口激增带来的增长推动力超过了增幅小得多的进口增长。然而，经济学家Marcel Thieliant表示，尽管外界都在谈论日本首相高市早苗领导下的宽松财政政策，但政府消费环比放缓，这突显出去年11月宣布的补充预算并未对政府支出产生实质
+高盛发布研报称，预期百威亚太（01876）将于5月5日公布今年首季度业绩。该行预计集团首季有机收入增长1.5%，正常化EBITDA同比下跌11%（有机、固定汇率计）。以美元计，预计首季报告纯利为1.93亿美元，低于去年同期的2.34亿美元。高盛将百威亚太目标价由8.4港元轻微上调至8.5港元，相当于预测2028年市盈率19倍，予“买入”评级。 报告指，中国市场方面，预计首季销量
 
 ## 正文
 
-在伊朗战争前，日本经济积聚了稳健势头，但凯投宏观认为，本季度和下季度GDP增长将放缓至停滞状态。
+高盛发布研报称，预期百威亚太（01876）将于5月5日公布今年首季度业绩。
 
-第一季度数据显示，家庭支出和企业投资均环比上升，此外出口激增带来的增长推动力超过了增幅小得多的进口增长。
+该行预计集团首季有机收入增长1.5%，正常化EBITDA同比下跌11%（有机、固定汇率计）。
 
-然而，经济学家Marcel Thieliant表示，尽管外界都在谈论日本首相高市早苗领导下的宽松财政政策，但政府消费环比放缓，这突显出去年11月宣布的补充预算并未对政府支出产生实质性影响。
+以美元计，预计首季报告纯利为1.93亿美元，低于去年同期的2.34亿美元。
 
-与此同时，消费者信心大幅下滑，而燃料价格上限只能在有限时间内保持通胀温和。
+高盛将百威亚太目标价由8.4港元轻微上调至8.5港元，相当于预测2028年市盈率19倍，予“买入”评级。
 
-他补充说，即使有新的补充预算来为汽油补贴提供资金，这也充其量只能稳定消费者支出。
+报告指，中国市场方面，预计首季销量跌幅将按季收窄，3月份已转为正增长，主要受惠于渠道积极去库存及为旺季做准备，加上华南地区天气相对温暖。
 
-责任编辑：王永生
+然而，由于推广活动及渠道结构转变，平均售价预期仍录得同比跌幅，但跌幅已较去年下半年收窄。
+
+毛利率受销量杠杆影响，但被效率提升部分抵销。
+
+EBITDA面临较大的下行压力，主要因为农历新年、冬季奥运会及哈尔滨啤酒新品牌推广等商业投资增加，以及其他经营收入（如可退还瓶装收入）减少。
 
 ## 相关推荐
 
-- 2026-06-30 07:50 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-30 08:17 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
-- 2026-06-30 08:00 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-30 08:15 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
-- 2026-06-30 08:06 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-30 07:57 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-30 08:00 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-30 07:55 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-30 08:12 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-30 08:17 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
+- 2026-06-30 08:19 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-30 07:58 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-30 07:57 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-30 07:56 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-30 08:01 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-30 08:14 - [马耳他著名拱门坍塌致一中国男子身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-30 07:58 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
+- 2026-06-30 08:18 - [周冬雨多次说演不了话剧文城](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-30 08:03 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
+- 2026-06-30 08:09 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:58 - [日本五次世界杯淘汰赛全败](https://www.blog.minike.top/Article/details/16018085.shtml)
-- 2026-06-30 08:03 - [这几秒成世界杯最值钱广告位](https://www.share.minike.top/Article/details/557578092287.shtml)
-- 2026-06-30 08:00 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/1726335912.shtml)
-- 2026-06-30 07:59 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/649437.shtml)
-- 2026-06-30 07:54 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/669430121.shtml)
-- 2026-06-30 08:16 - [王楚钦孙颖莎晋级混双八强](http://www.blog.kurohicncr.top/Article/details/180691.shtml)
-- 2026-06-30 08:13 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/79362456609.shtml)
-- 2026-06-30 07:54 - [刘必安等16人非法集资案二审宣判](https://www.blog.minike.top/Article/details/444594021.shtml)
-- 2026-06-30 07:55 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/2755331640.shtml)
-- 2026-06-30 08:07 - [女子清吧被陌生人投放伟哥](https://www.share.kurohicncr.top/Article/details/4893344.shtml)
-- 2026-06-30 08:05 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/100585490.shtml)
-- 2026-06-30 08:04 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/037973.shtml)
-- 2026-06-30 08:15 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/28732685.shtml)
-- 2026-06-30 07:52 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/804676629509.shtml)
-- 2026-06-30 08:08 - [藤森庆子赢得秘鲁总统选举](http://www.blog.minike.top/Article/details/0439412.shtml)
+- 2026-06-30 08:00 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.kurohicncr.top/Article/details/2094164.shtml)
+- 2026-06-30 08:06 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/88731.shtml)
+- 2026-06-30 08:13 - [流金岁月](https://www.share.kurohicncr.top/Article/details/5680756003.shtml)
+- 2026-06-30 07:57 - [德国巴拉圭加时](http://www.blog.kurohicncr.top/Article/details/630973933.shtml)
+- 2026-06-30 08:19 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.kurohicncr.top/Article/details/740730554.shtml)
+- 2026-06-30 08:19 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.blog.kurohicncr.top/Article/details/60322490.shtml)
+- 2026-06-30 08:05 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/672851.shtml)
+- 2026-06-30 08:17 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/5431754879.shtml)
+- 2026-06-30 08:07 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/895238161144.shtml)
+- 2026-06-30 08:20 - [孙颖莎王楚钦晋级8强](http://www.blog.minike.top/Article/details/5608439006.shtml)
+- 2026-06-30 08:11 - [巴西醒醒 这是淘汰赛](https://www.share.kurohicncr.top/Article/details/230383765.shtml)
+- 2026-06-30 08:01 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/05431.shtml)
+- 2026-06-30 08:00 - [如果有二次元高中是什么样子的？](http://www.share.minike.top/Article/details/627102810.shtml)
+- 2026-06-30 08:13 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/38302056.shtml)
+- 2026-06-30 08:05 - [日本反击率先破门](https://www.share.kurohicncr.top/Article/details/422086396804.shtml)

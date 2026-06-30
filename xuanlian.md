@@ -1,58 +1,61 @@
-# 经济热点快评｜前4个月经济数据发布，“稳”的基调没有变
+# 分析师警告美伊冲突远未结束 近期油价底部或在90美元/桶
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-生产供给平稳增长，市场销售继续扩大，外贸韧性持续彰显……5月18日发布的前4月中国经济成绩单显示，今年1至4月，国民经济保持稳中有进发展态势，高质量发展向新向优。在国际环境复杂严峻的背景下取得如此成绩，再次彰显了中国经济的强大韧性。一系列数据中，消费、投资等需求端指标的波动引起了关注。比如，4月份，社会消费品零售总额同比增长0.2%，环比下降0.48%。又如，1—4月份，全国固
+来源：财联社 财联社4月9日讯（编辑 马兰）由于霍尔木兹海峡仍然处于阻塞状态，加上停火协议宣布后，以色列对黎巴嫩发动袭击，导致美伊停火协议摇摇欲坠，使得油价在周三的暴跌后反弹。 周二晚间，美国总统特朗普宣布与伊朗达成暂停停火后，国际油价创下2020年4月以来最大的单日跌幅，5月交货的美国WTI原油价格跌幅一度接近20%，6月交货的布伦特原油期货价格跌幅一度达16%。 截至发稿，
 
 ## 正文
 
-生产供给平稳增长，市场销售继续扩大，外贸韧性持续彰显……5月18日发布的前4月中国经济成绩单显示，今年1至4月，国民经济保持稳中有进发展态势，高质量发展向新向优。
+来源：财联社 财联社4月9日讯（编辑 马兰）由于霍尔木兹海峡仍然处于阻塞状态，加上停火协议宣布后，以色列对黎巴嫩发动袭击，导致美伊停火协议摇摇欲坠，使得油价在周三的暴跌后反弹。
 
-在国际环境复杂严峻的背景下取得如此成绩，再次彰显了中国经济的强大韧性。
+周二晚间，美国总统特朗普宣布与伊朗达成暂停停火后，国际油价创下2020年4月以来最大的单日跌幅，5月交货的美国WTI原油价格跌幅一度接近20%，6月交货的布伦特原油期货价格跌幅一度达16%。
 
-一系列数据中，消费、投资等需求端指标的波动引起了关注。
+截至发稿，布伦特原油反弹超3%，报97.6美元/桶，WTI原油日内上涨超4%，报98.2美元/桶。
 
-比如，4月份，社会消费品零售总额同比增长0.2%，环比下降0.48%。
+BOK金融证券有限公司高级副总裁兼交易主管Dennis Kissler表示，事情尚未结束，市场需要看到海峡完全畅通无阻，WTI原油价格才会回落到每桶80美元左右的水平。
 
-又如，1—4月份，全国固定资产投资同比下降1.6%。
+但未来两周不太可能出现这种情况。
 
-对这些波动，我们该如何辩证看待呢？
+波动 多方消息指出，霍尔木兹海峡的通行已再次中断。
 
-一方面，跳出局部看整体，中国经济“稳”的基调没有变。
+全球约五分之一的原油和液化天然气都要经过霍尔木兹海峡，该航道的中断造成了有史以来最大的石油市场混乱。
 
-前4月，规模以上工业增加值、服务业生产指数同比分别增长5.6%和4.9%，装备制造业增加值、高技术制造业增加值分别同比增长8.7%、12.6%，货物进出口总额同比增长14.9%，服务零售额增长5.6%……一系列数据表明，新质生产力正茁壮成长，产业升级正稳步推进。
+伊朗议会议长卡利巴夫在X平台上发表声明称，由于以色列正在攻击黎巴嫩，有敌对无人机侵入伊朗领空，且美国继续反对伊朗的铀浓缩活动，因此伊朗与美国的停火和谈判是不合理的。
 
 ## 相关推荐
 
-- 2026-06-30 08:05 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-30 08:12 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
-- 2026-06-30 08:07 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-30 08:00 - [库尼亚赛后伸五指嘲讽日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-30 07:50 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
-- 2026-06-30 08:13 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-30 07:50 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
-- 2026-06-30 08:12 - [锐评T1战胜KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-30 08:13 - [郑钦文温网首轮出局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-30 07:52 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
-- 2026-06-30 07:58 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-30 08:02 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-30 08:17 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-30 08:21 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-30 07:59 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-30 08:07 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-30 08:19 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-30 08:06 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-30 08:06 - [武磊：巴西队赢的并不轻松](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-30 08:14 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-30 08:09 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-30 07:58 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
+- 2026-06-30 08:21 - [武磊：巴西队赢的并不轻松](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
+- 2026-06-30 08:07 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-30 07:59 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
+- 2026-06-30 07:57 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-30 07:57 - [恋与深空道歉声明](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:12 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/27907019.shtml)
-- 2026-06-30 08:04 - [巴西补时绝杀日本](http://www.share.kurohicncr.top/Article/details/4851174.shtml)
-- 2026-06-30 08:09 - [郑钦文温网一轮游](http://www.share.minike.top/Article/details/88235698.shtml)
-- 2026-06-30 07:49 - [日本进球](http://www.share.kurohicncr.top/Article/details/28137846.shtml)
-- 2026-06-30 08:08 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/1535346.shtml)
-- 2026-06-30 07:53 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/6260057.shtml)
-- 2026-06-30 07:57 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/8611526172.shtml)
-- 2026-06-30 08:13 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/26457.shtml)
-- 2026-06-30 08:17 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/1010552894.shtml)
-- 2026-06-30 07:51 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/84627418002.shtml)
-- 2026-06-30 08:12 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/82355.shtml)
-- 2026-06-30 08:10 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/22726431.shtml)
-- 2026-06-30 07:55 - [男子在京东买到“同仁堂”假药](http://www.blog.minike.top/Article/details/57238952350.shtml)
-- 2026-06-30 08:16 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/1409716.shtml)
-- 2026-06-30 08:12 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.minike.top/Article/details/27091915239.shtml)
+- 2026-06-30 08:11 - [送你一朵小红花](https://www.blog.minike.top/Article/details/4424005797.shtml)
+- 2026-06-30 08:19 - [斛珠夫人](http://www.blog.minike.top/Article/details/825834569712.shtml)
+- 2026-06-30 08:10 - [日本球迷被强行披上巴西国旗](http://www.blog.kurohicncr.top/Article/details/734366135093.shtml)
+- 2026-06-30 07:59 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/411312.shtml)
+- 2026-06-30 08:21 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/251724472.shtml)
+- 2026-06-30 07:57 - [现在叛逆期的孩子最怕的是什么？](http://www.share.kurohicncr.top/Article/details/0252900.shtml)
+- 2026-06-30 08:10 - [库尼亚赛后伸五指嘲讽日本](http://www.blog.kurohicncr.top/Article/details/972634.shtml)
+- 2026-06-30 08:16 - [巴拉圭率先破门](http://www.blog.kurohicncr.top/Article/details/283049220361.shtml)
+- 2026-06-30 08:17 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/2683259549.shtml)
+- 2026-06-30 08:07 - [高考结束了，你会让孩子在家玩手机吗？](https://www.share.kurohicncr.top/Article/details/38644497.shtml)
+- 2026-06-30 08:20 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/361860914865.shtml)
+- 2026-06-30 08:05 - [斗破苍穹](https://www.blog.minike.top/Article/details/93217476840.shtml)
+- 2026-06-30 08:16 - [巴西2-1绝杀日本](https://www.share.kurohicncr.top/Article/details/48624450435.shtml)
+- 2026-06-30 08:13 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/28914.shtml)
+- 2026-06-30 08:19 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/53943.shtml)

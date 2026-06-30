@@ -1,60 +1,49 @@
-# 奥特维4亿元海外大单一年后落空，2025年净利下滑64.64%，实控人葛志勇、李文仍在减持 | 长三角资本局
+# 中国国务院国资委成立境外国资工作局
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-文|新浪财经上海站 十里 仅一年多时间，奥特维一笔约4亿元海外大单，从“签约捷报”走向“不再履行”。 5月18日，奥特维公告称，公司全资子公司无锡奥特维供应链管理有限公司此前与一家国际知名光伏企业签订的单晶炉及配套辅助设备销售合同，因客户所在国家政策及市场环境发生重大变化，合同生效条件未能达成，最终不再履行。该合同金额约4亿元，相当于公司海外业务拓展中的一笔重要订单。 这笔合同
+中新社北京4月8日电 中国国务院国资委8日消息，国务院国资委新设境外国资工作局。 国务院国资委官网信息显示，境外国资工作局指导所监管企业国际化经营和境外资产布局优化、结构调整，承担所监管企业境外资产监督有关工作，加强境外投资经营等方面风险防范化解，承担境外突发事件和危机处理有关工作。(完)
 
 ## 正文
 
-文|新浪财经上海站 十里 仅一年多时间，奥特维一笔约4亿元海外大单，从“签约捷报”走向“不再履行”。
+中新社北京4月8日电 中国国务院国资委8日消息，国务院国资委新设境外国资工作局。
 
-5月18日，奥特维公告称，公司全资子公司无锡奥特维供应链管理有限公司此前与一家国际知名光伏企业签订的单晶炉及配套辅助设备销售合同，因客户所在国家政策及市场环境发生重大变化，合同生效条件未能达成，最终不再履行。
+国务院国资委官网信息显示，境外国资工作局指导所监管企业国际化经营和境外资产布局优化、结构调整，承担所监管企业境外资产监督有关工作，加强境外投资经营等方面风险防范化解，承担境外突发事件和危机处理有关工作。
 
-该合同金额约4亿元，相当于公司海外业务拓展中的一笔重要订单。
-
-这笔合同最早披露于2024年9月20日。
-
-当时，奥特维公告称，供应链公司与该国际知名光伏企业签署附条件生效的销售合同，涉及单晶炉及配套辅助设备，合同金额约4亿元。
-
-彼时，光伏设备企业正试图在国内行业出清之外寻找新的订单出口，海外客户、海外产能、海外项目，都是市场愿意听的故事。
-
-但这笔合同并没有真正走到执行阶段。
-
-根据本次公告，合同生效需要满足三个条件：客户确定FID，即最终投资决定；客户发布开工通知；客户支付首付款。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 08:15 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-30 08:06 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
-- 2026-06-30 08:16 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-30 07:55 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
-- 2026-06-30 08:14 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
-- 2026-06-30 07:54 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-30 07:58 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
-- 2026-06-30 07:48 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-30 07:48 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-30 08:04 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-30 08:00 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-30 07:56 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
-- 2026-06-30 08:00 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-30 08:14 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
+- 2026-06-30 08:01 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-30 08:05 - [德国进球被吹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-30 08:23 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-30 08:03 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
+- 2026-06-30 08:16 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-30 08:23 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-30 08:18 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-30 08:12 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-30 07:57 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-30 08:14 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-30 07:58 - [日本队5进世界杯淘汰赛0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-30 08:23 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-30 07:55 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:05 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/34660690.shtml)
-- 2026-06-30 07:50 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/55346442.shtml)
-- 2026-06-30 07:59 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/8950761577.shtml)
-- 2026-06-30 07:49 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/936030168692.shtml)
-- 2026-06-30 07:49 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.kurohicncr.top/Article/details/7159061.shtml)
-- 2026-06-30 08:05 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/57591725.shtml)
-- 2026-06-30 07:54 - [巴西2比1日本](https://www.share.kurohicncr.top/Article/details/724748.shtml)
-- 2026-06-30 07:50 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.share.kurohicncr.top/Article/details/68960.shtml)
-- 2026-06-30 07:54 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/165986645.shtml)
-- 2026-06-30 08:03 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/78777.shtml)
-- 2026-06-30 08:07 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/66296426740.shtml)
-- 2026-06-30 07:53 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/819055814233.shtml)
-- 2026-06-30 08:10 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/09987288.shtml)
-- 2026-06-30 08:16 - [DeepSeek启动成立来最大规模招聘](http://www.blog.kurohicncr.top/Article/details/014771843.shtml)
-- 2026-06-30 07:56 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.minike.top/Article/details/74428396.shtml)
+- 2026-06-30 08:20 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/8834414.shtml)
+- 2026-06-30 08:08 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/13356858.shtml)
+- 2026-06-30 07:57 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/90530.shtml)
+- 2026-06-30 08:16 - [巴拉圭率先破门](http://www.share.kurohicncr.top/Article/details/7525413.shtml)
+- 2026-06-30 07:55 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/50073967.shtml)
+- 2026-06-30 08:16 - [一生一世](https://www.share.kurohicncr.top/Article/details/727856.shtml)
+- 2026-06-30 08:19 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/44101646236.shtml)
+- 2026-06-30 07:59 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/4180877.shtml)
+- 2026-06-30 08:03 - [高考填志愿父亲和女儿产生分歧](http://www.share.minike.top/Article/details/649739.shtml)
+- 2026-06-30 08:16 - [国务院：探索延长义务教育年限](http://www.blog.kurohicncr.top/Article/details/4585176153.shtml)
+- 2026-06-30 08:15 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/7557718883.shtml)
+- 2026-06-30 08:02 - [武磊：日本队有能力跟任何强队抗衡](https://www.blog.minike.top/Article/details/75776017.shtml)
+- 2026-06-30 08:22 - [王欣瑜2-1击败科恰雷托](https://www.blog.kurohicncr.top/Article/details/4200056459.shtml)
+- 2026-06-30 08:16 - [网瘾賊大的阿嬷](http://www.blog.minike.top/Article/details/7323253593.shtml)
+- 2026-06-30 08:23 - [恋与深空道歉声明](http://www.share.minike.top/Article/details/925895514047.shtml)

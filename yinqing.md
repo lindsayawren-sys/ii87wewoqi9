@@ -1,58 +1,57 @@
-# 长江有色：19日铸造铝期价收涨1.00% 整体采买活跃度不高
+# 巴克莱策略师：美国大型科技企业盈利将保持韧性
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-长江有色金属网 上海期货价格走势：今日铸造铝合金主力月2607合约高开上跳，盘面走势偏强；截止当日15：00收盘，铸造铝主力合约报23120元，涨230元，涨幅1.00%，全天成交量5838手减少2630手；持仓量14721手增加227手。 据长江有色金属网数据统计，5月19日长江现货数据显示，铝合金ADC12报价23300-23500元/吨，均价报23400元/吨，持平；铸造
+巴克莱策略师表示，尽管受伊朗相关局势波动影响，美国财报季来临前的盈利预期仍保持稳定，其中大型科技股表现尤为坚挺。 由维努・克里希纳牵头的团队写道，标普500成分股的每股收益预期已稳定半年之久，并未受近期伊朗冲突引发的市场波动干扰。 他们认为，资本开支超级周期仍是市场主线，在人工智能普及与云服务需求持续旺盛的背景下，大型科技板块将继续保持资本开支领先地位。 此外，策略师指出，在近
 
 ## 正文
 
-长江有色金属网 上海期货价格走势：今日铸造铝合金主力月2607合约高开上跳，盘面走势偏强；截止当日15：00收盘，铸造铝主力合约报23120元，涨230元，涨幅1.00%，全天成交量5838手减少2630手；持仓量14721手增加227手。
+巴克莱策略师表示，尽管受伊朗相关局势波动影响，美国财报季来临前的盈利预期仍保持稳定，其中大型科技股表现尤为坚挺。
 
-据长江有色金属网数据统计，5月19日长江现货数据显示，铝合金ADC12报价23300-23500元/吨，均价报23400元/吨，持平；铸造铝合金锭（A356.2）报价24550-24950元/吨，均价报24750元/吨，涨150元；铸造铝合金锭（A380）报价25400-25600元/吨，均价报25500元/吨，持平；铸造铝合金锭（ZL102）报价24450-24650元/吨，均价报24550元/吨，涨150元；铸造铝合金锭（ZLD104）报价24450-24650元/吨，均价报24550元/吨，涨150元； ccmn铸造铝合金市场分析： 宏观层面，美债收益率持续攀升强化美联储的鹰派预期，美元指数继续保持高位震荡格局，一定程度压制铝价的上涨空间。
+由维努・克里希纳牵头的团队写道，标普500成分股的每股收益预期已稳定半年之久，并未受近期伊朗冲突引发的市场波动干扰。
 
-不过，受头部机构强烈看涨及中东地缘局势引发全球铝市供应危机影响，市场对结构性短缺的担忧加剧，为铝价提供强支撑。
+他们认为，资本开支超级周期仍是市场主线，在人工智能普及与云服务需求持续旺盛的背景下，大型科技板块将继续保持资本开支领先地位。
 
-铸造铝与电解铝价格联动紧密，因此得以跟随原铝强势反弹。
+此外，策略师指出，在近期板块估值重估后，大型科技股已显现吸引力，市场预期其利润率将显著扩张、盈利强劲增长，形成利好支撑。
 
-基本面方面，成本端，受税收政策收紧及废铝回收量偏紧的双重影响，废铝价格高位坚挺，为铸造铝合金构筑了坚实的底部支撑。
+板块层面，公用事业板块利润率有望改善，而医疗保健与通信板块盈利预计持平或收缩。
 
-需求端，随着行业步入传统消费淡季，下游压铸企业开工率维持低位，汽车、通讯等终端订单未见实质性改善，市场对后市需求走弱的预期升温。
+股指内部广度亦趋于稳定：自伊朗冲突爆发以来，约40%的标普500成分股表现优于大盘指数，高于上一季度的35%；不过这一水平仍远低于历史常态。
 
-现货市场交投氛围平淡，持货商报价坚挺但出货意愿一般，下游压铸厂多以刚需采购为主，整体采买活跃度不高。
-
-综合来看，在成本端与需求端的博弈下，铸造铝合金价格短期易涨难跌，但上行同样缺乏强劲动能，预计将延续高位僵持整理的态势。
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-30 08:00 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-30 08:17 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
-- 2026-06-30 07:56 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-30 07:55 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-30 08:10 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-30 07:57 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
-- 2026-06-30 08:12 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
-- 2026-06-30 07:52 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-30 08:08 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-30 07:54 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
-- 2026-06-30 08:05 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-30 08:08 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
+- 2026-06-30 08:12 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-30 08:20 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-30 08:18 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-30 08:12 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-30 08:20 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-30 08:15 - [索马里女大使：想和中国一起搞事业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-30 08:01 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-30 08:19 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-30 08:11 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
+- 2026-06-30 08:15 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-30 08:02 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-30 08:00 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-30 07:58 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:59 - [日本16强魔咒](https://www.blog.minike.top/Article/details/796188297092.shtml)
-- 2026-06-30 08:14 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.kurohicncr.top/Article/details/224116062.shtml)
-- 2026-06-30 08:05 - [安切洛蒂 换人](https://www.share.kurohicncr.top/Article/details/0722387622.shtml)
-- 2026-06-30 07:50 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.kurohicncr.top/Article/details/84951.shtml)
-- 2026-06-30 08:06 - [孙兴慜发长文致歉](http://www.blog.kurohicncr.top/Article/details/74020980059.shtml)
-- 2026-06-30 07:52 - [王楚钦孙颖莎晋级混双八强](https://www.share.kurohicncr.top/Article/details/450434950426.shtml)
-- 2026-06-30 07:55 - [81岁老人被男子买光菜回家车祸去世](http://www.share.kurohicncr.top/Article/details/94510760354.shtml)
-- 2026-06-30 08:11 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/976476971.shtml)
-- 2026-06-30 07:54 - [德国淘汰](https://www.share.minike.top/Article/details/228674.shtml)
-- 2026-06-30 07:48 - [天道](http://www.blog.minike.top/Article/details/568577229553.shtml)
-- 2026-06-30 08:14 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/04312.shtml)
-- 2026-06-30 08:03 - [韩国球迷凌晨4点接机怒骂主教练](https://www.blog.kurohicncr.top/Article/details/3108384.shtml)
-- 2026-06-30 08:04 - [千与千寻](https://www.blog.minike.top/Article/details/5238885684.shtml)
-- 2026-06-30 08:11 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.kurohicncr.top/Article/details/06462.shtml)
-- 2026-06-30 08:13 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/85490.shtml)
+- 2026-06-30 08:19 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/9398299.shtml)
+- 2026-06-30 07:58 - [IGN评测电影版后室](https://www.share.kurohicncr.top/Article/details/727017477480.shtml)
+- 2026-06-30 08:19 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/0095998.shtml)
+- 2026-06-30 07:57 - [韩乔生吐槽世界杯扩军](https://www.share.minike.top/Article/details/919845695934.shtml)
+- 2026-06-30 08:21 - [上市央企地产商 两年换了三任董事长](https://www.share.minike.top/Article/details/531199503265.shtml)
+- 2026-06-30 08:17 - [内马尔替补](http://www.share.minike.top/Article/details/872875.shtml)
+- 2026-06-30 08:14 - [巴西醒醒 这是淘汰赛](http://www.share.kurohicncr.top/Article/details/32945.shtml)
+- 2026-06-30 08:22 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/22169801978.shtml)
+- 2026-06-30 08:12 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/330163.shtml)
+- 2026-06-30 07:57 - [DeepSeek V4正式版要来了](http://www.share.minike.top/Article/details/32500503.shtml)
+- 2026-06-30 07:54 - [赛博朋克边缘行者2预告片](http://www.blog.minike.top/Article/details/273875.shtml)
+- 2026-06-30 08:14 - [刘宇宁高情商化解谁站C位](http://www.blog.kurohicncr.top/Article/details/223862982922.shtml)
+- 2026-06-30 08:04 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/2899170.shtml)
+- 2026-06-30 08:00 - [三星投资计划](https://www.share.kurohicncr.top/Article/details/45551893368.shtml)
+- 2026-06-30 08:12 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/184604466789.shtml)

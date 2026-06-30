@@ -1,56 +1,61 @@
-# 遛早市、看中医、逛展会 免签加速中俄跨境旅游常态化
+# 中国碱基编辑技术可有效治疗β地中海贫血 或彻底摆脱输血依赖
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-中新网黑河5月19日电 题：遛早市、看中医、逛展会 免签加速中俄跨境旅游常态化 作者 王琳 韩竺夏 5月19日是文旅惠民的中国旅游日，正值第十届中俄博览会在哈尔滨举行，经由黑河口岸出入境旅客增量显著。依托中俄免签政策红利，两国跨境往来正朝着常态化、多元化方向加速发展。 中俄互免签证以来，通关流程大幅简化。据黑河出入境边防检查站统计：2026年以来，黑河口岸出入境人员已达36万人
+中新网北京4月9日电 (记者 孙自法)国际学术期刊《自然》最新发表一篇中国学者主导完成的医学论文称，中国研发的碱基编辑技术展现了恢复β地中海贫血患者血红蛋白生成的一种快速有效的方法。这项在临床试验中展示的疗法，未来有望使患者彻底摆脱输血依赖。 该论文介绍，β地中海贫血是一种血液疾病，其特征在于无法正确合成血红蛋白的β亚基，这可能导致贫血和红细胞生成缺陷。该亚基合成缺陷可由β珠蛋
 
 ## 正文
 
-中新网黑河5月19日电 题：遛早市、看中医、逛展会 免签加速中俄跨境旅游常态化 作者 王琳 韩竺夏 5月19日是文旅惠民的中国旅游日，正值第十届中俄博览会在哈尔滨举行，经由黑河口岸出入境旅客增量显著。
+中新网北京4月9日电 (记者 孙自法)国际学术期刊《自然》最新发表一篇中国学者主导完成的医学论文称，中国研发的碱基编辑技术展现了恢复β地中海贫血患者血红蛋白生成的一种快速有效的方法。
 
-依托中俄免签政策红利，两国跨境往来正朝着常态化、多元化方向加速发展。
+这项在临床试验中展示的疗法，未来有望使患者彻底摆脱输血依赖。
 
-中俄互免签证以来，通关流程大幅简化。
+该论文介绍，β地中海贫血是一种血液疾病，其特征在于无法正确合成血红蛋白的β亚基，这可能导致贫血和红细胞生成缺陷。
 
-据黑河出入境边防检查站统计：2026年以来，黑河口岸出入境人员已达36万人次，同比增长80%。
+该亚基合成缺陷可由β珠蛋白基因(HBB)中已知的350多种不同突变引起，目前主要通过定期输注红细胞进行治疗，这对患者而言可能十分艰辛。
 
-遛早市、看中医、逛展会，越来越多的俄罗斯游客把这座中国边城当作日常“串门”的目的地。
+胎儿血红蛋白(HbF，在胎儿期表达，出生后逐渐减少)由a亚基和g亚基组成，不需要β亚基。
 
-2026年是中俄战略协作伙伴关系建立30周年和《中俄睦邻友好合作条约》签署25周年。
+因此，提高HbF水平可能成为治疗β地中海贫血的通用型长期疗法。
 
-5月17日至21日，第十届中俄博览会在哈尔滨举行，黑龙江各口岸城市的俄罗斯入境旅客明显增多。
+虽然通过分子剪刀型基因编辑技术可提高HbF水平，但在编辑过程中会造成DNA双链断裂，触发细胞凋亡和染色体大片段缺失、易位等风险。
 
-专程前来参会的俄罗斯旅客莉扎说：“俄中经贸交往源远流长，希望借助盛会拓展商机、深化合作。
+在本项研究中，论文共同通讯作者、上海科技大学陈佳教授联合复旦大学、广西医科大学第一附属医院、上海临床研究中心、法国巴黎西岱大学等中外机构的合作者一起，共同开展一项临床试验——5名重度β地中海贫血患者接受了一次性自体修饰干细胞输注(CS-101)。
 
 ## 相关推荐
 
-- 2026-06-30 08:17 - [女子遭下药退赔偿拟追刑责](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-30 08:12 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
-- 2026-06-30 08:04 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-30 08:01 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-30 08:00 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-30 08:11 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-30 07:56 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-30 08:01 - [恋与深空道歉声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
-- 2026-06-30 08:00 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-30 08:09 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-30 08:01 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-30 08:14 - [萨内 看笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-30 08:06 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-30 07:55 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
+- 2026-06-30 08:19 - [大蒜晒外面被路过女子连盆端走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-30 08:01 - [诺伊尔尽力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-30 08:20 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-30 07:55 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-30 08:14 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
+- 2026-06-30 08:10 - [亚洲球队全部出局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-30 07:54 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-30 07:56 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
+- 2026-06-30 07:57 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-30 07:59 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-30 07:58 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:48 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/45722.shtml)
-- 2026-06-30 08:03 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/34304300555.shtml)
-- 2026-06-30 08:13 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/57240479058.shtml)
-- 2026-06-30 07:59 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/9341640016.shtml)
-- 2026-06-30 08:14 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/012272.shtml)
-- 2026-06-30 08:11 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/26621034.shtml)
-- 2026-06-30 07:54 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/882199.shtml)
-- 2026-06-30 07:58 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/85631995.shtml)
-- 2026-06-30 08:11 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.minike.top/Article/details/6347564505.shtml)
-- 2026-06-30 08:10 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/00042454935.shtml)
-- 2026-06-30 08:03 - [张月感谢了每一公的队友](https://www.share.minike.top/Article/details/117692992888.shtml)
-- 2026-06-30 07:52 - [网瘾賊大的阿嬷](http://www.share.kurohicncr.top/Article/details/0734722.shtml)
-- 2026-06-30 08:04 - [豆包收费了，你还会用吗？](http://www.blog.kurohicncr.top/Article/details/8411445142.shtml)
-- 2026-06-30 08:02 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.kurohicncr.top/Article/details/288387237057.shtml)
-- 2026-06-30 07:52 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](http://www.share.minike.top/Article/details/43210.shtml)
+- 2026-06-30 08:04 - [一生一世](https://www.share.kurohicncr.top/Article/details/7534555.shtml)
+- 2026-06-30 08:22 - [如果有二次元高中是什么样子的？](https://www.blog.minike.top/Article/details/221717193489.shtml)
+- 2026-06-30 08:02 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/81614292732.shtml)
+- 2026-06-30 08:07 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/03473.shtml)
+- 2026-06-30 08:22 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/1246390203.shtml)
+- 2026-06-30 08:14 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/980840.shtml)
+- 2026-06-30 08:07 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.minike.top/Article/details/9459182.shtml)
+- 2026-06-30 08:01 - [失明的我带老妈去了趟“火星”](https://www.share.minike.top/Article/details/80162244582.shtml)
+- 2026-06-30 08:08 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/7566473555.shtml)
+- 2026-06-30 08:04 - [武磊：巴西队赢的并不轻松](http://www.blog.kurohicncr.top/Article/details/920408484.shtml)
+- 2026-06-30 08:09 - [王健林甩卖超80座万达广场](https://www.blog.minike.top/Article/details/826287296.shtml)
+- 2026-06-30 07:54 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.share.minike.top/Article/details/1104855573.shtml)
+- 2026-06-30 08:19 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/0127792.shtml)
+- 2026-06-30 08:02 - [全新问界M9现身美国街头](http://www.share.kurohicncr.top/Article/details/431330.shtml)
+- 2026-06-30 08:16 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/90423360315.shtml)

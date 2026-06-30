@@ -1,59 +1,61 @@
-# 白皮书：2025年中国卫星导航产业总体产值超6000亿元
+# 重庆启动2026“百万人才兴重庆”引才活动
 
-> 更新时间：2026-06-30 08:18:02 UTC+8
+> 更新时间：2026-06-30 08:24:02 UTC+8
 
 ## 摘要
 
-中新社北京5月18日电 (记者 马帅莎)中国卫星导航定位协会18日在北京发布的《2026中国北斗时空产业发展白皮书》显示，2025年，中国卫星导航产业(北斗产业)总体产值达6290亿元(人民币，下同)，同比增长9.24%。白皮书指出，2025年，北斗时空产业总体产值达到13323亿元。其中，作为北斗时空产业基础的卫星导航产业(北斗产业)总体产值达6290亿元，同比增长9.24%
+中新网重庆4月8日电 (记者 钟旖)2026“百万人才兴重庆”系列引才活动7日在重庆正式启动。 作为已持续八年的城市引才品牌，活动锚定现代化新重庆建设目标，将以更系统的活动矩阵、更精准的岗位对接和更优化的服务生态，向全球优秀奋斗者发出诚挚的“重庆邀请函”，全面开启新一年的招才引智征程。 数据显示，2025年，重庆市人才“磁吸力”强劲。从区域看，两江新区、渝中区位居区县引才前列。
 
 ## 正文
 
-中新社北京5月18日电 (记者 马帅莎)中国卫星导航定位协会18日在北京发布的《2026中国北斗时空产业发展白皮书》显示，2025年，中国卫星导航产业(北斗产业)总体产值达6290亿元(人民币，下同)，同比增长9.24%。
+中新网重庆4月8日电 (记者 钟旖)2026“百万人才兴重庆”系列引才活动7日在重庆正式启动。
 
-白皮书指出，2025年，北斗时空产业总体产值达到13323亿元。
+作为已持续八年的城市引才品牌，活动锚定现代化新重庆建设目标，将以更系统的活动矩阵、更精准的岗位对接和更优化的服务生态，向全球优秀奋斗者发出诚挚的“重庆邀请函”，全面开启新一年的招才引智征程。
 
-其中，作为北斗时空产业基础的卫星导航产业(北斗产业)总体产值达6290亿元，同比增长9.24%，展现出强劲的发展韧性和巨大的增长潜力。
+数据显示，2025年，重庆市人才“磁吸力”强劲。
 
-白皮书称，2025年，北斗时空产业最鲜明的特征，就是实现了从“卫星导航”到“时空服务”的跨越，呈现出“技术融合化、应用场景化、生态多元化”的发展态势，产业迭代升级速度持续加快，核心竞争力不断提升。
+从区域看，两江新区、渝中区位居区县引才前列。
 
-白皮书表示，2025年，北斗时空产业的应用市场呈现“专业深化、大众普及”的双轮驱动格局。
+其中，两江新区引才数量突破3.1万人。
 
-在大众消费领域，截至2025年底，中国已有近14亿部智能手机支持北斗定位功能，约占总量的98%；支持北斗定位功能的可穿戴设备保有量超过1.6亿；超过1亿台乘用车部署了具有北斗定位导航功能的车载设备。
+从企业看，赛力斯汽车有限公司、云界未来科技(重庆)有限公司、重庆长安汽车股份有限公司等智能网联新能源汽车、新一代信息技术领域企业表现突出。
 
-白皮书说，在海外应用市场方面，北斗系统服务及相关产品已输出到140余个国家和地区。
+从机构看，金凤实验室、重庆新型储能材料与装备研究院等高水平科研平台表现抢眼，彰显了重庆在科技创新前沿对高端人才的强大吸引力。
 
-(完)
+亮眼数据的背后，是“百万人才兴重庆”品牌多年来的持续深耕。
 
 ## 相关推荐
 
-- 2026-06-30 07:52 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-30 07:50 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
-- 2026-06-30 08:02 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-30 07:56 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
-- 2026-06-30 08:10 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-30 07:57 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-30 07:57 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-30 08:07 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-30 08:11 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-30 07:52 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
-- 2026-06-30 08:11 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-30 07:52 - [德国爆冷点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-30 08:01 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-30 08:13 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-30 07:59 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
+- 2026-06-30 07:59 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-30 08:14 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-30 08:11 - [日本球员说被绝杀非常不甘心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-30 08:15 - [媒体：手机测评该挤挤水分了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-30 08:00 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-30 08:20 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
+- 2026-06-30 08:06 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
+- 2026-06-30 07:59 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-30 07:54 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-30 08:21 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-30 07:56 - [孙颖莎王楚钦晋级8强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-30 08:15 - [武磊：巴西队赢的并不轻松](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-30 08:21 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:17 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/290522.shtml)
-- 2026-06-30 08:05 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/791040043.shtml)
-- 2026-06-30 07:58 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/10407398.shtml)
-- 2026-06-30 08:15 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/465644738276.shtml)
-- 2026-06-30 08:03 - [杨紫获白玉兰视后争议不止](https://www.share.minike.top/Article/details/67064189.shtml)
-- 2026-06-30 08:08 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/92040.shtml)
-- 2026-06-30 08:00 - [王楚钦孙颖莎晋级混双八强](https://www.share.kurohicncr.top/Article/details/8705698.shtml)
-- 2026-06-30 07:56 - [安切洛蒂 换人](https://www.share.kurohicncr.top/Article/details/62883.shtml)
-- 2026-06-30 07:50 - [日本 高位逼抢](https://www.blog.kurohicncr.top/Article/details/59369228120.shtml)
-- 2026-06-30 07:55 - [日本球员说被绝杀非常不甘心](https://www.blog.kurohicncr.top/Article/details/5471428362.shtml)
-- 2026-06-30 07:50 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/496572966.shtml)
-- 2026-06-30 08:04 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/11590700514.shtml)
-- 2026-06-30 08:00 - [泰山景区回应修建刀片刺绳隔离网](http://www.share.minike.top/Article/details/6511498.shtml)
-- 2026-06-30 08:03 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/27248657944.shtml)
-- 2026-06-30 08:01 - [起风了](https://www.share.minike.top/Article/details/59304605.shtml)
+- 2026-06-30 08:04 - [点球大战 残酷](https://www.share.minike.top/Article/details/57472.shtml)
+- 2026-06-30 08:17 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/33353547.shtml)
+- 2026-06-30 08:20 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/2569131.shtml)
+- 2026-06-30 08:20 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/28333.shtml)
+- 2026-06-30 08:06 - [警犬“多多”助民警寻回失联老人](http://www.share.kurohicncr.top/Article/details/4901240.shtml)
+- 2026-06-30 08:04 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/3293196.shtml)
+- 2026-06-30 08:12 - [巴西把自己踢晕了](http://www.share.kurohicncr.top/Article/details/411210121.shtml)
+- 2026-06-30 07:55 - [日本淘汰](http://www.share.kurohicncr.top/Article/details/35132620935.shtml)
+- 2026-06-30 08:16 - [藤森庆子赢得秘鲁总统选举](http://www.share.kurohicncr.top/Article/details/1761287.shtml)
+- 2026-06-30 08:17 - [泰山建135公里刀片刺绳隔离网](http://www.blog.kurohicncr.top/Article/details/4824277517.shtml)
+- 2026-06-30 08:14 - [亚洲球队全部出局](https://www.share.minike.top/Article/details/105379562255.shtml)
+- 2026-06-30 08:23 - [吴易昺不敌德约科维奇 止步温网首轮](http://www.blog.kurohicncr.top/Article/details/1010887.shtml)
+- 2026-06-30 08:10 - [日本 高位逼抢](http://www.blog.minike.top/Article/details/9787293.shtml)
+- 2026-06-30 08:20 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.share.kurohicncr.top/Article/details/468217827085.shtml)
+- 2026-06-30 08:19 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/7514226.shtml)
