@@ -1,61 +1,57 @@
-# 美国5月小企业信心小幅下滑
+# 中加基金固收周报|央行态度边际收敛，债市先强后弱
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-美国全国独立企业联合会公布，5 月小企业乐观指数下降 0.6 个点，至 95.3 燃油成本上涨挤压企业利润、招工计划收缩，美国小企业 5 月经营信心出现回落。 美国全国独立企业联合会（NFIB）周二发布数据，5 月小企业乐观指数环比下降 0.6 点至 95.3，持续低于该指数 52 年均值 98.0。《华尔街曰报》调查的经济学家此前预期该指数为 96.2，高于实际公布值。 NF
+一级市场回顾 上周一级市场国债、地方债和政策性金融债发行规模分别为3091亿、2010亿和1140亿，净融资额为-311亿、873亿和990亿。金融债（不含政金债）共计发行规模1789亿，净融资额1284亿。非金信用债共计发行规模1967亿，净融资额752亿。转债新券发行2只，预计融资规模22亿元。 二级市场回顾 央行暂停买断式投放，长端收益率到达关键点位后转震荡。主要影响因素
 
 ## 正文
 
-美国全国独立企业联合会公布，5 月小企业乐观指数下降 0.6 个点，至 95.3 燃油成本上涨挤压企业利润、招工计划收缩，美国小企业 5 月经营信心出现回落。
+一级市场回顾 上周一级市场国债、地方债和政策性金融债发行规模分别为3091亿、2010亿和1140亿，净融资额为-311亿、873亿和990亿。
 
-美国全国独立企业联合会（NFIB）周二发布数据，5 月小企业乐观指数环比下降 0.6 点至 95.3，持续低于该指数 52 年均值 98.0。
+金融债（不含政金债）共计发行规模1789亿，净融资额1284亿。
 
-《华尔街曰报》调查的经济学家此前预期该指数为 96.2，高于实际公布值。
+非金信用债共计发行规模1967亿，净融资额752亿。
 
-NFIB 月度调研覆盖全美小企业经营现状，小微企业吸纳了美国私营部门近半数就业岗位。
+转债新券发行2只，预计融资规模22亿元。
 
-相较于大型企业，小企业对物价骤涨、利率上行以及宏观经济不确定性的耐受度更低。
+二级市场回顾 央行暂停买断式投放，长端收益率到达关键点位后转震荡。
 
-联合会首席经济学家比尔・邓克尔伯格表示：“尽管市场对人工智能产业热情高涨，但小企业整体经营态势分化明显。
+主要影响因素包括：资金面、央行操作、交易盘止盈情绪。
 
-” 5 月，企业实际涨价与计划涨价的调研占比均大幅攀升。
+流动性跟踪 月初资金面自然宽裕，但央行投放转向回笼。
 
-经季节调整后，净比例 36% 的小企业主上调了产品均价，较 4 月提升 6 个百分点，创 2023 年 3 月以来新高；另有净 34% 的经营者计划提价，该数值为 2022 年 7 月以来峰值。
+最终R001和R007分别较前周下行0.2BP和下行0.9BP。
 
 ## 相关推荐
 
-- 2026-06-30 08:30 - [郑钦文温网一轮游](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
-- 2026-06-30 08:26 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-30 08:14 - [马耳他著名拱门坍塌致中国男子身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-30 08:29 - [齐思钧回复张月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-30 08:32 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-30 08:26 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
-- 2026-06-30 08:15 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-30 08:10 - [王楚钦说配合稍微有些陌生感](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-30 08:17 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-30 08:13 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
-- 2026-06-30 08:23 - [日本球员说被绝杀非常不甘心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-30 08:14 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-30 08:18 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
-- 2026-06-30 08:27 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-30 08:09 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-30 08:29 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-30 08:28 - [全球芯片巨头史诗级扩产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-30 08:25 - [曝iPhone18Pro机密文件现身暗网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-30 08:29 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-30 08:32 - [恋与深空回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-30 08:41 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-30 08:41 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-30 08:30 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-30 08:19 - [恋与深空道歉声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-30 08:32 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-30 08:12 - [森保一致歉：世界第一目标没能实现](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:15 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/5664296.shtml)
-- 2026-06-30 08:11 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/310602173.shtml)
-- 2026-06-30 08:31 - [本届世界杯已有5名球员被控强奸](http://www.share.kurohicncr.top/Article/details/510402165.shtml)
-- 2026-06-30 08:18 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/29337.shtml)
-- 2026-06-30 08:21 - [花少8要去世界杯举办国](https://www.share.kurohicncr.top/Article/details/881010506.shtml)
-- 2026-06-30 08:06 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/742260545962.shtml)
-- 2026-06-30 08:22 - [古代人对纳妾的态度是什么样的？](https://www.blog.minike.top/Article/details/0565632.shtml)
-- 2026-06-30 08:06 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.minike.top/Article/details/445219387.shtml)
-- 2026-06-30 08:31 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/00229.shtml)
-- 2026-06-30 08:14 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/048213893971.shtml)
-- 2026-06-30 08:25 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/3154171.shtml)
-- 2026-06-30 08:08 - [德国巴拉圭进入点球大战](http://www.blog.minike.top/Article/details/7345795.shtml)
-- 2026-06-30 08:35 - [郑钦文温网首轮出局](http://www.share.kurohicncr.top/Article/details/96195076027.shtml)
-- 2026-06-30 08:11 - [《共患难》](http://www.share.minike.top/Article/details/05370.shtml)
-- 2026-06-30 08:21 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/641188444.shtml)
+- 2026-06-30 08:22 - [田中碧失误](http://www.share.kurohicncr.top/Article/details/07646.shtml)
+- 2026-06-30 08:23 - [恋与深空制作组回应近期争议](http://www.blog.kurohicncr.top/Article/details/242738.shtml)
+- 2026-06-30 08:39 - [日本淘汰](https://www.share.kurohicncr.top/Article/details/5343711789.shtml)
+- 2026-06-30 08:30 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/1324404600.shtml)
+- 2026-06-30 08:25 - [森保一 保守](https://www.blog.minike.top/Article/details/888816.shtml)
+- 2026-06-30 08:16 - [现在叛逆期的孩子最怕的是什么？](http://www.blog.minike.top/Article/details/5097834126.shtml)
+- 2026-06-30 08:28 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.kurohicncr.top/Article/details/53365451243.shtml)
+- 2026-06-30 08:12 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](http://www.share.minike.top/Article/details/1864231898.shtml)
+- 2026-06-30 08:33 - [Melo向柳智敏张元英道歉](http://www.share.minike.top/Article/details/78596243173.shtml)
+- 2026-06-30 08:22 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/9145457.shtml)
+- 2026-06-30 08:34 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/397849.shtml)
+- 2026-06-30 08:30 - [覃予萱晋级WTT美国大满贯女单32强](https://www.blog.kurohicncr.top/Article/details/244344477241.shtml)
+- 2026-06-30 08:35 - [DeepSeek V4正式版要来了](http://www.blog.minike.top/Article/details/02788750248.shtml)
+- 2026-06-30 08:32 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.minike.top/Article/details/43320319.shtml)
+- 2026-06-30 08:16 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/13930.shtml)

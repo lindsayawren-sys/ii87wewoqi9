@@ -1,60 +1,60 @@
-# 第15届全国海洋知识竞赛总决赛落幕
+# SpaceX上市是一场针对马斯克的全民信任公投
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-中新网福州6月9日电 (记者 闫旭)“雪龙2”号极地科考破冰船，是中国第一艘自主建造的极地科考破冰船吗？我国自主研发的海洋药物有哪些？我国首次南极考察编队中的“两船”是哪两船…… 6月8日晚，由自然资源部、共青团中央、海军政治工作部共同主办的第15届全国海洋知识竞赛总决赛，登陆东南卫视、海峡卫视等电视端和新媒体端，竞赛成绩出炉。 经过激烈角逐，南京大学李承翰、中国地质大学(北京
+多位市场分析人士表示，万众期待的 SpaceX 本周五上市，不仅会成为资本市场标志性事件，更是一场针对埃隆・马斯克领导能力的 “信任公投”。 SpaceX 给出的目标估值高达 1.75 万亿美元，市盈率接近 100 倍。作为对比，芯片巨头英伟达市盈率仅 20 至 25 倍，苹果市盈率约 10 倍。 纳斯达克交易所近期修改了上市规则，放宽门槛，方便 SpaceX 以及其他计划开展
 
 ## 正文
 
-中新网福州6月9日电 (记者 闫旭)“雪龙2”号极地科考破冰船，是中国第一艘自主建造的极地科考破冰船吗？
+多位市场分析人士表示，万众期待的 SpaceX 本周五上市，不仅会成为资本市场标志性事件，更是一场针对埃隆・马斯克领导能力的 “信任公投”。
 
-我国自主研发的海洋药物有哪些？
+SpaceX 给出的目标估值高达 1.75 万亿美元，市盈率接近 100 倍。
 
-我国首次南极考察编队中的“两船”是哪两船…… 6月8日晚，由自然资源部、共青团中央、海军政治工作部共同主办的第15届全国海洋知识竞赛总决赛，登陆东南卫视、海峡卫视等电视端和新媒体端，竞赛成绩出炉。
+作为对比，芯片巨头英伟达市盈率仅 20 至 25 倍，苹果市盈率约 10 倍。
 
-经过激烈角逐，南京大学李承翰、中国地质大学(北京)王奕贺、武警海警学院宋佳其分获“南极奖”“北极奖”“大洋奖”，他们将有机会亲赴极地或大洋参与科学考察， 本届竞赛设公众组与大学生组两个赛道。
+纳斯达克交易所近期修改了上市规则，放宽门槛，方便 SpaceX 以及其他计划开展巨型 IPO 的企业纳入纳斯达克 100 指数；但标普全球明确表态，不会破例让 SpaceX 提前纳入标普 500 指数。
 
-公众组吸引10万余人次通过网络参与答题；大学生组选拔自2025年11月持续至2026年4月，覆盖16个省(区市)的219所高校，通过地区选拔、高校选拔、海军院校选拔三条途径晋级全国赛。
+马斯克将保留多少投票权？
 
-16支代表队汇聚福州，经过激烈的晋级赛，最终中国海洋大学、武警海警学院、南京大学、海军工程大学、中国地质大学(北京)以及江苏海洋大学等六支代表队站在了总决赛的舞台上。
+而投资者还要接受两大特殊条件：超高估值，以及马斯克坚持手握 SpaceX 约 80%-85% 投票权的条款。
 
-本届竞赛命题对标国家海洋事业整体发展规划，超越海洋生物、地理现象等基础知识范畴，构建一个全景式的“大海洋”知识体系，涉及科技前沿、蓝色经济、生态保护、历史文明、法律与安全等领域。
+即便不少持续稳定盈利的上市公司，这种高度集中的创始人控制权，也往往会劝退潜在投资方，尚未稳定盈利的 SpaceX 更是争议重重。
 
-香港赛区首次组队参赛，成为本届大赛亮点之一。
+企业软件公司 Appian 首席执行官马特・卡尔金斯周四做客 CNBC《欧洲财经早间直播间》时表示：“这次 IPO 本质就是对埃隆本人的一次信任投票，考验投资者对这位创业者的信任程度。
 
 ## 相关推荐
 
-- 2026-06-30 08:07 - [恋与深空道歉声明](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-30 08:26 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
-- 2026-06-30 08:33 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-30 08:12 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-30 08:34 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-30 08:32 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-30 08:09 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
-- 2026-06-30 08:17 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
-- 2026-06-30 08:13 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-30 08:10 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
-- 2026-06-30 08:12 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-30 08:30 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
-- 2026-06-30 08:27 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
-- 2026-06-30 08:08 - [德国罚丢3粒点球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-30 08:38 - [杨紫肖战余生请多指教拍立得](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-30 08:30 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-30 08:36 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-30 08:16 - [日本五次世界杯淘汰赛全败](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-30 08:41 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-30 08:13 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-30 08:17 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
+- 2026-06-30 08:28 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-30 08:16 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
+- 2026-06-30 08:38 - [千香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-30 08:19 - [马耳他著名拱门坍塌致一中国男子身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-30 08:33 - [孙颖莎王楚钦晋级8强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-30 08:29 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-30 08:15 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:35 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/546641942109.shtml)
-- 2026-06-30 08:06 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/41510126.shtml)
-- 2026-06-30 08:17 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/01582.shtml)
-- 2026-06-30 08:20 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/28866037519.shtml)
-- 2026-06-30 08:34 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/3826053201.shtml)
-- 2026-06-30 08:27 - [“草莓月亮”浪漫现身](http://www.blog.minike.top/Article/details/543591528712.shtml)
-- 2026-06-30 08:27 - [现在叛逆期的孩子最怕的是什么？](http://www.share.minike.top/Article/details/3072560.shtml)
-- 2026-06-30 08:22 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/233224494238.shtml)
-- 2026-06-30 08:15 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/29228993818.shtml)
-- 2026-06-30 08:07 - [索马里女大使：想和中国一起搞事业](http://www.blog.kurohicncr.top/Article/details/611587936.shtml)
-- 2026-06-30 08:15 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/9873771.shtml)
-- 2026-06-30 08:20 - [点球大战 残酷](https://www.share.minike.top/Article/details/60711.shtml)
-- 2026-06-30 08:24 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.kurohicncr.top/Article/details/20275985.shtml)
-- 2026-06-30 08:25 - [库尼亚赛后伸五指嘲讽日本](https://www.blog.minike.top/Article/details/658767920215.shtml)
-- 2026-06-30 08:21 - [世界杯“美洲德比”7月1日开打](http://www.share.minike.top/Article/details/699563702577.shtml)
+- 2026-06-30 08:31 - [女心理师](https://www.blog.kurohicncr.top/Article/details/395873247.shtml)
+- 2026-06-30 08:20 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/445358.shtml)
+- 2026-06-30 08:31 - [人类...完蛋了...](https://www.share.kurohicncr.top/Article/details/14260505.shtml)
+- 2026-06-30 08:37 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/7740462845.shtml)
+- 2026-06-30 08:36 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/14042953.shtml)
+- 2026-06-30 08:18 - [DeepSeek V4正式版要来了](http://www.share.kurohicncr.top/Article/details/86331932532.shtml)
+- 2026-06-30 08:25 - [德国连续三届世界杯无缘16强](http://www.share.minike.top/Article/details/205883.shtml)
+- 2026-06-30 08:20 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/54303099.shtml)
+- 2026-06-30 08:18 - [德国巴拉圭 折磨](http://www.blog.minike.top/Article/details/64919.shtml)
+- 2026-06-30 08:16 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/2481870.shtml)
+- 2026-06-30 08:12 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/044839880.shtml)
+- 2026-06-30 08:23 - [王楚钦孙颖莎晋级混双八强](https://www.share.minike.top/Article/details/19082242325.shtml)
+- 2026-06-30 08:35 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.share.minike.top/Article/details/75127469378.shtml)
+- 2026-06-30 08:36 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/128428155.shtml)
+- 2026-06-30 08:32 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/152413.shtml)

@@ -1,46 +1,59 @@
-# 万科A：公司截至2026年3月31日的股东数量为489869户
+# 浦发银行的汽车金融业务，出了点意外
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-证券日报网讯6月8日，万科A在互动平台回答投资者提问时表示，公司截至2026年3月31日的股东数量为489869户。
+文/瑞财经 许淑敏 掌舵浦发银行长春分行一年多，‌吴双勇一直都很努力。 他是从哈尔滨银行大连分行党委书记转任而来的管理人才，熟悉东北地区金融行业的发展节奏，也有不少人脉、资源。 市场对‌吴双勇寄予厚望。 ‌吴双勇也没松懈，马不停蹄地到处谈生意。 今年3月，长春市科技局与浦发银行长春分行签署战略合作协议，吴双勇作为代表进行签约仪式；去年5月，浦发银行与长春科技学院开展合作洽谈，也
 
 ## 正文
 
-证券日报网讯6月8日，万科A在互动平台回答投资者提问时表示，公司截至2026年3月31日的股东数量为489869户。
+文/瑞财经 许淑敏 掌舵浦发银行长春分行一年多，‌吴双勇一直都很努力。
+
+他是从哈尔滨银行大连分行党委书记转任而来的管理人才，熟悉东北地区金融行业的发展节奏，也有不少人脉、资源。
+
+市场对‌吴双勇寄予厚望。
+
+‌吴双勇也没松懈，马不停蹄地到处谈生意。
+
+今年3月，长春市科技局与浦发银行长春分行签署战略合作协议，吴双勇作为代表进行签约仪式；去年5月，浦发银行与长春科技学院开展合作洽谈，也有吴双勇的功劳。
+
+‌吴双勇不负所托，浦发银行长春分行规模也扩大了。
+
+截至2025年底，浦发银行长春分行员工人数520人，较上年498人增加了22人，机构数19个，资产规模533.44亿元，同比增长了24.8%。
+
+但这一规模，仍有发展空间。
 
 ## 相关推荐
 
-- 2026-06-30 08:10 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-30 08:32 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-30 08:21 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
-- 2026-06-30 08:12 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
-- 2026-06-30 08:25 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
-- 2026-06-30 08:08 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-30 08:11 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-30 08:13 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
-- 2026-06-30 08:34 - [巴拉圭进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
-- 2026-06-30 08:19 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-30 08:10 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-30 08:34 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
-- 2026-06-30 08:13 - [韩国道歉完日本道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-30 08:27 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-30 08:16 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-30 08:29 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-30 08:37 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-30 08:21 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
+- 2026-06-30 08:38 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
+- 2026-06-30 08:26 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-30 08:37 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-30 08:37 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-30 08:18 - [张雪的一句“是我们”引发岛内热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-30 08:28 - [世界杯欧洲队7战南美仅1胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
+- 2026-06-30 08:27 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
+- 2026-06-30 08:31 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
+- 2026-06-30 08:16 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:13 - [日本球迷被强行披上巴西国旗](http://www.share.kurohicncr.top/Article/details/76186343.shtml)
-- 2026-06-30 08:13 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.minike.top/Article/details/8043690.shtml)
-- 2026-06-30 08:32 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/697636383450.shtml)
-- 2026-06-30 08:20 - [日本五次世界杯淘汰赛全败](http://www.share.kurohicncr.top/Article/details/82297.shtml)
-- 2026-06-30 08:13 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/328521825016.shtml)
-- 2026-06-30 08:06 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/9519518.shtml)
-- 2026-06-30 08:10 - [武磊：日本队有能力跟任何强队抗衡](https://www.blog.minike.top/Article/details/71146798918.shtml)
-- 2026-06-30 08:13 - [亚洲球队全部出局](https://www.share.minike.top/Article/details/60245945.shtml)
-- 2026-06-30 08:17 - [美股](http://www.blog.minike.top/Article/details/2273577.shtml)
-- 2026-06-30 08:17 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](https://www.blog.kurohicncr.top/Article/details/807411458070.shtml)
-- 2026-06-30 08:31 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/230737621.shtml)
-- 2026-06-30 08:12 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/32341999254.shtml)
-- 2026-06-30 08:12 - [一见倾心](https://www.share.minike.top/Article/details/30666813.shtml)
-- 2026-06-30 08:19 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/2311393994.shtml)
-- 2026-06-30 08:29 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/345366231.shtml)
+- 2026-06-30 08:20 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/648230.shtml)
+- 2026-06-30 08:14 - [这种关系可能正在悄悄“催老”你](http://www.share.kurohicncr.top/Article/details/268405.shtml)
+- 2026-06-30 08:33 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/47377639282.shtml)
+- 2026-06-30 08:36 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/134951.shtml)
+- 2026-06-30 08:18 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://www.share.kurohicncr.top/Article/details/413029389.shtml)
+- 2026-06-30 08:41 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.minike.top/Article/details/50582.shtml)
+- 2026-06-30 08:35 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/69181588.shtml)
+- 2026-06-30 08:29 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/526046463.shtml)
+- 2026-06-30 08:25 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/45464.shtml)
+- 2026-06-30 08:39 - [德国 传控](http://www.blog.kurohicncr.top/Article/details/16698337.shtml)
+- 2026-06-30 08:19 - [我觉得你是在无中生友](http://www.blog.kurohicncr.top/Article/details/10922422.shtml)
+- 2026-06-30 08:36 - [孙兴慜道歉](http://www.blog.kurohicncr.top/Article/details/91509014.shtml)
+- 2026-06-30 08:30 - [小勒布伦WTT美国大满贯开门红](http://www.blog.kurohicncr.top/Article/details/739048419.shtml)
+- 2026-06-30 08:36 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/56382.shtml)
+- 2026-06-30 08:22 - [巴拉圭率先破门](http://www.blog.kurohicncr.top/Article/details/98929168298.shtml)

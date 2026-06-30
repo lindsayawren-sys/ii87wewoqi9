@@ -1,59 +1,60 @@
-# 利通电子：公司董事、高管不存在被留置情况 算力、制造业经营一切正常
+# 上海：重点推进跨境金融提质增效与离岸金融创新突破
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-人民财讯6月8日电，有投资者在互动平台向利通电子（603629）提问，近期公司股票连续跌停，网上多篇小作文肆意传播，是否有重大利空？利通电子回复称，针对公司近期舆情，公司澄清如下：1．公司董事、高级管理人员等均正常履职，不存在被留置的情况。2．公司董事、董事会秘书丁阿静女士，其任职资格及股权激励的股票授予，程序合法合规。3．公司算力、制造业经营一切正常，在手订单都在按计划有序交
+中新网上海6月12日电 (高志苗)上海市委金融办常务副主任周小全12日在上海市政府新闻发布会上表示，将持续强化上海金融开放枢纽门户功能，重点推进跨境金融提质增效与离岸金融创新突破，更好服务企业“走出去”和共建“一带一路”。具体来讲，一是提升金融国际化水平，进一步推动金融市场互联互通，不断深化“沪港通”“债券通”“互换通”等重要机制安排。提高“上海指数”“上海价格”影响力，推出更
 
 ## 正文
 
-人民财讯6月8日电，有投资者在互动平台向利通电子（603629）提问，近期公司股票连续跌停，网上多篇小作文肆意传播，是否有重大利空？
+中新网上海6月12日电 (高志苗)上海市委金融办常务副主任周小全12日在上海市政府新闻发布会上表示，将持续强化上海金融开放枢纽门户功能，重点推进跨境金融提质增效与离岸金融创新突破，更好服务企业“走出去”和共建“一带一路”。
 
-利通电子回复称，针对公司近期舆情，公司澄清如下：1．公司董事、高级管理人员等均正常履职，不存在被留置的情况。
+具体来讲，一是提升金融国际化水平，进一步推动金融市场互联互通，不断深化“沪港通”“债券通”“互换通”等重要机制安排。
 
-2．公司董事、董事会秘书丁阿静女士，其任职资格及股权激励的股票授予，程序合法合规。
+提高“上海指数”“上海价格”影响力，推出更多面向国际的金融产品和服务。
 
-3．公司算力、制造业经营一切正常，在手订单都在按计划有序交付中。
+二是夯实跨境金融服务底座，持续推进外汇展业改革，稳步扩容本外币一体化资金池试点，延伸汇率避险普惠覆盖面，提升再保险、航运保险承保能力和服务水平。
 
-4．有关公司情况请以公司公开发布的公告为准。
+三是放大离岸金融试点效应，推动中国(上海)自由贸易试验区临港新片区离岸贸易金融服务综合改革试点、自贸离岸债等服务提质升级，小切口推出其他离岸金融业务，持续构建与国际金融中心相匹配的离岸金融体系。
 
-5．近期存在个别主体蓄意捏造虚假事实，恶意造谣诋毁企业信誉，干扰公司正常运营。
+周小全表示，更好服务企业“走出去”是金融高水平开放的重要目标，是提升金融服务实体经济质效的关键举措。
 
-公司不排除启动法律维权程序，依法追究造谣者的相关责任。
+近年来，上海紧扣企业“走出去”的金融服务需求，深化金融供给侧结构性改革，金融服务质效进一步提高，企业获得感与满意度明显提升。
 
-责任编辑：刘万里 SF014
+具体成效体现在法规政策更加完善，产品服务更加丰富，服务质效明显提升等方面。
 
 ## 相关推荐
 
-- 2026-06-30 08:16 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-30 08:22 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-30 08:07 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-30 08:23 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-30 08:15 - [德国队世界杯点球大战首败](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
-- 2026-06-30 08:20 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-30 08:06 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-30 08:16 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
-- 2026-06-30 08:26 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
-- 2026-06-30 08:21 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-30 08:15 - [马耳他著名拱门坍塌致中国男子身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-30 08:34 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
-- 2026-06-30 08:31 - [德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-30 08:41 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-30 08:14 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-30 08:31 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-30 08:31 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-30 08:15 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-30 08:30 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-30 08:15 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-30 08:15 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-30 08:20 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-30 08:14 - [德国爆冷点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-30 08:34 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-30 08:33 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-30 08:23 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-30 08:18 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:15 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/70063555.shtml)
-- 2026-06-30 08:33 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/93434.shtml)
-- 2026-06-30 08:17 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/264852722.shtml)
-- 2026-06-30 08:20 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/60195147618.shtml)
-- 2026-06-30 08:30 - [巴西醒醒 这是淘汰赛](http://www.blog.minike.top/Article/details/35036.shtml)
-- 2026-06-30 08:14 - [巴西绝杀日本：漫画般结局换了主角](http://www.share.minike.top/Article/details/9618333.shtml)
-- 2026-06-30 08:17 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/9571664.shtml)
-- 2026-06-30 08:32 - [内马尔替补](http://www.blog.kurohicncr.top/Article/details/02443080471.shtml)
-- 2026-06-30 08:12 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/550482228638.shtml)
-- 2026-06-30 08:19 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.minike.top/Article/details/664897510.shtml)
-- 2026-06-30 08:34 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/47494.shtml)
-- 2026-06-30 08:13 - [有酒店推行24小时退房制](https://www.blog.minike.top/Article/details/814513879430.shtml)
-- 2026-06-30 08:34 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/2720777.shtml)
-- 2026-06-30 08:08 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/91877527235.shtml)
-- 2026-06-30 08:14 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.kurohicncr.top/Article/details/424548268075.shtml)
+- 2026-06-30 08:19 - [德国队连续三届世界杯无缘16强](https://www.share.minike.top/Article/details/9332898197.shtml)
+- 2026-06-30 08:22 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/70400.shtml)
+- 2026-06-30 08:16 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.minike.top/Article/details/74478635360.shtml)
+- 2026-06-30 08:39 - [世界杯“美洲德比”7月1日开打](http://www.blog.minike.top/Article/details/6201282.shtml)
+- 2026-06-30 08:37 - [金刚川](https://www.share.kurohicncr.top/Article/details/02017943.shtml)
+- 2026-06-30 08:36 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.minike.top/Article/details/341991.shtml)
+- 2026-06-30 08:21 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/99009582.shtml)
+- 2026-06-30 08:19 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.kurohicncr.top/Article/details/708235865.shtml)
+- 2026-06-30 08:18 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/9364283478.shtml)
+- 2026-06-30 08:25 - [湖南祁东原文化馆被指贱卖](http://www.share.kurohicncr.top/Article/details/676163859.shtml)
+- 2026-06-30 08:33 - [IGN评测电影版后室](http://www.share.kurohicncr.top/Article/details/388598528810.shtml)
+- 2026-06-30 08:33 - [世界杯巴拉圭点球淘汰德国](http://www.share.kurohicncr.top/Article/details/770343532376.shtml)
+- 2026-06-30 08:22 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/497928204.shtml)
+- 2026-06-30 08:25 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/59826.shtml)
+- 2026-06-30 08:39 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/061070944.shtml)

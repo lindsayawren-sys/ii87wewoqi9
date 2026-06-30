@@ -1,58 +1,60 @@
-# 珠肇高铁双金河特大桥跨广昆高速连续梁合龙
+# RLJ Lodging Trust定于8月6日发布二季度财报并举行电话会
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-中新网珠海6月9日电 (记者 王坚)由厦深铁路广东有限公司负责建设管理、中铁五局承建的珠肇高铁双金河特大桥跨广昆高速连续梁8日顺利合龙，标志着珠肇高铁高肇段关键节点攻坚取得重大突破，为项目按期建成通车奠定了坚实基础。 据介绍，珠肇高铁作为《粤港澳大湾区城际铁路建设规划》重点工程，线路全长184.5公里，设计时速350公里，串联珠海、江门、佛山、肇庆四座粤港澳大湾区重要城市，北端
+RLJ Lodging Trust周四宣布，将于8月6日美股收盘后发布2026年第二季度财务业绩，并于次日（8月7日）中午12点（美国东部时间）举行财报电话会议。业绩发布和电话会议的具体日期与此前市场预期基本一致。 这家专注于城市精选服务酒店的不动产投资信托公司此前公布的一季度业绩表现强劲。财报显示，一季度可比RevPAR同比增长4.8%至148.55美元，酒店EBITDA达8
 
 ## 正文
 
-中新网珠海6月9日电 (记者 王坚)由厦深铁路广东有限公司负责建设管理、中铁五局承建的珠肇高铁双金河特大桥跨广昆高速连续梁8日顺利合龙，标志着珠肇高铁高肇段关键节点攻坚取得重大突破，为项目按期建成通车奠定了坚实基础。
+RLJ Lodging Trust周四宣布，将于8月6日美股收盘后发布2026年第二季度财务业绩，并于次日（8月7日）中午12点（美国东部时间）举行财报电话会议。
 
-据介绍，珠肇高铁作为《粤港澳大湾区城际铁路建设规划》重点工程，线路全长184.5公里，设计时速350公里，串联珠海、江门、佛山、肇庆四座粤港澳大湾区重要城市，北端可无缝衔接贵广、南广铁路，是珠三角枢纽机场(广州新机场)集疏运体系的骨干通道。
+业绩发布和电话会议的具体日期与此前市场预期基本一致。
 
-据了解，该项目建成通车后，将实现轨道交通与航空运输的便捷换乘，推动珠三角城市群“1小时通达”成为现实，为广东省“12312”出行交通圈建设提供重要支撑，对完善粤港澳大湾区综合立体交通网络、促进区域协同高质量发展具有重要意义。
+这家专注于城市精选服务酒店的不动产投资信托公司此前公布的一季度业绩表现强劲。
 
-双金河特大桥全长6.24公里，共设计5联连续梁结构。
+财报显示，一季度可比RevPAR同比增长4.8%至148.55美元，酒店EBITDA达8990万美元，同比增长7.2%。
 
-本次合龙的48+80+48米连续梁为中铁五局施工标段内最后一联连续梁，标志着该标段架梁通道全部贯通。
+公司总裁兼首席执行官在一季度电话会上表示，北加州、南佛罗里达等核心市场的休闲和商务旅行需求强劲，叠加近期完成的酒店翻新和改造项目，推动了业绩超出预期。
 
-该连续梁上跨车流量密集的G80广昆高速公路，桥梁主线与公路夹角为82度，梁底距公路路面最低高度仅8.63米，施工期间广昆高速公路正同步开展扩建施工，导致施工环境交叉干扰多、上下同步作业安全风险高、施工组织协调难度大，为珠肇高铁全线重难点控制性工程之一。
+对于2026年全年，公司已上调业绩指引，预计可比RevPAR增长1.5%至3.5%，酒店EBITDA在3.56亿至3.8亿美元之间，调整后稀释每股营运资金在1.29至1.45美元之间。
 
-值得一提的是，自进场施工以来，该项目创新采用智能悬臂造桥机，从设备选型源头破解涉高速施工风险高的难题。
+公司一季度每股收益为-0.05美元，好于市场预期的-0.08美元。
 
-(完)
+公司近期股价表现强劲，本周一度创下52周新高10.87美元，年初至今涨幅超过45%。
 
 ## 相关推荐
 
-- 2026-06-30 08:27 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-30 08:20 - [日耳曼拖拉机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
-- 2026-06-30 08:20 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
-- 2026-06-30 08:06 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
-- 2026-06-30 08:31 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-30 08:09 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-30 08:19 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
-- 2026-06-30 08:09 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
-- 2026-06-30 08:27 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-30 08:19 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
-- 2026-06-30 08:32 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
-- 2026-06-30 08:14 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-30 08:33 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-30 08:35 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-30 08:31 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-30 08:12 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
+- 2026-06-30 08:15 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-30 08:29 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-30 08:12 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-30 08:18 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-30 08:21 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-30 08:23 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-30 08:41 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
+- 2026-06-30 08:22 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-30 08:30 - [全新问界M9现身美国街头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-30 08:17 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:32 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/98259167289.shtml)
-- 2026-06-30 08:18 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/399209.shtml)
-- 2026-06-30 08:26 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/9498602257.shtml)
-- 2026-06-30 08:29 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/5493292442.shtml)
-- 2026-06-30 08:06 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/701036.shtml)
-- 2026-06-30 08:24 - [韩乔生吐槽世界杯扩军](http://www.share.minike.top/Article/details/35959177.shtml)
-- 2026-06-30 08:21 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/631855.shtml)
-- 2026-06-30 08:11 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/6807636.shtml)
-- 2026-06-30 08:26 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/22154.shtml)
-- 2026-06-30 08:25 - [青春环游记第三季](https://www.blog.minike.top/Article/details/384906021.shtml)
-- 2026-06-30 08:22 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/576048162.shtml)
-- 2026-06-30 08:28 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/309220500.shtml)
-- 2026-06-30 08:26 - [“草莓月亮”浪漫现身](https://www.share.kurohicncr.top/Article/details/9036147.shtml)
-- 2026-06-30 08:17 - [沙丘](https://www.share.kurohicncr.top/Article/details/109785365.shtml)
-- 2026-06-30 08:19 - [绘画区你赢了](http://www.blog.minike.top/Article/details/68962792338.shtml)
+- 2026-06-30 08:21 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.kurohicncr.top/Article/details/124393821.shtml)
+- 2026-06-30 08:31 - [日本遭读秒绝杀 森保一：我水平不够](http://www.share.kurohicncr.top/Article/details/69566185269.shtml)
+- 2026-06-30 08:16 - [全球芯片巨头史诗级扩产](http://www.share.minike.top/Article/details/15186.shtml)
+- 2026-06-30 08:32 - [郑钦文 四年一轮游](http://www.blog.minike.top/Article/details/790909.shtml)
+- 2026-06-30 08:19 - [世界杯巴拉圭点球淘汰德国](https://www.blog.kurohicncr.top/Article/details/560049.shtml)
+- 2026-06-30 08:29 - [哈弗茨头球破门](http://www.blog.minike.top/Article/details/569115.shtml)
+- 2026-06-30 08:36 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/141462265.shtml)
+- 2026-06-30 08:40 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/4993460.shtml)
+- 2026-06-30 08:19 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/3078083362.shtml)
+- 2026-06-30 08:38 - [【大鸣王潮1566】真拿你没办法](https://www.share.minike.top/Article/details/71836785.shtml)
+- 2026-06-30 08:28 - [开电动汽车真的很省钱吗？](https://www.share.kurohicncr.top/Article/details/9258251326.shtml)
+- 2026-06-30 08:12 - [王欣瑜2-1击败科恰雷托](https://www.blog.minike.top/Article/details/64462588.shtml)
+- 2026-06-30 08:34 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/355023981900.shtml)
+- 2026-06-30 08:41 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/1637956.shtml)
+- 2026-06-30 08:29 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/35302468113.shtml)

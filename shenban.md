@@ -1,58 +1,60 @@
-# BMO认为美元是全球高利率新格局下的最佳押注
+# 未入职先“入坑”，一大学生因求职背上巨额债务
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-BMO Capital Markets认为，对外汇交易员来说，押注美元继续走强，是针对高利率和高通胀新格局建仓的最清晰方式。 BMO首席外汇策略师Mark McCormick周一在报告中写道，汇市交易员“过于急切地”消化美伊战争得到解决的预期。他表示，冲突结束后油价或许会回落，但通胀影响将持续，推动全球利率上升、经济增长放缓，而这有利于美元。 “即便油价边际回落 —— 这本身就
+原标题：【说案·守护初入职场的“你”①】未入职先“入坑”，一大学生因求职背上巨额债务 编者按 就业是最大的民生，青年是国家的未来。当前，正值高校毕业生求职关键期，不少年轻人怀揣憧憬步入职场，却也有人在找工作时遭遇“招转贷”骗局、求职变“背锅”、实习期权益受侵害等困境。 今日起，本版推出系列稿件《说案·守护初入职场的“你”》，聚焦身边真实案例，以案说法、以法析理，逐一拆解常见陷阱
 
 ## 正文
 
-BMO Capital Markets认为，对外汇交易员来说，押注美元继续走强，是针对高利率和高通胀新格局建仓的最清晰方式。
+原标题：【说案·守护初入职场的“你”①】未入职先“入坑”，一大学生因求职背上巨额债务 编者按 就业是最大的民生，青年是国家的未来。
 
-BMO首席外汇策略师Mark McCormick周一在报告中写道，汇市交易员“过于急切地”消化美伊战争得到解决的预期。
+当前，正值高校毕业生求职关键期，不少年轻人怀揣憧憬步入职场，却也有人在找工作时遭遇“招转贷”骗局、求职变“背锅”、实习期权益受侵害等困境。
 
-他表示，冲突结束后油价或许会回落，但通胀影响将持续，推动全球利率上升、经济增长放缓，而这有利于美元。
+今日起，本版推出系列稿件《说案·守护初入职场的“你”》，聚焦身边真实案例，以案说法、以法析理，逐一拆解常见陷阱、厘清权责，为正在求职和初入职场的年轻人提供一份实用的避坑指南与维权手册。
 
-“即便油价边际回落 —— 这本身就是一个很大的假设 —— 通胀也不太可能同样快速下降；第二轮效应正在积聚，相关性正在转变，越来越转向支持更高利率和更强美元，而不是受标题新闻驱动的乐观情绪，”McCormick表示。
+“担任法定代表人就能入职”“不用实际干活，躺着拿报酬”……临近毕业的大学生小王，求职时遇上这样的“好事”，收下千元好处费后，便受让一公司全部股权、成为法定代表人。
 
-BMO总体上维持美元多头立场，尤其是兑欧元、英镑和日元。
+可他没想到，这看似天上掉馅饼的机遇，竟是一场精心设计的债务转嫁骗局，自己莫名背上了300余万元的债务。
 
-McCormick的团队还预计，美元兑澳元和加元将走强。
+这场骗局究竟如何上演？
 
-自美国和以色列2月底开始轰炸伊朗以来，一项美元指标上涨约2%。
+小王签下的股权转让协议能否撤销？
 
-尽管战争扰乱全球能源流动，并冲击石油进口国，但美国经受住了能源价格上涨的影响，并公布了强劲经济数据。
+近日，《工人日报》记者从北京市通州区人民法院获悉了这起案件。
 
 ## 相关推荐
 
-- 2026-06-30 08:06 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-30 08:28 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
-- 2026-06-30 08:25 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-30 08:29 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
-- 2026-06-30 08:18 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-30 08:18 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-30 08:09 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-30 08:29 - [欧洲装一台空调有多难](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-30 08:12 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-30 08:19 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-30 08:09 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-30 08:27 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
+- 2026-06-30 08:32 - [刘宇宁高情商化解谁站C位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-30 08:32 - [世界杯巴拉圭点球淘汰德国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-30 08:18 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
+- 2026-06-30 08:40 - [现在叛逆期的孩子最怕的是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-30 08:36 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
+- 2026-06-30 08:19 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-30 08:36 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-30 08:22 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
+- 2026-06-30 08:21 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-30 08:22 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-30 08:26 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-30 08:36 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-30 08:34 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-30 08:13 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:27 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/53732692.shtml)
-- 2026-06-30 08:08 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/84512355.shtml)
-- 2026-06-30 08:34 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/2424116174.shtml)
-- 2026-06-30 08:19 - [日本16强魔咒](https://www.share.minike.top/Article/details/889216.shtml)
-- 2026-06-30 08:15 - [自然光｜papi酱&窦文涛：驴与跑步机](https://www.blog.kurohicncr.top/Article/details/4235921660.shtml)
-- 2026-06-30 08:12 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/09871.shtml)
-- 2026-06-30 08:09 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.kurohicncr.top/Article/details/06973397.shtml)
-- 2026-06-30 08:34 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](https://www.share.minike.top/Article/details/751709025172.shtml)
-- 2026-06-30 08:32 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/87437226.shtml)
-- 2026-06-30 08:23 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/78933475.shtml)
-- 2026-06-30 08:16 - [日本五次世界杯淘汰赛全败](https://www.blog.minike.top/Article/details/197861.shtml)
-- 2026-06-30 08:13 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/9243464.shtml)
-- 2026-06-30 08:10 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/34091143863.shtml)
-- 2026-06-30 08:25 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.kurohicncr.top/Article/details/717505765.shtml)
-- 2026-06-30 08:28 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.kurohicncr.top/Article/details/42675713727.shtml)
+- 2026-06-30 08:24 - [健全中小学教师工资长效联动机制](http://www.blog.kurohicncr.top/Article/details/34825547.shtml)
+- 2026-06-30 08:21 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.kurohicncr.top/Article/details/52039200363.shtml)
+- 2026-06-30 08:20 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/839652927.shtml)
+- 2026-06-30 08:18 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/69117786699.shtml)
+- 2026-06-30 08:20 - [日本进球](https://www.share.minike.top/Article/details/126823232.shtml)
+- 2026-06-30 08:37 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/18942285050.shtml)
+- 2026-06-30 08:30 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/938952.shtml)
+- 2026-06-30 08:23 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/91249751021.shtml)
+- 2026-06-30 08:17 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/7326889.shtml)
+- 2026-06-30 08:24 - [网红峡谷5人溺亡 有人提醒会下雨](http://www.share.kurohicncr.top/Article/details/96752901.shtml)
+- 2026-06-30 08:41 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/3049641.shtml)
+- 2026-06-30 08:23 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/61915617021.shtml)
+- 2026-06-30 08:40 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/16654921203.shtml)
+- 2026-06-30 08:27 - [杨紫肖战余生请多指教拍立得](https://www.share.minike.top/Article/details/73199217062.shtml)
+- 2026-06-30 08:13 - [韩国道歉完日本道歉](http://www.share.minike.top/Article/details/3676722.shtml)

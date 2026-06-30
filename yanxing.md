@@ -1,61 +1,57 @@
-# 从太湖到天山 一位援疆医生的“无憾”青春
+# 2026年中国公路自行车联赛沈阳康平站启幕
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-3年来，江苏共组织252名优秀医疗人才赴克州开展多种形式的医疗援疆。 不惑之年，江苏无锡市中医医院骨伤科(创伤正骨科)副主任医师殷铭告别江南，跨越万里山河，奔赴新疆克孜勒苏柯尔克孜自治州阿合奇县开启援疆征程。 初到阿合奇县，广袤的土地、澄澈的蓝天、连绵的雪山、壮美的风光让殷铭感到震撼，但很快他就沉下心来投入临床工作。 语言不通成为他开展工作的第一道难题，殷铭开始主动学习日常民族
+中新网沈阳6月12日电(杨茜茜)2026年中国公路自行车联赛(沈阳·康平站)12日迎来开幕日。本站赛事自10日开赛，已决出男、女个人计时赛等冠军，当天作为赛程重头戏的城市绕圈淘汰赛鸣枪，来自全国的近百名车手在康平城区上演速度对决。 城市绕圈淘汰赛实行集体出发、末位淘汰赛制，节奏快、对抗强。发令后，车手们须在多圈绕行中保持高速，并不断抢占有利位置，加速、超越、卡位轮番上演，每一圈
 
 ## 正文
 
-3年来，江苏共组织252名优秀医疗人才赴克州开展多种形式的医疗援疆。
+中新网沈阳6月12日电(杨茜茜)2026年中国公路自行车联赛(沈阳·康平站)12日迎来开幕日。
 
-不惑之年，江苏无锡市中医医院骨伤科(创伤正骨科)副主任医师殷铭告别江南，跨越万里山河，奔赴新疆克孜勒苏柯尔克孜自治州阿合奇县开启援疆征程。
+本站赛事自10日开赛，已决出男、女个人计时赛等冠军，当天作为赛程重头戏的城市绕圈淘汰赛鸣枪，来自全国的近百名车手在康平城区上演速度对决。
 
-初到阿合奇县，广袤的土地、澄澈的蓝天、连绵的雪山、壮美的风光让殷铭感到震撼，但很快他就沉下心来投入临床工作。
+城市绕圈淘汰赛实行集体出发、末位淘汰赛制，节奏快、对抗强。
 
-语言不通成为他开展工作的第一道难题，殷铭开始主动学习日常民族用语，努力克服沟通障碍，倾听群众诉求；当地各族同胞也格外淳朴热忱，每逢殷铭面露困惑，便主动放慢语速、辅以肢体语言，尽力配合沟通。
+发令后，车手们须在多圈绕行中保持高速，并不断抢占有利位置，加速、超越、卡位轮番上演，每一圈都可能改写排名。
 
-阿合奇县地广人稀、医疗资源匮乏、专业人才短缺。
+赛道沿线大批市民驻足观赛，助威声此起彼伏，不少小朋友挥舞彩旗为车手呐喊，将现场氛围推向高潮。
 
-来到这里后，殷铭与各族医护人员同心共进、并肩作战。
+本次比赛最大特色是赛道串联城乡。
 
-一方面，他主动分享骨科诊疗经验、手术技巧、临床思路，传授专业知识；另一方面，他虚心向当地医护学习，深耕本土诊疗特点，了解群众生活习惯与心理诉求，学习贴合当地群众的沟通方式，因地制宜地优化诊疗服务，让医疗救治更为人性化。
+路线穿行康平城区及卧龙湖等生态区域，选手在竞速之余尽览田园风光与城市新貌。
 
-援疆期间，殷铭坚持坐诊骨科专家门诊、主持病房诊疗，全年接诊患者约500人次，主刀骨折创伤手术，完成院内会诊及疑难病例讨论数十人次。
+据了解，中国公路自行车联赛是国内顶级专业赛事，康平凭借优质赛道已连续两年承办分站赛。
 
 ## 相关推荐
 
-- 2026-06-30 08:29 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-30 08:15 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
-- 2026-06-30 08:17 - [德国巴拉圭加时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
-- 2026-06-30 08:15 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
-- 2026-06-30 08:16 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-30 08:30 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-30 08:24 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-30 08:13 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-30 08:29 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-30 08:08 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
-- 2026-06-30 08:07 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-30 08:16 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-30 08:19 - [王欣瑜2-1击败科恰雷托](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-30 08:10 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-30 08:09 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-30 08:31 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-30 08:17 - [齐思钧回复张月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-30 08:28 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-30 08:27 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-30 08:15 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-30 08:34 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-30 08:16 - [诺伊尔尽力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-30 08:40 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-30 08:21 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-30 08:28 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-30 08:20 - [男子在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:32 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/94501636.shtml)
-- 2026-06-30 08:11 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/73846527582.shtml)
-- 2026-06-30 08:32 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/95011.shtml)
-- 2026-06-30 08:18 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/109986.shtml)
-- 2026-06-30 08:19 - [峡谷事故团队组队时有人提醒会下雨](https://www.blog.kurohicncr.top/Article/details/91398.shtml)
-- 2026-06-30 08:08 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](http://www.share.kurohicncr.top/Article/details/191521709277.shtml)
-- 2026-06-30 08:26 - [免费试吃发差评被店家挂店门避雷](https://www.blog.minike.top/Article/details/11385186.shtml)
-- 2026-06-30 08:31 - [檀健次王楚然吻戏看热了](http://www.share.kurohicncr.top/Article/details/9350656100.shtml)
-- 2026-06-30 08:28 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/348749.shtml)
-- 2026-06-30 08:23 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](http://www.share.minike.top/Article/details/666900566.shtml)
-- 2026-06-30 08:22 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/072951594.shtml)
-- 2026-06-30 08:23 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/083476.shtml)
-- 2026-06-30 08:13 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/7923427713.shtml)
-- 2026-06-30 08:16 - [德国淘汰](http://www.share.minike.top/Article/details/5082943.shtml)
-- 2026-06-30 08:26 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/533926.shtml)
+- 2026-06-30 08:40 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.minike.top/Article/details/09577928.shtml)
+- 2026-06-30 08:40 - [巴西在进攻三区完成210脚传球](https://www.share.minike.top/Article/details/025827.shtml)
+- 2026-06-30 08:40 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.share.minike.top/Article/details/62115.shtml)
+- 2026-06-30 08:38 - [德国淘汰](http://www.share.kurohicncr.top/Article/details/9557481869.shtml)
+- 2026-06-30 08:18 - [【涤墨作战7人870】望：我从地狱杀回来了！](http://www.blog.kurohicncr.top/Article/details/455331765.shtml)
+- 2026-06-30 08:41 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/944879787087.shtml)
+- 2026-06-30 08:36 - [诺伊尔尽力了](http://www.blog.minike.top/Article/details/22101261.shtml)
+- 2026-06-30 08:29 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/591226561800.shtml)
+- 2026-06-30 08:14 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/62853566.shtml)
+- 2026-06-30 08:13 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/063802312.shtml)
+- 2026-06-30 08:12 - [德国连续三届世界杯无缘16强](http://www.blog.minike.top/Article/details/9105021103.shtml)
+- 2026-06-30 08:20 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.minike.top/Article/details/260215798.shtml)
+- 2026-06-30 08:38 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/41224064055.shtml)
+- 2026-06-30 08:17 - [流金岁月](http://www.share.minike.top/Article/details/79348278607.shtml)
+- 2026-06-30 08:18 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/411831384182.shtml)

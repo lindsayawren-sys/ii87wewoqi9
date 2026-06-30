@@ -1,59 +1,58 @@
-# （乡村行·看振兴）浙江嘉兴：青年入乡描绘产业新图景
+# 兴业证券：阳光保险NBV同比高增 增配TPL资产或带动业绩弹性明显提升
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-中新网嘉兴6月9日电(傅飞扬 陈曦)咖啡店体验中心、乡村牛排馆、“馒头酵主”创意店……在浙江嘉兴，“青年入乡、业态兴村”正加速布局，为“强城”“兴村”“融合”三篇文章落地生根注入源源不断的青春动能。 走进嘉兴嘉善县大云镇曹家村，一幢红砖屋顶、水泥外墙的平房格外显眼，这是“95后”主理人张平的乡村牛排馆，粗粝的肌理与精致的牛排形成奇妙反差。 推门而入，100多平方米的空间被打理得
+兴业证券发布研报称，在银保渠道强势扩张的背景下，阳光保险（06963）凭借过往银保端的合作网点众多、差异化服务、人均产能较高等优势有望抓住银保高速发展的机遇，支撑总体价值保持增长。财险主动出清高风险业务，核心业务承保盈利能力持续改善。投资策略上在保持稳健风格不变下适当提升TPL资产占比，在“慢牛”行情下预计短期的投资业绩弹性明显提升。当前PEV仅0.27，处于历史23%分位数，
 
 ## 正文
 
-中新网嘉兴6月9日电(傅飞扬 陈曦)咖啡店体验中心、乡村牛排馆、“馒头酵主”创意店……在浙江嘉兴，“青年入乡、业态兴村”正加速布局，为“强城”“兴村”“融合”三篇文章落地生根注入源源不断的青春动能。
+兴业证券发布研报称，在银保渠道强势扩张的背景下，阳光保险（06963）凭借过往银保端的合作网点众多、差异化服务、人均产能较高等优势有望抓住银保高速发展的机遇，支撑总体价值保持增长。
 
-走进嘉兴嘉善县大云镇曹家村，一幢红砖屋顶、水泥外墙的平房格外显眼，这是“95后”主理人张平的乡村牛排馆，粗粝的肌理与精致的牛排形成奇妙反差。
+财险主动出清高风险业务，核心业务承保盈利能力持续改善。
 
-推门而入，100多平方米的空间被打理得井井有条。
+投资策略上在保持稳健风格不变下适当提升TPL资产占比，在“慢牛”行情下预计短期的投资业绩弹性明显提升。
 
-“我平时家里也经常吃牛排，就开了这家店，以生鲜配送为主。
+当前PEV仅0.27，处于历史23%分位数，配置性价比较高。
 
-”张平介绍，餐厅采取预约制，一周只开两次。
+兴业证券主要观点如下： 总览：整体符合预期 1）2025年归母净利润同比+15.7%至63.1亿元，主要为所得税影响，符合预期。
 
-牛排馆虽然藏在村里，生意却不差——依托乡村的好环境和不错的地理位置，今年春节期间营业额冲到了六七万元，平时每个月也有3万多元的营收。
+2）NBV在新单保费增长带动下同比+48.2%，符合预期。
 
-在曹家村逐梦的青年创客，不止张平一人。
+NBVM同比+0.1pct至16.9%，略有改善。
 
-今年，浙江官方提出：将着力为入乡青年打造实习、就业、创业进阶式孵化成长体系，并新建青年入乡实践站点300个以上。
+3）集团EV较年初+4.3%，受投资回报偏差负向贡献及同期高基数影响增速放缓。
 
 ## 相关推荐
 
-- 2026-06-30 08:18 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
-- 2026-06-30 08:09 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-30 08:32 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
-- 2026-06-30 08:32 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
-- 2026-06-30 08:08 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-30 08:24 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
-- 2026-06-30 08:17 - [德国罚丢3粒点球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-30 08:08 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-30 08:30 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-30 08:26 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-30 08:26 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
-- 2026-06-30 08:16 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
-- 2026-06-30 08:09 - [郑钦文温网首轮出局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-30 08:25 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-30 08:20 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-30 08:36 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-30 08:37 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-30 08:19 - [德国 传控](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-30 08:29 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
+- 2026-06-30 08:31 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-30 08:33 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-30 08:25 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-30 08:21 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-30 08:41 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
+- 2026-06-30 08:18 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:28 - [日本队主帅道歉](https://www.share.minike.top/Article/details/57301606.shtml)
-- 2026-06-30 08:09 - [这一刀 会很帅](http://www.share.minike.top/Article/details/959294.shtml)
-- 2026-06-30 08:21 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.blog.minike.top/Article/details/529462003110.shtml)
-- 2026-06-30 08:28 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/5020390.shtml)
-- 2026-06-30 08:09 - [【大鸣王潮1566】真拿你没办法](https://www.blog.minike.top/Article/details/5149032767.shtml)
-- 2026-06-30 08:25 - [孙颖莎王楚钦晋级8强](https://www.blog.minike.top/Article/details/66916384659.shtml)
-- 2026-06-30 08:24 - [网友写差评被店家“挂”门口避雷](https://www.blog.minike.top/Article/details/2084563.shtml)
-- 2026-06-30 08:09 - [王曼昱被突如其来的话筒逗笑了](https://www.blog.minike.top/Article/details/88812389076.shtml)
-- 2026-06-30 08:32 - [世界杯欧洲队7战南美仅1胜](http://www.share.minike.top/Article/details/81536943191.shtml)
-- 2026-06-30 08:24 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/201147037.shtml)
-- 2026-06-30 08:28 - [德国vs巴拉圭](https://www.blog.minike.top/Article/details/87402.shtml)
-- 2026-06-30 08:29 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/38064379.shtml)
-- 2026-06-30 08:06 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/5440708.shtml)
-- 2026-06-30 08:09 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.kurohicncr.top/Article/details/87186488.shtml)
-- 2026-06-30 08:25 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/220437427756.shtml)
+- 2026-06-30 08:40 - [日本领先巴西](http://www.blog.kurohicncr.top/Article/details/5802026.shtml)
+- 2026-06-30 08:28 - [曝詹姆斯即将与勇士会面](https://www.blog.kurohicncr.top/Article/details/564837032206.shtml)
+- 2026-06-30 08:33 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/223506762.shtml)
+- 2026-06-30 08:19 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/64393.shtml)
+- 2026-06-30 08:32 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/88716252464.shtml)
+- 2026-06-30 08:16 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/5256782907.shtml)
+- 2026-06-30 08:28 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/96391.shtml)
+- 2026-06-30 08:12 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/50961900203.shtml)
+- 2026-06-30 08:13 - [高质量发展看新疆](http://www.share.minike.top/Article/details/48396353.shtml)
+- 2026-06-30 08:17 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/668754.shtml)
+- 2026-06-30 08:22 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/1827360816.shtml)
+- 2026-06-30 08:30 - [F1奥地利站赛后复盘](https://www.blog.minike.top/Article/details/98628382879.shtml)
+- 2026-06-30 08:17 - [巴西绝杀](https://www.blog.kurohicncr.top/Article/details/00333.shtml)
+- 2026-06-30 08:22 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/607554.shtml)
+- 2026-06-30 08:22 - [本届世界杯已有5名球员被控强奸](https://www.share.minike.top/Article/details/8550805336.shtml)

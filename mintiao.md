@@ -1,59 +1,59 @@
-# 上周才上调展望的高盛称韩股在经历“吓人”的回档后会反弹
+# 贵州对外经贸合作交流会举行 多方期待深化合作
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-高盛亚太区首席股票策略师Timothy Moe表示，在触发熔断机制后的下跌之后，韩国股市料将会反弹。 “从长远来看，这将是一次技术性回调，尽管在长期牛市中，这是吓人的回调，”Moe在接受采访时表示，并补充说，“基本面仍然非常非常强劲”。 周一，韩国Kospi指数一度暴跌8.8%，领跌亚洲科技股普遍下跌。此前，受AI乐观情绪推动，科技股曾出现一波强劲上涨，许多投资人利用杠杆追捧少
+中新网贵阳6月11日电 (记者 周燕玲)“贵州在信息通信技术、大数据等领域具备专业优势，是巴基斯坦与中国的重要合作方向，我们正全力推进相关合作，还希望与贵州中医药产业方面加强合作。”巴基斯坦驻成都总领事馆副总领事他尔哈11日在贵阳接受采访时说。 由贵州省外事办公室与贵州省商务厅共同主办的“贵州对外经贸合作交流会——欧、亚国家及香港特区专场”当日在贵阳举行。来自巴基斯坦、英国、韩
 
 ## 正文
 
-高盛亚太区首席股票策略师Timothy Moe表示，在触发熔断机制后的下跌之后，韩国股市料将会反弹。
+中新网贵阳6月11日电 (记者 周燕玲)“贵州在信息通信技术、大数据等领域具备专业优势，是巴基斯坦与中国的重要合作方向，我们正全力推进相关合作，还希望与贵州中医药产业方面加强合作。
 
-“从长远来看，这将是一次技术性回调，尽管在长期牛市中，这是吓人的回调，”Moe在接受采访时表示，并补充说，“基本面仍然非常非常强劲”。
+”巴基斯坦驻成都总领事馆副总领事他尔哈11日在贵阳接受采访时说。
 
-周一，韩国Kospi指数一度暴跌8.8%，领跌亚洲科技股普遍下跌。
+由贵州省外事办公室与贵州省商务厅共同主办的“贵州对外经贸合作交流会——欧、亚国家及香港特区专场”当日在贵阳举行。
 
-此前，受AI乐观情绪推动，科技股曾出现一波强劲上涨，许多投资人利用杠杆追捧少数半导体和科技股。
+来自巴基斯坦、英国、韩国、哈萨克斯坦及香港的代表，与贵州70多家企业代表齐聚一堂，开展面对面交流座谈。
 
-“很明显，投机活动有所增加，尤其是在韩国的散户投资者中，特别是那些涌入杠杆型ETF的投资者，”Moe表示。
+英国驻华大使馆一等秘书兼贸易政策联合负责人李兰认为，贵州虽为山区省份，但近年来在大数据等领域发展迅速，英国在智能制造方面拥有丰富经验，愿与贵州建立务实合作，助力贵州企业提升全球竞争力，并布局英国市场。
 
-高盛上周上调了对韩国股市的展望，预期AI的蓬勃发展将推动以科技股为主的市场获利增长。
+“香港很注重内地企业借助香港平台‘出海’，近年来与贵州的合作日益密切，特别是在产品贸易和服务贸易等方面做了大量探索工作。
 
-Moe周一表示，韩国股市的估值非常合理，并预计其潜在利润将继续推动增长。
+”香港贸易发展局重庆代表处代表王楠说，下一步将邀请香港食品委员会赴贵州实地调研水果、猪肉、牛肉等优质农产品基地，并重点推介贵州抹茶产品，探索利用香港平台推动这些产品走向海外市场。
 
-“我们认为，经过震荡后，股市将重新站稳脚跟，并创下更高的高点，”他说。
+王楠表示，还将深化与贵州在大数据方面的合作，积极推介贵州的大数据企业，借助香港平台拓展与大湾区及海外科创企业的对接，“贵州拥有良好的算力基础，应充分发挥这一优势，吸引更多科技企业落地贵州，共同用好这些算力资源。
 
 ## 相关推荐
 
-- 2026-06-30 08:19 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-30 08:09 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-30 08:32 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
-- 2026-06-30 08:18 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
-- 2026-06-30 08:20 - [老外对中国cosplay竟这样评价…](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-30 08:25 - [董路：谁赢谁是“正路子”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
-- 2026-06-30 08:25 - [杨紫学位证上就是杨紫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-30 08:31 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-30 08:23 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-30 08:11 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-30 08:14 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
-- 2026-06-30 08:18 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-30 08:26 - [张月收到黄灿灿辣货两眼发光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-30 08:26 - [现在叛逆期的孩子最怕的是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-30 08:38 - [日本队5进世界杯淘汰赛0胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-30 08:31 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-30 08:20 - [感动全网的699分女生想报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-30 08:28 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-30 08:16 - [萨内 看笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-30 08:39 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-30 08:19 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-30 08:13 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-30 08:41 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-30 08:28 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-30 08:28 - [F1奥地利站赛后复盘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
+- 2026-06-30 08:30 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:11 - [日本淘汰](http://www.blog.minike.top/Article/details/31307.shtml)
-- 2026-06-30 08:34 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/48556.shtml)
-- 2026-06-30 08:26 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/498355885.shtml)
-- 2026-06-30 08:12 - [巴西绝杀日本](https://www.share.minike.top/Article/details/87946354503.shtml)
-- 2026-06-30 08:25 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/8953053650.shtml)
-- 2026-06-30 08:14 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/61368168264.shtml)
-- 2026-06-30 08:31 - [董卿父亲报纸上发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/701316.shtml)
-- 2026-06-30 08:35 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/876645359.shtml)
-- 2026-06-30 08:17 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/70144711233.shtml)
-- 2026-06-30 08:35 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/876514.shtml)
-- 2026-06-30 08:09 - [城市规划有可能成为「屎山代码」吗？](http://www.share.minike.top/Article/details/392854364.shtml)
-- 2026-06-30 08:31 - [董路：谁赢谁是“正路子”](https://www.blog.kurohicncr.top/Article/details/26394941225.shtml)
-- 2026-06-30 08:08 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/746303511142.shtml)
-- 2026-06-30 08:31 - [巴西vs日本](http://www.share.kurohicncr.top/Article/details/80091.shtml)
-- 2026-06-30 08:27 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/379828827584.shtml)
+- 2026-06-30 08:31 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/3809477369.shtml)
+- 2026-06-30 08:25 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/12009764.shtml)
+- 2026-06-30 08:39 - [孙颖莎王楚钦晋级8强](https://www.share.minike.top/Article/details/0212473.shtml)
+- 2026-06-30 08:28 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/7220457.shtml)
+- 2026-06-30 08:31 - [追梦拒绝2770万美元球员选项](http://www.blog.minike.top/Article/details/31915246992.shtml)
+- 2026-06-30 08:24 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/9985911539.shtml)
+- 2026-06-30 08:39 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/12307.shtml)
+- 2026-06-30 08:32 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/593788603549.shtml)
+- 2026-06-30 08:14 - [如果有二次元高中是什么样子的？](http://www.share.kurohicncr.top/Article/details/50341798735.shtml)
+- 2026-06-30 08:27 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/2896242.shtml)
+- 2026-06-30 08:18 - [巴西2-1绝杀日本](http://www.blog.minike.top/Article/details/20950750907.shtml)
+- 2026-06-30 08:31 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/9979157.shtml)
+- 2026-06-30 08:28 - [这一刀 会很帅](https://www.share.minike.top/Article/details/1603747.shtml)
+- 2026-06-30 08:36 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/09382062201.shtml)
+- 2026-06-30 08:33 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/022174721.shtml)

@@ -1,60 +1,56 @@
-# 第23届中国—东盟商务与投资峰会呈现五大亮点
+# 重磅新规出炉！沪深衍生品合约账户全面互认、基础权利仓持仓限额大幅提升→
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-中新网南宁6月9日电(黄令妍)第23届中国—东盟商务与投资峰会(以下简称峰会)将于9月17日至19日在广西南宁举办。峰会秘书处6月9日介绍，2026年是中国—东盟建立全面战略伙伴关系5周年，本届峰会以经贸为主线，坚持“AI唱主角、企业为主体、应用为特色”，聚焦中国—东盟自贸区3.0版，着力打造成为中国—东盟人工智能应用合作与产业创新的高端交流平台、经贸合作与制度开放的务实对接渠
+来源：期货日报 近日，上交所发布修订后的《证券公司股票期权经纪业务指南（2026年修订）》《期货公司股票期权经纪业务指南（2026年修订）》（以下统称指南），自发布之日起施行。这是指南自2020年以来首次更新，距离上交所推出首只ETF期权产品已超十年。 此前，深交所对《深圳证券交易所股票期权试点证券公司经纪业务指南》《深圳证券交易所股票期权试点期货公司经纪业务指南》进行了修订，
 
 ## 正文
 
-中新网南宁6月9日电(黄令妍)第23届中国—东盟商务与投资峰会(以下简称峰会)将于9月17日至19日在广西南宁举办。
+来源：期货日报 近日，上交所发布修订后的《证券公司股票期权经纪业务指南（2026年修订）》《期货公司股票期权经纪业务指南（2026年修订）》（以下统称指南），自发布之日起施行。
 
-峰会秘书处6月9日介绍，2026年是中国—东盟建立全面战略伙伴关系5周年，本届峰会以经贸为主线，坚持“AI唱主角、企业为主体、应用为特色”，聚焦中国—东盟自贸区3.0版，着力打造成为中国—东盟人工智能应用合作与产业创新的高端交流平台、经贸合作与制度开放的务实对接渠道，主要呈现五大亮点。
+这是指南自2020年以来首次更新，距离上交所推出首只ETF期权产品已超十年。
 
-政商高端对话 本届峰会构建层级丰富的立体化活动体系。
+此前，深交所对《深圳证券交易所股票期权试点证券公司经纪业务指南》《深圳证券交易所股票期权试点期货公司经纪业务指南》进行了修订，并已发布施行。
 
-开幕式、中国—东盟商界领袖论坛、中国—菲律宾工商界高层对话会、中国—东盟商事法律论坛等主体活动将推动达成合作新共识。
+本次修订包含沪深衍生品合约账户全面互认、合格境外投资者获准参与沪市ETF期权套期保值、优化投资者持仓限额与开户规则三大核心内容。
 
-AI主题系列边会聚焦垂直行业应用，推动精细化产业对接合作；经贸配套活动包括面向东盟企业家撮合对接大会、中国(广西)—“一带一路”共建国家经贸合作推介会等，帮助企业拓展国际合作渠道；同期举办的中国—东盟商务理事会年会暨工商会主席联席会议将与峰会资源互通、优势互补、双向赋能。
+整体延续衍生品市场“拓宽参与渠道、严控交易用途”的监管思路，在降低制度成本的同时，明确交易仅限套期保值，防范投机资本异动。
 
-紧扣3.0版商机 峰会议题与活动深度对接中国—东盟自贸区3.0版建设需求，围绕数字贸易、绿色经济、供应链韧性等九大关键领域展开专题研讨与合作对接，着力推动《中国—东盟全面战略伙伴关系行动计划(2026—2030)》中关于数字经济、互联互通、科技创新等顶层共识在工商界落地见效。
+沪深期权账户互认是本次改革最受市场关注的举措。
 
-峰会把握东帝汶正式加入东盟的重要契机，积极推动东帝汶工商界深度参与峰会各项活动。
+此前，两市期权账户相互独立，投资者需分别完成50万元资产门槛、6个月交易经验、知识测试、模拟交易等全套审核流程，开户手续繁琐。
 
-AI赋能经贸 本届峰会最大特色是推动“人工智能+峰会”深度融合，AI贯穿峰会全过程、各方面。
+新规落地后，已开立深市衍生品合约账户的投资者，可豁免沪市全部准入审核直接开户，彻底打破两市账户壁垒。
 
 ## 相关推荐
 
-- 2026-06-30 08:11 - [大蒜晒外面被路过女子连盆端走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-30 08:20 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-30 08:26 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-30 08:23 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-30 08:34 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-30 08:24 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-30 08:11 - [周冬雨多次说演不了话剧文城](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-30 08:07 - [泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-30 08:12 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
-- 2026-06-30 08:18 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
-- 2026-06-30 08:20 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-30 08:34 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-30 08:33 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-30 08:12 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-30 08:29 - [日本队5进世界杯淘汰赛0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-30 08:13 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-30 08:37 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-30 08:29 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-30 08:12 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-30 08:33 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-30 08:38 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-30 08:37 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
+- 2026-06-30 08:31 - [日本将帅赛后采访纷纷哽咽落泪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-30 08:23 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:10 - [大蒜晒外面被路过女子连盆端走](https://www.share.kurohicncr.top/Article/details/564899.shtml)
-- 2026-06-30 08:11 - [点球大战](http://www.blog.kurohicncr.top/Article/details/3887123.shtml)
-- 2026-06-30 08:35 - [董路：谁赢谁是“正路子”](http://www.share.minike.top/Article/details/502507.shtml)
-- 2026-06-30 08:20 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/4546517.shtml)
-- 2026-06-30 08:27 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/393919756.shtml)
-- 2026-06-30 08:07 - [诺伊尔尽力了](https://www.blog.minike.top/Article/details/52447657623.shtml)
-- 2026-06-30 08:28 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/751646689548.shtml)
-- 2026-06-30 08:09 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/32977321.shtml)
-- 2026-06-30 08:18 - [德国队连续三届世界杯无缘16强](http://www.blog.minike.top/Article/details/81863506.shtml)
-- 2026-06-30 08:22 - [免费试吃发差评被店家挂店门避雷](http://www.share.minike.top/Article/details/87132329403.shtml)
-- 2026-06-30 08:07 - [德国罚丢3粒点球](https://www.share.kurohicncr.top/Article/details/6913613452.shtml)
-- 2026-06-30 08:08 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/621183.shtml)
-- 2026-06-30 08:32 - [辛纳vs凯茨玛诺维奇](http://www.blog.minike.top/Article/details/664163842.shtml)
-- 2026-06-30 08:34 - [安切洛蒂 换人](http://www.share.minike.top/Article/details/17754053923.shtml)
-- 2026-06-30 08:06 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/42341.shtml)
+- 2026-06-30 08:34 - [曝老詹对自由市场态度与以往截然不同](https://www.blog.minike.top/Article/details/5647177034.shtml)
+- 2026-06-30 08:26 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.minike.top/Article/details/45784135623.shtml)
+- 2026-06-30 08:23 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/87725714635.shtml)
+- 2026-06-30 08:27 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/811968.shtml)
+- 2026-06-30 08:35 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.blog.minike.top/Article/details/367980047.shtml)
+- 2026-06-30 08:35 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/65952324805.shtml)
+- 2026-06-30 08:22 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/8696995120.shtml)
+- 2026-06-30 08:19 - [这几秒成世界杯最值钱广告位](https://www.share.minike.top/Article/details/40242764707.shtml)
+- 2026-06-30 08:41 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/127096.shtml)
+- 2026-06-30 08:21 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/069253353143.shtml)
+- 2026-06-30 08:26 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/93621.shtml)
+- 2026-06-30 08:23 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/19041394.shtml)
+- 2026-06-30 08:36 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/6146966.shtml)
+- 2026-06-30 08:34 - [巴拉圭先进球了](http://www.share.minike.top/Article/details/3123818580.shtml)
+- 2026-06-30 08:23 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/135032.shtml)

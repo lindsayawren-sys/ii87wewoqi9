@@ -1,58 +1,46 @@
-# 特朗普称与伊朗的谈判仍在进行 一两天后至少会有眉目
+# 南非约翰内斯堡发生枪击事件致12人死亡
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-美国总统唐纳德·特朗普再次宣称，结束与伊朗冲突的谈判已取得进展；他先前促成以色列和伊朗停火并缓解了可能破坏更广泛和平努力的紧张局势。 特朗普周二在纽约告诉记者，“我们正处于一项非常、非常好协议的最后阶段。一两天后至少会有眉目。” 特朗普讲话之前的数小时，伊朗和以色列在经历了一场双方都发射数波弹道导弹的冲突升级后，同意停止相互攻击。特朗普曾多次提及一项旨在结束这场战争的临时协议。
+发布时间：2026年06月11日 09:28 来源：央视新闻 责任编辑：【李骏】
 
 ## 正文
 
-美国总统唐纳德·特朗普再次宣称，结束与伊朗冲突的谈判已取得进展；他先前促成以色列和伊朗停火并缓解了可能破坏更广泛和平努力的紧张局势。
-
-特朗普周二在纽约告诉记者，“我们正处于一项非常、非常好协议的最后阶段。
-
-一两天后至少会有眉目。
-
-” 特朗普讲话之前的数小时，伊朗和以色列在经历了一场双方都发射数波弹道导弹的冲突升级后，同意停止相互攻击。
-
-特朗普曾多次提及一项旨在结束这场战争的临时协议。
-
-这场战争始于今年2月，当时美国和以色列开始轰炸伊朗。
-
-一项停火协议已生效约两个月，但美国、伊朗和以色列之间零星的冲突仍在继续，凸显出在缺乏持久和平协议的情况下，重返全面战争的风险。
-
-以色列总理本雅明·内塔尼亚胡周一在电视讲话中表示，他目前将对伊朗保持克制，但如果德黑兰再次发动攻击，他将回应。
+发布时间：2026年06月11日 09:28 来源：央视新闻 责任编辑：【李骏】
 
 ## 相关推荐
 
-- 2026-06-30 08:31 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
-- 2026-06-30 08:32 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
-- 2026-06-30 08:11 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
-- 2026-06-30 08:11 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-30 08:06 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-30 08:26 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
-- 2026-06-30 08:31 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-30 08:19 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-30 08:14 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-30 08:22 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
-- 2026-06-30 08:22 - [金鹰奖视后提名预测](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-30 08:24 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-30 08:27 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-30 08:36 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-30 08:12 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
+- 2026-06-30 08:25 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-30 08:27 - [杨紫肖战余生请多指教拍立得](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-30 08:38 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-30 08:33 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-30 08:36 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-30 08:21 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-30 08:24 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-30 08:12 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-30 08:17 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-30 08:40 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-30 08:19 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:08 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/1969336900.shtml)
-- 2026-06-30 08:11 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/08386433439.shtml)
-- 2026-06-30 08:29 - [库尼亚赛后伸五指嘲讽日本](http://www.blog.minike.top/Article/details/72236865179.shtml)
-- 2026-06-30 08:12 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.kurohicncr.top/Article/details/198233.shtml)
-- 2026-06-30 08:22 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/449267523251.shtml)
-- 2026-06-30 08:08 - [青春环游记第三季](http://www.share.minike.top/Article/details/12070.shtml)
-- 2026-06-30 08:13 - [德国淘汰](https://www.blog.minike.top/Article/details/455698.shtml)
-- 2026-06-30 08:06 - [德国队连续三届世界杯无缘16强](http://www.blog.minike.top/Article/details/73756.shtml)
-- 2026-06-30 08:24 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/626725.shtml)
-- 2026-06-30 08:06 - [日本队主帅道歉](http://www.share.kurohicncr.top/Article/details/25751781737.shtml)
-- 2026-06-30 08:20 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/3252338.shtml)
-- 2026-06-30 08:29 - [马耳他著名拱门坍塌致中国男子身亡](https://www.share.kurohicncr.top/Article/details/45584.shtml)
-- 2026-06-30 08:12 - [张帅时隔四年晋级温网第二轮](http://www.share.minike.top/Article/details/38383091036.shtml)
-- 2026-06-30 08:16 - [世界杯：德国vs巴拉圭](https://www.blog.minike.top/Article/details/372214.shtml)
-- 2026-06-30 08:30 - [巴西vs日本](https://www.share.kurohicncr.top/Article/details/899693.shtml)
+- 2026-06-30 08:28 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](http://www.blog.kurohicncr.top/Article/details/767600643.shtml)
+- 2026-06-30 08:19 - [啊啊啊](https://www.blog.minike.top/Article/details/7842728.shtml)
+- 2026-06-30 08:33 - [本届世界杯已有5名球员被控强奸](http://www.blog.kurohicncr.top/Article/details/5638005.shtml)
+- 2026-06-30 08:15 - [世界杯：德国vs巴拉圭](https://www.blog.minike.top/Article/details/5423869.shtml)
+- 2026-06-30 08:37 - [沙丘](http://www.share.minike.top/Article/details/751765269187.shtml)
+- 2026-06-30 08:37 - [卡塞米罗头球破门 巴西扳平日本](https://www.share.kurohicncr.top/Article/details/8478042.shtml)
+- 2026-06-30 08:22 - [马耳他著名拱门坍塌致一中国男子身亡](http://www.share.minike.top/Article/details/338147069760.shtml)
+- 2026-06-30 08:25 - [董路：谁赢谁是“正路子”](https://www.share.kurohicncr.top/Article/details/2607463699.shtml)
+- 2026-06-30 08:16 - [追梦拒绝2770万美元球员选项](https://www.blog.kurohicncr.top/Article/details/6303447.shtml)
+- 2026-06-30 08:20 - [王健林甩卖超80座万达广场](https://www.blog.minike.top/Article/details/98428847148.shtml)
+- 2026-06-30 08:19 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/529104532.shtml)
+- 2026-06-30 08:23 - [老外对中国cosplay竟这样评价…](https://www.blog.kurohicncr.top/Article/details/430688.shtml)
+- 2026-06-30 08:27 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/296440070.shtml)
+- 2026-06-30 08:18 - [藤森庆子赢得秘鲁总统选举](http://www.blog.kurohicncr.top/Article/details/46693682.shtml)
+- 2026-06-30 08:32 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.minike.top/Article/details/301390820.shtml)

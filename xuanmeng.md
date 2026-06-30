@@ -1,57 +1,56 @@
-# Illumina推出StrataMap，一张芯片即可绘制组织内基因表达的“三维地图”
+# 观史、制器、习拳 16国华教人中原之行收获满满
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-基因测序服务提供商Illumina， Inc．（纳斯达克股票代码：ILMN）今日正式宣布推出StrataMap空间解决方案。这是一款端到端的、基于测序技术的空间转录组学研究平台，旨在以前所未有的广度和分辨率，重新定义研究人员在空间背景下探索全转录组的能力。 StrataMap空间解决方案此前被称为Illumina空间解决方案。它提供了一个集成的完整工作流程，使科学家能够在单细胞
+中新网郑州6月11日电 (张楠)从二里头夏都遗址探源华夏文明，到张家彩窑手工制作唐三彩，再到温县太极故里习练太极拳……日前，由中国华文教育基金会、河南省政府侨务办公室主办的“2026海外红烛河南行”活动落幕，来自16个国家的海外华文教育工作者，共同感受中原厚重的历史和风土人情，并表示将此行收获纳入海外华文教育“素材库”，持续在海外讲述中原故事。 观史：触摸可证可感的华夏根脉 位
 
 ## 正文
 
-基因测序服务提供商Illumina， Inc．（纳斯达克股票代码：ILMN）今日正式宣布推出StrataMap空间解决方案。
+中新网郑州6月11日电 (张楠)从二里头夏都遗址探源华夏文明，到张家彩窑手工制作唐三彩，再到温县太极故里习练太极拳……日前，由中国华文教育基金会、河南省政府侨务办公室主办的“2026海外红烛河南行”活动落幕，来自16个国家的海外华文教育工作者，共同感受中原厚重的历史和风土人情，并表示将此行收获纳入海外华文教育“素材库”，持续在海外讲述中原故事。
 
-这是一款端到端的、基于测序技术的空间转录组学研究平台，旨在以前所未有的广度和分辨率，重新定义研究人员在空间背景下探索全转录组的能力。
+观史：触摸可证可感的华夏根脉 位于河南洛阳的二里头遗址，被考古学界公认为“最早的中国”，而距今3800年至3500年的二里头文化，正是中原地区最耀眼的文明形态。
 
-StrataMap空间解决方案此前被称为Illumina空间解决方案。
+走进二里头夏都遗址博物馆展馆，印尼智民学院校长陈玉兰看到被誉为“中华第一爵”的乳钉纹铜爵后深受震撼，“亲见夏代成熟的冶金技术，4000年前先民已有如此创造力，让我们对华夏文化更加自信和热爱。
 
-它提供了一个集成的完整工作流程，使科学家能够在单细胞分辨率下，对7.5平方厘米捕获区域内的大块组织切片进行无偏倚的全转录组分析。
+” 贾湖骨笛距今历史8000多年，是目前中国出土年代最早的乐器实物。
 
-与基于探针panel的替代技术相比，StrataMap基于测序的方法每个样本能检测到的基因数量多出一倍，并且能够发现非编码基因和假基因中隐藏的信号。
+这支长23.6厘米的骨笛，由鹤类尺骨制作而成，被认定为世界上最早的可吹奏乐器。
 
-该平台在通量、速度及可及性方面均设立了新标准。
+“从先民满足物质生活后追求精神审美讲起，让海外孩子读懂礼乐是一个民族绵延不息的底色。
 
-StrataMap每年可处理超过2000个样本，测序最短仅需22小时，从样本到数据洞察的全过程可在五天内完成。
+”陈玉兰在河南博物院看到这件“镇院之宝”后，决定回到印尼后将骨笛故事引入课堂。
 
-更重要的是，它能够无缝集成到现有的组织病理学工作流程中，并在Illumina NovaSeq和NextSeq平台上运行，为客户提供了一个易于进入空间生物学领域的入口。
+“文物具象了历史。
 
 ## 相关推荐
 
-- 2026-06-30 08:33 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
-- 2026-06-30 08:24 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
-- 2026-06-30 08:32 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
-- 2026-06-30 08:34 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
-- 2026-06-30 08:32 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-30 08:31 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
-- 2026-06-30 08:34 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-30 08:33 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-30 08:19 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-30 08:27 - [张月收到黄灿灿辣货两眼发光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-30 08:23 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-30 08:41 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-30 08:20 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-30 08:26 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-30 08:15 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-30 08:25 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-30 08:25 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-30 08:34 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-30 08:24 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-30 08:36 - [日本球员说被绝杀非常不甘心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-30 08:17 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:14 - [董路：谁赢谁是“正路子”](https://www.share.kurohicncr.top/Article/details/2933327953.shtml)
-- 2026-06-30 08:22 - [杨紫肖战余生请多指教拍立得](https://www.share.kurohicncr.top/Article/details/992262645.shtml)
-- 2026-06-30 08:12 - [巴西绝杀日本：漫画般结局换了主角](https://www.share.kurohicncr.top/Article/details/2518549.shtml)
-- 2026-06-30 08:07 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/21368092.shtml)
-- 2026-06-30 08:15 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/6670490.shtml)
-- 2026-06-30 08:32 - [老外对中国cosplay竟这样评价…](http://www.blog.kurohicncr.top/Article/details/77806179.shtml)
-- 2026-06-30 08:12 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/69202052.shtml)
-- 2026-06-30 08:12 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.minike.top/Article/details/20411435586.shtml)
-- 2026-06-30 08:30 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://www.blog.minike.top/Article/details/7556688.shtml)
-- 2026-06-30 08:27 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/67442087.shtml)
-- 2026-06-30 08:30 - [毒液2](http://www.share.kurohicncr.top/Article/details/762190.shtml)
-- 2026-06-30 08:13 - [韩国球迷凌晨4点接机怒骂主教练](https://www.blog.minike.top/Article/details/7733400565.shtml)
-- 2026-06-30 08:27 - [沙丘](http://www.share.minike.top/Article/details/67614.shtml)
-- 2026-06-30 08:07 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/7108033.shtml)
-- 2026-06-30 08:27 - [张帅时隔四年晋级温网第二轮](http://www.share.minike.top/Article/details/4202546241.shtml)
+- 2026-06-30 08:32 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/43062.shtml)
+- 2026-06-30 08:27 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/816808.shtml)
+- 2026-06-30 08:36 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.kurohicncr.top/Article/details/88351217194.shtml)
+- 2026-06-30 08:19 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/00483.shtml)
+- 2026-06-30 08:36 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/877399383516.shtml)
+- 2026-06-30 08:41 - [男子醉酒溺水获救后同行人拒协助抬人](http://www.blog.minike.top/Article/details/43066937563.shtml)
+- 2026-06-30 08:14 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.kurohicncr.top/Article/details/642064.shtml)
+- 2026-06-30 08:17 - [锐评T1战胜KC](https://www.blog.minike.top/Article/details/8298070.shtml)
+- 2026-06-30 08:14 - [世界杯欧洲队7战南美仅1胜](https://www.blog.minike.top/Article/details/389567364389.shtml)
+- 2026-06-30 08:28 - [媒体评泰山建135公里刀片刺绳隔离网](http://www.share.kurohicncr.top/Article/details/919794129770.shtml)
+- 2026-06-30 08:37 - [MSI应援曲 如果季中成回忆](https://www.blog.kurohicncr.top/Article/details/1635829010.shtml)
+- 2026-06-30 08:38 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/75148408082.shtml)
+- 2026-06-30 08:13 - [《共患难》](http://www.blog.minike.top/Article/details/4880129051.shtml)
+- 2026-06-30 08:24 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.kurohicncr.top/Article/details/41691.shtml)
+- 2026-06-30 08:41 - [点球大战](http://www.blog.kurohicncr.top/Article/details/3067726.shtml)

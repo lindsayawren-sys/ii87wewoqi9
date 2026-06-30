@@ -1,57 +1,61 @@
-# 湖南裕能被宁德时代减持背后：48亿定增刚落地H股融资接踵而至 高负债低收现比订单再流失
+# 光大期货0612黄金点评：黄金大反弹，阶段性修复已至？
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经上市公司研究院 作者：昊 6月3日晚间，湖南裕能发布股东减持预披露公告，第二大股东上海津晟新材料科技有限公司与第三大股东宁德时代拟同步减持公司股份，计划减持数量分别不超过2.5%和3%。 值得注意的是，湖南裕能4月初刚刚完成耗时两年半的47.88亿元A股定增，并于一周前宣布H股融资计划。 事实
+隔夜市场美伊局势缓和，现货黄金大涨3.45%，收复4200美元/盎司，COMEX黄金期货涨2.43%，SHFE黄金涨0.75%。美国取消对于伊朗打击，并称将达成和平协议，原油盘中跳水，通胀压力预期缓解，股指、贵金属出现反弹。另外，欧央行于11日加息25个基点，为近三年来首次加息，全球货币政策紧缩迹象仍在。黄金经历大幅下跌后具有一定支撑性，短线反弹，关注下周美联储议息会议。 地缘
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+隔夜市场美伊局势缓和，现货黄金大涨3.45%，收复4200美元/盎司，COMEX黄金期货涨2.43%，SHFE黄金涨0.75%。
 
-出品：新浪财经上市公司研究院 作者：昊 6月3日晚间，湖南裕能发布股东减持预披露公告，第二大股东上海津晟新材料科技有限公司与第三大股东宁德时代拟同步减持公司股份，计划减持数量分别不超过2.5%和3%。
+美国取消对于伊朗打击，并称将达成和平协议，原油盘中跳水，通胀压力预期缓解，股指、贵金属出现反弹。
 
-值得注意的是，湖南裕能4月初刚刚完成耗时两年半的47.88亿元A股定增，并于一周前宣布H股融资计划。
+另外，欧央行于11日加息25个基点，为近三年来首次加息，全球货币政策紧缩迹象仍在。
 
-事实上，自2018年至今，除2023年以外，湖南裕能每年经营现金流均为负值，叠加连年大额资本开支，公司有息负债特别是短期债务急剧攀升，负债率维持高位，缺钱状况显而易见。
+黄金经历大幅下跌后具有一定支撑性，短线反弹，关注下周美联储议息会议。
 
-作为公司主要股东兼大客户，宁德时代近期与容百科技（维权）、富临精工等连签磷酸铁锂大单，导致湖南裕能的订单被大量分流。
+地缘政治方面，再出现戏剧性反转，特朗普此前在社交媒体宣布将“非常猛烈”攻击伊朗，但仅过去约五小时再次TACO，特朗普称取消打击伊朗计划，协议已基本定稿，或周末在欧洲签署。
 
-由于高度依赖宁德时代和比亚迪，湖南裕能此前收现比就显著低于万润新能和德方纳米。
+美伊谈判和霍尔木兹海峡问题迟迟难以缓解，高油价导致的通胀影响再蔓延，利率抬升预期导致金价不断承压。
 
-连续融资后，宁德时代与第二大股东同日宣布减持，湖南裕能的前景更令市场担忧。
+但当前来看虽然谈判不断出现反复性，但整体谈判解决问题的方向未变。
 
-经营现金流长期远低于资本开支 有息负债急剧攀升负债率维持高位 6月3日，湖南裕能公告称，持股7.10%的第三大股东宁德时代计划减持不超过3%的公司股份，同时第二大股东上海津晟新材料科技有限公司同步减持不超过2.5%，两大股东顶格减持金额或超38亿元。
+另外，利率抬升预期也导致美股出现波动性，这或推动美联储政策表述上不会异常鹰派，因此要注意在议息会议前后黄金是否再次表现为“买预期、卖事实”的异常波动。
 
 ## 相关推荐
 
-- 2026-06-30 08:29 - [第3集丨“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
-- 2026-06-30 08:27 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-30 08:33 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-30 08:34 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-30 08:16 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-30 08:33 - [巴拉圭点球大战淘汰德国进16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-30 08:12 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-30 08:09 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-30 08:35 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-30 08:34 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-30 08:31 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-30 08:41 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-30 08:42 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-30 08:31 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-30 08:18 - [日本将帅赛后采访纷纷哽咽落泪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-30 08:13 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-30 08:39 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-30 08:36 - [三星投资计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-30 08:23 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
+- 2026-06-30 08:29 - [杨紫肖战余生请多指教拍立得](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-30 08:13 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-30 08:31 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
+- 2026-06-30 08:29 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-30 08:18 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-30 08:21 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-30 08:32 - [郑钦文温网首轮出局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:31 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/182501030213.shtml)
-- 2026-06-30 08:22 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/169264524.shtml)
-- 2026-06-30 08:22 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/27862.shtml)
-- 2026-06-30 08:24 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/8774985283.shtml)
-- 2026-06-30 08:24 - [【大鸣王潮1566】真拿你没办法](http://www.blog.minike.top/Article/details/24216.shtml)
-- 2026-06-30 08:23 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/921326.shtml)
-- 2026-06-30 08:08 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/797461.shtml)
-- 2026-06-30 08:15 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/105353.shtml)
-- 2026-06-30 08:33 - [苗族银饰](http://www.blog.kurohicncr.top/Article/details/9399634117.shtml)
-- 2026-06-30 08:08 - [藤森庆子赢得秘鲁总统选举](http://www.share.kurohicncr.top/Article/details/677777752.shtml)
-- 2026-06-30 08:18 - [韩国道歉完日本道歉](http://www.blog.kurohicncr.top/Article/details/6240308231.shtml)
-- 2026-06-30 08:33 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/97895106.shtml)
-- 2026-06-30 08:33 - [王健林甩卖超80座万达广场](http://www.blog.minike.top/Article/details/58723982.shtml)
-- 2026-06-30 08:32 - [武磊：巴西队赢的并不轻松](https://www.blog.minike.top/Article/details/3719044047.shtml)
-- 2026-06-30 08:28 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/08465754.shtml)
+- 2026-06-30 08:39 - [女子清吧被陌生人投放伟哥](http://www.blog.minike.top/Article/details/63146513.shtml)
+- 2026-06-30 08:20 - [这几秒成世界杯最值钱广告位](https://www.share.kurohicncr.top/Article/details/0870728.shtml)
+- 2026-06-30 08:16 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/10114.shtml)
+- 2026-06-30 08:22 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/39992799.shtml)
+- 2026-06-30 08:31 - [杨紫肖战余生请多指教拍立得](http://www.blog.kurohicncr.top/Article/details/207708772009.shtml)
+- 2026-06-30 08:34 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/100794.shtml)
+- 2026-06-30 08:18 - [千与千寻](https://www.share.kurohicncr.top/Article/details/011546832131.shtml)
+- 2026-06-30 08:20 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/4344672.shtml)
+- 2026-06-30 08:23 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/683888536585.shtml)
+- 2026-06-30 08:34 - [刘必安等16人非法集资案二审宣判](https://www.blog.minike.top/Article/details/301753.shtml)
+- 2026-06-30 08:37 - [警犬“多多”助民警寻回失联老人](http://www.blog.kurohicncr.top/Article/details/536793311.shtml)
+- 2026-06-30 08:16 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/8293154.shtml)
+- 2026-06-30 08:33 - [速度与激情9](https://www.share.minike.top/Article/details/1033366.shtml)
+- 2026-06-30 08:22 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/964344932364.shtml)
+- 2026-06-30 08:27 - [速度与激情9](https://www.blog.minike.top/Article/details/16856646803.shtml)

@@ -1,46 +1,57 @@
-# 新华图讯丨习近平出席金正恩举行的欢送仪式
+# 新品牌陷商标争议遭同行举报，东易日盛回应：普通商业纠纷，不影响摘星摘帽流程
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-当地时间6月9日下午，中共中央总书记、国家主席习近平结束对朝鲜的国事访问离开平壤。朝鲜劳动党总书记、国务委员长金正恩和夫人李雪主到机场送行，为习近平和夫人彭丽媛举行隆重的欢送仪式。 摄影：谢环驰 李响 燕雁 编辑：徐金泉 李琰 郝昭 虞东升 卢烨 张曼怡
+登录新浪财经APP 搜索【信披】查看更多考评等级 6月11日上午消息，近日，广东鲤享家家居服务有限公司（以下简称“鲤享家”）官方发文称，已就“晶鲤焕新家”品牌与“鲤享家”商标混淆及相关合规争议事宜，正式向中国证监会、深圳证券交易所实名提交举报材料及完整证据。东易日盛在申请撤销退市风险警示及发布争议品牌期间，涉嫌严重的信息披露违规，未如实披露核心品牌存在的重大法律与合规风险。 “
 
 ## 正文
 
-当地时间6月9日下午，中共中央总书记、国家主席习近平结束对朝鲜的国事访问离开平壤。
+登录新浪财经APP 搜索【信披】查看更多考评等级 6月11日上午消息，近日，广东鲤享家家居服务有限公司（以下简称“鲤享家”）官方发文称，已就“晶鲤焕新家”品牌与“鲤享家”商标混淆及相关合规争议事宜，正式向中国证监会、深圳证券交易所实名提交举报材料及完整证据。
 
-朝鲜劳动党总书记、国务委员长金正恩和夫人李雪主到机场送行，为习近平和夫人彭丽媛举行隆重的欢送仪式。
+东易日盛在申请撤销退市风险警示及发布争议品牌期间，涉嫌严重的信息披露违规，未如实披露核心品牌存在的重大法律与合规风险。
 
-摄影：谢环驰 李响 燕雁 编辑：徐金泉 李琰 郝昭 虞东升 卢烨 张曼怡
+“晶鲤焕新家”是家装上市公司东易日盛家居装饰集团有限公司（以下简称“东易日盛”）在5月下旬推出的品牌，主打科技赋能家装升级，业务覆盖空间换新、精装升级、局装局改、全案整装四大板块。
+
+东易日盛目前处于“*ST”（退市风险警示）状态，公司在5月已向深交所提交撤销风险警示的申请，申请目前处于补充材料阶段，尚未获批。
+
+鲤享家表示，被举报方在摘帽审核的关键窗口期，多项重大市场动作形成高度紧密的时间关联。
+
+2026年5月，公司集中推出存在商标权属争议的“晶鲤焕新家”新品牌，同期二级市场出现明显股价异常波动；与此同时，其持股5%以上股东天津晨尚咨询有限公司披露大额减持计划，明确自2026年6月2日起正式开启减持窗口期，拟减持股份占公司总股本比例1.5%，以其减持计划公告当日股价测算，对应市值约1.85亿元。
+
+“上述品牌争议落地、股价异动、摘帽申报、大额减持窗口期开启等多项重大事项密集叠加、高度契合，时间线与市场动作高度关联，其背后的合规合理性、信息披露完整性，亟待监管机构全面、审慎核查。
+
+我方认为，上述品牌权属争议、信息披露缺失、股价异常波动与大额减持窗口高度重叠的系列行为，存在重大合规瑕疵与市场风险，系本次监管核查的核心重点。
 
 ## 相关推荐
 
-- 2026-06-30 08:25 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
-- 2026-06-30 08:09 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-30 08:11 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-30 08:15 - [诺伊尔尽力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
-- 2026-06-30 08:27 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-30 08:29 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-30 08:19 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-30 08:35 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
-- 2026-06-30 08:19 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-30 08:27 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-30 08:25 - [德国淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-30 08:37 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
+- 2026-06-30 08:40 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
+- 2026-06-30 08:40 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-30 08:37 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-30 08:27 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-30 08:22 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-30 08:26 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-30 08:24 - [马耳他著名拱门坍塌致中国男子身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-30 08:38 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-30 08:33 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:32 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/253402746.shtml)
-- 2026-06-30 08:35 - [王欣瑜2-1击败科恰雷托](http://www.blog.kurohicncr.top/Article/details/315361.shtml)
-- 2026-06-30 08:34 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/21824432289.shtml)
-- 2026-06-30 08:31 - [IGN评测电影版后室](http://www.share.kurohicncr.top/Article/details/704892.shtml)
-- 2026-06-30 08:11 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/68628.shtml)
-- 2026-06-30 08:18 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.kurohicncr.top/Article/details/5940423922.shtml)
-- 2026-06-30 08:14 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/204784565032.shtml)
-- 2026-06-30 08:15 - [勇士续约波尔津吉斯](http://www.blog.kurohicncr.top/Article/details/777086014.shtml)
-- 2026-06-30 08:08 - [三星投资计划](https://www.share.minike.top/Article/details/88881.shtml)
-- 2026-06-30 08:32 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/20365.shtml)
-- 2026-06-30 08:30 - [一生一世](https://www.blog.kurohicncr.top/Article/details/82082.shtml)
-- 2026-06-30 08:14 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/65450.shtml)
-- 2026-06-30 08:29 - [曝iPhone18Pro机密文件现身暗网](https://www.blog.kurohicncr.top/Article/details/525864.shtml)
-- 2026-06-30 08:24 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/582679.shtml)
-- 2026-06-30 08:11 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/844940718807.shtml)
+- 2026-06-30 08:32 - [张帅晋级温网次轮](https://www.blog.minike.top/Article/details/738939.shtml)
+- 2026-06-30 08:41 - [巴西绝杀日本](https://www.share.minike.top/Article/details/643473276.shtml)
+- 2026-06-30 08:24 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/785764114093.shtml)
+- 2026-06-30 08:30 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/420758.shtml)
+- 2026-06-30 08:23 - [德国连续三届世界杯无缘16强](https://www.share.minike.top/Article/details/3465825448.shtml)
+- 2026-06-30 08:41 - [国务院：稳步推进研究生考试招生改革](https://www.blog.minike.top/Article/details/658247900.shtml)
+- 2026-06-30 08:37 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/22050.shtml)
+- 2026-06-30 08:16 - [世界杯欧洲队7战南美仅1胜](https://www.blog.minike.top/Article/details/30117292611.shtml)
+- 2026-06-30 08:35 - [德国队世界杯点球大战首败](https://www.share.minike.top/Article/details/21914435198.shtml)
+- 2026-06-30 08:18 - [泰山景区回应修建刀片刺绳隔离网](http://www.blog.minike.top/Article/details/670926892.shtml)
+- 2026-06-30 08:14 - [爆冷出局！德国点球大战不敌巴拉圭](https://www.blog.minike.top/Article/details/997167180565.shtml)
+- 2026-06-30 08:30 - [日本半场1比0领先巴西](http://www.blog.kurohicncr.top/Article/details/3181265.shtml)
+- 2026-06-30 08:14 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/698395916753.shtml)
+- 2026-06-30 08:12 - [日本五次世界杯淘汰赛全败](https://www.share.kurohicncr.top/Article/details/541824.shtml)
+- 2026-06-30 08:12 - [AI手机进入Agent时代](http://www.blog.minike.top/Article/details/97879.shtml)

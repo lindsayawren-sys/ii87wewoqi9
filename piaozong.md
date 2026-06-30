@@ -1,52 +1,55 @@
-# 惠誉：预计霍尔木兹海峡重新开放后石油将恢复过剩
+# 新韩银行（中国）被罚249万元：违反账户管理规定等
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-惠誉国际评级认为，目前油价的飙升反映的是“暂时的物流供应冲击“，而非产能的持久损失。惠誉在一份报告中表示：“我们假设该海峡将在7月底左右重新开放，并预计布伦特原油价格将从3月至7月的高位大幅下跌。“其基准情境是，假设霍尔木兹海峡在7月底前重新开放，2026年布伦特原油均价将为每桶87美元。惠誉预计，在该海峡重新开放后，油价将下跌，市场将迅速恢复过剩状态，预计第四季度供应过剩约为
+6月12日金融一线消息，中国人民银行北京市分行行政处罚决定信息公示表显示，新韩银行（中国）有限公司因违反金融统计相关规定；违反账户管理规定；违反人民币流通管理规定；违反反假货币业务管理规定；违反信用信息采集、提供、查询及相关管理规定；未按照规定履行客户身份识别义务；未按规定报送大额交易报告或可疑交易报告；违反网络安全管理规定；违反数据安全管理规定，被中国人民银行北京市分行警告，
 
 ## 正文
 
-惠誉国际评级认为，目前油价的飙升反映的是“暂时的物流供应冲击“，而非产能的持久损失。
+6月12日金融一线消息，中国人民银行北京市分行行政处罚决定信息公示表显示，新韩银行（中国）有限公司因违反金融统计相关规定；违反账户管理规定；违反人民币流通管理规定；违反反假货币业务管理规定；违反信用信息采集、提供、查询及相关管理规定；未按照规定履行客户身份识别义务；未按规定报送大额交易报告或可疑交易报告；违反网络安全管理规定；违反数据安全管理规定，被中国人民银行北京市分行警告，并处罚款2，489，438.43元。
 
-惠誉在一份报告中表示：“我们假设该海峡将在7月底左右重新开放，并预计布伦特原油价格将从3月至7月的高位大幅下跌。
+李某日（新韩银行（中国）有限公司授信业务部）对该行“违反信用信息采集、提供、查询及相关管理规定”的违法行为负有直接责任，被罚款45，000元。
 
-“其基准情境是，假设霍尔木兹海峡在7月底前重新开放，2026年布伦特原油均价将为每桶87美元。
+严某一（新韩银行（中国）有限公司）对该行“未按照规定履行客户身份识别义务；未按规定报送大额交易报告或可疑交易报告”的违法行为负有直接责任，被罚款82，906.43元。
 
-惠誉预计，在该海峡重新开放后，油价将下跌，市场将迅速恢复过剩状态，预计第四季度供应过剩约为400万桶/日，具体取决于欧佩克的政策。
+郑某吉（新韩银行（中国）有限公司零售业务部）对该行“违反账户管理规定”的违法行为负有直接责任，被罚款50，000元。
 
-ICE布伦特原油上涨3.7%，报每桶96.60美元。
-
-责任编辑：王永生
+责任编辑：李琳琳
 
 ## 相关推荐
 
-- 2026-06-30 08:28 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-30 08:35 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-30 08:20 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-30 08:22 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-30 08:16 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
-- 2026-06-30 08:13 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
-- 2026-06-30 08:28 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
-- 2026-06-30 08:11 - [巴西绝杀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-30 08:23 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-30 08:28 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-30 08:38 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-30 08:29 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-30 08:36 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
+- 2026-06-30 08:26 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-30 08:19 - [齐思钧回复张月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-30 08:34 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-30 08:40 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-30 08:26 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-30 08:15 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-30 08:21 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
+- 2026-06-30 08:19 - [诺伊尔尽力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
+- 2026-06-30 08:39 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-30 08:33 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-30 08:36 - [点球大战 残酷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-30 08:33 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:23 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/053273269.shtml)
-- 2026-06-30 08:23 - [达美乐运输面团时被雨淋到 客服回应](http://www.share.minike.top/Article/details/637448310302.shtml)
-- 2026-06-30 08:25 - [一见倾心](https://www.blog.minike.top/Article/details/795299.shtml)
-- 2026-06-30 08:16 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/29401269586.shtml)
-- 2026-06-30 08:35 - [日本五次世界杯淘汰赛全败](https://www.share.minike.top/Article/details/4029074447.shtml)
-- 2026-06-30 08:14 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/21628365.shtml)
-- 2026-06-30 08:29 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/507259.shtml)
-- 2026-06-30 08:13 - [“草莓月亮”浪漫现身](http://www.share.minike.top/Article/details/668546.shtml)
-- 2026-06-30 08:06 - [巴西替补奇兵读秒绝杀](http://www.blog.minike.top/Article/details/383123.shtml)
-- 2026-06-30 08:06 - [武磊：巴西队赢的并不轻松](https://www.blog.minike.top/Article/details/614842371397.shtml)
-- 2026-06-30 08:31 - [峡谷事故团队组队时有人提醒会下雨](https://www.blog.minike.top/Article/details/68586452.shtml)
-- 2026-06-30 08:29 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/196854.shtml)
-- 2026-06-30 08:26 - [德国爆冷点球大战不敌巴拉圭](http://www.share.minike.top/Article/details/1157903.shtml)
-- 2026-06-30 08:11 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/29457167911.shtml)
-- 2026-06-30 08:15 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/790214.shtml)
+- 2026-06-30 08:12 - [二次元提前预演明日巴西对日本](http://www.blog.minike.top/Article/details/042312292064.shtml)
+- 2026-06-30 08:26 - [世界杯“美洲德比”7月1日开打](http://www.share.minike.top/Article/details/70622.shtml)
+- 2026-06-30 08:18 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/277639678.shtml)
+- 2026-06-30 08:23 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/27483575.shtml)
+- 2026-06-30 08:37 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/63136.shtml)
+- 2026-06-30 08:15 - [武磊：巴西队赢的并不轻松](http://www.share.minike.top/Article/details/097339.shtml)
+- 2026-06-30 08:14 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/14574.shtml)
+- 2026-06-30 08:16 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/59431361621.shtml)
+- 2026-06-30 08:37 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/527856734.shtml)
+- 2026-06-30 08:14 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/52429991219.shtml)
+- 2026-06-30 08:21 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/98821643287.shtml)
+- 2026-06-30 08:41 - [警犬“多多”助民警寻回失联老人](https://www.blog.minike.top/Article/details/0369321748.shtml)
+- 2026-06-30 08:22 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/649340228.shtml)
+- 2026-06-30 08:37 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.minike.top/Article/details/21864.shtml)
+- 2026-06-30 08:14 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/52723.shtml)

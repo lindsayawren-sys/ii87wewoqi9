@@ -1,59 +1,57 @@
-# ACI Sky™ Workbench获房利美和房地美认证，全面支持UAD 3.6评估规范
+# 境外间谍利用“谍龟谍鱼”窃取我国海洋敏感数据 国家安全部提示
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-First American Mortgage Solutions公司近日宣布，其ACI Sky™ Workbench平台已获得房利美和房地美的正式认证，确认该平台符合统一评估数据集3.6规范的技术要求。这一认证意味着评估师可立即采用该平台准备新一代评估报告，并确保满足即将于2026年11月2日生效的强制合规要求。 UAD 3.6是房利美和房地美自2018年起联合推进的评估数据
+深蓝之下 暗流涌动 我国是一个陆海兼备的海洋大国，1.8万余公里大陆海岸线和1.4万余公里岛屿岸线组成的海岸蜿蜒绵亘，约300万平方公里的管辖海域浩瀚辽阔。这片广袤的蓝色疆域，是大自然给予中华民族的宝贵馈赠，为我国推动高质量发展、推进中国式现代化提供了战略空间和丰厚资源。然而，在广袤无垠的海面下，一场看不见的窃密暗战正悄然上演…… 海洋窃密手段多样 近年来，国家安全机关工作发现
 
 ## 正文
 
-First American Mortgage Solutions公司近日宣布，其ACI Sky™ Workbench平台已获得房利美和房地美的正式认证，确认该平台符合统一评估数据集3.6规范的技术要求。
+深蓝之下 暗流涌动 我国是一个陆海兼备的海洋大国，1.8万余公里大陆海岸线和1.4万余公里岛屿岸线组成的海岸蜿蜒绵亘，约300万平方公里的管辖海域浩瀚辽阔。
 
-这一认证意味着评估师可立即采用该平台准备新一代评估报告，并确保满足即将于2026年11月2日生效的强制合规要求。
+这片广袤的蓝色疆域，是大自然给予中华民族的宝贵馈赠，为我国推动高质量发展、推进中国式现代化提供了战略空间和丰厚资源。
 
-UAD 3.6是房利美和房地美自2018年起联合推进的评估数据标准改革的最新成果，旨在以更加结构化、数据优先的报告框架取代传统的静态评估表格，从而提升抵押贷款生态系统中评估数据的一致性、准确性和可用性。
+然而，在广袤无垠的海面下，一场看不见的窃密暗战正悄然上演…… 海洋窃密手段多样 近年来，国家安全机关工作发现，境外间谍情报机关通过多种新型间谍设备，持续搜集窃取我海洋敏感数据。
 
-新规要求评估数据须符合MISMO v3.6行业标准，并引入全新的统一住宅评估报告格式，适用于所有房产类型和估值方法。
+——探测浮标。
 
-First American贷款部门总裁表示：“UAD 3.6从根本上改变了评估数据的采集、结构和交付方式。
+例如，在我国某海域发现的球形海洋监测浮标，系境外某海洋研究所投放，顶部装有气象传感套件，底部拖着一条用于固定的锚链，挂载着高精度监听传感器阵列，可以实时搜集周边声波数据和我国潜艇的声纹信息。
 
-ACI Sky Workbench在开发过程中采纳了数百名评估师的反馈意见，打造了一个覆盖从现场勘查到报告提交全流程的一体化云平台。
+——谍龟谍鱼。
 
-获得房利美和房地美的认证，使评估师能够放心地立即采用Workbench，并使用为新一代评估报告量身定制的平台，同时完全符合UAD 3.6规范。
+例如，在我国某海域发现有较大型活体海洋动物被挂上传感器，在特定区域游动，实时收集附近的水温、盐度、洋流等海洋环境敏感数据，并通过卫星向境外传输。
 
-” 通过此次认证，ACI Sky Workbench已正式列入房利美的集成供应商名单和房地美的软件提供商名单。
+——水面航行器。
 
 ## 相关推荐
 
-- 2026-06-30 08:12 - [武磊：巴西队赢的并不轻松](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-30 08:24 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
-- 2026-06-30 08:17 - [王濛回复黄灿灿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-30 08:16 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-30 08:18 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
-- 2026-06-30 08:11 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
-- 2026-06-30 08:32 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-30 08:31 - [王濛回复黄灿灿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-30 08:30 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
-- 2026-06-30 08:26 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-30 08:24 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-30 08:30 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-30 08:28 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-30 08:34 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-30 08:31 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-30 08:25 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-30 08:19 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-30 08:29 - [德国巴拉圭加时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-30 08:17 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-30 08:21 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-30 08:27 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-30 08:13 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-30 08:28 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
+- 2026-06-30 08:20 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:35 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/07604218932.shtml)
-- 2026-06-30 08:10 - [感动全网的699分女生想报考清华](http://www.blog.minike.top/Article/details/221920128.shtml)
-- 2026-06-30 08:07 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/541009.shtml)
-- 2026-06-30 08:15 - [千与千寻](https://www.share.minike.top/Article/details/1961416329.shtml)
-- 2026-06-30 08:32 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](https://www.blog.kurohicncr.top/Article/details/43673394128.shtml)
-- 2026-06-30 08:20 - [穆祉丞回应获年度人气艺人](https://www.blog.minike.top/Article/details/110727.shtml)
-- 2026-06-30 08:11 - [输球后日本球迷被强行披上巴西国旗](https://www.share.minike.top/Article/details/90860943.shtml)
-- 2026-06-30 08:30 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.kurohicncr.top/Article/details/9837798414.shtml)
-- 2026-06-30 08:08 - [4000美元是黄金新一轮下跌的开始吗](https://www.share.kurohicncr.top/Article/details/902555.shtml)
-- 2026-06-30 08:34 - [德国淘汰](https://www.blog.kurohicncr.top/Article/details/5398050718.shtml)
-- 2026-06-30 08:08 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/483070140175.shtml)
-- 2026-06-30 08:25 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.kurohicncr.top/Article/details/399747489877.shtml)
-- 2026-06-30 08:25 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.minike.top/Article/details/1520509313.shtml)
-- 2026-06-30 08:17 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/2176549.shtml)
-- 2026-06-30 08:13 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/3099625283.shtml)
+- 2026-06-30 08:35 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.kurohicncr.top/Article/details/27278313.shtml)
+- 2026-06-30 08:15 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/00099.shtml)
+- 2026-06-30 08:39 - [为什么会有「念旧」的心理？](http://www.blog.kurohicncr.top/Article/details/06470219.shtml)
+- 2026-06-30 08:36 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/7379787.shtml)
+- 2026-06-30 08:41 - [藤森庆子赢得秘鲁总统选举](http://www.share.minike.top/Article/details/8959687.shtml)
+- 2026-06-30 08:38 - [DeepSeek启动成立来最大规模招聘](https://www.blog.minike.top/Article/details/41377918.shtml)
+- 2026-06-30 08:36 - [董卿父亲报纸上发文悼念亡妻](http://www.blog.minike.top/Article/details/88387746.shtml)
+- 2026-06-30 08:36 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/18922189.shtml)
+- 2026-06-30 08:22 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/608837.shtml)
+- 2026-06-30 08:29 - [湖南祁东原文化馆被指贱卖](https://www.share.kurohicncr.top/Article/details/556776344079.shtml)
+- 2026-06-30 08:20 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/663467058.shtml)
+- 2026-06-30 08:38 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.minike.top/Article/details/6808113803.shtml)
+- 2026-06-30 08:21 - [田中碧失误](http://www.blog.kurohicncr.top/Article/details/054761.shtml)
+- 2026-06-30 08:27 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.kurohicncr.top/Article/details/29821095.shtml)
+- 2026-06-30 08:24 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/931453.shtml)

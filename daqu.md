@@ -1,59 +1,56 @@
-# 美国债市：美债维持涨势 油价走低且3年期国债标售稳健
+# SpaceX发行价敲定135美元，马斯克个人财富将达1.1万亿美元
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-美国国债周二收盘接近盘中高点，收益率曲线全线下跌3个基点至4个基点，短债和中期债券领涨，导致利差走陡。油价依然是日内推动美债走势的关键因素，原油价格全天普遍走低。美国3年期国债中标收益率略高于发行前交易水平，投标指标稳健，市场反应平淡。 纽约时间下午3点刚过，美国10年期国债收益率接近盘中低点，日内下跌约3.5个基点，交投于4.525%。短债和中期债券领涨推动2s10s利差和5
+SpaceX周四宣布其首次公开募股（IPO）定价为每股135美元。此举将促成史上规模最大的IPO，募资额约为750亿美元。 这也将使埃隆·马斯克的个人财富达到惊人的1万亿美元，成为全球首位达到这一里程碑的亿万富翁。 根据福布斯和彭博的富豪榜，马斯克此前已是全球首富。如果他带领特斯拉汽车公司达成特定里程碑，他还将获得万亿美元的薪酬。而SpaceX的IPO将使他更早成为全球首位万亿
 
 ## 正文
 
-美国国债周二收盘接近盘中高点，收益率曲线全线下跌3个基点至4个基点，短债和中期债券领涨，导致利差走陡。
+SpaceX周四宣布其首次公开募股（IPO）定价为每股135美元。
 
-油价依然是日内推动美债走势的关键因素，原油价格全天普遍走低。
+此举将促成史上规模最大的IPO，募资额约为750亿美元。
 
-美国3年期国债中标收益率略高于发行前交易水平，投标指标稳健，市场反应平淡。
+这也将使埃隆·马斯克的个人财富达到惊人的1万亿美元，成为全球首位达到这一里程碑的亿万富翁。
 
-纽约时间下午3点刚过，美国10年期国债收益率接近盘中低点，日内下跌约3.5个基点，交投于4.525%。
+根据福布斯和彭博的富豪榜，马斯克此前已是全球首富。
 
-短债和中期债券领涨推动2s10s利差和5s30s利差较周一收盘分别扩大0.8个基点和1.5个基点。
+如果他带领特斯拉汽车公司达成特定里程碑，他还将获得万亿美元的薪酬。
 
-美国3年期国债中标收益率较投标截止时的发行前交易水平高0.3个基点。
+而SpaceX的IPO将使他更早成为全球首位万亿美元富翁，至少在账面上是如此。
 
-一级交易商获配比例为15.3%，低于上次，间接投标人获配比升至63.7%，直接投标人获配比例为21%。
+根据 SpaceX 披露的信息，马斯克持有该公司大约一半的股份，其中包括他在未来可能因将数据中心发射到太空和在火星上建立人类定居点等成就而赚取的股份。
 
-投标倍数与此前的发行水平大致持平。
+按周四公布的IPO价格计算，马斯克持有的SpaceX股份价值约8670亿美元。
 
 ## 相关推荐
 
-- 2026-06-30 08:10 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-30 08:17 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-30 08:16 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-30 08:11 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
-- 2026-06-30 08:08 - [杨紫学位证上就是杨紫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-30 08:28 - [追梦拒绝2770万美元球员选项](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-30 08:35 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-30 08:12 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-30 08:27 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-30 08:11 - [齐思钧回复张月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-30 08:15 - [存储芯片龙头提示风险](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-30 08:29 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
-- 2026-06-30 08:20 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-30 08:13 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-30 08:34 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-30 08:36 - [王楚钦孙颖莎晋级混双八强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-30 08:27 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-30 08:35 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-30 08:27 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-30 08:38 - [王濛回复黄灿灿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-30 08:28 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
+- 2026-06-30 08:16 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-30 08:38 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:09 - [哈弗茨头球破门](http://www.blog.minike.top/Article/details/30756006192.shtml)
-- 2026-06-30 08:06 - [我觉得你是在无中生友](https://www.share.kurohicncr.top/Article/details/9166672.shtml)
-- 2026-06-30 08:32 - [男子在京东买到“同仁堂”假药](https://www.blog.kurohicncr.top/Article/details/81327302.shtml)
-- 2026-06-30 08:31 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/8772264.shtml)
-- 2026-06-30 08:24 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/91470.shtml)
-- 2026-06-30 08:08 - [追梦拒绝2770万美元球员选项](https://www.share.kurohicncr.top/Article/details/6143871.shtml)
-- 2026-06-30 08:21 - [勇敢的心第二部](https://www.share.minike.top/Article/details/13276172.shtml)
-- 2026-06-30 08:31 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/525942037969.shtml)
-- 2026-06-30 08:10 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/07465.shtml)
-- 2026-06-30 08:13 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/562615769.shtml)
-- 2026-06-30 08:16 - [德国巴拉圭进入点球大战](https://www.share.minike.top/Article/details/9305513.shtml)
-- 2026-06-30 08:11 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/644018019175.shtml)
-- 2026-06-30 08:27 - [流金岁月](http://www.share.minike.top/Article/details/0953581310.shtml)
-- 2026-06-30 08:07 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/38766724182.shtml)
-- 2026-06-30 08:21 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/489541780219.shtml)
+- 2026-06-30 08:16 - [有什么好的高中网课推荐吗？](https://www.share.minike.top/Article/details/84646.shtml)
+- 2026-06-30 08:37 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/797557.shtml)
+- 2026-06-30 08:40 - [藤森庆子赢得秘鲁总统选举](http://www.blog.minike.top/Article/details/05544677.shtml)
+- 2026-06-30 08:24 - [王楚钦说配合稍微有些陌生感](https://www.share.minike.top/Article/details/15240124200.shtml)
+- 2026-06-30 08:33 - [啊啊啊](https://www.blog.minike.top/Article/details/78843112.shtml)
+- 2026-06-30 08:14 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/5786964964.shtml)
+- 2026-06-30 08:38 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/504914773528.shtml)
+- 2026-06-30 08:32 - [苗族银饰](http://www.blog.kurohicncr.top/Article/details/50275.shtml)
+- 2026-06-30 08:16 - [王楚钦说配合稍微有些陌生感](https://www.share.kurohicncr.top/Article/details/7048957.shtml)
+- 2026-06-30 08:21 - [巴西替补奇兵读秒绝杀](http://www.blog.kurohicncr.top/Article/details/59153.shtml)
+- 2026-06-30 08:23 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/7102220.shtml)
+- 2026-06-30 08:38 - [库尼亚赛后伸五指嘲讽日本](http://www.blog.kurohicncr.top/Article/details/8666717283.shtml)
+- 2026-06-30 08:21 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/483580139114.shtml)
+- 2026-06-30 08:35 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/204985.shtml)
+- 2026-06-30 08:37 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/2155656068.shtml)

@@ -1,56 +1,57 @@
-# 东西问·古典学丨短评：当世界古典学大会适逢“文明对话国际日”
+# 万丰奥威为回笼资金再出售高溢价收购资产 "输血"大股东近50亿持续盈利仍缺钱
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-中新社北京6月9日电 题：当世界古典学大会适逢“文明对话国际日” 中新社记者 韩禹 第二届世界古典学大会6月9日至10日在希腊雅典举行。大会今年由中国北京传递至希腊雅典，来自不同文明传统的学者共论“古今对话：古典智慧的现代启示”，在“文明对话国际日”共话文明。 6月10日，是第二个“文明对话国际日”。世界古典学大会此际登场，让古老文明间的对话更具现实意味。 在技术急速推进、地缘
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经上市公司研究院 作者：昊 日前，万丰奥威（维权）公告，拟出售全资子公司上海达克罗涂复工业有限公司（以下称“上海达克罗”）100%股权，交易价格为5亿元。交易预计导致年内净利润缩水约1685万元，所得款项将用于归还银行贷款和补充流动资金。 上海达
 
 ## 正文
 
-中新社北京6月9日电 题：当世界古典学大会适逢“文明对话国际日” 中新社记者 韩禹 第二届世界古典学大会6月9日至10日在希腊雅典举行。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-大会今年由中国北京传递至希腊雅典，来自不同文明传统的学者共论“古今对话：古典智慧的现代启示”，在“文明对话国际日”共话文明。
+出品：新浪财经上市公司研究院 作者：昊 日前，万丰奥威（维权）公告，拟出售全资子公司上海达克罗涂复工业有限公司（以下称“上海达克罗”）100%股权，交易价格为5亿元。
 
-6月10日，是第二个“文明对话国际日”。
+交易预计导致年内净利润缩水约1685万元，所得款项将用于归还银行贷款和补充流动资金。
 
-世界古典学大会此际登场，让古老文明间的对话更具现实意味。
+上海达克罗被万丰奥威收购于13年前，收购溢价高达22倍，期间稳定对上市公司贡献业绩，此次出售似乎也是迫不得已。
 
-在技术急速推进、地缘冲突不断外溢的今天，世界为什么还需要古典学？
+事实上，万丰奥威还曾以11亿出售13.2亿收购的无锡雄伟，为回笼资金，不仅交易账面亏损，商誉也不断减值，进一步拖累业绩。
 
-古典学最初主要指对古希腊罗马语言、文学、历史、哲学和制度的研究，后来扩展为对不同文明早期经典传统的系统理解。
+近几年，万丰奥威陆续收购控股股东的多项资产，累计耗资近50亿，尽管期间一直保持盈利，经营现金流也持续净流入，叠加上述资产变现回笼的资金，但资金依旧捉襟见肘，公司有息负债远超货币资金，债务持续承压。
 
-所谓“古典”，并非一切古老书籍皆可冠名，而是专指那些在漫长历史积淀中持续塑造文明的文本。
+此外，万丰奥威与控股股东之间还曾存在违规资金往来，持续输血大股东的嫌疑值得关注。
 
-它往往包含着人类文明进程中的基本问题——人如何受教育？
+两次出售高溢价收购所得资产 商誉大增后又持续减值 6月9日，万丰奥威宣布以5亿元出售上海达克罗100%股权，该交易预计导致年内净利润缩水约1685万元，所得款项将用于归还银行贷款和补充流动资金。
 
 ## 相关推荐
 
-- 2026-06-30 08:26 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-30 08:14 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
-- 2026-06-30 08:26 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-30 08:29 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-30 08:12 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
-- 2026-06-30 08:14 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-30 08:35 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-30 08:16 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-30 08:34 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-30 08:32 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-30 08:38 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-30 08:40 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-30 08:27 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-30 08:28 - [巴西绝杀日本：漫画般结局换了主角](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-30 08:29 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
+- 2026-06-30 08:36 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-30 08:37 - [董路：谁赢谁是“正路子”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-30 08:17 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-30 08:14 - [第3集丨“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-30 08:36 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-30 08:12 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:07 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/429541.shtml)
-- 2026-06-30 08:31 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/34210.shtml)
-- 2026-06-30 08:23 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/84463.shtml)
-- 2026-06-30 08:22 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/8934807151.shtml)
-- 2026-06-30 08:30 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/783516361281.shtml)
-- 2026-06-30 08:06 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/99871310812.shtml)
-- 2026-06-30 08:26 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/2768291569.shtml)
-- 2026-06-30 08:23 - [DeepSeek启动成立来最大规模招聘](http://www.blog.minike.top/Article/details/05869124.shtml)
-- 2026-06-30 08:32 - [高考填志愿父亲和女儿产生分歧](http://www.share.minike.top/Article/details/11983204853.shtml)
-- 2026-06-30 08:14 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](http://www.share.minike.top/Article/details/806105721706.shtml)
-- 2026-06-30 08:25 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/02969982.shtml)
-- 2026-06-30 08:10 - [有酒店推行24小时退房制](https://www.share.minike.top/Article/details/00911751504.shtml)
-- 2026-06-30 08:06 - [第一炉香](http://www.share.minike.top/Article/details/0155541.shtml)
-- 2026-06-30 08:34 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/358331.shtml)
-- 2026-06-30 08:26 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/90055382751.shtml)
+- 2026-06-30 08:37 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/2724078655.shtml)
+- 2026-06-30 08:18 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/618825.shtml)
+- 2026-06-30 08:27 - [森保一致歉：世界第一目标没能实现](http://www.share.minike.top/Article/details/32257012.shtml)
+- 2026-06-30 08:14 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/6519942786.shtml)
+- 2026-06-30 08:28 - [“草莓月亮”浪漫现身](http://www.blog.minike.top/Article/details/026821417.shtml)
+- 2026-06-30 08:26 - [张雪的一句“是我们”引发岛内热议](http://www.blog.kurohicncr.top/Article/details/187519284345.shtml)
+- 2026-06-30 08:19 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/2913228.shtml)
+- 2026-06-30 08:31 - [爆冷出局！德国点球大战不敌巴拉圭](https://www.blog.minike.top/Article/details/32276.shtml)
+- 2026-06-30 08:32 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.minike.top/Article/details/69056.shtml)
+- 2026-06-30 08:23 - [沉睡花园](http://www.share.minike.top/Article/details/56336610.shtml)
+- 2026-06-30 08:13 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/624901.shtml)
+- 2026-06-30 08:39 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/65257428.shtml)
+- 2026-06-30 08:26 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/009969679.shtml)
+- 2026-06-30 08:38 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/502558070.shtml)
+- 2026-06-30 08:29 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/90768.shtml)

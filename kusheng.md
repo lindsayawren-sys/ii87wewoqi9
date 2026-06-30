@@ -1,56 +1,60 @@
-# 南宁海关2026年-2027年办公区物业管理服务采购项目公开招标公告
+# 4连板牛股，直线跳水跌停！封单超百万手
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-南宁海关2026年-2027年办公区物业管理服务采购项目 (项目编号：GXJD-26131YQ061211)公开招标公告 项目概况：南宁海关2026年-2027年办公区物业管理服务采购项目的潜在投标人应在精彩纵横云采购平台网站(网址：https://www.jczh.com/)获取招标文件，并于 2026年6月26日 09:30(北京时间)前递交投标文件。 一、项目基本情况 项
+4连板的天娱数科（002354）开盘快速跳水，2分钟即封死跌停。 具体来看，物理AI概念11日盘中集体跳水，截至发稿，凡拓数创跌超17%，索辰科技、绿的谐波跌超10%，天娱数科、能科科技、达实智能等跌停，中望软件跌超8%。 值得注意的是，天娱数科开盘后快速跳水跌停，截至发稿，该股报7.98元/股，跌停板上封单超100万手。此前（6月5日—6月10日），该股已连续4个交易日涨停。
 
 ## 正文
 
-南宁海关2026年-2027年办公区物业管理服务采购项目 (项目编号：GXJD-26131YQ061211)公开招标公告 项目概况：南宁海关2026年-2027年办公区物业管理服务采购项目的潜在投标人应在精彩纵横云采购平台网站(网址：https://www.jczh.com/)获取招标文件，并于 2026年6月26日 09:30(北京时间)前递交投标文件。
+4连板的天娱数科（002354）开盘快速跳水，2分钟即封死跌停。
 
-一、项目基本情况 项目编号：GXJD-26131YQ061211项目名称：南宁海关2026年-2027年办公区物业管理服务采购项目 预算总金额(元)：439.000000万元(人民币) 采购需求： 标项名称：南宁海关2026年-2027年办公区物业管理服务采购项目 数量：1项 预算金额(元)：4390000.00元 简要规格描述或项目基本概况介绍、用途：中柬办公区、滨湖办公区、桃源办公区等区域的物业服务采购，具体内容详见招标文件。
+具体来看，物理AI概念11日盘中集体跳水，截至发稿，凡拓数创跌超17%，索辰科技、绿的谐波跌超10%，天娱数科、能科科技、达实智能等跌停，中望软件跌超8%。
 
-最高限价(如有)：4390000.00元 服务期限：自合同签订起1年 本项目不接受联合体投标。
+值得注意的是，天娱数科开盘后快速跳水跌停，截至发稿，该股报7.98元/股，跌停板上封单超100万手。
 
-二、申请人的资格要求 1.满足《中华人民共和国政府采购法》第二十二条规定； 2.落实政府采购政策需满足的资格要求：本项目专门面向小微企业采购，投标人均为小微企业或残疾人福利企业或监狱企业。
+此前（6月5日—6月10日），该股已连续4个交易日涨停。
 
-3.本项目的特定资格要求 (1)资质要求：无。
+公司10日晚间发布公告提示称，截至6月10日，公司股票收盘价格为8.87元/股，股票连续4个交易日涨停，股票价格短期涨幅较大，存在市场情绪过热及非理性炒作情形，存在快速下跌的风险，请广大投资者务必充分了解二级市场交易风险，理性决策，审慎投资。
 
-(2)业绩要求：无。
+经自查，公司目前生产经营活动正常。
 
-(3)单位负责人为同一人或者存在直接控股、管理关系的不同投标人，不得参加本项目同一合同项下的政府采购活动。
+公司已披露的市场环境、内外部生产经营环境未发生重大变化。
 
-为本项目提供整体设计、规范编制或者项目管理、监理、检测等服务的投标人，不得再参加本项目的采购活动。
+公司不存在应披露而未披露的重大事项，或处于筹划阶段的重大事项。
 
 ## 相关推荐
 
-- 2026-06-30 08:11 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
-- 2026-06-30 08:35 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-30 08:29 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
-- 2026-06-30 08:15 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-30 08:23 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-30 08:32 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-30 08:21 - [森保一致歉：世界第一目标没能实现](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-30 08:33 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-30 08:31 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-30 08:29 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-30 08:22 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-30 08:18 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-30 08:37 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-30 08:28 - [全新问界M9现身美国街头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-30 08:28 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
+- 2026-06-30 08:28 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-30 08:38 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-30 08:37 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-30 08:39 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-30 08:30 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
+- 2026-06-30 08:15 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-30 08:12 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-30 08:19 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-30 08:16 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:16 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/66328116.shtml)
-- 2026-06-30 08:19 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/2424172.shtml)
-- 2026-06-30 08:24 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/50334884913.shtml)
-- 2026-06-30 08:06 - [巴西2-1绝杀日本](http://www.blog.minike.top/Article/details/7370128195.shtml)
-- 2026-06-30 08:25 - [爆冷出局！德国点球大战不敌巴拉圭](https://www.blog.kurohicncr.top/Article/details/10802375.shtml)
-- 2026-06-30 08:32 - [天道](http://www.blog.minike.top/Article/details/64730612716.shtml)
-- 2026-06-30 08:10 - [武磊：日本队有能力跟任何强队抗衡](http://www.share.kurohicncr.top/Article/details/4131424482.shtml)
-- 2026-06-30 08:29 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/2815679.shtml)
-- 2026-06-30 08:18 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/67539444.shtml)
-- 2026-06-30 08:18 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/361028156.shtml)
-- 2026-06-30 08:23 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/95910.shtml)
-- 2026-06-30 08:20 - [老外对中国cosplay竟这样评价…](http://www.share.minike.top/Article/details/76186200596.shtml)
-- 2026-06-30 08:23 - [爆冷出局！德国点球大战不敌巴拉圭](http://www.share.minike.top/Article/details/893403220.shtml)
-- 2026-06-30 08:09 - [啊啊啊](http://www.share.minike.top/Article/details/226038493254.shtml)
-- 2026-06-30 08:11 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/64142851129.shtml)
+- 2026-06-30 08:36 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/26446.shtml)
+- 2026-06-30 08:21 - [德国巴拉圭 折磨](https://www.share.minike.top/Article/details/6972307950.shtml)
+- 2026-06-30 08:12 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.kurohicncr.top/Article/details/78294.shtml)
+- 2026-06-30 08:37 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/985764585786.shtml)
+- 2026-06-30 08:41 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.minike.top/Article/details/416245027178.shtml)
+- 2026-06-30 08:15 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.minike.top/Article/details/684207897.shtml)
+- 2026-06-30 08:17 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/3014635904.shtml)
+- 2026-06-30 08:17 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/44735.shtml)
+- 2026-06-30 08:19 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/18597.shtml)
+- 2026-06-30 08:35 - [啊啊啊](https://www.share.minike.top/Article/details/29963.shtml)
+- 2026-06-30 08:24 - [男子身高一米八二仍做断骨增高](http://www.blog.kurohicncr.top/Article/details/434719854.shtml)
+- 2026-06-30 08:30 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/8418954.shtml)
+- 2026-06-30 08:30 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/5295275024.shtml)
+- 2026-06-30 08:29 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.blog.minike.top/Article/details/46417.shtml)
+- 2026-06-30 08:38 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/677996208112.shtml)

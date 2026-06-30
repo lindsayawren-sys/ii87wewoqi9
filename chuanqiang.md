@@ -1,59 +1,56 @@
-# 告别泡泡玛特、老铺黄金，广发基金吴远怡在管广发价值核心混合“风格漂移”
+# 直面新能源车险“两难”痛点，多地出手施策破题！还有哪些关要闯？
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-来源：财报星球 原标题：告别泡泡玛特、老铺黄金，广发基金吴远怡在管基金“风格漂移” 卸任百亿规模基金产品，广发基金吴远怡在管基金仍面临合规考验。 6月3日，广发基金发布了一则人事公告，号称“爆款捕手”的吴远怡在同日卸任了广发成长领航一年持有、广发创新升级以及广发小盘成长3只产品的基金经理职务。 这位曾经的百亿主动权益基金经理，因为提前押中泡泡玛特、老铺黄金等爆款标的而声名鹊起。
+来源：中保新知 当前，新能源车险既是推动新能源汽车产业发展、拉动财险行业增长的关键抓手，也是关乎千万车主用车保障的民生议题。 近日，堪称中国“最电动”、新能源汽车渗透率领先的深圳，最新发布《关于促进深圳新能源车险高质量发展若干措施的通知》，推出十项政策举措，从产品创新、数据共享、定价优化到维修降本全方位探索行业新生态，被业内称为“深十条”。继“深十条”后，日前，重庆监管局公布对
 
 ## 正文
 
-来源：财报星球 原标题：告别泡泡玛特、老铺黄金，广发基金吴远怡在管基金“风格漂移” 卸任百亿规模基金产品，广发基金吴远怡在管基金仍面临合规考验。
+来源：中保新知 当前，新能源车险既是推动新能源汽车产业发展、拉动财险行业增长的关键抓手，也是关乎千万车主用车保障的民生议题。
 
-6月3日，广发基金发布了一则人事公告，号称“爆款捕手”的吴远怡在同日卸任了广发成长领航一年持有、广发创新升级以及广发小盘成长3只产品的基金经理职务。
+近日，堪称中国“最电动”、新能源汽车渗透率领先的深圳，最新发布《关于促进深圳新能源车险高质量发展若干措施的通知》，推出十项政策举措，从产品创新、数据共享、定价优化到维修降本全方位探索行业新生态，被业内称为“深十条”。
 
-这位曾经的百亿主动权益基金经理，因为提前押中泡泡玛特、老铺黄金等爆款标的而声名鹊起。
+继“深十条”后，日前，重庆监管局公布对市政协六届四次会议相关提案的答复中，亦聚焦高赔付风险新能源汽车投保难、承保压力大问题给出相关扶持政策。
 
-如今，收缩战线的吴远怡如何再出发？
+实际上，近年围绕新能源车险“车主喊贵、险企叫亏”两难问题的讨论始终不断，尤其在2024年我国新能源商业车险年度保费首次突破千亿元、2025年达到1900亿元后，新能源车险能否顺利转向精细化运营、破解“两难”痛点，已成为这一黄金赛道能否释放长线增长势能的必答题。
 
-卸任押中“爆款”的基金产品 在公募江湖，吴远怡的崛起路径极具辨识度。
+同时需要看到，新能源车险已成为诸多财险公司的必争之地，但当前市场分化加剧，财险“老三家”在2025年保费合计占比超76%，马太效应凸显，承保盈利承压叠加竞争加剧下，中小险企该如何有效突围，分到一杯羹？
 
-这位拥有理学硕士学位的基金经理，曾任职于申银万国证券研究所、惠理基金（香港）及中国人寿资产，2020年加入广发基金。
+破题加速 地方政策密集出台 “每3辆汽车就有1辆挂绿牌，目前新能源汽车保有量已超150万辆，新车新能源渗透率超80%。
 
-其真正的“封神之作”无疑是广发成长领航一年持有。
+”这是今年初深圳市生态环境局公布的一组数据。
 
-截至2026年6月初，吴远怡在该产品的任职回报高达181.69%，同类平均为31.02%，在同期6700余只同类产品中排名第122位。
+作为新能源车险渗透率最高、也是全球新能源汽车产业链最完整的城市之一，深圳金融监管局、工信局、交通运输局、商务局近日联合印发“深十条”，从产品创新、定价改革和产业协同三个维度系统施策。
 
 ## 相关推荐
 
-- 2026-06-30 08:10 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-30 08:24 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-30 08:30 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-30 08:27 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-30 08:13 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
-- 2026-06-30 08:25 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-30 08:28 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-30 08:09 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-30 08:25 - [萨内 看笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
-- 2026-06-30 08:10 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-30 08:28 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-30 08:15 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-30 08:23 - [董路：谁赢谁是“正路子”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-30 08:30 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-30 08:17 - [王楚钦说配合稍微有些陌生感](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-30 08:38 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
+- 2026-06-30 08:37 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-30 08:32 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
+- 2026-06-30 08:24 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
+- 2026-06-30 08:34 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-30 08:19 - [巴拉圭点球大战淘汰德国进16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
+- 2026-06-30 08:17 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-30 08:39 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:10 - [巴西绝杀日本](http://www.blog.kurohicncr.top/Article/details/54797148876.shtml)
-- 2026-06-30 08:24 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/181142.shtml)
-- 2026-06-30 08:21 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/961979697186.shtml)
-- 2026-06-30 08:27 - [世界杯巴拉圭点球淘汰德国](http://www.share.kurohicncr.top/Article/details/97881879.shtml)
-- 2026-06-30 08:13 - [德国vs巴拉圭](https://www.blog.kurohicncr.top/Article/details/1925899.shtml)
-- 2026-06-30 08:27 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/3580881.shtml)
-- 2026-06-30 08:16 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.blog.minike.top/Article/details/484210.shtml)
-- 2026-06-30 08:34 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/3269448322.shtml)
-- 2026-06-30 08:32 - [巴拉圭进球](http://www.share.minike.top/Article/details/226120154571.shtml)
-- 2026-06-30 08:17 - [上市央企地产商 两年换了三任董事长](http://www.share.minike.top/Article/details/432401420108.shtml)
-- 2026-06-30 08:35 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/8653435352.shtml)
-- 2026-06-30 08:18 - [千与千寻](https://www.share.kurohicncr.top/Article/details/0389900888.shtml)
-- 2026-06-30 08:29 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/25110.shtml)
-- 2026-06-30 08:28 - [王楚钦说配合稍微有些陌生感](https://www.blog.minike.top/Article/details/44070759.shtml)
-- 2026-06-30 08:20 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.share.minike.top/Article/details/453949336.shtml)
+- 2026-06-30 08:16 - [日本遭读秒绝杀 森保一：我水平不够](https://www.share.kurohicncr.top/Article/details/98600.shtml)
+- 2026-06-30 08:19 - [输球后日本球迷被强行披上巴西国旗](http://www.share.minike.top/Article/details/7989854046.shtml)
+- 2026-06-30 08:41 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/291726.shtml)
+- 2026-06-30 08:38 - [索马里女大使：想和中国一起搞事业](http://www.blog.kurohicncr.top/Article/details/193177.shtml)
+- 2026-06-30 08:15 - [千与千寻](https://www.blog.minike.top/Article/details/803167.shtml)
+- 2026-06-30 08:16 - [男子醉酒溺水获救后同行人拒协助抬人](http://www.share.kurohicncr.top/Article/details/45367415169.shtml)
+- 2026-06-30 08:21 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/0978819.shtml)
+- 2026-06-30 08:16 - [日本淘汰](https://www.blog.kurohicncr.top/Article/details/06458.shtml)
+- 2026-06-30 08:41 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.share.kurohicncr.top/Article/details/48260664.shtml)
+- 2026-06-30 08:21 - [日本队主帅道歉](http://www.share.minike.top/Article/details/25151926748.shtml)
+- 2026-06-30 08:23 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/4687585418.shtml)
+- 2026-06-30 08:41 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/316565829.shtml)
+- 2026-06-30 08:15 - [日本进球](https://www.share.minike.top/Article/details/24353.shtml)
+- 2026-06-30 08:26 - [王濛回复黄灿灿](https://www.share.minike.top/Article/details/96943531.shtml)
+- 2026-06-30 08:34 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/037203942343.shtml)

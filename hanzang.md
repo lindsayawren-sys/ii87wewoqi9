@@ -1,57 +1,58 @@
-# 吴伯凡观影《AI世界杯》：在一次次 “不看好” 中，看见联想四十多年的长期主义
+# 迎接2026 FIFA世界杯：贝克汉姆见证联想AI创新体验落地中国
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-联想集团XFIFA国际足联《AI世界杯》纪录片专场观影沙龙于6月8日在北京举办，知名商业观察家、财经评论人吴伯凡出席并发言。 “看完这部纪录片，我感触最深的就是‘不看好’这三个字。”吴伯凡直言，项目初期，研发团队遭遇FIFA数据不予开放等难题，合作推进举步维艰，多亏联想从中斡旋，推动FIFA与央视顺利达成转播合作。而从困境到落地突破的全过程，也和联想一路走来的企业气质高度契合。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！北京时间6月12日凌晨，2026年FIFA世界杯在墨西哥城阿兹特克球场正式开幕。作为历史上规模最大的一届世界杯，本届赛事将迎来48支球队、104场比赛，并覆盖全球数十亿观众，其中也包括数以亿计的中国球迷。与此同时，人工智能正在深度融入赛事运营、球队备战、比赛呈现与球迷互动，让世界杯成为全球最具代表性的AI应
 
 ## 正文
 
-联想集团XFIFA国际足联《AI世界杯》纪录片专场观影沙龙于6月8日在北京举办，知名商业观察家、财经评论人吴伯凡出席并发言。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-“看完这部纪录片，我感触最深的就是‘不看好’这三个字。
+北京时间6月12日凌晨，2026年FIFA世界杯在墨西哥城阿兹特克球场正式开幕。
 
-”吴伯凡直言，项目初期，研发团队遭遇FIFA数据不予开放等难题，合作推进举步维艰，多亏联想从中斡旋，推动FIFA与央视顺利达成转播合作。
+作为历史上规模最大的一届世界杯，本届赛事将迎来48支球队、104场比赛，并覆盖全球数十亿观众，其中也包括数以亿计的中国球迷。
 
-而从困境到落地突破的全过程，也和联想一路走来的企业气质高度契合。
+与此同时，人工智能正在深度融入赛事运营、球队备战、比赛呈现与球迷互动，让世界杯成为全球最具代表性的AI应用场景之一。
 
-他回顾经典商业案例，2004年联想宣布收购IBM PC业务时，这场“蛇吞象”式收购当时遭到外界普遍质疑。
+为与中国球迷共同迎接这场足球盛会，北京时间6月11日晚，2026 FIFA世界杯联想嘉年华在北京举办。
 
-但二十余年过去，联想用亮眼成绩回应所有争议，一次次在“不被看好”的目光中悄然蜕变，交出令人惊喜的答卷。
+联想集团全球代言人、国际足球传奇巨星大卫·贝克汉姆亲临现场，与中国社会科学院大学教授、国家数据专家咨询委员会主任、国务院原副秘书长江小涓；联想集团高级副总裁、首席战略官和首席市场官乔健等嘉宾共同见证AI与足球融合带来的全新体验。
 
-他回忆2010年南非世界杯，彼时中国元素虽随处可见，但当时中国企业大多零散亮相，未能形成影响力。
+“AI与体育高度适配，技术正在全方位改变参赛与观赛体验，所能带来的价值是非常明显的。
 
-时隔16年，联想正式成为世界杯官方技术合作伙伴，这样的跨越在当年看来难以想象，也正是中国企业出海之路不断进阶的真实缩影。
+”江小涓现场表示，“希望诸如联想这样具备技术创新能力的企业，能够将服务世界杯顶级赛事所积累的技术能力，进一步应用到中国足球和体育事业的发展中来。
 
 ## 相关推荐
 
-- 2026-06-30 08:13 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-30 08:10 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-30 08:17 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
-- 2026-06-30 08:23 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-30 08:10 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-30 08:20 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
-- 2026-06-30 08:10 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-30 08:14 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-30 08:17 - [网友写差评被店家“挂”门口避雷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-30 08:06 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-30 08:13 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-30 08:29 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-30 08:13 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-30 08:18 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-30 08:21 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
+- 2026-06-30 08:17 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-30 08:29 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-30 08:33 - [王濛回复黄灿灿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-30 08:28 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-30 08:39 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-30 08:24 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-30 08:37 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-30 08:14 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:26 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/90629532584.shtml)
-- 2026-06-30 08:13 - [日本博主：日本足球真的垃圾](http://www.share.minike.top/Article/details/3484751.shtml)
-- 2026-06-30 08:12 - [德国连续三届世界杯无缘16强](http://www.blog.kurohicncr.top/Article/details/499234675.shtml)
-- 2026-06-30 08:25 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://www.share.kurohicncr.top/Article/details/6698871.shtml)
-- 2026-06-30 08:21 - [巴西2-1绝杀日本](http://www.blog.minike.top/Article/details/649900872.shtml)
-- 2026-06-30 08:11 - [郑钦文温网三连败西尼亚科娃](https://www.share.kurohicncr.top/Article/details/6549480446.shtml)
-- 2026-06-30 08:29 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.minike.top/Article/details/022592995.shtml)
-- 2026-06-30 08:27 - [韩国球迷凌晨4点接机怒骂主教练](http://www.share.minike.top/Article/details/96233180188.shtml)
-- 2026-06-30 08:31 - [这一刀 会很帅](https://www.share.minike.top/Article/details/29228.shtml)
-- 2026-06-30 08:18 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/166760770.shtml)
-- 2026-06-30 08:24 - [沙丘](http://www.share.minike.top/Article/details/91750048468.shtml)
-- 2026-06-30 08:29 - [森保一致歉：世界第一目标没能实现](http://www.share.minike.top/Article/details/1876357043.shtml)
-- 2026-06-30 08:23 - [日本 高位逼抢](https://www.blog.minike.top/Article/details/13957.shtml)
-- 2026-06-30 08:09 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/35437307174.shtml)
-- 2026-06-30 08:19 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/59599.shtml)
+- 2026-06-30 08:32 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/78656791.shtml)
+- 2026-06-30 08:24 - [【大鸣王潮1566】真拿你没办法](https://www.blog.kurohicncr.top/Article/details/789515889.shtml)
+- 2026-06-30 08:20 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.kurohicncr.top/Article/details/67160330.shtml)
+- 2026-06-30 08:17 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/535188651197.shtml)
+- 2026-06-30 08:18 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/90274.shtml)
+- 2026-06-30 08:35 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/657363.shtml)
+- 2026-06-30 08:29 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](http://www.share.kurohicncr.top/Article/details/74196.shtml)
+- 2026-06-30 08:17 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/56502597.shtml)
+- 2026-06-30 08:26 - [巴西醒醒 这是淘汰赛](http://www.share.kurohicncr.top/Article/details/58759.shtml)
+- 2026-06-30 08:33 - [郑钦文温网三连败西尼亚科娃](http://www.blog.minike.top/Article/details/497623.shtml)
+- 2026-06-30 08:16 - [中国新一轮出口管制直指日本命脉](https://www.blog.minike.top/Article/details/183919618.shtml)
+- 2026-06-30 08:22 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.minike.top/Article/details/3648420750.shtml)
+- 2026-06-30 08:39 - [起风了](http://www.blog.minike.top/Article/details/3984837270.shtml)
+- 2026-06-30 08:16 - [明星大侦探第四季](https://www.share.minike.top/Article/details/3158866391.shtml)
+- 2026-06-30 08:23 - [千与千寻](http://www.blog.minike.top/Article/details/86710197762.shtml)

@@ -1,55 +1,56 @@
-# 颠覆认知！西藏察隅横断山深处藏着塞上小江南
+# SpaceX发行价定了今晚上市！马斯克或成史上首位万亿富豪，约400名员工将成亿万富翁，养老基金将成接盘侠？
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月08日 11:34 来源：中国新闻网 2026年是西藏和平解放75周年，滇藏公路通车50周年。近日，中国新闻社云南分社和西藏分社联合开展的“穿越横断山·同心启新篇”主题采访活动，走进地处横断山区的西藏自治区林芝市察隅县，偶遇一处绝美村落——布宗村。 布宗村静卧贡日嘎布曲河谷，海拔近2300米，平均气温14至16摄氏度，四周森林密布，红豆杉、云杉、冷杉层
+人类历史上首位万亿富豪或将诞生。北京时间今晚，史上最大规模IPO将上市，据SpaceX向美国证券交易委员会提交文件，其首次公开募股（IPO）价格定为每股135美元。 公司股市1.77万亿美元 马斯克或成首位万亿富豪 美国媒体11日报道，即将上市的美国太空探索技术公司（SpaceX）已确定首次公开募股（IPO）发行价为每股135美元，拟募资750亿美元，公司估值约1.77万亿美元
 
 ## 正文
 
-发布时间：2026年06月08日 11:34 来源：中国新闻网 2026年是西藏和平解放75周年，滇藏公路通车50周年。
+人类历史上首位万亿富豪或将诞生。
 
-近日，中国新闻社云南分社和西藏分社联合开展的“穿越横断山·同心启新篇”主题采访活动，走进地处横断山区的西藏自治区林芝市察隅县，偶遇一处绝美村落——布宗村。
+北京时间今晚，史上最大规模IPO将上市，据SpaceX向美国证券交易委员会提交文件，其首次公开募股（IPO）价格定为每股135美元。
 
-布宗村静卧贡日嘎布曲河谷，海拔近2300米，平均气温14至16摄氏度，四周森林密布，红豆杉、云杉、冷杉层层环抱，村民的院落散落其间，掩映在苍翠林木中。
+公司股市1.77万亿美元 马斯克或成首位万亿富豪 美国媒体11日报道，即将上市的美国太空探索技术公司（SpaceX）已确定首次公开募股（IPO）发行价为每股135美元，拟募资750亿美元，公司估值约1.77万亿美元。
 
-中国里程最长的国道G219穿谷而过，将这座藏东南山村接入国家公路网。
+报道说，SpaceX股票预计将于12日在纳斯达克证券交易所开始交易。
 
-绿水穿村，林木葱茏，河谷的生机在镜头里徐徐展开，谁能不爱藏东南的原生态风光！
+按募资规模计算，此次IPO将创下首次公开募股规模纪录。
 
-(王临梓 贡嘎来松 陈静) 责任编辑：【李季】
+按估值计算，SpaceX上市后将跻身美国上市公司市值前十，超过特斯拉的1.5万亿美元。
+
+报道还说，SpaceX此次上市安排打破了华尔街部分传统惯例，包括提前确定发行价、为散户投资者预留较高比例股份等。
+
+IPO完成后，公司创始人埃隆·马斯克仍将保有对公司投票权的高度控制。
 
 ## 相关推荐
 
-- 2026-06-30 08:12 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-30 08:17 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-30 08:32 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-30 08:18 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-30 08:06 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-30 08:33 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
-- 2026-06-30 08:25 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
-- 2026-06-30 08:17 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
-- 2026-06-30 08:35 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-30 08:25 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-30 08:08 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-30 08:35 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
-- 2026-06-30 08:27 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-30 08:16 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-30 08:19 - [田中碧失误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-30 08:36 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-30 08:31 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-30 08:15 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-30 08:39 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-30 08:26 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-30 08:40 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-30 08:20 - [德国 传控](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-30 08:16 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:23 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/203685532.shtml)
-- 2026-06-30 08:14 - [王欣瑜2-1击败科恰雷托](http://www.blog.kurohicncr.top/Article/details/23762236.shtml)
-- 2026-06-30 08:18 - [森保一 保守](http://www.blog.minike.top/Article/details/94471.shtml)
-- 2026-06-30 08:33 - [存储芯片龙头提示风险](http://www.blog.kurohicncr.top/Article/details/8497596597.shtml)
-- 2026-06-30 08:23 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/7175032.shtml)
-- 2026-06-30 08:23 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/97619901850.shtml)
-- 2026-06-30 08:26 - [人类...完蛋了...](http://www.share.minike.top/Article/details/4229651366.shtml)
-- 2026-06-30 08:12 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/051661.shtml)
-- 2026-06-30 08:18 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/184135.shtml)
-- 2026-06-30 08:27 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/42012.shtml)
-- 2026-06-30 08:34 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/5834004870.shtml)
-- 2026-06-30 08:29 - [齐思钧回复张月](http://www.share.minike.top/Article/details/2916798.shtml)
-- 2026-06-30 08:07 - [韩乔生吐槽世界杯扩军](https://www.share.kurohicncr.top/Article/details/448677068.shtml)
-- 2026-06-30 08:27 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/465360985.shtml)
-- 2026-06-30 08:07 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/1446433.shtml)
+- 2026-06-30 08:16 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/023259397.shtml)
+- 2026-06-30 08:12 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/7531803289.shtml)
+- 2026-06-30 08:28 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/112704870.shtml)
+- 2026-06-30 08:23 - [MSI应援曲 如果季中成回忆](http://www.blog.minike.top/Article/details/9082088.shtml)
+- 2026-06-30 08:22 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/184358242874.shtml)
+- 2026-06-30 08:33 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/308444589.shtml)
+- 2026-06-30 08:25 - [男子在京东买到“同仁堂”假药](https://www.blog.minike.top/Article/details/5421029.shtml)
+- 2026-06-30 08:40 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/561766.shtml)
+- 2026-06-30 08:41 - [马耳他著名拱门坍塌致中国男子身亡](http://www.blog.kurohicncr.top/Article/details/8020455963.shtml)
+- 2026-06-30 08:40 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/6999688025.shtml)
+- 2026-06-30 08:34 - [德国巴拉圭进入点球大战](https://www.blog.kurohicncr.top/Article/details/294318017.shtml)
+- 2026-06-30 08:28 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/940803.shtml)
+- 2026-06-30 08:34 - [董卿父亲在报纸上发文悼念亡妻](http://www.share.minike.top/Article/details/37195646.shtml)
+- 2026-06-30 08:30 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/9064405997.shtml)
+- 2026-06-30 08:40 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/072022535565.shtml)

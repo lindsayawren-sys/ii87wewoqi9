@@ -1,60 +1,59 @@
-# 侨助出海 广州企业瞄准印尼市场
+# 五粮液（000858）股民索赔再提交法院立案，任子行（300311）索赔案已有胜诉后再收测算报告
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-中新网广州6月8日电 (记者 蔡敏婕)“侨助经济·穗链五洲”印度尼西亚专场活动近日在广州举行。来自亚洲华人青年协会的印尼青年代表、广州优质企业代表及市、区侨务部门相关负责人聚首珠江之畔，共话丝路商机。 亚洲华人青年协会总主席陈美玲引用中国谚语“志合者，不以山海为远”作为开场。她表示，当前印尼市场发展势头向好，本土市场对人工智能、无人机、快时尚等多个领域的产业合作需求迫切，希望依
+2026年6月11日，上海久诚律师事务所股票索赔律师许峰代理的五粮液（维权）（000858）投资者索赔案再向成渝金融法院提交一批立案。（许峰律师专栏） 2026年5月20日，许峰律师代理的五粮液（000858）投资者索赔案已获得成渝金融法院立案，目前正在等待法院的下一步安排。律师团队同步还在继续推进后续案件的代理工作，还在继续接受其他投资者的索赔委托。 2026年4月30日晚，
 
 ## 正文
 
-中新网广州6月8日电 (记者 蔡敏婕)“侨助经济·穗链五洲”印度尼西亚专场活动近日在广州举行。
+2026年6月11日，上海久诚律师事务所股票索赔律师许峰代理的五粮液（维权）（000858）投资者索赔案再向成渝金融法院提交一批立案。
 
-来自亚洲华人青年协会的印尼青年代表、广州优质企业代表及市、区侨务部门相关负责人聚首珠江之畔，共话丝路商机。
+（许峰律师专栏） 2026年5月20日，许峰律师代理的五粮液（000858）投资者索赔案已获得成渝金融法院立案，目前正在等待法院的下一步安排。
 
-亚洲华人青年协会总主席陈美玲引用中国谚语“志合者，不以山海为远”作为开场。
+律师团队同步还在继续推进后续案件的代理工作，还在继续接受其他投资者的索赔委托。
 
-她表示，当前印尼市场发展势头向好，本土市场对人工智能、无人机、快时尚等多个领域的产业合作需求迫切，希望依托穗印深厚侨缘资源，深化与广州相关领域企业的经贸对接和项目落地合作。
+2026年4月30日晚，五粮液（000858）发布关于前期会计差错更正的公告，许峰律师认为，在2025年4月28日到2026年5月1日之间买入五粮液股票，并且在2026年5月1日后卖出或继续持有股票的投资者，目前还可发起索赔，具体应以法院认定为准。
 
-广州企业代表同样对合作充满期待。
+（五粮液维权入口） 除了五粮液投资者索赔案再次提交法院立案，2026年6月11日，许峰律师代理的任子行（300311） 投资者索赔案再收到部分测算报告，部分案件或将进入调解阶段。
 
-广东派陶瓷业有限公司相关负责人和印尼亚洲华人青年协会代表团交流，现场展示了公司产品，代表团成员实地上手体验后十分喜爱，意向引进产品落地印尼。
+2026年6月3日，许峰律师代理的部分任子行投资者索赔案收到广东省高级人民人民法院送达的终审判决判决书，广东高院驳回任子行的上诉，维持投资者一审胜诉判决，投资者获得终审胜诉 2025年7月18日，任子行公告收到《行政处罚决定书》的公告，经查明，任子行存在如下违法事实： 通过相关方式，2020年至2022年上半年，任子行虚增营业收入36，951，333.48元、48，435，351.70元、26，929，607.08元，分别占当期报告记载金额的4.21%、6.97%、10.81%；虚增利润总额19，406，901.32元、37，317，431.71元、16，560，909.58元，分别占当期报告记载金额绝对值的85.93%、70.03%、30.79%。
 
-“我们一直深耕印尼市场，当地大量新建酒店项目持续落地，餐厨用品需求旺盛。
+任子行披露的《2020年年度报告》《2021年年度报告》《2022年半年度报告》存在虚假记载。
 
-依托本次精准对接的侨商资源，接下来我们将加快推进印尼经销合作。
+2023年2月14日，任子行披露《创业板向特定对象发行股票之募集说明书（注册稿）》，引用了上述2020年度及2021年度营业收入数据。
 
 ## 相关推荐
 
-- 2026-06-30 08:27 - [恋与深空道歉声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
-- 2026-06-30 08:31 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-30 08:21 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-30 08:27 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
-- 2026-06-30 08:22 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-30 08:30 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-30 08:23 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-30 08:10 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-30 08:25 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-30 08:23 - [点球大战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-30 08:09 - [德国队连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-30 08:20 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
-- 2026-06-30 08:32 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-30 08:17 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-30 08:30 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-30 08:19 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-30 08:28 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
+- 2026-06-30 08:37 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-30 08:24 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-30 08:33 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
+- 2026-06-30 08:26 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-30 08:30 - [全球芯片巨头史诗级扩产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-30 08:15 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-30 08:34 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-30 08:13 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-30 08:39 - [泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-30 08:33 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:19 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/677068.shtml)
-- 2026-06-30 08:35 - [存储芯片龙头提示风险](https://www.share.minike.top/Article/details/591954458270.shtml)
-- 2026-06-30 08:34 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/6640980.shtml)
-- 2026-06-30 08:34 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.share.minike.top/Article/details/009319150.shtml)
-- 2026-06-30 08:20 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](http://www.share.minike.top/Article/details/2592619.shtml)
-- 2026-06-30 08:24 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/93395.shtml)
-- 2026-06-30 08:32 - [杨紫肖战余生请多指教拍立得](https://www.share.kurohicncr.top/Article/details/8352869.shtml)
-- 2026-06-30 08:28 - [穆祉丞回应获年度人气艺人](http://www.blog.kurohicncr.top/Article/details/5774164.shtml)
-- 2026-06-30 08:28 - [巴西把自己踢晕了](http://www.share.minike.top/Article/details/86593369.shtml)
-- 2026-06-30 08:11 - [张帅时隔四年晋级温网第二轮](http://www.share.minike.top/Article/details/746883.shtml)
-- 2026-06-30 08:19 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.kurohicncr.top/Article/details/14444901.shtml)
-- 2026-06-30 08:09 - [马耳他著名拱门坍塌致中国男子身亡](http://www.share.minike.top/Article/details/48391761294.shtml)
-- 2026-06-30 08:13 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/7004713.shtml)
-- 2026-06-30 08:12 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/91159195718.shtml)
-- 2026-06-30 08:21 - [世界杯巴拉圭点球淘汰德国](http://www.blog.minike.top/Article/details/8717115255.shtml)
+- 2026-06-30 08:34 - [巴西扳平比分](https://www.blog.minike.top/Article/details/15863501.shtml)
+- 2026-06-30 08:22 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/239064685.shtml)
+- 2026-06-30 08:21 - [孙兴慜发长文致歉](http://www.share.kurohicncr.top/Article/details/0958046.shtml)
+- 2026-06-30 08:14 - [豆包收费了，你还会用吗？](https://www.blog.minike.top/Article/details/476553308.shtml)
+- 2026-06-30 08:24 - [马耳他著名拱门坍塌致一中国男子身亡](http://www.share.kurohicncr.top/Article/details/404470950386.shtml)
+- 2026-06-30 08:36 - [哈弗茨头球破门](https://www.share.minike.top/Article/details/14891542.shtml)
+- 2026-06-30 08:21 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/8800637.shtml)
+- 2026-06-30 08:29 - [穆祉丞年度人气艺人](https://www.blog.minike.top/Article/details/46159.shtml)
+- 2026-06-30 08:29 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/88701.shtml)
+- 2026-06-30 08:13 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/3417182068.shtml)
+- 2026-06-30 08:29 - [高考结束了，你会让孩子在家玩手机吗？](http://www.blog.kurohicncr.top/Article/details/79065559270.shtml)
+- 2026-06-30 08:19 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/1532401954.shtml)
+- 2026-06-30 08:22 - [补时绝杀 巴西2-1淘汰日本](https://www.share.kurohicncr.top/Article/details/657284.shtml)
+- 2026-06-30 08:38 - [勇士续约波尔津吉斯](https://www.share.kurohicncr.top/Article/details/413433795927.shtml)
+- 2026-06-30 08:20 - [网红峡谷5人溺亡 有人提醒会下雨](http://www.blog.minike.top/Article/details/14519317.shtml)

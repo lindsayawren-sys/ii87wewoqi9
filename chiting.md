@@ -1,57 +1,56 @@
-# 中国人寿联合福建省设立国内最大盲池S基金
+# 清越科技涉嫌财务造假触及退市红线 中介机构火速启动先行赔付
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-6月9日金融一线消息，据中国人寿，近日，国内规模最大的盲池S基金——福建省鑫睿科创接力基金成功落地。该基金由国寿投资公司旗下国寿金石公司联合福建省相关单位共同发起设立，总规模逾40亿元，是国内规模最大的盲池S基金。 据了解，S基金（Secondary Fund），全称私募股权二级市场基金，是指参与已设立私募基金投资标的以及份额投资的基金。其作为盘活存量、优化配置、畅通循环的重要
+登录新浪财经APP 搜索【信披】查看更多考评等级 这家有着“清华基因”的科创板上市公司，终究没能跨过诚信的底线。2026年5月8日，清越科技正式收到中国证监会下发的《行政处罚事先告知书》，该公司涉嫌在IPO阶段及上市后持续进行财务造假，可能被实施重大违法强制退市。与此同时，保荐机构广发证券及审计机构立信会计师事务所已启动先行赔付，成为A股市场第六单先行赔付案例。 持续数年的财务
 
 ## 正文
 
-6月9日金融一线消息，据中国人寿，近日，国内规模最大的盲池S基金——福建省鑫睿科创接力基金成功落地。
+登录新浪财经APP 搜索【信披】查看更多考评等级 这家有着“清华基因”的科创板上市公司，终究没能跨过诚信的底线。
 
-该基金由国寿投资公司旗下国寿金石公司联合福建省相关单位共同发起设立，总规模逾40亿元，是国内规模最大的盲池S基金。
+2026年5月8日，清越科技正式收到中国证监会下发的《行政处罚事先告知书》，该公司涉嫌在IPO阶段及上市后持续进行财务造假，可能被实施重大违法强制退市。
 
-据了解，S基金（Secondary Fund），全称私募股权二级市场基金，是指参与已设立私募基金投资标的以及份额投资的基金。
+与此同时，保荐机构广发证券及审计机构立信会计师事务所已启动先行赔付，成为A股市场第六单先行赔付案例。
 
-其作为盘活存量、优化配置、畅通循环的重要工具，有助于缓解“基金退出难、GP（普通合伙人）募资难、企业融资难”等多重困局。
+持续数年的财务造假链条 公开资料显示，清越科技成立于2010年，主营PMOLED、电子纸模组与硅基OLED微显示器等产品，2022年12月登陆上交所科创板，保荐机构为广发证券。
 
-盲池基金则是指在基金募集时，不特定具体投资项目的一类基金形式，具有灵活性高、整合能力强的特点，更考验管理人的主动管理能力。
+公司创始人、实际控制人、董事长高裕弟是清华大学化学博士，是国内OLED显示领域的技术专家。
 
-国寿金石公司作为专业化保险私募基金管理平台，可以持续跟踪S市场、筛选优质资产，灵活配置不同阶段、不同领域的资产，实现更优的风险收益匹配。
+然而，这份光环并未能遮掩公司在财务合规层面的暗疾。
 
-中国人寿方面表示，该项目重点聚焦新一代信息技术、生物医药及器械、高端装备制造等战略性新兴产业，通过参与投资基金二手份额、接续重组基金等形式，为科创企业提供长期稳健的资金支持，充分体现了“为资本接力，为科创续力”的定位。
+2025年10月31日，清越科技公告收到证监会《立案告知书》，因公司涉嫌定期报告等财务数据虚假记载被正式立案调查。
 
-责任编辑：王馨茹
+时隔半年，调查结果终于出炉。
 
 ## 相关推荐
 
-- 2026-06-30 08:32 - [萨内 看笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-30 08:14 - [金鹰奖视后提名预测](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-30 08:09 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-30 08:28 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-30 08:32 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-30 08:19 - [刘宇宁高情商化解谁站C位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-30 08:09 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
-- 2026-06-30 08:17 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-30 08:33 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
-- 2026-06-30 08:30 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
-- 2026-06-30 08:16 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-30 08:15 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-30 08:32 - [IGN评测电影版后室](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-30 08:20 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-30 08:25 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-30 08:28 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
+- 2026-06-30 08:15 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-30 08:37 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-30 08:13 - [索马里女大使：想和中国一起搞事业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-30 08:30 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-30 08:12 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:20 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/492759588579.shtml)
-- 2026-06-30 08:29 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/083652.shtml)
-- 2026-06-30 08:22 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.kurohicncr.top/Article/details/381894.shtml)
-- 2026-06-30 08:10 - [武磊：日本队有能力跟任何强队抗衡](http://www.share.minike.top/Article/details/583063835.shtml)
-- 2026-06-30 08:16 - [第3集丨“柠檬茶能换怀表？”](http://www.blog.kurohicncr.top/Article/details/550826961.shtml)
-- 2026-06-30 08:35 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/17373479667.shtml)
-- 2026-06-30 08:25 - [巴西补时绝杀日本](http://www.blog.kurohicncr.top/Article/details/78263792.shtml)
-- 2026-06-30 08:32 - [杨紫获白玉兰视后争议不止](http://www.share.kurohicncr.top/Article/details/377659603.shtml)
-- 2026-06-30 08:26 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/218563013.shtml)
-- 2026-06-30 08:06 - [大蒜晒外面被路过女子连盆端走](https://www.share.kurohicncr.top/Article/details/45845910.shtml)
-- 2026-06-30 08:08 - [男子醉酒溺水获救后同行人拒协助抬人](https://www.share.kurohicncr.top/Article/details/708884995.shtml)
-- 2026-06-30 08:33 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/6777177594.shtml)
-- 2026-06-30 08:06 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/80354.shtml)
-- 2026-06-30 08:30 - [现在叛逆期的孩子最怕的是什么？](http://www.blog.kurohicncr.top/Article/details/587567051844.shtml)
-- 2026-06-30 08:16 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/5674058.shtml)
+- 2026-06-30 08:19 - [韩国球迷凌晨4点接机怒骂主教练](http://www.blog.minike.top/Article/details/01139.shtml)
+- 2026-06-30 08:22 - [森保一 保守](http://www.blog.kurohicncr.top/Article/details/6599708322.shtml)
+- 2026-06-30 08:41 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/718117331047.shtml)
+- 2026-06-30 08:38 - [巴西在进攻三区完成210脚传球](http://www.blog.kurohicncr.top/Article/details/300302.shtml)
+- 2026-06-30 08:18 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/724759338.shtml)
+- 2026-06-30 08:32 - [巴西绝杀日本：漫画般结局换了主角](https://www.blog.kurohicncr.top/Article/details/70750122098.shtml)
+- 2026-06-30 08:26 - [巴拉圭进球](https://www.blog.kurohicncr.top/Article/details/973560.shtml)
+- 2026-06-30 08:16 - [杨紫学位证上就是杨紫](http://www.blog.minike.top/Article/details/163741809.shtml)
+- 2026-06-30 08:13 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/15453.shtml)
+- 2026-06-30 08:23 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/24313769359.shtml)
+- 2026-06-30 08:33 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/4381806929.shtml)
+- 2026-06-30 08:33 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/69163825079.shtml)
+- 2026-06-30 08:14 - [南北多地暴雨和强对流天气持续](https://www.share.kurohicncr.top/Article/details/965267.shtml)
+- 2026-06-30 08:24 - [杨紫获白玉兰视后争议不止](http://www.blog.kurohicncr.top/Article/details/85955.shtml)
+- 2026-06-30 08:13 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/90638804.shtml)

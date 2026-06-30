@@ -1,59 +1,60 @@
-# 管900亿的中邮基金总经理张志名做视频号，合规从来不是最大的问题
+# 港投CEO陈家齐：以资本为纽带、生态为基石、人才为驱动，助力AI产业落地与出海
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-来源：投资基摩人 原标题：管900亿的总经理做视频号，合规从来不是最大的问题 中邮基金总经理张志名做视频号这事儿，业内讨论不少，但方向基本跑偏了。 几乎所有讨论都扎堆在“合规不合规”上——内容有没有过审？有没有推荐产品？有没有踩营销红线？ 这些问题当然重要，但它们有一个共同特点：可控。 合规是可以用制度封死的。选题前先问“能不能对投资者形成正向引导”，内容过公司合规审核，全程规
+专题：2026北京智源大会 6月12日至13日，2026第八届北京智源大会在北京中关村国际创新中心举行。香港投资管理有限公司（港投公司）CEO陈家齐出席并致辞。 陈家齐表示，人工智能就是未来，而智源是AI发展路径上的重要动能。她指出，人工智能的发展任重道远，港投希望在其中扮演的角色概括为：以资本为纽带，以生态为基石，以人才为驱动，加速深化技术演化和产业落地。 围绕资本、生态、人
 
 ## 正文
 
-来源：投资基摩人 原标题：管900亿的总经理做视频号，合规从来不是最大的问题 中邮基金总经理张志名做视频号这事儿，业内讨论不少，但方向基本跑偏了。
+专题：2026北京智源大会 6月12日至13日，2026第八届北京智源大会在北京中关村国际创新中心举行。
 
-几乎所有讨论都扎堆在“合规不合规”上——内容有没有过审？
+香港投资管理有限公司（港投公司）CEO陈家齐出席并致辞。
 
-有没有推荐产品？
+陈家齐表示，人工智能就是未来，而智源是AI发展路径上的重要动能。
 
-有没有踩营销红线？
+她指出，人工智能的发展任重道远，港投希望在其中扮演的角色概括为：以资本为纽带，以生态为基石，以人才为驱动，加速深化技术演化和产业落地。
 
-这些问题当然重要，但它们有一个共同特点：可控。
+围绕资本、生态、人才三个方面，陈家齐展开分享。
 
-合规是可以用制度封死的。
+关于资本。
 
-选题前先问“能不能对投资者形成正向引导”，内容过公司合规审核，全程规避产品推介——这套流程走下来，红线基本碰不到。
+她介绍，港投是香港特区政府全资拥有的“耐心资本”投资旗舰，秉持有为金融的担当，依托香港“一国两制”、内联外通的独特优势，希望通过投资助力香港和国家发展新质生产力。
 
-但真正的风险，从来不在可控的区域里。
+“资本是技术发展、产业落地的重要引擎。
 
 ## 相关推荐
 
-- 2026-06-30 08:25 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
-- 2026-06-30 08:32 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-30 08:29 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-30 08:13 - [日本队5进世界杯淘汰赛0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-30 08:18 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-30 08:33 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-30 08:11 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-30 08:23 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-30 08:15 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-30 08:16 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-30 08:09 - [日本博主：日本足球真的垃圾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
-- 2026-06-30 08:08 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
-- 2026-06-30 08:16 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-30 08:38 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-30 08:13 - [德国罚丢3粒点球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-30 08:36 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-30 08:24 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-30 08:25 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-30 08:19 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
+- 2026-06-30 08:19 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-30 08:28 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
+- 2026-06-30 08:31 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-30 08:22 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-30 08:36 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-30 08:18 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-30 08:13 - [板面：为什么那么多人爱吃？？！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-30 08:22 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:18 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/853968.shtml)
-- 2026-06-30 08:24 - [世界杯：德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/46221118.shtml)
-- 2026-06-30 08:20 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.minike.top/Article/details/878204485446.shtml)
-- 2026-06-30 08:17 - [委内瑞拉地震死亡人数升至1719人](http://www.blog.kurohicncr.top/Article/details/16536025899.shtml)
-- 2026-06-30 08:31 - [王灿兮被烫伤两年后维权成功](https://www.blog.kurohicncr.top/Article/details/83782.shtml)
-- 2026-06-30 08:21 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/6009368.shtml)
-- 2026-06-30 08:28 - [“柠檬茶能换怀表？”](https://www.blog.minike.top/Article/details/23425496538.shtml)
-- 2026-06-30 08:22 - [德国巴拉圭进入点球大战](http://www.share.kurohicncr.top/Article/details/5765438.shtml)
-- 2026-06-30 08:21 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/0317334.shtml)
-- 2026-06-30 08:17 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.kurohicncr.top/Article/details/0620892.shtml)
-- 2026-06-30 08:11 - [田中碧失误](http://www.blog.kurohicncr.top/Article/details/730522.shtml)
-- 2026-06-30 08:19 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/27267565.shtml)
-- 2026-06-30 08:10 - [德国巴拉圭 折磨](https://www.share.kurohicncr.top/Article/details/66112536.shtml)
-- 2026-06-30 08:16 - [媒体评泰山建135公里刀片刺绳隔离网](http://www.share.minike.top/Article/details/40853363498.shtml)
-- 2026-06-30 08:22 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/92084.shtml)
+- 2026-06-30 08:41 - [现在叛逆期的孩子最怕的是什么？](https://www.share.minike.top/Article/details/96525046844.shtml)
+- 2026-06-30 08:12 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/0806346.shtml)
+- 2026-06-30 08:24 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/32847.shtml)
+- 2026-06-30 08:30 - [董卿父亲在报纸上发文悼念亡妻](http://www.blog.minike.top/Article/details/313992129150.shtml)
+- 2026-06-30 08:32 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/729107444.shtml)
+- 2026-06-30 08:25 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/7410531494.shtml)
+- 2026-06-30 08:16 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/981394947.shtml)
+- 2026-06-30 08:37 - [男子在京东买到“同仁堂”假药](https://www.blog.minike.top/Article/details/90935.shtml)
+- 2026-06-30 08:37 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/7261410.shtml)
+- 2026-06-30 08:20 - [iPhone18e曝光](https://www.blog.minike.top/Article/details/105641.shtml)
+- 2026-06-30 08:35 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/88080.shtml)
+- 2026-06-30 08:15 - [博世们还在犹豫 美的们已经卖断货](http://www.share.minike.top/Article/details/1029245752.shtml)
+- 2026-06-30 08:36 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/296081.shtml)
+- 2026-06-30 08:37 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.minike.top/Article/details/00343691.shtml)
+- 2026-06-30 08:39 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/5694456805.shtml)

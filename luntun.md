@@ -1,56 +1,59 @@
-# 广西合山深挖“土特产”文章 芋檬成乡村振兴“新引擎”
+# 云台咖啡纪念林在云南保山“扎根” 推动两岸合作“结果”
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-多位书记省长会见谢国民 释放重要合作信号董路谈足球小将第1000场比赛：“中国足球什么都不缺，只缺胜利”梦断迈阿密：“非洲最佳裁判”为何无缘2026世界杯？古典学家王焕生：“奥德赛时期”，靠四个字度过“国补”叠加电商促销，推动年中消费热吃薯条、闭眼打盹？特朗普现场观赛，球迷一片嘘声历史首次！美国总统特朗普观战NBA总决赛世界杯各种“伙伴”、赞助商、支持商，都有啥区别？三峡水运新
+中新网云南保山6月12日电 (陈静 袁鸿凯)6月的云南省保山市烟雨朦胧，参加“云上咖啡·香飘两岸”第二届海峡两岸咖啡文化交流活动的嘉宾，11日冒雨在新寨村种下咖啡树苗，共建“云台咖啡纪念林”；走进当地咖啡庄园，开展咖啡杯测与冲泡，以“一棵苗”和“一杯咖”推动两岸产业合作“扎根”与“结果”。 “咖啡是国际性饮品，我们能够借由这个载体把两岸关系拉近、拉亲，是件很好的事。”参与植树的
 
 ## 正文
 
-多位书记省长会见谢国民 释放重要合作信号董路谈足球小将第1000场比赛：“中国足球什么都不缺，只缺胜利”梦断迈阿密：“非洲最佳裁判”为何无缘2026世界杯？
+中新网云南保山6月12日电 (陈静 袁鸿凯)6月的云南省保山市烟雨朦胧，参加“云上咖啡·香飘两岸”第二届海峡两岸咖啡文化交流活动的嘉宾，11日冒雨在新寨村种下咖啡树苗，共建“云台咖啡纪念林”；走进当地咖啡庄园，开展咖啡杯测与冲泡，以“一棵苗”和“一杯咖”推动两岸产业合作“扎根”与“结果”。
 
-古典学家王焕生：“奥德赛时期”，靠四个字度过“国补”叠加电商促销，推动年中消费热吃薯条、闭眼打盹？
+“咖啡是国际性饮品，我们能够借由这个载体把两岸关系拉近、拉亲，是件很好的事。
 
-特朗普现场观赛，球迷一片嘘声历史首次！
+”参与植树的台北岚山咖啡创始人游启明说，希望再过几年，种下的咖啡树可以开花结果，两岸关系也越来越好。
 
-美国总统特朗普观战NBA总决赛世界杯各种“伙伴”、赞助商、支持商，都有啥区别？
+6月10日至13日，由云南海外联谊会、云南省委台办联合主办的“云上咖啡·香飘两岸”第二届海峡两岸咖啡文化交流活动在云南保山举办，近200名两岸咖啡行业从业者参加。
 
-三峡水运新通道“新”在何处？
+保山市地处云南西部，与缅甸山水相连，是云南优质小粒咖啡黄金原产地。
 
-金价大跌！
+得天独厚的立体气候、优质的生态环境，孕育出“浓而不苦、香味独特、略带果酸”的保山小粒咖啡，享誉海内外。
 
-有人越跌越买，有人变现94万离场《论语》为何说“有教无类”，而非“有诲无类”？
+截至目前，保山市咖啡种植面积达18.06万亩，产量2.68万吨，绿色、有机认证基地达1.7万亩，咖啡综合产值223.28亿元；全市共有咖啡企业82户，注册咖啡商标600余个，咖啡精品率居全省前列。
 
-保险公司用“赔付过泰坦尼克号”证明实力？
+在保山市潞江镇，两岸嘉宾探访“中国咖啡第一村”新寨村，了解当地咖啡种植历史与文化；走进比顿咖啡产业文化园，在咖啡烘焙、杯测与冲泡中，共品咖香、共话合作。
 
 ## 相关推荐
 
-- 2026-06-30 08:21 - [杨紫肖战余生请多指教拍立得](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-30 08:09 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-30 08:08 - [森保一致歉：世界第一目标没能实现](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
-- 2026-06-30 08:30 - [巴拉圭率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-30 08:08 - [感动全网的699分女生想报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-30 08:21 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-30 08:31 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-30 08:15 - [诺伊尔尽力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
-- 2026-06-30 08:12 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
-- 2026-06-30 08:06 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-30 08:14 - [全新问界M9现身美国街头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-30 08:17 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-30 08:27 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-30 08:34 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
+- 2026-06-30 08:32 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-30 08:13 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-30 08:30 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-30 08:14 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-30 08:34 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-30 08:21 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-30 08:39 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-30 08:26 - [媒体：手机测评该挤挤水分了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
+- 2026-06-30 08:13 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:32 - [德国巴拉圭 折磨](https://www.share.kurohicncr.top/Article/details/60387.shtml)
-- 2026-06-30 08:13 - [田中碧失误](http://www.blog.minike.top/Article/details/36406412520.shtml)
-- 2026-06-30 08:20 - [沉睡花园](http://www.share.minike.top/Article/details/962338926.shtml)
-- 2026-06-30 08:17 - [董卿父亲报纸上发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/0737676.shtml)
-- 2026-06-30 08:16 - [莫兰特被交易到开拓者](http://www.share.minike.top/Article/details/39388677.shtml)
-- 2026-06-30 08:20 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/403325.shtml)
-- 2026-06-30 08:15 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](http://www.share.minike.top/Article/details/2554970034.shtml)
-- 2026-06-30 08:31 - [曝灰熊将莫兰特交易至开拓者](https://www.share.minike.top/Article/details/57361177564.shtml)
-- 2026-06-30 08:34 - [内马尔中场休息积极鼓励队友](https://www.blog.minike.top/Article/details/693481.shtml)
-- 2026-06-30 08:31 - [千香](https://www.share.minike.top/Article/details/23934461039.shtml)
-- 2026-06-30 08:35 - [王曼昱被突如其来的话筒逗笑了](https://www.share.kurohicncr.top/Article/details/831808296.shtml)
-- 2026-06-30 08:17 - [起风了](http://www.blog.minike.top/Article/details/401733150.shtml)
-- 2026-06-30 08:26 - [巴西足球能否再现昔日荣光](http://www.share.minike.top/Article/details/20030304386.shtml)
-- 2026-06-30 08:32 - [毒液2](https://www.blog.minike.top/Article/details/119500.shtml)
-- 2026-06-30 08:31 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/1792985.shtml)
+- 2026-06-30 08:18 - [巴拉圭点球大战淘汰德国进16强](https://www.share.minike.top/Article/details/42059424826.shtml)
+- 2026-06-30 08:20 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/4055102432.shtml)
+- 2026-06-30 08:17 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/1789625.shtml)
+- 2026-06-30 08:34 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/87902850987.shtml)
+- 2026-06-30 08:22 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.kurohicncr.top/Article/details/77374.shtml)
+- 2026-06-30 08:22 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/17593173.shtml)
+- 2026-06-30 08:13 - [毒液2](https://www.share.kurohicncr.top/Article/details/997808.shtml)
+- 2026-06-30 08:35 - [城市规划有可能成为「屎山代码」吗？](https://www.share.kurohicncr.top/Article/details/9283760.shtml)
+- 2026-06-30 08:30 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/748188197.shtml)
+- 2026-06-30 08:36 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/3848234833.shtml)
+- 2026-06-30 08:33 - [德国淘汰](http://www.blog.kurohicncr.top/Article/details/949001018250.shtml)
+- 2026-06-30 08:21 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/63370694.shtml)
+- 2026-06-30 08:26 - [一见倾心](https://www.blog.minike.top/Article/details/30803.shtml)
+- 2026-06-30 08:33 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/65445.shtml)
+- 2026-06-30 08:35 - [小娘惹](https://www.share.minike.top/Article/details/894731.shtml)

@@ -1,59 +1,58 @@
-# 东吴证券收购案太离谱！6月18日，小股东们会“反抗”吗？
+# 凡拓数创昨天历史新高，今天“20CM”跌停
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：挖掘机007 苏州的梅雨季尚未到来，但长三角资本圈的空气里，已经弥漫着一股潮湿的焦灼。 6月18日，东吴证券（601555）的股东大会将审议一项足以改变公司命运的议案——以115.19亿元的对价，收购东海证券83.68%的股份。这不仅仅是一场简单的资产买卖，更像是一场关于“规模扩张”与“股东回报”的豪
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月11日，凡拓数创上午多次触及跌停，午后开盘再度“20CM”跌停。截至13：20，公司股价跌19.70%，报55.82元/股，最新市值57.75亿元。 值得注意的是，6月10日，凡拓数创大涨7.55%，盘中股价一度触及70.5元/股，创历史新高。此前5个交易日，公司股价累计上涨56.55%。 凡拓数创是一
 
 ## 正文
 
 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-来源：挖掘机007 苏州的梅雨季尚未到来，但长三角资本圈的空气里，已经弥漫着一股潮湿的焦灼。
+6月11日，凡拓数创上午多次触及跌停，午后开盘再度“20CM”跌停。
 
-6月18日，东吴证券（601555）的股东大会将审议一项足以改变公司命运的议案——以115.19亿元的对价，收购东海证券83.68%的股份。
+截至13：20，公司股价跌19.70%，报55.82元/股，最新市值57.75亿元。
 
-这不仅仅是一场简单的资产买卖，更像是一场关于“规模扩张”与“股东回报”的豪赌。
+值得注意的是，6月10日，凡拓数创大涨7.55%，盘中股价一度触及70.5元/股，创历史新高。
 
-而赌桌的另一端，坐着的是数万名手握真金白银的中小股东。
+此前5个交易日，公司股价累计上涨56.55%。
 
-作为深度融入长三角经济的中型券商代表，东吴证券这一步棋，走得不可谓不险。
+凡拓数创是一家拥有自主可控核心技术能力的AI人工智能与3D数字孪生企业，是国内领先的“AI、3D数智产品、技术服务与一体化解决方案”综合提供商。
 
-方案自今年3月公布以来，股价应声大跌7.1%，并开启了一轮绵软的回调。
+公司致力于将AI 3D数字技术与智慧城市、智能制造、数智文化等领域深度融合，依托3D可视化技术、数字多媒体集成技术、数字孪生及AI智能化技术，提供AI 3D标准化产品、AI数智技术服务及一体化解决方案，为城市建设、文化文博文旅、水利水务、电力能源、智能制造等重点产业赋能。
 
-二级市场的用脚投票，与研报里“能级跃升”的宏大叙事，形成了刺眼的割裂。
+6月8日晚，凡拓数创发布股票交易异动公告称，公司2025年度及2026年一季度归属于上市公司股东的净利润仍处于亏损状态。
 
 ## 相关推荐
 
-- 2026-06-30 08:19 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-30 08:15 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
-- 2026-06-30 08:32 - [勇士续约波尔津吉斯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-30 08:21 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
-- 2026-06-30 08:08 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-30 08:16 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
-- 2026-06-30 08:25 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-30 08:06 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-30 08:26 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-30 08:08 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-30 08:24 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-30 08:09 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
-- 2026-06-30 08:31 - [郑钦文温网一轮游](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-30 08:21 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-30 08:30 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-30 08:17 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-30 08:37 - [孙兴慜道歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-30 08:30 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
+- 2026-06-30 08:23 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-30 08:23 - [王楚钦说配合稍微有些陌生感](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-30 08:34 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
+- 2026-06-30 08:20 - [存储芯片龙头提示风险](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-30 08:27 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-30 08:26 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-30 08:32 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:07 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/7165428.shtml)
-- 2026-06-30 08:12 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/5818602.shtml)
-- 2026-06-30 08:17 - [德国4比5巴拉圭](https://www.share.kurohicncr.top/Article/details/4578841.shtml)
-- 2026-06-30 08:11 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/54463134.shtml)
-- 2026-06-30 08:17 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/11269.shtml)
-- 2026-06-30 08:23 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/196316926103.shtml)
-- 2026-06-30 08:35 - [第3集丨“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/55592.shtml)
-- 2026-06-30 08:23 - [徐亮怒斥世界杯踢假球](https://www.share.minike.top/Article/details/554725262.shtml)
-- 2026-06-30 08:15 - [F1奥地利站赛后复盘](http://www.share.kurohicncr.top/Article/details/26569.shtml)
-- 2026-06-30 08:20 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.blog.minike.top/Article/details/419807.shtml)
-- 2026-06-30 08:29 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/8826673.shtml)
-- 2026-06-30 08:34 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/1630436203.shtml)
-- 2026-06-30 08:09 - [感动全网的699分女生想报考清华](https://www.share.kurohicncr.top/Article/details/5090371.shtml)
-- 2026-06-30 08:34 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/33634365915.shtml)
-- 2026-06-30 08:32 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/00449213.shtml)
+- 2026-06-30 08:35 - [杨紫获白玉兰视后为何争议难平](https://www.share.minike.top/Article/details/870564573.shtml)
+- 2026-06-30 08:34 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/790402.shtml)
+- 2026-06-30 08:12 - [追梦拒绝2770万美元球员选项](http://www.blog.minike.top/Article/details/7416642545.shtml)
+- 2026-06-30 08:41 - [全球芯片巨头史诗级扩产](https://www.blog.kurohicncr.top/Article/details/295030.shtml)
+- 2026-06-30 08:21 - [DeepSeek V4正式版要来了](http://www.blog.minike.top/Article/details/789347262.shtml)
+- 2026-06-30 08:30 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/6772519.shtml)
+- 2026-06-30 08:38 - [张月收到黄灿灿辣货两眼发光](http://www.blog.kurohicncr.top/Article/details/9709825991.shtml)
+- 2026-06-30 08:12 - [徐亮怒斥世界杯踢假球](http://www.share.minike.top/Article/details/98904339.shtml)
+- 2026-06-30 08:38 - [巴西把自己踢晕了](http://www.blog.minike.top/Article/details/002458609927.shtml)
+- 2026-06-30 08:24 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/4726750433.shtml)
+- 2026-06-30 08:24 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/41908981612.shtml)
+- 2026-06-30 08:27 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/2051611726.shtml)
+- 2026-06-30 08:17 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/796451926.shtml)
+- 2026-06-30 08:17 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/0672483.shtml)
+- 2026-06-30 08:34 - [锐评T1战胜KC](http://www.share.minike.top/Article/details/95661670.shtml)

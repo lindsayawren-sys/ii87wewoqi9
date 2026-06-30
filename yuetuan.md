@@ -1,56 +1,48 @@
-# 哈啰超量投放，内部人士解读：本质就是用强投倒逼监管部门
+# 国投资本：2026年完成回购金额超2亿元
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！困兽哈啰，全面失控 ▎站在快要被上市计划压垮的悬崖边缘，哈啰正经历着竞争、监管、财务和安全的加速失控。 作者|杨林 一个城市的周五深夜，可能会发生些什么？对于哈啰来说，一辆辆“超投”车在夜色掩映下鱼贯潜入街头巷陌。 凌晨时分，在许多未获投放配额的城市边缘和热点区域，会悄然驶过一辆辆封闭得严严实实的货车——里
+证券日报网讯6月11日，国投资本在互动平台回答投资者提问时表示，二级市场股票价格受资金流向、经济环境、市场情绪等多种因素影响，目前公司经营情况良好，业绩保持稳健。股东回报方面，为增强投资者信心，推动股票价值合理回归，公司已连续实施两轮股份回购：2024年完成回购金额超2亿元，回购股数3133.9万股并注销；2026年完成回购金额超2亿元。同时，公司高度重视并持续督促控股投资企业
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+证券日报网讯6月11日，国投资本在互动平台回答投资者提问时表示，二级市场股票价格受资金流向、经济环境、市场情绪等多种因素影响，目前公司经营情况良好，业绩保持稳健。
 
-困兽哈啰，全面失控 ▎站在快要被上市计划压垮的悬崖边缘，哈啰正经历着竞争、监管、财务和安全的加速失控。
+股东回报方面，为增强投资者信心，推动股票价值合理回归，公司已连续实施两轮股份回购：2024年完成回购金额超2亿元，回购股数3133.9万股并注销；2026年完成回购金额超2亿元。
 
-作者|杨林 一个城市的周五深夜，可能会发生些什么？
+同时，公司高度重视并持续督促控股投资企业严守合规经营底线，切实履行主体责任，不断提升风险管理能力，维护资本市场平稳健康有序发展。
 
-对于哈啰来说，一辆辆“超投”车在夜色掩映下鱼贯潜入街头巷陌。
-
-凌晨时分，在许多未获投放配额的城市边缘和热点区域，会悄然驶过一辆辆封闭得严严实实的货车——里面停放着成百上千辆哈啰共享单车。
-
-趁着夜色包裹，这些大货车走走停停，每停下来一次，就会有几个工人快速地下来，将一批单车码在路边。
-
-这是一个哈啰内部人士所描述的场景，“一边开车一边躲着行人跑，然后沿路疯狂扔车”。
-
-而之所以选在每个周五深夜，“是因为接下来是周末，监管人员顾不上查。
+公司将积极研究推进各项市值管理举措，持续提升经营管理水平和核心竞争力，努力实现公司市场价值与内在价值的动态均衡。
 
 ## 相关推荐
 
-- 2026-06-30 08:33 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
-- 2026-06-30 08:23 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-30 08:13 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-30 08:28 - [曝iPhone18Pro机密文件现身暗网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-30 08:22 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
-- 2026-06-30 08:29 - [德国巴拉圭 折磨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
-- 2026-06-30 08:33 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-30 08:30 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-30 08:17 - [媒体：手机测评该挤挤水分了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-30 08:18 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-30 08:28 - [媒体：手机测评该挤挤水分了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-30 08:24 - [高质量发展看新疆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-30 08:22 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-30 08:32 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-30 08:32 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-30 08:22 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-30 08:22 - [安切洛蒂 换人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-30 08:17 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-30 08:40 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
+- 2026-06-30 08:40 - [恋与深空道歉声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:08 - [媒体评泰山建135公里刀片刺绳隔离网](http://www.blog.kurohicncr.top/Article/details/600738180091.shtml)
-- 2026-06-30 08:06 - [日本博主：日本足球真的垃圾](http://www.share.minike.top/Article/details/054265323.shtml)
-- 2026-06-30 08:27 - [日本16强魔咒](http://www.share.kurohicncr.top/Article/details/01614157239.shtml)
-- 2026-06-30 08:16 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/89755287.shtml)
-- 2026-06-30 08:16 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.minike.top/Article/details/12640900.shtml)
-- 2026-06-30 08:35 - [森保一 保守](https://www.share.minike.top/Article/details/8572437112.shtml)
-- 2026-06-30 08:08 - [我觉得你是在无中生友](https://www.blog.kurohicncr.top/Article/details/906994.shtml)
-- 2026-06-30 08:15 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/8883989.shtml)
-- 2026-06-30 08:12 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/39346050437.shtml)
-- 2026-06-30 08:27 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/33564.shtml)
-- 2026-06-30 08:13 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/0884599.shtml)
-- 2026-06-30 08:28 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/14186242.shtml)
-- 2026-06-30 08:09 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/739111.shtml)
-- 2026-06-30 08:22 - [张月收到黄灿灿辣货两眼发光](https://www.blog.minike.top/Article/details/241772.shtml)
-- 2026-06-30 08:28 - [德国淘汰](https://www.blog.kurohicncr.top/Article/details/3372274.shtml)
+- 2026-06-30 08:31 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.kurohicncr.top/Article/details/07484058895.shtml)
+- 2026-06-30 08:17 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/2141081.shtml)
+- 2026-06-30 08:23 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/77762.shtml)
+- 2026-06-30 08:34 - [为什么会有「念旧」的心理？](http://www.blog.minike.top/Article/details/38914534032.shtml)
+- 2026-06-30 08:16 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/5764919.shtml)
+- 2026-06-30 08:21 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/5678323270.shtml)
+- 2026-06-30 08:23 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/490548472118.shtml)
+- 2026-06-30 08:17 - [德国进球被吹](http://www.share.minike.top/Article/details/7619622589.shtml)
+- 2026-06-30 08:28 - [追梦拒绝2770万美元球员选项](https://www.blog.minike.top/Article/details/49825.shtml)
+- 2026-06-30 08:29 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/1157623.shtml)
+- 2026-06-30 08:18 - [董卿父亲报纸上发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/8255910180.shtml)
+- 2026-06-30 08:19 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/03688579531.shtml)
+- 2026-06-30 08:25 - [巴西绝杀日本：漫画般结局换了主角](https://www.share.minike.top/Article/details/753789.shtml)
+- 2026-06-30 08:40 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](http://www.blog.minike.top/Article/details/9978725375.shtml)
+- 2026-06-30 08:32 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/15137430.shtml)

@@ -1,57 +1,56 @@
-# Ademi LLP调查Ensign Group证券欺诈指控
+# 002490，直线涨停！002971，3连板！
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-律师事务所Ademi LLP周二宣布，正在对The Ensign Group， Inc．进行可能的证券欺诈索赔调查。该公司以ENSG为代码在纳斯达克上市。 该调查源于Ensign可能就其财务报表、业务运营及前景发布了不准确声明。2026年6月8日，一份做空报告详细指控称，Ensign旗下设施长期人手不足，违反了各州最低人员配备法律，并且该公司“将纳税人的资金输送至其高管及其关联
+受外围市场影响，6月11日A股三大指数集体低开。开盘后指数拉升，创业板指一度涨超1%，截至发稿，深证成指、创业板指再度下跌。 盘面上，石油石化、煤炭、资源开采、工业气体、磷化工概念等板块开盘活跃；机器人、航空机场、元件、汽车服务、水泥、贵金属等板块开盘走低。 港股方面，恒生指数、恒生科技指数均下跌超1%。泡泡玛特、腾讯控股、中国海洋石油等涨近2%，华虹宏力跌近4%，长飞光纤光缆
 
 ## 正文
 
-律师事务所Ademi LLP周二宣布，正在对The Ensign Group， Inc．进行可能的证券欺诈索赔调查。
+受外围市场影响，6月11日A股三大指数集体低开。
 
-该公司以ENSG为代码在纳斯达克上市。
+开盘后指数拉升，创业板指一度涨超1%，截至发稿，深证成指、创业板指再度下跌。
 
-该调查源于Ensign可能就其财务报表、业务运营及前景发布了不准确声明。
+盘面上，石油石化、煤炭、资源开采、工业气体、磷化工概念等板块开盘活跃；机器人、航空机场、元件、汽车服务、水泥、贵金属等板块开盘走低。
 
-2026年6月8日，一份做空报告详细指控称，Ensign旗下设施长期人手不足，违反了各州最低人员配备法律，并且该公司“将纳税人的资金输送至其高管及其关联方”。
+港股方面，恒生指数、恒生科技指数均下跌超1%。
 
-受此消息影响，Ensign股价在6月8日大幅下跌。
+泡泡玛特、腾讯控股、中国海洋石油等涨近2%，华虹宏力跌近4%，长飞光纤光缆跌近3%，中芯国际跌近2%。
 
-据市场数据显示，该公司股价当日下跌8.2%，跌幅达13.88美元，收于每股156.42美元，投资者遭受显著损失。
+油气概念盘初走强 油气概念盘初走强，山东墨龙（002490）涨停，通源石油、泰山石油、潜能恒信、贝肯能源、蓝焰控股纷纷上扬。
 
-另一家律师事务所Block & Leviton也同时发起了调查。
+消息面上，布伦特原油一度站上95美元/桶，涨超2%。
 
-该所指出，Hunterbrook Media发布的报告详细指控Ensign的增长和盈利能力建立在其护理设施长期人手不足的基础之上，导致患者护理不达标、违反人员配备要求、质量指标误导以及大量关联方付款。
+化工板块走高，硫磺、磷化工方向领涨，兴发集团、澄星股份、六国化工涨停，粤桂股份触及涨停，川金诺、迪尔化工、赤天化、云天化跟涨。
 
 ## 相关推荐
 
-- 2026-06-30 08:19 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
-- 2026-06-30 08:31 - [Melo向柳智敏张元英道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-30 08:32 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-30 08:12 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
-- 2026-06-30 08:35 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-30 08:22 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-30 08:34 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-30 08:12 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
-- 2026-06-30 08:23 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-30 08:09 - [森保一致歉：世界第一目标没能实现](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
-- 2026-06-30 08:07 - [世界杯巴拉圭点球淘汰德国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-30 08:26 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-30 08:23 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-30 08:33 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-30 08:38 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-30 08:16 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-30 08:25 - [张月收到黄灿灿辣货两眼发光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-30 08:34 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-30 08:18 - [曝iPhone18Pro机密文件现身暗网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
+- 2026-06-30 08:12 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
+- 2026-06-30 08:12 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:13 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/67022.shtml)
-- 2026-06-30 08:10 - [世界杯巴拉圭点球淘汰德国](http://www.share.kurohicncr.top/Article/details/10846.shtml)
-- 2026-06-30 08:33 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/855821694190.shtml)
-- 2026-06-30 08:17 - [董卿父亲在报纸上发文悼念亡妻](http://www.share.minike.top/Article/details/41908352327.shtml)
-- 2026-06-30 08:14 - [日本进球](http://www.share.kurohicncr.top/Article/details/55135181948.shtml)
-- 2026-06-30 08:06 - [巴西扳平比分](http://www.share.minike.top/Article/details/66444241.shtml)
-- 2026-06-30 08:27 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/087840622.shtml)
-- 2026-06-30 08:12 - [扬名立万](https://www.blog.minike.top/Article/details/80814104.shtml)
-- 2026-06-30 08:18 - [德国队连续三届世界杯无缘16强](https://www.share.minike.top/Article/details/4770944446.shtml)
-- 2026-06-30 08:18 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/566794379710.shtml)
-- 2026-06-30 08:11 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/880382091604.shtml)
-- 2026-06-30 08:25 - [巴西绝杀](https://www.share.minike.top/Article/details/04404.shtml)
-- 2026-06-30 08:07 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/487900817521.shtml)
-- 2026-06-30 08:07 - [高考结束了，你会让孩子在家玩手机吗？](http://www.blog.minike.top/Article/details/8696259241.shtml)
-- 2026-06-30 08:15 - [巴拉圭进球](http://www.share.minike.top/Article/details/5324799376.shtml)
+- 2026-06-30 08:29 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/568581113.shtml)
+- 2026-06-30 08:20 - [日本反击率先破门](http://www.blog.minike.top/Article/details/47202839.shtml)
+- 2026-06-30 08:36 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/237044.shtml)
+- 2026-06-30 08:34 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/959670818.shtml)
+- 2026-06-30 08:41 - [男子在京东买到“同仁堂”假药](http://www.blog.kurohicncr.top/Article/details/10321.shtml)
+- 2026-06-30 08:23 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/0558074.shtml)
+- 2026-06-30 08:17 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/34690.shtml)
+- 2026-06-30 08:26 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/2227103243.shtml)
+- 2026-06-30 08:21 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/3209667174.shtml)
+- 2026-06-30 08:41 - [美股](https://www.blog.minike.top/Article/details/606006.shtml)
+- 2026-06-30 08:35 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](http://www.share.kurohicncr.top/Article/details/89361.shtml)
+- 2026-06-30 08:33 - [巴西扳平比分](https://www.blog.kurohicncr.top/Article/details/07461964274.shtml)
+- 2026-06-30 08:14 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/4985480.shtml)
+- 2026-06-30 08:24 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/34325959121.shtml)
+- 2026-06-30 08:12 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/02909669.shtml)

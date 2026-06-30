@@ -1,59 +1,56 @@
-# 汽车之家-S早盘涨近7% 第一季度净收入总额超10亿元
+# 邦达亚洲:中东紧张局势缓解 黄金反弹收复4200关口
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-汽车之家-S（02518）早盘涨近7%，截至发稿，股价上涨6.75%，现报34.50港元，成交额1.351万港元。 汽车之家近日披露2026年第一季度业绩，期内总营收为10.5亿元人民币。此外，为持续回馈股东、兑现长期价值承诺，结合公司股息政策，董事会已批准派发每股美国存托股0.66美元，或每股普通股0.1650美元的现金分红，将以美元支付给于2026年7月2日休市后登记在册的
+6月12日，美国劳工部周四公布的数据显示，上周首次申领失业救济金人数意外攀升至2月以来最高水平，或反映出学校暑假及节假日期间常见的波动性。数据显示，截至6月6日当周，初请失业金人数较前一周增加4000人，升至22.9万人，市场调查经济学家的预测中值为22万人。反映领取失业救济总人数的持续申领失业金人数同样上升，前一周达到180万人。经济学家Eliza Winger点评：“初请失
 
 ## 正文
 
-汽车之家-S（02518）早盘涨近7%，截至发稿，股价上涨6.75%，现报34.50港元，成交额1.351万港元。
+6月12日，美国劳工部周四公布的数据显示，上周首次申领失业救济金人数意外攀升至2月以来最高水平，或反映出学校暑假及节假日期间常见的波动性。
 
-汽车之家近日披露2026年第一季度业绩，期内总营收为10.5亿元人民币。
+数据显示，截至6月6日当周，初请失业金人数较前一周增加4000人，升至22.9万人，市场调查经济学家的预测中值为22万人。
 
-此外，为持续回馈股东、兑现长期价值承诺，结合公司股息政策，董事会已批准派发每股美国存托股0.66美元，或每股普通股0.1650美元的现金分红，将以美元支付给于2026年7月2日休市后登记在册的美国存托股及普通股持有人，分红总金额约为人民币5亿元。
+反映领取失业救济总人数的持续申领失业金人数同样上升，前一周达到180万人。
 
-值得注意的是，汽车之家今年4月召开“信任，向新出发”品牌焕新发布会。
+经济学家Eliza Winger点评：“初请失业金人数按历史标准仍处于低位，且继续低于去年同期水平。
 
-公司在发布会上完成品牌LOGO焕新与App改版，并官宣数字人、AIGC创作大赛及AI智能助手等一系列落地动作，旨在推动AI技术驱动下的汽车内容创新和用户决策省心。
+结合5月非农就业报告来看，数据表明劳动力市场动能依然稳健。
 
-值得一提的是，发布会上，汽车之家展示了自研仓颉大模型与AI智能助手的落地进展。
+” 另外，当地时间周四，世界银行在最新一期《全球经济展望》报告中称，在伊朗战争推高能源价格的背景下，全球经济增长预计将降至新冠疫情暴发以来的最低水平。
 
-责任编辑：卢昱君
+世界银行预计，2026年全球经济增长率将放缓至2.5%，低于2025年的2.9%。
+
+推动经济放缓的主要原因之一是中东冲突导致能源价格上涨，进而推高通胀和利率。
 
 ## 相关推荐
 
-- 2026-06-30 08:11 - [网友写差评被店家“挂”门口避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
-- 2026-06-30 08:20 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-30 08:09 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
-- 2026-06-30 08:07 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
-- 2026-06-30 08:21 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-30 08:32 - [巴西绝杀日本：漫画般结局换了主角](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-30 08:25 - [自然光｜papi酱&窦文涛：驴与跑步机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-30 08:26 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-30 08:09 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-30 08:10 - [德国 传控](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-30 08:24 - [张月收到黄灿灿辣货两眼发光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-30 08:15 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-30 08:12 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
-- 2026-06-30 08:12 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-30 08:31 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-30 08:35 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-30 08:34 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-30 08:41 - [巴西绝杀日本：漫画般结局换了主角](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-30 08:39 - [郑钦文温网一轮游](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-30 08:15 - [德国4比5巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-30 08:32 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-30 08:31 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-30 08:39 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
+- 2026-06-30 08:25 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-30 08:38 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:27 - [上市央企地产商 两年换了三任董事长](http://www.blog.minike.top/Article/details/70474192723.shtml)
-- 2026-06-30 08:31 - [千与千寻](http://www.share.minike.top/Article/details/626386602721.shtml)
-- 2026-06-30 08:17 - [男子醉酒溺水获救后同行人拒协助抬人](https://www.blog.kurohicncr.top/Article/details/118399.shtml)
-- 2026-06-30 08:19 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/296950521.shtml)
-- 2026-06-30 08:34 - [泰山景区回应修建刀片刺绳隔离网](http://www.blog.minike.top/Article/details/570574506.shtml)
-- 2026-06-30 08:19 - [巴西绝杀](http://www.blog.minike.top/Article/details/183997.shtml)
-- 2026-06-30 08:06 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/13536961895.shtml)
-- 2026-06-30 08:34 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/9354970.shtml)
-- 2026-06-30 08:08 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/9055048.shtml)
-- 2026-06-30 08:23 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/454020500.shtml)
-- 2026-06-30 08:06 - [二次元提前预演明日巴西对日本](https://www.blog.kurohicncr.top/Article/details/8896854.shtml)
-- 2026-06-30 08:31 - [张雪的一句“是我们”引发岛内热议](https://www.blog.kurohicncr.top/Article/details/194599161.shtml)
-- 2026-06-30 08:16 - [开电动汽车真的很省钱吗？](http://www.blog.kurohicncr.top/Article/details/967258.shtml)
-- 2026-06-30 08:22 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/0433673809.shtml)
-- 2026-06-30 08:29 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/2081792848.shtml)
+- 2026-06-30 08:12 - [德国队世界杯点球大战首败](https://www.blog.kurohicncr.top/Article/details/627695.shtml)
+- 2026-06-30 08:21 - [网友写差评被店家“挂”门口避雷](https://www.share.minike.top/Article/details/617302.shtml)
+- 2026-06-30 08:25 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/721960.shtml)
+- 2026-06-30 08:22 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/271601207774.shtml)
+- 2026-06-30 08:29 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/1276245881.shtml)
+- 2026-06-30 08:33 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/0283328968.shtml)
+- 2026-06-30 08:21 - [德国 传控](http://www.share.minike.top/Article/details/284829.shtml)
+- 2026-06-30 08:41 - [三星投资计划](http://www.share.kurohicncr.top/Article/details/284613588.shtml)
+- 2026-06-30 08:17 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/30880.shtml)
+- 2026-06-30 08:13 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/380287146.shtml)
+- 2026-06-30 08:29 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://www.blog.kurohicncr.top/Article/details/840512.shtml)
+- 2026-06-30 08:28 - [开电动汽车真的很省钱吗？](https://www.share.minike.top/Article/details/198393773.shtml)
+- 2026-06-30 08:33 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/5443968.shtml)
+- 2026-06-30 08:36 - [刘宇宁是去进货了吗](https://www.share.minike.top/Article/details/9695128.shtml)
+- 2026-06-30 08:20 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/87367.shtml)

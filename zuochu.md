@@ -1,59 +1,60 @@
-# 欧洲股市下跌 爱立信和诺基亚重挫
+# 农业农村部：推动西部地区主导产业全链条发展壮大
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-欧洲股市下跌，尾盘抹去早前涨幅，追随美股跌势，板块轮动明显。 欧洲斯托克600指数收盘下跌0.5%，盘中一度上涨0.9%。今年表现强劲的能源、矿业、电信和科技股出现获利回吐。相比之下，化工、食品和零售股表现优异。 在电信领域，爱立信和诺基亚分别重挫6.3%和7%，有报道称英伟达可能在电信芯片领域展开竞争。 其他个股方面，保险商Unipol Assicurazioni SpA上涨
+中新经纬6月11日电 农业农村部副部长麦尔丹·木盖提11日表示，实施特色产业提升行动，推动西部地区主导产业全链条发展壮大。 11日上午，国新办就东西部协作工作进展成效举行新闻发布会。会上有记者提问：今年是“十五五”开局之年，常态化帮扶已纳入乡村振兴统筹实施，请问进入常态化帮扶阶段，将如何继续深入推进东西部协作？ 麦尔丹·木盖提答复称，进入常态化帮扶阶段，我们将落实党中央、国务院
 
 ## 正文
 
-欧洲股市下跌，尾盘抹去早前涨幅，追随美股跌势，板块轮动明显。
+中新经纬6月11日电 农业农村部副部长麦尔丹·木盖提11日表示，实施特色产业提升行动，推动西部地区主导产业全链条发展壮大。
 
-欧洲斯托克600指数收盘下跌0.5%，盘中一度上涨0.9%。
+11日上午，国新办就东西部协作工作进展成效举行新闻发布会。
 
-今年表现强劲的能源、矿业、电信和科技股出现获利回吐。
+会上有记者提问：今年是“十五五”开局之年，常态化帮扶已纳入乡村振兴统筹实施，请问进入常态化帮扶阶段，将如何继续深入推进东西部协作？
 
-相比之下，化工、食品和零售股表现优异。
+麦尔丹·木盖提答复称，进入常态化帮扶阶段，我们将落实党中央、国务院决策部署，继续坚持以往行之有效的经验做法和机制措施，保持政策总体稳定，持续拓展东西部协作领域，优化协作方式，提升协作水平，不断夯实工作基础，推进乡村全面振兴，促进区域协调发展。
 
-在电信领域，爱立信和诺基亚分别重挫6.3%和7%，有报道称英伟达可能在电信芯片领域展开竞争。
+一是稳定并优化结对关系。
 
-其他个股方面，保险商Unipol Assicurazioni SpA上涨4.7%，市场预期如果意大利联合圣保罗银行对意大利西雅那银行集团的收购要约成功，Unipol Assicurazioni SpA将收购后者的品牌和部分资产。
+保持东西部协作省际间结对关系稳定，继续由东部8个省(直辖市)结对帮扶西部10个省(自治区、直辖市)，同时结合新确定的国家和省级乡村振兴重点帮扶县范围，调整优化县级结对关系，安排东部地区经济较发达县(市、区)对西部地区国家和省级乡村振兴重点帮扶县进行全覆盖结对帮扶，确保平稳衔接、力度不减。
 
-在联合圣保罗银行提出收购要约的前一天，BPM银行已经提出对西雅那银行进行对等合并，但并未透露具体价格。
+二是坚持并拓展协作重点。
 
-周二，意大利西雅那银行集团走高2.6%，联合圣保罗银行涨0.9%，Banco BPM涨1.5%。
+落实常态化帮扶部署要求，坚持西部所需与东部所能相结合，继续坚持产业合作、劳务协作等开发式帮扶举措，持续增强内生发展动力。
 
 ## 相关推荐
 
-- 2026-06-30 08:09 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
-- 2026-06-30 08:30 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-30 08:19 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-30 08:34 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-30 08:32 - [女子遭下药退赔偿拟追刑责](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
-- 2026-06-30 08:11 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
-- 2026-06-30 08:22 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-30 08:22 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-30 08:21 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-30 08:30 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
-- 2026-06-30 08:28 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
-- 2026-06-30 08:24 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-30 08:20 - [自然光｜papi酱&窦文涛：驴与跑步机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-30 08:33 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-30 08:37 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-30 08:23 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-30 08:20 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-30 08:40 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
+- 2026-06-30 08:19 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-30 08:29 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-30 08:20 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-30 08:40 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
+- 2026-06-30 08:37 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-30 08:41 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-30 08:25 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-30 08:36 - [德国队连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-30 08:41 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:25 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/8029355.shtml)
-- 2026-06-30 08:15 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/19255.shtml)
-- 2026-06-30 08:22 - [张雪的一句“是我们”引发岛内热议](https://www.blog.minike.top/Article/details/193779173654.shtml)
-- 2026-06-30 08:31 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/3925739.shtml)
-- 2026-06-30 08:35 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/148460732291.shtml)
-- 2026-06-30 08:10 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/687340903.shtml)
-- 2026-06-30 08:21 - [王灿兮被烫伤两年后维权成功](http://www.share.minike.top/Article/details/0742727.shtml)
-- 2026-06-30 08:18 - [森保一 保守](http://www.share.kurohicncr.top/Article/details/25898.shtml)
-- 2026-06-30 08:35 - [日本五次世界杯淘汰赛全败](http://www.blog.kurohicncr.top/Article/details/47449.shtml)
-- 2026-06-30 08:26 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.minike.top/Article/details/6810070781.shtml)
-- 2026-06-30 08:28 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.minike.top/Article/details/05832343017.shtml)
-- 2026-06-30 08:31 - [张月收到黄灿灿辣货两眼发光](http://www.share.kurohicncr.top/Article/details/2553415949.shtml)
-- 2026-06-30 08:26 - [巴西把自己踢晕了](https://www.blog.minike.top/Article/details/36439.shtml)
-- 2026-06-30 08:10 - [巴西绝杀](https://www.share.minike.top/Article/details/522081413855.shtml)
-- 2026-06-30 08:33 - [徐亮怒斥世界杯踢假球](http://www.share.minike.top/Article/details/453598079.shtml)
+- 2026-06-30 08:26 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/976725112.shtml)
+- 2026-06-30 08:25 - [日本淘汰](https://www.share.kurohicncr.top/Article/details/58345.shtml)
+- 2026-06-30 08:40 - [巴西绝杀](https://www.share.minike.top/Article/details/3761468.shtml)
+- 2026-06-30 08:37 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/026375061.shtml)
+- 2026-06-30 08:29 - [高质量发展看新疆](https://www.share.kurohicncr.top/Article/details/370961.shtml)
+- 2026-06-30 08:40 - [穆祉丞年度人气艺人](http://www.blog.minike.top/Article/details/650560150205.shtml)
+- 2026-06-30 08:36 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/49547546788.shtml)
+- 2026-06-30 08:39 - [巴拉圭先进球了](http://www.share.kurohicncr.top/Article/details/04640.shtml)
+- 2026-06-30 08:19 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/6180152055.shtml)
+- 2026-06-30 08:30 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/9162015.shtml)
+- 2026-06-30 08:33 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/7491486734.shtml)
+- 2026-06-30 08:21 - [王楚钦说配合稍微有些陌生感](https://www.blog.minike.top/Article/details/67103992.shtml)
+- 2026-06-30 08:36 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/1905545.shtml)
+- 2026-06-30 08:31 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/791287033559.shtml)
+- 2026-06-30 08:34 - [藤森庆子赢得秘鲁总统选举](http://www.share.minike.top/Article/details/137695.shtml)

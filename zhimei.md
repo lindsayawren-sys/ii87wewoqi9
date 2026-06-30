@@ -1,52 +1,61 @@
-# 湖北武汉：生态赋能宜居 善治滋养民生
+# 牢记初心使命 奋进复兴征程丨三个红色地标见证“转折之城”的今昔巨变
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月09日 10:25 来源：中国新闻网 近日，“人权行动看中国·2026”主题参访活动湖北行在武汉启动，多个国际组织的官员、代表、专家与中国人权学者共同参访、交流。记者随团走访发现，武汉深耕生态治理、基层善治与文脉传承，将城市精细化建设与民生改善深度绑定，持续优化人居环境、补齐民生短板、增厚群众福祉。 南开大学人权研究中心主任常健表示，随着中国经济社会持
+新华社贵阳6月10日电 题：三个红色地标见证“转折之城”的今昔巨变 新华社记者施钱贵 娄山关、苟坝会议会址、遵义会议会址，是“转折之城”贵州遵义的三个著名红色地标，它们既镌刻着中国革命从低谷走向胜利的峥嵘足迹，也承载着伟大转折的红色记忆与不朽精神创造奇迹。 2025年3月，习近平总书记在贵州考察时指出，要弘扬长征精神和遵义会议精神，以昂扬斗志走好新时代的长征路。如今，居住在这三
 
 ## 正文
 
-发布时间：2026年06月09日 10:25 来源：中国新闻网 近日，“人权行动看中国·2026”主题参访活动湖北行在武汉启动，多个国际组织的官员、代表、专家与中国人权学者共同参访、交流。
+新华社贵阳6月10日电 题：三个红色地标见证“转折之城”的今昔巨变 新华社记者施钱贵 娄山关、苟坝会议会址、遵义会议会址，是“转折之城”贵州遵义的三个著名红色地标，它们既镌刻着中国革命从低谷走向胜利的峥嵘足迹，也承载着伟大转折的红色记忆与不朽精神创造奇迹。
 
-记者随团走访发现，武汉深耕生态治理、基层善治与文脉传承，将城市精细化建设与民生改善深度绑定，持续优化人居环境、补齐民生短板、增厚群众福祉。
+2025年3月，习近平总书记在贵州考察时指出，要弘扬长征精神和遵义会议精神，以昂扬斗志走好新时代的长征路。
 
-南开大学人权研究中心主任常健表示，随着中国经济社会持续发展，民众的生活品质不断提升，人民的生存权、发展权、环境权得到全方位改善。
+如今，居住在这三个红色地标附近的居民，亲眼见证了革命老区遵义从战火峥嵘到欣欣向荣的沧桑蝶变，也在代代守护、传承长征精神和遵义会议精神，不断创造新的奇迹。
 
-武汉生态治理、老城活化、基层善治的一系列实践，是中国以发展促人权的生动缩影。
+巍巍雄关映照富民新路 娄山关位于大娄山脉上，地势非常险要，有“一夫当关，万夫莫开”之势。
 
-记者 邹浩 责任编辑：【李季】
+“听老人说，长征时娄山关只有一条三四米宽的川黔公路可勉强行车。
+
+”从小生活在娄山关下的马天志说，当时翻越娄山关就此一条“独路”。
+
+后来，川黔公路被修整、扩展为210国道，来往的车辆川流不息，这让十多岁就学会藤编的马天志看到了商机。
+
+于是，他将当地盛产的青藤、竹子等材料编制成座椅、沙发等产品并销往川渝地区。
 
 ## 相关推荐
 
-- 2026-06-30 08:12 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-30 08:25 - [泰山景区回应修建刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-30 08:34 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-30 08:19 - [网友写差评被店家“挂”门口避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-30 08:10 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-30 08:25 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-30 08:29 - [田中碧失误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-30 08:20 - [Melo向柳智敏张元英道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-30 08:21 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
-- 2026-06-30 08:26 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-30 08:13 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
-- 2026-06-30 08:18 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-30 08:13 - [德国4比5巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-30 08:25 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
+- 2026-06-30 08:16 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-30 08:13 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-30 08:15 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-30 08:18 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-30 08:40 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-30 08:15 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-30 08:23 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-30 08:27 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-30 08:13 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
+- 2026-06-30 08:13 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-30 08:13 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-30 08:20 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-30 08:25 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:33 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/862214141.shtml)
-- 2026-06-30 08:06 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/0566863.shtml)
-- 2026-06-30 08:20 - [德国巴拉圭进入点球大战](https://www.blog.minike.top/Article/details/0756433.shtml)
-- 2026-06-30 08:30 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/9612329.shtml)
-- 2026-06-30 08:35 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/977651556.shtml)
-- 2026-06-30 08:15 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.kurohicncr.top/Article/details/531110903.shtml)
-- 2026-06-30 08:13 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/200106.shtml)
-- 2026-06-30 08:12 - [德国爆冷点球大战不敌巴拉圭](https://www.share.minike.top/Article/details/9314198368.shtml)
-- 2026-06-30 08:06 - [IGN评测电影版后室](https://www.blog.minike.top/Article/details/6350864695.shtml)
-- 2026-06-30 08:28 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/26665.shtml)
-- 2026-06-30 08:22 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](http://www.blog.kurohicncr.top/Article/details/384285979.shtml)
-- 2026-06-30 08:27 - [千与千寻](https://www.share.minike.top/Article/details/739643991.shtml)
-- 2026-06-30 08:22 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.kurohicncr.top/Article/details/687956.shtml)
-- 2026-06-30 08:23 - [如何改变自己太负责任的性格?](https://www.blog.kurohicncr.top/Article/details/2355485897.shtml)
-- 2026-06-30 08:29 - [好像看到了人类带孩子崩溃的样子](https://www.blog.minike.top/Article/details/838737408569.shtml)
+- 2026-06-30 08:29 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/87179788.shtml)
+- 2026-06-30 08:15 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/72789337.shtml)
+- 2026-06-30 08:23 - [博世们还在犹豫 美的们已经卖断货](http://www.share.kurohicncr.top/Article/details/52275209.shtml)
+- 2026-06-30 08:27 - [自然光｜papi酱&窦文涛：驴与跑步机](https://www.blog.minike.top/Article/details/96050274.shtml)
+- 2026-06-30 08:12 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.minike.top/Article/details/536906088.shtml)
+- 2026-06-30 08:21 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/59661.shtml)
+- 2026-06-30 08:23 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.blog.kurohicncr.top/Article/details/83213567328.shtml)
+- 2026-06-30 08:34 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/91551976.shtml)
+- 2026-06-30 08:33 - [卢卡申科发布解放军仪仗队视频](http://www.share.minike.top/Article/details/59676502761.shtml)
+- 2026-06-30 08:29 - [曝詹姆斯即将与勇士会面](https://www.blog.kurohicncr.top/Article/details/740060343336.shtml)
+- 2026-06-30 08:15 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/16931104.shtml)
+- 2026-06-30 08:34 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.share.kurohicncr.top/Article/details/43095645823.shtml)
+- 2026-06-30 08:13 - [德国罚丢3粒点球](http://www.share.minike.top/Article/details/70408234260.shtml)
+- 2026-06-30 08:12 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/9116580078.shtml)
+- 2026-06-30 08:17 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/56385746231.shtml)

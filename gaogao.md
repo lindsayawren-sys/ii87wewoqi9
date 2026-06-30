@@ -1,57 +1,44 @@
-# 股价业绩翻倍！千亿存储牛股们，密集减持、赴港上市
+# 农业农村部：东西部协作帮助西部地区500余万农村劳动力实现就业
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者丨吴佳楠 编辑丨孙超逸 曾静娇 张伟贤 6月9日，A股四大指数集体大涨，存储芯片指数涨超4%，普冉股份、恒烁股份等4股涨超9%，江波龙、佰维存储、兆易创新等多只千亿市值个股涨超5%。今年以来，存储芯片概念一路上行，共有10股股价涨幅已超100%，前三位为商络电子（259%）、普冉股份（222%）、德明利
+中新网6月11日电 国新办11日举行新闻发布会，介绍东西部协作工作进展成效。农业农村部副部长麦尔丹·木盖提在会上介绍，在巩固拓展脱贫攻坚成果同乡村振兴有效衔接过渡期，通过东西部协作机制帮助西部地区500余万农村劳动力实现就业，其中脱贫劳动力300多万人。
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网6月11日电 国新办11日举行新闻发布会，介绍东西部协作工作进展成效。
 
-记者丨吴佳楠 编辑丨孙超逸 曾静娇 张伟贤 6月9日，A股四大指数集体大涨，存储芯片指数涨超4%，普冉股份、恒烁股份等4股涨超9%，江波龙、佰维存储、兆易创新等多只千亿市值个股涨超5%。
-
-今年以来，存储芯片概念一路上行，共有10股股价涨幅已超100%，前三位为商络电子（259%）、普冉股份（222%）、德明利（170%）。
-
-2026年行至年中，江波龙、佰维存储等一批A股存储概念股业绩爆发，股价扶摇直上，纷纷叩开千亿市值的大门。
-
-然而，这些刚刚站上千亿市值台阶的存储新贵们，其资本动作却耐人寻味。
-
-一方面，产业资本、创始人或董监高密集抛出减持计划，大额套现、落袋为安。
-
-另一方面，公司主体争相奔赴港股，寻求更便捷的国际资本通道以开启二次融资，急迫补血扩张。
-
-在这场存储芯片的周期狂欢中，站在千亿市值之巅的存储概念股公司又将如何押注未来？
+农业农村部副部长麦尔丹·木盖提在会上介绍，在巩固拓展脱贫攻坚成果同乡村振兴有效衔接过渡期，通过东西部协作机制帮助西部地区500余万农村劳动力实现就业，其中脱贫劳动力300多万人。
 
 ## 相关推荐
 
-- 2026-06-30 08:13 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-30 08:12 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-30 08:10 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-30 08:28 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-30 08:21 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-30 08:06 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
-- 2026-06-30 08:08 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-30 08:26 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-30 08:11 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-30 08:31 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-30 08:29 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-30 08:16 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-30 08:20 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-30 08:22 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
+- 2026-06-30 08:28 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-30 08:23 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-30 08:39 - [德国队连续三届世界杯无缘16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-30 08:13 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-30 08:31 - [索马里女大使：想和中国一起搞事业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-30 08:23 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-30 08:30 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:08 - [流金岁月](http://www.blog.minike.top/Article/details/3627103537.shtml)
-- 2026-06-30 08:08 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/665152.shtml)
-- 2026-06-30 08:16 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/1775833.shtml)
-- 2026-06-30 08:32 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/6358305.shtml)
-- 2026-06-30 08:16 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.kurohicncr.top/Article/details/6090811.shtml)
-- 2026-06-30 08:25 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/09011314.shtml)
-- 2026-06-30 08:06 - [4000美元是黄金新一轮下跌的开始吗](https://www.blog.minike.top/Article/details/73158553.shtml)
-- 2026-06-30 08:12 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/23324722665.shtml)
-- 2026-06-30 08:28 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/9219031627.shtml)
-- 2026-06-30 08:19 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.minike.top/Article/details/79641559977.shtml)
-- 2026-06-30 08:15 - [日耳曼拖拉机](https://www.share.kurohicncr.top/Article/details/8414146.shtml)
-- 2026-06-30 08:26 - [内马尔替补](http://www.blog.minike.top/Article/details/5816073.shtml)
-- 2026-06-30 08:31 - [泰山建135公里刀片刺绳隔离网](https://www.share.minike.top/Article/details/67235163.shtml)
-- 2026-06-30 08:19 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/5584946943.shtml)
-- 2026-06-30 08:31 - [三星投资计划](https://www.blog.kurohicncr.top/Article/details/767060995.shtml)
+- 2026-06-30 08:22 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/9555897.shtml)
+- 2026-06-30 08:14 - [问心2神一集鬼三集](http://www.blog.minike.top/Article/details/7314585966.shtml)
+- 2026-06-30 08:35 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/330107061426.shtml)
+- 2026-06-30 08:29 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/70091437693.shtml)
+- 2026-06-30 08:30 - [被巴西绝杀后 日球员田中碧跪地痛哭](http://www.share.minike.top/Article/details/847302037.shtml)
+- 2026-06-30 08:33 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/529165238.shtml)
+- 2026-06-30 08:13 - [起风了](https://www.share.kurohicncr.top/Article/details/073672626.shtml)
+- 2026-06-30 08:37 - [请回答王牌2019](https://www.share.minike.top/Article/details/76879273918.shtml)
+- 2026-06-30 08:19 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/77079206.shtml)
+- 2026-06-30 08:12 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/58349694.shtml)
+- 2026-06-30 08:34 - [德国队连续三届世界杯无缘16强](https://www.share.minike.top/Article/details/176493141215.shtml)
+- 2026-06-30 08:33 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](http://www.share.minike.top/Article/details/525330.shtml)
+- 2026-06-30 08:39 - [我和我的家乡](http://www.share.minike.top/Article/details/98239228.shtml)
+- 2026-06-30 08:32 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.share.minike.top/Article/details/6142579125.shtml)
+- 2026-06-30 08:18 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/6464431188.shtml)

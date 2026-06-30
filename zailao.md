@@ -1,57 +1,59 @@
-# 英特尔股价上涨 报道称谷歌将委托其生产芯片
+# 公安部公布一起涉高考网络谣言典型案例 造谣者已被行拘
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-英特尔股价创一个月来最大涨幅，此前The Information报道称，Alphabet Inc．旗下谷歌将2028年逾300万颗专用AI芯片订单交给英特尔。 据The Information周一援引两名未具名知情人士报道，在经过数月技术测试后，谷歌决定选择英特尔生产部分张量处理器（TPU）。 The Information报道称，随着台积电难以满足市场强劲需求，英特尔正从谷歌
+中新网6月11日电 据“公安部网安局”微信公众号消息，公安部网安局11日公布了一起涉高考网络谣言典型案例。2026年6月5日，高考前夕，网络自媒体博主“方***倾听”发布一则信息，谎称“广东惠州一孤女模拟考648分，却遭亲舅舅烧书阻止参加高考”，该信息在社交媒体广泛传播，引发大量网民关注和讨论。经查，自媒体从业人员黄某(女，41岁)为蹭高考热度、博取关注、吸粉增流，实现引流带货
 
 ## 正文
 
-英特尔股价创一个月来最大涨幅，此前The Information报道称，Alphabet Inc．旗下谷歌将2028年逾300万颗专用AI芯片订单交给英特尔。
+中新网6月11日电 据“公安部网安局”微信公众号消息，公安部网安局11日公布了一起涉高考网络谣言典型案例。
 
-据The Information周一援引两名未具名知情人士报道，在经过数月技术测试后，谷歌决定选择英特尔生产部分张量处理器（TPU）。
+2026年6月5日，高考前夕，网络自媒体博主“方***倾听”发布一则信息，谎称“广东惠州一孤女模拟考648分，却遭亲舅舅烧书阻止参加高考”，该信息在社交媒体广泛传播，引发大量网民关注和讨论。
 
-The Information报道称，随着台积电难以满足市场强劲需求，英特尔正从谷歌等公司获得订单。
+经查，自媒体从业人员黄某(女，41岁)为蹭高考热度、博取关注、吸粉增流，实现引流带货牟利的目的，通过策划撰写剧本，雇用虚假连麦人员，编造上述不实信息，并在自媒体账号“方***倾听”发布，引发网民热议。
 
-英特尔股价在纽约市场一度飙升13%，至112.37美元。
+经审讯，黄某对其违法行为供认不讳。
 
-今年以来，该股已上涨约两倍。
+目前，属地公安机关已依法对黄某予以行政拘留。
 
-英特尔股价近期创下纪录新高，该公司此前发布的销售指引远超华尔街预期，显示其终于开始受益于人工智能投资热潮。
+网警提醒：网络空间并非法外之地，网络发言须严守法律法规。
 
-这一乐观展望表明，首席执行官陈立武正在推动这家一度被认为难以实现复兴的公司取得转机。
-
-在去年引入大规模投资、改善公司资产负债表后，他如今正逐步兑现提升运营表现的承诺。
+针对编造、传播网络谣言，扰乱公共秩序的行为，公安机关将依法严肃处理，坚决维护清朗网络空间。
 
 ## 相关推荐
 
-- 2026-06-30 08:20 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-30 08:06 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
-- 2026-06-30 08:23 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-30 08:23 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-30 08:21 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-30 08:30 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-30 08:22 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-30 08:12 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
-- 2026-06-30 08:16 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
-- 2026-06-30 08:13 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
-- 2026-06-30 08:33 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
+- 2026-06-30 08:31 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
+- 2026-06-30 08:33 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-30 08:12 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
+- 2026-06-30 08:18 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-30 08:12 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-30 08:36 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-30 08:33 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
+- 2026-06-30 08:26 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-30 08:27 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-30 08:26 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-30 08:41 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-30 08:13 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-30 08:28 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-30 08:12 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-30 08:26 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:31 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/551307.shtml)
-- 2026-06-30 08:18 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/53251146378.shtml)
-- 2026-06-30 08:25 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/727522361386.shtml)
-- 2026-06-30 08:22 - [巴西2-1绝杀日本](https://www.blog.minike.top/Article/details/617185590.shtml)
-- 2026-06-30 08:33 - [刘宇宁高情商化解谁站C位](http://www.share.kurohicncr.top/Article/details/43812003.shtml)
-- 2026-06-30 08:28 - [《贺子珍》](http://www.blog.minike.top/Article/details/3300977884.shtml)
-- 2026-06-30 08:21 - [二次元提前预演明日巴西对日本](https://www.blog.minike.top/Article/details/6602390.shtml)
-- 2026-06-30 08:35 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/090996.shtml)
-- 2026-06-30 08:27 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/6948404279.shtml)
-- 2026-06-30 08:31 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/214443584.shtml)
-- 2026-06-30 08:28 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.minike.top/Article/details/61367627120.shtml)
-- 2026-06-30 08:07 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.kurohicncr.top/Article/details/679609071139.shtml)
-- 2026-06-30 08:22 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/81259.shtml)
-- 2026-06-30 08:06 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/85268.shtml)
-- 2026-06-30 08:19 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/79751.shtml)
+- 2026-06-30 08:39 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.share.minike.top/Article/details/267371461.shtml)
+- 2026-06-30 08:21 - [Melo向柳智敏张元英道歉](http://www.share.kurohicncr.top/Article/details/69046.shtml)
+- 2026-06-30 08:41 - [巴拉圭点球大战淘汰德国进16强](http://www.blog.minike.top/Article/details/36068.shtml)
+- 2026-06-30 08:38 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/554516694.shtml)
+- 2026-06-30 08:12 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.minike.top/Article/details/732199506.shtml)
+- 2026-06-30 08:22 - [莫兰特转投开拓者效力](https://www.share.kurohicncr.top/Article/details/57564282.shtml)
+- 2026-06-30 08:17 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/8993429029.shtml)
+- 2026-06-30 08:16 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/83349307.shtml)
+- 2026-06-30 08:27 - [一生一世](https://www.blog.kurohicncr.top/Article/details/7996206.shtml)
+- 2026-06-30 08:12 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/12191557349.shtml)
+- 2026-06-30 08:38 - [王源近几年没有路演了](http://www.blog.minike.top/Article/details/571877780.shtml)
+- 2026-06-30 08:26 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/277533.shtml)
+- 2026-06-30 08:24 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/389746.shtml)
+- 2026-06-30 08:29 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/3331634.shtml)
+- 2026-06-30 08:37 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.minike.top/Article/details/297978997862.shtml)

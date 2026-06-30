@@ -1,56 +1,60 @@
-# （经济观察）“国补”叠加电商促销推动中国年中消费热
+# 彩票店违规经营被抓把柄遭勒索 “举报封号”竟被做成了“生意”
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-中新社北京6月9日电 (记者 王梦瑶)“国补叠券、低至5折”，中国电商平台“618”年中促销正火热进行。各平台形式多样的促销活动叠加国家消费品以旧换新补贴(以下简称“国补”)政策，推动形成一股年中消费热。 “618”大促始于京东的店庆日活动，后逐步扩大到全国范围的电商平台促销活动。 京东采销相关负责人向中新社记者介绍，今年“618”在该平台购买3C数码与家电产品，叠加国补最低可
+◆彩票店主线上直播刮奖引流，微信账号频繁被举报封号，一男子借此勒索，店主被逼转账万余元“保护费”。 ◆多笔规律性转账露出破绽，办案人员循线深挖，挖出横跨多省的系列敲诈案。 ◆多名被害人因自身违规经营不敢报警，无奈花钱消灾，反而助长犯罪气焰。 随着网络直播行业的发展，一些不法分子将网络平台举报机制异化为敛财手段，把举报变成敲诈勒索的工具。一而再再而三索要“保护费” “好不容易把直
 
 ## 正文
 
-中新社北京6月9日电 (记者 王梦瑶)“国补叠券、低至5折”，中国电商平台“618”年中促销正火热进行。
+◆彩票店主线上直播刮奖引流，微信账号频繁被举报封号，一男子借此勒索，店主被逼转账万余元“保护费”。
 
-各平台形式多样的促销活动叠加国家消费品以旧换新补贴(以下简称“国补”)政策，推动形成一股年中消费热。
+◆多笔规律性转账露出破绽，办案人员循线深挖，挖出横跨多省的系列敲诈案。
 
-“618”大促始于京东的店庆日活动，后逐步扩大到全国范围的电商平台促销活动。
+◆多名被害人因自身违规经营不敢报警，无奈花钱消灾，反而助长犯罪气焰。
 
-京东采销相关负责人向中新社记者介绍，今年“618”在该平台购买3C数码与家电产品，叠加国补最低可享受5折优惠；在“惊喜组合优惠”活动中，用户搭配下单两件及以上指定款家电家居自营商品，多重福利基础之上至高还能额外享7折优惠。
+随着网络直播行业的发展，一些不法分子将网络平台举报机制异化为敛财手段，把举报变成敲诈勒索的工具。
 
-天猫、拼多多、抖音商城等电商平台也推出了力度不小的优惠活动。
+一而再再而三索要“保护费” “好不容易把直播间的人气提上去，微信账号就被举报封号，客户联系不上我们，生意直接停摆。
 
-进入5月，各电商平台的“618”活动就已陆续开启。
+不挣钱不说，还被人索要钱财，扬言要是不给钱，等解封了还要继续举报，让我一直干不下去……”提起那段被人勒索的日子，在湖北枣阳经营福利彩票店的小舒又气愤又无奈。
 
-面对多种多样的促销机制，中国社交平台上有网友专门发帖分享最优惠购买攻略，相关话题浏览量接近30亿。
+此前，因线下门店销量不佳，为拓展客源，小舒尝试在短视频平台发布“刮刮乐”开奖视频吸引流量，并在个人主页上留下微信账号，吸引有购彩需求的网友添加，为网友提供代买“刮刮乐”、在微信小程序直播刮奖服务。
 
-从目前的数据看，国家和平台双重补贴正推动新一波消费潜力集中释放。
+2024年8月，小舒店内工作人员的微信账号接连被人举报，多个账号被封，客源大量流失。
 
 ## 相关推荐
 
-- 2026-06-30 08:07 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-30 08:35 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-30 08:27 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
-- 2026-06-30 08:08 - [马耳他著名拱门坍塌致一中国男子身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
-- 2026-06-30 08:19 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-30 08:21 - [大蒜晒外面被路过女子连盆端走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-30 08:12 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-30 08:32 - [库尼亚赛后伸五指嘲讽日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-30 08:27 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-30 08:24 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-30 08:17 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-30 08:32 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
+- 2026-06-30 08:35 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-30 08:19 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-30 08:35 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-30 08:17 - [世界杯巴拉圭点球淘汰德国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-30 08:26 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-30 08:15 - [孙颖莎王楚钦晋级8强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-30 08:21 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-30 08:37 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-30 08:26 - [周冬雨多次说演不了话剧文城](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-30 08:40 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
+- 2026-06-30 08:39 - [巴西绝杀日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-30 08:25 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:27 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/576438389.shtml)
-- 2026-06-30 08:11 - [日耳曼拖拉机](http://www.blog.kurohicncr.top/Article/details/029708164393.shtml)
-- 2026-06-30 08:06 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/0728330.shtml)
-- 2026-06-30 08:15 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/6428024898.shtml)
-- 2026-06-30 08:11 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/48207339.shtml)
-- 2026-06-30 08:08 - [德国4比5巴拉圭](http://www.share.minike.top/Article/details/73930.shtml)
-- 2026-06-30 08:34 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/7589785.shtml)
-- 2026-06-30 08:30 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/332336832634.shtml)
-- 2026-06-30 08:18 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/312543235.shtml)
-- 2026-06-30 08:26 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.minike.top/Article/details/662151018.shtml)
-- 2026-06-30 08:11 - [绘画区你赢了](http://www.share.minike.top/Article/details/58616705563.shtml)
-- 2026-06-30 08:20 - [萨内 看笑了](https://www.share.kurohicncr.top/Article/details/38154342206.shtml)
-- 2026-06-30 08:16 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.kurohicncr.top/Article/details/819925.shtml)
-- 2026-06-30 08:11 - [湖南祁东原文化馆被指贱卖](http://www.share.minike.top/Article/details/157812.shtml)
-- 2026-06-30 08:14 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/909781611.shtml)
+- 2026-06-30 08:34 - [有什么好的高中网课推荐吗？](https://www.blog.kurohicncr.top/Article/details/27292823.shtml)
+- 2026-06-30 08:32 - [委内瑞拉地震死亡人数升至1719人](http://www.share.kurohicncr.top/Article/details/21566060.shtml)
+- 2026-06-30 08:22 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/0892173165.shtml)
+- 2026-06-30 08:40 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/3786486530.shtml)
+- 2026-06-30 08:12 - [小娘惹](https://www.blog.minike.top/Article/details/79684240.shtml)
+- 2026-06-30 08:41 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/136430602471.shtml)
+- 2026-06-30 08:28 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/6190808.shtml)
+- 2026-06-30 08:34 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/133112237056.shtml)
+- 2026-06-30 08:18 - [男子在京东买到“同仁堂”假药](https://www.share.kurohicncr.top/Article/details/24092.shtml)
+- 2026-06-30 08:37 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/47812991.shtml)
+- 2026-06-30 08:31 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/95617059201.shtml)
+- 2026-06-30 08:35 - [穆祉丞年度人气艺人](http://www.share.minike.top/Article/details/922180.shtml)
+- 2026-06-30 08:28 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/5053114.shtml)
+- 2026-06-30 08:15 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/969447883.shtml)
+- 2026-06-30 08:24 - [莫兰特转投开拓者效力](https://www.share.minike.top/Article/details/57736309887.shtml)

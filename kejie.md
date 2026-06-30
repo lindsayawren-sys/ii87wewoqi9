@@ -1,59 +1,60 @@
-# 警惕！全球一周暴发非瘟百余起，波兰某猪场2.1万头生猪被扑杀
+# 【数据点评】地缘冲突重燃，美通胀上行风险有增无减
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-来源：中国饲料工业信息网 最近一周，国际非洲猪瘟疫情动态让全球养猪业神经再次紧绷。农业农村部畜牧兽医局6月4日发布的第560期《一周国际动物疫情动态》显示，5月下旬欧洲8个国家报告了超过100起非洲猪瘟疫情，其中波兰一起家猪场疫情尤为引人关注，超2.1万头生猪涉疫被”一夜清零“。同时，匈牙利的一家大型猪场也检出非瘟病毒，打破该国坚守8年的家猪非瘟”零“的防线。 全球一周暴发非瘟
+作者：张晨/F0284349、Z0010567/ 一德期货宏观分析师 要点速览版 数据表现 5月美国CPI同比4.2%，核心CPI同比2.9%，通胀潜在上行风险有增无减。 市场反应 美元指数、10年期美债利率短暂回落后随即收复失地，美股、黄金跌幅一度收窄随后再度扩大。 事件 5月美国CPI同比创3年新高，核心通胀在核心服务推动下继续走强。当前中东冲突重燃，霍尔木兹海峡通行依然受
 
 ## 正文
 
-来源：中国饲料工业信息网 最近一周，国际非洲猪瘟疫情动态让全球养猪业神经再次紧绷。
+作者：张晨/F0284349、Z0010567/ 一德期货宏观分析师 要点速览版 数据表现 5月美国CPI同比4.2%，核心CPI同比2.9%，通胀潜在上行风险有增无减。
 
-农业农村部畜牧兽医局6月4日发布的第560期《一周国际动物疫情动态》显示，5月下旬欧洲8个国家报告了超过100起非洲猪瘟疫情，其中波兰一起家猪场疫情尤为引人关注，超2.1万头生猪涉疫被”一夜清零“。
+市场反应 美元指数、10年期美债利率短暂回落后随即收复失地，美股、黄金跌幅一度收窄随后再度扩大。
 
-同时，匈牙利的一家大型猪场也检出非瘟病毒，打破该国坚守8年的家猪非瘟”零“的防线。
+事件 5月美国CPI同比创3年新高，核心通胀在核心服务推动下继续走强。
 
-全球一周暴发非瘟百余起，波兰某猪场2.1万头生猪被扑杀 根据官方通报及农业农村部畜牧兽医局发布的疫情动态显示，5月20日至29日一周内，匈牙利、爱沙尼亚、拉脱维亚、波兰、西班牙、罗马尼亚等国持续报告野猪疫情，仅波兰就新增74起野猪疫情，显示病毒在野生动物宿主中仍然活跃。
+当前中东冲突重燃，霍尔木兹海峡通行依然受阻，通胀潜在上行风险有增无减。
 
-更不容乐观的是，家猪场疫情也来势汹汹。
+核心观点 5月CPI同比受能源价格推动延续快速上行。
 
-塞尔维亚报告15起家猪疫情，罗马尼亚报告4起，乌克兰报告1起。
+整体CPI同比4.2%，一致预期4.2%，前值3.8%；环比0.5%，一致预期0.5%，前值0.6%。
 
-而波兰西波美拉尼亚省一起家猪场疫情的暴发，成为本周期国际疫情中最令人担忧的事件。
+核心CPI同比2.9%，一致预期2.9%，前值2.8%；环比0.2%，一致预期0.3%，前值0.4%。
 
-波兰这起疫情的特殊性有两点。
+5月CPI环比增速继续回落。
 
 ## 相关推荐
 
-- 2026-06-30 08:08 - [F1奥地利站赛后复盘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-30 08:21 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-30 08:29 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-30 08:29 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
-- 2026-06-30 08:26 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-30 08:25 - [日耳曼拖拉机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
-- 2026-06-30 08:06 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-30 08:18 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-30 08:34 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-30 08:22 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
-- 2026-06-30 08:31 - [电影抓特务上映11天破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
-- 2026-06-30 08:30 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-30 08:27 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
+- 2026-06-30 08:36 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-30 08:22 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-30 08:27 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-30 08:37 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-30 08:15 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-30 08:27 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
+- 2026-06-30 08:20 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-30 08:20 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-30 08:32 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-30 08:25 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-30 08:21 - [杨紫学位证上就是杨紫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-30 08:18 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-30 08:12 - [王楚钦说配合稍微有些陌生感](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-30 08:33 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:21 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/92389.shtml)
-- 2026-06-30 08:20 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/72488717028.shtml)
-- 2026-06-30 08:28 - [日本五次世界杯淘汰赛全败](https://www.blog.kurohicncr.top/Article/details/1760183604.shtml)
-- 2026-06-30 08:33 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/485439401.shtml)
-- 2026-06-30 08:34 - [日本博主：日本足球真的垃圾](https://www.blog.minike.top/Article/details/46411323361.shtml)
-- 2026-06-30 08:06 - [《共患难》](https://www.blog.minike.top/Article/details/56784614600.shtml)
-- 2026-06-30 08:07 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/90531789.shtml)
-- 2026-06-30 08:25 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.minike.top/Article/details/949909612.shtml)
-- 2026-06-30 08:28 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://www.share.minike.top/Article/details/866161.shtml)
-- 2026-06-30 08:19 - [全球最火存储ETF纳入兆易创新](https://www.share.kurohicncr.top/Article/details/63451292561.shtml)
-- 2026-06-30 08:21 - [网友写差评被店家“挂”门口避雷](http://www.blog.kurohicncr.top/Article/details/52786.shtml)
-- 2026-06-30 08:23 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.minike.top/Article/details/484333903.shtml)
-- 2026-06-30 08:22 - [谢依霖说杨幂是聚会第一把张罗手](http://www.share.kurohicncr.top/Article/details/609209.shtml)
-- 2026-06-30 08:16 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/8607822.shtml)
-- 2026-06-30 08:19 - [日本队5进世界杯淘汰赛0胜](https://www.share.minike.top/Article/details/07652.shtml)
+- 2026-06-30 08:32 - [曝老詹对自由市场态度与以往截然不同](https://www.share.kurohicncr.top/Article/details/607654029.shtml)
+- 2026-06-30 08:21 - [郑钦文温网一轮游](https://www.share.kurohicncr.top/Article/details/9176060702.shtml)
+- 2026-06-30 08:12 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.minike.top/Article/details/61266790.shtml)
+- 2026-06-30 08:13 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/40115453169.shtml)
+- 2026-06-30 08:41 - [日本反击率先破门](https://www.share.kurohicncr.top/Article/details/8460105325.shtml)
+- 2026-06-30 08:19 - [《共患难》](https://www.share.minike.top/Article/details/8153846.shtml)
+- 2026-06-30 08:29 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.minike.top/Article/details/91006.shtml)
+- 2026-06-30 08:33 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/50976109561.shtml)
+- 2026-06-30 08:41 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/0728393036.shtml)
+- 2026-06-30 08:37 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/55016665.shtml)
+- 2026-06-30 08:38 - [F1奥地利站赛后复盘](http://www.share.kurohicncr.top/Article/details/96689553546.shtml)
+- 2026-06-30 08:19 - [巴拉圭进球](https://www.share.minike.top/Article/details/770023232.shtml)
+- 2026-06-30 08:20 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/315089640762.shtml)
+- 2026-06-30 08:39 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/5584217725.shtml)
+- 2026-06-30 08:37 - [徐亮怒斥世界杯踢假球](http://www.share.kurohicncr.top/Article/details/9067997.shtml)

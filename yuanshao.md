@@ -1,59 +1,61 @@
-# 印尼五年期国债收益率升至2020年以来的最高水平
+# 投喂流浪动物？先看这份安全指南
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-印尼国债市场抛售加剧，五年期国债收益率升至逾六年的最高水平。 周二，该收益率上涨12个基点至7.47%，达到2020年5月以来的最高水平。印尼盾基本持平，而基准股指上涨1.3%。 随着政策制定者正加大力度吸引资金流入，印尼央行周六表示正与政府合作提高国债回报。印尼央行此前一直在二级市场买入债券作为其货币干预措施的一部分。据交易员称，印尼央行周一未见买盘。 随着全球投资者纷纷抛售
+投喂流浪动物？先看这份安全指南(健康驿站) 本报记者 王美华 您被短视频里救助流浪猫狗的温情画面打动过吗？小心！屏幕之外可能暗藏致命风险。 随着气温攀升，动物情绪易烦躁，加上人们衣着单薄、户外活动增多，被猫狗等动物抓咬伤的风险显著增加。河南省疾病预防控制中心传染病预防控制所副主任医师申晓靖提醒：狂犬病没有有效治疗手段，一旦发病，病死率接近100%，但通过科学预防几乎可以100%
 
 ## 正文
 
-印尼国债市场抛售加剧，五年期国债收益率升至逾六年的最高水平。
+投喂流浪动物？
 
-周二，该收益率上涨12个基点至7.47%，达到2020年5月以来的最高水平。
+先看这份安全指南(健康驿站) 本报记者 王美华 您被短视频里救助流浪猫狗的温情画面打动过吗？
 
-印尼盾基本持平，而基准股指上涨1.3%。
+小心！
 
-随着政策制定者正加大力度吸引资金流入，印尼央行周六表示正与政府合作提高国债回报。
+屏幕之外可能暗藏致命风险。
 
-印尼央行此前一直在二级市场买入债券作为其货币干预措施的一部分。
+随着气温攀升，动物情绪易烦躁，加上人们衣着单薄、户外活动增多，被猫狗等动物抓咬伤的风险显著增加。
 
-据交易员称，印尼央行周一未见买盘。
+河南省疾病预防控制中心传染病预防控制所副主任医师申晓靖提醒：狂犬病没有有效治疗手段，一旦发病，病死率接近100%，但通过科学预防几乎可以100%防止发病，关键在于暴露后第一时间规范处置，才能避开常见致命误区——立即彻底清洗伤口、全程接种疫苗，必要时规范注射被动免疫制剂，就能将发病风险降至极低。
 
-随着全球投资者纷纷抛售印尼资产，该国面临的压力与日俱增。
+近100%致死率，切勿有侥幸心理 对狂犬病，很多年轻人的认知还停留在“被疯狗咬了要打针”的模糊印象里。
 
-印尼总统普拉博沃的干预主义经济议程及支出计划正加剧市场对MSCI即将进行的评估的担忧，此次评估将决定是否将印尼股票保留在其关键指数中。
+申晓靖介绍，目前已知有两种传染病病死率接近100%，一种是极为罕见的朊病毒病，由朊病毒引起的侵犯中枢神经系统的人兽共患传染病(如疯牛病等)，发病率极低；另一种就是狂犬病——而它可能隐藏在一次投喂流浪猫狗时的抓伤中，离我们并不遥远。
 
 ## 相关推荐
 
-- 2026-06-30 08:34 - [泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-30 08:29 - [王楚钦说配合稍微有些陌生感](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-30 08:10 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-30 08:10 - [齐思钧回复张月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-30 08:10 - [泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-30 08:32 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
-- 2026-06-30 08:07 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-30 08:18 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
-- 2026-06-30 08:16 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
-- 2026-06-30 08:19 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-30 08:14 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
-- 2026-06-30 08:10 - [杨紫肖战余生请多指教拍立得](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
-- 2026-06-30 08:15 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-30 08:15 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-30 08:19 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-30 08:19 - [日本将帅赛后采访纷纷哽咽落泪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-30 08:40 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-30 08:22 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
+- 2026-06-30 08:36 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-30 08:36 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-30 08:29 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-30 08:12 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-30 08:33 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-30 08:33 - [曝老詹对自由市场态度与以往截然不同](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-30 08:15 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
+- 2026-06-30 08:25 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-30 08:26 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-30 08:40 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:15 - [郑钦文温网首轮出局](http://www.blog.kurohicncr.top/Article/details/549793471.shtml)
-- 2026-06-30 08:22 - [德国淘汰](https://www.share.minike.top/Article/details/0061880615.shtml)
-- 2026-06-30 08:22 - [媒体评哈兰德之歌火了](https://www.blog.kurohicncr.top/Article/details/72826743494.shtml)
-- 2026-06-30 08:18 - [二次元提前预演明日巴西对日本](http://www.share.kurohicncr.top/Article/details/03507.shtml)
-- 2026-06-30 08:07 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.share.minike.top/Article/details/2638672796.shtml)
-- 2026-06-30 08:06 - [王楚钦孙颖莎晋级混双八强](http://www.blog.kurohicncr.top/Article/details/7499866560.shtml)
-- 2026-06-30 08:31 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/32699322.shtml)
-- 2026-06-30 08:12 - [刘宇宁高情商化解谁站C位](https://www.share.kurohicncr.top/Article/details/24394073.shtml)
-- 2026-06-30 08:36 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/6303841357.shtml)
-- 2026-06-30 08:30 - [青春环游记第三季](https://www.share.minike.top/Article/details/74840.shtml)
-- 2026-06-30 08:10 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/540947942382.shtml)
-- 2026-06-30 08:32 - [日本队主帅道歉](http://www.share.minike.top/Article/details/726418.shtml)
-- 2026-06-30 08:23 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/69408594.shtml)
-- 2026-06-30 08:22 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/97500787001.shtml)
-- 2026-06-30 08:20 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/769717923.shtml)
+- 2026-06-30 08:16 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.kurohicncr.top/Article/details/5566159.shtml)
+- 2026-06-30 08:16 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/9739255632.shtml)
+- 2026-06-30 08:13 - [日本领先巴西](https://www.blog.minike.top/Article/details/5366138976.shtml)
+- 2026-06-30 08:12 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/427380275.shtml)
+- 2026-06-30 08:17 - [美股深夜大反弹 特斯拉飙涨8%](http://www.blog.minike.top/Article/details/268992566.shtml)
+- 2026-06-30 08:16 - [巴西把自己踢晕了](http://www.share.minike.top/Article/details/220728208.shtml)
+- 2026-06-30 08:31 - [陈幸同晋级WTT美国大满贯女单32强](https://www.share.kurohicncr.top/Article/details/718839158.shtml)
+- 2026-06-30 08:20 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/480270647455.shtml)
+- 2026-06-30 08:20 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.kurohicncr.top/Article/details/63824682.shtml)
+- 2026-06-30 08:18 - [日本博主：日本足球真的垃圾](https://www.blog.minike.top/Article/details/75737.shtml)
+- 2026-06-30 08:13 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/4733098716.shtml)
+- 2026-06-30 08:32 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.kurohicncr.top/Article/details/1888846.shtml)
+- 2026-06-30 08:39 - [巴西半场0比1日本](http://www.share.kurohicncr.top/Article/details/8045275256.shtml)
+- 2026-06-30 08:40 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/6684625376.shtml)
+- 2026-06-30 08:24 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/15735611549.shtml)

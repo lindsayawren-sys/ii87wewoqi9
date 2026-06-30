@@ -1,49 +1,56 @@
-# 拾光纪·中朝两党两国最高领导人会谈，有这些关键词
+# 第三届中巴金融合作论坛在京召开
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-当地时间6月8日下午，中共中央总书记、国家主席习近平在平壤锦绣山迎宾馆同朝鲜劳动党总书记、国务委员长金正恩举行会谈。中朝两党两国最高领导人会谈，这些关键词值得关注，一支视频了解。
+来源：国家开发银行 6月9日，中国—巴西高层协调与合作委员会财金分委会（简称“中巴财金分委会”）项下第三届中国—巴西金融合作论坛（简称“中巴金融合作论坛”）在北京召开。本次论坛是中巴财金分委会第十二次会议配套活动，由中国财政部主办，中国国家开发银行承办，主题为 “金融助力多元发展，树立中巴南南合作典范”。 中国财政部副部长廖岷、巴西财政部副部长阿伦卡斯特罗出席论坛开幕式并致辞。
 
 ## 正文
 
-当地时间6月8日下午，中共中央总书记、国家主席习近平在平壤锦绣山迎宾馆同朝鲜劳动党总书记、国务委员长金正恩举行会谈。
+来源：国家开发银行 6月9日，中国—巴西高层协调与合作委员会财金分委会（简称“中巴财金分委会”）项下第三届中国—巴西金融合作论坛（简称“中巴金融合作论坛”）在北京召开。
 
-中朝两党两国最高领导人会谈，这些关键词值得关注，一支视频了解。
+本次论坛是中巴财金分委会第十二次会议配套活动，由中国财政部主办，中国国家开发银行承办，主题为 “金融助力多元发展，树立中巴南南合作典范”。
+
+中国财政部副部长廖岷、巴西财政部副部长阿伦卡斯特罗出席论坛开幕式并致辞。
+
+国开行董事长赵欢，巴西国家开发银行、巴中企业家委员会、巴西私人保险监管局有关负责人出席论坛开幕式并作主旨发言，巴西驻华使馆公使衔参赞马嘉良出席论坛。
+
+来自中国投资有限责任公司、中国进出口银行、中国工商银行、巴西全国保险公司、巴西石油公司等30余家金融机构和企业的代表参加论坛，围绕强化金融创新，推进绿色、农业、数智等领域投融资合作等议题进行深入交流。
+
+近年来，中巴两国政治互信不断提升，两国发展战略对接进展顺利，各领域务实合作成果丰硕。
+
+第三届中巴金融合作论坛的召开，有助于进一步深化中巴金融和企业界之间沟通交流、凝聚合作共识，更好服务中巴命运共同体建设。
+
+赵欢表示，国开行开展对巴西业务已近20年，在油气、矿业、电力、基础设施、金融合作、汽车与机械制造、海工装备制造、农产品加工等领域，助力一批重大标志性工程和“小而美”民生项目落地实施，为两国经济社会发展和改善民生作出积极贡献。
 
 ## 相关推荐
 
-- 2026-06-30 08:29 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
-- 2026-06-30 08:10 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-30 08:35 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-30 08:25 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-30 08:32 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-30 08:12 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-30 08:28 - [点球大战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-30 08:19 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-30 08:23 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-30 08:08 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-30 08:09 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
-- 2026-06-30 08:25 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-30 08:27 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-30 08:13 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-30 08:17 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-30 08:28 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-30 08:13 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-30 08:22 - [德国连续三届世界杯无缘16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-30 08:40 - [感动全网的699分女生想报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-30 08:22 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-30 08:14 - [iPhone18e曝光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-30 08:32 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-30 08:35 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-30 08:38 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-30 08:27 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:08 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.kurohicncr.top/Article/details/4227705306.shtml)
-- 2026-06-30 08:32 - [卢卡申科发布解放军仪仗队视频](https://www.share.kurohicncr.top/Article/details/810741251752.shtml)
-- 2026-06-30 08:10 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/01698.shtml)
-- 2026-06-30 08:12 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.kurohicncr.top/Article/details/360410394782.shtml)
-- 2026-06-30 08:28 - [马耳他著名拱门坍塌致一中国男子身亡](http://www.share.minike.top/Article/details/407875.shtml)
-- 2026-06-30 08:30 - [日本领先巴西](https://www.blog.minike.top/Article/details/018003045916.shtml)
-- 2026-06-30 08:16 - [好像看到了人类带孩子崩溃的样子](https://www.share.minike.top/Article/details/54022.shtml)
-- 2026-06-30 08:16 - [王曼昱被突如其来的话筒逗笑了](https://www.share.kurohicncr.top/Article/details/75087826.shtml)
-- 2026-06-30 08:29 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/259636769.shtml)
-- 2026-06-30 08:21 - [日本球迷被强行披上巴西国旗](http://www.share.kurohicncr.top/Article/details/175944539.shtml)
-- 2026-06-30 08:27 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/091511913769.shtml)
-- 2026-06-30 08:08 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.kurohicncr.top/Article/details/7194830457.shtml)
-- 2026-06-30 08:17 - [日本球员说被绝杀非常不甘心](http://www.blog.kurohicncr.top/Article/details/14215845362.shtml)
-- 2026-06-30 08:33 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.kurohicncr.top/Article/details/68501210190.shtml)
-- 2026-06-30 08:15 - [陈幸同晋级WTT美国大满贯女单32强](https://www.blog.minike.top/Article/details/947322598571.shtml)
+- 2026-06-30 08:18 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/5415480.shtml)
+- 2026-06-30 08:16 - [徐亮怒斥世界杯踢假球](http://www.share.minike.top/Article/details/29698970.shtml)
+- 2026-06-30 08:39 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/969127296.shtml)
+- 2026-06-30 08:35 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/31760142597.shtml)
+- 2026-06-30 08:24 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.kurohicncr.top/Article/details/74890.shtml)
+- 2026-06-30 08:28 - [拆解FIFA和世界杯的暗面](https://www.blog.minike.top/Article/details/3119815816.shtml)
+- 2026-06-30 08:41 - [杨紫学位证上就是杨紫](https://www.blog.kurohicncr.top/Article/details/0296620.shtml)
+- 2026-06-30 08:28 - [王濛回复黄灿灿](http://www.blog.minike.top/Article/details/111257253.shtml)
+- 2026-06-30 08:19 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.kurohicncr.top/Article/details/74157.shtml)
+- 2026-06-30 08:33 - [王濛回复黄灿灿](http://www.blog.minike.top/Article/details/2470088.shtml)
+- 2026-06-30 08:26 - [郑钦文 四年一轮游](http://www.blog.kurohicncr.top/Article/details/882832909.shtml)
+- 2026-06-30 08:18 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/69875.shtml)
+- 2026-06-30 08:26 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://www.blog.minike.top/Article/details/3177937.shtml)
+- 2026-06-30 08:35 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/7181008706.shtml)
+- 2026-06-30 08:35 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/923282.shtml)

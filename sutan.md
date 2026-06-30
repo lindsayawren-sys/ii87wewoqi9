@@ -1,60 +1,56 @@
-# 两支银行股盘中涨幅3%以上
+# 讽刺马斯克的充气人口惊现纽约时代广场，首富本人回应
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-6月8日，A股三大指数跳空低开，上证指数开盘跌2.21%报3938.71点，失守4000点关口；深证成指跌3.13%，创业板指跌3.48%，科创综指跌4.51%。全市场超5200只个股下跌。 截至午间收盘，指数跌幅有所收窄。沪指报3976.83点，下跌1.26%；深证成指报14933.82点，下跌2.49%；创业板指报3845.78点，下跌2.83%。科创综指跌2.80%，北证
+当地时间周四早上，纽约人醒来时发现，一个模仿全球首富马斯克形象的巨型充气人偶赫然出现在时代广场。就在一天后，由于SpaceX史上规模最大的IPO，马斯克势将成为全球首位万亿美元富翁。 这座赤裸上身、面带微笑的马斯克半身像连夜出现在时代广场，上面赫然印着对这位SpaceX创始人的尖锐指控。 这座半身像的腹部与后背纹着这样一行字：“SpaceX的 Grok人工智能制作儿童色情内容”
 
 ## 正文
 
-6月8日，A股三大指数跳空低开，上证指数开盘跌2.21%报3938.71点，失守4000点关口；深证成指跌3.13%，创业板指跌3.48%，科创综指跌4.51%。
+当地时间周四早上，纽约人醒来时发现，一个模仿全球首富马斯克形象的巨型充气人偶赫然出现在时代广场。
 
-全市场超5200只个股下跌。
+就在一天后，由于SpaceX史上规模最大的IPO，马斯克势将成为全球首位万亿美元富翁。
 
-截至午间收盘，指数跌幅有所收窄。
+这座赤裸上身、面带微笑的马斯克半身像连夜出现在时代广场，上面赫然印着对这位SpaceX创始人的尖锐指控。
 
-沪指报3976.83点，下跌1.26%；深证成指报14933.82点，下跌2.49%；创业板指报3845.78点，下跌2.83%。
+这座半身像的腹部与后背纹着这样一行字：“SpaceX的 Grok人工智能制作儿童色情内容”。
 
-科创综指跌2.80%，北证50逆市上涨2.10%。
+针对有关Grok生成色情内容的投诉，马斯克在1月份表示，“任何使用Grok制作非法内容的人都将承担与上传非法内容相同的后果。
 
-沪深两市半日成交额约1.77万亿元，全市场超4500只个股飘绿。
+” SpaceX官方页面也表示，其政策“对任何形式的儿童性剥削都采取零容忍态度”。
 
-这并非A股的独立调整。
+在SpaceX备受瞩目的IPO之前，该公司上个月提交的S-1文件中提到了Grok的“不适宜工作场所观看”（NSFW）功能。
 
-上周五（6月5日），美国5月非农就业数据远超预期，新增就业17.2万人（预期8.8万人），市场对美联储年内加息的担忧急剧升温，美股遭遇“黑色星期五”——纳斯达克指数暴跌4.18%，费城半导体指数单日重挫逾10%，抹去超万亿美元市值，创六年来最大日跌幅。
+SpaceX警告潜在投资者，Grok的NSFW模式可能带来“更高的风险”和“声誉损害”，部分原因是它可能生成“未经同意或剥削性的图像”。
 
 ## 相关推荐
 
-- 2026-06-30 08:09 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
-- 2026-06-30 08:23 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-30 08:09 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
-- 2026-06-30 08:25 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-30 08:09 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
-- 2026-06-30 08:15 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-30 08:31 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-30 08:13 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-30 08:27 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-30 08:15 - [巴西足球能否再现昔日荣光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
-- 2026-06-30 08:19 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
-- 2026-06-30 08:13 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-30 08:32 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-30 08:16 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
+- 2026-06-30 08:14 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-30 08:29 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-30 08:19 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-30 08:23 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
+- 2026-06-30 08:28 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-30 08:37 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-30 08:33 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-30 08:36 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-30 08:31 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
+- 2026-06-30 08:38 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:25 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.blog.minike.top/Article/details/400077023.shtml)
-- 2026-06-30 08:11 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/1664461018.shtml)
-- 2026-06-30 08:15 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.kurohicncr.top/Article/details/595303936.shtml)
-- 2026-06-30 08:07 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/987558.shtml)
-- 2026-06-30 08:33 - [“草莓月亮”浪漫现身](https://www.share.kurohicncr.top/Article/details/1561118.shtml)
-- 2026-06-30 08:25 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/2030195161.shtml)
-- 2026-06-30 08:25 - [王欣瑜连续4年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/37009879054.shtml)
-- 2026-06-30 08:11 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/4605782.shtml)
-- 2026-06-30 08:07 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.blog.minike.top/Article/details/1999725.shtml)
-- 2026-06-30 08:24 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/2999412.shtml)
-- 2026-06-30 08:21 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/1966841846.shtml)
-- 2026-06-30 08:19 - [曝詹姆斯即将与勇士会面](https://www.share.minike.top/Article/details/9663825337.shtml)
-- 2026-06-30 08:09 - [我觉得你是在无中生友](http://www.blog.minike.top/Article/details/22052.shtml)
-- 2026-06-30 08:33 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/974872247.shtml)
-- 2026-06-30 08:30 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/87814.shtml)
+- 2026-06-30 08:20 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/977377796477.shtml)
+- 2026-06-30 08:39 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/6303492197.shtml)
+- 2026-06-30 08:22 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/139648116.shtml)
+- 2026-06-30 08:18 - [张月收到黄灿灿辣货两眼发光](https://www.share.kurohicncr.top/Article/details/386675480.shtml)
+- 2026-06-30 08:36 - [峡谷事故团队组队时有人提醒会下雨](http://www.share.minike.top/Article/details/4857516.shtml)
+- 2026-06-30 08:33 - [全球芯片巨头史诗级扩产](https://www.blog.kurohicncr.top/Article/details/087730022410.shtml)
+- 2026-06-30 08:21 - [齐思钧回复张月](http://www.share.minike.top/Article/details/651167557.shtml)
+- 2026-06-30 08:20 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/76946735239.shtml)
+- 2026-06-30 08:33 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](http://www.blog.minike.top/Article/details/638240.shtml)
+- 2026-06-30 08:13 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/023777983431.shtml)
+- 2026-06-30 08:17 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/4887024337.shtml)
+- 2026-06-30 08:17 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](https://www.blog.minike.top/Article/details/29374.shtml)
+- 2026-06-30 08:25 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/0855814840.shtml)
+- 2026-06-30 08:37 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.kurohicncr.top/Article/details/8845448.shtml)
+- 2026-06-30 08:14 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/25907881.shtml)

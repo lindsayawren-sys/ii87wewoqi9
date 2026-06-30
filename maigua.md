@@ -1,52 +1,50 @@
-# 网易支付被罚220.4万元：违反数据安全管理规定等
+# 华盛国际控股遭林国雄减持2065万股 每股均价为0.13港元
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-6月8日金融一线消息，中国人民银行浙江省分行公布的行政处罚决定信息公示表显示，网易支付（杭州）有限公司因违反账户管理规定、违反清算管理规定、违反数据安全管理规定、未按照规定开展客户尽职调查共四类违法行为类型，被警告，并处220.4万元罚款。同时，余某（网易支付（杭州）有限公司技术中心）因对网易支付（杭州）有限公司违反数据安全管理规定的违法行为负有责任，被罚4.5万元。朱某（网易
+香港联交所最新资料显示，6月9日，林国雄减持华盛国际控股（01323）2065万股，每股均价为0.13港元，总金额为268.45万港元。减持后最新持股数目为1895万股，最新持股比例为2.51%。责任编辑：卢昱君
 
 ## 正文
 
-6月8日金融一线消息，中国人民银行浙江省分行公布的行政处罚决定信息公示表显示，网易支付（杭州）有限公司因违反账户管理规定、违反清算管理规定、违反数据安全管理规定、未按照规定开展客户尽职调查共四类违法行为类型，被警告，并处220.4万元罚款。
+香港联交所最新资料显示，6月9日，林国雄减持华盛国际控股（01323）2065万股，每股均价为0.13港元，总金额为268.45万港元。
 
-同时，余某（网易支付（杭州）有限公司技术中心）因对网易支付（杭州）有限公司违反数据安全管理规定的违法行为负有责任，被罚4.5万元。
+减持后最新持股数目为1895万股，最新持股比例为2.51%。
 
-朱某（网易支付（杭州）有限公司反洗钱中心）因对未按照规定开展客户尽职调查的违法行为负有责任，被罚2.4万元。
-
-责任编辑：李琳琳
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 08:33 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-30 08:11 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-30 08:22 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
-- 2026-06-30 08:19 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
-- 2026-06-30 08:13 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-30 08:25 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-30 08:30 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
-- 2026-06-30 08:16 - [媒体：手机测评该挤挤水分了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-30 08:26 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-30 08:19 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
-- 2026-06-30 08:22 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-30 08:22 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-30 08:28 - [恋与深空道歉声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-30 08:26 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-30 08:14 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
+- 2026-06-30 08:37 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-30 08:21 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-30 08:38 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-30 08:22 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-30 08:12 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-30 08:22 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-30 08:14 - [一生一世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-30 08:28 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
+- 2026-06-30 08:18 - [郑钦文温网首轮出局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
+- 2026-06-30 08:23 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-30 08:33 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-30 08:33 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-30 08:15 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:26 - [日本球迷被强行披上巴西国旗](http://www.blog.kurohicncr.top/Article/details/42720812991.shtml)
-- 2026-06-30 08:10 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/44478.shtml)
-- 2026-06-30 08:15 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/3176925.shtml)
-- 2026-06-30 08:17 - [欧洲装一台空调有多难](https://www.blog.kurohicncr.top/Article/details/40893.shtml)
-- 2026-06-30 08:29 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/23681333.shtml)
-- 2026-06-30 08:10 - [委内瑞拉地震死亡人数升至1719人](https://www.blog.minike.top/Article/details/7537168.shtml)
-- 2026-06-30 08:19 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/83194.shtml)
-- 2026-06-30 08:13 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/05565758410.shtml)
-- 2026-06-30 08:17 - [韩国球迷凌晨4点接机怒骂主教练](http://www.blog.kurohicncr.top/Article/details/264388583.shtml)
-- 2026-06-30 08:17 - [锐评T1战胜KC](https://www.blog.kurohicncr.top/Article/details/2947539113.shtml)
-- 2026-06-30 08:34 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/74824690.shtml)
-- 2026-06-30 08:31 - [藤森庆子赢得秘鲁总统选举](https://www.share.kurohicncr.top/Article/details/89505.shtml)
-- 2026-06-30 08:27 - [萨内 看笑了](https://www.blog.minike.top/Article/details/789951.shtml)
-- 2026-06-30 08:25 - [Melo向柳智敏张元英道歉](https://www.share.minike.top/Article/details/1524353904.shtml)
-- 2026-06-30 08:22 - [湖南祁东原文化馆被指贱卖](https://www.blog.minike.top/Article/details/77753843921.shtml)
+- 2026-06-30 08:38 - [张月收到黄灿灿辣货两眼发光](https://www.share.kurohicncr.top/Article/details/365964308.shtml)
+- 2026-06-30 08:21 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/068199.shtml)
+- 2026-06-30 08:29 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.kurohicncr.top/Article/details/590140752.shtml)
+- 2026-06-30 08:41 - [一见倾心](https://www.share.kurohicncr.top/Article/details/88615.shtml)
+- 2026-06-30 08:35 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/240028251339.shtml)
+- 2026-06-30 08:38 - [全新问界M9现身美国街头](http://www.blog.kurohicncr.top/Article/details/2636037285.shtml)
+- 2026-06-30 08:31 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/19001768.shtml)
+- 2026-06-30 08:29 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/17718.shtml)
+- 2026-06-30 08:33 - [曝詹姆斯即将与勇士会面](https://www.blog.kurohicncr.top/Article/details/20875618.shtml)
+- 2026-06-30 08:29 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/309212.shtml)
+- 2026-06-30 08:24 - [存储芯片龙头提示风险](http://www.share.minike.top/Article/details/55374.shtml)
+- 2026-06-30 08:23 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/937466442.shtml)
+- 2026-06-30 08:27 - [日本 高位逼抢](http://www.blog.kurohicncr.top/Article/details/0139583.shtml)
+- 2026-06-30 08:24 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/86379872063.shtml)
+- 2026-06-30 08:20 - [曝老詹对自由市场态度与以往截然不同](http://www.share.kurohicncr.top/Article/details/81618779964.shtml)

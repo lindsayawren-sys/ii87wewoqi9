@@ -1,57 +1,58 @@
-# 对美联储可能加息的担忧拖累亚洲科技股下跌
+# 满足多元化配置需求，这只FOF为什么值得关注？
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-由于市场担心美国利率上升，加上对人工智能（AI）支出和高估值的疑虑持续，亚洲科技股周一普遍下跌。 三星电子下跌6.2%，存储芯片制造商SK海力士下跌2.3%。韩国基准股指韩国综合指数周一早盘一度大跌8.4%，促使交易所暂时停止交易。 全球最大的芯片代工商台积电下跌2.5%。富士康科技集团下跌5.4%，联发科技也下跌5.4%。日本方面，东京电子下跌6.7%，铠侠下跌8.7%。 在
+近一年来，光模块、存储等AI相关资产虽然持续上涨，但上涨背后的高波动让很多投资者心生怯意——涨起来眼馋，跌起来心慌。与此同时，国内利率中枢不断下移，债券收益越来越薄；海外地缘冲突反复、美联储降息预期忽左忽右，连传统的股债+黄金搭配，也开始显得“扛不住”。这时候，越来越多投资者把目光投向——多元化配置。 具有天然多元配置属性的FOF正受到越来越多的关注。Wind数据显示，截至5月
 
 ## 正文
 
-由于市场担心美国利率上升，加上对人工智能（AI）支出和高估值的疑虑持续，亚洲科技股周一普遍下跌。
+近一年来，光模块、存储等AI相关资产虽然持续上涨，但上涨背后的高波动让很多投资者心生怯意——涨起来眼馋，跌起来心慌。
 
-三星电子下跌6.2%，存储芯片制造商SK海力士下跌2.3%。
+与此同时，国内利率中枢不断下移，债券收益越来越薄；海外地缘冲突反复、美联储降息预期忽左忽右，连传统的股债+黄金搭配，也开始显得“扛不住”。
 
-韩国基准股指韩国综合指数周一早盘一度大跌8.4%，促使交易所暂时停止交易。
+这时候，越来越多投资者把目光投向——多元化配置。
 
-全球最大的芯片代工商台积电下跌2.5%。
+具有天然多元配置属性的FOF正受到越来越多的关注。
 
-富士康科技集团下跌5.4%，联发科技也下跌5.4%。
+Wind数据显示，截至5月27日，今年已有77只FOF新品成立，发行规模合计994.36亿元，较去年同期的240.41亿元，增长313.61%。
 
-日本方面，东京电子下跌6.7%，铠侠下跌8.7%。
+业绩表现层面，偏股混合型FOF基金指数过去1年累计上涨40.59%，跑赢中证全指、纳斯达克100和伦敦金等大类资产的同时，-9.87%的最大回撤表现也优于上述任一资产。
 
-在以科技股为主的纳斯达克指数周五下跌4.2%之后，半导体相关股票领跌。
+（数据来源：Wind，偏股混合型基金代表性指数指的是万得偏股混合型FOF指数，中证全指、纳斯达克100和伦敦金现货近1年的涨幅和最大回撤分别为35.34%/-10.55%、39.97%/-12.12%、35.01%/-19.10%） 经济周期分化加剧波动，多元配置增强组合韧性 “当前全球宏观格局呈现显著的错位特征，中国进入经济增长与通胀上升的早期阶段，美国和欧元区处于滞胀困境，而日本处于复苏但动能减弱的阶段。
 
-标普500指数中的九家万亿美元市值的科技公司周五平均下跌5.3%，市值总计损失约1.1万亿美元。
+”在景顺长城盈景积极配置6个月持有FOF拟任基金经理江虹看来，各国经济发展周期的错位为分散配置提供了条件。
 
 ## 相关推荐
 
-- 2026-06-30 08:21 - [郑钦文温网一轮游](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-30 08:23 - [郑钦文温网一轮游](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
-- 2026-06-30 08:31 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-30 08:19 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-30 08:08 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
-- 2026-06-30 08:08 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
-- 2026-06-30 08:21 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-30 08:27 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
-- 2026-06-30 08:31 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-30 08:19 - [武磊：巴西队赢的并不轻松](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-30 08:14 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-30 08:30 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-30 08:23 - [巴西扳平比分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-30 08:25 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-30 08:35 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-30 08:29 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-30 08:12 - [感动全网的699分女生想报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-30 08:28 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-30 08:19 - [世界杯欧洲队7战南美仅1胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-30 08:14 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-30 08:29 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-30 08:14 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-30 08:41 - [日本队主帅道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:19 - [世界杯“美洲德比”7月1日开打](http://www.share.minike.top/Article/details/1687236035.shtml)
-- 2026-06-30 08:30 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/7304137.shtml)
-- 2026-06-30 08:27 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/944644.shtml)
-- 2026-06-30 08:15 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/3238026086.shtml)
-- 2026-06-30 08:06 - [巴拉圭点球大战淘汰德国进16强](http://www.share.minike.top/Article/details/59731760.shtml)
-- 2026-06-30 08:26 - [上市央企地产商 两年换了三任董事长](https://www.share.kurohicncr.top/Article/details/00925.shtml)
-- 2026-06-30 08:23 - [达美乐运输面团时被雨淋到 客服回应](http://www.share.minike.top/Article/details/856060156.shtml)
-- 2026-06-30 08:21 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/828644.shtml)
-- 2026-06-30 08:32 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/25864.shtml)
-- 2026-06-30 08:28 - [大蒜晒外面被路过女子连盆端走](https://www.blog.minike.top/Article/details/621670728.shtml)
-- 2026-06-30 08:15 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/805934657.shtml)
-- 2026-06-30 08:27 - [上市央企地产商 两年换了三任董事长](https://www.share.minike.top/Article/details/99753061692.shtml)
-- 2026-06-30 08:16 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/9174563674.shtml)
-- 2026-06-30 08:21 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](http://www.share.minike.top/Article/details/63593356165.shtml)
-- 2026-06-30 08:31 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.kurohicncr.top/Article/details/05071.shtml)
+- 2026-06-30 08:26 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/2959693.shtml)
+- 2026-06-30 08:12 - [郑钦文温网首轮出局](http://www.share.kurohicncr.top/Article/details/0774941223.shtml)
+- 2026-06-30 08:41 - [马耳他著名拱门坍塌致中国男子身亡](https://www.share.minike.top/Article/details/569157279775.shtml)
+- 2026-06-30 08:28 - [大蒜晒外面被路过女子连盆端走](http://www.blog.minike.top/Article/details/37268835561.shtml)
+- 2026-06-30 08:36 - [老外对中国cosplay竟这样评价…](https://www.share.minike.top/Article/details/69352.shtml)
+- 2026-06-30 08:19 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/742929.shtml)
+- 2026-06-30 08:21 - [巴西把自己踢晕了](http://www.share.kurohicncr.top/Article/details/816870.shtml)
+- 2026-06-30 08:24 - [张帅晋级温网次轮](https://www.blog.minike.top/Article/details/01510476122.shtml)
+- 2026-06-30 08:35 - [为什么会有「念旧」的心理？](https://www.share.kurohicncr.top/Article/details/7842661601.shtml)
+- 2026-06-30 08:13 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.minike.top/Article/details/673737753.shtml)
+- 2026-06-30 08:15 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/9619830.shtml)
+- 2026-06-30 08:27 - [天道](https://www.blog.kurohicncr.top/Article/details/864094833.shtml)
+- 2026-06-30 08:28 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.minike.top/Article/details/72281966.shtml)
+- 2026-06-30 08:14 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/560729440207.shtml)
+- 2026-06-30 08:41 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/14680428647.shtml)

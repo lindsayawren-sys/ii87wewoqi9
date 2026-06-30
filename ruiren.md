@@ -1,59 +1,52 @@
-# 航空业务分拆在即，霍尼韦尔确认维持全年业绩指引
+# 数字贸易如何惠及更多人？中外嘉宾走进浙江义乌寻找答案
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 霍尼韦尔全年销售额预期维持 388 亿至 398 亿美元区间 霍尼韦尔表示，全年销售额预期维持 388 亿至 398 亿美元，FactSet 统计分析师一致预期为 394 亿美元；内生销售额增速指引保持 3% 至 6% 不变。 霍尼韦尔（股票代码 HON，跌幅 1.69%）确认维持全年业绩指引，公司即将完成航空板块分拆。 周一，霍尼韦尔同步
+发布时间：2026年06月11日 09:28 来源：中国新闻网 近日，来自多个国家和地区的官员、专家和媒体代表走进浙江义乌全球数贸中心，近距离感受数字技术赋能贸易发展的新图景。 作为义乌市场贸易核心区域的重要平台，全球数贸中心以数字化、智能化、国际化为特色，全面引入人工智能技术和数贸场景，吸引时尚珠宝、创意潮玩、智能装备等多个新行业商户入驻。在参访过程中，中外嘉宾纷纷点赞中国数
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 霍尼韦尔全年销售额预期维持 388 亿至 398 亿美元区间 霍尼韦尔表示，全年销售额预期维持 388 亿至 398 亿美元，FactSet 统计分析师一致预期为 394 亿美元；内生销售额增速指引保持 3% 至 6% 不变。
+发布时间：2026年06月11日 09:28 来源：中国新闻网 近日，来自多个国家和地区的官员、专家和媒体代表走进浙江义乌全球数贸中心，近距离感受数字技术赋能贸易发展的新图景。
 
-霍尼韦尔（股票代码 HON，跌幅 1.69%）确认维持全年业绩指引，公司即将完成航空板块分拆。
+作为义乌市场贸易核心区域的重要平台，全球数贸中心以数字化、智能化、国际化为特色，全面引入人工智能技术和数贸场景，吸引时尚珠宝、创意潮玩、智能装备等多个新行业商户入驻。
 
-周一，霍尼韦尔同步披露了航空业务剥离后，剩余主体公司的经营展望，预计内生销售额与调整后收益均将实现增长。
+在参访过程中，中外嘉宾纷纷点赞中国数字经济发展成果，他们认为数字经济不仅提升了市场效率，也为中小企业参与国际贸易提供了更多机会，让更多人共享发展成果。
 
-霍尼韦尔称，全年销售额预期仍为 388 亿至 398 亿美元，FactSet 调研机构统计的市场分析师一致预期为 394 亿美元；内生销售额增速指引维持 3%–6% 不变。
-
-公司全年调整后每股收益预期为 10.35–10.65 美元，分析师一致预期 10.52 美元。
-
-分拆后的存续主体命名为霍尼韦尔技术公司（Honeywell Technologies），全年销售额预期 199 亿至 202 亿美元，内生销售额增速 2%–3%，调整后每股收益 3.95–4.15 美元。
-
-本次全新业绩指引剔除将于 6 月 29 日完成分拆的航空事业部全年经营数据，同时计入两项资产处置计划：生产力解决方案服务业务、仓储及工作流解决方案业务。
-
-展望数据还纳入收购庄信万丰催化剂技术业务的预估业绩，该收购交易预计于今年第三季度完成交割。
+(钱晨菲 刘子琳 制作 徐妙巧) 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 08:15 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-30 08:22 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-30 08:27 - [马耳他著名拱门坍塌致中国男子身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-30 08:24 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-30 08:09 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-30 08:18 - [德国巴拉圭进入点球大战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-30 08:13 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-30 08:14 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
-- 2026-06-30 08:15 - [郑钦文 四年一轮游](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-30 08:34 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
-- 2026-06-30 08:24 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
-- 2026-06-30 08:11 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-30 08:12 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-30 08:17 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-30 08:41 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-30 08:16 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-30 08:13 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-30 08:12 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-30 08:28 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-30 08:35 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-30 08:27 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-30 08:37 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-30 08:37 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-30 08:33 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-30 08:41 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
+- 2026-06-30 08:28 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
+- 2026-06-30 08:29 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:14 - [这种关系可能正在悄悄“催老”你](http://www.blog.minike.top/Article/details/39369445641.shtml)
-- 2026-06-30 08:25 - [日耳曼拖拉机](https://www.share.minike.top/Article/details/70655836178.shtml)
-- 2026-06-30 08:33 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/655029220.shtml)
-- 2026-06-30 08:29 - [巴西2-1绝杀日本](http://www.blog.minike.top/Article/details/92455.shtml)
-- 2026-06-30 08:09 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/99804212175.shtml)
-- 2026-06-30 08:34 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/73942824.shtml)
-- 2026-06-30 08:18 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/68177146816.shtml)
-- 2026-06-30 08:12 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/51520.shtml)
-- 2026-06-30 08:19 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/939699249.shtml)
-- 2026-06-30 08:28 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/652009487910.shtml)
-- 2026-06-30 08:20 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.kurohicncr.top/Article/details/71413071688.shtml)
-- 2026-06-30 08:31 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/292890673208.shtml)
-- 2026-06-30 08:08 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/23473318.shtml)
-- 2026-06-30 08:08 - [日本博主：日本足球真的垃圾](http://www.share.minike.top/Article/details/9619558707.shtml)
-- 2026-06-30 08:12 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/554855.shtml)
+- 2026-06-30 08:22 - [德国淘汰](https://www.share.kurohicncr.top/Article/details/377309.shtml)
+- 2026-06-30 08:18 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/292003998582.shtml)
+- 2026-06-30 08:24 - [德国vs巴拉圭](https://www.blog.minike.top/Article/details/072925488.shtml)
+- 2026-06-30 08:25 - [板面：为什么那么多人爱吃？？！](https://www.share.kurohicncr.top/Article/details/60994299.shtml)
+- 2026-06-30 08:20 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://www.share.minike.top/Article/details/67283773.shtml)
+- 2026-06-30 08:27 - [巴西足球能否再现昔日荣光](http://www.share.kurohicncr.top/Article/details/0108961.shtml)
+- 2026-06-30 08:21 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/6574416016.shtml)
+- 2026-06-30 08:27 - [日本领先巴西](https://www.share.minike.top/Article/details/634229.shtml)
+- 2026-06-30 08:22 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.share.minike.top/Article/details/69191078054.shtml)
+- 2026-06-30 08:30 - [郑钦文温网首轮出局](https://www.blog.minike.top/Article/details/96969.shtml)
+- 2026-06-30 08:32 - [全球芯片巨头史诗级扩产](http://www.blog.minike.top/Article/details/319087.shtml)
+- 2026-06-30 08:17 - [张雪的一句“是我们”引发岛内热议](https://www.blog.kurohicncr.top/Article/details/645449174.shtml)
+- 2026-06-30 08:25 - [关晓彤一路小跑迎接爸爸探班](https://www.share.kurohicncr.top/Article/details/95785056.shtml)
+- 2026-06-30 08:15 - [点球大战](http://www.blog.minike.top/Article/details/5243260.shtml)
+- 2026-06-30 08:25 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/255900644800.shtml)

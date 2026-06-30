@@ -1,58 +1,57 @@
-# 线上线下中医医疗乱象丛生 十部门联手整治中医医疗违法违规行为
+# 四川泸州长江五桥先导索成功过江 世界级拱桥转入江上“跨越”施工
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-十部门联手整治中医医疗违法违规行为 剑指“黑诊所”非法行医“伪科普”虚假营销 近年来，有不法分子打着“中医”旗号从事各类违法违规行为，以此牟取私利，不仅损害了民众对于中医药的信任，也极大增加了人们的健康安全隐患。 一场关乎民生福祉的“中医保卫战”已然打响。国家中医药管理局等十部门近期联合启动了为期一年的中医医疗违法违规行为专项治理，严厉打击打着中医养生保健治病的“幌子”从事非法
+发布时间：2026年06月12日 16:01 来源：中国新闻网 6月11日上午10时，四川泸州长江五桥施工现场，随着一声指令落下，直径仅4毫米的先导索在无人机牵引下，从南岸214米高的缆塔顶端向江心延伸，3分钟后成功飞越长江，精准抵达北岸196米高的缆塔顶，随即由施工人员迅速将其锚固，先导索过江作业圆满完成。这一关键节点的完成，不仅让泸州长江五桥两岸成功“牵手”，也标志着这座世
 
 ## 正文
 
-十部门联手整治中医医疗违法违规行为 剑指“黑诊所”非法行医“伪科普”虚假营销 近年来，有不法分子打着“中医”旗号从事各类违法违规行为，以此牟取私利，不仅损害了民众对于中医药的信任，也极大增加了人们的健康安全隐患。
+发布时间：2026年06月12日 16:01 来源：中国新闻网 6月11日上午10时，四川泸州长江五桥施工现场，随着一声指令落下，直径仅4毫米的先导索在无人机牵引下，从南岸214米高的缆塔顶端向江心延伸，3分钟后成功飞越长江，精准抵达北岸196米高的缆塔顶，随即由施工人员迅速将其锚固，先导索过江作业圆满完成。
 
-一场关乎民生福祉的“中医保卫战”已然打响。
+这一关键节点的完成，不仅让泸州长江五桥两岸成功“牵手”，也标志着这座世界最大跨径中承式钢箱拱桥正式进入缆索吊系统安装阶段，施工重心由两岸“接力”上移至江上“跨越”。
 
-国家中医药管理局等十部门近期联合启动了为期一年的中医医疗违法违规行为专项治理，严厉打击打着中医养生保健治病的“幌子”从事非法行医，借中医药名义虚假宣传、直播带货，违法违规使用医保基金等损害群众健康权益的行为。
+据了解，此次封顶的铰座体系总高度7.3米，桁架体系总高度14.3米，总宽度约81.9米，设计总重量约1900吨。
 
-“此次专项治理可谓对症下药，极具现实意义。
+整个桁架结构被划分为22个主要吊装单元，现场按照“由内向外、分段拼装、逐步成型”的方式推进施工。
 
-”北京中医药大学卫生健康法治研究与创新转化中心主任邓勇近日在接受《法治日报》记者采访时指出，专项治理直击行业痛点，针对性极强，剑指地下“黑诊所”非法行医、“伪科普”直播带货以及医保基金违规使用这三大顽疾。
+每个单元都像一块巨型积木，需要吊运至214米高空，相当于70层楼的高度，再进行拼装固定，对施工安全和安装精度要求极高。
 
-整治行动不仅兼顾了线上线下、机构人员、资金流转全链条，也清晰划定了养生保健与医疗服务的法律边界，有助于从源头遏制打“擦边球”的各类违法违规行为，令其无处遁形。
-
-线上线下中医医疗乱象丛生 “我行医几十年，难道还能害你？
-
-”就因为这样一句话，家住北京市丰台区的张先生对朋友推荐的一名“老中医”深信不疑。
+(记者 吕杨 视频来源：泸州融媒) 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-30 08:15 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-30 08:17 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-30 08:26 - [莫兰特被交易到开拓者](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-30 08:10 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-30 08:27 - [田中碧失误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
-- 2026-06-30 08:08 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
-- 2026-06-30 08:19 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-30 08:06 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-30 08:09 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-30 08:14 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-30 08:17 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-30 08:31 - [电影抓特务上映11天破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
+- 2026-06-30 08:18 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-30 08:30 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
+- 2026-06-30 08:38 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-30 08:33 - [安切洛蒂 换人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-30 08:39 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-30 08:34 - [媒体：手机测评该挤挤水分了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-30 08:23 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-30 08:41 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-30 08:29 - [莫兰特转投开拓者效力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-30 08:17 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-30 08:31 - [日本五次世界杯淘汰赛全败](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-30 08:15 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-30 08:21 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-30 08:33 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
+- 2026-06-30 08:37 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:07 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/75488.shtml)
-- 2026-06-30 08:14 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/423129.shtml)
-- 2026-06-30 08:11 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/46360636.shtml)
-- 2026-06-30 08:22 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/3582856.shtml)
-- 2026-06-30 08:06 - [日本16强魔咒](https://www.share.minike.top/Article/details/62185.shtml)
-- 2026-06-30 08:18 - [人类...完蛋了...](https://www.blog.minike.top/Article/details/6136284891.shtml)
-- 2026-06-30 08:27 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/51219063.shtml)
-- 2026-06-30 08:08 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/186412.shtml)
-- 2026-06-30 08:25 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/2030914694.shtml)
-- 2026-06-30 08:06 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/4332739.shtml)
-- 2026-06-30 08:13 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/185244138970.shtml)
-- 2026-06-30 08:15 - [如果有二次元高中是什么样子的？](https://www.share.kurohicncr.top/Article/details/277733226516.shtml)
-- 2026-06-30 08:34 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/87026556955.shtml)
-- 2026-06-30 08:28 - [花少8要去世界杯举办国](https://www.blog.kurohicncr.top/Article/details/37252068.shtml)
-- 2026-06-30 08:07 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/479282003.shtml)
+- 2026-06-30 08:36 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/80785875612.shtml)
+- 2026-06-30 08:41 - [内马尔中场休息积极鼓励队友](https://www.blog.kurohicncr.top/Article/details/34119.shtml)
+- 2026-06-30 08:23 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/88024.shtml)
+- 2026-06-30 08:24 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/64035.shtml)
+- 2026-06-30 08:15 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/3052601.shtml)
+- 2026-06-30 08:34 - [DeepSeek启动成立来最大规模招聘](http://www.blog.kurohicncr.top/Article/details/4085561059.shtml)
+- 2026-06-30 08:24 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.share.kurohicncr.top/Article/details/8962203273.shtml)
+- 2026-06-30 08:19 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/353039902411.shtml)
+- 2026-06-30 08:40 - [全球芯片巨头史诗级扩产](https://www.blog.kurohicncr.top/Article/details/5366076.shtml)
+- 2026-06-30 08:40 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/38016.shtml)
+- 2026-06-30 08:35 - [日本半场1比0领先巴西](http://www.share.kurohicncr.top/Article/details/90430193046.shtml)
+- 2026-06-30 08:17 - [一生一世](https://www.blog.minike.top/Article/details/739484.shtml)
+- 2026-06-30 08:32 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.kurohicncr.top/Article/details/3423249729.shtml)
+- 2026-06-30 08:41 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/817347254805.shtml)
+- 2026-06-30 08:36 - [巴拉圭点球大战淘汰德国进16强](http://www.blog.kurohicncr.top/Article/details/5777607051.shtml)

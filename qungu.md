@@ -1,57 +1,58 @@
-# 暴跌后紧急救市！刚刚，韩国出手！
+# 超150亿主力资金狂涌！有色金属领涨两市，同标的指数规模最大——有色ETF华宝（159876）涨超2.8%，多股涨停
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-韩国政府出手了！ 今天，韩国KOSPI指数以大跌超8%收盘，韩元兑美元汇率8日开盘报1555.2韩元（约合人民币6.79元），创下国际金融危机以来最低值。在这关键时刻，韩国政府出手了。 韩国总统李在明表示，当前外汇形势似乎是暂时的，而非典型的。韩国股市仍然被低估。午后，韩国政府与银行业开会，讨论外汇问题，韩国承诺将对任何汇市不当行为采取严厉措施。 韩国政府出手 以今天上午开盘为
+今日（6月11日）A股三大指数悉数飘绿，有色金属板块逆市领涨，截至发稿，获主力资金净流入超151亿元，板块吸金额高居31个申万一级行业首位！云南锗业获主力资金净流入19亿元，跻身A股吸金榜第二位。 热门ETF方面，同标的指数规模最大*的有色ETF华宝（159876）午后继续上攻，场内价格现涨2.85%，盘中收复5日均线，冲击日线3连阳！ 成份股方面，博威合金、海亮股份、金钼股份
 
 ## 正文
 
-韩国政府出手了！
+今日（6月11日）A股三大指数悉数飘绿，有色金属板块逆市领涨，截至发稿，获主力资金净流入超151亿元，板块吸金额高居31个申万一级行业首位！
 
-今天，韩国KOSPI指数以大跌超8%收盘，韩元兑美元汇率8日开盘报1555.2韩元（约合人民币6.79元），创下国际金融危机以来最低值。
+云南锗业获主力资金净流入19亿元，跻身A股吸金榜第二位。
 
-在这关键时刻，韩国政府出手了。
+热门ETF方面，同标的指数规模最大*的有色ETF华宝（159876）午后继续上攻，场内价格现涨2.85%，盘中收复5日均线，冲击日线3连阳！
 
-韩国总统李在明表示，当前外汇形势似乎是暂时的，而非典型的。
+成份股方面，博威合金、海亮股份、金钼股份、国城矿业4股涨停，云南锗业涨超8%，永兴材料、盛新锂能等个股大幅跟涨。
 
-韩国股市仍然被低估。
+2026年以来，多种小金属价格持续攀升。
 
-午后，韩国政府与银行业开会，讨论外汇问题，韩国承诺将对任何汇市不当行为采取严厉措施。
+根据上海钢联数据，截至6月1日，钽锭价格较去年年底上涨157.69%、锗锭价格较去年年底上涨83.82%、钼铁价格较去年年底上涨35.65%。
 
-韩国政府出手 以今天上午开盘为准，在首尔外汇市场，美元兑韩元汇率报1555.2韩元，较前一交易日收盘价（1539.1韩元）下降16.1韩元，为国际金融危机时期的2009年3月6日（1590韩元）后近17年3个月来的最低值。
+有业内人士表示，钽、锗、钼等小金属年内价格攀升，核心逻辑均指向供给刚性约束与新兴需求扩张的双重共振。
 
-随后，局势发生了重大变化。
+供给侧来看，科技与稀缺共振，战略性矿产已成全球资源竞争的重要领域。
 
 ## 相关推荐
 
-- 2026-06-30 08:18 - [第3集丨“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
-- 2026-06-30 08:06 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
-- 2026-06-30 08:11 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-30 08:21 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-30 08:26 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-30 08:33 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-30 08:09 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-30 08:33 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-30 08:06 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
-- 2026-06-30 08:10 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-30 08:07 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-30 08:28 - [王楚钦说配合稍微有些陌生感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-30 08:35 - [曝老詹对自由市场态度与以往截然不同](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-30 08:39 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-30 08:23 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-30 08:31 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-30 08:21 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
+- 2026-06-30 08:26 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-30 08:12 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-30 08:41 - [韩国道歉完日本道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-30 08:29 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
+- 2026-06-30 08:14 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-30 08:24 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:30 - [刘宇宁是去进货了吗](https://www.blog.minike.top/Article/details/2160275476.shtml)
-- 2026-06-30 08:12 - [输球后日本球迷被强行披上巴西国旗](http://www.blog.minike.top/Article/details/2824173.shtml)
-- 2026-06-30 08:21 - [世界杯欧洲队7战南美仅1胜](https://www.share.kurohicncr.top/Article/details/6164326893.shtml)
-- 2026-06-30 08:16 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/99807.shtml)
-- 2026-06-30 08:33 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/4756947.shtml)
-- 2026-06-30 08:23 - [人类...完蛋了...](http://www.blog.minike.top/Article/details/4801799.shtml)
-- 2026-06-30 08:06 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/5520722835.shtml)
-- 2026-06-30 08:30 - [大蒜晒外面被路过女子连盆端走](https://www.share.kurohicncr.top/Article/details/5815715756.shtml)
-- 2026-06-30 08:25 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/912596.shtml)
-- 2026-06-30 08:32 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/780390926.shtml)
-- 2026-06-30 08:20 - [巴西2-1绝杀日本](https://www.share.kurohicncr.top/Article/details/97422546301.shtml)
-- 2026-06-30 08:11 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/339305037808.shtml)
-- 2026-06-30 08:27 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/0166042.shtml)
-- 2026-06-30 08:10 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/08627100.shtml)
-- 2026-06-30 08:16 - [索马里女大使：想和中国一起搞事业](https://www.share.minike.top/Article/details/659709.shtml)
+- 2026-06-30 08:21 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/956584939.shtml)
+- 2026-06-30 08:27 - [德国爆冷点球大战不敌巴拉圭](https://www.blog.kurohicncr.top/Article/details/29642.shtml)
+- 2026-06-30 08:22 - [DeepSeek V4正式版要来了](http://www.share.minike.top/Article/details/157136801933.shtml)
+- 2026-06-30 08:30 - [曝詹姆斯即将与勇士会面](https://www.share.kurohicncr.top/Article/details/579625755.shtml)
+- 2026-06-30 08:15 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.kurohicncr.top/Article/details/88532472.shtml)
+- 2026-06-30 08:38 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/57777086.shtml)
+- 2026-06-30 08:41 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/465183559876.shtml)
+- 2026-06-30 08:32 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/5794295.shtml)
+- 2026-06-30 08:20 - [点球大战](http://www.blog.kurohicncr.top/Article/details/93659.shtml)
+- 2026-06-30 08:16 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/49906169.shtml)
+- 2026-06-30 08:23 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/719374744.shtml)
+- 2026-06-30 08:38 - [德国 传控](http://www.blog.kurohicncr.top/Article/details/427882.shtml)
+- 2026-06-30 08:26 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/855795413099.shtml)
+- 2026-06-30 08:35 - [巴西2比1日本](http://www.blog.minike.top/Article/details/4303784.shtml)
+- 2026-06-30 08:36 - [南北多地暴雨和强对流天气持续](http://www.blog.kurohicncr.top/Article/details/00708.shtml)

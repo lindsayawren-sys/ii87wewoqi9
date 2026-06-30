@@ -1,59 +1,47 @@
-# 尼克斯总决赛场边名人席拍出100万美元，创基金会单笔捐赠纪录
+# 国常会：研究2025年度中央预算执行和其他财政收支审计查出问题整改工作
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-纽约尼克斯队日前宣布，在2026年NBA总决赛第三场比赛中，两个位于麦迪逊广场花园场边“名人席”的座位通过拍卖筹得100万美元善款，创下了纽约梦想花园基金会成立以来收到的单笔最大捐款纪录。 此次拍卖由律师事务所Gibson Dunn和私募股权公司Veritas Capital共同以100万美元的价格赢得竞拍。这两个座位位于VIP 10区、AA排、25和26号，正对中场，是麦迪逊
+据央视，李强主持召开国务院常务会议，研究2025年度中央预算执行和其他财政收支审计查出问题整改工作；听取关于贯彻落实全国科技大会精神情况汇报；审议通过《教育发展“十五五”规划》；审议通过《美丽中国建设“十五五”规划》；讨论《中华人民共和国道路交通安全法（修订草案）》。 （本文来自第一财经） 责任编辑：刘万里 SF014
 
 ## 正文
 
-纽约尼克斯队日前宣布，在2026年NBA总决赛第三场比赛中，两个位于麦迪逊广场花园场边“名人席”的座位通过拍卖筹得100万美元善款，创下了纽约梦想花园基金会成立以来收到的单笔最大捐款纪录。
+据央视，李强主持召开国务院常务会议，研究2025年度中央预算执行和其他财政收支审计查出问题整改工作；听取关于贯彻落实全国科技大会精神情况汇报；审议通过《教育发展“十五五”规划》；审议通过《美丽中国建设“十五五”规划》；讨论《中华人民共和国道路交通安全法（修订草案）》。
 
-此次拍卖由律师事务所Gibson Dunn和私募股权公司Veritas Capital共同以100万美元的价格赢得竞拍。
-
-这两个座位位于VIP 10区、AA排、25和26号，正对中场，是麦迪逊广场花园最顶级的观赛位置。
-
-这些座位通常不对外出售，而是预留给蒂莫西·柴勒梅德、崔西·摩根等名人粉丝。
-
-此次募集的善款将直接捐赠给梦想花园基金会。
-
-该基金会是一个非营利组织，与麦迪逊广场花园集团公司合作，致力于帮助面临无家可归、贫困、疾病和寄养等困境的儿童。
-
-基金会与三州地区的30家合作组织共同开展工作，包括医院、许愿组织和社区组织。
-
-麦迪逊广场花园体育公司执行董事长兼首席执行官詹姆斯·多兰表示：“我们感谢Gibson Dunn和Veritas Capital的慷慨解囊。
+（本文来自第一财经） 责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-30 08:11 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-30 08:17 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-30 08:11 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-30 08:19 - [恋与深空道歉声明](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
-- 2026-06-30 08:25 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-30 08:25 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-30 08:19 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-30 08:12 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
-- 2026-06-30 08:20 - [韩国道歉完日本道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-30 08:31 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-30 08:21 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
-- 2026-06-30 08:23 - [德国队世界杯点球大战首败](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-30 08:29 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-30 08:22 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-30 08:37 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-30 08:34 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
+- 2026-06-30 08:37 - [董路：谁赢谁是“正路子”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
+- 2026-06-30 08:19 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-30 08:36 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-30 08:40 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-30 08:28 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-30 08:39 - [德国队连续三届世界杯无缘16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-30 08:15 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
+- 2026-06-30 08:18 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-30 08:37 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-30 08:16 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:16 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/71631505.shtml)
-- 2026-06-30 08:15 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/153141292916.shtml)
-- 2026-06-30 08:30 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/20488270040.shtml)
-- 2026-06-30 08:28 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/267423995475.shtml)
-- 2026-06-30 08:16 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/165441307.shtml)
-- 2026-06-30 08:25 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/06263374.shtml)
-- 2026-06-30 08:22 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/420732958.shtml)
-- 2026-06-30 08:21 - [如何评价杨紫白玉兰获奖](http://www.blog.minike.top/Article/details/28687731510.shtml)
-- 2026-06-30 08:11 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/86928707.shtml)
-- 2026-06-30 08:15 - [锐评T1战胜KC](http://www.blog.kurohicncr.top/Article/details/848177811437.shtml)
-- 2026-06-30 08:14 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/811245422228.shtml)
-- 2026-06-30 08:06 - [Melo向柳智敏张元英道歉](http://www.share.kurohicncr.top/Article/details/34073.shtml)
-- 2026-06-30 08:29 - [张雪的一句“是我们”引发岛内热议](https://www.share.minike.top/Article/details/089802718.shtml)
-- 2026-06-30 08:20 - [板面：为什么那么多人爱吃？？！](http://www.share.minike.top/Article/details/00422743.shtml)
-- 2026-06-30 08:14 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/721775.shtml)
+- 2026-06-30 08:19 - [日本半场1比0领先巴西](http://www.share.kurohicncr.top/Article/details/8980023.shtml)
+- 2026-06-30 08:30 - [爱很美味](http://www.share.minike.top/Article/details/095100954.shtml)
+- 2026-06-30 08:20 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/782069.shtml)
+- 2026-06-30 08:27 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/83114.shtml)
+- 2026-06-30 08:29 - [武磊：巴西队赢的并不轻松](http://www.share.kurohicncr.top/Article/details/743077.shtml)
+- 2026-06-30 08:36 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/38395988180.shtml)
+- 2026-06-30 08:14 - [曝老詹对自由市场态度与以往截然不同](https://www.share.minike.top/Article/details/361757.shtml)
+- 2026-06-30 08:19 - [天道](http://www.share.minike.top/Article/details/092136309208.shtml)
+- 2026-06-30 08:12 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/843078676.shtml)
+- 2026-06-30 08:23 - [赛博朋克边缘行者2预告片](https://www.blog.kurohicncr.top/Article/details/62914312846.shtml)
+- 2026-06-30 08:17 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.share.minike.top/Article/details/184507.shtml)
+- 2026-06-30 08:31 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.minike.top/Article/details/98097125437.shtml)
+- 2026-06-30 08:20 - [AI手机进入Agent时代](https://www.blog.kurohicncr.top/Article/details/31261692.shtml)
+- 2026-06-30 08:29 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/276332514.shtml)
+- 2026-06-30 08:20 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/9423288.shtml)

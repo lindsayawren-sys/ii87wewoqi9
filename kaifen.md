@@ -1,54 +1,57 @@
-# 产品注册上市提速！我国已批准注册特医食品330个
+# 2026陆家嘴论坛定档6月17日至18日！这些亮点值得关注
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-中新网6月8日电 据“市说新语”微信公众号消息，近期，我国特殊医学用途配方食品(以下简称特医食品)在产品注册类别数量拓展、罕见病类特医食品注册和临床可及性等方面取得新突破，有助于为特殊人群提供更精准、更全面的营养支持。2025年以来，《食品安全国家标准 特殊医学用途婴儿配方食品通则》(GB 25596—2025)《食品安全国家标准 特殊医学用途配方食品通则》(GB 29922—
+又是一年陆家嘴时间。6月12日，陆家嘴论坛新闻发布会在上海举行。据介绍，2026陆家嘴论坛将于6月17日至18日在上海召开，本届论坛主题为“全球治理倡议下的金融发展与合作：新愿景、新挑战和新机遇”。 2008年以来，陆家嘴论坛至今已举办十六届，是观察中国金融改革开放的重要窗口，论坛由中国人民银行、金融监管总局、中国证监会和上海市人民政府共同主办，本届由金融监管总局局长与上海市市
 
 ## 正文
 
-中新网6月8日电 据“市说新语”微信公众号消息，近期，我国特殊医学用途配方食品(以下简称特医食品)在产品注册类别数量拓展、罕见病类特医食品注册和临床可及性等方面取得新突破，有助于为特殊人群提供更精准、更全面的营养支持。
+又是一年陆家嘴时间。
 
-2025年以来，《食品安全国家标准 特殊医学用途婴儿配方食品通则》(GB 25596—2025)《食品安全国家标准 特殊医学用途配方食品通则》(GB 29922—2025)和《食品安全国家标准 肿瘤全营养配方食品》(GB 31662—2025)等三项特医食品新国标陆续发布，市场监管总局积极发布政策问答、开展宣贯和座谈交流，稳步推进产品按新国标注册。
+6月12日，陆家嘴论坛新闻发布会在上海举行。
 
-目前，我国已批准注册特医食品330个，覆盖所有产品大类和全年龄段人群，基本满足临床营养需求。
+据介绍，2026陆家嘴论坛将于6月17日至18日在上海召开，本届论坛主题为“全球治理倡议下的金融发展与合作：新愿景、新挑战和新机遇”。
 
-已有35个临床急需特医食品产品经公示纳入优先审评审批绿色通道，涵盖多种新类别产品，实现产品注册上市提速。
+2008年以来，陆家嘴论坛至今已举办十六届，是观察中国金融改革开放的重要窗口，论坛由中国人民银行、金融监管总局、中国证监会和上海市人民政府共同主办，本届由金融监管总局局长与上海市市长担任共同轮值主席。
 
-新增1个肿瘤全营养配方食品注册，进一步丰富肿瘤患者营养支持产品供给。
+金融监管总局局长丁向群将出席开幕致辞，70余名中外嘉宾参加 上海市委金融办常务副主任周小全表示，本届论坛将主题设定为“全球治理倡议下的金融发展与合作：新愿景、新挑战和新机遇”，希望与国内外嘉宾一道，共话全球金融治理新愿景，在挑战中觅机遇，在变革中开新局。
 
-5款国产罕见病类特医食品通过优先审评审批绿色通道获批注册，实现国产苯丙酮尿症特医食品的全年龄段人群覆盖和甲基丙二酸血症/丙酸血症特医食品注册零的突破。
+金融监管总局办公厅副主任鄢姣介绍，今年金融监管总局作为轮值主席单位，与上海市政府一道提前谋划、协同推进论坛筹备工作。
 
-下一步，市场监管总局将聚焦临床急需领域，进一步丰富产品类别，引导特医食品产业向满足多元化、个性化、精准化营养需求转型升级。
+目前，各项准备工作正在有序开展。
+
+金融监管总局局长丁向群将出席论坛开幕式，致开幕辞并作主题演讲。
 
 ## 相关推荐
 
-- 2026-06-30 08:16 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-30 08:32 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-30 08:29 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-30 08:20 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-30 08:13 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-30 08:34 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-30 08:20 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
-- 2026-06-30 08:15 - [巴拉圭率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-30 08:10 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-30 08:15 - [王楚钦说配合稍微有些陌生感](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-30 08:38 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-30 08:21 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-30 08:14 - [韩国道歉完日本道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-30 08:12 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-30 08:29 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-30 08:21 - [孙颖莎王楚钦晋级8强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-30 08:19 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
+- 2026-06-30 08:15 - [网瘾賊大的阿嬷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-30 08:17 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-30 08:27 - [勇士续约波尔津吉斯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-30 08:23 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:29 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](http://www.share.minike.top/Article/details/87529753.shtml)
-- 2026-06-30 08:09 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.minike.top/Article/details/600039729.shtml)
-- 2026-06-30 08:07 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/201138.shtml)
-- 2026-06-30 08:19 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/4322684.shtml)
-- 2026-06-30 08:35 - [德国4比5巴拉圭](http://www.blog.minike.top/Article/details/97046009.shtml)
-- 2026-06-30 08:25 - [亚洲球队全部告别世界杯](http://www.blog.kurohicncr.top/Article/details/20684113759.shtml)
-- 2026-06-30 08:07 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/7822365262.shtml)
-- 2026-06-30 08:21 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/409146890.shtml)
-- 2026-06-30 08:29 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/022102.shtml)
-- 2026-06-30 08:29 - [沉睡花园](https://www.share.minike.top/Article/details/4606031874.shtml)
-- 2026-06-30 08:12 - [世界杯欧洲队7战南美仅1胜](https://www.blog.kurohicncr.top/Article/details/578629.shtml)
-- 2026-06-30 08:07 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/4700097.shtml)
-- 2026-06-30 08:33 - [莫兰特转投开拓者效力](http://www.share.minike.top/Article/details/69494055627.shtml)
-- 2026-06-30 08:31 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/2741944.shtml)
-- 2026-06-30 08:24 - [人类...完蛋了...](https://www.share.minike.top/Article/details/88961883.shtml)
+- 2026-06-30 08:33 - [天道](https://www.share.minike.top/Article/details/351350.shtml)
+- 2026-06-30 08:14 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.kurohicncr.top/Article/details/95971.shtml)
+- 2026-06-30 08:25 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.minike.top/Article/details/84420.shtml)
+- 2026-06-30 08:38 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.kurohicncr.top/Article/details/77788621493.shtml)
+- 2026-06-30 08:41 - [MSI应援曲 如果季中成回忆](https://www.share.kurohicncr.top/Article/details/175870823.shtml)
+- 2026-06-30 08:38 - [大蒜晒外面被路过女子连盆端走](http://www.blog.minike.top/Article/details/29025136340.shtml)
+- 2026-06-30 08:28 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/471947978.shtml)
+- 2026-06-30 08:35 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/68379.shtml)
+- 2026-06-30 08:35 - [Melo向柳智敏张元英道歉](https://www.share.kurohicncr.top/Article/details/72858988116.shtml)
+- 2026-06-30 08:22 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/7877250816.shtml)
+- 2026-06-30 08:31 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/02476526881.shtml)
+- 2026-06-30 08:17 - [穆祉丞回应获年度人气艺人](http://www.share.minike.top/Article/details/020986941689.shtml)
+- 2026-06-30 08:38 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/6824118408.shtml)
+- 2026-06-30 08:24 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/745211550.shtml)
+- 2026-06-30 08:17 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/948989.shtml)

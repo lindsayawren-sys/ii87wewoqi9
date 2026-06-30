@@ -1,59 +1,56 @@
-# 英伟达达成存储芯片协议，但SK海力士和三星股价大幅承压
+# 中信建投期货：6月12日农产品早报
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-英伟达首席执行官黄仁勋刚刚与SK海力士（SK Hynix）签署了一项新的合作协议，但这并未提振该韩国存储芯片制造商的股价。 在韩国股市，SK海力士股价低开10.3%，同为存储芯片供应商的三星电子股价低开10.9%。韩国综合指数盘中一度下跌8.8%，不过这三者随后均收窄了跌幅。 今年以来，SK海力士和三星电子是韩国综合指数强劲上涨的主要引擎，该指数2026年迄今已累计上涨94%。
+玉米：中性 1．市场关注：现货下跌幅度相对有限、基差处于高位的情况下，本轮反弹主要考虑收敛需求带来的阶段性反弹。USDA六月最新报告：2026/27年度美玉米产量预估维持159.95亿蒲不变，期末库存小幅上调300万蒲至19.60亿蒲，主要因期初库存略有调高。全球方面，2025/26年度巴西玉米产量上调300万吨至1.38亿吨，阿根廷上调200万吨至6100万吨；2026/27
 
 ## 正文
 
-英伟达首席执行官黄仁勋刚刚与SK海力士（SK Hynix）签署了一项新的合作协议，但这并未提振该韩国存储芯片制造商的股价。
+玉米：中性 1．市场关注：现货下跌幅度相对有限、基差处于高位的情况下，本轮反弹主要考虑收敛需求带来的阶段性反弹。
 
-在韩国股市，SK海力士股价低开10.3%，同为存储芯片供应商的三星电子股价低开10.9%。
+USDA六月最新报告：2026/27年度美玉米产量预估维持159.95亿蒲不变，期末库存小幅上调300万蒲至19.60亿蒲，主要因期初库存略有调高。
 
-韩国综合指数盘中一度下跌8.8%，不过这三者随后均收窄了跌幅。
+全球方面，2025/26年度巴西玉米产量上调300万吨至1.38亿吨，阿根廷上调200万吨至6100万吨；2026/27年度全球玉米期末库存上调至2.8122亿吨，高于市场预期。
 
-今年以来，SK海力士和三星电子是韩国综合指数强劲上涨的主要引擎，该指数2026年迄今已累计上涨94%。
+报告整体偏中性偏空，但此前市场已较大程度消化南美丰产预期，利空落地后盘面未现进一步大幅下跌。
 
-但上周五，随著人工智能（AI）交易普遍承压，韩国综合指数下跌6.2%，周一早盘交易中，该指数又下跌了6.1%。
+2．观点总结：2300-2320元/吨区间成本支撑测试有效，但由于替代品压力尚未实质性消退，且需求端未见系统性复苏，连续大幅反弹难度较高，下方底部明确，维持中线多头布局。
 
-SPI Asset Management执行合伙人斯蒂芬．英尼斯（Stephen Innes）在Substack的一篇文章中表示：“一天的行情构不成趋势，但当市场上最热门的AI游乐场突然变成火警演习现场时，交易人士应该会注意到。
+豆粕：中性 1.6月USDA报告调整美豆旧作需求项，新作未作调整，期末库存预估维持3.1亿蒲不变，报告影响中性。
 
-”他还写道：“从周一的价格走势看，韩国投资者一觉醒来发现自己的市场处于全球AI交易平仓的震中，这显然不是什么令人高兴的事。
+市场仍聚焦北美良好天气前景有利于大豆生长，隔夜CBOT大豆收跌。
 
-” 尽管如此，英尼斯提醒道，对于韩国股市来说，目前仍处于交易日的早段。
+市场普遍预期月底面积报告或上调美豆种植面积，使美盘仍面临一定下行压力；但3.1亿蒲的新作期末库存使得中国任何大规模的采购兑现都可能扭转价格偏弱预期。
 
 ## 相关推荐
 
-- 2026-06-30 08:28 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-30 08:21 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-30 08:35 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-30 08:14 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-30 08:14 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
-- 2026-06-30 08:25 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
-- 2026-06-30 08:35 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-30 08:26 - [德国连续三届世界杯无缘16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
-- 2026-06-30 08:10 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-30 08:13 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-30 08:14 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-30 08:07 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-30 08:18 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-30 08:28 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-30 08:31 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-30 08:18 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-30 08:24 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
+- 2026-06-30 08:34 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-30 08:18 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
+- 2026-06-30 08:33 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-30 08:18 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-30 08:17 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-30 08:37 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:21 - [“草莓月亮”浪漫现身](http://www.blog.kurohicncr.top/Article/details/473709563.shtml)
-- 2026-06-30 08:30 - [巴拉圭率先破门](https://www.blog.minike.top/Article/details/234501108846.shtml)
-- 2026-06-30 08:24 - [AI手机进入Agent时代](http://www.blog.kurohicncr.top/Article/details/0076293.shtml)
-- 2026-06-30 08:21 - [湖南祁东原文化馆被指贱卖](http://www.blog.minike.top/Article/details/747891.shtml)
-- 2026-06-30 08:32 - [我和我的家乡](http://www.blog.minike.top/Article/details/14435.shtml)
-- 2026-06-30 08:32 - [德国vs巴拉圭](https://www.share.kurohicncr.top/Article/details/92336535010.shtml)
-- 2026-06-30 08:20 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.kurohicncr.top/Article/details/2177080.shtml)
-- 2026-06-30 08:32 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/940817120934.shtml)
-- 2026-06-30 08:29 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.minike.top/Article/details/670749.shtml)
-- 2026-06-30 08:26 - [德国淘汰](https://www.share.minike.top/Article/details/97209397.shtml)
-- 2026-06-30 08:25 - [索马里女大使：想和中国一起搞事业](http://www.share.minike.top/Article/details/303572380083.shtml)
-- 2026-06-30 08:16 - [男子身高一米八二仍做断骨增高](http://www.blog.minike.top/Article/details/02481.shtml)
-- 2026-06-30 08:35 - [日耳曼拖拉机](http://www.blog.kurohicncr.top/Article/details/846394099.shtml)
-- 2026-06-30 08:29 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.minike.top/Article/details/6519405478.shtml)
-- 2026-06-30 08:09 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/171580856675.shtml)
+- 2026-06-30 08:19 - [吴易昺不敌德约科维奇 止步温网首轮](http://www.blog.kurohicncr.top/Article/details/262549582.shtml)
+- 2026-06-30 08:20 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/22321848542.shtml)
+- 2026-06-30 08:12 - [扬名立万](https://www.share.minike.top/Article/details/50357.shtml)
+- 2026-06-30 08:37 - [严浩翔张峻豪师兄弟同台](http://www.blog.minike.top/Article/details/1614208.shtml)
+- 2026-06-30 08:29 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/816156998922.shtml)
+- 2026-06-30 08:33 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/38673688624.shtml)
+- 2026-06-30 08:37 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/868853884389.shtml)
+- 2026-06-30 08:39 - [大蒜晒外面被路过女子连盆端走](https://www.share.minike.top/Article/details/65207699.shtml)
+- 2026-06-30 08:28 - [金鹰奖视后提名预测](http://www.blog.minike.top/Article/details/13708406.shtml)
+- 2026-06-30 08:32 - [曝老詹对自由市场态度与以往截然不同](https://www.blog.minike.top/Article/details/3294364421.shtml)
+- 2026-06-30 08:14 - [全球最火存储ETF纳入兆易创新](https://www.blog.minike.top/Article/details/146187676.shtml)
+- 2026-06-30 08:30 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/452329389343.shtml)
+- 2026-06-30 08:32 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/14206177904.shtml)
+- 2026-06-30 08:37 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/686669882.shtml)
+- 2026-06-30 08:36 - [千香](https://www.share.kurohicncr.top/Article/details/827917.shtml)

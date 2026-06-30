@@ -1,58 +1,57 @@
-# 【光明时评】将青春奋斗融入国家发展大局
+# Driven Brands一季度营收4.84亿美元，核心品牌Take 5同店销售连续23季增长
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-作者：王石川(媒体评论员) 日前，教育部、人社部、国务院国资委等八部门印发通知，于5月至12月联合开展“国聘行动”。本次活动以“建功产业·国聘行动”为主题，服务对象覆盖2026届普通高校毕业生及2024、2025届离校未就业毕业生等重点群体。 自2020年启动以来，“国聘行动”已连续举办七季。截至目前，活动累计汇聚超14万家知名企业、发布岗位超1300万个，接收简历累计超880
+汽车服务公司Driven Brands Holdings Inc．周四公布截至3月28日的2026财年第一季度业绩。财报显示，公司当季营收同比增长8%至4.844亿美元，系统内销售额增长6%至16亿美元，同店销售额增长2.1%。调整后每股收益为0.30美元，高于市场预期的0.28美元。 公司总裁兼首席执行官Danny Rivera表示，Driven Brands在2026年开局
 
 ## 正文
 
-作者：王石川(媒体评论员) 日前，教育部、人社部、国务院国资委等八部门印发通知，于5月至12月联合开展“国聘行动”。
+汽车服务公司Driven Brands Holdings Inc．周四公布截至3月28日的2026财年第一季度业绩。
 
-本次活动以“建功产业·国聘行动”为主题，服务对象覆盖2026届普通高校毕业生及2024、2025届离校未就业毕业生等重点群体。
+财报显示，公司当季营收同比增长8%至4.844亿美元，系统内销售额增长6%至16亿美元，同店销售额增长2.1%。
 
-自2020年启动以来，“国聘行动”已连续举办七季。
+调整后每股收益为0.30美元，高于市场预期的0.28美元。
 
-截至目前，活动累计汇聚超14万家知名企业、发布岗位超1300万个，接收简历累计超8800万份。
+公司总裁兼首席执行官Danny Rivera表示，Driven Brands在2026年开局稳健，营收、调整后EBITDA及调整后每股收益均实现增长。
 
-当前，正是高校毕业生就业的重要节点。
+旗下换油业务品牌Take 5再度引领业绩表现，本季度同店销售额增长4.5%，这是该品牌连续第23个季度实现增长。
 
-据统计，2026届全国普通高校毕业生规模预计为1270万人，同比增加48万人，推出“国聘行动”恰逢其时。
+Take 5当季营收达3.232亿美元，门店数量增至1，371家，系统内销售额达4.417亿美元。
 
-与去年相比，今年的“国聘行动”有不少新亮点。
+分板块看，特许经营品牌板块系统内销售额为10.62亿美元，门店数量2，704家，同店销售额增长0.9%，板块营收6，940万美元，调整后EBITDA为4，140万美元，利润率高达60%。
 
-比如，协同阵线扩员，由七部门扩容为八部门，新加入了退役军人事务部。
+Auto Glass Now板块同店销售额增长7.2%，营收6，310万美元，调整后EBITDA为590万美元。
 
 ## 相关推荐
 
-- 2026-06-30 08:33 - [日本博主：日本足球真的垃圾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-30 08:14 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-30 08:22 - [世界杯欧洲队7战南美仅1胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
-- 2026-06-30 08:28 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
-- 2026-06-30 08:13 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-30 08:10 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-30 08:10 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
-- 2026-06-30 08:35 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-30 08:35 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
-- 2026-06-30 08:14 - [齐思钧回复张月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-30 08:11 - [德国淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
-- 2026-06-30 08:32 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-30 08:31 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
+- 2026-06-30 08:35 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
+- 2026-06-30 08:25 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-30 08:30 - [网友写差评被店家“挂”门口避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-30 08:34 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-30 08:19 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
+- 2026-06-30 08:39 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-30 08:34 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-30 08:18 - [存储芯片龙头提示风险](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-30 08:38 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-30 08:20 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:23 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/9348540.shtml)
-- 2026-06-30 08:12 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/224945.shtml)
-- 2026-06-30 08:14 - [急先锋](http://www.share.kurohicncr.top/Article/details/276161672.shtml)
-- 2026-06-30 08:19 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/933230343.shtml)
-- 2026-06-30 08:18 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.minike.top/Article/details/482740987.shtml)
-- 2026-06-30 08:11 - [郑钦文温网三连败西尼亚科娃](http://www.share.minike.top/Article/details/449769.shtml)
-- 2026-06-30 08:14 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/717309.shtml)
-- 2026-06-30 08:25 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/8890387.shtml)
-- 2026-06-30 08:26 - [高考结束了，你会让孩子在家玩手机吗？](https://www.blog.kurohicncr.top/Article/details/94964.shtml)
-- 2026-06-30 08:21 - [诺伊尔尽力了](https://www.blog.minike.top/Article/details/96413048.shtml)
-- 2026-06-30 08:16 - [免费试吃发差评被店家挂店门避雷](http://www.blog.minike.top/Article/details/85330662.shtml)
-- 2026-06-30 08:28 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/184317136948.shtml)
-- 2026-06-30 08:21 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/84550.shtml)
-- 2026-06-30 08:25 - [日本领先巴西](http://www.blog.minike.top/Article/details/15975.shtml)
-- 2026-06-30 08:16 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/469008.shtml)
+- 2026-06-30 08:25 - [毒液2](http://www.blog.kurohicncr.top/Article/details/810217.shtml)
+- 2026-06-30 08:15 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/08540877.shtml)
+- 2026-06-30 08:19 - [库尼亚赛后伸五指嘲讽日本](https://www.blog.kurohicncr.top/Article/details/4281329.shtml)
+- 2026-06-30 08:28 - [点球大战 残酷](http://www.blog.kurohicncr.top/Article/details/93092129935.shtml)
+- 2026-06-30 08:20 - [张雪的一句“是我们”引发岛内热议](https://www.share.kurohicncr.top/Article/details/34953.shtml)
+- 2026-06-30 08:33 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/802469353260.shtml)
+- 2026-06-30 08:13 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/723747910.shtml)
+- 2026-06-30 08:27 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/811840416.shtml)
+- 2026-06-30 08:35 - [苗族银饰](http://www.share.kurohicncr.top/Article/details/286191505261.shtml)
+- 2026-06-30 08:20 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.minike.top/Article/details/507355462.shtml)
+- 2026-06-30 08:18 - [杨紫获白玉兰视后争议不止](http://www.blog.minike.top/Article/details/243534.shtml)
+- 2026-06-30 08:23 - [沙丘](http://www.share.kurohicncr.top/Article/details/755394.shtml)
+- 2026-06-30 08:20 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.kurohicncr.top/Article/details/4847706921.shtml)
+- 2026-06-30 08:30 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/36212.shtml)
+- 2026-06-30 08:28 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/8938693.shtml)

@@ -1,60 +1,61 @@
-# 美国在直升机被击落后对伊朗发动新一轮打击
+# 近900家中外企业亮相长春光博会 共逐光电新蓝海
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-美国周二对伊朗发动打击，此前美国总统特朗普表示德黑兰在霍尔木兹海峡击落了一架美军阿帕奇直升机，这进一步加深了人们对两国和平前景的疑虑。 美国军方在X上发文称：“此次行动是对伊朗无端侵略行为的对等回应。” 特朗普早些时候表示，事件中涉及的两名美军飞行员没有受伤，但美国将对该袭击作出回应。 据一位不愿透露姓名的美国官员称，这架阿帕奇是被伊朗的一架单向攻击无人机击落的。 伊朗外交部长
+中新网长春6月12日电 (记者 郭佳)第三届长春国际光电博览会(简称“长春光博会”)12日开幕，近900家中外光电信息企业携前沿技术和最新产品参会，既同台竞技，也积极寻求产业合作。 长春是中国光电信息产业的重要发源地。目前，当地在高性能CMOS图像传感器、新型激光器等领域已形成一批国际领先的核心技术。官方提出，到“十五五”末，长春光电信息产业的综合规模将达到1600亿元。 本届
 
 ## 正文
 
-美国周二对伊朗发动打击，此前美国总统特朗普表示德黑兰在霍尔木兹海峡击落了一架美军阿帕奇直升机，这进一步加深了人们对两国和平前景的疑虑。
+中新网长春6月12日电 (记者 郭佳)第三届长春国际光电博览会(简称“长春光博会”)12日开幕，近900家中外光电信息企业携前沿技术和最新产品参会，既同台竞技，也积极寻求产业合作。
 
-美国军方在X上发文称：“此次行动是对伊朗无端侵略行为的对等回应。
+长春是中国光电信息产业的重要发源地。
 
-” 特朗普早些时候表示，事件中涉及的两名美军飞行员没有受伤，但美国将对该袭击作出回应。
+目前，当地在高性能CMOS图像传感器、新型激光器等领域已形成一批国际领先的核心技术。
 
-据一位不愿透露姓名的美国官员称，这架阿帕奇是被伊朗的一架单向攻击无人机击落的。
+官方提出，到“十五五”末，长春光电信息产业的综合规模将达到1600亿元。
 
-伊朗外交部长阿巴斯·阿拉格奇未直接回应此事，但表示该地区的外国军队有遭遇事故或被卷入交火的风险。
+本届长春光博会重点聚焦半导体、超精密光学、商业航天等十余个核心细分赛道，并设置了原子级制造、国防光电系统与装备、汽车电子、低空经济、具身智能、光+智慧农业、商业航天七大特色展区。
 
-他在社交媒体上表示：“要降低风险，最好的办法就是他们离开。
+有“中国光学摇篮”之称的中国科学院长春光机所携高分辨率相机、极紫外相机等众多“国之重器”参展。
 
-” 伊朗官方媒体随后援引一名军方消息人士的话称，过去24小时内，霍尔木兹海峡没有进行任何进攻性空中军事行动。
+其中，大口径双工况立式干涉检测站尤为引人注目。
 
-该消息人士还表示，如果针对直升机事件的“敌人敌意”再次出现，伊朗将作出果断回应。
+该所光学系统先进制造全国重点实验室成员李明茁介绍，该设备全部采用国产元器件及核心技术，可实现大口径超精密光学元件的皮米级精度检测，能同步完成透镜双表面检测，大幅缩短检测时长。
 
 ## 相关推荐
 
-- 2026-06-30 08:19 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
-- 2026-06-30 08:18 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
-- 2026-06-30 08:32 - [iPhone18e曝光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-30 08:31 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
-- 2026-06-30 08:17 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-30 08:19 - [日本博主：日本足球真的垃圾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
-- 2026-06-30 08:10 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-30 08:22 - [男子在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
-- 2026-06-30 08:31 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
-- 2026-06-30 08:29 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
-- 2026-06-30 08:24 - [亚洲球队全部出局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-30 08:19 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-30 08:21 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
-- 2026-06-30 08:10 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-30 08:13 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-30 08:31 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-30 08:35 - [穆祉丞回应获年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-30 08:32 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
+- 2026-06-30 08:33 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-30 08:38 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-30 08:28 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-30 08:16 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-30 08:38 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-30 08:23 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
+- 2026-06-30 08:13 - [巴西绝杀日本：漫画般结局换了主角](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
+- 2026-06-30 08:14 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-30 08:29 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-30 08:23 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-30 08:33 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:18 - [陈幸同晋级WTT美国大满贯女单32强](http://www.share.kurohicncr.top/Article/details/4942928519.shtml)
-- 2026-06-30 08:32 - [藤森庆子赢得秘鲁总统选举](https://www.blog.kurohicncr.top/Article/details/41046769937.shtml)
-- 2026-06-30 08:08 - [一生一世](https://www.share.kurohicncr.top/Article/details/1106549591.shtml)
-- 2026-06-30 08:08 - [巴西在进攻三区完成210脚传球](http://www.blog.minike.top/Article/details/2570988346.shtml)
-- 2026-06-30 08:21 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/7146889.shtml)
-- 2026-06-30 08:21 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/5632430438.shtml)
-- 2026-06-30 08:22 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/503942534.shtml)
-- 2026-06-30 08:10 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/861521.shtml)
-- 2026-06-30 08:35 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.share.kurohicncr.top/Article/details/6356699992.shtml)
-- 2026-06-30 08:35 - [二次元提前预演明日巴西对日本](https://www.share.kurohicncr.top/Article/details/2365779.shtml)
-- 2026-06-30 08:25 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/5274846.shtml)
-- 2026-06-30 08:26 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/8464626.shtml)
-- 2026-06-30 08:26 - [日本反击率先破门](https://www.share.kurohicncr.top/Article/details/70785860479.shtml)
-- 2026-06-30 08:16 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/695797.shtml)
-- 2026-06-30 08:17 - [王欣瑜2-1击败科恰雷托](https://www.share.minike.top/Article/details/461538322570.shtml)
+- 2026-06-30 08:29 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.minike.top/Article/details/0048921.shtml)
+- 2026-06-30 08:38 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/370861163784.shtml)
+- 2026-06-30 08:31 - [媒体：手机测评该挤挤水分了](http://www.share.kurohicncr.top/Article/details/21996446.shtml)
+- 2026-06-30 08:27 - [巴西绝杀日本：漫画般结局换了主角](http://www.share.kurohicncr.top/Article/details/28519830575.shtml)
+- 2026-06-30 08:23 - [索马里女大使：想和中国一起搞事业](http://www.share.kurohicncr.top/Article/details/02314832711.shtml)
+- 2026-06-30 08:34 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/6281602653.shtml)
+- 2026-06-30 08:31 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.minike.top/Article/details/26492046256.shtml)
+- 2026-06-30 08:20 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/8397809.shtml)
+- 2026-06-30 08:33 - [德国巴拉圭进入点球大战](http://www.share.minike.top/Article/details/915187798387.shtml)
+- 2026-06-30 08:27 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.minike.top/Article/details/5925968323.shtml)
+- 2026-06-30 08:39 - [巴西醒醒 这是淘汰赛](https://www.blog.minike.top/Article/details/71668.shtml)
+- 2026-06-30 08:29 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.kurohicncr.top/Article/details/83745145180.shtml)
+- 2026-06-30 08:31 - [【涤墨作战7人870】望：我从地狱杀回来了！](http://www.share.kurohicncr.top/Article/details/878104.shtml)
+- 2026-06-30 08:31 - [4000美元是黄金新一轮下跌的开始吗](http://www.blog.minike.top/Article/details/8918340863.shtml)
+- 2026-06-30 08:17 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/765365506200.shtml)

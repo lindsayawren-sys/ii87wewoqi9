@@ -1,59 +1,60 @@
-# 世界首台630℃二次再热百万机组正式投产发电
+# 尾盘：道指大涨850点，油价大幅下跌
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-中新网山东郓城6月8日电 (陈昊星)6月8日，世界首台630℃等级二次再热超超临界百万千瓦煤电机组——大唐山东郓城630℃国家电力示范项目1号机组顺利完成168小时满负荷试运行，正式投入商业运营。 大唐山东郓城630℃国家电力示范项目位于山东省菏泽市郓城县，承载着国家工信部新材料生产应用示范平台建设和国资委创新联合体重大攻关的重要使命，是“十三五”期间国家唯一立项的百万千瓦级煤
+北京时间6月12日凌晨，美股周四尾盘尾盘大涨，道指上涨逾850点。美国总统特朗普称已取消原定于今晚对伊朗发动的打击行动后，油价大幅下跌。芯片股反弹。 道指涨853.19点，涨幅为1.71%，报50771.97点；纳指涨463.19点，涨幅为1.84%，报25632.69点；标普500指数涨102.46点，涨幅为1.41%，报7369.45点。 美国总统特朗普周四在Truth S
 
 ## 正文
 
-中新网山东郓城6月8日电 (陈昊星)6月8日，世界首台630℃等级二次再热超超临界百万千瓦煤电机组——大唐山东郓城630℃国家电力示范项目1号机组顺利完成168小时满负荷试运行，正式投入商业运营。
+北京时间6月12日凌晨，美股周四尾盘尾盘大涨，道指上涨逾850点。
 
-大唐山东郓城630℃国家电力示范项目位于山东省菏泽市郓城县，承载着国家工信部新材料生产应用示范平台建设和国资委创新联合体重大攻关的重要使命，是“十三五”期间国家唯一立项的百万千瓦级煤电示范项目，同时也是山东省新旧动能转换重大项目。
+美国总统特朗普称已取消原定于今晚对伊朗发动的打击行动后，油价大幅下跌。
 
-2023年8月，项目主体工程建设全面启动。
+芯片股反弹。
 
-在燃煤发电领域，机组主参数是决定煤电机组热效率、提升发电经济性的核心关键。
+道指涨853.19点，涨幅为1.71%，报50771.97点；纳指涨463.19点，涨幅为1.84%，报25632.69点；标普500指数涨102.46点，涨幅为1.41%，报7369.45点。
 
-目前，国内已投运的常规百万千瓦级燃煤机组，发电热效率维持在49%左右。
+美国总统特朗普周四在Truth Social上发文写道：“鉴于与伊朗伊斯兰共和国的讨论已提交至伊朗最高领导层并获得批准，我作为美利坚合众国总统，已取消原定于今晚对伊朗实施的打击和轰炸行动。
 
-大唐郓城项目通过提升机组运行参数、优化系统结构、升级核心材料等方式，一举突破传统煤电效率瓶颈，机组设计发电热效率达到50.05%，主蒸汽压力提高至35.5兆帕、再热汽温提升至631℃，供电煤耗降至256.28克/千瓦时，也是全球煤电领域首次实现热效突破50%的标志性项目。
+” 他继续说：“包括美国、以色列、沙特阿拉伯、阿联酋、卡塔尔、土耳其、巴基斯坦、巴林、科威特、约旦、埃及及其他国家在内的所有相关方，已从概念到细节全面批准了讨论内容和最终条款。
 
-依托“新技术、新工艺、新装备、新材料”的四重创新赋能，项目全厂设备国产化率为98.89%。
+海上封锁将保持完全有效，直至该协议最终完成——签署的时间和地点将很快公布。
 
-机组满负荷运行状态下，相较于常规百万千瓦机组，两台机组每年可节约标准煤20.8万吨、减排二氧化碳54万吨，每年节约的煤炭用来发电，可满足25万户家庭全年用电需求，实现了绿色低碳与能源保供的双重价值。
+” 特朗普宣布后，西得克萨斯中质原油期货下跌3%，至每桶约86美元。
 
 ## 相关推荐
 
-- 2026-06-30 08:29 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-30 08:10 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
-- 2026-06-30 08:07 - [库尼亚赛后伸五指嘲讽日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
-- 2026-06-30 08:28 - [王濛回复黄灿灿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-30 08:14 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-30 08:28 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-30 08:18 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
-- 2026-06-30 08:20 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
-- 2026-06-30 08:08 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
-- 2026-06-30 08:31 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-30 08:17 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-30 08:13 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
-- 2026-06-30 08:13 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-30 08:26 - [电影抓特务上映11天破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-30 08:31 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-30 08:21 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
+- 2026-06-30 08:36 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-30 08:30 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
+- 2026-06-30 08:30 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-30 08:15 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-30 08:23 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-30 08:23 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-30 08:40 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-30 08:21 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-30 08:24 - [存储芯片龙头提示风险](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-30 08:38 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
+- 2026-06-30 08:33 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:22 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.minike.top/Article/details/700835505.shtml)
-- 2026-06-30 08:11 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/49497038312.shtml)
-- 2026-06-30 08:14 - [泰山建135公里刀片刺绳隔离网](https://www.blog.minike.top/Article/details/69985.shtml)
-- 2026-06-30 08:34 - [周生如故](https://www.blog.minike.top/Article/details/5529667471.shtml)
-- 2026-06-30 08:30 - [德国队世界杯点球大战首败](https://www.blog.kurohicncr.top/Article/details/516701020.shtml)
-- 2026-06-30 08:31 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/0000934979.shtml)
-- 2026-06-30 08:29 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/18269915875.shtml)
-- 2026-06-30 08:25 - [锐评T1战胜KC](https://www.share.kurohicncr.top/Article/details/75030.shtml)
-- 2026-06-30 08:08 - [委内瑞拉地震死亡人数升至1719人](http://www.share.kurohicncr.top/Article/details/7178949004.shtml)
-- 2026-06-30 08:15 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/7821818308.shtml)
-- 2026-06-30 08:29 - [老外对中国cosplay竟这样评价…](http://www.share.kurohicncr.top/Article/details/32650940.shtml)
-- 2026-06-30 08:21 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/3137828.shtml)
-- 2026-06-30 08:15 - [女子遭下药退赔偿拟追刑责](http://www.share.minike.top/Article/details/1686824.shtml)
-- 2026-06-30 08:06 - [德国队世界杯点球大战首败](http://www.share.minike.top/Article/details/285707825.shtml)
-- 2026-06-30 08:32 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/5703450370.shtml)
+- 2026-06-30 08:36 - [日本 高位逼抢](https://www.share.minike.top/Article/details/286186.shtml)
+- 2026-06-30 08:12 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/14855360904.shtml)
+- 2026-06-30 08:37 - [第3集丨“柠檬茶能换怀表？”](http://www.share.kurohicncr.top/Article/details/182380219238.shtml)
+- 2026-06-30 08:14 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/2818837055.shtml)
+- 2026-06-30 08:24 - [德国巴拉圭 折磨](https://www.share.minike.top/Article/details/797496442.shtml)
+- 2026-06-30 08:17 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/7129768.shtml)
+- 2026-06-30 08:23 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/6189571.shtml)
+- 2026-06-30 08:26 - [高质量发展看新疆](http://www.share.kurohicncr.top/Article/details/10309353445.shtml)
+- 2026-06-30 08:18 - [巴拉圭点球大战淘汰德国进16强](https://www.blog.minike.top/Article/details/8083889.shtml)
+- 2026-06-30 08:27 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/592083593.shtml)
+- 2026-06-30 08:20 - [巴西替补奇兵读秒绝杀](http://www.blog.minike.top/Article/details/0744657189.shtml)
+- 2026-06-30 08:32 - [斗破苍穹](http://www.share.minike.top/Article/details/22184.shtml)
+- 2026-06-30 08:38 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://www.share.kurohicncr.top/Article/details/66802920.shtml)
+- 2026-06-30 08:29 - [高质量发展看新疆](https://www.share.kurohicncr.top/Article/details/768421492361.shtml)
+- 2026-06-30 08:17 - [董路：谁赢谁是“正路子”](http://www.blog.minike.top/Article/details/0686218515.shtml)

@@ -1,48 +1,61 @@
-# 滴滴率先接入微信AI生态
+# 国家人权行动计划：促进人民群众有序参与社会治理
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-随着微信正式面向开发者提供AI生态接入能力，滴滴作为首批合作伙伴，已与微信团队合作将核心网约车服务融入微信AI Agent。未来，用户通过微信内AI交互，即可直接唤起滴滴快车、专车、特惠等服务。 当用户在微信中产生出行需求，只需说一句“帮我叫一辆滴滴去机场”，“我要打滴滴回家，要特惠快车或者快车”即可根据行程距离、时效需求与个人偏好，自动推荐最优车型，一键唤起叫车服务，全程不跳
+中新社北京6月11日电 在11日举办的“2026·全球人权治理高端论坛”开幕式上，国家人权行动计划联席会议机制成员单位代表共同发布《国家人权行动计划(2026－2030年)》。 在生命权方面，行动计划指出，完善应急状态下生命权保障体系。实施突发事件应对法、突发公共卫生事件应对法，健全应急管理法律法规体系。有效维护社会安全稳定，全力防范侵害人民群众生命安全极端暴力事件的发生。 在
 
 ## 正文
 
-随着微信正式面向开发者提供AI生态接入能力，滴滴作为首批合作伙伴，已与微信团队合作将核心网约车服务融入微信AI Agent。
+中新社北京6月11日电 在11日举办的“2026·全球人权治理高端论坛”开幕式上，国家人权行动计划联席会议机制成员单位代表共同发布《国家人权行动计划(2026－2030年)》。
 
-未来，用户通过微信内AI交互，即可直接唤起滴滴快车、专车、特惠等服务。
+在生命权方面，行动计划指出，完善应急状态下生命权保障体系。
 
-当用户在微信中产生出行需求，只需说一句“帮我叫一辆滴滴去机场”，“我要打滴滴回家，要特惠快车或者快车”即可根据行程距离、时效需求与个人偏好，自动推荐最优车型，一键唤起叫车服务，全程不跳转，极速出发。
+实施突发事件应对法、突发公共卫生事件应对法，健全应急管理法律法规体系。
 
-据了解，滴滴顺风车、滴滴代驾等更多服务也将接入微信AI生态。
+有效维护社会安全稳定，全力防范侵害人民群众生命安全极端暴力事件的发生。
+
+在人身权、人格权方面，行动计划称，严禁非法拘禁。
+
+规范监视居住、拘留、逮捕等涉及人身权利的强制措施适用，完善减刑、假释、暂予监外执行等刑罚变更执行制度。
+
+防范纠正对涉罪人员的配偶、子女、父母和其他近亲属在教育、就业、社会保障等方面的权利进行非法限制。
+
+在个人信息权益方面，行动计划指出，加强对网络平台、自媒体和多频道网络机构的引导，压实保护公民个人信息权益的平台主体责任。
 
 ## 相关推荐
 
-- 2026-06-30 08:28 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-30 08:34 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-30 08:20 - [巴西补时绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-30 08:10 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
-- 2026-06-30 08:23 - [欧洲装一台空调有多难](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-30 08:06 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-30 08:24 - [德国进球被吹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
-- 2026-06-30 08:22 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
-- 2026-06-30 08:12 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-30 08:12 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-30 08:38 - [陈幸同晋级WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-30 08:27 - [全球芯片巨头史诗级扩产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-30 08:18 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-30 08:28 - [中国新一轮出口管制直指日本命脉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-30 08:14 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-30 08:38 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-30 08:40 - [巴西足球能否再现昔日荣光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-30 08:14 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-30 08:19 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-30 08:34 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-30 08:19 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-30 08:32 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-30 08:39 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-30 08:30 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-30 08:20 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:18 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/8762706.shtml)
-- 2026-06-30 08:10 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/179352706.shtml)
-- 2026-06-30 08:22 - [iPhone18e曝光](https://www.blog.minike.top/Article/details/286473498.shtml)
-- 2026-06-30 08:12 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/489991.shtml)
-- 2026-06-30 08:17 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/7282156.shtml)
-- 2026-06-30 08:17 - [刘必安等16人非法集资案二审宣判](http://www.blog.minike.top/Article/details/31951.shtml)
-- 2026-06-30 08:24 - [杨紫学位证上就是杨紫](http://www.blog.minike.top/Article/details/65645.shtml)
-- 2026-06-30 08:09 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/48104373.shtml)
-- 2026-06-30 08:09 - [天道](https://www.share.kurohicncr.top/Article/details/4630814518.shtml)
-- 2026-06-30 08:11 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/143405.shtml)
-- 2026-06-30 08:11 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/837525936295.shtml)
-- 2026-06-30 08:14 - [追梦拒绝2770万美元球员选项](http://www.share.minike.top/Article/details/0881402442.shtml)
-- 2026-06-30 08:29 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/84865686.shtml)
-- 2026-06-30 08:21 - [高质量发展看新疆](http://www.share.minike.top/Article/details/28451400353.shtml)
-- 2026-06-30 08:26 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/61327.shtml)
+- 2026-06-30 08:33 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/356926015.shtml)
+- 2026-06-30 08:34 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/340898468564.shtml)
+- 2026-06-30 08:41 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/49584907460.shtml)
+- 2026-06-30 08:36 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/9749223.shtml)
+- 2026-06-30 08:21 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/1889607.shtml)
+- 2026-06-30 08:37 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/8698520985.shtml)
+- 2026-06-30 08:40 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/357070785478.shtml)
+- 2026-06-30 08:30 - [锐评T1战胜KC](http://www.share.minike.top/Article/details/28246.shtml)
+- 2026-06-30 08:27 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.minike.top/Article/details/957764812636.shtml)
+- 2026-06-30 08:30 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/4100547.shtml)
+- 2026-06-30 08:33 - [全新问界M9现身美国街头](https://www.blog.minike.top/Article/details/4045039.shtml)
+- 2026-06-30 08:35 - [巴西替补奇兵读秒绝杀](http://www.blog.minike.top/Article/details/689079508652.shtml)
+- 2026-06-30 08:21 - [王濛回复黄灿灿](https://www.share.minike.top/Article/details/73454.shtml)
+- 2026-06-30 08:31 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/057040.shtml)
+- 2026-06-30 08:40 - [斗破苍穹](http://www.blog.minike.top/Article/details/46661004.shtml)

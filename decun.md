@@ -1,56 +1,59 @@
-# 何超琼清仓美高梅国际股份 套现超 1.4 亿美元
+# “科学与中国”科普行走进内蒙古 院士专家赴校园访企业“传经送宝”
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-近期，美高梅中国董事长何超琼完成多笔股份减持操作，先后五次出售美高梅国际合计306.6万股股份，完成全部持股清仓，此次交易累计套现1.4亿美元，折合约11.3亿澳门元，引发市场广泛关注。 此次减持标的为美股上市的美高梅国际，并非其执掌的港股美高梅中国，二者主体有所区分。截至目前，何超琼依旧担任美高梅中国董事长，并未减持该公司股份，澳门博彩核心业务的控制权保持稳定。从市场层面来看
+中新网内蒙古巴彦淖尔6月12日电 (记者 孙自法)“科学与中国——千名院士·千场科普”内蒙古行系列活动，6月10日至12日先后在呼和浩特、巴彦淖尔顺利举行，包括3位院士在内的20多位专家学者代表，深入两市大中小学、企业园区、政府机关等“传经送宝”，以科技“第一生产力”助力当地经济社会高质量发展。 聚焦粮食安全这一“国之大者”，中国科学院院士、中国科学院遗传与发育生物学研究所曹晓
 
 ## 正文
 
-近期，美高梅中国董事长何超琼完成多笔股份减持操作，先后五次出售美高梅国际合计306.6万股股份，完成全部持股清仓，此次交易累计套现1.4亿美元，折合约11.3亿澳门元，引发市场广泛关注。
+中新网内蒙古巴彦淖尔6月12日电 (记者 孙自法)“科学与中国——千名院士·千场科普”内蒙古行系列活动，6月10日至12日先后在呼和浩特、巴彦淖尔顺利举行，包括3位院士在内的20多位专家学者代表，深入两市大中小学、企业园区、政府机关等“传经送宝”，以科技“第一生产力”助力当地经济社会高质量发展。
 
-此次减持标的为美股上市的美高梅国际，并非其执掌的港股美高梅中国，二者主体有所区分。
+聚焦粮食安全这一“国之大者”，中国科学院院士、中国科学院遗传与发育生物学研究所曹晓风研究员以“饲草育种与土壤改良”为题作主旨报告指出，中国盐碱荒(草)地达1.85亿亩，适宜开发的达4363万亩，集中分布于东北、新疆等地区，潜力巨大，另有盐碱障碍耕地1.14亿亩，产能亟需提升。
 
-截至目前，何超琼依旧担任美高梅中国董事长，并未减持该公司股份，澳门博彩核心业务的控制权保持稳定。
+她带领团队承担中国科学院重点部署项目“边际土地产能扩增机理与藏粮于地技术模式”，致力于解锁盐碱荒地利用，提出因地制宜筛选适宜边际土地种植饲草的方案。
 
-从市场层面来看，此次个人海外投资资产的调整，并未动摇美高梅中国的经营根基。
+研究团队从800多份绿肥中筛选出耐盐碱植物田菁，在此基础上开展基因育种，成功培育出极耐盐碱、极耐涝且具有广适性的“中科菁”系列新品系，已进入国家级草品种区试。
 
-据美高梅中国2025年财报数据，公司整体经营表现稳健，业绩实现稳步增长。
+曹晓风院士透露，研究团队还积极探索“田菁+”种植模式，包括田菁+燕麦、田菁+玉米、田菁+羊草、光伏+田菁等混播及间作栽培，并在多地开展试验示范。
 
-去年全年公司营业收入达347.875亿港元，同比上涨10.8%；经营利润67.092亿港元，同比增幅9.0%；公司拥有人应占年度利润50.75亿港元，同比增长10.2%，各项核心经营指标均保持正向增长，盈利能力持续向好。
+结果表明，作为一种优质的肥饲兼用作物，田菁在重度盐碱荒地改良、改善土壤结构和肥力、提高土地利用率、提升农田生态效益和经济效益等方面成效显著。
 
-财报同时披露了高管薪酬情况，何超琼2025年在美高梅中国获取的薪酬总额约1.69亿港元，薪酬规模与其执掌企业的经营体量相匹配。
+在内蒙古大学，中国工程院院士、中国科学院沈阳应用生态研究所所长朱教君研究员以《三北工程与中国治沙》为题做科普报告强调，治沙不是简单种树，而是遵循自然规律的科学治理，一代代治沙人凭科技、靠坚守，硬生生锁住了漫天黄沙。
 
-公开信息显示，何超琼商业版图布局广泛，名下目前关联36家企业，业务覆盖博彩、地产、投资等多个领域。
+他立足北方地区风沙治理、水土流失治理现状，回顾三北防护林工程的建设背景与重大战略意义，系统梳理了工程从初期防风固沙、守护农田草场，到新时代统筹山水林田湖草沙一体化保护和系统治理的科学治沙路径，用详实数据、生动案例展现中国从“沙进人退”到“绿进沙退”的历史性跨越，诠释中国科技治沙、科学护绿的硬核实力与坚守精神。
 
 ## 相关推荐
 
-- 2026-06-30 08:22 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-30 08:27 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-30 08:18 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-30 08:06 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-30 08:22 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-30 08:17 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-30 08:10 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-30 08:33 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-30 08:09 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-30 08:06 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-30 08:34 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-30 08:37 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-30 08:41 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-30 08:26 - [莫兰特转投开拓者效力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-30 08:40 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
+- 2026-06-30 08:35 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-30 08:23 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-30 08:13 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-30 08:39 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-30 08:23 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
+- 2026-06-30 08:38 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-30 08:28 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-30 08:17 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:09 - [网友写差评被店家“挂”门口避雷](https://www.blog.minike.top/Article/details/886800374197.shtml)
-- 2026-06-30 08:26 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/4571888471.shtml)
-- 2026-06-30 08:10 - [板面：为什么那么多人爱吃？？！](https://www.share.minike.top/Article/details/27294.shtml)
-- 2026-06-30 08:09 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/952969971894.shtml)
-- 2026-06-30 08:26 - [德国巴拉圭 折磨](https://www.blog.minike.top/Article/details/43017.shtml)
-- 2026-06-30 08:31 - [男子身高一米八二仍做断骨增高](https://www.blog.kurohicncr.top/Article/details/47473.shtml)
-- 2026-06-30 08:29 - [谢依霖说杨幂是聚会第一把张罗手](http://www.share.minike.top/Article/details/27482829969.shtml)
-- 2026-06-30 08:23 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/195077.shtml)
-- 2026-06-30 08:21 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/61776177.shtml)
-- 2026-06-30 08:33 - [DeepSeek V4正式版要来了](http://www.share.kurohicncr.top/Article/details/72138371.shtml)
-- 2026-06-30 08:08 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/34915.shtml)
-- 2026-06-30 08:20 - [金鹰奖视后提名预测](https://www.blog.kurohicncr.top/Article/details/7530000.shtml)
-- 2026-06-30 08:30 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.share.kurohicncr.top/Article/details/069581.shtml)
-- 2026-06-30 08:08 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/6124382819.shtml)
-- 2026-06-30 08:33 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/3610772.shtml)
+- 2026-06-30 08:28 - [周生如故](https://www.share.minike.top/Article/details/5476919826.shtml)
+- 2026-06-30 08:33 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/572756505.shtml)
+- 2026-06-30 08:34 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/619138.shtml)
+- 2026-06-30 08:13 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/87853591650.shtml)
+- 2026-06-30 08:33 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/85383538.shtml)
+- 2026-06-30 08:24 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/69388903.shtml)
+- 2026-06-30 08:28 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/19914.shtml)
+- 2026-06-30 08:22 - [金刚川](https://www.blog.kurohicncr.top/Article/details/037600010.shtml)
+- 2026-06-30 08:17 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/7239539.shtml)
+- 2026-06-30 08:35 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/584117.shtml)
+- 2026-06-30 08:31 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/343236591986.shtml)
+- 2026-06-30 08:22 - [王曼昱被突如其来的话筒逗笑了](http://www.blog.minike.top/Article/details/36362629.shtml)
+- 2026-06-30 08:30 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/8113424981.shtml)
+- 2026-06-30 08:25 - [日本球员说被绝杀非常不甘心](https://www.share.kurohicncr.top/Article/details/36427113.shtml)
+- 2026-06-30 08:22 - [4000美元是黄金新一轮下跌的开始吗](https://www.share.kurohicncr.top/Article/details/1999778.shtml)

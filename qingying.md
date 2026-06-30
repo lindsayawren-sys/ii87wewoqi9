@@ -1,58 +1,51 @@
-# “不同文明可以和平共处，可以创造性地相互丰富”
+# 冰雹突袭长春部分区域 个头如鹌鹑蛋
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-“不同文明可以和平共处，可以创造性地相互丰富” ——访希腊雅典科学院院长迪亚曼多罗斯 人民日报 本报记者 谢亚宏 李安琪“亚里士多德在《政治学》中将城邦定义为为了‘优良生活’而存在的共同体，指出政治应是一种旨在实现公共利益的道德实践。《论语·为政》引用孔子提出的‘道之以德，齐之以礼’，反映出中国传统文化中深厚的人本主义观念。希中两大文明都认为，社会稳定取决于人的道德品质及个人利
+发布时间：2026年06月11日 19:33 来源：中国新闻网 6月11日17时许，吉林长春部分地区突迎强对流天气，密集冰雹短时间内倾泻而下。冰雹最大直径约2厘米，大小如同鹌鹑蛋，落地后不断弹跳。整个过程持续逾10分钟。 长春市气象部门提醒户外作业人员及市民，密切关注天气变化，遭遇风雹、雷电天气及时躲避，做好防雷防护，切勿在孤立高耸物体下避雨。(谭伟旗 吕盛楠） 责任编辑：【刘
 
 ## 正文
 
-“不同文明可以和平共处，可以创造性地相互丰富” ——访希腊雅典科学院院长迪亚曼多罗斯 人民日报 本报记者 谢亚宏 李安琪“亚里士多德在《政治学》中将城邦定义为为了‘优良生活’而存在的共同体，指出政治应是一种旨在实现公共利益的道德实践。
+发布时间：2026年06月11日 19:33 来源：中国新闻网 6月11日17时许，吉林长春部分地区突迎强对流天气，密集冰雹短时间内倾泻而下。
 
-《论语·为政》引用孔子提出的‘道之以德，齐之以礼’，反映出中国传统文化中深厚的人本主义观念。
+冰雹最大直径约2厘米，大小如同鹌鹑蛋，落地后不断弹跳。
 
-希中两大文明都认为，社会稳定取决于人的道德品质及个人利益与集体利益间的平衡。
+整个过程持续逾10分钟。
 
-在全球信任缺失、治理危机加剧的当下，两大文明加强对话交流尤显重要。
+长春市气象部门提醒户外作业人员及市民，密切关注天气变化，遭遇风雹、雷电天气及时躲避，做好防雷防护，切勿在孤立高耸物体下避雨。
 
-”日前，希腊雅典科学院院长尼基弗罗斯·迪亚曼多罗斯在接受本报记者专访时表示。
-
-迪亚曼多罗斯表示，全球化带来了经济上的相互依存，但并未建立起更深层次的文化理解，如今文化对抗和地缘冲突重现，世界正面临深刻的文化和道德挑战：人类如何在差异中创造性地共存。
-
-“一个可持续的国际秩序不能仅建立在经济实力或军事威慑之上，更需要共同价值观和跨文化信任。
-
-因此我认为，‘和而不同’理念是中国传统思想对当今世界秩序最切题的贡献之一。
+(谭伟旗 吕盛楠） 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-30 08:28 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-30 08:28 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
-- 2026-06-30 08:32 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
-- 2026-06-30 08:24 - [莫兰特转投开拓者效力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
-- 2026-06-30 08:12 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
-- 2026-06-30 08:21 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-30 08:19 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-30 08:23 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-30 08:30 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-30 08:23 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
-- 2026-06-30 08:11 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-30 08:29 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-30 08:12 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-30 08:15 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-30 08:28 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-30 08:32 - [勇士续约波尔津吉斯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
+- 2026-06-30 08:29 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-30 08:31 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-30 08:20 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-30 08:31 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-30 08:21 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-30 08:12 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
+- 2026-06-30 08:13 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:30 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/0131995.shtml)
-- 2026-06-30 08:09 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/154728458784.shtml)
-- 2026-06-30 08:30 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/809065011949.shtml)
-- 2026-06-30 08:13 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/0493734262.shtml)
-- 2026-06-30 08:35 - [杨紫肖战余生请多指教拍立得](http://www.share.minike.top/Article/details/70616.shtml)
-- 2026-06-30 08:25 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/483700507037.shtml)
-- 2026-06-30 08:10 - [恋与深空制作组回应近期争议](https://www.share.kurohicncr.top/Article/details/622148987.shtml)
-- 2026-06-30 08:08 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/3005338.shtml)
-- 2026-06-30 08:15 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/80947.shtml)
-- 2026-06-30 08:11 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/266889954.shtml)
-- 2026-06-30 08:09 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.kurohicncr.top/Article/details/00125.shtml)
-- 2026-06-30 08:12 - [中国新一轮出口管制直指日本命脉](https://www.blog.minike.top/Article/details/974455.shtml)
-- 2026-06-30 08:20 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/52285992.shtml)
-- 2026-06-30 08:16 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/7125231.shtml)
-- 2026-06-30 08:33 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/193196.shtml)
+- 2026-06-30 08:14 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.share.minike.top/Article/details/33790724.shtml)
+- 2026-06-30 08:37 - [王濛回复黄灿灿](http://www.share.kurohicncr.top/Article/details/39370.shtml)
+- 2026-06-30 08:26 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/4602264621.shtml)
+- 2026-06-30 08:23 - [不开心就去看三年前的购物订单](https://www.share.minike.top/Article/details/2962904096.shtml)
+- 2026-06-30 08:21 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/3935918.shtml)
+- 2026-06-30 08:25 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/2209838300.shtml)
+- 2026-06-30 08:12 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/72583810302.shtml)
+- 2026-06-30 08:37 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/03188206.shtml)
+- 2026-06-30 08:29 - [扬名立万](https://www.blog.minike.top/Article/details/528042463116.shtml)
+- 2026-06-30 08:34 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/438381028.shtml)
+- 2026-06-30 08:24 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/316816508.shtml)
+- 2026-06-30 08:25 - [德国巴拉圭 折磨](http://www.share.kurohicncr.top/Article/details/823621819.shtml)
+- 2026-06-30 08:31 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/74491900.shtml)
+- 2026-06-30 08:33 - [武磊：巴西队赢的并不轻松](https://www.blog.minike.top/Article/details/31468.shtml)
+- 2026-06-30 08:36 - [本届世界杯已有5名球员被控强奸](https://www.share.kurohicncr.top/Article/details/34542110.shtml)

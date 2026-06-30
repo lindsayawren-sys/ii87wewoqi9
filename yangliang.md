@@ -1,59 +1,57 @@
-# 外媒：德法决定停止联合研发战斗机
+# 怒了！中信建投带头，起诉紫晶存储及31名造假“帮凶”，索赔10.9亿
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-中新网6月9日电 据美国《华尔街日报》9日报道，德国和法国已决定停止“未来空中作战系统”框架下的战斗机联合研发项目。 德国政府一名高级官员表示，由于空客公司与达索公司围绕项目主导权问题长期无法达成一致，德国将不再参与该战斗机的研发和采购。 报道称，德国的决定令法国官员感到意外。法国总统马克龙办公室表示，法国将继续鼓励军方和制造商参与符合本国安全利益的欧洲大型防务项目。 报道指出
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：南财社 全球存储股涨得飞起，这边中信建投却还在为昔日的“科创板存储第一股”，对簿公堂。 近日，中信建投联合致同、容诚、广东恒益律所三家中介机构，一纸诉状将48名被告悉数告上法庭，索赔金额10.9亿元。这个金额，正好是当初中信建投等机构，自掏腰包先行赔付
 
 ## 正文
 
-中新网6月9日电 据美国《华尔街日报》9日报道，德国和法国已决定停止“未来空中作战系统”框架下的战斗机联合研发项目。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-德国政府一名高级官员表示，由于空客公司与达索公司围绕项目主导权问题长期无法达成一致，德国将不再参与该战斗机的研发和采购。
+来源：南财社 全球存储股涨得飞起，这边中信建投却还在为昔日的“科创板存储第一股”，对簿公堂。
 
-报道称，德国的决定令法国官员感到意外。
+近日，中信建投联合致同、容诚、广东恒益律所三家中介机构，一纸诉状将48名被告悉数告上法庭，索赔金额10.9亿元。
 
-法国总统马克龙办公室表示，法国将继续鼓励军方和制造商参与符合本国安全利益的欧洲大型防务项目。
+这个金额，正好是当初中信建投等机构，自掏腰包先行赔付给紫晶存储投资人们的。
 
-报道指出，尽管德国决定退出战斗机研发部分，但柏林预计仍将与巴黎在项目其他领域继续合作，包括该项目框架下的“战斗云”系统。
+这48名被告，除了紫晶存储的股东、高管外，还有26家客户、5家银行，都是当年帮助紫晶存储财务造假的帮凶。
 
-该系统旨在利用人工智能技术，将未来战斗机与无人机群及其他武器平台连接起来，实现信息共享和协同作战。
+其中26名客户，明知并故意配合紫晶存储财务造假，被中国证监会认定与紫晶存储开展虚假业务或提前确认收入。
 
-据此前报道，德法两国于2017年宣布将联合研发包括下一代战机等在内的“未来空中作战系统”，西班牙之后加入。
+包括光大银行珠海拱北支行、广州银行惠州仲恺支行在内5家银行，则是故意配合紫晶存储违规担保，明知紫晶存储或其子公司存在违规对外担保，但仍故意隐瞒资金受限的事实，配合上市公司向中信建投、致同、容诚会计师事务所，提供虚假的银行函证回函或故意不配合回函。
 
-该项目曾被视为欧洲防务合作的标志性项目，然而，达索与空客在项目主导权等方面存在严重分歧，项目进展受阻。
+简单说：当年替造假公司赔给股民的钱，现在中介要向所有造假帮凶连本追讨。
 
 ## 相关推荐
 
-- 2026-06-30 08:15 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-30 08:27 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-30 08:28 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-30 08:12 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-30 08:26 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
-- 2026-06-30 08:19 - [周冬雨多次说演不了话剧文城](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-30 08:21 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
-- 2026-06-30 08:19 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-30 08:17 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-30 08:15 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-30 08:16 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-30 08:32 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-30 08:19 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-30 08:12 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-30 08:38 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-30 08:39 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-30 08:19 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-30 08:19 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-30 08:34 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-30 08:22 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-30 08:25 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-30 08:19 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-30 08:18 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-30 08:34 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:30 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/153509.shtml)
-- 2026-06-30 08:09 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/903354437636.shtml)
-- 2026-06-30 08:31 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/4870522596.shtml)
-- 2026-06-30 08:31 - [沙丘](http://www.blog.kurohicncr.top/Article/details/554749036088.shtml)
-- 2026-06-30 08:06 - [德国连续三届世界杯无缘16强](http://www.share.minike.top/Article/details/19479669806.shtml)
-- 2026-06-30 08:18 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/0815279.shtml)
-- 2026-06-30 08:07 - [恋与深空道歉声明](https://www.share.minike.top/Article/details/34306.shtml)
-- 2026-06-30 08:10 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/91458642726.shtml)
-- 2026-06-30 08:08 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.kurohicncr.top/Article/details/243896693.shtml)
-- 2026-06-30 08:23 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/70628831.shtml)
-- 2026-06-30 08:18 - [张碧晨一开口梦回逐玉](https://www.blog.minike.top/Article/details/22653.shtml)
-- 2026-06-30 08:21 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/0128284.shtml)
-- 2026-06-30 08:32 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/8271193.shtml)
-- 2026-06-30 08:23 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/60562580165.shtml)
-- 2026-06-30 08:07 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/44150795794.shtml)
+- 2026-06-30 08:15 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/49852.shtml)
+- 2026-06-30 08:41 - [大蒜晒外面被路过女子连盆端走](https://www.share.kurohicncr.top/Article/details/013073187306.shtml)
+- 2026-06-30 08:18 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.minike.top/Article/details/326798456691.shtml)
+- 2026-06-30 08:14 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/490472711127.shtml)
+- 2026-06-30 08:14 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.blog.minike.top/Article/details/298372.shtml)
+- 2026-06-30 08:34 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/15354547630.shtml)
+- 2026-06-30 08:36 - [诺伊尔尽力了](https://www.blog.kurohicncr.top/Article/details/80190.shtml)
+- 2026-06-30 08:23 - [古代人对纳妾的态度是什么样的？](https://www.share.kurohicncr.top/Article/details/6875179.shtml)
+- 2026-06-30 08:40 - [二次元提前预演明日巴西对日本](https://www.blog.minike.top/Article/details/88147.shtml)
+- 2026-06-30 08:40 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/449135.shtml)
+- 2026-06-30 08:34 - [女子遭下药退赔偿拟追刑责](http://www.blog.minike.top/Article/details/96458123405.shtml)
+- 2026-06-30 08:34 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/58966329790.shtml)
+- 2026-06-30 08:24 - [恋与深空道歉声明](http://www.share.minike.top/Article/details/688008508.shtml)
+- 2026-06-30 08:22 - [恋与深空道歉声明](https://www.blog.kurohicncr.top/Article/details/3533902926.shtml)
+- 2026-06-30 08:33 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/3930207.shtml)

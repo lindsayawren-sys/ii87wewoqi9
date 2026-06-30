@@ -1,58 +1,57 @@
-# 印尼市场三杀：股市挫4%、汇率跌至纪录低点、10年债收益率升33个基点
+# 21评论｜解决运营商“杀熟”，需从考核机制入手
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-印尼金融市场周一跌势加剧，该国债券、股票和货币同步下挫。 该国10年期政府公债收益率跃升33个基点，创一年多来新高。基准股指一度暴跌4%，之后跌幅收窄，印尼盾一度下跌0.8%，跌至纪录低点。 面对持续恶化的市场卖压，印尼正面临愈来愈多要求，呼吁政府除了口头保证之外，应提出更具体措施以遏止抛售；投资人正寻求更强烈讯号，以确认当局将维持政策纪律并支撑市场。外界越来越担心政府治理经济
+特约评论员 信海光 这两天，“运营商杀熟”冲上微博热搜。杀熟案例涉及新老不同权、套餐双标、升易降难、不转网不给优惠等多个事件。 据统计，截至4月末，三家基础电信企业（中国移动、中国电信、中国联通）及中国广电的移动电话用户总数达18.38亿户。其中，全国5G用户总数已增至12.62亿户，固定互联网宽带接入用户总数达到6.98亿户。其中当然有重叠统计，但中国几乎所有人都有手机，几乎
 
 ## 正文
 
-印尼金融市场周一跌势加剧，该国债券、股票和货币同步下挫。
+特约评论员 信海光 这两天，“运营商杀熟”冲上微博热搜。
 
-该国10年期政府公债收益率跃升33个基点，创一年多来新高。
+杀熟案例涉及新老不同权、套餐双标、升易降难、不转网不给优惠等多个事件。
 
-基准股指一度暴跌4%，之后跌幅收窄，印尼盾一度下跌0.8%，跌至纪录低点。
+据统计，截至4月末，三家基础电信企业（中国移动、中国电信、中国联通）及中国广电的移动电话用户总数达18.38亿户。
 
-面对持续恶化的市场卖压，印尼正面临愈来愈多要求，呼吁政府除了口头保证之外，应提出更具体措施以遏止抛售；投资人正寻求更强烈讯号，以确认当局将维持政策纪律并支撑市场。
+其中，全国5G用户总数已增至12.62亿户，固定互联网宽带接入用户总数达到6.98亿户。
 
-外界越来越担心政府治理经济的能力，新的大宗商品出口规则引发的混乱，以及印尼主权信用状况再次受到审查，都打击了投资者的信心。
+其中当然有重叠统计，但中国几乎所有人都有手机，几乎所有家庭都上网，这也决定了“运营商杀熟”话题的基本关注度，其能共鸣者不计其数。
 
-新加坡的SGMC Capital Pte合伙人Mohit Mirpuri表示，接下来的两周至关重要；市场正寻求明确迹象，证明政府具备财政纪律、政策一致性，以及维护总体经济稳定的强烈承诺。
+还有一个更重要的问题是，运营商“杀熟”长期存在。
 
-分析师表示，在印尼央行本月公布利率决策以及MSCI对印尼投资适格性的评估报告出炉之前，市场情绪仍可能保持悲观。
+所以如果讨论这个话题，还继续围绕怎么“杀熟”、为什么“杀熟”都已经意义不大，重点关注的应该是为什么这一情况屡禁不止。
 
-即使财政部与央行周末宣布新措施以支撑公债收益率并吸引资金流入，市场对经济政策团队可能改组的揣测，仍进一步加剧不安情绪。
+当年4G大规模应用，运营商积极抢新用户，新用户不但话费低，有的还能送手机；而部分老用户资费不降、流量不送、APP里也看不到新套餐。
 
 ## 相关推荐
 
-- 2026-06-30 08:12 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
-- 2026-06-30 08:08 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-30 08:21 - [郑钦文温网首轮出局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-30 08:12 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-30 08:33 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-30 08:12 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-30 08:18 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-30 08:10 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-30 08:30 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-30 08:31 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-30 08:24 - [曝老詹对自由市场态度与以往截然不同](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-30 08:21 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
+- 2026-06-30 08:38 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-30 08:28 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-30 08:20 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
+- 2026-06-30 08:29 - [德国罚丢3粒点球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
+- 2026-06-30 08:16 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-30 08:14 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-30 08:16 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
+- 2026-06-30 08:29 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-30 08:39 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-30 08:31 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-30 08:16 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:20 - [存储芯片龙头提示风险](https://www.share.minike.top/Article/details/645611123711.shtml)
-- 2026-06-30 08:26 - [女心理师](https://www.blog.minike.top/Article/details/59530.shtml)
-- 2026-06-30 08:31 - [女心理师](https://www.share.minike.top/Article/details/4147580.shtml)
-- 2026-06-30 08:31 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/11600827.shtml)
-- 2026-06-30 08:34 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/852863933822.shtml)
-- 2026-06-30 08:20 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/594329.shtml)
-- 2026-06-30 08:17 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/844771373646.shtml)
-- 2026-06-30 08:16 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/2539417.shtml)
-- 2026-06-30 08:22 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/5139891057.shtml)
-- 2026-06-30 08:32 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](https://www.share.kurohicncr.top/Article/details/90343.shtml)
-- 2026-06-30 08:23 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.kurohicncr.top/Article/details/362449145.shtml)
-- 2026-06-30 08:23 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/548289.shtml)
-- 2026-06-30 08:33 - [又一家县级医院关停门诊输液大厅](http://www.share.minike.top/Article/details/956958820.shtml)
-- 2026-06-30 08:15 - [巴西2比1日本](http://www.blog.minike.top/Article/details/298514030.shtml)
-- 2026-06-30 08:29 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/2706044552.shtml)
+- 2026-06-30 08:36 - [恋与深空制作组回应近期争议](http://www.share.kurohicncr.top/Article/details/058189998.shtml)
+- 2026-06-30 08:26 - [峡谷事故团队组队时有人提醒会下雨](https://www.share.minike.top/Article/details/5355100444.shtml)
+- 2026-06-30 08:36 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/691412004.shtml)
+- 2026-06-30 08:14 - [本届世界杯已有5名球员被控强奸](http://www.blog.minike.top/Article/details/832062.shtml)
+- 2026-06-30 08:22 - [索马里女大使：想和中国一起搞事业](http://www.share.kurohicncr.top/Article/details/78880.shtml)
+- 2026-06-30 08:26 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/68723.shtml)
+- 2026-06-30 08:34 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/84339.shtml)
+- 2026-06-30 08:22 - [藤森庆子赢得秘鲁总统选举](https://www.blog.kurohicncr.top/Article/details/678798.shtml)
+- 2026-06-30 08:16 - [日本反击率先破门](https://www.share.minike.top/Article/details/332030713.shtml)
+- 2026-06-30 08:37 - [绘画区你赢了](https://www.blog.minike.top/Article/details/40117650.shtml)
+- 2026-06-30 08:29 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/461242000.shtml)
+- 2026-06-30 08:38 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/72687813925.shtml)
+- 2026-06-30 08:28 - [男子在京东买到“同仁堂”假药](https://www.share.kurohicncr.top/Article/details/225181.shtml)
+- 2026-06-30 08:15 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.minike.top/Article/details/33035590.shtml)
+- 2026-06-30 08:26 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/359220.shtml)

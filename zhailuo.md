@@ -1,57 +1,48 @@
-# 4个信号帮你识别湿气！这些“加湿”习惯快改掉
+# 埃斯顿获Barclays PLC增持315.12万股 每股作价约19.17港元
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-舌苔厚、虚胖、乏力 …… 这些症状说明你体内可能有湿气 为啥一到夏天湿气就加重？这些“加湿”习惯，赶快改掉 ↓↓↓ 为啥夏天容易湿气重？ 夏天天气炎热、雨水较多，空气湿度大，湿气容易侵袭人体，而湿为阴邪，易伤人体阳气。除此之外，由于天气炎热，有些人喜欢食用一些偏凉的食物，比如冰饮料、冰西瓜等，对人体脏腑功能都会产生影响。 如果此时不重视祛湿，到了冬季，可能会出现很多疾病，比如胃
+香港联交所最新资料显示，6月8日，Barclays PLC增持埃斯顿（02715）315.12万股，每股作价19.1701港元，总金额约为6040.88万港元。增持后最新持股数目为509万股，最新持股比例为5.26%。责任编辑：卢昱君
 
 ## 正文
 
-舌苔厚、虚胖、乏力 …… 这些症状说明你体内可能有湿气 为啥一到夏天湿气就加重？
+香港联交所最新资料显示，6月8日，Barclays PLC增持埃斯顿（02715）315.12万股，每股作价19.1701港元，总金额约为6040.88万港元。
 
-这些“加湿”习惯，赶快改掉 ↓↓↓ 为啥夏天容易湿气重？
+增持后最新持股数目为509万股，最新持股比例为5.26%。
 
-夏天天气炎热、雨水较多，空气湿度大，湿气容易侵袭人体，而湿为阴邪，易伤人体阳气。
-
-除此之外，由于天气炎热，有些人喜欢食用一些偏凉的食物，比如冰饮料、冰西瓜等，对人体脏腑功能都会产生影响。
-
-如果此时不重视祛湿，到了冬季，可能会出现很多疾病，比如胃肠不适导致腹痛、腹泻，或者出现呼吸系统疾病，这也是人们常说的“湿邪不除，越积越毒”。
-
-因此，一旦察觉到体内有湿气，就要及时祛湿。
-
-4个信号帮你识别湿气 赶紧自查 如何判断身体湿气重不重？
-
-出现这4种情况，可能是湿气向你发出的信号↓ 1 舌头有齿痕，舌苔白腻或黄腻 健康的舌头淡红而润泽，舌面有一层薄白的舌苔，没有齿痕。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 08:07 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-30 08:11 - [安切洛蒂 换人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-30 08:08 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
-- 2026-06-30 08:20 - [索马里女大使：想和中国一起搞事业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-30 08:33 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
-- 2026-06-30 08:08 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-30 08:27 - [日本球迷被强行披上巴西国旗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-30 08:09 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
-- 2026-06-30 08:18 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
-- 2026-06-30 08:22 - [现在叛逆期的孩子最怕的是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-30 08:19 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-30 08:14 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-30 08:28 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-30 08:23 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-30 08:28 - [追梦拒绝2770万美元球员选项](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-30 08:40 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
+- 2026-06-30 08:34 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-30 08:18 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-30 08:14 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-30 08:30 - [泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-30 08:30 - [郑钦文温网一轮游](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-30 08:16 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-30 08:31 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:10 - [扬名立万](http://www.share.kurohicncr.top/Article/details/60615581.shtml)
-- 2026-06-30 08:31 - [上市央企地产商 两年换了三任董事长](https://www.share.minike.top/Article/details/8941928.shtml)
-- 2026-06-30 08:10 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.kurohicncr.top/Article/details/31235.shtml)
-- 2026-06-30 08:29 - [张月收到黄灿灿辣货两眼发光](http://www.share.minike.top/Article/details/8330289.shtml)
-- 2026-06-30 08:17 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/27521949.shtml)
-- 2026-06-30 08:26 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/00877628747.shtml)
-- 2026-06-30 08:22 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/94669.shtml)
-- 2026-06-30 08:26 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/87401.shtml)
-- 2026-06-30 08:30 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://www.blog.kurohicncr.top/Article/details/50003.shtml)
-- 2026-06-30 08:28 - [天道](https://www.share.kurohicncr.top/Article/details/885042.shtml)
-- 2026-06-30 08:18 - [世界杯](http://www.share.kurohicncr.top/Article/details/000227.shtml)
-- 2026-06-30 08:20 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/21619479.shtml)
-- 2026-06-30 08:25 - [穆祉丞回应获年度人气艺人](https://www.blog.minike.top/Article/details/3826872560.shtml)
-- 2026-06-30 08:16 - [上市央企地产商 两年换了三任董事长](http://www.share.kurohicncr.top/Article/details/04112.shtml)
-- 2026-06-30 08:06 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/340074.shtml)
+- 2026-06-30 08:28 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/645239545388.shtml)
+- 2026-06-30 08:40 - [德国进球被吹](http://www.share.kurohicncr.top/Article/details/36595618097.shtml)
+- 2026-06-30 08:38 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.kurohicncr.top/Article/details/6384302.shtml)
+- 2026-06-30 08:17 - [男子身高一米八二仍做断骨增高](http://www.share.kurohicncr.top/Article/details/049841219.shtml)
+- 2026-06-30 08:41 - [周冬雨多次说演不了话剧文城](http://www.share.minike.top/Article/details/06517141605.shtml)
+- 2026-06-30 08:32 - [“柠檬茶能换怀表？”](http://www.blog.kurohicncr.top/Article/details/68236005.shtml)
+- 2026-06-30 08:14 - [男子在京东买到“同仁堂”假药](http://www.share.minike.top/Article/details/06859673.shtml)
+- 2026-06-30 08:25 - [有酒店推行24小时退房制](http://www.blog.minike.top/Article/details/07058.shtml)
+- 2026-06-30 08:30 - [现在叛逆期的孩子最怕的是什么？](https://www.blog.kurohicncr.top/Article/details/3740093412.shtml)
+- 2026-06-30 08:31 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/50124058183.shtml)
+- 2026-06-30 08:28 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/6272300415.shtml)
+- 2026-06-30 08:30 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/29862214.shtml)
+- 2026-06-30 08:23 - [德国巴拉圭加时](https://www.share.minike.top/Article/details/01554043.shtml)
+- 2026-06-30 08:29 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/11490704765.shtml)
+- 2026-06-30 08:40 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/68976821193.shtml)

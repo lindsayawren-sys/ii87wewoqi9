@@ -1,60 +1,58 @@
-# 黄金、白银，回吐年内涨幅！后市怎么走？
+# 西安事变记（伟大征程）
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-国际金价跌至4300美元/盎司下方，贵金属整体回吐年内涨幅。6月8日，国内期货市场贵金属跌幅显著。截至下午收盘，国内主力合约中沪银跌8.83%、沪金跌3.67%，铂、钯跌幅均超过5%。国际市场上，伦敦现货黄金价格再度跌破4300美元/盎司关口，已完全回吐年内涨幅。伦敦金现年内跌幅约1%，伦敦银现年内跌幅达约7%。“5月以来，黄金价格冲高回落，重心下探。截至6月8日，国内现货99
+人民日报 本报记者 张丹华 陕西西安市临潼区华清宫，实景演出《12·12》将现场观众带回了近90年前的那段历史岁月。如今，骊山五间厅玻璃窗、墙壁上的弹孔依旧清晰可见，兵谏亭旁的虎斑石，吸引游客驻足观看。 1936年12月12日凌晨，按照张学良、杨虎城商定的计划，东北军一部包围华清池，扣留了蒋介石。第十七路军同时控制西安全城，囚禁了从南京来的几十名国民党军政要员。震惊中外的西安事
 
 ## 正文
 
-国际金价跌至4300美元/盎司下方，贵金属整体回吐年内涨幅。
+人民日报 本报记者 张丹华 陕西西安市临潼区华清宫，实景演出《12·12》将现场观众带回了近90年前的那段历史岁月。
 
-6月8日，国内期货市场贵金属跌幅显著。
+如今，骊山五间厅玻璃窗、墙壁上的弹孔依旧清晰可见，兵谏亭旁的虎斑石，吸引游客驻足观看。
 
-截至下午收盘，国内主力合约中沪银跌8.83%、沪金跌3.67%，铂、钯跌幅均超过5%。
+1936年12月12日凌晨，按照张学良、杨虎城商定的计划，东北军一部包围华清池，扣留了蒋介石。
 
-国际市场上，伦敦现货黄金价格再度跌破4300美元/盎司关口，已完全回吐年内涨幅。
+第十七路军同时控制西安全城，囚禁了从南京来的几十名国民党军政要员。
 
-伦敦金现年内跌幅约1%，伦敦银现年内跌幅达约7%。
+震惊中外的西安事变爆发。
 
-“5月以来，黄金价格冲高回落，重心下探。
+时间由此回溯至一年前。
 
-截至6月8日，国内现货99.99%黄金报价944.5元/克，相较5月初累计下跌7.45%。
+1935年12月，瓦窑堡会议决议和毛泽东在党的活动分子会议上的报告，明确提出党的基本策略任务是建立广泛的抗日民族统一战线。
 
-”卓创资讯富宝贵金属分析师黄加奇称，5月初美伊释放和谈信号，黄金在“霍尔木兹海峡恢复通航，通胀缓和下降”的预期下短暂冲高，但随着主要消费国之一的印度提升黄金进口关税、美联储鸽派票委米兰辞职以及美伊在铀浓缩等关键问题上僵持，5月中下旬黄金步入下行通道。
+之后，党对驻扎在西北地区的以张学良为首的东北军和以杨虎城为首的第十七路军开展统一战线工作。
 
 ## 相关推荐
 
-- 2026-06-30 08:08 - [巴西足球能否再现昔日荣光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-30 08:13 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-30 08:33 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-30 08:14 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-30 08:14 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-30 08:30 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
-- 2026-06-30 08:33 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
-- 2026-06-30 08:08 - [大蒜晒外面被路过女子连盆端走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-30 08:35 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
-- 2026-06-30 08:17 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
-- 2026-06-30 08:22 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-30 08:27 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-30 08:19 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-30 08:21 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
+- 2026-06-30 08:14 - [电影抓特务上映11天破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-30 08:24 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-30 08:18 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-30 08:20 - [第3集丨“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-30 08:40 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-30 08:35 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-30 08:24 - [德国巴拉圭进入点球大战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-30 08:23 - [4000美元是黄金新一轮下跌的开始吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-30 08:36 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-30 08:36 - [为什么会有「念旧」的心理？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-30 08:35 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-30 08:25 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:09 - [巴西补时绝杀日本](http://www.blog.minike.top/Article/details/300811224430.shtml)
-- 2026-06-30 08:06 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.kurohicncr.top/Article/details/570871781.shtml)
-- 2026-06-30 08:26 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/980193755815.shtml)
-- 2026-06-30 08:11 - [斛珠夫人](https://www.blog.minike.top/Article/details/87768.shtml)
-- 2026-06-30 08:15 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/09497475.shtml)
-- 2026-06-30 08:06 - [巴拉圭点球大战淘汰德国进16强](http://www.share.minike.top/Article/details/244860.shtml)
-- 2026-06-30 08:13 - [DeepSeek V4正式版要来了](https://www.share.minike.top/Article/details/47524068.shtml)
-- 2026-06-30 08:20 - [德国4比5巴拉圭](http://www.blog.minike.top/Article/details/90078.shtml)
-- 2026-06-30 08:08 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.minike.top/Article/details/770051363.shtml)
-- 2026-06-30 08:28 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/86696970728.shtml)
-- 2026-06-30 08:11 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/81917.shtml)
-- 2026-06-30 08:26 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/10496.shtml)
-- 2026-06-30 08:27 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/18040.shtml)
-- 2026-06-30 08:09 - [穆祉丞年度人气艺人](http://www.blog.minike.top/Article/details/22976812.shtml)
-- 2026-06-30 08:27 - [啊啊啊](https://www.share.minike.top/Article/details/62432716797.shtml)
+- 2026-06-30 08:36 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/63549253487.shtml)
+- 2026-06-30 08:18 - [王灿兮被烫伤两年后维权成功](http://www.blog.minike.top/Article/details/805553.shtml)
+- 2026-06-30 08:40 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.kurohicncr.top/Article/details/26825177.shtml)
+- 2026-06-30 08:27 - [我和我的家乡](http://www.blog.minike.top/Article/details/88931.shtml)
+- 2026-06-30 08:19 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/61179.shtml)
+- 2026-06-30 08:14 - [逃狱兄弟](https://www.blog.minike.top/Article/details/778758.shtml)
+- 2026-06-30 08:22 - [请回答王牌2019](http://www.blog.minike.top/Article/details/93111920.shtml)
+- 2026-06-30 08:14 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/151075983.shtml)
+- 2026-06-30 08:18 - [莫兰特转投开拓者效力](http://www.share.minike.top/Article/details/929183965907.shtml)
+- 2026-06-30 08:26 - [韩国球迷凌晨4点接机怒骂主教练](http://www.blog.minike.top/Article/details/9380791.shtml)
+- 2026-06-30 08:15 - [穆祉丞回应获年度人气艺人](https://www.share.minike.top/Article/details/68907.shtml)
+- 2026-06-30 08:39 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/3144347.shtml)
+- 2026-06-30 08:32 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/3729660.shtml)
+- 2026-06-30 08:24 - [周生如故](http://www.blog.kurohicncr.top/Article/details/09962944.shtml)
+- 2026-06-30 08:40 - [萨内 看笑了](http://www.blog.minike.top/Article/details/2195306.shtml)

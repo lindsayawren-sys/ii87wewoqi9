@@ -1,56 +1,54 @@
-# 丰巢取件先得看广告，客服回应：暂无法关闭
+# “滴滴出行”突然改名
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-界面新闻记者 | 宋佳楠 近日，有多地市民反映，使用丰巢智能柜取件时扫码并不直接跳转取件页面，反而会弹出各类诱导广告，关闭按钮不仅位置隐蔽且常常小于5mm。部分广告带有“摇一摇”跳转功能，手机轻微晃动即触发跳转，被用户吐槽“取快递像扫雷”。 对此，6月9日，丰巢客服人员向界面新闻记者表示，目前弹窗广告和跳转广告暂时无法关闭，之后会优化广告相关问题。客服人员强调，广告弹窗覆盖所有
+6月12日上午，记者搜索苹果软件App获悉，滴滴出行App 8.0版本昨日已正式上线，App名称从“滴滴出行”正式更名为“滴滴”。 据滴滴官方介绍，更新后的App页面结构全面升级，新增顶部导航栏，底部新增“消息”、“行程”入口，覆盖出行、送货、旅行、车主等多重使用场景，操作更顺畅。用户可通过语音使用AI打车，“送货”整合了大件送货、快送跑腿、搬家等服务，“旅行”提供租车、机票、
 
 ## 正文
 
-界面新闻记者 | 宋佳楠 近日，有多地市民反映，使用丰巢智能柜取件时扫码并不直接跳转取件页面，反而会弹出各类诱导广告，关闭按钮不仅位置隐蔽且常常小于5mm。
+6月12日上午，记者搜索苹果软件App获悉，滴滴出行App 8.0版本昨日已正式上线，App名称从“滴滴出行”正式更名为“滴滴”。
 
-部分广告带有“摇一摇”跳转功能，手机轻微晃动即触发跳转，被用户吐槽“取快递像扫雷”。
+据滴滴官方介绍，更新后的App页面结构全面升级，新增顶部导航栏，底部新增“消息”、“行程”入口，覆盖出行、送货、旅行、车主等多重使用场景，操作更顺畅。
 
-对此，6月9日，丰巢客服人员向界面新闻记者表示，目前弹窗广告和跳转广告暂时无法关闭，之后会优化广告相关问题。
+用户可通过语音使用AI打车，“送货”整合了大件送货、快送跑腿、搬家等服务，“旅行”提供租车、机票、酒店、火车票预订及“滴滴私家团”旅游服务。
 
-客服人员强调，广告弹窗覆盖所有丰巢柜机，不分区域和机型。
+同时，新版打车地图视觉焕新上线，优化路边商铺、楼宇楼栋、道路显示效果。
 
-丰巢并非唯一试水强制广告的快递柜品牌，像云柜等品牌同样存在扫码前后弹窗、跳转广告的问题。
+公开资料显示，该品牌此前曾用过“滴滴打车”、“滴滴出行”。
 
-云柜客服人员告诉界面新闻记者，其同样不支持关闭弹窗和跳转广告。
-
-这意味着，对于通过扫码取件的用户而言，只能被动接受广告“绑架”。
-
-此外，部分柜机要求用户关注公众号才能开柜，某些广告以“新人领券”为诱饵，诱导填写手机号、绑定银行卡，涉嫌过度收集个人信息。
+来源 | 界面新闻 微信编辑 | 七三责任编辑：杨赐
 
 ## 相关推荐
 
-- 2026-06-30 08:17 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
-- 2026-06-30 08:34 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-30 08:18 - [巴拉圭进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
-- 2026-06-30 08:11 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
-- 2026-06-30 08:20 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-30 08:17 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
-- 2026-06-30 08:23 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-30 08:13 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
-- 2026-06-30 08:17 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-30 08:17 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-30 08:31 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-30 08:30 - [德国 传控](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-30 08:41 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-30 08:37 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-30 08:22 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-30 08:26 - [金鹰奖视后提名预测](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
+- 2026-06-30 08:21 - [大蒜晒外面被路过女子连盆端走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-30 08:36 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-30 08:17 - [二次元提前预演明日巴西对日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-30 08:26 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-30 08:38 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-30 08:13 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:29 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/73640.shtml)
-- 2026-06-30 08:25 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/58189036.shtml)
-- 2026-06-30 08:31 - [德国连续三届世界杯无缘16强](https://www.blog.kurohicncr.top/Article/details/3432075.shtml)
-- 2026-06-30 08:14 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/681836646116.shtml)
-- 2026-06-30 08:06 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/706718.shtml)
-- 2026-06-30 08:31 - [日本16强魔咒](https://www.blog.minike.top/Article/details/152474055.shtml)
-- 2026-06-30 08:19 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.minike.top/Article/details/581117958427.shtml)
-- 2026-06-30 08:33 - [董路：谁赢谁是“正路子”](http://www.share.minike.top/Article/details/69742877.shtml)
-- 2026-06-30 08:31 - [穆祉丞年度人气艺人](https://www.share.kurohicncr.top/Article/details/979717643341.shtml)
-- 2026-06-30 08:11 - [逃狱兄弟](http://www.blog.minike.top/Article/details/56207549.shtml)
-- 2026-06-30 08:20 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/4585905051.shtml)
-- 2026-06-30 08:19 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/05992227573.shtml)
-- 2026-06-30 08:10 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/25389574092.shtml)
-- 2026-06-30 08:07 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.minike.top/Article/details/47745169286.shtml)
-- 2026-06-30 08:30 - [德国 传控](https://www.share.minike.top/Article/details/5172109.shtml)
+- 2026-06-30 08:16 - [金鹰奖视后提名预测](https://www.blog.kurohicncr.top/Article/details/537039.shtml)
+- 2026-06-30 08:38 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/49188.shtml)
+- 2026-06-30 08:38 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/3297212.shtml)
+- 2026-06-30 08:41 - [【涤墨作战7人870】望：我从地狱杀回来了！](http://www.blog.minike.top/Article/details/055835.shtml)
+- 2026-06-30 08:14 - [欧洲装一台空调有多难](https://www.blog.minike.top/Article/details/337116529860.shtml)
+- 2026-06-30 08:36 - [森保一 保守](http://www.blog.kurohicncr.top/Article/details/442935096441.shtml)
+- 2026-06-30 08:19 - [世界杯欧洲队7战南美仅1胜](https://www.share.kurohicncr.top/Article/details/5106368857.shtml)
+- 2026-06-30 08:37 - [周冬雨多次说演不了话剧文城](https://www.share.kurohicncr.top/Article/details/819748.shtml)
+- 2026-06-30 08:17 - [亚洲球队全部告别世界杯](https://www.blog.kurohicncr.top/Article/details/963128.shtml)
+- 2026-06-30 08:41 - [安切洛蒂 换人](https://www.blog.kurohicncr.top/Article/details/446233125838.shtml)
+- 2026-06-30 08:31 - [为什么会有「念旧」的心理？](https://www.share.minike.top/Article/details/3631461.shtml)
+- 2026-06-30 08:18 - [张月收到黄灿灿辣货两眼发光](http://www.share.kurohicncr.top/Article/details/0585600.shtml)
+- 2026-06-30 08:31 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/139351657.shtml)
+- 2026-06-30 08:19 - [高质量发展看新疆](http://www.share.minike.top/Article/details/75189232270.shtml)
+- 2026-06-30 08:37 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](http://www.share.minike.top/Article/details/42531638.shtml)

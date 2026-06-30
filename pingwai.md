@@ -1,59 +1,53 @@
-# 14部委“亮剑”：医药反腐进入全链条治理时代
+# 中方对菲防长制裁是否会影响中国未来对菲援助？ 中方回应
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-中新网北京6月8日电(记者 赵方园)6月8日，国家卫健委等14部委正式印发《2026年纠正医药购销领域和医疗服务中不正之风工作要点》(下称《工作要点》)，明确全年医药领域纠风与反腐工作重点。 文件明确了11项重点任务，涵盖坚持党建引领行风、强化医德医风建设、加强正向宣传引导、防范化解风险隐患、严守医疗数据安全、纠治失德失范行为、规范行业购销秩序、整治涉税违法行为、维护医保基金安
+中新网北京6月12日电 (记者 张蔚然)中国外交部发言人林剑12日主持例行记者会。 中国外交部昨日宣布中方对菲律宾国防部长特奥多罗及其亲属实施制裁。当日有记者就相关制裁是否会影响中国未来对菲援助提问。 林剑：外交部网站公布的对特奥多罗及其亲属实施制裁的决定，已经说明了有关具体情况。我想强调的是，如果任由特奥多罗这样的人一再破坏双方稳定关系的努力，最终损害的只会是菲国家和人民的根
 
 ## 正文
 
-中新网北京6月8日电(记者 赵方园)6月8日，国家卫健委等14部委正式印发《2026年纠正医药购销领域和医疗服务中不正之风工作要点》(下称《工作要点》)，明确全年医药领域纠风与反腐工作重点。
+中新网北京6月12日电 (记者 张蔚然)中国外交部发言人林剑12日主持例行记者会。
 
-文件明确了11项重点任务，涵盖坚持党建引领行风、强化医德医风建设、加强正向宣传引导、防范化解风险隐患、严守医疗数据安全、纠治失德失范行为、规范行业购销秩序、整治涉税违法行为、维护医保基金安全、整治行业不法乱象、积极推进系统治理。
+中国外交部昨日宣布中方对菲律宾国防部长特奥多罗及其亲属实施制裁。
 
-具体来看，《工作要点》将党建引领置于纠风工作首位，明确全面落实党委领导下的院长负责制，完善公立医院基层党组织参与重大决策机制。
+当日有记者就相关制裁是否会影响中国未来对菲援助提问。
 
-这意味着，医院重大事项决策、采购决策、项目合作、社会组织互动和外部资源引入，都会面临更强的组织监督和制度约束。
+林剑：外交部网站公布的对特奥多罗及其亲属实施制裁的决定，已经说明了有关具体情况。
 
-医德医风建设同样被放在突出位置。
+我想强调的是，如果任由特奥多罗这样的人一再破坏双方稳定关系的努力，最终损害的只会是菲国家和人民的根本利益。
 
-《工作要点》要求将医德医风贯穿医务人员职业生涯始终，并增加医学人文、医患沟通、卫生健康法律法规等内容在资格考试和继续医学教育中的比重。
-
-中新健康注意到，与2025年相比，今年《工作要点》新增了“整治涉税违法行为”的独立章节。
-
-要求开展联合调查和专项整治，严厉打击医疗器械领域“篡改套打”、虚开增值税发票、隐匿收入偷逃税款等涉税违法犯罪，对接受虚假开具发票的机构进行追踪，严肃处理违法违规问题，同时强化发票全链条风险防控，加强医疗器械购销领域信用评价。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 08:27 - [点球大战 残酷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-30 08:19 - [电影抓特务上映11天破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
-- 2026-06-30 08:10 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-30 08:09 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
-- 2026-06-30 08:29 - [日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-30 08:19 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-30 08:28 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-30 08:32 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
-- 2026-06-30 08:34 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-30 08:16 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-30 08:35 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-30 08:35 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-30 08:28 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-30 08:15 - [日本队主帅道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-30 08:40 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-30 08:24 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-30 08:30 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-30 08:34 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-30 08:34 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-30 08:38 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-30 08:24 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-30 08:12 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-30 08:12 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
+- 2026-06-30 08:41 - [郑钦文 四年一轮游](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:28 - [感动全网的699分女生想报考清华](http://www.share.minike.top/Article/details/90618192218.shtml)
-- 2026-06-30 08:30 - [恋与深空制作组回应近期争议](https://www.share.minike.top/Article/details/47909616021.shtml)
-- 2026-06-30 08:29 - [4000美元是黄金新一轮下跌的开始吗](https://www.blog.kurohicncr.top/Article/details/77585029722.shtml)
-- 2026-06-30 08:17 - [刘宇宁是去进货了吗](https://www.share.minike.top/Article/details/7106791294.shtml)
-- 2026-06-30 08:23 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/48397697.shtml)
-- 2026-06-30 08:08 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://www.share.minike.top/Article/details/740757850131.shtml)
-- 2026-06-30 08:14 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.kurohicncr.top/Article/details/608122002204.shtml)
-- 2026-06-30 08:21 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/90314586.shtml)
-- 2026-06-30 08:23 - [高考结束了，你会让孩子在家玩手机吗？](https://www.blog.kurohicncr.top/Article/details/313249934.shtml)
-- 2026-06-30 08:21 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.kurohicncr.top/Article/details/2833098.shtml)
-- 2026-06-30 08:10 - [毒液2](https://www.blog.kurohicncr.top/Article/details/415559.shtml)
-- 2026-06-30 08:25 - [爱很美味](https://www.share.minike.top/Article/details/57992025851.shtml)
-- 2026-06-30 08:32 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/737356346610.shtml)
-- 2026-06-30 08:08 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/2711734508.shtml)
-- 2026-06-30 08:12 - [莫兰特转投开拓者效力](http://www.blog.kurohicncr.top/Article/details/245564593993.shtml)
+- 2026-06-30 08:40 - [爆冷出局！德国点球大战不敌巴拉圭](http://www.blog.kurohicncr.top/Article/details/439108207.shtml)
+- 2026-06-30 08:23 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/817661093.shtml)
+- 2026-06-30 08:33 - [世界杯：德国vs巴拉圭](https://www.blog.minike.top/Article/details/3705679.shtml)
+- 2026-06-30 08:33 - [日本五次世界杯淘汰赛全败](https://www.blog.minike.top/Article/details/80597511495.shtml)
+- 2026-06-30 08:14 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/662513051444.shtml)
+- 2026-06-30 08:31 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/085660862834.shtml)
+- 2026-06-30 08:35 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/59300565.shtml)
+- 2026-06-30 08:40 - [毒液2](https://www.share.kurohicncr.top/Article/details/867973.shtml)
+- 2026-06-30 08:25 - [勇士续约波尔津吉斯](http://www.share.minike.top/Article/details/032474.shtml)
+- 2026-06-30 08:13 - [日本 高位逼抢](https://www.share.kurohicncr.top/Article/details/7557142.shtml)
+- 2026-06-30 08:16 - [泰山景区回应修建刀片刺绳隔离网](http://www.share.minike.top/Article/details/008383382.shtml)
+- 2026-06-30 08:30 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/1929249.shtml)
+- 2026-06-30 08:25 - [巴拉圭先进球了](http://www.blog.minike.top/Article/details/27338013.shtml)
+- 2026-06-30 08:41 - [德国淘汰](https://www.share.kurohicncr.top/Article/details/9391519.shtml)
+- 2026-06-30 08:40 - [德国巴拉圭 折磨](http://www.share.kurohicncr.top/Article/details/156949.shtml)

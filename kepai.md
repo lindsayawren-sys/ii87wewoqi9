@@ -1,57 +1,44 @@
-# AI眼镜：禁在六月高考，火在六月华强北
+# 只是按个肩颈 为何会突发血栓
 
-> 更新时间：2026-06-30 08:36:02 UTC+8
+> 更新时间：2026-06-30 08:42:02 UTC+8
 
 ## 摘要
 
-今年6月，AI眼镜再次成为市场中“最靓的仔”。 从消费端看，618大促带动了智能眼镜的火爆销售。 截至5月31日，天猫平台数据显示，AI智能硬件整体销售额同比增长80%，而AI眼镜品类更是激增9倍，成为今年最引人注目的黑马品类。 天猫XR设备热卖榜显示，乐奇Rokid带显示AI眼镜、千问AI眼镜S1、夸克AI眼镜S1占据前三席位，其中乐奇Rokid近7天销量突破1000件。 另
+发布时间：2026年06月11日 17:43 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-今年6月，AI眼镜再次成为市场中“最靓的仔”。
-
-从消费端看，618大促带动了智能眼镜的火爆销售。
-
-截至5月31日，天猫平台数据显示，AI智能硬件整体销售额同比增长80%，而AI眼镜品类更是激增9倍，成为今年最引人注目的黑马品类。
-
-天猫XR设备热卖榜显示，乐奇Rokid带显示AI眼镜、千问AI眼镜S1、夸克AI眼镜S1占据前三席位，其中乐奇Rokid近7天销量突破1000件。
-
-另一边，6月高考季也给智能眼镜整了个“大活儿”。
-
-多省考试院直接发通知：进考场先查眼镜！
-
-智能眼镜带进去就是作弊。
-
-听起来像是给AI眼镜泼了盆冷水？
+发布时间：2026年06月11日 17:43 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 08:23 - [第3集丨“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-30 08:16 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-30 08:24 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-30 08:18 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-30 08:11 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
-- 2026-06-30 08:07 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-30 08:27 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-30 08:15 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-30 08:22 - [王濛回复黄灿灿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-30 08:10 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
-- 2026-06-30 08:12 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-30 08:15 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-30 08:27 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-30 08:28 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-30 08:37 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
+- 2026-06-30 08:16 - [亚洲球队全部出局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-30 08:25 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-30 08:35 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-30 08:12 - [高质量发展看新疆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
+- 2026-06-30 08:38 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-30 08:24 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-30 08:25 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-30 08:36 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:10 - [电影抓特务上映11天破亿](http://www.blog.kurohicncr.top/Article/details/87491105807.shtml)
-- 2026-06-30 08:26 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/550862.shtml)
-- 2026-06-30 08:18 - [巴拉圭进球](http://www.share.kurohicncr.top/Article/details/88160.shtml)
-- 2026-06-30 08:30 - [一见倾心](http://www.blog.minike.top/Article/details/21461609406.shtml)
-- 2026-06-30 08:31 - [男子在京东买到“同仁堂”假药](https://www.blog.kurohicncr.top/Article/details/53795597247.shtml)
-- 2026-06-30 08:14 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/542036336.shtml)
-- 2026-06-30 08:33 - [森保一致歉：世界第一目标没能实现](http://www.share.kurohicncr.top/Article/details/5960709179.shtml)
-- 2026-06-30 08:14 - [泰山景区回应修建刀片刺绳隔离网](https://www.share.minike.top/Article/details/99491608.shtml)
-- 2026-06-30 08:18 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/706380188591.shtml)
-- 2026-06-30 08:25 - [点球大战 残酷](http://www.blog.minike.top/Article/details/4528568.shtml)
-- 2026-06-30 08:25 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/207501.shtml)
-- 2026-06-30 08:14 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](http://www.blog.kurohicncr.top/Article/details/039887560877.shtml)
-- 2026-06-30 08:20 - [藤森庆子赢得秘鲁总统选举](http://www.share.minike.top/Article/details/5548200345.shtml)
-- 2026-06-30 08:30 - [世界杯巴拉圭点球淘汰德国](https://www.share.kurohicncr.top/Article/details/4221904602.shtml)
-- 2026-06-30 08:34 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.kurohicncr.top/Article/details/72392112.shtml)
+- 2026-06-30 08:13 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/74961638407.shtml)
+- 2026-06-30 08:19 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/658721.shtml)
+- 2026-06-30 08:29 - [曝灰熊将莫兰特交易至开拓者](https://www.blog.kurohicncr.top/Article/details/993545256.shtml)
+- 2026-06-30 08:29 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/083552425.shtml)
+- 2026-06-30 08:30 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/744283306.shtml)
+- 2026-06-30 08:37 - [院士：太空轨道必须抢](http://www.blog.minike.top/Article/details/556730.shtml)
+- 2026-06-30 08:14 - [高考结束了，你会让孩子在家玩手机吗？](https://www.blog.kurohicncr.top/Article/details/569019804475.shtml)
+- 2026-06-30 08:41 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.kurohicncr.top/Article/details/651952.shtml)
+- 2026-06-30 08:14 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/878086603999.shtml)
+- 2026-06-30 08:40 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/7784845.shtml)
+- 2026-06-30 08:19 - [天道](https://www.share.kurohicncr.top/Article/details/162269509259.shtml)
+- 2026-06-30 08:35 - [巴西2比1日本](http://www.share.minike.top/Article/details/2861845283.shtml)
+- 2026-06-30 08:39 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/1346419.shtml)
+- 2026-06-30 08:22 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/1085021512.shtml)
+- 2026-06-30 08:33 - [郑钦文温网一轮游](http://www.blog.minike.top/Article/details/4793900.shtml)
